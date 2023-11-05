@@ -3,7 +3,10 @@
 set this_directory /home/andrew/Code/Github/selkouutiset-scrape-cleaned
 pushd $this_directory
 
-git submodule update --recursive
+# Pull the latest HEAD from selkouutiset-scrape.
+cd selkouutiset-scrape-dirty/
+git pull origin HEAD
+cd -
 
 set source_dir "./selkouutiset-scrape-dirty/"
 set hash "./.hash"

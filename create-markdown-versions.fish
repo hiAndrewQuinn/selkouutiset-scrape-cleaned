@@ -1,20 +1,22 @@
 #!/usr/bin/fish
 
-git submodule update
-
 set source_dir "./selkouutiset-scrape-dirty/"
+set hash "./.hash"
+
+touch $hash
 
 for source_file in (find $source_dir -type f -name "*.html")
-    set dest_dir (echo $source_file | sed "s|$source_dir||" | sed 's|/[^/]*$||')
-    if not test -d $dest_dir
-        mkdir -p $dest_dir
-        # Check if the directory was created successfully
-        if not test $status -eq 0
-            echo "Failed to create" $dest_dir
-            continue # Skip to the next iteration of the loop if directory creation failed
-        end
-        echo $dest_dir "created."
+    if grep -q (sha1sum $source_file) $hash
+        echo "No changes in" $source_file ", skipping."
+        continue # Skip to the next iteration of the loop if the hash is found
     end
+
+    echo "Now doing $source_file."
+    # Append the hash to the hash file
+    echo (sha1sum $source_file) >>$hash
+
+    set dest_dir (echo $source_file | sed "s|$source_dir||" | sed 's|/[^/]*$||')
+    mkdir -p $dest_dir
 
     set dest_file "$dest_dir/_index.md"
 

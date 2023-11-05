@@ -6,7 +6,7 @@ pushd $this_directory
 # Pull the latest HEAD from selkouutiset-scrape.
 cd selkouutiset-scrape-dirty/
 git pull origin HEAD
-cd -
+cd $this_directory
 
 set source_dir "./selkouutiset-scrape-dirty/"
 set hash "./.hash"

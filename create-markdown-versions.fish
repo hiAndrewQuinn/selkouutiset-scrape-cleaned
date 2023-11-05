@@ -29,11 +29,11 @@ for source_file in (find $source_dir -type f -name "*.html")
     set dest_file "$dest_dir/_index.md"
 
     cat $source_file |
-        sed '0,/^<div class="articlewrapper/!p' |
         pandoc -f html -t commonmark |
         sed '/^<div\|^<\/div/d' |
         sed '/^<span\|^<\/span/d' |
         pandoc -f commonmark -t html |
+        sed '0,/^<div class="articlewrapper/!p' |
         sed '/^<ul>\|^<\/ul>/d' |
         sed '/^<li><a/d' |
         sed '/^<p><a href.*poddar/d' |

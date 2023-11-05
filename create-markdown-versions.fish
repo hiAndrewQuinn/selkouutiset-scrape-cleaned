@@ -3,7 +3,7 @@
 set this_directory /home/andrew/Code/Github/selkouutiset-scrape-cleaned
 pushd $this_directory
 
-git submodule update
+git submodule update --recursive
 
 set source_dir "./selkouutiset-scrape-dirty/"
 set hash "./.hash"

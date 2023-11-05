@@ -30,7 +30,7 @@ for source_file in (find $source_dir -type f -name "*.html")
 
     cat $source_file |
         pandoc -f html -t commonmark |
-        sed '0,/^# Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./!p' |
+        sed '0,/^\# Yle Selkouutiset kertoo uutiset/!p' |
         sed '/^<div\|^<\/div/d' |
         sed '/^<span\|^<\/span/d' |
         pandoc -f commonmark -t html |

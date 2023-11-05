@@ -30,7 +30,8 @@ for source_file in (find $source_dir -type f -name "*.html")
 
     cat $source_file |
         pandoc -f html -t commonmark |
-        sed '0,/^\# Yle Selkouutiset kertoo uutiset/!p' |
+        sed -n '/## Radio/,$p' |
+        sed '/Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./Q' |
         sed '/^<div\|^<\/div/d' |
         sed '/^<span\|^<\/span/d' |
         pandoc -f commonmark -t html |
@@ -38,9 +39,8 @@ for source_file in (find $source_dir -type f -name "*.html")
         sed '/^<li><a/d' |
         sed '/^<p><a href.*poddar/d' |
         sed '/<p>journalismia/d' |
-        sed '/voit lukea uutiset samanaikaisesti alta/d' |
+        sed '/lukea uutiset samanaikaisesti alta/d' |
         pandoc -f html -t commonmark >$dest_file
-
 end
 
 git add -A

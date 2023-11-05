@@ -1,5 +1,7 @@
 #!/usr/bin/fish
 
+git submodule update
+
 set source_dir "./selkouutiset-scrape-dirty/"
 set hash "./.hash"
 

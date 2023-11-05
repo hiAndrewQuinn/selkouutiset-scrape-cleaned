@@ -39,7 +39,6 @@ for source_file in (find $source_dir -type f -name "*.html")
         pandoc -f html -t commonmark >$dest_file
 end
 
-git status
 git add .
 git commit -m "Automated update: $(date)"
 git push

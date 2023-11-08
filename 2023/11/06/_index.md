@@ -1,7 +1,7 @@
 ## Radio | Selkouutiset | sunnuntai 5.11.2023
 
 Energiaremontit. Jäätelöfirmojen yhteys Venäjälle. Venäjän ohjuskoe.
-Saksan panttivankitilanne. Tulvavat. Sääennuste.
+Saksan panttivankitilanne. Tulvat. Sääennuste.
 
 ### Energiaremonttien tuki
 

@@ -1,97 +1,87 @@
-## Radio Selkouutiset torstai 9.11.2023
+## Radio | Selkouutiset | perjantai 10.11.2023
 
-Lähi-itä. Turkistarhaus. Makeiset. Ylioppilaat. Ahtisaari. Sää.
+Presidentti Martti Ahtisaaren hautajaiset ja elämäntyö.
 
-Lähi-itä
+### Presidentti Ahtisaaren hautajaiset ja elämäntyö
 
-![ Kuva: Murtadha Al Sudani /
-AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699096585/39-11958306546279b91a3b)
+![Martti Ahtisaari, Suomen presidentti 1994-200. Kuva: CMI/Tomas
+Whitehouse](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699528852/39-1197047654a2d3334539)
 
-YK:n ihmisoikeusvaltuutettu Volker Türk sanoo, että terroristijärjestö
-Hamas ja Israel ovat molemmat syyllistyneet sotarikoksiin.
+Presidentti Martti Ahtisaari on haudattu tänään perjantaina.
 
-Ihmisoikeusvaltuutettu sanoo, että Hamasin ja muiden palestiinalaisten
-ryhmien 
+Ahtisaari oli Suomen presidentti vuodesta 1994 vuoteen 2000. Hän kuoli
+lokakuun 16. päivä.
 
-7\. lokakuuta tekemät julmuudet ja panttivankien pitäminen ovat
-sotarikoksia.
+Tässä lähetyksessä kerromme presidentti Ahtisaaren hautajaisista ja
+Ahtisaaren elämäntyöstä.
 
-Ihmisoikeusvaltuutetun mukaan myös Israelin tekemä kaikkien
-palestiinalaisten rankaiseminen ja siviilien evakuoiminen pakolla ovat
-sotarikos. 
+Toimittaja **Merja Windia** on seurannut Ahtisaaren hautajaisia.
 
-### Turkistarhaus
+**Merja, millaiset Ahtisaaren hautajaiset olivat?**
 
-![ Kuva: Janne Järvinen /
-Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4024,w_7154,x_3,y_757/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696520411/39-1181991651ed3e183fc7)
+![Presidentti Sauli Niinistö puhui Ahtisaaren hautajaisissa. Kuva:
+Heikki Saukkomaa /
+Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_259/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699619473/39-1198810654e20fbae885)
 
-Suuri osa suomalaisista ei halua, että turkistarhausta jatketaan samalla
-tavalla kuin nyt.
+Hautajaiset olivat arvokkaat, mutta tunnelma oli lämmin.
 
-80 prosenttia suomalaisista lopettaisi turkistarhauksen tai muuttaisi
-sitä mukavammaksi eläimille.
+Hautajaisissa puhui Suomen nykyinen presidentti Sauli Niinistö. Niinistö
+sanoi, että Ahtisaari oli suuri suomalainen. Lisäksi Ahtisaari näki
+kaikissa ihmisissä jotakin hyvää, Niinistö sanoi.
 
-Turkistarhauksen kieltämistä kokonaan kannatti yli puolet vastanneista.
+Ahtisaaren puoliso Eeva ja poika Marko liikuttuivat Niinistön puheesta.
 
-Turkistarhauksesta tehtyyn kyselyyn vastasi yli tuhat suomalaista. 
+**Keitä vieraita hautajaisissa oli?**
 
-### Makeiset
+![Ruotsin kuningas ja muita hautajaisvieraita. Kuva:
+Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699627300/39-1199035654e40494d395)
 
-![ Kuva: Mika Moksu / Yle, Teemu Kammonen /
-Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1814,w_3217,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699517933/39-1197951654c95aa03257)
+Hautajaisissa oli yli 800 kutsuvierasta. Vieraiden joukossa oli
+esimerkiksi Ruotsin kuningas Kaarle Kustaa.
 
-Useat Suomessa valmistetut salmiakki- ja lakritsimakeiset sisältävät
-matriini-nimistä ainetta, joka on kielletty EU-alueella.
+Myös Namibian presidentti osallistui Ahtisaaren hautajaisiin. Ahtisaari
+auttoi Namibiaa itsenäistymään vähän yli 30 vuotta sitten.
 
-Yle tilasi laboratoriotutkimuksen 10 suomalaisesta karkista. 6 karkista
-löytyi liikaa matriinia.
+Lisäksi vieraiden joukossa oli valtiojohtajia Kosovosta ja Indonesiasta.
+Ahtisaari oli neuvottelemassa rauhaa molempiin maihin.
 
-Matriinia on lakristiuutteessa, joka on karkkien raaka-aine.
+**Oliko presidentti myös rauhanneuvottelija?**
 
-Ei tiedetä varmasti onko matriini vaarallista. Siksi EU on kieltänyt
-matriinin varmuuden vuoksi. 
+Kyllä, Ahtisaari toimi kansainvälisenä rauhanneuvottelijana monta
+kymmentä vuotta. Presidenttikauden jälkeen Ahtisaari perusti järjestön,
+joka auttaa väkivaltaisten konfliktien ratkaisussa.
 
-### Ylioppilaat
+Maailmalla Ahtisaari tunnetaan ennen kaikkea rauhanneuvottelijana.
+Vuonna 2008 Ahtisaari sai ensimmäisenä suomalaisena Nobelin
+rauhanpalkinnon.
 
-![ Kuva: Veera Varrio /
-Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699354150/39-11968216549e8120dbd8)
+**Ahtisaaren arkku vietiin tuomiokirkosta hautausmaalle surusaatossa,
+joka kulki Helsingin keskustan läpi. Oliko katujen varsilla ihmisiä?**
 
-Tänä syksynä valmistuu noin 4300 uutta ylioppilasta.
+![Monet ihmiset halusivat seurata Ahtisaaren surusaattoa. Kuva: Roni
+Rekomaa /
+Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_11/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699619608/39-1198819654e22ed1c931)
 
-Ylioppilaskokeeseen osallistui yhteensä melkein 44 000 opiskelijaa.
-Suuri osa tekee kokeen monessa osassa.
+Kyllä, katujen varsilla oli tuhansia ihmisiä, vaikka sää oli sateinen.
+Monet halusivat tulla kunnioittamaan Ahtisaaren muistoa.
 
-Syksyn ylioppilaskirjoitusten tulokset on kerrottu tänään. Uusien
-ylioppilaiden nimet löytyvät nettiosoitteesta
-[yle.fi](https://yle.fi/a/74-20057938).
+Presidentti Ahtisaari laskettiin hautaan Hietaniemen hautausmaalla.
+Miksi Ahtisaari haudattiin juuri Hietaniemeen?
 
-Ylioppilastutkinnon jälkeen opiskelija voi hakea esimerkiksi
-yliopistoon. 
+Suomessa on tapana, että presidentit haudataan Hietaniemen
+hautausmaalle. Vain kaksi presidenttiä on haudattu muualle.
 
-### Ahtisaari
-
-![Presidentti Martti Ahtisaaresta julkaistava surumerkki. Kuva:
-Posti](https://images.cdn.yle.fi/image/upload/c_crop,h_839,w_1497,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699530416/39-1198123654cc6189c3ab)
-
-Presidentti Martti Ahtisaaresta tehdään postimerkki.
-
-Posti julkaisee Ahtisaaresta surumerkin, jolla kunnioitetaan Ahtisaaren
-muistoa. Postimerkissä on vain mustaa ja valkoista väriä.
-
-Postimerkki julkaistaan 15. joulukuuta.
-
-Presidentti Martti Ahtisaari kuoli 16. lokakuuta Helsingissä. Hän oli
-86-vuotias.
+**Kiitos näistä tiedoista, Merja.**
 
 ### Sää
 
-![ Kuva: Marjo Hoikkanen /
-Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699507570/39-1197896654c6d10b133e)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699633281/39-1199138654e58651ee77)
 
-Sää on tänään pilvistä ja enimmäkseen poutaista.
+Viikonloppu on sateinen suuressa osassa maata.
 
-Yöllä etelästä saapuu sadealue ja tuuli voimistuu.
+Etelässä sataa vettä ja maan keskiosassa sataa lunta.
 
-Huomenna etelässä sataa vettä, maan keskiosissa sataa räntää ja lunta.
+Pohjoisessa on poutaa eli vettä tai lunta ei sada. Lauantaina
+pohjoisessa paistaa jopa aurinko.
 
-Pohjoisessa on huomenna poutaa ja pilvipeite rakoilee.
+Lämpötila on etelässä plussan puolella, pohjoisessa on pakkasta.

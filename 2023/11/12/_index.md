@@ -1,86 +1,92 @@
-## Radio selkouutiset lauantai 11.11.2023
+## Radio selkouutiset sunnuntai 12.11.2023
 
-Korona. Tiktok. Mieskaverit. Nenäpäivä. Sää.
+Rajavalvonta Venäjältä. Kaupunkien turvallisuus. Maksamattomat
+opintolainat. Isänpäivä. Sää.
 
-### Korona
+### Rajavalvonta Venäjältä Suomeen
 
-![HUSin infektiotautien ylilääkäri Asko Järvinen. Kuva: Paavo Jantunen /
-Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3027,w_5382,x_0,y_311/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699692578/39-1199235654f3bb0eba14)
+![Suomi on varautunut rajan turvallisuustilanteen muuttumiseen, sanoo
+sisäministeri Mari Rantanen. Kuva: Mikko Savolainen /
+Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2720,w_4836,x_0,y_450/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695988171/39-11790926516b884859ee)
 
-Korona-asiantuntija sanoo, että kansalaisten ei tarvitse olla
-huolissaan, vaikka tartunnan riski on nyt Suomessa suuri.
-Infektiotautien ylilääkäri Asko Järvinen sanoo, että rokotusten ja
-sairastetun koronan suoja on hyvä.
+Suomen kaakkoisrajalle on tullut Venäjältä tavallista enemmän ihmisiä
+ilman viisumia.
 
-Uusi koronan virustyyppi EG5 eli Eris aiheuttaa tautia, joka muistuttaa
-aiempaa enemmän influenssaa. Kuume voi olla silti kova.
+He ovat kolmansien maiden kansalaisia, jotka ovat käyttäneet Venäjää
+läpikulkuun. Heitä on tullut syksyllä noin 100. He ovat rajalla
+hakeneet turvapaikkaa Suomesta.
 
-Tehohoidon professori Matti Reinikainen sanoo, että suunta on kuitenkin
-huolestuttava. Tällä hetkellä koronan vuoksi tehohoidossa on yhteensä
-lähes 30 potilasta. Se on yhtä paljon kuin kevättalvella 2022 pandemian
-aikana. Pandemiassa tauti levisi maailmanlaajuisesti.
+Venäjän viranomaiset eivät tähän asti ole sallineet pääsyä Suomen
+rajalle ilman viisumia. Rajavartiosto kertoo, että Venäjän toiminnassa
+on hybridivaikuttamisen piirteitä. Hybridivaikuttamisessa jokin valtio
+yrittää vaikuttaa toisen valtion järjestelmään.
 
-### Tiktok
+Luvattomat maahantulijat ovat viikon aikana tulleet rajalle
+polkupyörillä. Nyt rajavartiolaitos on estänyt polkupyörillä tulon
+Suomeen.
 
-\!\[Yle loi tekoälyn avulla Tiktokiin masentuneen 13-vuotiaan tytön
-profiilin.
+### Kaupunkien turvallisuus
 
-Videosovellus Tiktokin sisältö voi alkaa pahentaa alakuloisuutta
-yllättävän nopeasti, kertoo Ylen testi.
+![Tampereen turvallisuustilanne on huonontunut 10 viime vuoden aikana
+enemmän kuin Helsingissä. Kuva: Jani Aarnio /
+Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2687,w_4777,x_1,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699517677/39-1197321654a95de6dbe7)
 
-Yle loi tekoälyn avulla Tiktokiin masentuneen 13-vuotiaan tytön
-profiilin ja kuvan. Tiktok alkoi nopeasti näyttää videoita, joiden
-sisältö liittyy masennukseen, laihuuden ihannointiin ja jopa
-itsemurhaan.
+Turvallisuus on huonontunut Suomen suurissa kaupungeissa.
 
-Kansalaisjärjestö Mieli ry:n johtava psykologi Frans Horneman sanoo,
-että videot ovat haavoittuvien ryhmien mielenterveydelle haitallisia.
+Yle keräsi tietoja 10 suurimmasta kaupungista. Häiriöindeksi kertoo,
+että turvallisuus on huonontunut varsinkin Espoossa ja Tampereella.
+Indeksi kertoo, kuinka paljon julkisilla paikoilla kirjattiin
+rikosepäilyjä. Indeksi suhteutetaan asukaslukuun.
 
-Tiktokilla on Suomessa 1,5 miljoonaa käyttäjää. Suurin osa on nuoria.
+Tampereen kaupungin turvallisuuspäällikkö Jouni Perttula sanoo, että
+turvattomuuden syitä ovat esimerkiksi päihteet, mielenterveysongelmat ja
+asukasluvun nopea kasvu.
 
-Testistä on laaja artikkeli osoitteessa yle.fi.
+### Opintolainat
 
-### Mieskaverit
+![Velkavaikeuksien taustalla on myös vuoden 2017 opintotukiuudistus.
+Lainaa sai nostaa 650 euroa kuukaudessa entisen 400 euron sijaan. Kuva:
+Jani Aarnio /
+Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_557/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1694583672/39-1171262650149d3dfd0c)
 
-![Helsinkiläinen Nikodemus Nousiainen toimii mieskaverina 7-vuotiaalle
-pojalle. Kuva: Mårten Lampén /
-Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_150/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699361417/39-1197061654a30293868a)
+Kela joutuu perimään opiskelijoilta ennätysmäärän opintolainaa, jota
+opiskelija ei ole maksanut. Kela on perinyt tänä vuonna velkoja jo 3
+kertaa niin paljon kuin viime vuonna. Kelan perinnässä on opintovelkoja
+jo yli 72 miljoonaa euroa.
 
-Mieskaveritoiminta kaipaa lisää miehiä. Mieskaverit ovat kavereita
-lapsille, joilla ei ole yhteyttä isään tai yhteys on heikko.
+Opiskelijat saavat Suomessa opintotuen lisäksi myös opintolainaa. Lainan
+takaa valtio eli käytännössä Kela.
 
-Mieskaveritoimintaa järjestää Pienperheyhdistys 6 paikkakunnalla. Mukana
-on noin 250 vapaaehtoista.
+Jos opiskelija ei pysty maksamaan lainaa takaisin, Kela maksaa sen
+pankille. Sen jälkeen Kela alkaa periä velkaa velalliselta eli
+opiskelijalta.
 
-Äidin kanssa asuu noin 110 000 lasta, kertoo Tilastokeskus.
+Taustalla on esimerkiksi se, että opiskelijoiden tuki on aiempaa enemmän
+riippuvainen opintolainasta. Lisäksi korkeat korot ja inflaatio
+vaikeuttavat opiskelijoiden taloutta.
 
-Useimmiten lapsi ja mieskaveri tapaavat 2 - 4 kertaa kuukaudessa.
-Kaverukset päättävät itse, mitä he tapaamisissa tekevät.
+### Isänpäivä
 
-Vapaaehtoisille annetaan 15 tunnin koulutus.
+![Isänpäivän idea kehittyi Yhdysvalloissa äitienpäivän viettämisen
+takia. 1940-luvun lopulla pohjoismaiset kauppiaat ehdottivat päiväksi
+marraskuun toista sunnuntaita, kun kaupoissa on vielä hiljaista ennen
+joulusesonkia.](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1510307500/39-4421515a057677df668)
 
-### Nenäpäivä
+Sunnuntaina on vietetty isänpäivää.
 
-![Puoli seitsemän -ohjelman toimittajat Ella Kanninen ja Mikko
-Kekäläinen olivat mukana Nenäpäivässä. Kuva: Jari Pussinen /
-Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6)
+Isänpäivä on aina marraskuun toisena sunnuntaina. Isänpäivä on ollut
+Suomessa virallinen liputuspäivä vuodesta 2019 alkaen. Vakiintunut
+liputuspäivä se on ollut jo 1980-luvulta lähtien.
 
-Perjantain Nenäpäivä Yle TV1:ssä keräsi tänä vuonna lahjoituksia yli 1,6
-miljoonaa euroa. Nenäpäivä on Nenäpäivä-säätiön
-hyväntekeväisyyskampanja.
-
-Nenäpäivä kutsuu suomalaiset auttamaan maailman lapsia, jotka ovat
-kaikkein heikoimmassa asemassa.
-
-Nenäpäivä-keräykseen voi osallistua vielä vuoden loppuun asti.
+Suomessa on 1,3 miljoonaa isää, kertoo Tilastokeskus.
 
 ### Sää
 
 ![ Kuva:
-Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699717391/39-1199335654fa0f0a84d5)
+Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699803736/39-11995176550f22164d93)
 
-Sunnuntaina vesisade yleistyy etelässä. Maan keskiosissa liikkuu
-lumisateita. Lämpötila on eteläosissa 0 – -4 astetta. Pohjoisessa on -9
-– -14 astetta.
+Kylmää ilmaa alkaa virrata pohjoisesta Suomeen. Vähäisiä lumisateita voi
+tulla vielä maanantaina etelässä ja idässä.
 
-Päivä on melko tuulinen.
+Lämpötila on miinuksella päivällä myös etelärannikolla. Pohjoisessa
+pakkasta on yöllä ja aamulla 15...25 astetta, paikoin enemmänkin.

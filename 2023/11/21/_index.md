@@ -1,6 +1,6 @@
-## Radio | Selkouutiset | maanantai 20.11.2023
+## Radio | Selkouutiset | tiistai 21.11.2023
 
-Turvapaikanhakijat itärajalla. Sähkön hinta. Päiväkodit. Sää.
+Vakoilu. Itärajan tilanne. Kansallisooppera. Sää.
 
 class="Buttonstyles\_\_iconSize-sc-17sr1bx-4
 Buttonstyles\_\_IconWrapper-sc-17sr1bx-6 jztbuJ dPcqZv
@@ -9,101 +9,101 @@ src="data:image/svg+xml;base64,PHN2ZyB3aWR0aD0iMjQiIGhlaWdodD0iMjQiIHZpZXdib3g9I
 class="aw-1dh9xzu dgIqdg" /><span
 class="Buttonstyles__TextWrapper-sc-17sr1bx-7 kWJvkV yds-button__text">Kuuntele</span>
 
-### Turvapaikanhakijat itärajalla
+### Vakoilu
 
 <figure>
 <img
-src="https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700423531/39-1203119655a67178e33b"
+src="https://images.cdn.yle.fi/image/upload/c_crop,h_562,w_1000,x_0,y_32/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700569701/39-1204215655ca2203557b"
+class="aw-zhx2sq hyCAoR" alt=" Kuva: Eeva Sarlin / Yle, AOP" />
+<figcaption aria-hidden="true"><span> Kuva: Eeva Sarlin / Yle,
+AOP</span></figcaption>
+</figure>
+
+Venäjä todennäköisesti vakoilee suomalaisten tietoliikennettä. Näin
+kertovat tiedot, jotka Yle on hankkinut.
+
+Venäjä vakoilee tietoliikennettä, joka kulkee satelliittien kautta.
+
+Venäjällä on avaruudessa omia satelliitteja, joita se käyttää vakoiluun.
+
+Tiedot Venäjän vakoilusta eivät ole täysin varmoja. Suomen
+Puolustusvoimat ja hallitus eivät kommentoi asiaa.
+
+Suomi yrittää tulevaisuudessa seurata tarkemmin venäläisten
+satelliittien toimintaa.
+
+Suomen valtio aikoo perustaa uuden keskuksen, joka voi muun muassa
+seuraa satelliittien toimintaa.
+
+### Itärajan tilanne
+
+<figure>
+<img
+src="https://images.cdn.yle.fi/image/upload/c_crop,h_2515,w_4470,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700575368/39-1203513655b5b4d432e9"
 class="aw-zhx2sq hyCAoR"
-alt="Professori Maciej Duszczyc on tutkinut maahanmuuttoa. Kuva: Anna Karismo / Yle" />
-<figcaption aria-hidden="true"><span>Professori Maciej Duszczyc on
-tutkinut maahanmuuttoa.</span><span> Kuva: Anna Karismo /
+alt="Ihmisiä tuli tiistaina Sallan raja-asemalle. Kuva: Juuso Stoor / Yle" />
+<figcaption aria-hidden="true"><span>Ihmisiä tuli tiistaina Sallan
+raja-asemalle.</span><span> Kuva: Juuso Stoor / Yle</span></figcaption>
+</figure>
+
+Itärajalle eli Suomen ja Venäjän rajalle on taas tiistaina tullut monta
+kymmentä ihmistä Venäjältä.
+
+Heillä ei ole tarpeellisia papereita, esimerkiksi viisumia.
+
+He ovat tulleet Vartiuksen raja-asemalle ja Sallan raja-asemalle.
+
+Tutkijat sanovat, että Venäjä ohjaa heitä Suomeen, koska se haluaa
+häiritä Suomea.
+
+Suomen hallitus yrittää lopettaa ihmisten tulemisen itärajalle.
+
+Hallitus kertoi päivällä, että voi ehkä sulkea lisää raja-asemia. Tähän
+mennessä Suomi on sulkenut neljä raja-asemaa.
+
+Venäjä arvostelee sitä, että Suomi on sulkenut raja-asemia.
+
+Venäjä sanoo, että sulkeminen haittaa niiden venäläisten elämää, jotka
+asuvat Suomessa.
+
+### Kansallisooppera
+
+<figure>
+<img
+src="https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699350873/39-1196938654a091844d91"
+class="aw-zhx2sq hyCAoR"
+alt="Kansallisoopperan taiteellinen johtaja Thomas de Mallet Burgess. Kuva: Mikko Koski / Yle" />
+<figcaption aria-hidden="true"><span>Kansallisoopperan taiteellinen
+johtaja Thomas de Mallet Burgess.</span><span> Kuva: Mikko Koski /
 Yle</span></figcaption>
 </figure>
 
-Venäjä voi ohjata lisää ja lisää turvapaikanhakijoita Suomen rajalle.
-Näin varoittaa puolalainen professori **Maciej Duszczyc**.
+Suomen Kansallisoopperalla on uusi taiteellinen johtaja. Hän on
+brittiläinen **Thomas de Mallet Burgess**.
 
-Professori sanoo, että Suomen pitää varautua vaikeaan tilanteeseen
-itärajalla eli Suomen ja Venäjän rajalla.
+De Mallet Burgess haluaa tehdä oopperaa, joka kiinnostaa kaikkia
+ihmisiä.
 
-Euroopassa esimerkiksi Puolan rajalle tulee idästä joskus 100
-turvapaikanhakijaa päivässä.
+Hän ajattelee, että ooppera ei ole pelkästään hienojen ihmisten
+musiikkia. Hänestä oopperan pitää olla kiinni nykyajassa.
 
-Maanantaina iltapäivällä turvapaikanhakijoita tuli Pohjois-Suomen Sallan
-raja-asemalle, joka on auki.
+Kansallisoopperan uusi taiteellinen johtaja on asunut Suomessa kolme
+kuukautta. Hän sanoo, että Suomi on yllättänyt hänet.
 
-Turvapaikanhakijat olivat syyrialaisia ja afganistanilaisia miehiä,
-naisia ja lapsia.
-
-Viikonloppuna Suomi sulki neljä raja-asemaa, koska Venäjä on alkanut
-ohjata rajalle turvapaikanhakijoita.
-
-Tutkijat sanovat, että Venäjä haluaa näin synnyttää Suomessa
-epäjärjestystä.
-
-Marraskuun aikana itärajan kautta Suomeen on tullut yli 500
-turvapaikanhakijaa.
-
-### Sähkön hinta
-
-<figure>
-<img
-src="https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_467/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1691842960/39-106121063c8f48238bcf"
-class="aw-zhx2sq hyCAoR"
-alt="Sähkö on tiistaina kallista. Kuva: Alamy / AOP" />
-<figcaption aria-hidden="true"><span>Sähkö on tiistaina
-kallista.</span><span> Kuva: Alamy / AOP</span></figcaption>
-</figure>
-
-Sähkön hinta nousee tiistaina tosi paljon. Etenkin tiistaina
-iltapäivällä sähkö on kallista. Hinta pysyy korkealla vähän aikaa.
-
-Sähkön kalliiseen hintaan on ainakin kaksi syytä. Ensimmäinen on, että
-sää on tyyni ja tuulivoimalat tuottavat vähän sähköä
-
-Toinen syy on, että Olkiluodon atomivoimalaan tuli sunnuntaina vika.
-Vian takia atomivoimala tuottaa sähköä vähemmän kuin normaalisti.
-
-Atomivoimalan vika yritetään korjata nopeasti. Atomivoimala toimii
-normaalisti luultavasti jo tiistaina.
-
-### Päiväkodit
-
-<figure>
-<img
-src="https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_134/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700133967/39-12015336555f596ca4eb"
-class="aw-zhx2sq hyCAoR"
-alt="Lastenhoitaja Anastassia Afanasjeva helsinkiläisessä päiväkodissa. Kuva: Jari Kovalainen / Yle" />
-<figcaption aria-hidden="true"><span>Lastenhoitaja Anastassia Afanasjeva
-helsinkiläisessä päiväkodissa.</span><span> Kuva: Jari Kovalainen /
-Yle</span></figcaption>
-</figure>
-
-Päiväkodeissa on nykyään töissä paljon maahanmuuttajia. Monet heistä
-vasta opettelevat suomen kieltä
-
-Päiväkodeissa on auki paljon työpaikkoja, koska työntekijöitä ei ole
-tarpeeksi.
-
-Lisää työntekijöitä tarvitaan päiväkodeissa eri puolilla Suomea.
-
-Päiväkotien opettajat sanovat, että päiväkodissa pitää olla melko hyvä
-suomen kielen taito. Ilman kielitaitoa lasten kanssa on vaikeaa toimia.
+Yllätys oli, että suomalaiset ovat hänestä lämpimiä ja huumorintajuisia
+ihmisiä. Suomalaisten maine ulkomailla ei ole sellainen.
 
 ### Sää
 
 <figure>
 <img
-src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700492173/39-1203681655b7364e6c83"
+src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700579363/39-1204521655cc80468754"
 class="aw-zhx2sq hyCAoR" alt=" Kuva: Yle" />
 <figcaption aria-hidden="true"><span> Kuva: Yle</span></figcaption>
 </figure>
 
-Sää on tiistaina kylmää.
-
-Lunta voi sataa vähän. Lämpötila on 0:n ja -15 asteen välillä. Lapissa
-lämpötila on -10:n ja -35 asteen välillä.
+Keskiviikkona Suomeen tulee lännestä lumipyry. Lämpötila on 0:n ja -10
+asteen välillä. Idässä on kylmempää.
 
 class="Buttonstyles\_\_iconSize-sc-17sr1bx-4
 Buttonstyles\_\_IconWrapper-sc-17sr1bx-6 cazOWd dPcqZv

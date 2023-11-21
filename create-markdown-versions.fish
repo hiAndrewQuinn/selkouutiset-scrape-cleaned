@@ -4,11 +4,11 @@ set this_directory /home/andrew/Code/Github/selkouutiset-scrape-cleaned
 pushd $this_directory
 
 # Pull the latest HEAD from selkouutiset-scrape.
-cd selkouutiset-scrape-dirty/
+cd selkouutiset-scrape/
 git pull origin HEAD
 cd $this_directory
 
-set source_dir "./selkouutiset-scrape-dirty/"
+set source_dir "./selkouutiset-scrape/"
 set hash "./.hash"
 
 touch $hash

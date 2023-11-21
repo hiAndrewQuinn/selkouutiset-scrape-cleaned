@@ -1,13 +1,10 @@
-## Radio | Selkouutiset | maanantai 30.10.2023
+## Radio \| Selkouutiset \| maanantai 30.10.2023
 
 Koronatilanne. Alkoholin käyttö. Lapin matkailu. Korkeasaaren karhut. Sää.
 
 ### Koronatilanne
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2" class="aw-zhx2sq hyCAoR" alt="Koronatartunnat lisääntyvät. Kuva: Ismo Pekkarinen / AOP" />
-<figcaption aria-hidden="true"><span>Koronatartunnat lisääntyvät.</span><span> Kuva: Ismo Pekkarinen / AOP</span></figcaption>
-</figure>
+![Koronatartunnat lisääntyvät. Kuva: Ismo Pekkarinen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2){.aw-zhx2sq .hyCAoR}
 
 Koronatapausten määrä kasvaa. Koronavirus lisääntyy nyt koko Suomessa.
 
@@ -19,10 +16,7 @@ Koronarokotukset alkavat marraskuussa eri puolilla Suomea. Koronarokotuksia anne
 
 ### Alkoholin käyttö
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1682602904/39-1105424644a7b35b4046" class="aw-zhx2sq hyCAoR" alt="Suomalaisten alkoholin käyttö on vähentynyt. Kuva: Ilkka Loikkanen" />
-<figcaption aria-hidden="true"><span>Suomalaisten alkoholin käyttö on vähentynyt.</span><span> Kuva: Ilkka Loikkanen</span></figcaption>
-</figure>
+![Suomalaisten alkoholin käyttö on vähentynyt. Kuva: Ilkka Loikkanen](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1682602904/39-1105424644a7b35b4046){.aw-zhx2sq .hyCAoR}
 
 Suomalaiset käyttävät alkoholia vähemmän kuin ennen. Näin kertoo Terveyden ja hyvinvoinnin laitos.
 
@@ -32,10 +26,7 @@ Luvut ovat pienempiä kuin vuonna 2016, kun edellinen tutkimus tehtiin.
 
 ### Lapin matkailu
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_473/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1673250132/39-105687963bbc441bd57b" class="aw-zhx2sq hyCAoR" alt="Turistit etsivät Lapista lumista talvea. Kuva: Vesa-Pekka Hiltunen / Yle" />
-<figcaption aria-hidden="true"><span>Turistit etsivät Lapista lumista talvea.</span><span> Kuva: Vesa-Pekka Hiltunen / Yle</span></figcaption>
-</figure>
+![Turistit etsivät Lapista lumista talvea. Kuva: Vesa-Pekka Hiltunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_473/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1673250132/39-105687963bbc441bd57b){.aw-zhx2sq .hyCAoR}
 
 Lapin matkailun talvikausi alkaa. Talvikauden lennot ulkomailta Lapin lentokentille aloitettiin viikonloppuna.
 
@@ -47,10 +38,7 @@ Turisteja kiinnostaa erityisesti luminen talvi. Lokakuu on nyt ollut Lapissa lum
 
 ### Korkeasaaren karhut
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3239,w_5759,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698664391/39-1193141653f687431ff4" class="aw-zhx2sq hyCAoR" alt="Korkeasaaren karhujen talviuni alkoi. Kuva: Korkeasaaren eläintarha / Mari Lehmonen" />
-<figcaption aria-hidden="true"><span>Korkeasaaren karhujen talviuni alkoi.</span><span> Kuva: Korkeasaaren eläintarha / Mari Lehmonen</span></figcaption>
-</figure>
+![Korkeasaaren karhujen talviuni alkoi. Kuva: Korkeasaaren eläintarha / Mari Lehmonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3239,w_5759,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698664391/39-1193141653f687431ff4){.aw-zhx2sq .hyCAoR}
 
 Korkeasaaren eläintarhan karhut ovat menneet talviunille. Karhut nukkuivat sikeästi tänä syksynä jo lokakuun lopussa.
 
@@ -62,9 +50,7 @@ Korkeasaaren karhut heräävät talviunilta tavallisesti helmikuussa. Pohjois-Su
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698681609/39-1193390653fd2ed08682" class="aw-zhx2sq hyCAoR" />
-</figure>
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698681609/39-1193390653fd2ed08682){.aw-zhx2sq .hyCAoR}
 
 Tiistaina maan etelä- ja keskiosassa sataa monin paikoin vettä tai lunta, mahdollisesti myös jäätävää sadetta. Pohjoisessa on poutaista.
 

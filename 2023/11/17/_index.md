@@ -1,13 +1,10 @@
-## Radio | Selkouutiset | perjantai 17.11.2023
+## Radio \| Selkouutiset \| perjantai 17.11.2023
 
 Itäraja. Koronatartunnat. Sotilasapu Ukrainalle. Koulukuljetukset. Sää.
 
 ### Itäraja
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908616/39-1200025655285565477b" class="aw-zhx2sq hyCAoR" alt="Suomi sulkee rajanylityspaikkoja. Kuva: Kari Saastamoinen / Yle" />
-<figcaption aria-hidden="true"><span>Suomi sulkee rajanylityspaikkoja.</span><span> Kuva: Kari Saastamoinen / Yle</span></figcaption>
-</figure>
+![Suomi sulkee rajanylityspaikkoja. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908616/39-1200025655285565477b){.aw-zhx2sq .hyCAoR}
 
 Suomen itärajalla on ollut perjantaina paljon liikennettä. Rajalle tuli edelleen myös turvapaikanhakijoita.
 
@@ -23,10 +20,7 @@ Venäjä on päästänyt heidät Suomen rajalle, koska se haluaa ehkä häiritä
 
 ### Koronatartunnat
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3" class="aw-zhx2sq hyCAoR" alt="Riskiryhmille on taas annettu koronan tehosterokotus. Kuva: Antro Valo / Yle" />
-<figcaption aria-hidden="true"><span>Riskiryhmille on taas annettu koronan tehosterokotus.</span><span> Kuva: Antro Valo / Yle</span></figcaption>
-</figure>
+![Riskiryhmille on taas annettu koronan tehosterokotus. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3){.aw-zhx2sq .hyCAoR}
 
 Koronatartuntojen määrä laskee Etelä-Suomessa. Näin kertoo Terveyden ja hyvinvoinnin laitos.
 
@@ -38,10 +32,7 @@ Syksyn koronarokotukset ovat käynnissä. Terveyden ja hyvinvoinnin laitos sanoo
 
 ### Sotilasapu Ukrainalle
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb" class="aw-zhx2sq hyCAoR" alt="Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Jakub Porzycki / AOP" />
-<figcaption aria-hidden="true"><span>Ukrainan presidentti Volodymyr Zelenskyi.</span><span> Kuva: Jakub Porzycki / AOP</span></figcaption>
-</figure>
+![Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Jakub Porzycki / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb){.aw-zhx2sq .hyCAoR}
 
 Suomi lähettää lisää sotilasapua Ukrainaan. Avun arvo on 100 miljoonaa euroa.
 
@@ -51,10 +42,7 @@ Ukrainan presidentti Volodymyr Zelenskyi on kiittänyt avusta sosiaalisessa medi
 
 ### Koulukuljetukset
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1494,w_2655,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1677057284/39-107608063f5dc988d5c3" class="aw-zhx2sq hyCAoR" alt=" Kuva: Sakari Partanen / Yle" />
-<figcaption aria-hidden="true"><span> Kuva: Sakari Partanen / Yle</span></figcaption>
-</figure>
+![ Kuva: Sakari Partanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1494,w_2655,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1677057284/39-107608063f5dc988d5c3){.aw-zhx2sq .hyCAoR}
 
 Koulukuljetusten matka-ajat ovat pidentyneet. Usein koululaisen matka-aika on 1 tai 2 tuntia päivässä.
 
@@ -64,9 +52,7 @@ Lisäksi koulukuljetukset kiertävät usein monen kodin kautta, ennen kuin ne ov
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700238427/39-120255565579437e32dc" class="aw-zhx2sq hyCAoR" />
-</figure>
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700238427/39-120255565579437e32dc){.aw-zhx2sq .hyCAoR}
 
 Lauantaina etelässä ja idässä voi sataa vähän lunta. Muualla on poutaista eli ei sada.
 

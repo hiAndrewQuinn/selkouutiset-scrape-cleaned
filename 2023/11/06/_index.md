@@ -1,13 +1,10 @@
-## Radio | Selkouutiset | maanantai 6.11.2023
+## Radio \| Selkouutiset \| maanantai 6.11.2023
 
 Maahanmuuttajien syrjintäkokemukset. Venäläisen kaapelin rikkoutuminen. Koirien sairastuminen. Lasten syntyminen. Ruotsalaisuuden päivä. Sää.
 
 ### Maahanmuuttajien syrjintä
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2485,w_4419,x_0,y_114/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698074800/39-115894164df61298ec3e" class="aw-zhx2sq hyCAoR" alt="Monet maahanmuuttajat kokevat syrjintää. Kuva: Mikko Ahmajärvi / Yle" />
-<figcaption aria-hidden="true"><span>Monet maahanmuuttajat kokevat syrjintää.</span><span> Kuva: Mikko Ahmajärvi / Yle</span></figcaption>
-</figure>
+![Monet maahanmuuttajat kokevat syrjintää. Kuva: Mikko Ahmajärvi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2485,w_4419,x_0,y_114/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698074800/39-115894164df61298ec3e){.aw-zhx2sq .hyCAoR}
 
 Maahanmuuttajat kokevat Suomessa syrjintää. Näin kertoo Terveyden ja hyvinvoinnin laitoksen tutkimus.
 
@@ -17,10 +14,7 @@ Terveyden ja hyvinvoinnin laitoksen tutkimuksessa oli mukana melkein 8000 maahan
 
 ### Venäläinen tietoliikennekaapeli
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3283,w_5838,x_0,y_380/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699268142/39-11962776548c5acae94c" class="aw-zhx2sq hyCAoR" alt="Venäläinen laiva kaapelin korjaustöissä. Kuva: AOP" />
-<figcaption aria-hidden="true"><span>Venäläinen laiva kaapelin korjaustöissä.</span><span> Kuva: AOP</span></figcaption>
-</figure>
+![Venäläinen laiva kaapelin korjaustöissä. Kuva: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3283,w_5838,x_0,y_380/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699268142/39-11962776548c5acae94c){.aw-zhx2sq .hyCAoR}
 
 Venäläinen tietoliikennekaapeli on mennyt rikki Suomenlahden merialueella. Venäläinen laiva on tullut korjaamaan vikaa.
 
@@ -28,10 +22,7 @@ Kaapeli kulkee myös Suomen talousvyöhykkeellä. Venäjä ilmoitti kaapelin rik
 
 ### Koirien sairaustapaukset
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2746,w_4883,x_0,y_452/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699194714/39-11960056547a6fe024cd" class="aw-zhx2sq hyCAoR" alt="Mustilla ja Mirrillä on kauppoja eri puolilla Suomea. Kuva: Jaakko Stenroos / AOP" />
-<figcaption aria-hidden="true"><span>Mustilla ja Mirrillä on kauppoja eri puolilla Suomea.</span><span> Kuva: Jaakko Stenroos / AOP</span></figcaption>
-</figure>
+![Mustilla ja Mirrillä on kauppoja eri puolilla Suomea. Kuva: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2746,w_4883,x_0,y_452/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699194714/39-11960056547a6fe024cd){.aw-zhx2sq .hyCAoR}
 
 Monet koirat ovat sairastuneet koiranruuasta. Koirat sairastuivat ehkä siksi, että ne söivät Musti ja Mirri -firman koiranruokaa.
 
@@ -41,10 +32,7 @@ Viranomaiset tutkivat asiaa.
 
 ### Vauvojen määrä
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_233/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697805617/39-1189261653274b0907f5" class="aw-zhx2sq hyCAoR" alt="Vauvoja syntyy ennätysvähän. Kuva: Silja Viitala / Yle" />
-<figcaption aria-hidden="true"><span>Vauvoja syntyy ennätysvähän.</span><span> Kuva: Silja Viitala / Yle</span></figcaption>
-</figure>
+![Vauvoja syntyy ennätysvähän. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_233/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697805617/39-1189261653274b0907f5){.aw-zhx2sq .hyCAoR}
 
 Suomessa syntyy lapsia vähemmän kuin ennen. Näin kertoo Terveyden ja hyvinvoinnin laitos.
 
@@ -54,10 +42,7 @@ Myös tänä vuonna syksyyn mennessä lapsia syntyi vähemmän kuin vuotta aikai
 
 ### Ruotsalaisuuden päivä
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1615970514/39-7850546051bda715b05" class="aw-zhx2sq hyCAoR" alt="Kaksikielisyys näkyy esimerkiksi Helsingin katukylteissä. Kuva: Silja Viitala / Yle" />
-<figcaption aria-hidden="true"><span>Kaksikielisyys näkyy esimerkiksi Helsingin katukylteissä.</span><span> Kuva: Silja Viitala / Yle</span></figcaption>
-</figure>
+![Kaksikielisyys näkyy esimerkiksi Helsingin katukylteissä. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1615970514/39-7850546051bda715b05){.aw-zhx2sq .hyCAoR}
 
 Maanantaina on vietetty ruotsalaisuuden päivää. Ruotsalaisuuden päivänä juhlitaan ruotsin kieltä Suomessa.
 
@@ -69,9 +54,7 @@ Kaikki voivat harjoitella ruotsin kieltä esimerkiksi Ylen ruotsinkielisten selk
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699290254/39-119671665491c7602c1a" class="aw-zhx2sq hyCAoR" />
-</figure>
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699290254/39-119671665491c7602c1a){.aw-zhx2sq .hyCAoR}
 
 Tiistaina sää on pilvistä. Sumua on osassa maata.
 

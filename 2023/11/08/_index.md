@@ -4,10 +4,7 @@ Verotiedot. Koiranruoka. EU:n jäsenyysneuvottelut. Sää.
 
 ### Verotiedot
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a" class="aw-zhx2sq hyCAoR" alt="Vuoden 2022 verotiedot ovat nyt julkisia. Kuvituskuva. Kuva: Toni Pitkänen / Yle" />
-<figcaption aria-hidden="true"><span>Vuoden 2022 verotiedot ovat nyt julkisia. Kuvituskuva.</span><span> Kuva: Toni Pitkänen / Yle</span></figcaption>
-</figure>
+![Vuoden 2022 verotiedot ovat nyt julkisia. Kuvituskuva. Kuva: Toni Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a){.aw-zhx2sq .hyCAoR}
 
 Vuoden 2022 verotiedot ovat nyt julkisia. Verotiedoista selviää, ketkä ihmiset saivat viime vuonna eniten rahaa palkkatuloina ja pääomatuloina.
 
@@ -19,10 +16,7 @@ Ylen verokoneesta voi katsoa eniten tienaavien suomalaisten verotiedot. Verokone
 
 ### Koiranruoka
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699386970/39-11965956548f484ed3bb" class="aw-zhx2sq hyCAoR" alt="Moni koira on sairastunut koiranruuasta. Kuva: Urho Haho, Jaakko Stenroos / AOP, Leena Luotio / Yle" />
-<figcaption aria-hidden="true"><span>Moni koira on sairastunut koiranruuasta.</span><span> Kuva: Urho Haho, Jaakko Stenroos / AOP, Leena Luotio / Yle</span></figcaption>
-</figure>
+![Moni koira on sairastunut koiranruuasta. Kuva: Urho Haho, Jaakko Stenroos / AOP, Leena Luotio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699386970/39-11965956548f484ed3bb){.aw-zhx2sq .hyCAoR}
 
 Tällä viikolla on puhuttu paljon siitä, että moni koira sairastui koiranruuasta. Nyt on selvinnyt, että syy voi olla ulkomaalainen perunahiutale.
 
@@ -34,10 +28,7 @@ Ruokavirasto tutkii näytteitä, joita otettiin Musti Groupin koiranruuista.
 
 ### EU:n jäsenyysneuvottelut
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2" class="aw-zhx2sq hyCAoR" alt="Euroopan unioniin kuuluu tällä hetkellä 27 maata. Kuva: Ana Fernandez / AOP" />
-<figcaption aria-hidden="true"><span>Euroopan unioniin kuuluu tällä hetkellä 27 maata.</span><span> Kuva: Ana Fernandez / AOP</span></figcaption>
-</figure>
+![Euroopan unioniin kuuluu tällä hetkellä 27 maata. Kuva: Ana Fernandez / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2){.aw-zhx2sq .hyCAoR}
 
 Euroopan komissio suosittelee, että EU aloittaa Ukrainan kanssa neuvottelut maan EU-jäsenyydestä. Ukrainan pitää kuitenkin ensin täyttää joitakin jäsenyysehtoja. Komissio toivoo Ukrainalta lisää toimia esimerkiksi korruptiota vastaan.
 
@@ -47,10 +38,7 @@ Euroopan unioniin kuuluu tällä hetkellä 27 maata.
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699449326/39-1197700654b89b86284a" class="aw-zhx2sq hyCAoR" alt=" Kuva: Matti Huutonen / Yle" />
-<figcaption aria-hidden="true"><span> Kuva: Matti Huutonen / Yle</span></figcaption>
-</figure>
+![ Kuva: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699449326/39-1197700654b89b86284a){.aw-zhx2sq .hyCAoR}
 
 Sää on melkein koko maassa pilvinen. Maan eteläosassa sataa monin paikoin vettä. Keski- ja Pohjois-Suomessa sataa myös lunta.
 

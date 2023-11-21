@@ -1,13 +1,10 @@
-## Radio | Selkouutiset | maanantai 20.11.2023
+## Radio \| Selkouutiset \| maanantai 20.11.2023
 
 Turvapaikanhakijat itärajalla. Sähkön hinta. Päiväkodit. Sää.
 
 ### Turvapaikanhakijat itärajalla
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700423531/39-1203119655a67178e33b" class="aw-zhx2sq hyCAoR" alt="Professori Maciej Duszczyc on tutkinut maahanmuuttoa. Kuva: Anna Karismo / Yle" />
-<figcaption aria-hidden="true"><span>Professori Maciej Duszczyc on tutkinut maahanmuuttoa.</span><span> Kuva: Anna Karismo / Yle</span></figcaption>
-</figure>
+![Professori Maciej Duszczyc on tutkinut maahanmuuttoa. Kuva: Anna Karismo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700423531/39-1203119655a67178e33b){.aw-zhx2sq .hyCAoR}
 
 Venäjä voi ohjata lisää ja lisää turvapaikanhakijoita Suomen rajalle. Näin varoittaa puolalainen professori **Maciej Duszczyc**.
 
@@ -27,10 +24,7 @@ Marraskuun aikana itärajan kautta Suomeen on tullut yli 500 turvapaikanhakijaa.
 
 ### Sähkön hinta
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_467/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1691842960/39-106121063c8f48238bcf" class="aw-zhx2sq hyCAoR" alt="Sähkö on tiistaina kallista. Kuva: Alamy / AOP" />
-<figcaption aria-hidden="true"><span>Sähkö on tiistaina kallista.</span><span> Kuva: Alamy / AOP</span></figcaption>
-</figure>
+![Sähkö on tiistaina kallista. Kuva: Alamy / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_467/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1691842960/39-106121063c8f48238bcf){.aw-zhx2sq .hyCAoR}
 
 Sähkön hinta nousee tiistaina tosi paljon. Etenkin tiistaina iltapäivällä sähkö on kallista. Hinta pysyy korkealla vähän aikaa.
 
@@ -42,10 +36,7 @@ Atomivoimalan vika yritetään korjata nopeasti. Atomivoimala toimii normaalisti
 
 ### Päiväkodit
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_134/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700133967/39-12015336555f596ca4eb" class="aw-zhx2sq hyCAoR" alt="Lastenhoitaja Anastassia Afanasjeva helsinkiläisessä päiväkodissa. Kuva: Jari Kovalainen / Yle" />
-<figcaption aria-hidden="true"><span>Lastenhoitaja Anastassia Afanasjeva helsinkiläisessä päiväkodissa.</span><span> Kuva: Jari Kovalainen / Yle</span></figcaption>
-</figure>
+![Lastenhoitaja Anastassia Afanasjeva helsinkiläisessä päiväkodissa. Kuva: Jari Kovalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_134/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700133967/39-12015336555f596ca4eb){.aw-zhx2sq .hyCAoR}
 
 Päiväkodeissa on nykyään töissä paljon maahanmuuttajia. Monet heistä vasta opettelevat suomen kieltä
 
@@ -57,10 +48,7 @@ Päiväkotien opettajat sanovat, että päiväkodissa pitää olla melko hyvä s
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700492173/39-1203681655b7364e6c83" class="aw-zhx2sq hyCAoR" alt=" Kuva: Yle" />
-<figcaption aria-hidden="true"><span> Kuva: Yle</span></figcaption>
-</figure>
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700492173/39-1203681655b7364e6c83){.aw-zhx2sq .hyCAoR}
 
 Sää on tiistaina kylmää.
 

@@ -1,13 +1,10 @@
-## Radio | Selkouutiset | lauantai 28.10.2023
+## Radio \| Selkouutiset \| lauantai 28.10.2023
 
 Gaza. YK. Alexader Stubb. Seesam-palkinto. Talviaika. Sääennuste.
 
 ### Taistelut Lähi-Idässä
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_531/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698410872/39-1192351653bb10bf0b47" class="aw-zhx2sq hyCAoR" alt="Israel on lisännyt iskuja Gazaan. Kuva: Aris Messinis / AFP" />
-<figcaption aria-hidden="true"><span>Israel on lisännyt iskuja Gazaan.</span><span> Kuva: Aris Messinis / AFP</span></figcaption>
-</figure>
+![Israel on lisännyt iskuja Gazaan. Kuva: Aris Messinis / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_531/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698410872/39-1192351653bb10bf0b47){.aw-zhx2sq .hyCAoR}
 
 Taistelut Lähi-Idässä kiihtyvät. Israel on lisännyt paljon iskuja Gazaan. Israel on iskenyt 150:een äärijärjestö Hamasin kohteeseen.
 
@@ -17,10 +14,7 @@ Myös monet avustusjärjestöt ovat menettäneet yhteyden avustustyöntekijöihi
 
 ### YK:n yleiskokouksen päätöslauselma
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3150,w_5600,x_0,y_268/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698499380/39-1192714653d0ab7d4d4c" class="aw-zhx2sq hyCAoR" alt="YK vaatii Gazaan tulitaukoa. Kuva: EPA/HANNIBAL HANSCHKE" />
-<figcaption aria-hidden="true"><span>YK vaatii Gazaan tulitaukoa.</span><span> Kuva: EPA/HANNIBAL HANSCHKE</span></figcaption>
-</figure>
+![YK vaatii Gazaan tulitaukoa. Kuva: EPA/HANNIBAL HANSCHKE](https://images.cdn.yle.fi/image/upload/c_crop,h_3150,w_5600,x_0,y_268/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698499380/39-1192714653d0ab7d4d4c){.aw-zhx2sq .hyCAoR}
 
 YK:n yleiskokous vaatii Gazaan humanitaarista tulitaukoa. YK:n yleiskokous on antanut asiasta päätöslauselman. Päätöslauselmassa tuomitaan väkivalta, joka kohdistuu palestiinalaisiin ja israelilaisiin siviileihin.
 
@@ -30,10 +24,7 @@ Esimerkiksi Suomi ja monet muut maat äänestivät tyhjää, koska YK:n päätö
 
 ### Kokoomuksen presidenttiehdokas
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_287/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698494219/39-1192698653cf6c267686" class="aw-zhx2sq hyCAoR" alt="Alexader Stubb on nyt virallisesti kokoomuksen ehdokas presidentiksi. Kuva: Antti Aimo-Koivisto / Lehtikuva" />
-<figcaption aria-hidden="true"><span>Alexader Stubb on nyt virallisesti kokoomuksen ehdokas presidentiksi.</span><span> Kuva: Antti Aimo-Koivisto / Lehtikuva</span></figcaption>
-</figure>
+![Alexader Stubb on nyt virallisesti kokoomuksen ehdokas presidentiksi. Kuva: Antti Aimo-Koivisto / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_287/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698494219/39-1192698653cf6c267686){.aw-zhx2sq .hyCAoR}
 
 Kokoomus on nimittänyt puolueen presidenttiehdokkaaksi **Alexander Stubbin**.
 
@@ -43,10 +34,7 @@ Kokoomus oli jo aiemmin sopinut, että Stubbista tulee puolueen presidenttiehdok
 
 ### Selkokirjallisuuden Seesam-palkinto
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_861,w_1531,x_2,y_65/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698504762/39-1192741653d1f5e2611a" class="aw-zhx2sq hyCAoR" alt="Kuvittaja Pekka Rahkonen palkittiin Seesam-palkinnolla. Kuva: Pekka Rahkonen" />
-<figcaption aria-hidden="true"><span>Kuvittaja Pekka Rahkonen palkittiin Seesam-palkinnolla.</span><span> Kuva: Pekka Rahkonen</span></figcaption>
-</figure>
+![Kuvittaja Pekka Rahkonen palkittiin Seesam-palkinnolla. Kuva: Pekka Rahkonen](https://images.cdn.yle.fi/image/upload/c_crop,h_861,w_1531,x_2,y_65/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698504762/39-1192741653d1f5e2611a){.aw-zhx2sq .hyCAoR}
 
 Selkokirjallisuuden Seesam-palkinnon on voittanut kuvittaja **Pekka Rahkonen**. Rahkonen on kuvittanut selkokielisiä kirjoja, sarjakuvia, oppikirjoja ja nettikirjoja. Seesam-palkinto annetaan työstä, jolla edistetään selkokirjallisuutta.
 
@@ -56,10 +44,7 @@ Selkokirjallisuuden Seesam-palkinto annettiin Rahkoselle Helsingin kirjamessuill
 
 ### Kellonajan siirto
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603530654/14-svyle-6142553197327452bd" class="aw-zhx2sq hyCAoR" alt="Kellonaikaa siirretään tunti taaksepäin kello 4 sunnuntaina aamulla. Kuva: Yle" />
-<figcaption aria-hidden="true"><span>Kellonaikaa siirretään tunti taaksepäin kello 4 sunnuntaina aamulla.</span><span> Kuva: Yle</span></figcaption>
-</figure>
+![Kellonaikaa siirretään tunti taaksepäin kello 4 sunnuntaina aamulla. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603530654/14-svyle-6142553197327452bd){.aw-zhx2sq .hyCAoR}
 
 Kesäaika päättyy ensi yönä. Kellonaikaa siirretään tunti taaksepäin sunnuntaina aamuyöllä kello 4.
 
@@ -69,10 +54,7 @@ Kellonajan siirtely otettiin käyttöön EU:ssa vuonna 1981. Kesäaika alkaa ain
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698504972/39-1192742653d20d3625ce" class="aw-zhx2sq hyCAoR" alt="Sää on melko kylmää." />
-<figcaption aria-hidden="true"><span>Sää on melko kylmää.</span></figcaption>
-</figure>
+![Sää on melko kylmää.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698504972/39-1192742653d20d3625ce){.aw-zhx2sq .hyCAoR}
 
 Sunnuntaina sää on laajalti pilvinen. Pohjanmaan rannikolla sataa reilusti lunta ja ajokeli voi olla huono.
 

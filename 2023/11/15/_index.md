@@ -4,10 +4,7 @@ Presidenttikisa. Itäraja. Koronarokote. Turkistarhat. Sää.
 
 ### Presidenttikysely
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698912813/39-11947566543595173663" class="aw-zhx2sq hyCAoR" alt="Alexander Stubb ja Pekka Haavisto. Kuva: Silja Viitala / Yle" />
-<figcaption aria-hidden="true"><span>Alexander Stubb ja Pekka Haavisto.</span><span> Kuva: Silja Viitala / Yle</span></figcaption>
-</figure>
+![Alexander Stubb ja Pekka Haavisto. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698912813/39-11947566543595173663){.aw-zhx2sq .hyCAoR}
 
 Kokoomuksen Alexander Stubb on nyt suosituin ehdokas Suomen uudeksi presidentiksi. Ylen kysely kertoo, että Stubbia kannattaa nyt 28 prosenttia ihmisistä.
 
@@ -21,10 +18,7 @@ Presidentinvaalin 1. kierros on tammikuun 28. päivä.
 
 ### Niinistö turvapaikanhakijoista
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908638/39-120003165528559efc2b" class="aw-zhx2sq hyCAoR" alt="Kuvassa kyltti Vaalimaan raja-asemalla. Kuva: Kari Saastamoinen / Yle" />
-<figcaption aria-hidden="true"><span>Kuvassa kyltti Vaalimaan raja-asemalla.</span><span> Kuva: Kari Saastamoinen / Yle</span></figcaption>
-</figure>
+![Kuvassa kyltti Vaalimaan raja-asemalla. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908638/39-120003165528559efc2b){.aw-zhx2sq .hyCAoR}
 
 Tasavallan presidentti Sauli Niinistö arvioi, että Suomen ja USA:n suunnittelema puolustussopimus voi olla syynä siihen, että Suomen rajalle tulee turvapaikanhakijoita Venäjän kautta. Venäjä ehkä suuttui sopimuksesta.
 
@@ -34,10 +28,7 @@ Vuorokauden aikana Kaakkois-Suomen raja-asemille on tullut yli 60 turvapaikanhak
 
 ### Koronarokote
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3" class="aw-zhx2sq hyCAoR" alt="Rokotuspiste -kyltti Kouvolan Hallituskadun Walk in -rokotuspisteen sisäänkäynnillä. Kuva: Antro Valo / Yle" />
-<figcaption aria-hidden="true"><span>Rokotuspiste -kyltti Kouvolan Hallituskadun Walk in -rokotuspisteen sisäänkäynnillä.</span><span> Kuva: Antro Valo / Yle</span></figcaption>
-</figure>
+![Rokotuspiste -kyltti Kouvolan Hallituskadun Walk in -rokotuspisteen sisäänkäynnillä. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3){.aw-zhx2sq .hyCAoR}
 
 Viranomainen kertoo, että Somessa on tarpeeksi koronarokotetta. Koronanrokotteen tehosteannoksia riittää kaikille niille ihmisille, joille suositellaan nyt rokotetta.
 
@@ -45,10 +36,7 @@ Tehosterokotteita suositellaan syksyn ja talven aikana niille ihmisille, joilla 
 
 ### Turkistarhat
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0" class="aw-zhx2sq hyCAoR" alt="Suomessa on noin 550 turkistarhaa. Kuva: Janne Järvinen / Yle" />
-<figcaption aria-hidden="true"><span>Suomessa on noin 550 turkistarhaa.</span><span> Kuva: Janne Järvinen / Yle</span></figcaption>
-</figure>
+![Suomessa on noin 550 turkistarhaa. Kuva: Janne Järvinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0){.aw-zhx2sq .hyCAoR}
 
 Turkistarhaajat ovat hakeneet Suomen valtiolta korvauksia eläimistä, jotka piti tappaa lintuinfluenssan takia. Turkistarhaajat ovat hakeneet korvauksia yhteensä 6 miljoonaa euroa.
 
@@ -58,10 +46,7 @@ Suomessa on yhteensä noin 550 turkistarhaa.
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc" class="aw-zhx2sq hyCAoR" alt=" Kuva: Laura Tuomola / Yle" />
-<figcaption aria-hidden="true"><span> Kuva: Laura Tuomola / Yle</span></figcaption>
-</figure>
+![ Kuva: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc){.aw-zhx2sq .hyCAoR}
 
 Sää on poutainen.
 

@@ -4,10 +4,7 @@ Raja-asemia kiinni. Työttömyys. Dödspatrullen-oikeudenkäynti. Sää.
 
 ### Raja-asemia kiinni
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3" class="aw-zhx2sq hyCAoR" alt="Imatran, Niiralan, Nuijamaan ja Vaalimaan raja-asemat suljetaan. Kuva: Laura Merikalla / Yle ja Nanna Särkkä / Yle" />
-<figcaption aria-hidden="true"><span>Imatran, Niiralan, Nuijamaan ja Vaalimaan raja-asemat suljetaan.</span><span> Kuva: Laura Merikalla / Yle ja Nanna Särkkä / Yle</span></figcaption>
-</figure>
+![Imatran, Niiralan, Nuijamaan ja Vaalimaan raja-asemat suljetaan. Kuva: Laura Merikalla / Yle ja Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3){.aw-zhx2sq .hyCAoR}
 
 Suomi sulkee monta rajanylityspaikkaa itärajalla.
 
@@ -21,10 +18,7 @@ Kaakkois-Suomen rajanylityspaikoille on tullut syksyn aikana enemmän turvapaika
 
 ### Työttömyys
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801" class="aw-zhx2sq hyCAoR" alt="Työttömyys lisääntyy. Kuvituskuva. Kuva: Tiina Jutila / Yle" />
-<figcaption aria-hidden="true"><span>Työttömyys lisääntyy. Kuvituskuva.</span><span> Kuva: Tiina Jutila / Yle</span></figcaption>
-</figure>
+![Työttömyys lisääntyy. Kuvituskuva. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801){.aw-zhx2sq .hyCAoR}
 
 Työttömien ihmisten määrä kasvaa Suomessa tänä vuonna. Näin arvioi työministeriö.
 
@@ -34,10 +28,7 @@ Työministeriö arvioi, että vuonna 2025 Suomen talous paranee. Myös työpaikk
 
 ### Dödspatrullen-oikeudenkäynti
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3" class="aw-zhx2sq hyCAoR" alt="Dödspatrullen käräjät 16.11.2023. Kuva: Marjatta Rautio / Yle" />
-<figcaption aria-hidden="true"><span>Dödspatrullen käräjät 16.11.2023.</span><span> Kuva: Marjatta Rautio / Yle</span></figcaption>
-</figure>
+![Dödspatrullen käräjät 16.11.2023. Kuva: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3){.aw-zhx2sq .hyCAoR}
 
 Helsingissä alkoi oikeudenkäynti, joka liittyy ruotsalaiseen Dödspatrullen-jengiin.
 
@@ -47,10 +38,7 @@ Oikeudessa käsitellään huumerikoksia. Poliisi sanoo, että ruotsalainen katuj
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4" class="aw-zhx2sq hyCAoR" alt=" Kuva: Laura Tuomola / Yle" />
-<figcaption aria-hidden="true"><span> Kuva: Laura Tuomola / Yle</span></figcaption>
-</figure>
+![ Kuva: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4){.aw-zhx2sq .hyCAoR}
 
 Huomenna perjantaina aurinko paistaa etelässä ja pohjoisessa. Maan keskiosassa taivaalla on pilviä. Sää on poutainen, mutta länsirannikolla voi sataa vähän lunta.
 

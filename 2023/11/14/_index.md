@@ -1,13 +1,10 @@
-## Radio | Selkouutiset | tiistai 14.11.2023
+## Radio \| Selkouutiset \| tiistai 14.11.2023
 
 Itärajan tilanne. Räsäsen oikeudenkäynti. Poliittiset lakot. Sää.
 
 ### Itärajan tilanne
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2035,w_3619,x_0,y_102/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699539222/39-1186974652d2d84065b6" class="aw-zhx2sq hyCAoR" alt="Sisäministeri Mari Rantanen kertoi tilanteesta Suomen itärajalla. Kuva: Silja Viitala / Yle" />
-<figcaption aria-hidden="true"><span>Sisäministeri Mari Rantanen kertoi tilanteesta Suomen itärajalla.</span><span> Kuva: Silja Viitala / Yle</span></figcaption>
-</figure>
+![Sisäministeri Mari Rantanen kertoi tilanteesta Suomen itärajalla. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2035,w_3619,x_0,y_102/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699539222/39-1186974652d2d84065b6){.aw-zhx2sq .hyCAoR}
 
 Tilanne Suomen itärajalla eli Suomen ja Venäjän rajalla on edelleen vaikea. Myös tiistaina rajalle on tullut turvapaikanhakijoita, joiden paperit eivät ole kunnossa.
 
@@ -19,10 +16,7 @@ Sisäministeri Mari Rantanen kertoo, että nyt suunnitellaan toimia, joilla raja
 
 ### Räsäsen oikeudenkäynti
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2874,w_5110,x_10,y_131/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699970382/39-1200146655334491cf27" class="aw-zhx2sq hyCAoR" alt="Päivi Räsänen tapasi toimittajia oikeudenkäynnin jälkeen. Kuva: Emmi Korhonen / Lehtikuva" />
-<figcaption aria-hidden="true"><span>Päivi Räsänen tapasi toimittajia oikeudenkäynnin jälkeen.</span><span> Kuva: Emmi Korhonen / Lehtikuva</span></figcaption>
-</figure>
+![Päivi Räsänen tapasi toimittajia oikeudenkäynnin jälkeen. Kuva: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2874,w_5110,x_10,y_131/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699970382/39-1200146655334491cf27){.aw-zhx2sq .hyCAoR}
 
 Hovioikeus on hylännyt syytteet kansanedustaja Päivä Räsästä vastaan. Hovioikeus on sitä mieltä, että Räsänen ei ole tehnyt rikosta.
 
@@ -34,10 +28,7 @@ Päivi Räsäsen oikeusjutusta on puhuttu Suomessa paljon. Räsänen on kristill
 
 ### Lakot
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_79/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699516057/39-1197941654c8e0786a42" class="aw-zhx2sq hyCAoR" alt="Ammattiliitot ovat järjestäneet lakkoja viime viikkoina. Kuva: Petri Julkunen / Yle " />
-<figcaption aria-hidden="true"><span>Ammattiliitot ovat järjestäneet lakkoja viime viikkoina.</span><span> Kuva: Petri Julkunen / Yle </span></figcaption>
-</figure>
+![Ammattiliitot ovat järjestäneet lakkoja viime viikkoina. Kuva: Petri Julkunen / Yle ](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_79/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699516057/39-1197941654c8e0786a42){.aw-zhx2sq .hyCAoR}
 
 Lakot jatkuvat Suomessa.
 
@@ -51,9 +42,7 @@ Hallitus aikoo esimerkiksi rajoittaa työntekijöiden oikeutta järjestää lakk
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699978341/39-120060665539c47bcdf6" class="aw-zhx2sq hyCAoR" />
-</figure>
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699978341/39-120060665539c47bcdf6){.aw-zhx2sq .hyCAoR}
 
 Sää on kylmää. Tiistaiaamuna Lapissa mitattiin paikoin jopa yli 30 astetta pakkasta.
 

@@ -4,10 +4,7 @@ Korona. Tiktok. Mieskaverit. Nenäpäivä. Sää.
 
 ### Korona
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3027,w_5382,x_0,y_311/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699692578/39-1199235654f3bb0eba14" class="aw-zhx2sq hyCAoR" alt="HUSin infektiotautien ylilääkäri Asko Järvinen. Kuva: Paavo Jantunen / Yle" />
-<figcaption aria-hidden="true"><span>HUSin infektiotautien ylilääkäri Asko Järvinen.</span><span> Kuva: Paavo Jantunen / Yle</span></figcaption>
-</figure>
+![HUSin infektiotautien ylilääkäri Asko Järvinen. Kuva: Paavo Jantunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3027,w_5382,x_0,y_311/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699692578/39-1199235654f3bb0eba14){.aw-zhx2sq .hyCAoR}
 
 Korona-asiantuntija sanoo, että kansalaisten ei tarvitse olla huolissaan, vaikka tartunnan riski on nyt Suomessa suuri. Infektiotautien ylilääkäri Asko Järvinen sanoo, että rokotusten ja sairastetun koronan suoja on hyvä.
 
@@ -17,10 +14,7 @@ Tehohoidon professori Matti Reinikainen sanoo, että suunta on kuitenkin huolest
 
 ### Tiktok
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2955,w_5255,x_371,y_789/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697625813/39-1187987652fb3e8a7ce7" class="aw-zhx2sq hyCAoR" alt="Yle loi tekoälyn avulla Tiktokiin masentuneen 13-vuotiaan tytön profiilin. " />
-<figcaption aria-hidden="true"><span>Yle loi tekoälyn avulla Tiktokiin masentuneen 13-vuotiaan tytön profiilin. </span></figcaption>
-</figure>
+![Yle loi tekoälyn avulla Tiktokiin masentuneen 13-vuotiaan tytön profiilin. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2955,w_5255,x_371,y_789/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697625813/39-1187987652fb3e8a7ce7){.aw-zhx2sq .hyCAoR}
 
 Videosovellus Tiktokin sisältö voi alkaa pahentaa alakuloisuutta yllättävän nopeasti, kertoo Ylen testi.
 
@@ -34,10 +28,7 @@ Testistä on laaja artikkeli osoitteessa yle.fi.
 
 ### Mieskaverit
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_150/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699361417/39-1197061654a30293868a" class="aw-zhx2sq hyCAoR" alt="Helsinkiläinen Nikodemus Nousiainen toimii mieskaverina 7-vuotiaalle pojalle. Kuva: Mårten Lampén / Yle" />
-<figcaption aria-hidden="true"><span>Helsinkiläinen Nikodemus Nousiainen toimii mieskaverina 7-vuotiaalle pojalle.</span><span> Kuva: Mårten Lampén / Yle</span></figcaption>
-</figure>
+![Helsinkiläinen Nikodemus Nousiainen toimii mieskaverina 7-vuotiaalle pojalle. Kuva: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_150/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699361417/39-1197061654a30293868a){.aw-zhx2sq .hyCAoR}
 
 Mieskaveritoiminta kaipaa lisää miehiä. Mieskaverit ovat kavereita lapsille, joilla ei ole yhteyttä isään tai yhteys on heikko.
 
@@ -51,10 +42,7 @@ Vapaaehtoisille annetaan 15 tunnin koulutus.
 
 ### Nenäpäivä
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6" class="aw-zhx2sq hyCAoR" alt="Puoli seitsemän -ohjelman toimittajat Ella Kanninen ja Mikko Kekäläinen olivat mukana Nenäpäivässä. Kuva: Jari Pussinen / Yle" />
-<figcaption aria-hidden="true"><span>Puoli seitsemän -ohjelman toimittajat Ella Kanninen ja Mikko Kekäläinen olivat mukana Nenäpäivässä.</span><span> Kuva: Jari Pussinen / Yle</span></figcaption>
-</figure>
+![Puoli seitsemän -ohjelman toimittajat Ella Kanninen ja Mikko Kekäläinen olivat mukana Nenäpäivässä. Kuva: Jari Pussinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6){.aw-zhx2sq .hyCAoR}
 
 Perjantain Nenäpäivä Yle TV1:ssä keräsi tänä vuonna lahjoituksia yli 1,6 miljoonaa euroa. Nenäpäivä on Nenäpäivä-säätiön hyväntekeväisyyskampanja.
 
@@ -64,11 +52,8 @@ Nenäpäivä-keräykseen voi osallistua vielä vuoden loppuun asti.
 
 ### Sää
 
-<figure>
-<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699717391/39-1199335654fa0f0a84d5" class="aw-zhx2sq hyCAoR" alt=" Kuva: Yle" />
-<figcaption aria-hidden="true"><span> Kuva: Yle</span></figcaption>
-</figure>
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699717391/39-1199335654fa0f0a84d5){.aw-zhx2sq .hyCAoR}
 
-Sunnuntaina vesisade yleistyy etelässä. Maan keskiosissa liikkuu lumisateita. Lämpötila on eteläosissa 0 – -4 astetta. Pohjoisessa on -9 – -14 astetta.
+Sunnuntaina vesisade yleistyy etelässä. Maan keskiosissa liikkuu lumisateita. Lämpötila on eteläosissa 0 -- -4 astetta. Pohjoisessa on -9 -- -14 astetta.
 
 Päivä on melko tuulinen.

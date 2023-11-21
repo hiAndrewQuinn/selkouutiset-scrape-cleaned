@@ -30,18 +30,18 @@ for source_file in (find $source_dir -type f -name "*.html")
     set dest_file "$dest_dir/_index.md"
 
     cat $source_file |
-        pandoc -f html -t commonmark |
+        pandoc -f html -t commonmark --wrap=none |
         sed -n '/## Radio/,$p' |
         sed '/Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./Q' |
         sed '/^<div\|^<\/div/d' |
         sed '/^<span\|^<\/span/d' |
-        pandoc -f commonmark -t html |
+        pandoc -f commonmark -t html --wrap=none |
         sed '/^<ul>\|^<\/ul>/d' |
         sed '/^<li><a/d' |
         sed '/^<p><a href.*poddar/d' |
         sed '/<p>journalismia/d' |
         sed '/lukea uutiset samanaikaisesti alta/d' |
-        pandoc -f html -t commonmark >$dest_file
+        pandoc -f html -t commonmark --wrap=none >$dest_file
 end
 
 git add -A

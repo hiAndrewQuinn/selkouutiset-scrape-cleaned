@@ -1,0 +1,75 @@
+## Radio | Selkouutiset | maanantai 30.10.2023
+
+Koronatilanne. Alkoholin käyttö. Lapin matkailu. Korkeasaaren karhut. Sää.
+
+### Koronatilanne
+
+<figure>
+<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2" class="aw-zhx2sq hyCAoR" alt="Koronatartunnat lisääntyvät. Kuva: Ismo Pekkarinen / AOP" />
+<figcaption aria-hidden="true"><span>Koronatartunnat lisääntyvät.</span><span> Kuva: Ismo Pekkarinen / AOP</span></figcaption>
+</figure>
+
+Koronatapausten määrä kasvaa. Koronavirus lisääntyy nyt koko Suomessa.
+
+Tehohoidossa on noin 10 koronapotilasta. Lisäksi sairaaloissa on noin 450 vuodepotilasta, joilla on koronatartunta.
+
+Koronatilanne todennäköisesti pahenee, kun talvi etenee. Koronarokotusten avulla sairaaloiden toiminta pyritään turvaamaan.
+
+Koronarokotukset alkavat marraskuussa eri puolilla Suomea. Koronarokotuksia annetaan yhtä aikaa influenssarokotusten kanssa.
+
+### Alkoholin käyttö
+
+<figure>
+<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1682602904/39-1105424644a7b35b4046" class="aw-zhx2sq hyCAoR" alt="Suomalaisten alkoholin käyttö on vähentynyt. Kuva: Ilkka Loikkanen" />
+<figcaption aria-hidden="true"><span>Suomalaisten alkoholin käyttö on vähentynyt.</span><span> Kuva: Ilkka Loikkanen</span></figcaption>
+</figure>
+
+Suomalaiset käyttävät alkoholia vähemmän kuin ennen. Näin kertoo Terveyden ja hyvinvoinnin laitos.
+
+Alle 50 prosenttia miehistä käyttää alkoholia joka viikko. Naisista alkoholia juo joka viikko vain alle 20 prosenttia.
+
+Luvut ovat pienempiä kuin vuonna 2016, kun edellinen tutkimus tehtiin.
+
+### Lapin matkailu
+
+<figure>
+<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_473/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1673250132/39-105687963bbc441bd57b" class="aw-zhx2sq hyCAoR" alt="Turistit etsivät Lapista lumista talvea. Kuva: Vesa-Pekka Hiltunen / Yle" />
+<figcaption aria-hidden="true"><span>Turistit etsivät Lapista lumista talvea.</span><span> Kuva: Vesa-Pekka Hiltunen / Yle</span></figcaption>
+</figure>
+
+Lapin matkailun talvikausi alkaa. Talvikauden lennot ulkomailta Lapin lentokentille aloitettiin viikonloppuna.
+
+Talvikaudesta tulee jopa ennätysvilkas. Lappiin tulee turisteja erityisesti Euroopan suurista maista eli Britanniasta, Ranskasta, Espanjasta ja Saksasta. Lisäksi turisteja tulee paljon Aasian Singaporesta.
+
+Talvikausi vilkastuu erityisesti joulukuussa. Silloin esimerkiksi Rovaniemelle laskeutuu jopa 130 lentoa viikossa.
+
+Turisteja kiinnostaa erityisesti luminen talvi. Lokakuu on nyt ollut Lapissa luminen, ja se on lisännyt kiinnostusta Lappia kohtaan.
+
+### Korkeasaaren karhut
+
+<figure>
+<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_3239,w_5759,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698664391/39-1193141653f687431ff4" class="aw-zhx2sq hyCAoR" alt="Korkeasaaren karhujen talviuni alkoi. Kuva: Korkeasaaren eläintarha / Mari Lehmonen" />
+<figcaption aria-hidden="true"><span>Korkeasaaren karhujen talviuni alkoi.</span><span> Kuva: Korkeasaaren eläintarha / Mari Lehmonen</span></figcaption>
+</figure>
+
+Korkeasaaren eläintarhan karhut ovat menneet talviunille. Karhut nukkuivat sikeästi tänä syksynä jo lokakuun lopussa.
+
+Viime vuosina karhut ovat menneet talviunille yleensä vähän myöhemmin, marraskuun alkupuolella.
+
+Ennen talviunia karhut ovat syöneet paljon. Paksu rasvakerros turvaa karhujen pitkät talviunet.
+
+Korkeasaaren karhut heräävät talviunilta tavallisesti helmikuussa. Pohjois-Suomen luonnossa karhut voivat nukkua talviunta jopa puoli vuotta.
+
+### Sää
+
+<figure>
+<img src="https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698681609/39-1193390653fd2ed08682" class="aw-zhx2sq hyCAoR" />
+</figure>
+
+Tiistaina maan etelä- ja keskiosassa sataa monin paikoin vettä tai lunta, mahdollisesti myös jäätävää sadetta. Pohjoisessa on poutaista.
+
+Lämpötila on tiistaina etelässä 0 ja +7 asteen välillä, muualla -1 ja -9 asteen välillä.
+
+Lumisateen ja jäätävän sateen takia ajokeli on huono osassa Suomea. Ajokeli on huono erityisesti maan keskiosissa.
+
+Viikon puolivälissä sää on viileää, mutta viikonloppuna ainakin etelässä on vähän plusasteita.

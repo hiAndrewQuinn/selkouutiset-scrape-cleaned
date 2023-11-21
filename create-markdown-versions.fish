@@ -1,6 +1,6 @@
 #!/usr/bin/fish
 
-set this_directory /home/andrew/Code/Github/selkouutiset-scrape-cleaned
+set this_directory /home/andrew/Code/selkouutiset-scrape-cleaned
 pushd $this_directory
 
 # Pull the latest HEAD from selkouutiset-scrape.

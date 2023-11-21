@@ -41,7 +41,8 @@ for source_file in (find $source_dir -type f -name "*.html")
         sed '/^<p><a href.*poddar/d' |
         sed '/<p>journalismia/d' |
         sed '/lukea uutiset samanaikaisesti alta/d' |
-        pandoc -f html -t markdown --wrap=none >$dest_file
+        pandoc -f html -t markdown --wrap=none |
+        sed 's/{\.aw-zhx2sq \.hyCAoR}//g' >$dest_file
 end
 
 git add -A

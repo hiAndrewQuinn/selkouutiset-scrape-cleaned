@@ -4,7 +4,7 @@ Presidentti Martti Ahtisaaren hautajaiset ja elämäntyö.
 
 ### Presidentti Ahtisaaren hautajaiset ja elämäntyö
 
-![Martti Ahtisaari, Suomen presidentti 1994-200. Kuva: CMI/Tomas Whitehouse](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699528852/39-1197047654a2d3334539){.aw-zhx2sq .hyCAoR}
+![Martti Ahtisaari, Suomen presidentti 1994-200. Kuva: CMI/Tomas Whitehouse](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699528852/39-1197047654a2d3334539)
 
 Presidentti Martti Ahtisaari on haudattu tänään perjantaina.
 
@@ -16,7 +16,7 @@ Toimittaja **Merja Windia** on seurannut Ahtisaaren hautajaisia.
 
 **Merja, millaiset Ahtisaaren hautajaiset olivat?**
 
-![Presidentti Sauli Niinistö puhui Ahtisaaren hautajaisissa. Kuva: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_259/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699619473/39-1198810654e20fbae885){.aw-zhx2sq .hyCAoR}
+![Presidentti Sauli Niinistö puhui Ahtisaaren hautajaisissa. Kuva: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_259/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699619473/39-1198810654e20fbae885)
 
 Hautajaiset olivat arvokkaat, mutta tunnelma oli lämmin.
 
@@ -26,7 +26,7 @@ Ahtisaaren puoliso Eeva ja poika Marko liikuttuivat Niinistön puheesta.
 
 **Keitä vieraita hautajaisissa oli?**
 
-![Ruotsin kuningas ja muita hautajaisvieraita. Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699627300/39-1199035654e40494d395){.aw-zhx2sq .hyCAoR}
+![Ruotsin kuningas ja muita hautajaisvieraita. Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699627300/39-1199035654e40494d395)
 
 Hautajaisissa oli yli 800 kutsuvierasta. Vieraiden joukossa oli esimerkiksi Ruotsin kuningas Kaarle Kustaa.
 
@@ -42,7 +42,7 @@ Maailmalla Ahtisaari tunnetaan ennen kaikkea rauhanneuvottelijana. Vuonna 2008 A
 
 **Ahtisaaren arkku vietiin tuomiokirkosta hautausmaalle surusaatossa, joka kulki Helsingin keskustan läpi. Oliko katujen varsilla ihmisiä?**
 
-![Monet ihmiset halusivat seurata Ahtisaaren surusaattoa. Kuva: Roni Rekomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_11/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699619608/39-1198819654e22ed1c931){.aw-zhx2sq .hyCAoR}
+![Monet ihmiset halusivat seurata Ahtisaaren surusaattoa. Kuva: Roni Rekomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_11/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699619608/39-1198819654e22ed1c931)
 
 Kyllä, katujen varsilla oli tuhansia ihmisiä, vaikka sää oli sateinen. Monet halusivat tulla kunnioittamaan Ahtisaaren muistoa.
 
@@ -54,7 +54,7 @@ Suomessa on tapana, että presidentit haudataan Hietaniemen hautausmaalle. Vain 
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699633281/39-1199138654e58651ee77){.aw-zhx2sq .hyCAoR}
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699633281/39-1199138654e58651ee77)
 
 Viikonloppu on sateinen suuressa osassa maata.
 

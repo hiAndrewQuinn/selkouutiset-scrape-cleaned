@@ -1,51 +1,49 @@
-## Radio \| Selkouutiset \| keskiviikko 22.11.2023
+## Radio \| Selkouutiset \| torstai 23.11.2023
 
-Itäraja. Turvapaikanhakijat. Hallituksen luottamus. Alkoholihaitat. Sääennuste.
+Itäraja. Frontex. Siirtolaiskeskukset. Syrjintä. Sääennuste.
 
-### Itärajan vahvistaminen
+### Rajanylityspaikkojen tilanne
 
-![Itärajaa vahvistetaan esimerkiksi piikkilankaesteillä. Kuva: Ari Haimakainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_157/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700489748/39-1203622655b691ed016a)
+![Raja-Jooseppi on pohjoisin rajanylityspaikka itärajalla. Muut rajanylityspaikat ovat kiinni. Kuva: Miku Huttunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3216,w_5712,x_0,y_421/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700751077/39-1205645655f665a86285)
 
-Suomi vahvistaa itärajaa esteillä. Tarkoitus on estää ihmisten tulo ilman lupaa Venäjältä Suomeen.
+Suomi sulkee lisää rajanylityspaikkoja itärajalla. Syy on siirtolaiset, joita Venäjä lähettää Suomen rajalle.
 
-Venäjä on tuonut rajalle ihmisiä, joita Venäjä lähettää Suomen puolelle. Siksi rajanylityspaikoille ja niiden lähelle rakennetaan esteitä.
+Raja-asemat Vartius, Kuusamo ja Salla suljetaan tänään torstaina. Auki jää vain yksi rajanylityspaikka Raja-Jooseppi. Raja-Jooseppi on pohjoisin raja-asema. Jo viime viikonloppuna Suomi sulki Kaakkois-Suomen raja-asemat.
 
-Aitoja rakennetaan ainakin Sallan, Kuusamon ja Vartiuksen raja-asemien ympäristössä.
+Suomi toivoo, että siirtolaisten tulo loppuu, kun auki on vain yksi raja-asema, joka on kaukana pohjoisessa.
 
-Suomi ottaa turvapaikanhakijoita vastaan itärajalla vain Sallan ja Vartiuksen raja-asemilla. Suomi on sulkenut Kaakkois-Suomen raja-asemat.
+### Frontexin apu Suomen rajavartiostolle
 
-### Rajanylityspaikat
+![Frontex lähettää Suomeen rajavartijoita ja kalustoa. Kuva: Pauliina Tolvanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1663055873/39-100697563203716d9ecd)
 
-![Turvapaikanhakijoita keskiviikkona Sallan raja-asemalla. Kuva: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_429/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700655653/39-1204918655df1f3cef50)
+Suomi saa itärajan valvontaan apua Euroopan rajavartiovirastolta Frontexilta. Frontex lähettää Suomeen 50 ihmistä auttamaan itärajan valvonnassa. He tulevat Suomeen ensi viikolla.
 
-Hallitus valmistelee uusia keinoja rajoittaa liikennettä rajanylityspaikoilla.
+Suomi on pyytänyt apua Frontexilta itärajan tilanteen takia. Frontex tuo Suomeen myös teknistä kalustoa itärajan valvontaan. Frontex tuo Suomeen esimerkiksi partioautoja.
 
-Tiistaina apulaisoikeuskansleri kielsi suunnitelman, jota hallitus valmisteli. Suunnitelmasta ei ole kerrottu julkisuuteen, koska suunnitelma on kesken. Suunnitelma ehkä rajoitti liian paljon mahdollisuutta hakea turvapaikkaa Suomesta.
+Itärajalta on tullut Suomeen marraskuun aikana yli 700 turvapaikanhakijaa.
 
-Hallitus valmistelee nyt uutta esitystä, jolla estetään ihmisten tulo ilman lupaa Suomeen itärajalta.
+### Järjestelykeskuksien perustaminen
 
-Suomi on myös pyytänyt apua Euroopan raja- ja merivartiovirastolta Frontexilta. Suomi pyytää, että Frontex lähettää Suomeen 60 virkamiestä auttamaan itärajan tilanteen takia.
+![Sisäministeri Mari Rantanen kertoi torstaina, että Suomi valmistelee järjestelykeskuksien perustamista. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700721586/39-1205201655eed1e81849)
 
-![Hallitus sai eduskunnan luottamuksen. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3983,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696934704/39-118409465252a7d6dc9d)
+Suomi perustaa järjestelykeskuksia siirtolaisille, jotka tulevat Suomeen itärajalta. Näin sanoo sisäministeri **Mari Rantanen**.
 
-Hallitus on saanut eduskunnan luottamuksen välikysymysäänestyksessä.
+Järjestelykeskuksissa selvitetään siirtolaisten henkilöllisyys ja syy, miksi he ovat tulleet Suomeen. Siirtolaisten pitää pysyä järjestelykeskuksissa siihen asti, että heidät on rekisteröity. Tarkoitus on, että viranomaiset voivat valvoa siirtolaisia.
 
-Välikysymyksen tekivät oppositiopuolueet SDP, vihreät ja vasemmistoliitto. Ne sanovat, että hallituksen leikkaukset kohdistuvat liikaa nuoriin ja opiskelijoihin.
+Sisäministeri Rantanen sanoo, että siirtolaiskeskuksia tarvitaan, koska Suomi ei tiedä, keitä tulijat ovat. Sisäministeriö valmistelee asetusta järjestelykeskuksista.
 
-Hallitus sai eduskunnan luottamuksen äänin 96--76. Enemmistö eduskunnasta luottaa hallitukseen. Siksi hallitus saa jatkaa työtä.
+### Syrinnän kokeminen
 
-### Alkoholin haitat
+![Syrjintä voi johtua esimerkiksi sukupuolesta, iästä tai ulkonäöstä. Kuva: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_110/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700718446/39-1205193655ee719688c7)
 
-![Alkoholin haitat maksavat paljon yhteiskunnalle. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2944,w_5235,x_0,y_312/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700406169/39-1203003655a1febe291f)
+Monet nuoret naiset kokevat syrjintää työelämässä. Terveyden ja hyvinvoinnin laitos on kysynyt suomalaisilta syrjinnästä.
 
-Alkoholin haitat aiheuttavat paljon kuluja suomalaiselle yhteiskunnalle.
+Noin 20 prosenttia nuorista naisista on kokenut vuoden aikana syrjintää töissä tai työn haussa. Nuoret naiset tarkoittaa tutkimuksessa naisia, joiden ikä on 20-39 vuotta. Kaikista naisista syrjintää on kokenut 16 prosenttia ja kaikista miehistä syrjintää on kokenut 11 prosenttia.
 
-Aalto-yliopisto on tutkinut alkoholin haittojen kuluja. Alkoholin haitat maksoivat viime vuonna yhteiskunnalle ainakin 1,4 miljardia euroa. Kustannuksia tulee alkoholikuolemista, alkoholisairauksien hoidosta, rikoksista ja työkyvyttömyydestä.
-
-Lisäksi työantajille tuli viime vuonna 500 miljoonaa euroa taloudellisia menetyksiä alkoholihaittojen takia. Työnantajalle tulee kuluja esimerkiksi siitä, jos työntekijä ei pysty tekemään töitä.
+Monet suomalaiset kokevat myös yksinäisyyttä. Yksinäisyyttä kokee noin 10 prosenttia suomalaisista. Yksinäisyys on lisääntynyt viime vuosina.
 
 ### Sää
 
-![Sää lauhtuu eli lämpötila nousee.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700671048/39-1205140655e2e229bced)
+![Pohjoisessa voi paistaa perjantaina aurinko.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700752778/39-1205671655f6d69ed984)
 
-Yöllä sataa paljon lunta. Lännessä lunta sataa paikoin jopa 20 cm. Lumisade lakkaa yöllä lännessä. Lämpötila on etelässä 0 ja +2 asteen välillä. Pohjoisessa enimmäkseen -4 ja -7 asteen välillä. Tuuli on paikoin kovaa.
+Etelässä ja lännessä ja Pohjanmaalla sataa yöllä reilusti lunta. Perjantaina lunta sataa maan etelä- ja keskiosissa. Pohjoisessa voi paistaa välillä aurinko. Lämpötila on maan etelässä ja lännessä -5 ja 0 asteen välillä, idässä ja pohjoisessa -5 ja -15 asteen välillä.

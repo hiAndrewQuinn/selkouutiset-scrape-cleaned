@@ -30,6 +30,7 @@ for source_file in (find $source_dir -type f -name "*.html")
     mkdir -p $dest_dir
 
     set dest_file "$dest_dir/_index.md"
+    set dest_file_fi "$dest_dir/_index.fi.md"
 
     cat $source_file
 
@@ -47,6 +48,8 @@ for source_file in (find $source_dir -type f -name "*.html")
         sed '/lukea uutiset samanaikaisesti alta/d' |
         pandoc -f html -t markdown --wrap=none |
         sed 's/{\.aw-zhx2sq \.hyCAoR}//g' >$dest_file
+
+    cp $dest_file $dest_file_fi
 end
 
 git add -A

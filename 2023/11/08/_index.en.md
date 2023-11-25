@@ -4,7 +4,7 @@ Tax information. Dog food. EU membership negotiations. Weather.
 
 ### Tax information
 
-![The tax information for 2022 is now public. Illustration image. Photo: Toni Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a)
+![The tax information for 2022 is now public. Illustration image. Photo: Toni Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a)
 
 Tax information for 2022 is now public. The tax data shows which people received the most money last year in salary income and capital income.
 
@@ -28,7 +28,7 @@ The Food Agency is investigating samples taken from Musti Group's dog food.
 
 ### EU membership negotiations
 
-![The European Union currently includes 27 countries. Photo: Ana Fernandez / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2)
+![The European Union currently includes 27 countries. Photo: Ana Fernandez / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2)
 
 The European Commission recommends that the EU start negotiations with Ukraine on the country's EU membership. However, Ukraine must first fulfill some membership conditions. The Commission hopes that Ukraine will take more measures against corruption, for example.
 

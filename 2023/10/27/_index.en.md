@@ -20,7 +20,7 @@ Gaza is located on the border between Israel and Egypt. Therefore, international
 
 ### Corona infections
 
-![Elderly people and people in risk groups should get a booster vaccination against the corona virus. Photo: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_400/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1670569792/39-933588623dccc01a881)
+![Elderly people and people in risk groups should get a booster vaccination against the corona virus. Photo: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_400/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1670569792/39-933588623dccc01a881)
 
 Corona infections are increasing again in Finland.
 
@@ -38,7 +38,7 @@ The corona vaccination can be taken at the same time as the autumn flu vaccinati
 
 ### Apartment prices
 
-![The housing market is now quiet. Photo: Mikko Savolainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3348,w_5952,x_0,y_483/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1694415905/39-117017864fea8c7baf74)
+![The housing market is now quiet. Photo: Mikko Savolainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3348,w_5952,x_0,y_483/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1694415905/39-117017864fea8c7baf74)
 
 Apartment prices have fallen. This is what Statistics Finland says.
 

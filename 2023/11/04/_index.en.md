@@ -4,7 +4,7 @@ Taxes. Nepal earthquake. Ukraine. Gaza. All Saints' Day. Forecast.
 
 ### Satisfaction with taxation
 
-![Finns are happy to pay taxes. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3061,w_5443,x_0,y_226/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1692510416/39-115736664dc9b0569c81)
+![Finns are happy to pay taxes. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3061,w_5443,x_0,y_226/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692510416/39-115736664dc9b0569c81)
 
 The majority of Finns are satisfied with taxation. The Tax Administration has asked Finns what they think about paying taxes.
 
@@ -16,7 +16,7 @@ Satisfaction with paying taxes has clearly increased over the past 10 years.
 
 ### Earthquake in Nepal
 
-![Collapsed houses in Jajarkot, Nepal. Photo: Balkumar Sharma / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1350,w_2400,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699091137/39-1195827654612690580a)
+![Collapsed houses in Jajarkot, Nepal. Photo: Balkumar Sharma / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1350,w_2400,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699091137/39-1195827654612690580a)
 
 A big earthquake has happened in Nepal. The earthquake occurred in western Nepal on Friday evening.
 
@@ -36,7 +36,7 @@ Von der Leyen also spoke about the EU's support for Ukraine.
 
 ### The situation in Gaza
 
-![Israel has concentrated military strikes on the northern part of Gaza. Photo: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1121,w_1994,x_5,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699023208/39-1195711654506b2bc2d4)
+![Israel has concentrated military strikes on the northern part of Gaza. Photo: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1121,w_1994,x_5,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699023208/39-1195711654506b2bc2d4)
 
 As many as one million people have moved from Gaza to the southern part of the territory because of the war.
 

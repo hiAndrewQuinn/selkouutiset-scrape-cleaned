@@ -14,7 +14,7 @@ The UN warns that chaos will begin in Gaza. For example, thousands of Palestinia
 
 ### Nonfiction
 
-![Author Merete Mazzarella. Photo: Barbro Ahlstedt/Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3159,w_5616,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1620995152/39-806292609e6be113e02)
+![Author Merete Mazzarella. Photo: Barbro Ahlstedt/Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3159,w_5616,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1620995152/39-806292609e6be113e02)
 
 A book fair has been held in Helsinki this weekend. The book fair also included plain language literature and plain language authors. At the book fair, for example, it was celebrated that a plain language version of the author **Merete Mazzarella**'s book *Violetti hetki* has been made.
 

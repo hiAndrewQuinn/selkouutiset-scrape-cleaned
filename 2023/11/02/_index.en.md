@@ -4,7 +4,7 @@ The problems of companies. Popularity of the parties. Attack on websites. Appear
 
 ### Problems of companies
 
-![Many companies in the metal industry have problems. Photo: Jukka Eskanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_410/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1698216498/39-11907536538b9d499762)
+![Many companies in the metal industry have problems. Photo: Jukka Eskanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_410/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698216498/39-11907536538b9d499762)
 
 Many Finnish technology companies have big problems. Foreign customers of Finnish companies do not buy enough products. That's why companies make too little profit.
 
@@ -18,7 +18,7 @@ If the foreign customers of the companies do not soon start buying more Finnish 
 
 ### Popularity of the parties
 
-![Antti Lindtman is the chairman of SDP. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3984,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1696930784/39-118400565251b6be058f)
+![Antti Lindtman is the chairman of SDP. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3984,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696930784/39-118400565251b6be058f)
 
 SDP is now the most popular party in Finland, according to Yle's new survey. SDP's popularity rose a lot in October.
 
@@ -34,7 +34,7 @@ SDP's support can be increased by the fact that the government intends to weaken
 
 ### Attack on websites
 
-![Suomen Bank building in the center of Helsinki. Photo: Matti Myller / Yle ](https://images.cdn.yle.fi/image/upload/c_crop,h_1391,w_2472,x_0,y_112/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1587997073/39-6686595ea6e8fc70cab)
+![Suomen Bank building in the center of Helsinki. Photo: Matti Myller / Yle ](https://images.cdn.yle.fi/image/upload/c_crop,h_1391,w_2472,x_0,y_112/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1587997073/39-6686595ea6e8fc70cab)
 
 Pro-Russian hackers attacked the website of the Bank of Finland on Thursday. The website was not working normally.
 
@@ -60,6 +60,6 @@ Nowadays, men have to have short hair in the army. The beard and mustache must b
 
 ### Weather
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1698940434/39-11951316543c5fbc620f)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698940434/39-11951316543c5fbc620f)
 
 It may rain a little rain or snow on Friday. It may rain more in the south on Friday evening. The temperature is between +7 and -12 degrees. It is coldest in the north.

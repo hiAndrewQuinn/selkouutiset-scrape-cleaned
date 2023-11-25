@@ -4,7 +4,7 @@ Gaza. UN Alexander Stubb. Sesame Prize. Winter time. Forecast.
 
 ### Battles in the Middle East
 
-![Israel has increased attacks on Gaza. Photo: Aris Messinis / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_531/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1698410872/39-1192351653bb10bf0b47)
+![Israel has increased attacks on Gaza. Photo: Aris Messinis / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_531/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698410872/39-1192351653bb10bf0b47)
 
 The fighting in the Middle East is intensifying. Israel has increased many attacks on Gaza. Israel has struck 150 targets of the extremist organization Hamas.
 
@@ -14,7 +14,7 @@ Many aid organizations have also lost contact with aid workers in Gaza.
 
 ### UN General Assembly resolution
 
-![The UN demands a ceasefire in Gaza. Photo: EPA/HANNIBAL HANSCHKE](https://images.cdn.yle.fi/image/upload/c_crop,h_3150,w_5600,x_0,y_268/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1698499380/39-1192714653d0ab7d4d4c)
+![The UN demands a ceasefire in Gaza. Photo: EPA/HANNIBAL HANSCHKE](https://images.cdn.yle.fi/image/upload/c_crop,h_3150,w_5600,x_0,y_268/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698499380/39-1192714653d0ab7d4d4c)
 
 The UN General Assembly demands a humanitarian ceasefire in Gaza. The UN General Assembly has issued a resolution on the matter. The resolution condemns violence against Palestinian and Israeli civilians.
 

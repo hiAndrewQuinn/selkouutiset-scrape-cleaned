@@ -4,7 +4,7 @@ President Martti Ahtisaari's funeral and life's work.
 
 ### President Ahtisaari's funeral and life's work
 
-![Martti Ahtisaari, President of Finland 1994-200. Photo: CMI/Tomas Whitehouse](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699528852/39-1197047654a2d3334539)
+![Martti Ahtisaari, President of Finland 1994-200. Photo: CMI/Tomas Whitehouse](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699528852/39-1197047654a2d3334539)
 
 President Martti Ahtisaari was buried today, Friday.
 
@@ -16,7 +16,7 @@ Reporter **Merja Windia** has followed Ahtisaari's funeral.
 
 **Merja, how was Ahtisaari's funeral?**
 
-![President Sauli Niinistö spoke at Ahtisaari's funeral. Photo: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_259/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699619473/39-1198810654e20fbae885)
+![President Sauli Niinistö spoke at Ahtisaari's funeral. Photo: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_259/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699619473/39-1198810654e20fbae885)
 
 The funeral was dignified, but the atmosphere was warm.
 
@@ -42,7 +42,7 @@ In the world, Ahtisaari is known above all as a peace negotiator. In 2008, Ahtis
 
 **Ahtisaari's coffin was taken from the cathedral to the cemetery in a funeral procession that passed through the center of Helsinki. Were there people along the streets?**
 
-![Many people wanted to watch Ahtisaari's funeral. Photo: Roni Rekomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_11/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699619608/39-1198819654e22ed1c931)
+![Many people wanted to watch Ahtisaari's funeral. Photo: Roni Rekomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_11/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699619608/39-1198819654e22ed1c931)
 
 Yes, there were thousands of people lining the streets, even though it was raining. Many wanted to come to honor Ahtisaari's memory.
 

@@ -4,7 +4,7 @@ SDP presidential candidate. The events of the eastern border. Men's Day. Weather
 
 ### SDP presidential candidate
 
-![Jutta Urpilainen at the SDP meeting in Tampere. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1700390392/39-12029436559e5d3e7734)
+![Jutta Urpilainen at the SDP meeting in Tampere. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700390392/39-12029436559e5d3e7734)
 
 **Jutta Urpilainen** is running as the SDP party's presidential candidate. He told about it at the SDP meeting in Tampere.
 
@@ -38,7 +38,7 @@ Officials say Russia wants to provoke and cause disorder.
 
 ### Men's Day
 
-![Finnish man. Photo: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_164/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1700042381/39-1200843655493de62883)
+![Finnish man. Photo: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_164/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700042381/39-1200843655493de62883)
 
 Sunday was men's day. The purpose of the day is to emphasize the health, equality and good deeds of men and boys in the family and society.
 
@@ -56,4 +56,4 @@ It will snow on Monday.
 
 The temperature is between 0 and -10 degrees. In Lapland, the temperature is between -15 and -30 degrees.
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1700408413/39-1203034655a2c36dc32d)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700408413/39-1203034655a2c36dc32d)

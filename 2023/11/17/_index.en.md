@@ -4,7 +4,7 @@ Eastern border. Corona infections. Military aid to Ukraine. School transportatio
 
 ### Eastern border
 
-![Finland closes border crossings. Photo: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699908616/39-1200025655285565477b)
+![Finland closes border crossings. Photo: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908616/39-1200025655285565477b)
 
 There was a lot of traffic on the eastern border of Finland on Friday. Asylum seekers also continued to arrive at the border.
 
@@ -20,7 +20,7 @@ Russia has let them to the Finnish border because it might want to disturb Finla
 
 ### Corona infections
 
-![Risk groups have been given a booster vaccination against the corona virus again. Photo: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+![Risk groups have been given a booster vaccination against the corona virus again. Photo: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
 
 The number of corona infections is decreasing in Southern Finland. This is what the Institute of Health and Welfare says.
 
@@ -32,7 +32,7 @@ Autumn corona vaccinations are underway. The Department of Health and Welfare sa
 
 ### Military aid to Ukraine
 
-![President of Ukraine Volodymyr Zelenskyi. Photo: Jakub Porzycki / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb)
+![President of Ukraine Volodymyr Zelenskyi. Photo: Jakub Porzycki / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb)
 
 Finland sends more military aid to Ukraine. The value of the aid is 100 million euros.
 

@@ -4,7 +4,7 @@ Gaza. Liquid. Telecommuting. Snow storm. Tomorrow's weather.
 
 ### Gaza
 
-![Ambulance brings the wounded for treatment from Gaza to the Egyptian side. Photo: Haitham Imad / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2821,w_5016,x_0,y_744/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1698852282/39-1194530654258b7aaf7a)
+![Ambulance brings the wounded for treatment from Gaza to the Egyptian side. Photo: Haitham Imad / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2821,w_5016,x_0,y_744/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698852282/39-1194530654258b7aaf7a)
 
 The Rafah border crossing from Gaza to Egypt has been opened. The border crossing was now opened for the first time since the terrorist organization Hamas attacked Israel in early October.
 
@@ -14,7 +14,7 @@ There are also 12 Finns in Gaza. It is not yet known when they will get away.
 
 ### Liquid
 
-![Neste is cutting jobs because it wants to save money. Photo: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2611,w_4643,x_0,y_483/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1698838481/39-1191437653a0928a0b5b)
+![Neste is cutting jobs because it wants to save money. Photo: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2611,w_4643,x_0,y_483/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698838481/39-1191437653a0928a0b5b)
 
 Fuel manufacturer Neste is cutting hundreds of jobs. Neste plans to cut around 400 jobs, most of which are from Finland.
 
@@ -24,7 +24,7 @@ Neste has more than 6,000 employees, of which almost 4,000 work in Finland.
 
 ### Remote work
 
-![Service expert Saara Peiponen says that remote work makes everyday life easier and improves coping. Photo: Heikki Haapalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2988,w_5312,x_16,y_569/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1698754242/39-11936826540ed9ea44a0)
+![Service expert Saara Peiponen says that remote work makes everyday life easier and improves coping. Photo: Heikki Haapalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2988,w_5312,x_16,y_569/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698754242/39-11936826540ed9ea44a0)
 
 Finns want to hold on to the right to work remotely.
 
@@ -46,7 +46,7 @@ There have still been a lot of crashes and crashes. For example, there was a cha
 
 ### Tomorrow's weather
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1698848166/39-119453865425d62868a1)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698848166/39-119453865425d62868a1)
 
 It's going to rain tomorrow. The sky is cloudy, but the sun can shine in places.
 

@@ -4,7 +4,7 @@ Corona situation. Use of alcohol. Tourism in Lapland. The bears of Korkeasaari. 
 
 ### Corona situation
 
-![Corona infections are increasing. Photo: Ismo Pekkarinen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2)
+![Corona infections are increasing. Photo: Ismo Pekkarinen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2)
 
 The number of corona cases is increasing. The coronavirus is now increasing throughout Finland.
 

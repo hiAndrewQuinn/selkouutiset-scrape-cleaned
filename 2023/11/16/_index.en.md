@@ -18,7 +18,7 @@ During the fall, more asylum seekers than usual have arrived at the border cross
 
 ### Unemployment
 
-![Unemployment is increasing. Illustration image. Photo: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+![Unemployment is increasing. Illustration image. Photo: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
 
 The number of unemployed people will increase in Finland this year. This is what the Ministry of Labor estimates.
 
@@ -28,7 +28,7 @@ The Ministry of Labor estimates that the Finnish economy will improve in 2025. T
 
 ### Dödspatrullen trial
 
-![Dödspatrulle courts 16.11.2023. Photo: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+![Dödspatrulle courts 16.11.2023. Photo: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
 
 A trial related to the Swedish Dödspatrullen gang began in Helsinki.
 

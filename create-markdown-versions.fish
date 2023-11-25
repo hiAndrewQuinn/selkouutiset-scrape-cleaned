@@ -3,6 +3,8 @@
 set this_directory /home/andrew/Code/selkouutiset-scrape-cleaned
 pushd $this_directory
 
+git pull
+
 # Pull the latest HEAD from selkouutiset-scrape.
 git submodule update --remote selkouutiset-scrape/
 cd selkouutiset-scrape/

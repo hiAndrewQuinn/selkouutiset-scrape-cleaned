@@ -29,6 +29,8 @@ for source_file in (find $source_dir -type f -name "*.html")
 
     set dest_file "$dest_dir/_index.md"
 
+    cat $source_file
+
     cat $source_file |
         pandoc -f html -t commonmark --wrap=none |
         sed -n '/## Radio/,$p' |

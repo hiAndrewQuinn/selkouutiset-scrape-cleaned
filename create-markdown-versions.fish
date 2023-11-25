@@ -35,7 +35,7 @@ for source_file in (find $source_dir -type f -name "*.html")
         sed '/Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./Q' |
         sed '/^<div\|^<\/div/d' |
         sed '/^<span\|^<\/span/d' |
-        pandoc -f commonmark -t html --wrap=none |
+        pandoc -f commonmark -t html |
         sed '/^<ul>\|^<\/ul>/d' |
         sed '/^<li><a/d' |
         sed '/^<p><a href.*poddar/d' |

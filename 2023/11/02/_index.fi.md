@@ -4,7 +4,7 @@ Firmojen ongelmat. Puolueiden suosio. Hyökkäys nettisivuille. Sotilaiden ulkon
 
 ### Firmojen ongelmat
 
-![Monella metalliteollisuuden firmalla on ongelmia. Kuva: Jukka Eskanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_410/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698216498/39-11907536538b9d499762)
+![Monella metalliteollisuuden firmalla on ongelmia. Kuva: Jukka Eskanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_410/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698216498/39-11907536538b9d499762)
 
 Monilla suomalaisilla teknologiafirmoilla on isoja ongelmia. Suomalaisten firmojen ulkomaalaiset asiakkaat eivät osta tuotteita tarpeeksi paljon. Siksi firmat tekevät liian vähän voittoa.
 
@@ -18,7 +18,7 @@ Jos firmojen ulkomaalaiset asiakkaat eivät pian ala ostaa enemmän suomalaisia 
 
 ### Puolueiden suosio
 
-![Antti Lindtman on SDP:n puheenjohtaja. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3984,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696930784/39-118400565251b6be058f)
+![Antti Lindtman on SDP:n puheenjohtaja. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3984,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1696930784/39-118400565251b6be058f)
 
 SDP on nyt Suomen suosituin puolue, kertoo Ylen uusi kysely. SDP:n suosio nousi lokakuussa paljon.
 
@@ -34,7 +34,7 @@ SDP:n kannatusta voi nostaa se, että hallitus aikoo esimerkiksi heikentää ty�
 
 ### Hyökkäys nettisivuille
 
-![Suomen Pankin rakennus Helsingin keskustassa. Kuva: Matti Myller / Yle ](https://images.cdn.yle.fi/image/upload/c_crop,h_1391,w_2472,x_0,y_112/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1587997073/39-6686595ea6e8fc70cab)
+![Suomen Pankin rakennus Helsingin keskustassa. Kuva: Matti Myller / Yle ](https://images.cdn.yle.fi/image/upload/c_crop,h_1391,w_2472,x_0,y_112/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1587997073/39-6686595ea6e8fc70cab)
 
 Venäjää kannattavat hakkerit hyökkäsivät torstaina Suomen Pankin nettisivuille. Nettisivut eivät toimineet normaalisti.
 
@@ -48,7 +48,7 @@ Hyökkäykset suomalaisille nettisivuille ovat lisääntyneet sen jälkeen kun V
 
 ### Sotilaiden ulkonäkö
 
-![Miessotilailla ei saa olla pitkä tukka. Kuva: Linus Westerlund](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_522/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1688460639/39-113784464a3db01e8a65)
+![Miessotilailla ei saa olla pitkä tukka. Kuva: Linus Westerlund](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_522/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1688460639/39-113784464a3db01e8a65)
 
 Sotilasjärjestöt haluavat muuttaa armeijan ulkonäkövaatimuksia.
 
@@ -60,6 +60,6 @@ Nykyään miehillä pitää olla armeijassa lyhyt tukka. Parta ja viikset pitä�
 
 ### Sää
 
-![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698940434/39-11951316543c5fbc620f)
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698940434/39-11951316543c5fbc620f)
 
 Perjantaina voi sataa vähän vettä tai lunta. Perjantaina illalla etelässä voi sataa enemmän. Lämpötila on +7:n ja -12 asteen välillä. Kylmintä on pohjoisessa.

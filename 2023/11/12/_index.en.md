@@ -4,7 +4,7 @@ Border control from Russia. Urban security. Unpaid student loans. Father's Day. 
 
 ### Border control from Russia to Finland
 
-![Finland is prepared for a change in the border security situation, says Interior Minister Mari Rantanen. Photo: Mikko Savolainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2720,w_4836,x_0,y_450/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695988171/39-11790926516b884859ee)
+![Finland is prepared for a change in the border security situation, says Interior Minister Mari Rantanen. Photo: Mikko Savolainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2720,w_4836,x_0,y_450/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1695988171/39-11790926516b884859ee)
 
 More people than usual have come to Finland's southeastern border from Russia without a visa.
 
@@ -16,7 +16,7 @@ Illegal immigrants have come to the border on bicycles during the week. Now the 
 
 ### Security of cities
 
-![The security situation in Tampere has deteriorated more than in Helsinki over the past 10 years. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2687,w_4777,x_1,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699517677/39-1197321654a95de6dbe7)
+![The security situation in Tampere has deteriorated more than in Helsinki over the past 10 years. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2687,w_4777,x_1,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699517677/39-1197321654a95de6dbe7)
 
 Security has deteriorated in Finland's big cities.
 
@@ -26,7 +26,7 @@ Jouni Perttula, security manager of the city of Tampere, says that the causes of
 
 ### Student loans
 
-![The background of the debt difficulties is also the 2017 study support reform. The loan could be withdrawn for 650 euros per month instead of the previous 400 euros. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_557/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1694583672/39-1171262650149d3dfd0c)
+![The background of the debt difficulties is also the 2017 study support reform. The loan could be withdrawn for 650 euros per month instead of the previous 400 euros. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_557/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1694583672/39-1171262650149d3dfd0c)
 
 Kela has to collect a record amount of student loans from students, which the student has not paid. Kela has collected debts this year already 3 times as much as last year. Kela already has more than 72 million euros in student debts.
 
@@ -38,7 +38,7 @@ The background is, for example, that student support is more dependent on studen
 
 ### Father's Day
 
-![The idea of Father's Day developed in the United States because of Mother's Day. In the late 1940s, Nordic merchants suggested the second Sunday in November as the day, when the shops are still quiet before the Christmas season.](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_0/ar_1. 7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1510307500/39-4421515a057677df668)
+![The idea of Father's Day developed in the United States because of Mother's Day. In the late 1940s, Nordic merchants suggested the second Sunday in November as the day, when the shops are still quiet before the Christmas season.](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_0/ar_1. 7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1510307500/39-4421515a057677df668)
 
 Father's Day was celebrated on Sunday.
 
@@ -48,7 +48,7 @@ There are 1.3 million fathers in Finland, says Statistics Finland.
 
 ### Weather
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699803736/39-11995176550f22164d93)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699803736/39-11995176550f22164d93)
 
 Cold air begins to flow from the north to Finland. Light snow showers can still occur on Monday in the south and east.
 

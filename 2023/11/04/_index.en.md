@@ -4,7 +4,7 @@ Taxes. Nepal earthquake. Ukraine. Gaza. All Saints' Day. Forecast.
 
 ### Satisfaction with taxation
 
-![Finns are happy to pay taxes. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3061,w_5443,x_0,y_226/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692510416/39-115736664dc9b0569c81)
+![Finns are happy to pay taxes. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3061,w_5443,x_0,y_226/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1692510416/39-115736664dc9b0569c81)
 
 The majority of Finns are satisfied with taxation. The Tax Administration has asked Finns what they think about paying taxes.
 
@@ -16,7 +16,7 @@ Satisfaction with paying taxes has clearly increased over the past 10 years.
 
 ### Earthquake in Nepal
 
-![Collapsed houses in Jajarkot, Nepal. Photo: Balkumar Sharma / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1350,w_2400,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699091137/39-1195827654612690580a)
+![Collapsed houses in Jajarkot, Nepal. Photo: Balkumar Sharma / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1350,w_2400,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699091137/39-1195827654612690580a)
 
 A big earthquake has happened in Nepal. The earthquake occurred in western Nepal on Friday evening.
 
@@ -26,7 +26,7 @@ The Nepal earthquake happened in a remote area. That's why information about the
 
 ### EU President's visit to Ukraine
 
-![Ursula von der Leyen met with President Volodymyr Zelensky at the Kyiv railway station. Photo: AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_3000,x_0,y_305/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1699098434/39-119583265462e51258c1)
+![Ursula von der Leyen met with President Volodymyr Zelensky at the Kyiv railway station. Photo: AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_3000,x_0,y_305/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco  /f_auto/fl_lossy/v1699098434/39-119583265462e51258c1)
 
 European Commission President **Ursula von der Leyen** has visited Ukraine on Saturday. Von der Leyen met with Ukrainian President **Volodymyr Zelensky** in the capital, Kyiv.
 
@@ -36,7 +36,7 @@ Von der Leyen also spoke about the EU's support for Ukraine.
 
 ### The situation in Gaza
 
-![Israel has concentrated military strikes on the northern part of Gaza. Photo: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1121,w_1994,x_5,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699023208/39-1195711654506b2bc2d4)
+![Israel has concentrated military strikes on the northern part of Gaza. Photo: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1121,w_1994,x_5,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699023208/39-1195711654506b2bc2d4)
 
 As many as one million people have moved from Gaza to the southern part of the territory because of the war.
 
@@ -46,7 +46,7 @@ The strikes by the Israeli air force and ground forces have been concentrated in
 
 ### All Saints Day
 
-![On the holy day, candles are taken to the graves. Photo: Leena-kaisa Laakso / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_435/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1699101771/39-119586665463c1d71d1c)
+![On the holy day, candles are taken to the graves. Photo: Leena-kaisa Laakso / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_435/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699101771/39-119586665463c1d71d1c)
 
 Today Saturday is All Saints' Day. All Saints' Day is important in the Christian tradition. It is the day of remembrance of saints, martyrs and the dead.
 
@@ -56,6 +56,6 @@ All Saints' Day is always celebrated in Finland on the first Saturday of Novembe
 
 ### Weather
 
-![Sunday is mostly cloudy.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0 /q_auto:eco/f_auto/fl_lossy/v1699111715/39-1195891654662ff4432c)
+![Sunday is mostly cloudy.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0 /q_auto: eco /f_auto/fl_lossy/v1699111715/39-1195891654662ff4432c)
 
 The weather is mostly cloudy and rainy. In southwestern Finland, the sun can sometimes shine a little. The temperature is mostly between 3 and 8 degrees. It is colder in northern Finland.

@@ -4,7 +4,7 @@ Border stations closed. Unemployment. The Dödspatrullen trial. Weather.
 
 ### Border stations closed
 
-![Imatra, Niirala, Nuijamaa and Vaalimaa border stations will be closed. Photo: Laura Merikalla / Yle and Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200 /dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
+![Imatra, Niirala, Nuijamaa and Vaalimaa border stations will be closed. Photo: Laura Merikalla / Yle and Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200 /dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
 
 Finland closes many border crossings on the eastern border.
 
@@ -18,7 +18,7 @@ During the fall, more asylum seekers than usual have arrived at the border cross
 
 ### Unemployment
 
-![Unemployment is increasing. Illustration image. Photo: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+![Unemployment is increasing. Illustration image. Photo: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
 
 The number of unemployed people will increase in Finland this year. This is what the Ministry of Labor estimates.
 
@@ -28,7 +28,7 @@ The Ministry of Labor estimates that the Finnish economy will improve in 2025. T
 
 ### Dödspatrullen trial
 
-![Dödspatrulle courts 16.11.2023. Photo: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+![Dödspatrulle courts 16.11.2023. Photo: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
 
 A trial related to the Swedish Dödspatrullen gang began in Helsinki.
 
@@ -38,7 +38,7 @@ The court deals with drug crimes. The police say that a Swedish street gang trie
 
 ### Weather
 
-![ Photo: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
+![ Photo: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
 
 Tomorrow, Friday, the sun will shine in the south and north. There are clouds in the sky in the middle of the earth. The weather is dusty, but it may snow a little on the west coast.
 

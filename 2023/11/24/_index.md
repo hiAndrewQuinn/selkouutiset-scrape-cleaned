@@ -5,7 +5,7 @@ Itärajan tilanne. Israelin ja Hamasin tulitauko. Häätäminen. Sää.
 
 ### Itärajan tilanne
 
-![Ihmisiä tuli päivällä Inarin Raja-Joosepin raja-asemalle. Kuva: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3368,w_5986,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700827102/39-120618465608fd4818b7)
+![Ihmisiä tuli päivällä Inarin Raja-Joosepin raja-asemalle. Kuva: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3368,w_5986,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700827102/39-120618465608fd4818b7)
 
 Suomen ja Venäjän rajalla perjantaipäivä oli rauhallinen.
 
@@ -19,7 +19,7 @@ Syy on se, että Venäjä on ohjannut lisää ja lisää siirtolaisia Suomeen.
 
 ### Israelin ja Hamasin tulitauko
 
-![Gazaan viedään tulitauon aikana apua. Kuva: Thomas Samson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700822253/39-120580865603d3467a7a)
+![Gazaan viedään tulitauon aikana apua. Kuva: Thomas Samson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700822253/39-120580865603d3467a7a)
 
 Lähi-idässä Gazassa Israelin ja terroristijärjestö Hamasin tulitauko on alkanut. Se kestää ainakin neljä päivää. Tulitauon aikana Israel ja Hamas eivät taistele.
 
@@ -31,7 +31,7 @@ Gazan sota alkoi lokakuun alussa, kun Hamas hyökkäsi Israeliin. Israel on sen 
 
 ### Häätäminen
 
-![Vuokralaisen häätäminen on monimutkaista. Kuva: Oleg Elkov / Alamy/All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_3182,w_5657,x_121,y_740/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698135288/39-115380264d2449083906)
+![Vuokralaisen häätäminen on monimutkaista. Kuva: Oleg Elkov / Alamy/All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_3182,w_5657,x_121,y_740/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698135288/39-115380264d2449083906)
 
 Suurin osa suomalaisista ajattelee, että vuokralaisen häätäminen asunnosta on liian vaikeaa. Näin kertoo uusi kysely.
 
@@ -43,7 +43,7 @@ Yli 80 prosenttia suomalaisista on sitä mieltä, että häätäminen on nykyä�
 
 ### Saamelaiset
 
-![Mies heilutti Saamen lippua eduskuntatalolla viime huhtikuussa. Kuva: Linda Tammela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_659,w_1173,x_0,y_133/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693572536/39-10986686437da2797694)
+![Mies heilutti Saamen lippua eduskuntatalolla viime huhtikuussa. Kuva: Linda Tammela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_659,w_1173,x_0,y_133/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1693572536/39-10986686437da2797694)
 
 Suomessa tutkitaan saamelaisten syrjintää nykyään ja menneisyydessä. Asiaa tutkii totuuskomissio.
 
@@ -55,7 +55,7 @@ Saamelaisten kohtelu aiheutti paljon murhetta. Saamelaiset ovat Suomen alkuperä
 
 ### Sää
 
-![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700835658/39-12063856560b12785459)
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700835658/39-12063856560b12785459)
 
 Lauantaina päivällä länsirannikolla ja pohjoisessa sataa vähän lunta.
 

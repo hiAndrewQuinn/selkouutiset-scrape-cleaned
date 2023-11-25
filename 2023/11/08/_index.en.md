@@ -4,7 +4,7 @@ Tax information. Dog food. EU membership negotiations. Weather.
 
 ### Tax information
 
-![The tax information for 2022 is now public. Illustration image. Photo: Toni Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a)
+![The tax information for 2022 is now public. Illustration image. Photo: Toni Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a)
 
 Tax information for 2022 is now public. The tax data shows which people received the most money last year in salary income and capital income.
 
@@ -16,7 +16,7 @@ In Yle's tax calculator, you can view the tax information of the highest-earning
 
 ### Dog food
 
-![Many dogs have gotten sick from dog food. Photo: Urho Haho, Jaakko Stenroos / AOP, Leena Luotio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces, h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699386970/39-11965956548f484ed3bb)
+![Many dogs have gotten sick from dog food. Photo: Urho Haho, Jaakko Stenroos / AOP, Leena Luotio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces, h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699386970/39-11965956548f484ed3bb)
 
 This week there has been a lot of talk about the fact that many dogs got sick from dog food. It has now become clear that the cause may be a foreign potato flake.
 
@@ -28,7 +28,7 @@ The Food Agency is investigating samples taken from Musti Group's dog food.
 
 ### EU membership negotiations
 
-![The European Union currently includes 27 countries. Photo: Ana Fernandez / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2)
+![The European Union currently includes 27 countries. Photo: Ana Fernandez / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2)
 
 The European Commission recommends that the EU start negotiations with Ukraine on the country's EU membership. However, Ukraine must first fulfill some membership conditions. The Commission hopes that Ukraine will take more measures against corruption, for example.
 
@@ -38,7 +38,7 @@ There are currently 27 countries in the European Union.
 
 ### Weather
 
-![ Photo: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1699449326/39-1197700654b89b86284a)
+![ Photo: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699449326/39-1197700654b89b86284a)
 
 The weather is cloudy almost all over the country. In the southern part of the country, it rains in many places. It is also snowing in central and northern Finland.
 

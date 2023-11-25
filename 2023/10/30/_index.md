@@ -5,7 +5,7 @@ Koronatilanne. Alkoholin käyttö. Lapin matkailu. Korkeasaaren karhut. Sää.
 
 ### Koronatilanne
 
-![Koronatartunnat lisääntyvät. Kuva: Ismo Pekkarinen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2)
+![Koronatartunnat lisääntyvät. Kuva: Ismo Pekkarinen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2)
 
 Koronatapausten määrä kasvaa. Koronavirus lisääntyy nyt koko Suomessa.
 
@@ -17,7 +17,7 @@ Koronarokotukset alkavat marraskuussa eri puolilla Suomea. Koronarokotuksia anne
 
 ### Alkoholin käyttö
 
-![Suomalaisten alkoholin käyttö on vähentynyt. Kuva: Ilkka Loikkanen](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1682602904/39-1105424644a7b35b4046)
+![Suomalaisten alkoholin käyttö on vähentynyt. Kuva: Ilkka Loikkanen](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1682602904/39-1105424644a7b35b4046)
 
 Suomalaiset käyttävät alkoholia vähemmän kuin ennen. Näin kertoo Terveyden ja hyvinvoinnin laitos.
 
@@ -27,7 +27,7 @@ Luvut ovat pienempiä kuin vuonna 2016, kun edellinen tutkimus tehtiin.
 
 ### Lapin matkailu
 
-![Turistit etsivät Lapista lumista talvea. Kuva: Vesa-Pekka Hiltunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_473/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1673250132/39-105687963bbc441bd57b)
+![Turistit etsivät Lapista lumista talvea. Kuva: Vesa-Pekka Hiltunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_473/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1673250132/39-105687963bbc441bd57b)
 
 Lapin matkailun talvikausi alkaa. Talvikauden lennot ulkomailta Lapin lentokentille aloitettiin viikonloppuna.
 
@@ -39,7 +39,7 @@ Turisteja kiinnostaa erityisesti luminen talvi. Lokakuu on nyt ollut Lapissa lum
 
 ### Korkeasaaren karhut
 
-![Korkeasaaren karhujen talviuni alkoi. Kuva: Korkeasaaren eläintarha / Mari Lehmonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3239,w_5759,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698664391/39-1193141653f687431ff4)
+![Korkeasaaren karhujen talviuni alkoi. Kuva: Korkeasaaren eläintarha / Mari Lehmonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3239,w_5759,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698664391/39-1193141653f687431ff4)
 
 Korkeasaaren eläintarhan karhut ovat menneet talviunille. Karhut nukkuivat sikeästi tänä syksynä jo lokakuun lopussa.
 
@@ -51,7 +51,7 @@ Korkeasaaren karhut heräävät talviunilta tavallisesti helmikuussa. Pohjois-Su
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698681609/39-1193390653fd2ed08682)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698681609/39-1193390653fd2ed08682)
 
 Tiistaina maan etelä- ja keskiosassa sataa monin paikoin vettä tai lunta, mahdollisesti myös jäätävää sadetta. Pohjoisessa on poutaista.
 

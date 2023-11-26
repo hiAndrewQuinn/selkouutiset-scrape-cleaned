@@ -7,7 +7,7 @@ Here I'm going to outline how to do all of these steps **by hand**. If you want 
 ## Quickstart
 
 ```fish
-# You can try this in /tmp if you want to just see it for yourself.
+cd /tmp # Just to try it out!
 
 git clone https://github.com/hiAndrewQuinn/selkouutiset-scrape-cleaned.git
 cd selkouutiset-scrape-cleaned

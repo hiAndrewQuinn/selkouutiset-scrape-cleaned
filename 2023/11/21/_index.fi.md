@@ -1,10 +1,11 @@
-## Radio \| Selkouutiset \| tiistai 21.11.2023
+Radio \| Selkouutiset \| tiistai 21.11.2023
+-------------------------------------------
 
 Vakoilu. Itärajan tilanne. Kansallisooppera. Sää.
 
 ### Vakoilu
 
-![ Kuva: Eeva Sarlin / Yle, AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_562,w_1000,x_0,y_32/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700569701/39-1204215655ca2203557b)
+![ Kuva: Eeva Sarlin / Yle, AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_562,w_1000,x_0,y_32/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700569701/39-1204215655ca2203557b)
 
 Venäjä todennäköisesti vakoilee suomalaisten tietoliikennettä. Näin kertovat tiedot, jotka Yle on hankkinut.
 
@@ -20,7 +21,7 @@ Suomen valtio aikoo perustaa uuden keskuksen, joka voi muun muassa seuraa satell
 
 ### Itärajan tilanne
 
-![Ihmisiä tuli tiistaina Sallan raja-asemalle. Kuva: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2515,w_4470,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700575368/39-1203513655b5b4d432e9)
+![Ihmisiä tuli tiistaina Sallan raja-asemalle. Kuva: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2515,w_4470,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700575368/39-1203513655b5b4d432e9)
 
 Itärajalle eli Suomen ja Venäjän rajalle on taas tiistaina tullut monta kymmentä ihmistä Venäjältä.
 
@@ -40,7 +41,7 @@ Venäjä sanoo, että sulkeminen haittaa niiden venäläisten elämää, jotka a
 
 ### Kansallisooppera
 
-![Kansallisoopperan taiteellinen johtaja Thomas de Mallet Burgess. Kuva: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699350873/39-1196938654a091844d91)
+![Kansallisoopperan taiteellinen johtaja Thomas de Mallet Burgess. Kuva: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699350873/39-1196938654a091844d91)
 
 Suomen Kansallisoopperalla on uusi taiteellinen johtaja. Hän on brittiläinen **Thomas de Mallet Burgess**.
 
@@ -54,6 +55,6 @@ Yllätys oli, että suomalaiset ovat hänestä lämpimiä ja huumorintajuisia ih
 
 ### Sää
 
-![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700579363/39-1204521655cc80468754)
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700579363/39-1204521655cc80468754)
 
 Keskiviikkona Suomeen tulee lännestä lumipyry. Lämpötila on 0:n ja -10 asteen välillä. Idässä on kylmempää.

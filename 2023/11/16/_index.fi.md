@@ -1,10 +1,11 @@
-## Radio Selkouutiset torstai 16.11.2023
+Radio Selkouutiset torstai 16.11.2023
+-------------------------------------
 
 Raja-asemia kiinni. Työttömyys. Dödspatrullen-oikeudenkäynti. Sää.
 
 ### Raja-asemia kiinni
 
-![Imatran, Niiralan, Nuijamaan ja Vaalimaan raja-asemat suljetaan. Kuva: Laura Merikalla / Yle ja Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
+![Imatran, Niiralan, Nuijamaan ja Vaalimaan raja-asemat suljetaan. Kuva: Laura Merikalla / Yle ja Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
 
 Suomi sulkee monta rajanylityspaikkaa itärajalla.
 
@@ -18,7 +19,7 @@ Kaakkois-Suomen rajanylityspaikoille on tullut syksyn aikana enemmän turvapaika
 
 ### Työttömyys
 
-![Työttömyys lisääntyy. Kuvituskuva. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+![Työttömyys lisääntyy. Kuvituskuva. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
 
 Työttömien ihmisten määrä kasvaa Suomessa tänä vuonna. Näin arvioi työministeriö.
 
@@ -28,7 +29,7 @@ Työministeriö arvioi, että vuonna 2025 Suomen talous paranee. Myös työpaikk
 
 ### Dödspatrullen-oikeudenkäynti
 
-![Dödspatrullen käräjät 16.11.2023. Kuva: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+![Dödspatrullen käräjät 16.11.2023. Kuva: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
 
 Helsingissä alkoi oikeudenkäynti, joka liittyy ruotsalaiseen Dödspatrullen-jengiin.
 
@@ -38,7 +39,7 @@ Oikeudessa käsitellään huumerikoksia. Poliisi sanoo, että ruotsalainen katuj
 
 ### Sää
 
-![ Kuva: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
+![ Kuva: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
 
 Huomenna perjantaina aurinko paistaa etelässä ja pohjoisessa. Maan keskiosassa taivaalla on pilviä. Sää on poutainen, mutta länsirannikolla voi sataa vähän lunta.
 

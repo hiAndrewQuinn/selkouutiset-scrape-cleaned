@@ -17,6 +17,21 @@ fish update.fish
 rm .hash
 rm -rf 20*/
 fish create-markdown-versions.fish
+
+fd '.*.fi.md$' | python translation-code/markdown2json.py
+```
+
+```fish
+# Only if you have ☁️ Google Translate API and gcloud
+curl -X POST \
+          -H "Authorization: Bearer $(gcloud auth print-access-token)" \
+          -H "x-goog-user-project: andrews-selkouutiset-archive" \
+          -H "Content-Type: application/json; charset=utf-8" \
+          -d @2023/11/11/_request.fi.en.json \
+          "https://translation.googleapis.com/language/translate/v2"
+
+fish translation-code/generate-translations.fish
+fd '_response\...\...\.json' | python translation-code/json2markdown.py
 ```
 
 ## For end users: How things are named

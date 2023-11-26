@@ -46,7 +46,7 @@ The cause of the accident is being investigated.
 
 ### Winter speeds
 
-![Winter road speed limits come into force. Photo: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
+![Winter road speed limits come into effect. Photo: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
 
 On many highways, the speed limit will change today, Thursday. In winter, the speed limit on almost all roads in Finland is 80 kilometers per hour.
 

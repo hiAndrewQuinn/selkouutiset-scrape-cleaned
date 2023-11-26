@@ -26,7 +26,7 @@ The number of corona infections is decreasing in Southern Finland. This is what 
 
 There have been a lot of corona infections this fall, but now the spread of the corona has started to slow down.
 
-However, the exact number of corona infections is not known, because people are taking corona tests less than in previous years.
+However, the exact number of corona infections is not known, because fewer people are taking corona tests than in previous years.
 
 Autumn corona vaccinations are underway. The Department of Health and Welfare says that there are enough vaccinations for all people in risk groups.
 
@@ -46,7 +46,7 @@ Ukrainian President Volodymyr Zelenskyi has thanked for the help on social media
 
 Travel times for school transport have been extended. Often, a schoolchild's travel time is 1 or 2 hours a day.
 
-The reason is often savings. Many schools are closed in rural areas. That's why it can be a long journey to school.
+The reason is often savings. Many schools have been closed in rural areas. That's why it can be a long journey to school.
 
 In addition, school transports often travel through many homes before they arrive at the school. It saves money, but increases travel time.
 
@@ -58,4 +58,4 @@ On Saturday, it may snow a little in the south and east. Elsewhere, it's cloudy,
 
 It is mostly cloudy, but the sun shines in places, at least in Northern Lapland.
 
-The temperature will be freezing all over the country at the weekend. In the south there is only a little frost, but in the north the frost is severe.
+The temperature will be freezing all over the country at the weekend. In the south there is only a little frost, but in the north the frost is intense.

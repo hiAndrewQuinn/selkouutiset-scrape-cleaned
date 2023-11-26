@@ -26,7 +26,7 @@ The Nepal earthquake happened in a remote area. That's why information about the
 
 ### EU President's visit to Ukraine
 
-![Ursula von der Leyen met with President Volodymyr Zelensky at the Kyiv railway station. Image: AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_3000,x_0,y_305/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699098434/39-119583265462e51258c1)
+![Ursula von der Leyen met with President Volodymyr Zelensky at the Kyiv railway station. Photo: AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_3000,x_0,y_305/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699098434/39-119583265462e51258c1)
 
 European Commission President **Ursula von der Leyen** has visited Ukraine on Saturday. Von der Leyen met with Ukrainian President **Volodymyr Zelensky** in the capital, Kyiv.
 
@@ -58,4 +58,4 @@ All Saints' Day is always celebrated in Finland on the first Saturday of Novembe
 
 ![Sunday is mostly cloudy.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699111715/39-1195891654662ff4432c)
 
-The weather is mostly cloudy and rainy. In southwestern Finland, the sun can sometimes shine a little. The temperature is mostly between 3 and 8 degrees. It is colder in northern Finland.
+The weather is mostly cloudy and rainy. In southwestern Finland, the sun can sometimes shine a little. The temperature is mostly between 3 and 8 degrees. It is colder in Northern Finland.

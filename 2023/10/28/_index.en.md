@@ -18,7 +18,7 @@ Many aid organizations have also lost contact with aid workers in Gaza.
 
 The UN General Assembly demands a humanitarian ceasefire in Gaza. The UN General Assembly has issued a resolution on the matter. The resolution condemns violence against Palestinian and Israeli civilians.
 
-120 countries voted in favor of the resolution. 14 states voted against. 45 states abstained, i.e. did not take a position on the issue.
+120 countries voted in favor of the resolution. 14 states voted against. 45 states abstained, i.e. did not take a position on the matter.
 
 For example, Finland and many other countries voted no because the UN resolution did not condemn Hamas's attack on Israel.
 

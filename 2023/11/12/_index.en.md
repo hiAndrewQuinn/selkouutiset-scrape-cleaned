@@ -28,7 +28,7 @@ Jouni Perttula, security manager of the city of Tampere, says that the causes of
 
 ![The background of the debt difficulties is also the 2017 study support reform. The loan could be withdrawn for 650 euros per month instead of the former 400 euros. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_557/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1694583672/39-1171262650149d3dfd0c)
 
-Kela has to collect a record amount of student loans from students, which the student has not paid. Kela has collected debts this year already 3 times as much as last year. Kela already has more than 72 million euros in student debts.
+Kela has to collect a record amount of student loans from students, which the student has not paid. Kela has collected debts this year already 3 times as much as last year. Kela's collection already has more than 72 million euros in student loans.
 
 In Finland, students receive not only a student grant but also a student loan. The loan is guaranteed by the state, or in practice Kela.
 

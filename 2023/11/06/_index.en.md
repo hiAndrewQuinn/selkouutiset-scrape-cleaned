@@ -14,9 +14,9 @@ Almost 8,000 immigrants participated in the study by the Institute of Health and
 
 ### Russian communication cable
 
-![Russian ship in cable repair work. Image: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3283,w_5838,x_0,y_380/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699268142/39-11962776548c5acae94c)
+![Russian ship in cable repair work. Photo: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3283,w_5838,x_0,y_380/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699268142/39-11962776548c5acae94c)
 
-The Russian communication cable has broken in the sea area of the Gulf of Finland. A Russian ship has come to repair the fault.
+The Russian communication cable has broken in the sea area of the Gulf of Finland. A Russian ship has come to fix the problem.
 
 The cable also runs in Finland's economic zone. Russia informed Finland about the cable breakage in mid-October.
 
@@ -48,7 +48,7 @@ On Monday, the day of Swedishness was celebrated. On Swedishness Day, the Swedis
 
 Almost 300,000 Finns speak Swedish as their mother tongue. Many famous Finns have been Swedish-speaking, for example Marshal Mannerheim and writer Tove Jansson.
 
-Swedish Day has been celebrated in Finland for more than 100 years, since 1908. The day of Swedishness, or Svenska dagen, is always November 6.
+Swedish Day has been celebrated in Finland for over 100 years, since 1908. The day of Swedishness, or Svenska dagen, is always November 6.
 
 Everyone can practice Swedish with, for example, Yle's clear news in Swedish. They can be found in Areena under the name Yle Nyheter på lätt svenska.
 

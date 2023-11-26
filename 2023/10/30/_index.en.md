@@ -8,7 +8,7 @@ Corona situation. Use of alcohol. Tourism in Lapland. The bears of Korkeasaari. 
 
 The number of corona cases is increasing. The coronavirus is now increasing throughout Finland.
 
-There are about 10 corona patients in intensive care. In addition, the hospitals have approximately 450 bed patients with corona infection.
+There are about 10 corona patients in intensive care. In addition, the hospitals have approximately 450 inpatients with corona infection.
 
 The corona situation will probably get worse as the winter progresses. The aim is to secure the operation of hospitals with the help of corona vaccinations.
 

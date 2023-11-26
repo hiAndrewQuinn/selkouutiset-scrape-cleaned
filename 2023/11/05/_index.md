@@ -5,7 +5,7 @@ Energiaremontit. Jäätelöfirmojen yhteys Venäjälle. Venäjän ohjuskoe. Saks
 
 ### Energiaremonttien tuki
 
-![Energiatuilla voi esimerkiksi uusia lämmitysjärjestelmiä. Kuva: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3349,w_5954,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1676637402/39-107442463ef747ea1acd)
+![Energiatuilla voi esimerkiksi uusia lämmitysjärjestelmiä. Kuva: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3349,w_5954,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1676637402/39-107442463ef747ea1acd)
 
 Asiantuntijat ovat huolissaan energiaremonttien tulevaisuudesta. Valtio lopettaa energiaremonttien tuen ensi vuonna.
 
@@ -15,7 +15,7 @@ Isännöitsijät pelkäävät, että talojen energiaremontit vähenevät, koska 
 
 ### Jäätelömerkkien yhteys Venäjälle
 
-![Joillakin jäätelömerkeillä on yhteys Venäjälle. Kuva: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1682321321/39-110323664462e3b6fb8b)
+![Joillakin jäätelömerkeillä on yhteys Venäjälle. Kuva: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1682321321/39-110323664462e3b6fb8b)
 
 Yle on tutkinut suomalaisten jäätelömerkkien yhteyksiä Venäjälle. Joillakin jäätelömerkeillä on yhteys Venäjälle.
 
@@ -25,7 +25,7 @@ Monet firmat ovat lähteneet pois Venäjältä, koska Venäjä käy sotaa Ukrain
 
 ### Venäjän ohjuskoe
 
-![Venäjän presidentti Vladimir Putin. Kuva: Mikhael Klimentyev / Sputnik / Kremlin Pool](https://images.cdn.yle.fi/image/upload/c_crop,h_4519,w_8034,x_16,y_238/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1678982359/39-108632664133bfc2dc51)
+![Venäjän presidentti Vladimir Putin. Kuva: Mikhael Klimentyev / Sputnik / Kremlin Pool](https://images.cdn.yle.fi/image/upload/c_crop,h_4519,w_8034,x_16,y_238/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1678982359/39-108632664133bfc2dc51)
 
 Venäjä on tehnyt laukaisukokeen pitkänmatkan ohjuksella. Venäjä sanoo, että ohjuksen laukaisukoe onnistui.
 
@@ -35,7 +35,7 @@ Venäjä laukaisi merenalaisen ohjuksen Vienanmereltä.
 
 ### Panttivankitilanne Saksassa
 
-![Kulku Hampurin lentokentälle suljettiin panttivankitilanteen takia. Kuva: Bodo Marks / DPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2703,w_4806,x_0,y_500/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699181525/39-11959676547736ea1bc0)
+![Kulku Hampurin lentokentälle suljettiin panttivankitilanteen takia. Kuva: Bodo Marks / DPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2703,w_4806,x_0,y_500/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699181525/39-11959676547736ea1bc0)
 
 Hampurin lentokentällä Saksassa on ollut pitkä panttivankitilanne.
 
@@ -45,7 +45,7 @@ Hampurin lentokenttä suljettiin ja kaikki lennot peruttiin. Tilanne päättyi s
 
 ### Länsi-Suomen tulvavaroitus
 
-![Teille voi nousta vettä, kun sataa ja lumi sulaa nopeasti. Kuva: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_218/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697618867/39-11828126521489e76d51)
+![Teille voi nousta vettä, kun sataa ja lumi sulaa nopeasti. Kuva: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_218/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1697618867/39-11828126521489e76d51)
 
 Ilmatieteenlaitos on antanut tulvavaroituksen Länsi-Suomeen. Syy on runsaat sateet. Alueella on satanut lunta, joka sulaa. Lisäksi tulee uusia vesisateita.
 
@@ -55,7 +55,7 @@ Esimerkiksi joet voivat tulvia pelloille ja teille Varsinais-Suomessa, Pirkanmaa
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699200945/39-11960206547bf95c98f5)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699200945/39-11960206547bf95c98f5)
 
 Maanantaina on pilvistä. Maan etelä- ja keskiosissa sataa vettä tai tihkua. Pohjois-Suomessa sateet loppuvat päivällä.
 

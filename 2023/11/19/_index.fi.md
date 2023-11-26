@@ -4,7 +4,7 @@ SDP:n presidenttiehdokas. Itärajan tapahtumat. Miestenpäivä. Sää.
 
 ### SDP:n presidenttiehdokas
 
-![Jutta Urpilainen SDP:n kokouksessa Tampereella. Kuva: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700390392/39-12029436559e5d3e7734)
+![Jutta Urpilainen SDP:n kokouksessa Tampereella. Kuva: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700390392/39-12029436559e5d3e7734)
 
 **Jutta Urpilainen** lähtee SDP-puolueen presidenttiehdokkaaksi. Hän kertoi asiasta SDP:n kokouksessa Tampereella.
 
@@ -24,7 +24,7 @@ Presidentin vaalit ovat tammikuussa.
 
 ### Itärajan tapahtumat
 
-![Turvapaikanhakijoita Vartiuksen raja-asemalla Kuhmossa. Kuva: Timo Valtteri Sihvonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2312,w_4110,x_1360,y_535/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700313355/39-12026836558740e2c62a)
+![Turvapaikanhakijoita Vartiuksen raja-asemalla Kuhmossa. Kuva: Timo Valtteri Sihvonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2312,w_4110,x_1360,y_535/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700313355/39-12026836558740e2c62a)
 
 Suomen itärajalla Vartiuksen raja-asema suljettiin sunnuntaina. Raja-asema oli kiinni vähän aikaa.
 
@@ -38,7 +38,7 @@ Viranomaiset sanovat, että Venäjä haluaa tehdä kiusaa ja aiheuttaa epäjärj
 
 ### Miestenpäivä
 
-![Suomalainen mies. Kuva: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_164/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700042381/39-1200843655493de62883)
+![Suomalainen mies. Kuva: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_164/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700042381/39-1200843655493de62883)
 
 Sunnuntaina on vietetty miestenpäivää. Päivän tarkoitus on korostaa miesten ja poikien terveyttä, tasa-arvoa ja hyviä tekoja perheessä ja yhteiskunnassa.
 
@@ -56,4 +56,4 @@ Maanantaina sataa lunta.
 
 Lämpötila on 0:n ja -10 asteen välillä. Lapissa lämpötila on -15:n ja -30 asteen välillä.
 
-![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700408413/39-1203034655a2c36dc32d)
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700408413/39-1203034655a2c36dc32d)

@@ -5,7 +5,7 @@ Itäraja. Frontex. Siirtolaiskeskukset. Syrjintä. Sääennuste.
 
 ### Rajanylityspaikkojen tilanne
 
-![Raja-Jooseppi on pohjoisin rajanylityspaikka itärajalla. Muut rajanylityspaikat ovat kiinni. Kuva: Miku Huttunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3216,w_5712,x_0,y_421/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700751077/39-1205645655f665a86285)
+![Raja-Jooseppi on pohjoisin rajanylityspaikka itärajalla. Muut rajanylityspaikat ovat kiinni. Kuva: Miku Huttunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3216,w_5712,x_0,y_421/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700751077/39-1205645655f665a86285)
 
 Suomi sulkee lisää rajanylityspaikkoja itärajalla. Syy on siirtolaiset, joita Venäjä lähettää Suomen rajalle.
 
@@ -15,7 +15,7 @@ Suomi toivoo, että siirtolaisten tulo loppuu, kun auki on vain yksi raja-asema,
 
 ### Frontexin apu Suomen rajavartiostolle
 
-![Frontex lähettää Suomeen rajavartijoita ja kalustoa. Kuva: Pauliina Tolvanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1663055873/39-100697563203716d9ecd)
+![Frontex lähettää Suomeen rajavartijoita ja kalustoa. Kuva: Pauliina Tolvanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1663055873/39-100697563203716d9ecd)
 
 Suomi saa itärajan valvontaan apua Euroopan rajavartiovirastolta Frontexilta. Frontex lähettää Suomeen 50 ihmistä auttamaan itärajan valvonnassa. He tulevat Suomeen ensi viikolla.
 
@@ -25,7 +25,7 @@ Itärajalta on tullut Suomeen marraskuun aikana yli 700 turvapaikanhakijaa.
 
 ### Järjestelykeskuksien perustaminen
 
-![Sisäministeri Mari Rantanen kertoi torstaina, että Suomi valmistelee järjestelykeskuksien perustamista. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700721586/39-1205201655eed1e81849)
+![Sisäministeri Mari Rantanen kertoi torstaina, että Suomi valmistelee järjestelykeskuksien perustamista. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700721586/39-1205201655eed1e81849)
 
 Suomi perustaa järjestelykeskuksia siirtolaisille, jotka tulevat Suomeen itärajalta. Näin sanoo sisäministeri **Mari Rantanen**.
 
@@ -35,7 +35,7 @@ Sisäministeri Rantanen sanoo, että siirtolaiskeskuksia tarvitaan, koska Suomi 
 
 ### Syrinnän kokeminen
 
-![Syrjintä voi johtua esimerkiksi sukupuolesta, iästä tai ulkonäöstä. Kuva: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_110/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700718446/39-1205193655ee719688c7)
+![Syrjintä voi johtua esimerkiksi sukupuolesta, iästä tai ulkonäöstä. Kuva: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_110/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700718446/39-1205193655ee719688c7)
 
 Monet nuoret naiset kokevat syrjintää työelämässä. Terveyden ja hyvinvoinnin laitos on kysynyt suomalaisilta syrjinnästä.
 
@@ -45,6 +45,6 @@ Monet suomalaiset kokevat myös yksinäisyyttä. Yksinäisyyttä kokee noin 10 p
 
 ### Sää
 
-![Pohjoisessa voi paistaa perjantaina aurinko.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700752778/39-1205671655f6d69ed984)
+![Pohjoisessa voi paistaa perjantaina aurinko.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700752778/39-1205671655f6d69ed984)
 
 Etelässä ja lännessä ja Pohjanmaalla sataa yöllä reilusti lunta. Perjantaina lunta sataa maan etelä- ja keskiosissa. Pohjoisessa voi paistaa välillä aurinko. Lämpötila on maan etelässä ja lännessä -5 ja 0 asteen välillä, idässä ja pohjoisessa -5 ja -15 asteen välillä.

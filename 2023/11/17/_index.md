@@ -5,7 +5,7 @@ Itäraja. Koronatartunnat. Sotilasapu Ukrainalle. Koulukuljetukset. Sää.
 
 ### Itäraja
 
-![Suomi sulkee rajanylityspaikkoja. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908616/39-1200025655285565477b)
+![Suomi sulkee rajanylityspaikkoja. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699908616/39-1200025655285565477b)
 
 Suomen itärajalla on ollut perjantaina paljon liikennettä. Rajalle tuli edelleen myös turvapaikanhakijoita.
 
@@ -21,7 +21,7 @@ Venäjä on päästänyt heidät Suomen rajalle, koska se haluaa ehkä häiritä
 
 ### Koronatartunnat
 
-![Riskiryhmille on taas annettu koronan tehosterokotus. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+![Riskiryhmille on taas annettu koronan tehosterokotus. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
 
 Koronatartuntojen määrä laskee Etelä-Suomessa. Näin kertoo Terveyden ja hyvinvoinnin laitos.
 
@@ -33,7 +33,7 @@ Syksyn koronarokotukset ovat käynnissä. Terveyden ja hyvinvoinnin laitos sanoo
 
 ### Sotilasapu Ukrainalle
 
-![Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Jakub Porzycki / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb)
+![Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Jakub Porzycki / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb)
 
 Suomi lähettää lisää sotilasapua Ukrainaan. Avun arvo on 100 miljoonaa euroa.
 
@@ -43,7 +43,7 @@ Ukrainan presidentti Volodymyr Zelenskyi on kiittänyt avusta sosiaalisessa medi
 
 ### Koulukuljetukset
 
-![ Kuva: Sakari Partanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1494,w_2655,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1677057284/39-107608063f5dc988d5c3)
+![ Kuva: Sakari Partanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1494,w_2655,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1677057284/39-107608063f5dc988d5c3)
 
 Koulukuljetusten matka-ajat ovat pidentyneet. Usein koululaisen matka-aika on 1 tai 2 tuntia päivässä.
 
@@ -53,7 +53,7 @@ Lisäksi koulukuljetukset kiertävät usein monen kodin kautta, ennen kuin ne ov
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700238427/39-120255565579437e32dc)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700238427/39-120255565579437e32dc)
 
 Lauantaina etelässä ja idässä voi sataa vähän lunta. Muualla on poutaista eli ei sada.
 

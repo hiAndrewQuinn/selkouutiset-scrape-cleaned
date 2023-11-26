@@ -4,7 +4,7 @@ Presidential race. Eastern border. Corona vaccine. Fur farms. Weather.
 
 ### Presidential survey
 
-![Alexander Stubb and Pekka Haavisto. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1698912813/39-11947566543595173663)
+![Alexander Stubb and Pekka Haavisto. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698912813/39-11947566543595173663)
 
 The Coalition's Alexander Stubb is now the most popular candidate for the new president of Finland. Yle's poll shows that 28 percent of people now support Stubb.
 
@@ -18,7 +18,7 @@ The 1st round of the presidential election is on January 28.
 
 ### Niinistö about asylum seekers
 
-![The picture shows the sign at the Vaalimaa border station. Photo: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699908638/39-120003165528559efc2b)
+![The picture shows the sign at the Vaalimaa border station. Photo: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699908638/39-120003165528559efc2b)
 
 The President of the Republic, Sauli Niinistö, estimates that the defense agreement planned by Finland and the USA may be the reason why asylum seekers arrive at Finland's border via Russia. Maybe Russia got angry about the agreement.
 
@@ -28,7 +28,7 @@ During the day, more than 60 asylum seekers have come to the border stations in 
 
 ### Corona vaccine
 
-![Rokotuspiste sign at the entrance to Kouvola Hallituskatu Walk in vaccination point. Photo: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+![Rokotuspiste sign at the entrance to Kouvola Hallituskatu Walk in vaccination point. Photo: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
 
 The official says that Some has enough corona vaccine. Booster doses of the corona vaccine are enough for all those people for whom the vaccine is now recommended.
 
@@ -36,7 +36,7 @@ Booster vaccines are recommended during the fall and winter for those people who
 
 ### Fur farms
 
-![There are about 550 fur farms in Finland. Photo: Janne Järvinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0)
+![There are about 550 fur farms in Finland. Photo: Janne Järvinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0)
 
 Fur breeders have applied to the Finnish government for compensation for animals that had to be killed because of bird flu. The fur breeders have applied for a total of 6 million euros in compensation.
 
@@ -46,7 +46,7 @@ There are a total of approximately 550 fur farms in Finland.
 
 ### Weather
 
-![ Photo: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc)
+![ Photo: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc)
 
 The weather is dusty.
 

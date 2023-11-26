@@ -4,7 +4,7 @@ Maahanmuuttajien syrjintäkokemukset. Venäläisen kaapelin rikkoutuminen. Koiri
 
 ### Maahanmuuttajien syrjintä
 
-![Monet maahanmuuttajat kokevat syrjintää. Kuva: Mikko Ahmajärvi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2485,w_4419,x_0,y_114/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698074800/39-115894164df61298ec3e)
+![Monet maahanmuuttajat kokevat syrjintää. Kuva: Mikko Ahmajärvi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2485,w_4419,x_0,y_114/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698074800/39-115894164df61298ec3e)
 
 Maahanmuuttajat kokevat Suomessa syrjintää. Näin kertoo Terveyden ja hyvinvoinnin laitoksen tutkimus.
 
@@ -14,7 +14,7 @@ Terveyden ja hyvinvoinnin laitoksen tutkimuksessa oli mukana melkein 8000 maahan
 
 ### Venäläinen tietoliikennekaapeli
 
-![Venäläinen laiva kaapelin korjaustöissä. Kuva: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3283,w_5838,x_0,y_380/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699268142/39-11962776548c5acae94c)
+![Venäläinen laiva kaapelin korjaustöissä. Kuva: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3283,w_5838,x_0,y_380/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699268142/39-11962776548c5acae94c)
 
 Venäläinen tietoliikennekaapeli on mennyt rikki Suomenlahden merialueella. Venäläinen laiva on tullut korjaamaan vikaa.
 
@@ -22,7 +22,7 @@ Kaapeli kulkee myös Suomen talousvyöhykkeellä. Venäjä ilmoitti kaapelin rik
 
 ### Koirien sairaustapaukset
 
-![Mustilla ja Mirrillä on kauppoja eri puolilla Suomea. Kuva: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2746,w_4883,x_0,y_452/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699194714/39-11960056547a6fe024cd)
+![Mustilla ja Mirrillä on kauppoja eri puolilla Suomea. Kuva: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2746,w_4883,x_0,y_452/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699194714/39-11960056547a6fe024cd)
 
 Monet koirat ovat sairastuneet koiranruuasta. Koirat sairastuivat ehkä siksi, että ne söivät Musti ja Mirri -firman koiranruokaa.
 
@@ -32,7 +32,7 @@ Viranomaiset tutkivat asiaa.
 
 ### Vauvojen määrä
 
-![Vauvoja syntyy ennätysvähän. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_233/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697805617/39-1189261653274b0907f5)
+![Vauvoja syntyy ennätysvähän. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_233/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1697805617/39-1189261653274b0907f5)
 
 Suomessa syntyy lapsia vähemmän kuin ennen. Näin kertoo Terveyden ja hyvinvoinnin laitos.
 
@@ -42,7 +42,7 @@ Myös tänä vuonna syksyyn mennessä lapsia syntyi vähemmän kuin vuotta aikai
 
 ### Ruotsalaisuuden päivä
 
-![Kaksikielisyys näkyy esimerkiksi Helsingin katukylteissä. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1615970514/39-7850546051bda715b05)
+![Kaksikielisyys näkyy esimerkiksi Helsingin katukylteissä. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1615970514/39-7850546051bda715b05)
 
 Maanantaina on vietetty ruotsalaisuuden päivää. Ruotsalaisuuden päivänä juhlitaan ruotsin kieltä Suomessa.
 
@@ -54,7 +54,7 @@ Kaikki voivat harjoitella ruotsin kieltä esimerkiksi Ylen ruotsinkielisten selk
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699290254/39-119671665491c7602c1a)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699290254/39-119671665491c7602c1a)
 
 Tiistaina sää on pilvistä. Sumua on osassa maata.
 

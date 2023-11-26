@@ -5,7 +5,7 @@ Vastaamon oikeudenkäynti. Itärajan aita. Metsä Board. Ratsastusonnettomuus. M
 
 ### Vastaamon oikeudenkäynti
 
-![Syytetty Aleksanteri Kivimäki. Kuva: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2875,w_5112,x_0,y_568/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698305049/39-1191484653a13e7df175)
+![Syytetty Aleksanteri Kivimäki. Kuva: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2875,w_5112,x_0,y_568/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698305049/39-1191484653a13e7df175)
 
 Vastaamon tietomurron oikeudenkäynti on alkanut. Vastaamo oli firma, joka antoi ihmisille psykoterapiaa.
 
@@ -17,7 +17,7 @@ Aleksanteri Kivimäki sanoo, että hän ei ole tehnyt rikoksia, joista häntä s
 
 ### Itärajan aita
 
-![Uusi raja-aita Pelkolan raja-aseman läheisyydessä Imatralla. Kuva: Kare Lehtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2243,w_3993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698323397/39-1191724653a55b2a04b0)
+![Uusi raja-aita Pelkolan raja-aseman läheisyydessä Imatralla. Kuva: Kare Lehtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2243,w_3993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698323397/39-1191724653a55b2a04b0)
 
 Suomen itärajalle rakennetaan aita. Aidan rakentaminen alkaa huhtikuussa.
 
@@ -29,7 +29,7 @@ Aidan tarkoitus on, että Suomen ja Venäjän rajaa ei voi ylittää helposti il
 
 ### Metsä Board
 
-![Metsä Boardin Äänekosken kartonkitehtaan pääportilla sijaitseva tiilirakennus 26.10.2023. Kuva: Jussi Lindroos / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698319726/39-1191672653a4ca1724ad)
+![Metsä Boardin Äänekosken kartonkitehtaan pääportilla sijaitseva tiilirakennus 26.10.2023. Kuva: Jussi Lindroos / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698319726/39-1191672653a4ca1724ad)
 
 Metsäfirma Metsä Board lomauttaa ehkä työntekijöitä.
 
@@ -39,7 +39,7 @@ Metsä Board sanoo, että kartonkia ostetaan nyt liian vähän. Siksi firman tä
 
 ### Ratsastusonnettomuus
 
-![Onnettomuus sattui hevostallilla. Kuvituskuva. Kuva: Linus Westerlund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692692625/39-116023264e46d0e45030)
+![Onnettomuus sattui hevostallilla. Kuvituskuva. Kuva: Linus Westerlund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1692692625/39-116023264e46d0e45030)
 
 Espoossa nuori nainen kuoli onnettomuudessa hevostallilla. Alle 20-vuotias nainen kuoli, kun hän putosi hevosen selästä tiistaina. Ratsastajalla oli päässä kypärä.
 
@@ -47,7 +47,7 @@ Onnettomuuden syytä selvitetään.
 
 ### Talvinopeudet
 
-![Maanteiden talvinopeusrajoitukset tulevat voimaan. Kuva: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
+![Maanteiden talvinopeusrajoitukset tulevat voimaan. Kuva: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
 
 Monella maantiellä nopeusrajoitus muuttuu tänään torstaina. Talvella melkein kaikilla Suomen maanteillä nopeusrajoitus on 80 kilometriä tunnissa.
 
@@ -55,7 +55,7 @@ Moottoriteillä nopeusrajoitus on talvella 100 kilometriä tunnissa.
 
 ### Sää
 
-![ Kuva: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698292510/39-11913736539e2ff81a55)
+![ Kuva: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698292510/39-11913736539e2ff81a55)
 
 Lapissa sataa perjantaina vähän lunta. Myös etelärannikolla tulee räntä- tai lumikuuroja. Muualla Suomessa on poutaa.
 

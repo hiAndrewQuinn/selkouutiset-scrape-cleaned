@@ -40,4 +40,4 @@ end
 # set timestamp (date -u)
 # git commit -m "Latest data: $timestamp" || exit 0
 # git push
-# 
+#

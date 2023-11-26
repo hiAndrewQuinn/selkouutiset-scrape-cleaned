@@ -27,11 +27,11 @@ def fix_image_links(content: str):
     print("Analyzing line:")
     print(content)
     print("---")
-    md_img_pattern = re.compile(r"!\[.*?\]\((.*?)\)")
+    md_img_pattern = re.compile(r"!\[(.*?)\]\((.*?)\)")
 
     def remove_spaces_in_url(match):
         # Remove spaces in the URL part of the Markdown image syntax
-        return f"![]({match.group(1).replace(' ', '')})"
+        return f"![{match.group(1)}]({match.group(2).replace(' ', '')})"
 
     return (
         md_img_pattern.sub(remove_spaces_in_url, content)

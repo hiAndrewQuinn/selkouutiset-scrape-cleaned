@@ -7,7 +7,8 @@ Here I'm going to outline how to do all of these steps **by hand**. If you want 
 ## Quickstart
 
 ```fish
-cd /tmp # Just to try it out!
+# Safe to run over and over! Try it out!
+cd /tmp && rm selkouutiset-srape-cleaned/ 
 
 git clone https://github.com/hiAndrewQuinn/selkouutiset-scrape-cleaned.git
 cd selkouutiset-scrape-cleaned

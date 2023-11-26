@@ -4,7 +4,7 @@ Eastern border of Finland. Police surveillance. Pools. Finnish teacher of the ye
 
 ### Eastern border of Finland
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_171/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699859472/39-11996406551cb5a3d93a)
+![Finnish authorities are monitoring the situation on Finland's eastern border. Photo: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_171/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699859472/39-11996406551cb5a3d93a)
 
 More people have come to the border between Finland and Russia, whose papers are not in order. For example, they do not have a visa to Finland.
 
@@ -18,7 +18,7 @@ Experts estimate that the reason is that Finland has become a member of the defe
 
 ### Police surveillance
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5148,x_0,y_107/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697807957/39-11771286512a4e83c1e1)
+![The police are stepping up surveillance in Helsinki. Photo: Matias Väänänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5148,x_0,y_107/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697807957/39-11771286512a4e83c1e1)
 
 The police increase surveillance in Helsinki.
 
@@ -30,7 +30,7 @@ The police increase surveillance, especially in the evening and on weekends. The
 
 ### Veikkaus jobs
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1928,w_3427,x_567,y_428/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1633956464/39-86542961643200866ed)
+![Jobs run out when Veikkaus closes, for example, arcades. Photo: Anne Savin / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1928,w_3427,x_567,y_428/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1633956464/39-86542961643200866ed)
 
 Gambling company Veikkaus is reducing employees. About 200 employees will lose their jobs.
 
@@ -42,17 +42,17 @@ In addition, Veikkaus will close the Tampere casino. The casino was opened in Ta
 
 ### Finnish teacher of the year
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_2982,w_5300,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438785/39-1197531654b5ee49bf1f)
+![Finnish teacher of the year Satu Lahtonen (center) and students Mohamed Batraan Abdullahi and Osama Al-Sharif. Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2982,w_5300,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438785/39-1197531654b5ee49bf1f)
 
 Selkouutiset has met Finnish Teacher of the Year Satu Lahtonen and Lahtonen's students.
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3153,w_5603,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438827/39-1197537654b5ee95baf1)
+![ Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3153,w_5603,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438827/39-1197537654b5ee95baf1)
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197536654b5ee899b41)
+![ Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197536654b5ee899b41)
 
 Satu Lahtonen currently teaches Finnish language, reading and writing at Konepaja adult high school in Helsinki.
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
+![Happy starts with the letter i. Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
 
 You can get to know Lahtonen's group on the TV broadcast of Selkouutisten, which can be found at [yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link}. There are also photos of Lahtonen's group at the same address.
 

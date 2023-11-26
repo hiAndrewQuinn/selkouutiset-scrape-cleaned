@@ -4,7 +4,7 @@ The situation on the eastern border. Israel-Hamas ceasefire. Evicting. Weather.
 
 ### The situation of the eastern border
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3368,w_5986,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700827102/39-120618465608fd4818b7)
+![People came to the Raja-Joosep border station in Inari during the day. Photo: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3368,w_5986,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700827102/39-120618465608fd4818b7)
 
 On the border between Finland and Russia, Friday was calm.
 
@@ -18,7 +18,7 @@ The reason is that Russia has directed more and more migrants to Finland.
 
 ### Israel-Hamas ceasefire
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_533/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700822253/39-120580865603d3467a7a)
+![Aid will be sent to Gaza during the ceasefire. Photo: Thomas Samson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_533/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700822253/39-120580865603d3467a7a)
 
 In the Middle East, a cease-fire between Israel and the terrorist organization Hamas has begun in Gaza. It will take at least four days. During the ceasefire, Israel and Hamas do not fight.
 
@@ -30,7 +30,7 @@ The Gaza war began in early October when Hamas attacked Israel. Israel has since
 
 ### Evicting
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3182,w_5657,x_121,y_740/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698135288/39-115380264d2449083906)
+![Evicting a tenant is complicated. Photo: Oleg Elkov / Alamy/All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_3182,w_5657,x_121,y_740/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698135288/39-115380264d2449083906)
 
 Most Finns think that evicting a tenant from an apartment is too difficult. This is what a new survey says.
 
@@ -42,7 +42,7 @@ More than 80 percent of Finns think that eviction is too complicated today.
 
 ### The Sami people
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_659,w_1173,x_0,y_133/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693572536/39-10986686437da2797694)
+![A man waved the Sámi flag at the parliament building last April. Photo: Linda Tammela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_659,w_1173,x_0,y_133/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693572536/39-10986686437da2797694)
 
 In Finland, discrimination against the Sámi is being studied today and in the past. The truth commission is investigating the matter.
 
@@ -54,7 +54,7 @@ The treatment of the Sámi caused a lot of grief. The Sámi are the indigenous p
 
 ### Weather
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700835658/39-12063856560b12785459)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700835658/39-12063856560b12785459)
 
 During the day on Saturday, it will snow a little on the west coast and in the north.
 

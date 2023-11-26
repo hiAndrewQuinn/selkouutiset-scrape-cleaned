@@ -4,11 +4,11 @@ Corona situation. Use of alcohol. Tourism in Lapland. The bears of Korkeasaari. 
 
 ### Corona situation
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2)
+![Corona infections are increasing. Photo: Ismo Pekkarinen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2)
 
 The number of corona cases is increasing. The coronavirus is now increasing throughout Finland.
 
-There are about 10 corona patients in intensive care. In addition, the hospitals have approximately 450 inpatients with corona infection.
+There are about 10 corona patients in intensive care. In addition, the hospitals have approximately 450 bed patients with corona infection.
 
 The corona situation will probably get worse as the winter progresses. The aim is to secure the operation of hospitals with the help of corona vaccinations.
 
@@ -16,7 +16,7 @@ Corona vaccinations start in November in different parts of Finland. Corona vacc
 
 ### Use of alcohol
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1682602904/39-1105424644a7b35b4046)
+![Finns' alcohol consumption has decreased. Photo: Ilkka Loikkanen](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1682602904/39-1105424644a7b35b4046)
 
 Finns drink less alcohol than before. This is what the Institute of Health and Welfare says.
 
@@ -26,7 +26,7 @@ The numbers are lower than in 2016, when the previous survey was conducted.
 
 ### Tourism in Lapland
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_473/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1673250132/39-105687963bbc441bd57b)
+![Tourists are looking for a snowy winter in Lapland. Photo: Vesa-Pekka Hiltunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_473/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1673250132/39-105687963bbc441bd57b)
 
 The winter season of tourism in Lapland begins. Winter flights from abroad to Lapland's airports started at the weekend.
 
@@ -38,7 +38,7 @@ Tourists are especially interested in the snowy winter. October has now been sno
 
 ### The bears of Korkeasaari
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3239,w_5759,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698664391/39-1193141653f687431ff4)
+![Korkeasaari bears' winter sleep began. Photo: Korkeasaari Zoo / Mari Lehmonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3239,w_5759,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698664391/39-1193141653f687431ff4)
 
 The bears of Korkeasaari Zoo have gone into hibernation. The bears slept soundly this fall already at the end of October.
 

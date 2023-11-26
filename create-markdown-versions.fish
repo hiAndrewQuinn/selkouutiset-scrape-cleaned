@@ -1,38 +1,24 @@
 #!/usr/bin/fish
 
-set this_directory /home/andrew/Code/selkouutiset-scrape-cleaned
-pushd $this_directory
-
-git pull
-
-# Pull the latest HEAD from selkouutiset-scrape.
-git submodule update --remote selkouutiset-scrape/
-cd selkouutiset-scrape/
-git pull origin HEAD
-cd $this_directory
-
 set source_dir "./selkouutiset-scrape/"
 set hash "./.hash"
 
 touch $hash
 
 for source_file in (find $source_dir -type f -name "*.html")
-    if grep -q (sha1sum $source_file) $hash
+    if grep -q (sha1sum $source_file | awk '{print $2, $1}') $hash
         echo "no changes in" $source_file ", skipping."
         continue # skip to the next iteration of the loop if the hash is found
     end
 
     echo "now doing $source_file."
     # append the hash to the hash file
-    echo (sha1sum $source_file) >>$hash
+    echo (sha1sum $source_file | awk '{print $2, $1}') >>$hash
 
     set dest_dir (echo $source_file | sed "s|$source_dir||" | sed 's|/[^/]*$||')
     mkdir -p $dest_dir
 
-    set dest_file "$dest_dir/_index.md"
-    set dest_file_fi "$dest_dir/_index.fi.md"
-
-    cat $source_file
+    set dest_file "$dest_dir/_index.fi.md"
 
     cat $source_file |
         pandoc -f html -t commonmark --wrap=none |
@@ -48,13 +34,10 @@ for source_file in (find $source_dir -type f -name "*.html")
         sed '/lukea uutiset samanaikaisesti alta/d' |
         pandoc -f html -t markdown --wrap=none |
         sed 's/{\.aw-zhx2sq \.hyCAoR}//g' >$dest_file
-
-    cp $dest_file $dest_file_fi
 end
 
-git add -A
-set timestamp (date -u)
-git commit -m "Latest data: $timestamp" || exit 0
-git push
-
-popd
+# git add -A
+# set timestamp (date -u)
+# git commit -m "Latest data: $timestamp" || exit 0
+# git push
+# 

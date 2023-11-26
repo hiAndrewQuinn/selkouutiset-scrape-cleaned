@@ -1,10 +1,11 @@
-## Radio \| Selkouutiset \| tiistai 7.11.2023
+Radio \| Selkouutiset \| tiistai 7.11.2023
+------------------------------------------
 
 Koronarokotukset. Lakot. Työkykyiset eläkeläiset. Sää.
 
 ### Koronarokotukset
 
-![Riskiryhmille annetaan nyt koronan tehosterokotuksia. Kuva: Petri Niemi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2266,w_4027,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1675253861/39-99789363046bc0166b4)
+![Riskiryhmille annetaan nyt koronan tehosterokotuksia. Kuva: Petri Niemi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2266,w_4027,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1675253861/39-99789363046bc0166b4)
 
 Koronarokotukset ovat alkaneet tänä syksynä liian myöhään. Näin sanoo myös Terveyden ja hyvinvoinnin laitos eli THL, joka koordinoi koronarokotusten järjestämistä.
 
@@ -18,7 +19,7 @@ Erityisesti yli 80-vuotiaiden on tärkeää ottaa koronan tehosterokotus, THL mu
 
 ### Lakot
 
-![Lakkolaisia Oulussa, Pohjois-Suomessa. Kuva: Ville Honkonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699368229/39-11968696549f7933eb81)
+![Lakkolaisia Oulussa, Pohjois-Suomessa. Kuva: Ville Honkonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699368229/39-11968696549f7933eb81)
 
 Lakot ovat pysäyttäneet työt monilla Suomen työpaikoilla.
 
@@ -36,7 +37,7 @@ Lisäksi hallitus suunnittelee, että työntekijän irtisanomisesta tulee helpom
 
 ### Työkykyiset eläkeläiset
 
-![Monet säilyvät hyvässä kunnossa pitkään. Kuva: Esa Syväkuru / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_47/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1568642672/39-5915475d7f9625891ee)
+![Monet säilyvät hyvässä kunnossa pitkään. Kuva: Esa Syväkuru / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_47/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1568642672/39-5915475d7f9625891ee)
 
 Suomessa on paljon eläkeikäisiä, jotka ovat vielä työkykyisiä. Tieto on Terveyden ja hyvinvoinnin laitoksen tutkimuksesta.
 
@@ -46,7 +47,7 @@ Eläkeikäisillä voi olla hyvin erilainen kunto. Toiset pystyvät juoksemaan, m
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699373925/39-1197270654a63406a4f5)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699373925/39-1197270654a63406a4f5)
 
 Keskiviikkona sää on pilvistä ja sumuista.
 

@@ -1,10 +1,11 @@
-## Radio \| Selkouutiset \| tiistai 31.10.2023
+Radio \| Selkouutiset \| tiistai 31.10.2023
+-------------------------------------------
 
 Perheiden köyhyys. Suomalaisten ennakkoluulot. Linnan juhlat. Pirkanmaan lumisateet. Sää.
 
 ### Perheiden köyhyys
 
-![Köyhyys näkyy ruokapöydässä. Kuva: Matti Myller / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1674642954/39-106372263d105c885d6a)
+![Köyhyys näkyy ruokapöydässä. Kuva: Matti Myller / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674642954/39-106372263d105c885d6a)
 
 Suomessa on aikaisempaa enemmän perheitä, joilla ei ole tarpeeksi ruokaa.
 
@@ -18,7 +19,7 @@ Yli 100 000 suomalaista lasta asuu perheissä, joilla on pienet tulot.
 
 ### Suomalaisten ennakkoluulot
 
-![Monet suomalaiset luottavat lääkäriin, jolla on suomalainen nimi. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3179,w_5653,x_0,y_83/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1697116975/39-11855466527f10854aec)
+![Monet suomalaiset luottavat lääkäriin, jolla on suomalainen nimi. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3179,w_5653,x_0,y_83/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697116975/39-11855466527f10854aec)
 
 Moni suomalainen asioi mieluiten toisen suomalaisen kanssa. Näin kertoo Ylen uusi kysely.
 
@@ -34,7 +35,7 @@ Asiantuntijoiden mielestä suomalaisten ennakkoluulot haittaavat maahanmuuttajie
 
 ### Linnan juhlat
 
-![Presidenttipari Linnan juhlissa viime vuonna. Kuva: Benjamin Suomela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_24/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1670345033/39-1044359638f710a6e724)
+![Presidenttipari Linnan juhlissa viime vuonna. Kuva: Benjamin Suomela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_24/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1670345033/39-1044359638f710a6e724)
 
 Linnan juhlat järjestetään taas Suomen itsenäisyyspäivänä eli joulukuun 6. päivä.
 
@@ -46,7 +47,7 @@ Suurin osa suomalaisista seuraa Linnan juhlia televisiosta. Viime vuonna melkein
 
 ### Pirkanmaan lumisateet
 
-![Tampereella on satanut paljon lunta. Kuva: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_331/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698736404/39-11934306540799d9879d)
+![Tampereella on satanut paljon lunta. Kuva: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_331/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698736404/39-11934306540799d9879d)
 
 Tampereen seudulla Pirkanmaalla on satanut paljon lunta. Ajokeli on lumisateen takia tosi huono.
 
@@ -56,7 +57,7 @@ Varoitus on voimassa myös keskiviikkona. Silloin lumipeite voi olla Pirkanmaall
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1698767793/39-11940016541239893d2b)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698767793/39-11940016541239893d2b)
 
 Keskiviikkona maan keskiosassa sataa lunta, mutta pohjoisessa on pääosin poutaista.
 

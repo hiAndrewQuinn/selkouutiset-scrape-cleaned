@@ -1,10 +1,11 @@
-## Radio \| Selkouutiset \| perjantai 3.11.2023
+Radio \| Selkouutiset \| perjantai 3.11.2023
+--------------------------------------------
 
 Maahanmuuttajien syrjintä. USA puolustaa Israelia. Sähköpotkulaudat. Presidentti Ahtisaaren hautajaiset. Sää.
 
 ### Maahanmuuttajien syrjintä
 
-![Monet maahanmuuttajat ovat kokeneet Suomessa syrjintää. Kuva: Dan Gustafsson / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1693477380/39-116537864f0696340afe)
+![Monet maahanmuuttajat ovat kokeneet Suomessa syrjintää. Kuva: Dan Gustafsson / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693477380/39-116537864f0696340afe)
 
 Monet maahanmuuttajat kokevat syrjintää Suomessa, kertoo uusi tutkimus.
 
@@ -20,7 +21,7 @@ Kyselyyn vastasi yli 7 800 ihmistä, jotka ovat syntyneet Suomen ulkopuolella.
 
 ### USA puolustaa Israelia
 
-![USA:n ulkoministeri Antony Blinken ja Israelin pääministeri Benjamin Netanjahu tapasivat. Kuva: Chaim Chaim / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_1178,w_2095,x_0,y_45/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1697558051/39-1187709652eacaa1698e)
+![USA:n ulkoministeri Antony Blinken ja Israelin pääministeri Benjamin Netanjahu tapasivat. Kuva: Chaim Chaim / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_1178,w_2095,x_0,y_45/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697558051/39-1187709652eacaa1698e)
 
 USA puolustaa Israelin toimintaa Gazassa.
 
@@ -40,7 +41,7 @@ Suomen ulkoministeriö sanoo, että Gazassa on alle 10 suomalaista. Jotkut heist
 
 ### Sähköpotkulaudat
 
-![Liikaa sähköpotkulautoja? Kuva: Tommi Pylkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_378/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1629190662/39-842535611aab23cf6db)
+![Liikaa sähköpotkulautoja? Kuva: Tommi Pylkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_378/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1629190662/39-842535611aab23cf6db)
 
 Suurin osa suomalaisista sanoo, että sähköpotkulautoja on liian paljon. Asia selviää uudesta kyselystä.
 
@@ -52,7 +53,7 @@ Monet olivat myös joutuneet kadulla vaaratilanteeseen sähköpotkulaudan takia.
 
 ### Presidentti Ahtisaaren hautajaiset
 
-![Presidentti Martti Ahtisaari. Kuva: Roger Askew / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3238,w_5757,x_259,y_350/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1697440152/39-1186733652ce1167d3e9)
+![Presidentti Martti Ahtisaari. Kuva: Roger Askew / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3238,w_5757,x_259,y_350/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697440152/39-1186733652ce1167d3e9)
 
 Presidentti Martti Ahtisaaren hautajaiset järjestetään Helsingissä perjantaina 10. päivä marraskuuta.
 
@@ -66,6 +67,6 @@ Ahtisaari kuoli 16. päivä lokakuuta.
 
 ### Sää
 
-![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto: eco /f_auto/fl_lossy/v1699023031/39-11957186545088dc4556)
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699023031/39-11957186545088dc4556)
 
 Sää lämpenee viikonloppuna. Lauantaina etelässä sataa. Pohjoisessa ei sada.

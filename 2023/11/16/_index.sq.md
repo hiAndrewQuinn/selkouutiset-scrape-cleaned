@@ -1,0 +1,45 @@
+## Radio Selkouutiset e enjte 16 nëntor 2023
+
+Stacionet kufitare të mbyllura. papunësia. Gjyqi Dödspatrullen. Moti.
+
+### Stacionet kufitare të mbyllura
+
+![Stacionet kufitare Imatra, Niirala, Nuijamaa dhe Vaalimaa do të mbyllen. Foto: Laura Merikalla / Yle dhe Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.7777777777777777,cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.7777777777777777,cdn.yle./dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
+
+Finlanda mbyll shumë pika kufitare në kufirin lindor.
+
+Qeveria vendosi që stacionet kufitare të Imatra, Niirala, Nuijamaa dhe Vaalimaa do të mbyllen natën ndërmjet të premtes dhe të shtunës. Pas kësaj, nëpër këto stacione kufitare nuk kalon trafik. Stacionet kufitare janë mbyllur të paktën deri në mes të shkurtit.
+
+Në kufirin lindor, nga e shtuna do të jenë të hapura vetëm pikat kufitare Vartius, Salla, Kuusamo dhe Raja-Joosepi.
+
+Kryeministri Peteri Orpo thotë se Finlanda dëshiron të sigurojë sigurinë kufitare. Prandaj janë mbyllur stacionet kufitare.
+
+Gjatë vjeshtës, më shumë azilkërkues se zakonisht kanë mbërritur në pikat e kalimit kufitar në Finlandën Juglindore. Azilkërkuesit erdhën nga shumë vende në kufirin finlandez nëpërmjet Rusisë. Ata nuk kishin me vete dokumentet, të cilat u nevojiteshin kur vinin në Finlandë nga Rusia.
+
+### Papunësia
+
+![Papunësia po rritet. Foto ilustrimi. Foto: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_120,h_120,h_120,h_100,000,000,000,000,000,000,0000,h_120,h_120,h_pr.q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+
+Numri i të papunëve do të rritet në Finlandë këtë vit. Kështu vlerëson Ministria e Punës.
+
+Ministria thotë se së shpejti do të ketë të njëjtin numër të të pushuarve si në vitin 2009. Në fillim të vitit të ardhshëm do të ketë rreth 40 mijë punëtorë të pushuar nga puna. Pushimet do të thotë se një person do të jetë i papunë për një periudhë. nga, për shembull, 3 muaj ose 6 muaj.
+
+Ministria e Punës vlerëson se ekonomia finlandeze do të përmirësohet në vitin 2025. Edhe atëherë kishte më shumë punë se tani.
+
+### Gjyqi Dödspatrullen
+
+![Dödspatrulle gjykatat 16.11.2023. Foto: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.777777777777777,c_fill,g_5,w_1.q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+
+Një gjyq në lidhje me bandën suedeze Dödspatrullen filloi në Helsinki.
+
+Në Gjykatën e Rrethit akuzohen 27 persona. Prokurori kërkon burgim për pothuajse të gjithë të akuzuarit. 9 nga të akuzuarit janë shtetas finlandezë dhe 7 janë shtetas suedezë. Pjesa tjetër e të akuzuarve janë shtetas të vendeve të tjera.
+
+Gjykata merret me krimet e drogës. Policia thotë se një bandë rruge suedeze tentoi të pushtonte tregun finlandez të drogës. Dödspatrullen është një bandë e dhunshme suedeze rrugore që kryen shumë krime droge.
+
+### Moti
+
+![ Foto: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_5/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_5/wp_10.0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
+
+Nesër e premte dielli do të shkëlqejë në jug dhe veri. Ka re në qiell në mes të tokës. Moti është me pluhur, por mund të bjerë pak borë në bregun perëndimor.
+
+Temperatura në të gjithë vendin është në kahun e ngrirjes. Më i ftohti është në Lapland.

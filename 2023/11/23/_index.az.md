@@ -1,0 +1,49 @@
+## Radio \| Aydın xəbər \| 23 noyabr 2023-cü il, cümə axşamı
+
+Şərq sərhədi. Frontex. Miqrant mərkəzləri. ayrı-seçkilik. Proqnoz.
+
+### Sərhəd keçid məntəqələrində vəziyyət
+
+![Raja-Jooseppi şərq sərhədindəki ən şimal sərhəd keçididir. Digər sərhəd keçidləri bağlanıb. Foto: Miku Huttunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3216,w_5712,x_0,y_421/ar_1.7777777777777777,c_fill,g_faces,w_6/d/d_07q_auto:eco/f_auto/fl_lossy/v1700751077/39-1205645655f665a86285)
+
+Finlandiya şərq sərhədində daha çox sərhəd keçid məntəqələrini bağlayır. Səbəb Rusiyanın Finlandiya sərhədinə göndərdiyi miqrantlardır.
+
+Vartius, Kuusamo və Salla sərhəd stansiyaları bu gün, cümə axşamı bağlanacaq. Yalnız bir sərhəd keçidi, Raja-Jooseppi açıq qalır. Raja-Jooseppi ən şimal sərhəd stansiyasıdır. Artıq keçən həftə sonu Finlandiya Cənub-Şərqi Finlandiyanın sərhəd keçidlərini bağlayıb.
+
+Finlandiya ümid edir ki, uzaq şimalda olan yalnız bir açıq sərhəd stansiyası olduqda miqrantların gəlişi dayanacaq.
+
+### Frontex-in Finlandiya sərhədçisinə yardımı
+
+![Frontex Finlandiyaya sərhədçiləri və avadanlıqları göndərir. Foto: Pauliina Tolvanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_pr_170/dq_auto:eco/f_auto/fl_lossy/v1663055873/39-100697563203716d9ecd)
+
+Finlandiya şərq sərhədini izləmək üçün Avropa Sərhəd Mühafizəsi Agentliyi olan Frontex-dən kömək alır. Frontex şərq sərhədinə nəzarət etmək üçün Finlandiyaya 50 nəfər göndərir. Gələn həftə Finlandiyaya gələcəklər.
+
+Finlandiya şərq sərhədindəki vəziyyətə görə Frontex-dən kömək istəyib. Frontex həmçinin şərq sərhədini izləmək üçün Finlandiyaya texniki avadanlıq gətirir. Frontex, məsələn, Finlandiyaya patrul maşınları gətirir.
+
+Noyabr ayı ərzində şərq sərhədindən Finlandiyaya 700-dən çox sığınacaq axtaran şəxs gəlib.
+
+### Təşkilat mərkəzlərinin yaradılması
+
+![Daxili İşlər Naziri Mari Rantanen cümə axşamı bildirib ki, Finlandiya təşkilat mərkəzləri yaratmağa hazırlaşır. Şəkil: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200:d_auto/e/f_auto/fl_lossy/v1700721586/39-1205201655eed1e81849)
+
+Finlandiya şərq sərhədindən Finlandiyaya gələn miqrantlar üçün emal mərkəzləri yaradır. Daxili işlər naziri **Mari Rantanen** belə deyir.
+
+Prosessinq mərkəzlərində miqrantların kimliyi və Finlandiyaya gəlişinin səbəbi öyrənilir. Miqrantlar qeydiyyata alınana qədər təşkilat mərkəzlərində qalmalıdırlar. Məqsəd odur ki, hakimiyyət orqanları miqrantlara nəzarət edə bilsin.
+
+Daxili işlər naziri Rantanen deyir ki, miqrant mərkəzlərinə ehtiyac var, çünki Finlandiya yeni gələnlərin kim olduğunu bilmir. Daxili İşlər Nazirliyi mərkəzlərin təşkili ilə bağlı əsasnamə hazırlayır.
+
+### Səs-küy yaşayır
+
+![Ayrı-seçkilik, məsələn, cins, yaşa və ya görünüşə əsaslana bilər. Foto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_110/ar_1.777777777777777,c_fill,g_faces5,_601w,q_auto:eco/f_auto/fl_lossy/v1700718446/39-1205193655ee719688c7)
+
+Bir çox gənc qadın iş həyatında ayrı-seçkiliyə məruz qalır. Səhiyyə və Rifah Departamenti finlərə ayrı-seçkilik barədə sual verib.
+
+Gənc qadınların təxminən 20 faizi il ərzində işdə və ya iş axtararkən ayrı-seçkiliyə məruz qalıb. Araşdırmada gənc qadınlar dedikdə 20-39 yaş arası qadınlar nəzərdə tutulur. Bütün qadınların 16 faizi, kişilərin isə 11 faizi ayrı-seçkiliyə məruz qalıb.
+
+Bir çox Finlər də tənhalıq yaşayırlar. Finlərin təxminən 10 faizi tənhalıq yaşayır. Son illərdə tənhalıq artıb.
+
+### Hava
+
+![Cümə günü şimalda günəş parlaya bilər.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700752778/39-1205671655f6d69ed984)
+
+Cənubda və qərbdə və Ostrobotniyada gecə çoxlu qar yağır. Cümə günü ölkənin cənub və mərkəzi rayonlarında qar yağacaq. Günəş bəzən şimalda parlaya bilər. Ölkənin cənub və qərbində havanın temperaturu -5-0 dərəcə, şərq və şimalda -5-15 dərəcə arasındadır.

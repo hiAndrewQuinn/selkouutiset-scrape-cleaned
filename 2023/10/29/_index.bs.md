@@ -1,0 +1,49 @@
+## Radio \| Jasna vijest \| Nedjelja 29.10.2023
+
+Gaza. Očistite knjige. Matthew Perry. Kalle Rovanperä. Prognoza.
+
+### Situacija u Gazi
+
+![Situacija u Gazi je teška. UN upozorava da će u regionu početi haos. Fotografija: Abed Rahim Khatib / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3780,w_6720,x_0,y_700/ar_1.7777777777777777,c_fill,g6_faces,10_01_01/q_auto:eco/f_auto/fl_lossy/v1698587757/39-1192921653e641fc4a70)
+
+Izrael je pojačao svoje napade na Gazu. Izrael je izveo zračne napade na Gazu i poslao više kopnenih trupa u Gazu. Izraelski premijer **Benjamin Netanyahu** kaže da je počela druga faza rata protiv ekstremističke organizacije Hamas.
+
+Hamas kaže da je više od 8.000 ljudi poginulo u tri sedmice u izraelskim napadima na Gazu. Informacija se nije mogla potvrditi iz pouzdanih izvora.
+
+UN upozorava da će u Gazi početi haos. Na primjer, hiljade Palestinaca provalilo je u skladišta kako bi nabavili hranu.
+
+### Nonfiction
+
+![Autor Merete Mazzarella. Fotografija: Barbro Ahlstedt/Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3159,w_5616,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_1270,h_1270.q_auto:eco/f_auto/fl_lossy/v1620995152/39-806292609e6be113e02)
+
+Ovog vikenda u Helsinkiju je održan sajam knjiga. Sajam knjiga uključivao je i književnost na jednostavnom jeziku i autore na prostom jeziku. Na sajmu knjiga, recimo, proslavljeno je da je napravljena obična verzija knjige autorke **Merete Mazzarela** *Violetti hetki*.
+
+Na sajmu knjiga održana je i velika otvorena diskusija o knjigama na kojoj se govorilo o knjigama na otvorenom jeziku.
+
+U Finskoj ima otprilike 750.000 ljudi koji ne mogu čitati literaturu na zajedničkom jeziku. Oni mogu steći iskustvo čitanja iz knjiga na jednostavnom jeziku. Dokumentarna literatura je također potrebna jer su se Finci smanjili čitalačke vještine i interesovanje za čitanje.
+
+### Matthew Perry
+
+![Matthew Perry (19.8.1969 - 28.10.2023) Foto: Matt Baron/BEI/Shutterstock](https://images.cdn.yle.fi/image/upload/c_crop,h_2329,w_4141,x_0,ar_14/ .7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698579698/39-1192810653dd4bb051f
+
+Umro je glumac **Matthew Perry**. Matthew Perry je bio državljanin SAD-a i Kanade.
+
+Perry je poznat po pojavljivanju u popularnoj televizijskoj seriji Prijatelji. Perryjev lik je bio Chandler Bing. Frendit TV serija je snimana 10 godina. Serija je počela 1994. Prikazana je i u Finskoj.
+
+Glumac Metju Peri imao je 54 godine. Preminuo je kod kuće u Los Anđelesu, SAD.
+
+### Svjetsko prvenstvo Kallea Rovanperäa
+
+![Rally vozač Kalle Rovanperä (lijevo) i vozač kruga Jonne Haltunen (desno) radovali su se pobjedi. Fotografija: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2406,w_4278,x_0,y_445/ar_1.777777777777777,c_fill,g_faces,h_675,0q_auto_275/0q1_1/f_auto/fl_lossy/v1698587806/39-1192922653e645d852bc)
+
+Toyotin finski vozač **Kalle Rovanperä** osvojio je svjetski šampionat u reliju. Svjetsko prvenstvo u reliju odlučeno je u nedjelju na Svjetskom prvenstvu srednje Evrope.
+
+Ove godine je reli takmičenje bilo posebno jer se vodilo u tri različite zemlje: Češkoj, Njemačkoj i Austriji.
+
+Šampionat je Kalleu Rovanperi drugi po redu, odnosno osvojio je i svjetsko prvenstvo u reliju prošle godine. Rovanperä ima 23 godine.
+
+### Vrijeme
+
+![Na jugu može biti snježnih pljuskova.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,wh_1270,wh_1270/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698594490/39-1192967653e7ea05e07b)
+
+U ponedjeljak naoblačenje će varirati u sjevernim i centralnim dijelovima zemlje. Uglavnom pada kiša, odnosno ne pada. Na jugu može biti snježnih pljuskova. Temperatura je između +1 i -6 stepeni, hladnije je u Laponiji.

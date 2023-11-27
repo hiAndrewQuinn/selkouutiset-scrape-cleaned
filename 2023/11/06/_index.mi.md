@@ -1,0 +1,65 @@
+## Irirangi \| Nga korero marama \| Mane 6 Noema 2023
+
+Nga wheako whakahāwea o nga manene. Te pakaru o te taura Russian. Kei te mate nga kuri. Te whanau tamariki. Ra Huitene. Huarere.
+
+### Whakahāwea ki nga manene
+
+![He maha nga manene e pa ana ki te whakahāweatanga. Whakaahua: Mikko Ahmajärvi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2485,w_4419,x_0,y_114/ar_1.777777777777777,c_fill,g_faces,h_1_205,.wdq_auto:eco/f_auto/fl_lossy/v1698074800/39-115894164df61298ec3e)
+
+Ka wheako nga manene i te whakahāweatanga i Finland. Koia te korero a te rangahau a te Institute of Health and Welfare.
+
+Neke atu i te 40 paiheneti o nga manene kua pa ki te whakawhäiti i te tau o mua. Ko nga tangata manene kua tae mai ki Finland mai i Awherika, i te Rawhiti Rawhiti ranei, ka tino pa ki te whakapohehe.
+
+Tata ki te 8,000 nga manene i uru ki te rangahau a te Institute of Health and Welfare.
+
+### taura whakawhitiwhiti Russian
+
+![He kaipuke a Ruhia ki te mahi whakatika taura. Atahanga: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3283,w_5838,x_0,y_380/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dq_au1./f_auto/fl_lossy/v1699268142/39-11962776548c5acae94c)
+
+Kua pakaru te taura korero a Ruhia ki te rohe moana o te Moana-a-Kiwa o Finland. Kua tae mai tetahi kaipuke Ruhia ki te whakatika i te he.
+
+Ka rere ano te taura ki te rohe ohaoha o Finland. I korero a Ruhia ki a Finland mo te pakaru o te taura i waenganui o Oketopa.
+
+### Nga mate o nga kuri
+
+![He toa a Musti me Mirri i nga waahi rereke o Finland. Whakaahua: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2746,w_4883,x_0,y_452/ar_1.7777777777777777,c_fill,g_faces,h_6105/w_d_facesq_auto:eco/f_auto/fl_lossy/v1699194714/39-11960056547a6fe024cd)
+
+He maha nga kurī kua mate i te kai kurī. I mate nga kuri na te mea pea i kai ratou i te kai kuri a Musti ja Mirri.
+
+E ai ki a Musti ja Mirri he maha nga rau o nga kaihoko kai kurī kua whakapā atu ki te kamupene. Kua whakamutua e te kamupene te hoko neke atu i te 30,000 kirokaramu kai kurī.
+
+Kei te tirotirohia e nga mana whakahaere te take.
+
+### Te maha o nga pepi
+
+![Ka whanau nga pepi i roto i nga nama iti. Whakaahua: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_233/ar_1.7777777777777777,c_fill,g_faces,h_610/w_pr_205/w_pr_1.q_auto:eco/f_auto/fl_lossy/v1697805617/39-1189261653274b0907f5)
+
+He iti ake nga tamariki kua whanau ki Finland i mua. Koia te korero a te Institute of Health and Welfare.
+
+I te tau 2022, tata ki te 45,000 nga tamariki ka whanau ki Finland. He 9 paiheneti te iti iho i te tau 2021.
+
+I tenei tau hoki, i te ngahuru, he iti ake nga tamariki i whanau mai i tera tau.
+
+### Ra o Huitene
+
+![Ka kitea te reo rua, hei tauira, i nga tohu tiriti i Helsinki. Whakaahua: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675/w_pr_1200.q_auto:eco/f_auto/fl_lossy/v1615970514/39-7850546051bda715b05)
+
+I te Mane, i whakanuia te ra o Huitene. I te ra o Huitene, ka whakanuia te reo Huitene i Finland.
+
+Tata ki te 300,000 Finns te korero Swedish hei reo whaea. He maha nga tangata rongonui o Finns he reo Huitene, hei tauira a Marshal Mannerheim me te kaituhi a Tove Jansson.
+
+Neke atu i te 100 tau te ra o Huitene e whakanuia ana i Finland, mai i te tau 1908. Ko te ra o Swedish, ko Svenska dagen ranei, ko te 6 o Noema.
+
+Ka taea e nga tangata katoa te mahi Swedish me, hei tauira, nga korero marama a Yle i te reo Huitene. Ka kitea i Areena i raro i te ingoa Yle Nyheter på lät svenska.
+
+### Huarere
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_au_1.0/cof_auto/fl_lossy/v1699290254/39-119671665491c7602c1a)
+
+Hei te Turei, ka pouri te rangi. He kohu kei etahi wahanga o te motu.
+
+Ki te puku o te motu, ka ua te hukarere, te huka me te wai. Kei te raki te hukarere.
+
+Ko te pāmahana i te Rātū kei waenga i te -2 ki te +7 nga nekehanga.
+
+Ka makariri ake te rangi hei te mutunga o tenei wiki. I Lapland, ka kaha ake te hukapapa, a ki te tonga ka heke te pāmahana ki raro i te 5 nga nekehanga.

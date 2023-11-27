@@ -1,0 +1,55 @@
+## Radio skaidras ziņas Svētdien, 2023. gada 12. novembrī
+
+Robežkontrole no Krievijas. Pilsētas drošība. Neapmaksāti studentu kredīti. Tēva diena. Laikapstākļi.
+
+### Robežkontrole no Krievijas uz Somiju
+
+![Somija ir gatava izmaiņām robežu drošības situācijā, saka iekšlietu ministre Mari Rantanena. Fotoattēls: Miko Savolainens / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2720,w_4836,x_0,y_450/ar_1.7777777777777777,c_fill,g_faces,h_pr_6210./d_1275,0q_auto:eco/f_auto/fl_lossy/v1695988171/39-11790926516b884859ee)
+
+Uz Somijas dienvidaustrumu robežas no Krievijas bez vīzas ieradušies vairāk cilvēku nekā parasti.
+
+Tie ir trešo valstu pilsoņi, kuri tranzītam izmantojuši Krieviju. No viņiem rudenī ieradušies aptuveni 100. Viņi pierobežā lūguši patvērumu Somijā.
+
+Līdz šim Krievijas varas iestādes nav ļāvušas ieceļot Somijas robežā bez vīzas. Robežsardze norāda, ka Krievijas darbībai piemīt hibrīdietekmes pazīmes. Hibrīda ietekmē viens valsts cenšas ietekmēt citas valsts sistēmu.
+
+Nedēļas laikā uz robežas ar velosipēdiem ieradušies nelegālie imigranti. Tagad robežsardze novērsusi velosipēdu iebraukšanu Somijā.
+
+### Pilsētu drošība
+
+![Pēdējo 10 gadu laikā Tamperē drošības situācija ir pasliktinājusies vairāk nekā Helsinkos. Foto: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2687,w_4777,x_1,y_258/ar_1.7777777777777777,c_fill,g_faces,h_1215,/w_prdq_auto:eco/f_auto/fl_lossy/v1699517677/39-1197321654a95de6dbe7)
+
+Drošība Somijas lielajās pilsētās ir pasliktinājusies.
+
+Yle apkopoja datus no 10 lielākajām pilsētām. Traucējumu indekss liecina, ka drošība ir īpaši pasliktinājusies Espo un Tamperē. Indekss parāda, cik aizdomīgu noziegumu fiksēti sabiedriskās vietās. Indekss ir saistīts ar iedzīvotāju skaitu.
+
+Tamperes pilsētas drošības menedžeris Jouni Perttula stāsta, ka nedrošības cēloņi ir, piemēram, apreibinošās vielas, garīgās veselības problēmas un straujais iedzīvotāju skaita pieaugums.
+
+### Studentu kredīts
+
+![Parādu grūtību fons ir arī 2017. gada studiju atbalsta reforma. Kredītu varētu izņemt par 650 eiro mēnesī līdzšinējo 400 eiro vietā. Foto: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_557/ar_1.7777777777777777,c_fill,g_faces,h_1215,/w_prdq_auto:eco/f_auto/fl_lossy/v1694583672/39-1171262650149d3dfd0c)
+
+Kelai no studentiem ir jāiekasē rekordliels studiju kredītu apjoms, ko students nav samaksājis. Kela parādus šogad iekasējusi jau 3 reizes vairāk nekā pērn. Kelai jau ir vairāk nekā 72 miljonu eiro studentu parādi.
+
+Somijā studenti saņem ne tikai studentu stipendiju, bet arī studiju kredītu. Kredītu garantē valsts jeb praksē Kela.
+
+Ja students nespēj atmaksāt kredītu, Kela to maksā bankai. Pēc tam Kela sāk piedzīt parādu no parādnieka, t.i., studenta.
+
+Priekšvēsture, piemēram, ir tāda, ka studentu atbalsts ir vairāk atkarīgs no studentu kredītiem nekā iepriekš. Turklāt augstās procentu likmes un inflācija apgrūtina studentu finanses.
+
+### Tēva diena
+
+![Tēva dienas ideja radās Amerikas Savienotajās Valstīs, pateicoties Mātes dienai. 1940. gadu beigās Ziemeļvalstu tirgotāji ieteica novembra otro svētdienu kā dienu, kad veikalos vēl valda klusums pirms Ziemassvētku sezonas.](https://images.cdn.yle.fi/image/upload/c_crop,h_360, w_640,x_0,y_0/ar_1. 7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1510307500/5677-4421671
+
+Svētdien tika svinēta Tēva diena.
+
+Tēva diena vienmēr ir novembra otrajā svētdienā. Tēva diena ir oficiālā karoga diena Somijā kopš 2019. gada. Kopš 80. gadiem tā ir noteikta karoga diena.
+
+Somijā ir 1,3 miljoni tēvu, norāda Somijas statistikas pārvalde.
+
+### Laikapstākļi
+
+![ Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675/d_prq_120.:eco/f_auto/fl_lossy/v1699803736/39-11995176550f22164d93)
+
+No ziemeļiem uz Somiju sāk plūst auksts gaiss. Pirmdien dienvidos un austrumos vēl var būt neliela snigšana.
+
+Mīnus temperatūra dienā arī dienvidu piekrastē. Ziemeļos naktī un no rīta sals 15\...25 grādi, vietām pat vairāk.

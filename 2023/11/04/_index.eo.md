@@ -1,0 +1,61 @@
+## Radio \| Klara novaĵo \| sabate la 4-an de novembro 2023
+
+Impostoj. Nepala tertremo. Ukrainio. Gazao. Tago de Ĉiuj Sanktuloj. Prognozo.
+
+### Kontento pri impostado
+
+![Finnoj feliĉas pagi impostojn. Foto: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3061,w_5443,x_0,y_226/ar_1.7777777777777777,c_fill,g_faces,h_6710/0d_r1_671/w_226q_auto:eco/f_auto/fl_lossy/v1692510416/39-115736664dc9b0569c81)
+
+La plimulto de finnoj estas kontenta pri impostado. La Imposto-Administracio demandis finnojn, kion ili pensas pri pagado de impostoj.
+
+Pli ol 70 procentoj de finnoj ĝojas pagi impostojn.
+
+Nur 17 procentoj de finnoj diras, ke ili ne ŝatas pagi impostojn. Tamen, plej multaj el ili opinias, ke impostoj ankoraŭ devas esti pagitaj.
+
+La kontento pri pagado de impostoj klare pliiĝis dum la pasintaj 10 jaroj.
+
+### Tertremo en Nepalo
+
+![Disfalintaj domoj en Jajarkot, Nepalo. Foto: Balkumar Sharma / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1350,w_2400,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_6710,/0_p1200./0_p1201.q_auto:eco/f_auto/fl_lossy/v1699091137/39-1195827654612690580a)
+
+Granda tertremo okazis en Nepalo. La tertremo okazis vendrede vespere en okcidenta Nepalo.
+
+Almenaŭ 150 homoj mortis pro la tertremo. La nombro da mortintoj povas altiĝi kiam pliaj informoj estas akiritaj de la areo. Multaj homoj ankaŭ estis vunditaj en la Nepala sismo. Multaj konstruaĵoj kolapsis pro la sismo.
+
+La Nepala sismo okazis en malproksima areo. Tial informoj pri la detruo venas malrapide.
+
+### Vizito de EU-prezidanto al Ukrainio
+
+![Ursula von der Leyen renkontiĝis kun prezidento Volodimir Zelenskij ĉe la stacidomo de Kievo. Foto: AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_3000,x_0,y_305/ar_1.777777777777777,c_fill,g_faces,h_675,w_12001/0dq_auto/0dp_auto/f_auto/fl_lossy/v1699098434/39-119583265462e51258c1)
+
+Prezidanto de la Eŭropa Komisiono **Ursula von der Leyen** vizitis Ukrainion sabate. Von der Leyen renkontiĝis kun ukraina prezidento **Volodymyr Zelensky** en la ĉefurbo, Kyiv.
+
+Von der Leyen parolis en Ukrainio, ekzemple, pri kiel Ukrainio eble iam povas fariĝi membro de EU.
+
+Von der Leyen ankaŭ parolis pri la subteno de EU al Ukrainio.
+
+### La situacio en Gazao
+
+![Israelo koncentris militajn atakojn sur la norda parto de Gazao. Foto: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1121,w_1994,x_5,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6710,/0_p1200./0_rq_auto:eco/f_auto/fl_lossy/v1699023208/39-1195711654506b2bc2d4)
+
+Eĉ unu miliono da homoj transloĝiĝis el Gazao al la suda parto de la teritorio pro la milito.
+
+Fakuloj diras, ke almenaŭ 800 000 homoj eniris la areon, sed la nombro povus esti tiom alta kiel miliono. Jen kion diras la Usona Speciala Sendito por Mezorienta Humanitara Helpo.
+
+La strikoj de la israela aerarmeo kaj terarmeoj koncentriĝis en norda Gazao. Tial homoj fuĝis suden. Estas ankoraŭ ĉirkaŭ 400 000 homoj en norda Gazao.
+
+### Tago de Ĉiuj Sanktuloj
+
+![En la sankta tago oni portas kandelojn al la tomboj. Foto: Leena-kaisa Laakso / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_435/ar_1.7777777777777777,c_fill,g_faces,w_d_1205,/h_d_12050/q_auto:eco/f_auto/fl_lossy/v1699101771/39-119586665463c1d71d1c)
+
+Hodiaŭ sabato estas Ĉiuj Sanktuloj. La Tago de Ĉiuj Sanktuloj estas grava en la kristana tradicio. Ĝi estas la tago de memoro de sanktuloj, martiroj kaj mortintoj.
+
+En la Tago de Ĉiuj Sanktuloj, ni memoras proksimajn homojn, kiuj jam mortis. Dum Ĉiuj Sanktuloj, kandeloj estas prenitaj al la tomboj de amatoj. Preĝejoj memoras tiujn paroĥanojn kiuj mortis ekde la lasta Ĉiuj Sanktuloj.
+
+La Tago de Ĉiuj Sanktuloj ĉiam estas festata en Finnlando la unuan sabaton de novembro.
+
+### Vetero
+
+![Dimanĉo estas plejparte nuba.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6710,d_p1201./q_auto:eco/f_auto/fl_lossy/v1699111715/39-1195891654662ff4432c)
+
+La vetero estas plejparte nuba kaj pluva. En sudokcidenta Finnlando, la suno foje povas iomete brili. La temperaturo estas plejparte inter 3 kaj 8 gradoj. Estas pli malvarme en norda Finnlando.

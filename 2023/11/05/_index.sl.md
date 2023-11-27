@@ -1,0 +1,61 @@
+## Radio \| Čiste novice \| Nedelja, 5. november 2023
+
+Energetske obnove. Povezava sladolednih podjetij z Rusijo. Ruski raketni poskus. Stanje nemških talcev. Poplavljanje. Napoved.
+
+### Podpora energetskim prenovam
+
+![Energetske subvencije se lahko uporabijo na primer za nove ogrevalne sisteme. Foto: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3349,w_5954,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1676637402/39-107442463ef747ea1acd)
+
+Strokovnjake skrbi prihodnost energetskih prenov. Država bo prihodnje leto prenehala subvencionirati energetske obnove.
+
+Podpora je bila priljubljena. Podpora je bila prejeta na primer za gradnjo geotermalnih ogrevalnih naprav ali popravilo tesnjenja hiš. S podporo se je izboljšala energetska učinkovitost hiš.
+
+Upravljavci se bojijo, da se bodo energetske obnove hiš zmanjšale, ker bo prenehalo subvencioniranje.
+
+### Povezava blagovnih znamk sladoleda z Rusijo
+
+![Nekatere znamke sladoleda so povezane z Rusijo. Foto: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1682321321/39-110323664462e3b6fb8b)
+
+Yle je raziskal povezave finskih blagovnih znamk sladoleda z Rusijo. Nekatere blagovne znamke sladoleda so povezane z Rusijo.
+
+Veliko velikih mednarodnih podjetij še vedno deluje v Rusiji. Ista podjetja imajo v lasti tudi podjetja, ki izdelujejo sladoled v drugih državah. Na primer, veliki mednarodni družbi Nestle in Unilever imata v lasti številne blagovne znamke sladoleda na Finskem.
+
+Veliko podjetij je zapustilo Rusijo, ker je Rusija v vojni v Ukrajini. Državam EU ni všeč, da podjetja poslujejo v Rusiji. EU je Rusiji zaradi vojne uvedla sankcije.
+
+### Ruski raketni poskus
+
+![Ruski predsednik Vladimir Putin. Foto: Mikhael Klimentyev / Sputnik / Kremlin Pool](https://images.cdn.yle.fi/image/upload/c_crop,h_4519,w_8034,x_16,y_238/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1678982359/39-108632664133bfc2dc51)
+
+Rusija je izvedla preizkus izstrelitve rakete dolgega dosega. Rusija pravi, da je bil poskus izstrelitve raket uspešen.
+
+Raketa Bulava je dolga 12 metrov. Raketa lahko preleti približno 8000 kilometrov in lahko nosi 6 jedrskih konic.
+
+Rusija je iz Dunajskega morja izstrelila podmorniško raketo.
+
+### Stanje talcev v Nemčiji
+
+![Prehod do letališča v Hamburgu je bil zaprt zaradi situacije s talci. Foto: Bodo Marks / DPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2703,w_4806,x_0,y_500/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699181525/39-11959676547736ea1bc0)
+
+Na letališču v Hamburgu v Nemčiji že dolgo vladajo razmere s talci.
+
+Situacija se je začela v soboto zvečer, ko je moški zapeljal na območje letališča in streljal v zrak. Iz avta je odvrgel tudi 2 jeklenki z bencinom. V avtu je bila moška 4-letna hči, ki je bila moška talka. Razlog za moško dejanje je bil morda spor glede skrbništva nad otrokom.
+
+Letališče v Hamburgu je bilo zaprto in vsi leti so bili odpovedani. Situacija se je končala v nedeljo popoldne, ko so policisti prijeli moškega. Letališče v Hamburgu so zvečer znova odprli za promet.
+
+### Opozorilo pred poplavami na zahodni Finski
+
+![Ceste so lahko vodne, ko dežuje in sneg se hitro tali. Foto: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_218/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697618867/39-11828126521489e76d51)
+
+Finski meteorološki inštitut je izdal opozorilo pred poplavami za zahodno Finsko. Razlog je močno deževje. V okolici je snežilo, ki se tali. Poleg tega bodo nove vodne prhe.
+
+Veliko vode pride iz snega in dežja. Zato lahko vodostaji na zahodu narastejo.
+
+Na primer, reke lahko poplavijo polja in ceste v severni Finski, Pirkanmaa, Satakunta, Ostrobothnia in Južna Ostrobothnia.
+
+### Vreme
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699200945/39-11960206547bf95c98f5)
+
+V ponedeljek je oblačno. V južnih in osrednjih delih države dežuje ali rosijo. Na severu Finske padavine čez dan ponehajo.
+
+Temperature čez dan od 0 do +8 stopinj, na severnem Laponskem med 0 in -3 stopinje.

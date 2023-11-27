@@ -1,0 +1,67 @@
+## Radyo \| Haberleri temizle \| Pazartesi 13 Kasım 2023
+
+Finlandiya'nın doğu sınırı. Polis gözetimi. Havuzlar. Yılın Fin öğretmeni. Hava durumu.
+
+### Finlandiya'nın doğu sınırı
+
+![Fin makamları Finlandiya'nın doğu sınırındaki durumu izliyor. Fotoğraf: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_171/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699859472/39-11996406551cb5a3d93a)
+
+Evrakları düzgün olmayan Finlandiya ile Rusya arasındaki sınıra daha fazla insan geldi. Mesela Finlandiya'ya vizeleri yok.
+
+Pazartesi günü 20'den fazla kişi gerekli evrakları olmadan sınıra geldi. Sonbahar sırasında 100'den fazlası zaten geldi.
+
+Bunların arasında örneğin Irak, Suriye, Yemen ve Somali vatandaşları var. Rusya üzerinden Finlandiya sınırına gelerek Finlandiya'ya sığınma başvurusunda bulundular.
+
+Daha önce Rusya, gerekli evrakları olmayan kimsenin Finlandiya sınırına girmesine izin vermiyordu. Rusya'nın eylemlerinin neden değiştiği belli değil.
+
+Uzmanlar bunun sebebinin Finlandiya'nın savunma ittifakı NATO'ya üye olması olduğunu tahmin ediyor. Rusya NATO'yu düşmanı olarak görüyor.
+
+### Polis gözetimi
+
+![Polis Helsinki'deki gözetimini artırıyor. Fotoğraf: Matias Väänänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5148,x_0,y_107/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697807957/39-11771286512a4e83c1e1)
+
+Polis Helsinki'deki gözetimi artırdı.
+
+Önümüzdeki 3 hafta boyunca izleme artırılacak. Polis özellikle suçların ve kargaşanın sıklıkla meydana geldiği yerleri denetler.
+
+Otobüs ve tramvaylar gibi toplu taşıma araçlarında her zamankinden daha fazla kontrol var. Ayrıca polis gençlerin toplandığı yerleri denetliyor.
+
+Polis, özellikle akşamları ve hafta sonları gözetimi artırıyor. Polis insanların Helsinki'de kendilerini güvende hissetmelerini istiyor.
+
+### Veikkaus iş ilanları
+
+![Veikkaus örneğin oyun salonlarını kapattığında işler biter. Fotoğraf: Anne Savin / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1928,w_3427,x_567,y_428/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1633956464/39-86542961643200866ed)
+
+Kumar şirketi Veikkaus çalışan sayısını azaltıyor. Yaklaşık 200 çalışan işini kaybedecek.
+
+Örneğin Loto, kazı kazan kartları ve slot makinesi oyunları Veikkaus oyunlarıdır.
+
+Veikkaus, bu yıl sonuna kadar 19 oyun salonunu kapatma kararı aldı.
+
+Ayrıca Veikkaus, Tampere kumarhanesini de kapatacak. Kumarhane Tampere'de sadece 2 yıl önce açıldı. Kumarhanenin başlangıcı korona nedeniyle zordu.
+
+### Yılın Fin öğretmeni
+
+![Yılın Fin öğretmeni Satu Lahtonen (ortada) ve öğrenciler Mohamed Batraan Abdullahi ve Osama Al-Sharif. Fotoğraf: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2982,w_5300,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438785/39-1197531654b5ee49bf1f)
+
+Selkouutiset, Yılın Finlandiya Öğretmeni Satu Lahtonen ve Lahtonen'in öğrencileriyle tanıştı.
+
+![ Fotoğraf: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3153,w_5603,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438827/39-1197537654b5ee95baf1)
+
+![ Fotoğraf: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197536654b5ee899b41)
+
+Satu Lahtonen şu anda Helsinki'deki Konepaja yetişkin lisesinde Fince dili, okuma ve yazma dersleri veriyor.
+
+![Mutluluk i harfiyle başlar. Fotoğraf: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
+
+Lahtonen'in grubunu,![yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link} adresinde bulabileceğiniz Selkouutisten TV yayınından tanıyabilirsiniz. Aynı adreste Lahtonen'in grubunun fotoğrafları da var.
+
+### Hava durumu
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699893163/39-119999365524f872df8f)
+
+Laponya'da hava çok soğuktu. Pazartesi günü erken saatlerde hava bazı yerlerde 27 dereceye kadar soğuktu.
+
+Salı günü yurt genelinde hava soğuyacak ve doğuda bir miktar kar yağacak. Kuzeydeki yerlerde belli oluyor.
+
+Salı günü sıcaklık 0 ile -5 derece, kuzeyde ise -10 ile -20 derece arasında olacak.

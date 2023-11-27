@@ -1,0 +1,48 @@
+Radio \| Jasna vijest \| Nedjelja 26.11.2023
+-----------------------------------------------------
+
+Tražioci azila. premijer Orpo. Izrael. Polarna svjetlost. Vrijeme.
+
+### 3 tražioca azila iz Raja-Joosepa
+
+![granična stanica Raja-Joosepi snimljena 24. novembra 2023. Fotografija: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700842179/39-120631365609f1502057)
+
+U nedjelju su u Finsku došla 3 tražitelja azila iz Rusije. Muškarci su prešli granicu u popodnevnim satima. U subotu je 55 ljudi iz Rusije došlo u Inarijevu graničnu stanicu Raja-Joosepi.
+
+Raja-Jooseppi je trenutno jedini granični prelaz na istočnoj granici Finske koji je otvoren. Ostali granični prelazi su zatvoreni jer Rusija upućuje ljude iz drugih zemalja u Finsku.
+
+### Sat intervjua premijera
+
+![Premijer Petteri Orpo pripremio se za Yle-ov premijerski intervju u Kesärantu u Helsinkiju 26. novembra 2023. Fotografija: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2772,w_4928,x_0,y_20777777777777777777777777777777777777777,c_fill,g_faces,H_675,w_1200/q_auto:ECO/f_auto/fl_lossy/v1701000739335cb8329335ccb8329)
+
+Premijer Petteri Orpo kaže da Finska razmatra potpuno zatvaranje istočne granice. Orpo je tokom Yleovog intervjua s premijerom rekao da bi vlada mogla poduzeti nove mjere ako Rusija pošalje više tražilaca azila u Finsku.
+
+Premijer Petteri Orpo ističe da je najvažniji zadatak vlade da brine o sigurnosti Finske.
+
+### Izrael i Hamas
+
+![Vozilo Međunarodnog Crvenog križa sa izraelskim taocima koje je oslobodio Hamas prelazi granični prijelaz Rafah na putu za Egipat 24. novembra 2023. Foto: Mohammed Abed / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2079,w_3696,x_0,y_366/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto:eco/f_auto/4019171736560e4e1a0ebe)
+
+Izrael i teroristička organizacija Hamas oslobodili su zatvorenike. Hamas je u subotu uveče oslobodio 13 izraelskih talaca i nekoliko državljana drugih zemalja. Izrael je oslobodio 39 palestinskih zatvorenika.
+
+Izrael i Hamas planiraju osloboditi još zatvorenika kasnije u nedjelju ili ponedjeljak. Izrael i Hamas ranije su se dogovorili da će obojica osloboditi zatvorenike. Istovremeno, Izrael i Hamas su se složili da će doći do kratkog prekida vatre u Gazi.
+
+Hamas je napao Izrael u oktobru i uzeo oko 240 talaca. U napadu na Hamas poginulo je ukupno oko 1.400 ljudi. Nakon toga, Izrael je započeo rat u Gazi.
+
+### Polarna svjetlost
+
+![Aurora borealis u Vihtiju. Fotografija: Bhabishya Gurung](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_443/ar_1.777777777777777,c_fill,g_faces,h_675:/wdpr_eco/f_auto/fl_lossy/v1700996219/39-120676065630ab4cbda3)
+
+Sjeverna svjetlost bila je vidljiva na nebu u noći između subote i nedjelje. Sjeverno svjetlo bilo je vidljivo i u južnoj Finskoj. Sjeverna svjetla mogu biti vidljiva i na nebu u noći između nedjelje i ponedjeljka.
+
+Sjeverna svjetla su svjetlosni uzorci koji se mogu vidjeti na nebu. Sjeverno svjetlo je često zeleno, ali ponekad i crveno ili plavo. Sjeverno svjetlo nastaje kada čestice sa Sunca udare u Zemljinu atmosferu.
+
+Yle je zamolio ljude da pošalju slike sjevernog svjetla. Slike su dostupne na mreži na yle.fi.
+
+### Vrijeme
+
+![ Fotografija: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,wd_62_1.0/q_auto:eco/f_auto/fl_lossy/v1701007097/39-120685165634edcb0ac7)
+
+Vremenska prognoza kaže da će ponegdje padati i mali snijeg. Na obali može padati više snijega nego u drugim dijelovima Finske.
+
+Temperatura je između -7 i -20 stepeni. U Laponiji je mraz između 15 i 25 stepeni.

@@ -1,0 +1,55 @@
+## Ràdio Selkouutiset dimecres 15 de novembre de 2023
+
+Carrera presidencial. Frontera oriental. Vacuna contra la corona. Granges de pells. El temps.
+
+### Enquesta presidencial
+
+![Alexander Stubb i Pekka Haavisto. Foto: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_675/0_r_1201.q_auto:eco/f_auto/fl_lossy/v1698912813/39-11947566543595173663)
+
+Alexander Stubb de la Coalició és ara el candidat més popular per al nou president de Finlàndia. L'enquesta d'Yle mostra que el 28 per cent de la gent ara dóna suport a Stubb.
+
+Pekka Haavisto ocupa el segon lloc de l'enquesta. El suport de Haavisto és del 26 per cent.
+
+El suport de Stubb ha augmentat en 6 punts percentuals. El suport d'Haavisto ha disminuït en 3 punts percentuals.
+
+L'enquesta diu que Stubb és el candidat més popular encara que hi hagi una segona volta a les eleccions presidencials.
+
+La 1a volta de les eleccions presidencials és el 28 de gener.
+
+### Niinistö sobre els sol·licitants d'asil
+
+![La imatge mostra el cartell a l'estació fronterera de Vaalimaa. Foto: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_671.0/d_1201.q_auto:eco/f_auto/fl_lossy/v1699908638/39-120003165528559efc2b)
+
+El president de la República, Sauli Niinistö, estima que l'acord de defensa previst per Finlàndia i els EUA pot ser el motiu pel qual els sol·licitants d'asil arriben a la frontera de Finlàndia via Rússia. Potser Rússia es va enfadar amb l'acord.
+
+Niinistö diu que també hi pot haver situacions difícils a la frontera oriental de Finlàndia en el futur. El president ha comentat la situació a la frontera oriental a Bonn, Alemanya, on es troba actualment de visita.
+
+Durant el dia, més de 60 sol·licitants d'asil han arribat a les estacions frontereres del sud-est de Finlàndia. No tenen visat per a Finlàndia.
+
+### Vacuna contra la corona
+
+![Rokotuspiste cartell a l'entrada de Kouvola Hallituskatu Passejada al punt de vacunació. Foto: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_6710./d_r1_201./0.q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+
+El funcionari diu que Some té prou vacuna contra la corona. Les dosis de reforç de la vacuna contra la corona són suficients per a totes aquelles persones per a les quals ara es recomana la vacuna.
+
+Les vacunes de reforç es recomanen durant la tardor i l'hivern per a aquelles persones que corren el risc més alt de patir una malaltia coronada greu. El factor de risc més gran és la vellesa d'una persona.
+
+### Granges de pells
+
+![Hi ha unes 550 granges de pells a Finlàndia. Foto: Janne Järvinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6705,wd_1205.q_auto:eco/f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0)
+
+Els criadors de pells han sol·licitat al govern finlandès una indemnització pels animals que s'han hagut de matar a causa de la grip aviària. Els criadors de pells han sol·licitat una indemnització total de 6 milions d'euros.
+
+Fins ara, 12 granges de pells han sol·licitat una indemnització. Un total de 42 granges de pells ja han tingut grip aviària. Els animals de pell s'han de matar si els animals de la granja de pells tenen grip aviària. L'objectiu és evitar la propagació de la grip aviar.
+
+Hi ha un total d'aproximadament 550 granges de pells a Finlàndia.
+
+### El temps
+
+![ Foto: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_670./d_r1_201.0/q_auto:eco/f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc)
+
+El temps fa pols.
+
+La temperatura se situa entre -1 i -9 a la nit, entre -7 i -12 al centre del país i entre -10 i -20 graus a Lapònia.
+
+Durant la jornada de dijous, la temperatura se situarà entre -2 i -10, entre -10 i -15 al centre del país i entre -10 i -20 graus a Lapònia.

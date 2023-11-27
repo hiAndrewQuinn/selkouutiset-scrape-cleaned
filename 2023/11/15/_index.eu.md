@@ -1,0 +1,55 @@
+## Radio Selkouutiset 2023ko azaroaren 15a, asteazkena
+
+Presidentetzarako lasterketa. Ekialdeko muga. Koroaren txertoa. Fur baserriak. Eguraldia.
+
+### Lehendakaritzako inkesta
+
+![Alexander Stubb eta Pekka Haavisto. Argazkia: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_670/0_r1201.q_auto:eco/f_auto/fl_lossy/v1698912813/39-11947566543595173663)
+
+Koalizioaren Alexander Stubb da orain Finlandiako presidente berrirako hautagairik ezagunena. Yle-ren inkestak erakusten du gaur egun jendearen ehuneko 28k onartzen duela Stubb.
+
+Pekka Haavisto 2. postuan dago inkestan. Haavistoren laguntza ehuneko 26koa da.
+
+Stubb-en laguntza 6 puntu handitu da. Haavistoren laguntza 3 puntu gutxitu da.
+
+Inkestak dio Stubb dela hautagairik ezagunena nahiz eta presidentetzarako hauteskundeetan 2. itzulia egon.
+
+Presidentetzarako hauteskundeen 1. itzulia urtarrilaren 28an da.
+
+### Niinistö asilo-eskatzaileei buruz
+
+![Irudiak Vaalimaa mugako geltokian dagoen seinalea erakusten du. Argazkia: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_670/0,d_r1201.wpq_auto:eco/f_auto/fl_lossy/v1699908638/39-120003165528559efc2b)
+
+Sauli Niinistö Errepublikako presidenteak uste du Finlandiak eta AEBek aurreikusitako defentsa akordioa izan daitekeela asilo eskatzaileak Errusiatik zehar Finlandiako mugara iristeko arrazoia. Agian Errusia haserretu zen akordioarekin.
+
+Etorkizunean Finlandiako ekialdeko mugan ere egoera zailak egon daitezkeela dio Niinistök. Lehendakariak Alemaniako Bonnen ekialdeko mugan dagoen egoera komentatu zuen, bisitan ari baita.
+
+Egunean zehar, 60 asilo eskatzaile baino gehiago etorri dira Finlandiako hego-ekialdeko mugako geltokietara. Ez dute Finlandiako visarik.
+
+### Koroaren txertoa
+
+![Rokotuspiste seinalea Kouvola Hallituskatu sarreran Ibilaldia txerto puntuan. Argazkia: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,/0_r1_201./0_r1201q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+
+Funtzionarioak dio batzuek koronarako txerto nahikoa duela. Coronaren txertoaren booster dosiak nahikoak dira orain txertoa gomendatzen zaien pertsona guztientzako.
+
+Booster txertoak udazkenean eta neguan gomendatzen dira korona gaixotasun larria izateko arrisku handiena duten pertsonentzat. Arrisku faktore handiena pertsona baten zahartzaroa da.
+
+### Fur baserriak
+
+![Finlandian 550 larru-ustiategi inguru daude. Argazkia: Janne Järvinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6701/0d_1205/0d_1201/0dq_auto:eco/f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0)
+
+Larru-hazleek Finlandiako gobernuari kalte-ordaina eskatu diote hegazti gripearen ondorioz hil behar izan dituzten animaliengatik. Larru-hazleek guztira 6 milioi euroko kalte-ordaina eskatu dute.
+
+Orain arte, 12 larru-ustiategik eskatu dute kalte-ordaina. Guztira 42 larru-ustiategik izan dute dagoeneko hegazti gripea. Larruzko animaliak hil egin behar dira larru-ustiategiko animaliek hegazti gripea badute. Helburua hegazti gripea ez zabaltzea da.
+
+Finlandian 550 larru-ustiategi daude guztira.
+
+### Eguraldia
+
+![ Argazkia: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_rp1201.0/q_auto:eco/f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc)
+
+Eguraldia hautsez dago.
+
+Tenperatura -1 eta -9 artean dago gauez, -7 eta -12 artean herrialdeko erdialdean eta -10 eta -20 gradu artean Laponian.
+
+Osteguneko egunean, tenperatura -2 eta -10 artekoa izango da, -10 eta -15 artean herrialdeko erdialdean eta -10 eta -20 gradu artean Laponian.

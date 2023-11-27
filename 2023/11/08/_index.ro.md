@@ -1,0 +1,47 @@
+## Radio Selkouutiset miercuri 8 noiembrie 2023
+
+Informații fiscale. Mâncare pentru câini. Negocierile de aderare la UE. Vreme.
+
+### Informații fiscale
+
+![Informațiile fiscale pentru 2022 sunt acum publice. Imagine ilustrativă. Foto: Toni Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.7777777777777777,c_fill,g_faces,w/h_1200,w/d_12000q_auto:eco/f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a)
+
+Informațiile fiscale pentru 2022 sunt acum publice. Datele fiscale arată care persoane au primit cei mai mulți bani anul trecut din venituri din salarii și venituri din capital.
+
+Mikko Kuusi a câștigat cei mai mulți bani în Finlanda anul trecut. A obținut mulți bani când serviciul de livrare de alimente Wolt a fost vândut în străinătate. Mikko Kuusi a câștigat un total de 79,5 milioane de euro în 2022.
+
+Datele fiscale arată că o mare parte a persoanelor care câștigă mult sunt bărbați. Dintre cei 1.000 de oameni care au făcut cei mai mulți bani anul trecut, aproximativ 15 la sută erau femei.
+
+În calculatorul de taxe Yle, puteți vedea informațiile fiscale ale finlandezilor cu cele mai mari câștiguri. Verokone este online la yle.fi.
+
+### Mâncare pentru câini
+
+![Mulți câini s-au îmbolnăvit din cauza hranei pentru câini. Foto: Urho Haho, Jaakko Stenroos / AOP, Leena Luotio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fil,g_faceh_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699386970/39-11965956548f484ed3bb)
+
+Săptămâna aceasta s-a vorbit mult despre faptul că mulți câini s-au îmbolnăvit din cauza hranei pentru câini. Acum a devenit clar că cauza poate fi un fulg străin de cartofi.
+
+Compania de furnizare a animalelor de companie Musti Group spune că este posibil ca câinii să fi fost otrăviți de un fulg de cartof străin. Fulgi de cartofi au fost în hrana pentru pisici și hrana pentru câini a Musti Group. Se suspectează că mâncarea a provocat mulți câini, de exemplu, greață.
+
+Mulți oameni și-au dus câinele la veterinar când s-a îmbolnăvit din cauza hranei pentru câini. Musti Group promite să plătească aceste facturi veterinare.
+
+Agenția pentru Alimentație investighează probe prelevate din hrana pentru câini Musti Group.
+
+### Negocierile de aderare la UE
+
+![Uniunea Europeană include în prezent 27 de țări. Foto: Ana Fernandez / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.7777777777777777,c_fill,g_faces,h_675,/d_r1_201,/0,y_419q_auto:eco/f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2)
+
+Comisia Europeană recomandă UE să înceapă negocieri cu Ucraina privind aderarea țării la UE. Totuși, Ucraina trebuie să îndeplinească mai întâi anumite condiții de aderare. Comisia speră că Ucraina va lua mai multe măsuri împotriva corupției, de exemplu.
+
+Comisia UE recomandă, de asemenea, să înceapă negocierile de aderare cu Bosnia-Herţegovina şi Moldova.
+
+În prezent există 27 de țări în Uniunea Europeană.
+
+### Vremea
+
+![ Foto: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6701,w_1270.0/q_auto:eco/f_auto/fl_lossy/v1699449326/39-1197700654b89b86284a)
+
+Vremea este înnorată aproape în toată țara. În partea de sud a țării plouă în multe locuri. De asemenea, ninge în centrul și nordul Finlandei.
+
+Temperatura este cuprinsă între -1 și +7 în sudul și centrul țării, între 0 și -10 grade în partea de nord a țării.
+
+Vremea de condus pe drumuri este rea în unele locuri din partea de est a țării și în Laponia.

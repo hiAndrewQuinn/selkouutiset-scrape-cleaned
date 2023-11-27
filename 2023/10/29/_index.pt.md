@@ -1,0 +1,49 @@
+## Rádio \| Notícias claras \| Domingo, 29 de outubro de 2023
+
+Gaza. Livros claros. Matheus Perry. Kalle Rovanperä. Previsão.
+
+### A situação em Gaza
+
+![A situação em Gaza é difícil. A ONU alerta que o caos começará na região. Foto: Abed Rahim Khatib / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3780,w_6720,x_0,y_700/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698587757/39-1192921653e641fc4a70)
+
+Israel aumentou os seus ataques a Gaza. Israel realizou ataques aéreos em Gaza e enviou mais tropas terrestres para Gaza. O primeiro-ministro israelense **Benjamin Netanyahu** diz que a segunda fase da guerra contra a organização extremista Hamas já começou.
+
+O Hamas afirma que mais de 8.000 pessoas morreram em 3 semanas nos ataques de Israel a Gaza. A informação não pôde ser confirmada por fontes confiáveis.
+
+A ONU alerta que o caos começará em Gaza. Por exemplo, milhares de palestinos invadiram armazéns para conseguir alimentos.
+
+### Não-ficção
+
+![Autora Merete Mazzarella. Foto: Barbro Ahlstedt/Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3159,w_5616,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1620995152/39-806292609e6be113e02)
+
+Uma feira do livro foi realizada em Helsinque neste fim de semana. A feira do livro também incluiu literatura e autores em linguagem simples. Na feira do livro, por exemplo, foi comemorada a realização de uma versão em linguagem simples do livro *Violetti hetki* da autora **Merete Mazzarella**.
+
+Na feira do livro também foi realizada uma grande discussão aberta de livros, onde foram discutidos livros em linguagem aberta.
+
+Existem aproximadamente 750.000 pessoas na Finlândia que não conseguem ler literatura na língua comum. Eles podem obter experiências de leitura em livros em linguagem simples. A não-ficção também é necessária porque as habilidades de leitura e o interesse pela leitura dos finlandeses diminuíram.
+
+### Mateus Perry
+
+![Matthew Perry (19.8.1969 - 28.10.2023) Foto: Matt Baron/BEI/Shutterstock](https://images.cdn.yle.fi/image/upload/c_crop,h_2329,w_4141,x_0,y_54/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698579698/39-1192810653dd4bb051f5)
+
+O ator **Matthew Perry** morreu. Matthew Perry era cidadão dos EUA e do Canadá.
+
+Perry é conhecido por aparecer na popular série de televisão Friends. O personagem de Perry era Chandler Bing. A série de TV Frendit foi feita há 10 anos. A série começou em 1994. Também foi exibida na Finlândia.
+
+O ator Matthew Perry tinha 54 anos. Ele morreu em casa em Los Angeles, EUA.
+
+### Campeonato mundial de Kalle Rovanperä
+
+![O piloto de rali Kalle Rovanperä (à esquerda) e o piloto de circuito Jonne Haltunen (à direita) alegraram-se com a vitória. Foto: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2406,w_4278,x_0,y_445/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698587806/39-1192922653e645d852bc)
+
+O piloto finlandês da Toyota **Kalle Rovanperä** venceu o campeonato mundial de rally. O Campeonato Mundial de Rally foi decidido no domingo no Campeonato Mundial da Europa Central.
+
+Este ano a competição de rali foi especial porque foi disputada em três países diferentes: República Checa, Alemanha e Áustria.
+
+O campeonato é o segundo consecutivo de Kalle Rovanpera, ou seja, ele também venceu o campeonato mundial de rally no ano passado. Rovanperä tem 23 anos.
+
+### Clima
+
+![Pode haver pancadas de neve no sul.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698594490/39-1192967653e7ea05e07b)
+
+Na segunda-feira a nebulosidade vai variar no norte e centro do país. Principalmente está chovendo, ou seja, não está chovendo. Pode haver pancadas de neve no sul. A temperatura está entre +1 e -6 graus, é mais fria na Lapônia.

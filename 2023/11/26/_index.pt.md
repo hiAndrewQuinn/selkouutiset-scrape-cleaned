@@ -1,0 +1,48 @@
+Rádio \| Notícias claras \| Domingo, 26 de novembro de 2023
+------------------------------------------------------------
+
+Requerentes de asilo. Primeiro Ministro Orpo. Israel. Aurora boreal. Clima.
+
+### 3 requerentes de asilo de Raja-Joosep
+
+![Estação fronteiriça de Raja-Joosepi fotografada em 24 de novembro de 2023. Foto: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700842179/39-120631365609f1502057)
+
+No domingo, três requerentes de asilo da Rússia chegaram à Finlândia. Os homens cruzaram a fronteira à tarde. No sábado, 55 pessoas da Rússia chegaram à estação fronteiriça de Raja-Joosepi, em Inari.
+
+Raja-Jooseppi é atualmente a única passagem de fronteira aberta na fronteira oriental da Finlândia. Outras passagens de fronteira estão fechadas porque a Rússia está a encaminhar pessoas de outros países para a Finlândia.
+
+### Hora da entrevista do primeiro-ministro
+
+![O primeiro-ministro Petteri Orpo preparou-se para a sessão de entrevistas do primeiro-ministro de Yle em Kesäranta, em Helsinque, em 26 de novembro de 2023. Foto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2772,w_4928,x_0,y_207/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701000739/39-1206810656335ccb8329)
+
+O primeiro-ministro Petteri Orpo afirma que a Finlândia está a considerar fechar completamente a fronteira oriental. Orpo disse durante a entrevista de Yle com o primeiro-ministro que o governo poderá tomar novas medidas se a Rússia enviar mais requerentes de asilo para a Finlândia.
+
+O primeiro-ministro Petteri Orpo sublinha que a tarefa mais importante do governo é cuidar da segurança da Finlândia.
+
+### Israel e Hamas
+
+![Um veículo da Cruz Vermelha Internacional transportando reféns israelenses libertados pelo Hamas cruza a fronteira de Rafah a caminho do Egito em 24 de novembro de 2023. Foto: Mohammed Abed / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2079,w_3696,x_0,y_366/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700849015/39-12064636560e4e1a0ebe)
+
+Israel e a organização terrorista Hamas libertaram prisioneiros. O Hamas libertou 13 reféns israelenses e vários cidadãos de outros países na noite de sábado. Israel libertou 39 prisioneiros palestinos.
+
+Israel e o Hamas planejam libertar mais prisioneiros ainda no domingo ou na segunda-feira. Israel e o Hamas concordaram anteriormente que ambos libertariam prisioneiros. Ao mesmo tempo, Israel e o Hamas concordaram que haverá um breve cessar-fogo em Gaza.
+
+O Hamas atacou Israel em outubro e fez cerca de 240 reféns. Um total de cerca de 1.400 pessoas morreram no ataque do Hamas. Depois disso, Israel iniciou uma guerra em Gaza.
+
+### Aurora boreal
+
+![Aurora boreal em Vihti. Foto: Bhabishya Gurung](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_443/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700996219/39-120676065630ab4cbda3)
+
+As luzes do norte eram visíveis no céu na noite entre sábado e domingo. As luzes do norte também eram visíveis no sul da Finlândia. As luzes do norte também podem ser visíveis no céu na noite entre domingo e segunda-feira.
+
+As luzes do norte são padrões de luz que podem ser vistos no céu. A aurora boreal costuma ser verde, mas às vezes também vermelha ou azul. A aurora boreal é criada quando partículas do Sol atingem a atmosfera da Terra.
+
+Yle pediu às pessoas que enviassem fotos da aurora boreal. As fotos estão disponíveis online em yle.fi.
+
+### Clima
+
+![ Foto: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701007097/39-120685165634edcb0ac7)
+
+A previsão do tempo diz que nevará um pouco em alguns lugares. Pode nevar mais na costa do que em outras partes da Finlândia.
+
+A temperatura está entre -7 e -20 graus. Na Lapônia, a geada fica entre 15 e 25 graus.

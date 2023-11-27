@@ -1,0 +1,61 @@
+## Radio Selkouutiset 2023ko urriaren 26a, osteguna
+
+Kontraneurrien epaiketa. Ekialdeko mugako hesia. Baso Kontseilua. Zaldiko istripua. Neguko errepide murrizketak. Eguraldia.
+
+### Kontraneurrien epaiketa
+
+![Aleksanteri Kivimäki salatua. Argazkia: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2875,w_5112,x_0,y_568/ar_1.7777777777777777,c_fill,g_faces,h_12_r0,h_1201.q_auto:eco/f_auto/fl_lossy/v1698305049/39-1191484653a13e7df175)
+
+Bulegoan datuen urraketaren epaiketa hasi da. Vastaamo jendeari psikoterapia ematen zuen enpresa zen.
+
+Auzian, Aleksanteri Kivimäki leporatzen diote lehenik Vastaamoren bezeroen informazioa sartzea. Fiskalak dio datuen urraketaren ostean, Kivimäkik hamarnaka milaka pertsonari xantaia bortizki egin ziela. Kivimäki-k Vastaamoren bezeroen informazioa ere argitaratu zuen interneten.
+
+Fiskalak Kivimäki 7 urteko espetxe zigorra ezarri behar diola eskatzen du.
+
+Aleksanteri Kivimäkik dio ez dituela leporatzen zaizkion delituak egin.
+
+### Ekialdeko mugako hesia
+
+![Imatrako Pelkola mugako geltokitik gertu dagoen muga-hesi berria. Argazkia: Kare Lehtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2243,w_3993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_671,/0_r1_201,/0,y_0/ar_1.7777777777777777q_auto:eco/f_auto/fl_lossy/v1698323397/39-1191724653a55b2a04b0)
+
+Finlandiako ekialdeko mugan hesi bat eraikitzen ari dira. Hesiaren eraikuntza apirilean hasiko da.
+
+Lehenik eta behin, hesia Finlandiako hego-ekialdean eraikiko dute Imatra, Vaalimaa eta Nuijamaako muga-pasaguneetatik gertu. Hesia amaitzen denean, 200 bat kilometro izango ditu guztira. Hesi osoa prest egongo da 2026an.
+
+Mugatzainek dagoeneko hesi txiki bat egin dute Imatran. Proba hesi honekin esperientzia onak daudela dio Mugatzainek.
+
+Hesiaren helburua Finlandia eta Errusia arteko muga ezin dela erraz igaro baimenik gabe.
+
+### Baso Kontseilua
+
+![2023ko urriaren 26an Metsä Board-en Äänekoski kartoi fabrikako ate nagusian kokatutako adreiluzko eraikina. Argazkia: Jussi Lindroos / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200./0,y_0/ar_1.7777777777777777q_auto:eco/f_auto/fl_lossy/v1698319726/39-1191672653a4ca1724ad)
+
+Metsä Board baso-enpresak langileak kaleratu ditzake.
+
+Aldaketa-negoziazioak Metsä Board-en Finlandiako kartoi-fabriketan 1.100 pertsonari dagozkio guztira. Datorren urtean kaleratzeak izango dira ziurrenik eta 3 hilabete iraungo dute.
+
+Metsä Board-ek dio orain kartoi gutxiegi erosten ari dela. Beraz, baliteke enpresak langileak kaleratu behar izatea.
+
+### Zaldi-istripua
+
+![Istripua zaldi ukuiluan gertatu zen. Ilustrazio irudia. Argazkia: Linus Westerlund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_p/670.q_auto:eco/f_auto/fl_lossy/v1692692625/39-116023264e46d0e45030)
+
+Espoon, emakume gazte bat hil zen zaldi ukuilu batean izandako istripu batean. 20 urteko emakume bat hil zen asteartean zalditik erorita. Txirrindulariak kaskoa zeraman.
+
+Istripuaren zergatia ikertzen ari dira.
+
+### Neguko abiadurak
+
+![Neguko errepideko abiadura mugak indarrean sartzen dira. Argazkia: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_671,/0,w_p1_201q_auto:eco/f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
+
+Autobide askotan, abiadura muga aldatuko da gaur, osteguna. Neguan, Finlandiako ia errepide guztietan abiadura muga orduko 80 kilometrokoa da.
+
+Autobideetan neguan abiadura muga orduko 100 kilometrokoa da.
+
+### Eguraldia
+
+![ Argazkia: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_rp1201.0/q_auto:eco/f_auto/fl_lossy/v1698292510/39-11913736539e2ff81a55)
+
+Elur pixka bat egingo du Laponian ostiralean. Hegoaldeko kostaldean ere elur zaparradak izango dira. Finlandiako beste toki batzuetan, arazoak daude.
+
+Tenperatura alde onean dago herrialdearen hegoaldean. Izoztea dago herrialdearen erdialdean eta iparraldean.

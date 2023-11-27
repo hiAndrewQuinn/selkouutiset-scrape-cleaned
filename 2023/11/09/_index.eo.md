@@ -1,0 +1,75 @@
+## Radio Selkouutiset ĵaŭdon la 9an de novembro 2023
+
+Mezoriento. Peltbieno. Sukeraĵejo. Diplomiĝintaj studentoj. Ahtisaari. Vetero.
+
+Mezoriento
+
+![ Foto: Murtadha Al Sudani / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,w_d1205,/h_d1200.0/q_auto:eco/f_auto/fl_lossy/v1699096585/39-11958306546279b91a3b)
+
+Komisaro pri Homaj Rajtoj de UN Volker Türk diras, ke la terorisma organizo Hamas kaj Israelo ambaŭ faris militkrimojn.
+
+La komisaro pri homaj rajtoj diras ke Hamas kaj aliaj palestinaj grupoj
+
+7\. La abomenaĵoj faritaj en oktobro kaj la tenado de ostaĝoj estas militkrimoj.
+
+Laŭ la komisaro pri homaj rajtoj, ankaŭ la puno de Israelo de ĉiuj palestinanoj kaj la deviga evakuado de civiluloj estas militkrimo.
+
+### Pelta ĝardeno
+
+![ Foto: Janne Järvinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4024,w_7154,x_3,y_757/ar_1.7777777777777777,c_fill,g_faces,w_d_1205,.0/q_auto:eco/f_auto/fl_lossy/v1696520411/39-1181991651ed3e183fc7)
+
+Granda parto de finnoj ne volas, ke la peltbieno daŭrigu same kiel nun.
+
+80 procentoj de finnoj ĉesigus peltkultivadon aŭ igus ĝin pli komforta por la bestoj.
+
+Pli ol duono de la respondintoj subtenis kompletan malpermeson de felbredado.
+
+Pli ol mil finnoj respondis la enketon pri peltkultivado.
+
+### Dolĉaĵoj
+
+![ Foto: Mika Moksu / Yle, Teemu Kammonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1814,w_3217,x_0,y_0/ar_1.7777777777777777,c_fill,g675s,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699517933/39-1197951654c95aa03257)
+
+Pluraj salmiakki kaj glicirizbombonoj faritaj en Finnlando enhavas substancon nomitan Matriini, kiu estas malpermesita en EU.
+
+Yle komisiis laboratorian studon de 10 finnaj bombonoj. Tro da matrino estis trovita en 6 bombonoj.
+
+Matrine estas en glicirizekstraktaĵo, kiu estas la krudaĵo de bombonoj.
+
+Oni ne scias certe ĉu matrine estas danĝera. Tial EU malpermesis matriline nur por esti certa.
+
+### Mezlernejaj studentoj
+
+![ Foto: Veera Varrio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6710,d_r1200.w0/q_auto:eco/f_auto/fl_lossy/v1699354150/39-11968216549e8120dbd8)
+
+Ĉirkaŭ 4,300 novaj gimnazianoj diplomiĝos ĉi-aŭtune.
+
+Entute preskaŭ 44 000 studentoj partoprenis en la enmatrikula ekzameno. Granda nombro faras la ekzamenon en pluraj partoj.
+
+La rezultoj de la aŭtunaj enmatrikulaj eseoj estas anoncitaj hodiaŭ. La nomoj de la novaj diplomiĝintoj troveblas ĉe![yle.fi](https://yle.fi/a/74-20057938){.aw-1bz6tfj .iiyKBc .yle__article__link}.
+
+Post enmatrikuliĝo, studento povas kandidatiĝi al universitato, ekzemple.
+
+### Ahtisaari
+
+![La nekrologo de prezidanto Martti Ahtisaari aperos. Foto: Posti](https://images.cdn.yle.fi/image/upload/c_crop,h_839,w_1497,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/dpr_1.0/dpr/f_auto/fl_lossy/v1699530416/39-1198123654cc6189c3ab)
+
+Prezidanto Martti Ahtisaari estos igita stampo.
+
+Posti publikigas funebran karton de Ahtisaari por honori la memoron de Ahtisaari. La stampo havas nur nigrajn kaj blankajn kolorojn.
+
+La stampo estos eldonita la 15-an de decembro.
+
+Prezidanto Martti Ahtisaari mortis la 16-an de oktobro en Helsinko. Li estis 86 jarojn maljuna.
+
+### Vetero
+
+![ Foto: Marjo Hoikkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6701,w_1201.0/q_auto:eco/f_auto/fl_lossy/v1699507570/39-1197896654c6d10b133e)
+
+La vetero hodiaŭ estas nuba kaj plejparte nuba.
+
+Nokte, pluvzono alvenas de la sudo kaj la vento intensiĝas.
+
+Morgaŭ pluvos en la sudo, neĝo kaj neĝo en la centraj partoj de la lando.
+
+Pluvos en la nordo morgaŭ kaj la nuba kovrilo krevos.

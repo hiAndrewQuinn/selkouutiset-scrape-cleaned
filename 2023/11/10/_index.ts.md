@@ -1,0 +1,65 @@
+## Xiya-ni-moya \| Mahungu lama nga erivaleni \| Ravuntlhanu 10 Nyenyankulu 2023
+
+Xilahlo xa President Martti Ahtisaari na ntirho wa vutomi.
+
+### Xilahlo xa President Ahtisaari na ntirho wa vutomi
+
+![Martti Ahtisaari, Presidente wa Finland 1994-200. Xifaniso: CMI/Tomas Whitehouse] (https://ku. q_auto:eco/f_auto/fl_lossy/v1699528852/39-1197047654a2d3334539)
+
+President Martti Ahtisaari u lahliwile namuntlha, hi Ravuntlhanu.
+
+Ahtisaari a a ri muungameri wa tiko ra Finland ku sukela hi 1994 ku ya eka 2000. U file hi October 16.
+
+Eka vuhaxi lebyi, hi vulavula hi xilahlo xa President Ahtisaari na ntirho wa vutomi bya Ahtisaari.
+
+Muviki wa mahungu **Merja Windia** u landzelerisile xilahlo xa Ahtisaari.
+
+**Merja, xana xilahlo xa Ahtisaari xi ve njhani?**
+
+![President Sauli Niinistö u vulavule enkosini wa Ahtisaari. Xifaniso: Heikki Saukkomaa / Lehtikuva](https://ku.q_auto:eco/f_auto/fl_lossy/v1699619473/39-1198810654e20fbae885)
+
+Xilahlo a xi xiximeka, kambe moya a wu kufumela.
+
+Muungameri wa sweswi wa le Finland, Sauli Niinistö, u vulavule enkosini. Niinistö u vule leswaku Ahtisaari a a ri munhu lonkulu wa le Finland. Ku engetela kwalaho, Ahtisaari u vone nchumu lowunene eka vanhu hinkwavo, ku vula Niinistö.
+
+Nsati wa Ahtisaari Eeva ni n’wana wa yena Marko va khumbiwe hi nkulumo ya Niinistö.
+
+**I vamani vayeni eka xilahlo?**
+
+![Hosi ya Sweden na vaendzi van'wana va xilahlo. Xifaniso: Lehtikuva](https://swifaniso.cdn.yle.fi/xifaniso/kulayicha/c_crop,h_2880,w_5120,x_0,y_138/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_kulahlekeriwa/v1699627300/39-1199035654e40494d395)
+
+A ku ri ni vaendzi lava rhambiweke vo tlula 800 enkosini. Exikarhi ka vaendzi a ku ri, hi xikombiso, Hosi ya le Sweden, Kaarle Kustaa.
+
+Presidente wa Namibia na yena u hlanganyerile eka xilahlo xa Ahtisaari. Ahtisaari u pfune Namibia leswaku yi tiyimela hi yoxe eka malembe yo tlulanyana 30 lama hundzeke.
+
+Ku engetela kwalaho, exikarhi ka vaendzi a ku ri ni tinhloko ta matiko leti humaka eKosovo ni le Indonesia. Ahtisaari a a ri karhi a burisana hi ku rhula eka matiko lawa hamambirhi.
+
+**Xana president na yena a ri muhlanganisi wa ku rhula?**
+
+Ina, Ahtisaari u tirhe tanihi muhlanganisi wa ku rhula wa matiko hinkwawo ku ringana makume yo tala ya malembe. Endzhaku ka nkarhi wa vupresidente, Ahtisaari u simeke nhlangano lowu pfunetaka ku lulamisa timholovo ta madzolonga.
+
+Emisaveni, Ahtisaari u tiveka ngopfu tani hi muvulavurisani wa ku rhula. Hi 2008, Ahtisaari a a ri munhu wo sungula wa le Finland ku kuma Sagwadi ra Nobel ra ku Rhula.
+
+**Bokisi ra Ahtisaari ri tekiwe ekerekeni leyikulu ri yisiwa emasirheni eka nkhuvo wa xilahlo lowu hundzeke exikarhi ka Helsinki. Xana a ku ri na vanhu etlhelo ka switarata?**
+
+![Vanhu vo tala a va lava ku hlalela xilahlo xa Ahtisaari. Xifaniso: Roni Rekomaa / Lehtikuva](https://ku.q_auto:eco/f_auto/fl_lossy/v1699619608/39-1198819654e22ed1c931)
+
+Ina, a ku ri ni magidi ya vanhu lava foleleke eswitarateni, hambileswi mpfula a yi na. Vo tala a va lava ku ta va ta xixima ku tsundzukiwa ka Ahtisaari.
+
+President Ahtisaari u lahliwile emasirheni ya Hietaniemi. Ha yini Ahtisaari a lahliwile eHietaniemi?
+
+Le Finland, i mukhuva leswaku vapresidente va lahliwa emasirheni ya Hietaniemi. I vapresidente vambirhi ntsena lava lahliweke kun’wana.
+
+**Ndza khensa vuxokoxoko lebyi, Merja.**
+
+### Maxelo
+
+![](https://ku.f_auto/fl_kulahlekeriwa/v1699633281/39-1199138654e58651ee77)
+
+Mahelo ya vhiki ya na mpfula eka xiphemu lexikulu xa tiko.
+
+Mpfula yi na edzongeni naswona ku na gamboko exikarhi ka tiko.
+
+En'walungwini, mpfula ya na, leswi vulaka leswaku a yi na mpfula kumbe gamboko. Hi Mugqivela, dyambu ri ta tlhela ri voninga en’walungwini.
+
+Mahiselo ya le ka plus side e dzongeni, ya titimela en’walungwini.

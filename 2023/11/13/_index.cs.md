@@ -1,0 +1,67 @@
+## Rádio \| Jasné zprávy \| Pondělí 13. listopadu 2023
+
+Východní hranice Finska. Policejní dohled. Bazény. Finský učitel roku. Počasí.
+
+### Východní hranice Finska
+
+![Finské úřady monitorují situaci na východní hranici Finska. Foto: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_171/ar_1.7777777777777777,c_fill,g_faces,0/d_167q_auto:eco/f_auto/fl_lossy/v1699859472/39-11996406551cb5a3d93a)
+
+Na hranici mezi Finskem a Ruskem přišlo více lidí, jejichž papíry nejsou v pořádku. Například nemají vízum do Finska.
+
+V pondělí přišlo na hranice více než 20 lidí bez potřebných dokladů. Během podzimu jich dorazilo již více než 100.
+
+Jsou mezi nimi například občané Iráku, Sýrie, Jemenu či Somálska. Přes Rusko se dostali k finským hranicím, kde požádali o azyl ve Finsku.
+
+Dříve Rusko na finské hranice nikoho nepustilo bez potřebných papírů. Není jisté, proč se kroky Ruska změnily.
+
+Odborníci odhadují, že důvodem je to, že se Finsko stalo členem obranné aliance NATO. Rusko považuje NATO za svého nepřítele.
+
+### Policejní dohled
+
+![Policie zesiluje dohled v Helsinkách. Foto: Matias Väänänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5148,x_0,y_107/ar_1.7777777777777777,c_fill,g_pr_01s,h/0q_auto:eco/f_auto/fl_lossy/v1697807957/39-11771286512a4e83c1e1)
+
+Policie zvyšuje dohled v Helsinkách.
+
+Monitorování bude během následujících 3 týdnů zvýšeno. Policie dohlíží zejména na místa, kde často dochází k trestné činnosti a výtržnostem.
+
+V MHD je větší kontrola než obvykle, například v autobusech a tramvajích. Policie navíc dohlíží na místa, kde se mládež schází.
+
+Policie zvyšuje dohled zejména ve večerních hodinách a o víkendech. Policie chce, aby se lidé v Helsinkách cítili bezpečně.
+
+### Práce Veikkause
+
+![Úlohy dojdou, když Veikkaus zavírá například pasáže. Foto: Anne Savin / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1928,w_3427,x_567,y_428/ar_1.7777777777777777,c_fill,g_faces,w/d_1601.0q_auto:eco/f_auto/fl_lossy/v1633956464/39-86542961643200866ed)
+
+Hazardní společnost Veikkaus snižuje počet zaměstnanců. O práci přijde asi 200 zaměstnanců.
+
+Například Lotto, stírací losy a hrací automaty jsou hry Veikkaus.
+
+Veikkaus se nyní rozhodl, že do konce letošního roku uzavře 19 heren.
+
+Veikkaus navíc uzavře kasino v Tampere. Kasino bylo otevřeno v Tampere teprve před 2 lety. Začátek kasina byl těžký kvůli koroně.
+
+### Finský učitel roku
+
+![Finský učitel roku Satu Lahtonen (uprostřed) a studenti Mohamed Batraan Abdullahi a Usama Al-Sharif. Foto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2982,w_5300,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,w/d_pr_pr_0.0q_auto:eco/f_auto/fl_lossy/v1699438785/39-1197531654b5ee49bf1f)
+
+Selkouutiset se setkal s finskou učitelkou roku Satu Lahtonen a Lahtonenovými studenty.
+
+![ Foto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3153,w_5603,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,/wd_pr60/q_auto:eco/f_auto/fl_lossy/v1699438827/39-1197537654b5ee95baf1)
+
+![ Foto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,/wd_pr60/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197536654b5ee899b41)
+
+Satu Lahtonen v současnosti vyučuje finský jazyk, čtení a psaní na střední škole pro dospělé Konepaja v Helsinkách.
+
+![Happy začíná na písmeno i. Foto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,w/d_pr_pr_0.0q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
+
+Lahtonenovu skupinu můžete poznat v televizním vysílání Selkouutisten, které najdete na![yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link}. Na stejné adrese jsou i fotografie Lahtonenovy skupiny.
+
+### Počasí
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_auto:w_1100/dprf_auto/fl_lossy/v1699893163/39-119999365524f872df8f)
+
+V Laponsku byla velká zima. V pondělí brzy bylo na některých místech až 27 stupňů.
+
+V úterý se v celé republice ochladí a na východě bude drobně sněžit. Na severu je místy jasno.
+
+Teplota se v úterý bude pohybovat mezi 0 a -5 stupni, na severu mezi -10 a -20 stupni.

@@ -1,0 +1,45 @@
+## Radio Selkouutiset Ravumune 16 Nyenyankulu 2023
+
+Switichi swa le ndzilakaneni swi pfariwile. Ku pfumaleka ka mintirho. Nandzu wa Dödspatrullen. Maxelo.
+
+### Switichi swa le ndzilakaneni swi pfariwile
+
+![Switichi swa ndzilakano swa Imatra, Niirala, Nuijamaa na Vaalimaa swi ta pfala. Xifaniso: Laura Merikalla / Yle na Nanna Särkkä / Yle](https://ku/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
+
+Finland ri pfala tindhawu to tala to tsemakanya ndzilakano endzilakaneni wa le vuxeni.
+
+Mfumo wu teke xiboho xa leswaku switichi swa le ndzilakaneni swa Imatra, Niirala, Nuijamaa na Vaalimaa swi ta pfala hi vusiku exikarhi ka Ravuntlhanu na Mugqivela. Endzhaku ka leswi, ku hava timovha leti hundzaka eka switichi leswi swa le ndzilakaneni. Switichi swa le ndzilakaneni swi pfariwile ku fikela exikarhi ka February.
+
+Eka ndzilakano wa le vuxeni, i tindhawu to tsemakanya ndzilakano ta Vartius, Salla, Kuusamo na Raja-Joosepi ntsena leti nga ta pfula ku sukela hi Mugqivela.
+
+Holobyenkulu Petteri Orpo u vula leswaku tiko ra Finland ri lava ku tiyisisa vuhlayiseki bya le ndzilakaneni. Hi yona mhaka leyi switichi swa le ndzilakaneni swi pfariweke.
+
+Hi nkarhi wa ku wa, vakomberi vo tala va vutumbelo ku tlula hi ntolovelo va fike etindhawini to tsemakanya ndzilakano eDzonga-vuxa bya Finland. Vakomberi va vutumbelo va huma ematikweni yo tala va ta endzilakaneni wa Finland hi ku tirhisa Rhaxiya. A va nga ri na maphepha lawa, lama lavekaka loko u ta eFinland u huma eRhaxiya.
+
+### Ku pfumaleka ka mintirho
+
+![Ku pfumaleka ka mintirho ku ya ku andza. Xifaniso xa xifaniso. Xifaniso: Tiina Jutila / Yle](https://ku.q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+
+Nhlayo ya vanhu lava nga tirhiki yi ta andza eFinland lembe leri. Leswi hi leswi Ndzawulo ya Vatirhi yi swi ringanyetaka.
+
+Vukorhokeri byi vula leswaku ku nga ri khale ku ta va na nhlayo ya vanhu lava hlongoriweke entirhweni ku fana na ya 2009. Eku sunguleni ka lembe leri taka, ku ta va na kwalomu ka 40,000 wa vatirhi lava hlongoriweke entirhweni.Ku hlongoriwa swi vula leswaku munhu u ta va a nga tirhi ku ringana nkarhi wo karhi ya, xikombiso, tin’hweti ta 3 kumbe tin’hweti ta 6.
+
+Ndzawulo ya Vatirhi yi ringanyeta leswaku ikhonomi ya le Finland yi ta antswisiwa hi 2025. Nakambe a ku ri ni mintirho yo tala hi nkarhi wolowo ku tlula sweswi.
+
+### Nandzu wa Dödspatrullen
+
+![Tikhoto ta Dödspatrulle 16.11.2023. Xifaniso: Marjatta Rautio / Yle](https://ku.q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+
+Nandzu lowu fambisanaka ni ntlawa wa swigevenga wa le Sweden wa Dödspatrullen wu sungule eHelsinki.
+
+27 wa vanhu va hehliwa ekhoto ya muganga. Muchuchisi u lava leswaku kwalomu ka vamangaleriwa hinkwavo va pfaleriwa ekhotsweni. 9 wa vahehliwa i vaaki va le Finland kasi 7 i vaaki va le Sweden. Vahehliwa lavan'wana hinkwavo i vaakatiko va matiko man'wana.
+
+Huvo leyi yi tirhana ni vugevenga bya swidzidzirisi. Maphorisa ma vula leswaku ntlawa wa swigevenga swa le xitarateni wa le Sweden wu ringete ku teka makete wa swidzidzirisi wa le Finland. Dödspatrullen i ntlawa wa swigevenga wa le xitarateni wa le Sweden lowu nga ni madzolonga lowu endlaka vugevenga byo tala bya swidzidzirisi.
+
+### Maxelo
+
+![ Xifaniso: Laura Tuomola / Yle](https://ku.0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4) Xitsonga xitsonga xitsonga xitsonga xitsonga xitsonga xitsonga.
+
+Mundzuku, hi Ravuntlhanu, dyambu ri ta voninga edzongeni ni le n’walungwini. Ku ni mapapa exibakabakeni exikarhi ka misava. Maxelo ma ni ritshuri, kambe ku nga ha va ni gambokonyana eribuweni ra le vupela-dyambu.
+
+Mahiselo ya le tlhelo ra xirhami etikweni hinkwaro. Lexi titimelaka ngopfu xi le Lapland.

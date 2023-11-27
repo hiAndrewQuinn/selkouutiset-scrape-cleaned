@@ -1,0 +1,55 @@
+## Radio \| Berita yang jelas \| Isnin 20 November 2023
+
+Pencari suaka di sempadan timur. Harga elektrik. tadika. Cuaca.
+
+### Pencari suaka di sempadan timur
+
+![Profesor Maciej Duszczyc telah belajar imigresen. Foto: Anna Karismo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dprq_auto:eco/f_auto/fl_lossy/v1700423531/39-1203119655a67178e33b)
+
+Rusia boleh mengarahkan lebih ramai pencari suaka ke sempadan Finland. Inilah yang diberi amaran oleh profesor Poland **Maciej Duszczyc**.
+
+Profesor itu mengatakan bahawa Finland mesti bersedia untuk situasi sukar di sempadan timur, iaitu sempadan antara Finland dan Rusia.
+
+Di Eropah, sebagai contoh, 100 pencari suaka sehari datang dari timur ke sempadan Poland.
+
+Pada petang Isnin, pencari suaka datang ke stesen sempadan Salla di Finland Utara, yang dibuka.
+
+Para pencari suaka adalah lelaki, wanita dan kanak-kanak Syria dan Afghanistan.
+
+Pada hujung minggu, Finland menutup empat lintasan sempadan kerana Rusia telah mula mengarahkan pencari suaka ke sempadan.
+
+Penyelidik mengatakan bahawa ini adalah cara Rusia mahu mencipta gangguan di Finland.
+
+Pada bulan November, lebih daripada 500 pencari suaka telah datang ke Finland melalui sempadan timur.
+
+### Harga elektrik
+
+![Elektrik mahal pada hari Selasa. Foto: Alamy / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_467/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dqpr_1200/dqpr_au.:eco/f_auto/fl_lossy/v1691842960/39-106121063c8f48238bcf)
+
+Harga elektrik akan naik banyak pada hari Selasa. Lebih-lebih lagi petang Selasa, elektrik mahal. Harga akan kekal tinggi untuk seketika.
+
+Terdapat sekurang-kurangnya dua sebab untuk harga elektrik yang tinggi. Yang pertama ialah cuaca tenang dan turbin angin menghasilkan sedikit tenaga elektrik
+
+Sebab lain ialah loji kuasa nuklear Olkiluoto mengalami kerosakan pada hari Ahad. Disebabkan oleh kerosakan itu, loji tenaga nuklear menghasilkan kurang tenaga elektrik daripada biasa.
+
+Percubaan sedang dibuat untuk menyelesaikan masalah di loji tenaga nuklear dengan cepat. Loji tenaga nuklear mungkin akan beroperasi seperti biasa pada hari Selasa.
+
+### Tadika
+
+![Pengasuh Anastassia Afanasjeva di sebuah tadika di Helsinki. Foto: Jari Kovalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_134/ar_1.7777777777777777,c_fill,g_faces,h_670,/w_pr_1.q_auto:eco/f_auto/fl_lossy/v1700133967/39-12015336555f596ca4eb)
+
+Ramai pendatang bekerja di pusat jagaan hari ini. Ramai daripada mereka baru belajar bahasa Finland
+
+Terdapat banyak pekerjaan yang dibuka di pusat asuhan kerana tidak cukup pekerja.
+
+Lebih ramai pekerja diperlukan di tadika di seluruh Finland.
+
+Guru tadika mengatakan bahawa di tadika anda perlu mempunyai penguasaan bahasa Finland yang agak baik. Tanpa kemahiran bahasa, sukar untuk bekerja dengan kanak-kanak.
+
+### Cuaca
+
+![ Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dq_au.:eco/f_auto/fl_lossy/v1700492173/39-1203681655b7364e6c83)
+
+Cuaca sejuk pada hari Selasa.
+
+Ia mungkin salji sedikit. Suhu adalah antara 0 dan -15 darjah. Di Lapland, suhu adalah antara -10 dan -35 darjah.

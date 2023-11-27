@@ -1,0 +1,51 @@
+## Radio \| Lajme të qarta \| e mërkurë 22 nëntor 2023
+
+Kufiri lindor. Kerkuesit e azilit. Besimi i qeverisë. Alkooli dëmton. Parashikim.
+
+### Forcimi i kufirit lindor
+
+![Kufiri lindor është përforcuar, për shembull, me barriera me tela me gjemba. Foto: Ari Haimakainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_157/ar_1.777777777777777,c_fill,g_501,wh_1q_auto:eco/f_auto/fl_lossy/v1700489748/39-1203622655b691ed016a)
+
+Finlanda forcon kufirin lindor me barriera. Qëllimi është të parandalohen njerëzit që të hyjnë në Finlandë pa leje nga Rusia.
+
+Rusia ka sjellë njerëz në kufi, të cilët Rusia i dërgon në anën finlandeze. Për këtë arsye ndërtohen barriera në dhe pranë pikave kufitare.
+
+Gardhe po ndërtohen të paktën rreth stacioneve kufitare Salla, Kuusamo dhe Vartius.
+
+Finlanda pranon azilkërkuesit në kufirin lindor vetëm në stacionet kufitare Salla dhe Vartius. Finlanda ka mbyllur pikat kufitare të Finlandës Juglindore.
+
+### Pikat e kalimit kufitar
+
+![Azilkërkuesit të mërkurën në stacionin kufitar të Sallës. Foto: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_429/ar_1.777777777777777,c_fill,g_501,0d_1q_auto:eco/f_auto/fl_lossy/v1700655653/39-1204918655df1f3cef50)
+
+Qeveria po përgatit mënyra të reja për të kufizuar trafikun në pikat kufitare.
+
+Të martën, zv.kancelarja e drejtësisë mohoi planin që po përgatitte qeveria. Plani nuk është bërë publik sepse plani është në zhvillim e sipër. Plani ndoshta kufizoi shumë mundësinë e aplikimit për azil në Finlandë.
+
+Qeveria tani po përgatit një propozim të ri për të parandaluar hyrjen e njerëzve në Finlandë pa leje nga kufiri lindor.
+
+Finlanda ka kërkuar gjithashtu ndihmë nga Frontex, Agjencia Evropiane e Rojës Kufitare dhe Bregdetare. Finlanda kërkon që Frontex të dërgojë 60 zyrtarë në Finlandë për të ndihmuar për shkak të situatës në kufirin lindor.
+
+![Qeveria fitoi besimin e parlamentit. Foto: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3983,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_1200q_auto:eco/f_auto/fl_lossy/v1696934704/39-118409465252a7d6dc9d)
+
+Qeveria ka fituar besimin e parlamentit në votimin e pyetjeve të ndërmjetme.
+
+Pyetja e ndërmjetme është bërë nga partitë opozitare SDP, të Gjelbrit dhe Aleanca e Majtë. Ata thonë se shkurtimet e qeverisë synojnë shumë të rinj dhe studentë.
+
+Qeveria mori besimin e parlamentit me votën 96-76. Shumica e parlamentit i beson qeverisë. Kjo është arsyeja pse qeveria mund të vazhdojë të punojë.
+
+### Dëmet e alkoolit
+
+![Dëmet e alkoolit i kushtojnë shumë shoqërisë. Foto: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2944,w_5235,x_0,y_312/ar_1.7777777777777777,c_fill,g_faces,h_120,h_120,h_120,h_120.q_auto:eco/f_auto/fl_lossy/v1700406169/39-1203003655a1febe291f)
+
+Dëmet e alkoolit shkaktojnë shumë kosto për shoqërinë finlandeze.
+
+Universiteti Aalto ka studiuar kostot e dëmtimit të alkoolit. Dëmet e alkoolit i kushtuan shoqërisë së paku 1.4 miliardë euro vitin e kaluar. Shpenzimet vijnë nga vdekjet e lidhura me alkoolin, trajtimi i sëmundjeve të lidhura me alkoolin, krimet dhe paaftësia.
+
+Përveç kësaj, punëdhënësit pësuan 500 milionë euro humbje financiare vitin e kaluar për shkak të dëmit të shkaktuar nga alkooli. Punëdhënësi bën shpenzime, për shembull, nëse punonjësi nuk është në gjendje të punojë.
+
+### Moti
+
+![Moti ftohet, kështu që temperatura rritet.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_50,w_20,h_1/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700671048/39-1205140655e2e229bced)
+
+Bie shumë borë gjatë natës. Në perëndim do të bjerë borë deri në 20 cm vende-vende. Bora do të ndalet gjatë natës në pjesën perëndimore. Temperatura në jug është ndërmjet 0 dhe +2 gradë. Në veri, kryesisht ndërmjet -4 dhe -7 gradë. Era në vende është e fortë.

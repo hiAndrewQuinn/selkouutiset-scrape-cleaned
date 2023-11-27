@@ -1,0 +1,59 @@
+## Radijas \| Aiškios naujienos \| 2023 m. lapkričio 21 d., antradienis
+
+Šnipinėjimas. Situacija rytinėje pasienyje. Nacionalinė opera. Orai.
+
+### Šnipinėjimas
+
+![ Nuotrauka: Eeva Sarlin / Yle, AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_562,w_1000,x_0,y_32/ar_1.7777777777777777,c_fill,g_faces/,h_675,h_675dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700569701/39-1204215655ca2203557b)
+
+Rusija tikriausiai šnipinėja suomių ryšius. Taip teigia „Yle“ gauta informacija.
+
+Rusija Šnipinėja duomenų srautą, kuris keliauja per palydovus.
+
+Rusija kosmose turi savo palydovus, kuriuos naudoja šnipinėjimui.
+
+Informacija apie Rusijos šnipinėjimą nėra visiškai tikra. Suomijos gynybos pajėgos ir vyriausybė šio klausimo nekomentuoja.
+
+Ateityje Suomija stengsis atidžiau stebėti Rusijos palydovų veikimą.
+
+Suomijos vyriausybė planuoja įkurti naują centrą, kuris, be kita ko, galėtų stebėti palydovų veikimą.
+
+### Rytinės sienos padėtis
+
+![Žmonės atvyko į Salos pasienio stotį antradienį. Nuotrauka: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2515,w_4470,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6275,0/d_1275,0q_auto:eco/f_auto/fl_lossy/v1700575368/39-1203513655b5b4d432e9)
+
+Kelios dešimtys žmonių iš Rusijos antradienį atvyko į rytinę sieną, t. y. sieną tarp Suomijos ir Rusijos.
+
+Jie neturi reikiamų dokumentų, pavyzdžiui, vizos.
+
+Jie atvyko į Vartius pasienio stotį ir Salos pasienio stotį.
+
+Tyrėjai teigia, kad Rusija juos nukreipia į Suomiją, nes nori sutrikdyti Suomiją.
+
+Suomijos vyriausybė bando sustabdyti žmonių atvykimą prie rytinės sienos.
+
+Vyriausybė per dieną pareiškė, kad galbūt pavyks uždaryti daugiau pasienio stočių. Iki šiol Suomija uždarė keturis sienos kirtimo punktus.
+
+Rusija kritikuoja tai, kad Suomija uždarė pasienio stotis.
+
+Rusija teigia, kad uždarymas pakenks Suomijoje gyvenančių rusų gyvybėms.
+
+### Nacionalinė opera
+
+![Nacionalinės operos meno vadovas Thomas de Mallet Burgess. Nuotrauka: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_6201./d_pr1275,0q_auto:eco/f_auto/fl_lossy/v1699350873/39-1196938654a091844d91)
+
+Suomijos nacionalinė opera turi naują meno vadovą. Jis yra britas **Thomas de Mallet Burgess**.
+
+De Mallet Burgessas nori sukurti operą, kuri patiktų visiems žmonėms.
+
+Jis mano, kad opera nėra tik puikių žmonių muzika. Opera turi būti apie jį šiuolaikiniame amžiuje.
+
+Naujasis Nacionalinės operos meno vadovas Suomijoje gyvena tris mėnesius. Jis sako, kad Suomija jį nustebino.
+
+Nustebino tai, kad suomiai yra šilti ir linksmi žmonės. Užsienyje suomių reputacija ne tokia.
+
+### Oras
+
+![ Nuotrauka: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675/d_prq_1200/d_prq_10.:eco/f_auto/fl_lossy/v1700579363/39-1204521655cc80468754)
+
+Trečiadienį į Suomiją iš vakarų atkeliaus pūga. Temperatūra nuo 0 iki -10 laipsnių. Rytuose šalčiau.

@@ -1,0 +1,55 @@
+## Útvarpsfréttir sunnudaginn 12. nóvember 2023
+
+Landamæraeftirlit frá Rússlandi. Öryggi í þéttbýli. Ógreidd námslán. Feðradagur. Veður.
+
+### Landamæraeftirlit frá Rússlandi til Finnlands
+
+![Finnland er undirbúið fyrir breytingar á stöðu landamæraöryggismála, segir Mari Rantanen innanríkisráðherra. Mynd: Mikko Savolainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2720,w_4836,x_0,y_450/ar_1.7777777777777777,c_fill,g_faces,h_670,./rp_670,.0q_auto:eco/f_auto/fl_lossy/v1695988171/39-11790926516b884859ee)
+
+Fleiri en venjulega hafa komið til suðausturlandamæra Finnlands frá Rússlandi án vegabréfsáritunar.
+
+Þeir eru ríkisborgarar þriðju landa sem hafa notað Rússland til flutnings. Um 100 þeirra hafa komið haustið, þeir hafa sótt um hæli í Finnlandi við landamærin.
+
+Hingað til hafa rússnesk yfirvöld ekki leyft aðgang að finnsku landamærunum án vegabréfsáritunar. Landamæragæslan segir að aðgerðir Rússlands hafi einkenni blendingsáhrifa. Í blendingsáhrifum reynir eitt ríki að hafa áhrif á kerfi annars ríkis.
+
+Ólöglegir innflytjendur hafa komið að landamærunum á reiðhjólum í vikunni. Nú hefur landamæravörðurinn komið í veg fyrir að reiðhjól fari inn í Finnland.
+
+### Öryggi borga
+
+![Öryggisástandið í Tampere hefur versnað meira en í Helsinki undanfarin 10 ár. Mynd: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2687,w_4777,x_1,y_258/ar_1.7777777777777777,c_fill,g_faces,h_6270,wdpr.0dpr.q_auto:eco/f_auto/fl_lossy/v1699517677/39-1197321654a95de6dbe7)
+
+Öryggi hefur versnað í stórborgum Finnlands.
+
+Yle safnaði gögnum frá 10 stærstu borgunum. Truflanavísitalan sýnir að öryggi hefur versnað sérstaklega í Espoo og Tampere. Vísitalan segir til um hversu margir grunaðir glæpir voru skráðir á opinberum stöðum. Vísitalan er tengd fjölda íbúa.
+
+Jouni Perttula, öryggisstjóri Tampere-borgar, segir að orsakir óöryggis séu til dæmis vímugjafar, geðræn vandamál og ör fólksfjölgun.
+
+### Námslán
+
+![Bakgrunnur skuldaerfiðleikanna er einnig námsstyrkjaumbætur 2017. Hægt væri að taka lánið út fyrir 650 evrur á mánuði í stað fyrrum 400 evra. Mynd: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_557/ar_1.7777777777777777,c_fill,g_faces,h_6270,0dprq_auto:eco/f_auto/fl_lossy/v1694583672/39-1171262650149d3dfd0c)
+
+Kela þarf að innheimta metupphæð af námslánum frá námsmönnum sem námsmaðurinn hefur ekki greitt. Kela hefur safnað skuldum á þessu ári þegar þrisvar sinnum meira en í fyrra. Söfnun Kela hefur nú þegar meira en 72 milljónir evra í námslánum.
+
+Í Finnlandi fá námsmenn ekki aðeins námsstyrk heldur einnig námslán. Lánið er á ábyrgð ríkisins, eða í raun Kela.
+
+Ef námsmaður getur ekki greitt lánið upp greiðir Kela það til banka. Eftir það byrjar Kela að innheimta skuldina hjá skuldara, þ.e.a.s. nemandanum.
+
+Bakgrunnurinn er til dæmis sú að námsframfærsla er háðari námslánum en áður. Auk þess gera háir vextir og verðbólga erfitt fyrir fjárhag námsmanna.
+
+### Feðradagur
+
+![Hugmyndin um feðradag þróaðist í Bandaríkjunum vegna mæðradagsins. Seint á fjórða áratug síðustu aldar lögðu norrænir kaupmenn upp á annan sunnudag í nóvember sem dag þegar enn er rólegt í verslunum fyrir jólin.](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1510307500/561-4f)
+
+Feðradagurinn var haldinn hátíðlegur á sunnudaginn.
+
+Feðradagurinn er alltaf annan sunnudag í nóvember. Feðradagurinn hefur verið opinber fánadagur í Finnlandi síðan 2019. Hann hefur verið staðfestur fánadagur síðan á níunda áratugnum.
+
+Það eru 1,3 milljónir feðra í Finnlandi, segir Hagstofan.
+
+### Veður
+
+![ Mynd: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_pr_1200.0/pr_1200.:eco/f_auto/fl_lossy/v1699803736/39-11995176550f22164d93)
+
+Kalt loft fer að streyma úr norðri til Finnlands. Dálítil snjókoma getur enn orðið á mánudag sunnan- og austanlands.
+
+Hiti er mínus yfir daginn einnig við suðurströndina. Fyrir norðan frystir í nótt og á morgun 15\...25 stig, sums staðar jafnvel meira.

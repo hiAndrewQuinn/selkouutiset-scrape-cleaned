@@ -1,0 +1,48 @@
+Xiya-ni-moya \| Mahungu lama nga erivaleni \| Sonto wa ti 26 Nyenyankulu 2023
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Vakomberi va vutumbelo. Holobyenkulu Orpo. Israyele. Mavoni ya le n’walungwini. Maxelo.
+
+### 3 wa vakomberi va vutumbelo ku suka eRaja-Joosep
+
+![Xitichi xa ndzilakano xa Raja-Joosepi lexi tekiweke xifaniso hi ti 24 ta Nyenyankulu 2023. Xifaniso: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.77777777777777777,c_fill,g_swikandza,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700842179/39-120631365609f1502057)
+
+Hi Sonto, vakomberi va vutumbelo va 3 lava humaka eRhaxiya va tile eFinland. Vavanuna lava va tsemakanye ndzilakano nimadyambu. Hi Mugqivela, vanhu va 55 lava humaka eRhaxiya va tile exitichini xa le ndzilakaneni xa Raja-Joosepi xa le Inari.
+
+Sweswi Raja-Jooseppi hi yona ntsena ndhawu yo tsemakanya ndzilakano endzilakaneni wa le vuxeni bya Finland leyi pfulekeke. Tindhawu tin’wana to tsemakanya mindzilakano ti pfariwile hikuva tiko ra Rhaxiya ri kongomisa vanhu lava humaka ematikweni man’wana va ya eFinland.
+
+### Awara ya mbulavurisano wa Holobyenkulu
+
+![Holobyenkulu Petteri Orpo u lunghiselele nkarhi wa mbulavurisano wa holobyenkulu wa Yle eKesäranta eHelsinki hi ti 26 ta Nyenyankulu 2023. Xifaniso: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2772,w_4928,x_0,y_207/ar_1.77777777777777777,c_fill,g_swikandza,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701000739/39-1206810656335ccb839) .
+
+Holobyenkulu Petteri Orpo u vula leswaku tiko ra Finland ri ehleketa ku pfala ndzilakano wa le vuxeni hi ku helela. Orpo u vule hi nkarhi wa mbulavurisano wa Yle na Holobyenkulu leswaku mfumo wu nga teka magoza lamantshwa loko tiko ra Russia ri rhumela vakomberi vo tala va vutumbelo eFinland.
+
+Holobyenkulu Petteri Orpo u kandziyisa leswaku ntirho wa nkoka swinene wa mfumo i ku khathalela vuhlayiseki bya Finland.
+
+### Israel na Hamas
+
+![Movha wa Xihambano xo Tshwuka xa Matiko ya Misava lowu rhwaleke vabohiwa va Israel lava ntshunxiweke hi Hamas wu tsemakanya ndhawu yo tsemakanya ndzilakano wa Rafah loko wu ri endleleni yo ya eEgypt hi ti 24 ta Nyenyankulu 2023. Xifaniso: Mohammed Abed / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2079,w_3696,x_0,y_366/ar_1.77777777777777777,c_fill,g_swikandza,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700849015/39-12064636560e4e1a0ebe) .
+
+Israyele ni nhlangano wa matherorisi lowu vuriwaka Hamas va ntshunxe vabohiwa. Hamas yi ntshunxe 13 wa vabohiwa va le Israel na vaaki vo hlayanyana va matiko man'wana hi Mugqivela nimadyambu. Israyele ri ntshunxe vabohiwa va 39 va le Palestina.
+
+Israel na Hamas va kunguhata ku ntshunxa vabohiwa van’wana endzhaku ka nkarhi hi Sonto kumbe hi Musumbhunuku. Israel na Hamas khale va pfumelelanile leswaku havumbirhi bya vona va ta ntshunxa vabohiwa. Hi nkarhi lowu fanaka, Israel na Hamas va pfumelelanile leswaku ku ta va na ku yimisiwa ka nyimpi ko koma eGaza.
+
+Hamas yi hlasele Israyele hi October naswona yi teke vanhu va kwalomu ka 240 va khomiwile. Nhlayo ya vanhu va kwalomu ka 1 400 va file eka nhlaselo wa Hamas. Endzhaku ka leswi, Israyele ri sungule nyimpi eGaza.
+
+### Mavoni ya le n'walungwini
+
+![Aurora borealis eVihti. Xifaniso: Bhabishya Gurung](https://ku.Swifaniso.Cdn.yle.fi/xifaniso/kulayicha/c_crop,h_360,w_640,x_0,y_443/ar_1.777777777777777,c_fill,g_swikandza,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700996219/39-120676065630ab4cbda3) Ndzi ta ku nyika yini?
+
+Mavoni ya le n’walungwini a ma vonaka exibakabakeni hi vusiku exikarhi ka Mugqivela na Sonto. Mavoni ya le n’walungwini a ma vonaka ni le dzongeni wa Finland. Mavoni ya le n’walungwini ma nga ha tlhela ma vonaka exibakabakeni nivusiku exikarhi ka Sonto na Musumbhunuku.
+
+Mavoni ya le n’walungwini i swivumbeko swa ku vonakala leswi nga voniwaka exibakabakeni. Mavoni ya le n’walungwini ya tala ku va ya rihlaza, kambe minkarhi yin’wana ya tlhela ya va yo tshwuka kumbe ya wasi. Mavoni ya le n’walungwini ya tumbuluxiwa loko swiphemuphemu leswi humaka eka Dyambu swi ba xibakabaka xa Misava.
+
+Yle u kombele vanhu leswaku va rhumela swifaniso swa mavoni ya le n’walungwini. Swifaniso swi kumeka eka inthanete eka yle.fi.
+
+### Maxelo
+
+![ Xifaniso: Elias Paakkanen / Yle](https://ku.0/q_auto:eco/f_auto/fl_lossy/v1701007097/39-120685165634edcb0ac7) Xitsonga xitsonga xitsonga xitsonga xitsonga xitsonga xitsonga xitsonga xitsonga.
+
+Vuprofeta bya maxelo byi vula leswaku ku ta na gamboko nyana etindhawini tin’wana. Ku nga ha va ni gamboko yo tala eribuweni ku tlula etindhawini tin’wana ta le Finland.
+
+Mahiselo ya kona ya le xikarhi ka -7 na -20 degrees. Le Lapland, xirhami xi le xikarhi ka 15 na 25 wa tidigri.

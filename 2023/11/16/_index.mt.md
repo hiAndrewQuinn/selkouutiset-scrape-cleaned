@@ -1,0 +1,45 @@
+## Radju Selkouutiset il-Ħamis 16 ta’ Novembru 2023
+
+Stazzjonijiet tal-fruntiera magħluqa. Qgħad. Il-proċess ta' Dödspatrullen. Temp.
+
+### Stazzjonijiet tal-fruntiera magħluqa
+
+![L-istazzjonijiet tal-fruntiera ta' Imatra, Niirala, Nuijamaa u Vaalimaa se jingħalqu. Ritratt: Laura Merikalla / Yle u Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.777777777777777,c_fill,_12_faces,_12_face/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
+
+Il-Finlandja tagħlaq ħafna qsim tal-fruntieri fuq il-fruntiera tal-Lvant.
+
+Il-gvern iddeċieda li l-istazzjonijiet tal-fruntiera ta’ Imatra, Niirala, Nuijamaa u Vaalimaa se jingħalqu fil-lejl ta’ bejn il-Ġimgħa u s-Sibt. Wara dan, l-ebda traffiku ma jgħaddi minn dawn l-istazzjonijiet tal-fruntiera. L-istazzjonijiet tal-fruntiera jingħalqu mill-inqas sa nofs Frar.
+
+Fuq il-fruntiera tal-Lvant, il-qsim tal-fruntiera Vartius, Salla, Kuusamo u Raja-Joosepi biss se jkunu miftuħa mis-Sibt.
+
+Il-Prim Ministru Petteri Orpo jgħid li l-Finlandja trid tiżgura s-sigurtà tal-fruntieri. Huwa għalhekk li l-istazzjonijiet tal-fruntiera huma magħluqa.
+
+Matul il-ħarifa, aktar persuni li jfittxu l-ażil mis-soltu waslu fil-punti tal-qsim tal-fruntiera fix-Xlokk tal-Finlandja. Dawk li jfittxu l-ażil ġew minn ħafna pajjiżi lejn il-fruntiera Finlandiża permezz tar-Russja. Ma kellhomx il-karti magħhom, li huma meħtieġa meta jiġu l-Finlandja mir-Russja.
+
+### Qgħad
+
+![Il-qgħad qed jiżdied. Stampa tal-illustrazzjoni. Ritratt: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_670/0,d_r1201.q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+
+In-numru ta’ nies qiegħda se jiżdied fil-Finlandja din is-sena. Dan huwa dak li jistma l-Ministeru tax-Xogħol.
+
+Il-ministeru jg[id li dalwaqt se jkun hemm l-istess numru ta’ nies laid-off b[al fl-2009. Fil-bidu tas-sena d-die[la, se jkun hemm kwa]i 40,000 [addiem laid-off.Lay-off ifisser li persuna tkun bla xog[ol g[al perijodu. ta’, pereżempju, 3 xhur jew 6 xhur.
+
+Il-Ministeru tax-Xogħol jistma li l-ekonomija Finlandiża se titjieb fl-2025. Dakinhar kien hemm ukoll aktar impjiegi minn issa.
+
+### Prova Dödspatrullen
+
+![Dödspatrulle qrati 16.11.2023. Ritratt: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_670/0d_1201/0,w_1201.q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+
+F'Ħelsinki bdiet proċess relatat mal-gang Żvediż Dödspatrullen.
+
+27 persuna huma akkużati fil-qorti tad-distrett. Il-prosekutur jitlob priġunerija għal kważi l-akkużati kollha. 9 mill-akkużati huma ċittadini Finlandiżi u 7 huma ċittadini Żvediżi. Il-kumplament tal-akkużati huma ċittadini ta’ pajjiżi oħra.
+
+Il-qorti tittratta r-reati tad-droga. Il-pulizija tgħid li gang tat-toroq Żvediża ppruvat tieħu f’idejha s-suq Finlandiż tad-droga. Dödspatrullen hija gang tat-toroq Svediża vjolenti li tikkommetti ħafna reati tad-droga.
+
+### It-temp
+
+![ Ritratt: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,/w_p1_201.0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
+
+Għada l-Ġimgħa, ix-xemx tiddi fin-nofsinhar u fit-tramuntana. Hemm sħab fis-sema fin-nofs tad-dinja. It-temp huwa trab, iżda jista 'borra ftit fuq il-kosta tal-punent.
+
+It-temperatura hija fuq in-naħa tal-friża madwar il-pajjiż. L-iktar kesħin jinsab fil-Lapland.

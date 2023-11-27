@@ -1,0 +1,49 @@
+## Radio \| Čiste novice \| Četrtek, 23. november 2023
+
+vzhodna meja. Frontex. Migrantski centri. Diskriminacija. Napoved.
+
+### Stanje na mejnih prehodih
+
+![Raja-Jooseppi je najsevernejši mejni prehod na vzhodni meji. Ostali mejni prehodi so zaprti. Foto: Miku Huttunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3216,w_5712,x_0,y_421/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700751077/39-1205645655f665a86285)
+
+Finska zapira več mejnih prehodov na vzhodni meji. Razlog so migranti, ki jih Rusija pošilja na finsko mejo.
+
+Danes, v četrtek, bodo zaprte mejne postaje Vartius, Kuusamo in Salla. Odprt ostaja le en mejni prehod Raja-Jooseppi. Raja-Jooseppi je najsevernejša mejna postaja. Že prejšnji konec tedna je Finska zaprla mejne prehode jugovzhodne Finske.
+
+Finska upa, da se bo prihod migrantov ustavil, ko bo odprta samo ena mejna postaja, ki je na skrajnem severu.
+
+### Frontexova pomoč finski mejni straži
+
+![Frontex pošilja mejne straže in opremo na Finsko. Foto: Pauliina Tolvanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1663055873/39-100697563203716d9ecd)
+
+Finska prejema pomoč Evropske mejne straže Frontex za nadzor vzhodne meje. Frontex pošlje 50 ljudi na Finsko za pomoč pri nadzoru vzhodne meje. Na Finsko pridejo naslednji teden.
+
+Finska je zaradi razmer na vzhodni meji za pomoč zaprosila Frontex. Frontex na Finsko prinaša tudi tehnično opremo za nadzor vzhodne meje. Frontex na Finsko pripelje na primer patruljne avtomobile.
+
+Novembra je na Finsko z vzhodne meje prišlo več kot 700 prosilcev za azil.
+
+### Vzpostavitev organizacijskih centrov
+
+![Minister za notranje zadeve Mari Rantanen je v četrtek dejal, da se Finska pripravlja na vzpostavitev organizacijskih centrov. Slika: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700721586/39-1205201655eed1e81849)
+
+Finska vzpostavlja centre za obdelavo migrantov, ki pridejo na Finsko z vzhodne meje. Tako pravi notranji minister **Mari Rantanen**.
+
+Identiteto migrantov in razlog, zakaj so prišli na Finsko, ugotovijo v procesnih centrih. Migranti morajo ostati v organizacijskih centrih do registracije. Namen je, da lahko oblasti nadzorujejo migrante.
+
+Notranji minister Rantanen pravi, da so migrantski centri potrebni, ker Finska ne ve, kdo so novi prišleki. Ministrstvo za notranje zadeve pripravlja uredbo o organizaciji centrov.
+
+### Doživljanje hrupa
+
+![Diskriminacija lahko temelji na na primer spolu, starosti ali videzu. Foto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_110/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700718446/39-1205193655ee719688c7)
+
+Veliko mladih žensk se sooča z diskriminacijo v poklicnem življenju. Ministrstvo za zdravje in socialno varstvo je Fince vprašalo o diskriminaciji.
+
+Približno 20 odstotkov mladih žensk je med letom doživelo diskriminacijo pri delu ali pri iskanju zaposlitve. V študiji mlade ženske pomenijo ženske, stare od 20 do 39 let. 16 odstotkov vseh žensk je izkusilo diskriminacijo in 11 odstotkov vseh moških je izkusilo diskriminacijo.
+
+Veliko Fincev doživlja tudi osamljenost. Približno 10 odstotkov Fincev občuti osamljenost. Osamljenost se je v zadnjih letih povečala.
+
+### Vreme
+
+![V petek lahko na severu sije sonce.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700752778/39-1205671655f6d69ed984)
+
+Ponoči obilno sneži na jugu in zahodu ter v Ostrobothniji. V petek bo snežilo v južnih in osrednjih krajih države. Na severu včasih lahko posije sonce. Temperatura na jugu in zahodu države je med -5 in 0 stopinjami, na vzhodu in severu med -5 in -15 stopinjami.

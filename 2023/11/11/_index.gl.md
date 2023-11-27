@@ -1,0 +1,59 @@
+## Radio claras noticias sábado 11.11.2023
+
+Coroa. Tik Tok. Amigos masculinos. Día do nariz. Tempo.
+
+### Coroa
+
+![Médico xefe de enfermidades infecciosas HUS Asko Järvinen. Foto: Paavo Jantunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3027,w_5382,x_0,y_311/ar_1.7777777777777777,c_fill,g_faces,h_6705,w_1205,w_1201.q_auto:eco/f_auto/fl_lossy/v1699692578/39-1199235654f3bb0eba14)
+
+Un experto en coroa di que os cidadáns non teñen que preocuparse, aínda que agora o risco de infección é alto en Finlandia. Asko Järvinen, médico xefe de enfermidades infecciosas, di que a protección das vacinas e da corona infectada é boa.
+
+O novo virus da corona tipo EG5, ou Eris, causa unha enfermidade que se asemella máis á gripe que antes. A febre aínda pode ser grave.
+
+O profesor de coidados intensivos Matti Reinikainen di que a tendencia é, con todo, preocupante. Actualmente, hai un total de case 30 pacientes en coidados intensivos por mor do corona virus. É tanto como na primavera e no inverno de 2022 durante a pandemia. Nunha pandemia, a enfermidade estendeuse por todo o mundo.
+
+### Tik Tok
+
+![Yle utilizou a intelixencia artificial para crear un perfil dunha nena de 13 anos deprimida en Tiktok. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2955,w_5255,x_371,y_789/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/autofq_auto_1200/0fq_auto/0fq_autofl_lossy/v1697625813/39-1187987652fb3e8a7ce7)
+
+O contido da aplicación de vídeo Tiktok pode comezar a empeorar a depresión sorprendentemente rapidamente, segundo a proba de Yle.
+
+Yle creou o perfil e a imaxe dunha nena deprimida de 13 anos en Tiktok coa axuda da intelixencia artificial. Tiktok comezou rapidamente a mostrar vídeos con contido relacionado coa depresión, a idealización da delgadez e ata o suicidio.
+
+O psicólogo líder da organización non gobernamental Mieli ry, Frans Horneman, asegura que os vídeos son prexudiciais para a saúde mental dos grupos vulnerables.
+
+Tiktok ten 1,5 millóns de usuarios en Finlandia. A maioría son mozos.
+
+Hai un artigo extenso sobre a proba en yle.fi.
+
+### Amigos masculinos
+
+![Nikodemus Nousiainen de Helsinki traballa como noivo dun neno de 7 anos. Foto: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_150/ar_1.7777777777777777,c_fill,g_faces,h_671,w_1205,w_1205,w_1201.q_auto:eco/f_auto/fl_lossy/v1699361417/39-1197061654a30293868a)
+
+A amizade dos homes necesita máis homes. Os amigos masculinos son amigos de fillos que non teñen relación co seu pai ou que teñen unha relación débil.
+
+Pienperheyhdistys organiza actividades de amigos de homes en 6 localidades. Participan uns 250 voluntarios.
+
+Uns 110.000 nenos viven coa súa nai, segundo Statistics Finland.
+
+Na maioría das veces, o neno e o amigo masculino reúnense de 2 a 4 veces ao mes. Os amigos deciden por si mesmos o que van facer nas reunións.
+
+Os voluntarios reciben 15 horas de formación.
+
+### Día do nariz
+
+![Os editores do programa das sete e media, Ella Kanninen e Mikko Kekäläinen, estiveron implicados en Nenäpäivä. Foto: Jari Pussinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.7777777777777777,c_fill,g_faces,h_671,w_r1201,w_1201.q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6)
+
+Nenäpäivä do venres en Yle TV1 recadou este ano máis de 1,6 millóns de euros en doazóns. Nenäpäivä é unha campaña benéfica da Fundación Nenäpäivä.
+
+Nose Day invita aos finlandeses a axudar aos nenos do mundo, que están na posición máis vulnerable.
+
+Aínda podes participar na recollida do Día do Nariz ata finais de ano.
+
+### Tempo
+
+![ Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1201/0dp_1200.:eco/f_auto/fl_lossy/v1699717391/39-1199335654fa0f0a84d5)
+
+O domingo, a choiva de auga será máis común no sur. As nevadas están a moverse no centro do país. A temperatura nas partes do sur é de 0 a -4 graos. No norte hai de -9 a -14 graos.
+
+O día fai bastante vento.

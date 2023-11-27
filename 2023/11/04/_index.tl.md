@@ -1,0 +1,61 @@
+## Radyo \| Malinaw na balita \| noong Sabado 4 Nobyembre 2023
+
+Mga buwis. Lindol sa Nepal. Ukraine. Gaza. Araw ng mga Santo. Pagtataya.
+
+### Kasiyahan sa pagbubuwis
+
+![Ang mga Finns ay masaya na nagbabayad ng buwis. Larawan: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3061,w_5443,x_0,y_226/ar_1.7777777777777777,c_fill,g_faces,h_6105,wdq_auto:eco/f_auto/fl_lossy/v1692510416/39-115736664dc9b0569c81)
+
+Ang karamihan ng mga Finns ay nasisiyahan sa pagbubuwis. Tinanong ng Tax Administration ang mga Finns kung ano ang palagay nila tungkol sa pagbabayad ng buwis.
+
+Mahigit sa 70 porsiyento ng mga Finns ay masaya na nagbabayad ng buwis.
+
+17 porsiyento lamang ng mga Finns ang nagsasabing ayaw nilang magbayad ng buwis. Gayunpaman, karamihan sa kanila ay may opinyon na dapat pa ring bayaran ang mga buwis.
+
+Ang kasiyahan sa pagbabayad ng buwis ay malinaw na tumaas sa nakalipas na 10 taon.
+
+### Lindol sa Nepal
+
+![Mga gumuhong bahay sa Jajarkot, Nepal. Larawan: Balkumar Sharma / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1350,w_2400,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_675/w_1200.q_auto:eco/f_auto/fl_lossy/v1699091137/39-1195827654612690580a)
+
+Isang malaking lindol ang nangyari sa Nepal. Naganap ang lindol sa kanlurang Nepal noong Biyernes ng gabi.
+
+Hindi bababa sa 150 katao ang namatay sa lindol. Maaaring tumaas ang bilang ng mga patay kapag nakakuha ng karagdagang impormasyon mula sa lugar. Marami na rin ang nasugatan sa lindol sa Nepal. Maraming mga gusali ang gumuho sa lindol.
+
+Nangyari ang lindol sa Nepal sa isang liblib na lugar. Kaya naman dahan-dahang dumarating ang impormasyon tungkol sa pagkasira.
+
+### Pagbisita ng Pangulo ng EU sa Ukraine
+
+![Nakipagpulong si Ursula von der Leyen kay Pangulong Volodymyr Zelensky sa istasyon ng tren ng Kyiv. Larawan: AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_3000,x_0,y_305/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dq_au:/f_auto/fl_lossy/v1699098434/39-119583265462e51258c1)
+
+Ang Pangulo ng European Commission **Ursula von der Leyen** ay bumisita sa Ukraine noong Sabado. Nakipagpulong si Von der Leyen kay Ukrainian President **Volodymyr Zelensky** sa kabisera, Kyiv.
+
+Si Von der Leyen ay nagsalita sa Ukraine, halimbawa, tungkol sa kung paano maaaring maging miyembro ng EU ang Ukraine balang araw.
+
+Nagsalita din si Von der Leyen tungkol sa suporta ng EU para sa Ukraine.
+
+### Ang sitwasyon sa Gaza
+
+![Ang Israel ay nagkonsentra ng mga welga ng militar sa hilagang bahagi ng Gaza. Larawan: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1121,w_1994,x_5,y_0/ar_1.7777777777777777,c_fill,g_faces,h_670/w_pr_121.q_auto:eco/f_auto/fl_lossy/v1699023208/39-1195711654506b2bc2d4)
+
+Umabot sa isang milyong tao ang lumipat mula Gaza patungo sa katimugang bahagi ng teritoryo dahil sa digmaan.
+
+Sinasabi ng mga eksperto na hindi bababa sa 800,000 katao ang nakapasok sa lugar, ngunit ang bilang ay maaaring kasing taas ng isang milyon. Ito ang sinasabi ng US Special Envoy para sa Middle East Humanitarian Aid.
+
+Ang mga welga ng Israeli air force at ground forces ay puro sa hilagang Gaza. Kaya naman tumakas ang mga tao sa timog. Mayroon pa ring humigit-kumulang 400,000 katao sa hilagang Gaza.
+
+### Araw ng mga Santo
+
+![Sa banal na araw, ang mga kandila ay dinadala sa mga libingan. Larawan: Leena-kaisa Laakso / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_435/ar_1.7777777777777777,c_fill,g_faces,h_1_675,.0/q_auto:eco/f_auto/fl_lossy/v1699101771/39-119586665463c1d71d1c)
+
+Ngayong Sabado ay All Saints' Day. Ang All Saints' Day ay mahalaga sa tradisyong Kristiyano. Ito ang araw ng pag-alala sa mga santo, martir at mga patay.
+
+Sa Araw ng mga Santo, inaalala natin ang mga malalapit na tao na namatay na. Sa All Saints' Day, ang mga kandila ay dinadala sa libingan ng mga mahal sa buhay. Naaalala ng mga simbahan ang mga parokyano na namatay mula noong huling Araw ng mga Santo.
+
+Ang All Saints' Day ay palaging ipinagdiriwang sa Finland tuwing unang Sabado ng Nobyembre.
+
+### Panahon
+
+![Ang Linggo ay maulap sa pangkalahatan.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,d_1_200./q_auto:eco/f_auto/fl_lossy/v1699111715/39-1195891654662ff4432c)
+
+Ang panahon ay kadalasang maulap at maulan. Sa timog-kanluran ng Finland, ang araw ay maaaring sumikat nang kaunti. Ang temperatura ay kadalasang nasa pagitan ng 3 at 8 degrees. Mas malamig sa hilagang Finland.

@@ -1,0 +1,67 @@
+## Radio\| Duidelijk nieuws \| maandag 13 november 2023
+
+Oostgrens van Finland. Toezicht door de politie. Zwembaden. Finse leraar van het jaar. Weer.
+
+### Oostgrens van Finland
+
+![De Finse autoriteiten houden de situatie aan de oostgrens van Finland in de gaten. Foto: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_171/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699859472/39-11996406551cb5a3d93a)
+
+Er zijn meer mensen naar de grens tussen Finland en Rusland gekomen, wier papieren niet in orde zijn. Ze hebben bijvoorbeeld geen visum voor Finland.
+
+Maandag zijn ruim twintig mensen zonder de benodigde papieren naar de grens gekomen. Tijdens de herfst zijn er al meer dan 100 aangekomen.
+
+Onder hen bevinden zich bijvoorbeeld burgers van Irak, Syrië, Jemen en Somalië. Ze zijn via Rusland naar de Finse grens gekomen, waar ze in Finland asiel hebben aangevraagd.
+
+Voorheen liet Rusland niemand zonder de benodigde papieren de Finse grens binnen. Het is niet zeker waarom de acties van Rusland zijn veranderd.
+
+Deskundigen schatten dat de reden hiervoor is dat Finland lid is geworden van de defensiealliantie NAVO. Rusland beschouwt de NAVO als zijn vijand.
+
+### Politietoezicht
+
+![De politie voert het toezicht in Helsinki op. Foto: Matias Väänänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5148,x_0,y_107/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697807957/39-11771286512a4e83c1e1)
+
+De politie verscherpt het toezicht in Helsinki.
+
+De monitoring zal de komende drie weken worden geïntensiveerd. De politie houdt vooral toezicht op plekken waar veel criminaliteit en ongeregeldheden voorkomen.
+
+In het openbaar vervoer, bijvoorbeeld in bussen en trams, is er meer controle dan gebruikelijk. Daarnaast houdt de politie toezicht op plekken waar jongeren samenkomen.
+
+De politie verscherpt het toezicht, vooral 's avonds en in het weekend. De politie wil dat mensen zich veilig voelen in Helsinki.
+
+### Veikkaus-banen
+
+![De banen raken op als Veikkaus bijvoorbeeld speelhallen sluit. Foto: Anne Savin / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1928,w_3427,x_567,y_428/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1633956464/39-86542961643200866ed)
+
+Gokbedrijf Veikkaus reduceert het personeelsbestand. Ongeveer 200 werknemers zullen hun baan verliezen.
+
+Lotto, krasloten en gokautomaatspellen zijn bijvoorbeeld Veikkaus-spellen.
+
+Veikkaus heeft nu besloten dat het eind dit jaar 19 speelhallen zal sluiten.
+
+Bovendien zal Veikkaus het casino van Tampere sluiten. Het casino werd pas 2 jaar geleden geopend in Tampere. De start van het casino was lastig vanwege de corona.
+
+### Finse leraar van het jaar
+
+![Finse leraar van het jaar Satu Lahtonen (midden) en studenten Mohamed Batraan Abdullahi en Osama Al-Sharif. Foto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2982,w_5300,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438785/39-1197531654b5ee49bf1f)
+
+Selkouutiset heeft de Finse Leraar van het Jaar Satu Lahtonen en de studenten van Lahtonen ontmoet.
+
+![ Foto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3153,w_5603,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438827/39-1197537654b5ee95baf1)
+
+![ Foto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197536654b5ee899b41)
+
+Satu Lahtonen geeft momenteel Finse taal, lezen en schrijven aan de Konepaja middelbare school voor volwassenen in Helsinki.
+
+![Happy begint met de letter i. Foto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
+
+Je kunt de groep van Lahtonen leren kennen in de tv-uitzending van Selkouutisten, te vinden op![yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link}. Er zijn ook foto's van de groep van Lahtonen op hetzelfde adres.
+
+### Weer
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699893163/39-119999365524f872df8f)
+
+Het is erg koud geweest in Lapland. Maandag vroeg was het op sommige plaatsen wel 27 graden.
+
+Dinsdag wordt het in het hele land kouder en in het oosten gaat het wat sneeuwen. Op plaatsen in het noorden is het helder.
+
+Dinsdag ligt de temperatuur tussen de 0 en -5 graden, in het noorden tussen de -10 en -20 graden.

@@ -1,0 +1,59 @@
+## Radio jasne vijesti Subota 11.11.2023
+
+Corona. Tiktok. Muški prijatelji. Nose day. Vrijeme.
+
+### Corona
+
+![Glavni doktor zaraznih bolesti HUS-a Asko Järvinen. Fotografija: Paavo Jantunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3027,w_5382,x_0,y_311/ar_1.7777777777777777,c_fill,g_faces,wd_1275,wd_16_0.q_auto:eco/f_auto/fl_lossy/v1699692578/39-1199235654f3bb0eba14)
+
+Stručnjak za koronu kaže da građani ne moraju da brinu, iako je rizik od infekcije sada visok u Finskoj. Asko Järvinen, glavni liječnik za infektivne bolesti, kaže da je zaštita od vakcinacije i zaražene koronom dobra.
+
+Novi korona virus tipa EG5, ili Eris, uzrokuje bolest koja više liči na gripu nego prije. Groznica i dalje može biti teška.
+
+Profesor intenzivne nege Matti Reinikainen kaže da je trend ipak zabrinjavajući. Trenutno je na intenzivnoj njezi gotovo 30 pacijenata zbog korona virusa. Toliko je koliko i u proljeće i zimu 2022. za vrijeme pandemije. U pandemiji, bolest se proširila širom svijeta.
+
+### Tiktok
+
+![Yle je koristio umjetnu inteligenciju da napravi profil depresivne 13-godišnje djevojčice na Tiktoku. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2955,w_5255,x_371,y_789/ar_1.7777777777777777,c_fill,g_faces,h_675,w_pr_f/120:fl_lossy/v1697625813/39-1187987652fb3e8a7ce7)
+
+Sadržaj video aplikacije Tiktok može početi da pogoršava depresiju iznenađujuće brzo, prema Yleovom testu.
+
+Yle je kreirao profil i sliku depresivne 13-godišnje djevojčice na Tiktoku uz pomoć umjetne inteligencije. Tiktok je brzo počeo da prikazuje video zapise sa sadržajem koji se odnosi na depresiju, idealizaciju mršavosti, pa čak i samoubistvo.
+
+Vodeći psiholog nevladine organizacije Mieli ry Frans Horneman kaže da su snimci štetni za mentalno zdravlje ranjivih grupa.
+
+Tiktok ima 1,5 miliona korisnika u Finskoj. Većina su mladi ljudi.
+
+Postoji opsežan članak o testu na yle.fi.
+
+### Muški prijatelji
+
+![Nikodemus Nousiainen iz Helsinkija radi kao dečko za 7-godišnjeg dječaka. Fotografija: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_150/ar_1.7777777777777777,c_fill,g2755,10_01_01_01q_auto:eco/f_auto/fl_lossy/v1699361417/39-1197061654a30293868a)
+
+Za muško prijateljstvo je potrebno više muškaraca. Muški prijatelji su prijatelji za djecu koja nemaju vezu sa ocem ili koja imaju slab odnos.
+
+Aktivnosti muških prijatelja organizira Pienperheyhdistys na 6 lokaliteta. Uključeno je oko 250 volontera.
+
+Oko 110.000 djece živi s majkom, kaže Finska statistika.
+
+Najčešće se dijete i prijatelj sastaju 2 do 4 puta mjesečno. Prijatelji sami odlučuju šta će raditi na sastancima.
+
+Volonteri imaju 15 sati obuke.
+
+### Dan nosa
+
+![Urednici programa u pola sedam, Ella Kanninen i Mikko Kekäläinen, bili su uključeni u Nenäpäivä. Foto: Jari Pussinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.7777777777777777,c_fill,g_faces,h_11_05q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6)
+
+Nenäpäivä u petak na Yle TV1 prikupio je više od 1,6 miliona eura donacija ove godine. Nenäpäivä je dobrotvorna kampanja Nenäpäivä fondacije.
+
+Nose Day poziva Fince da pomognu djeci svijeta, koja su u najranjivijem položaju.
+
+Još uvijek možete učestvovati u kolekciji Nose Day do kraja godine.
+
+### Vrijeme
+
+![ Fotografija: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_pr_12:eco/f_auto/fl_lossy/v1699717391/39-1199335654fa0f0a84d5)
+
+U nedjelju će na jugu sve češća kiša. Snježne padavine se kreću u centralnim dijelovima zemlje. Temperatura u južnim krajevima od 0 do -4 stepena. Na sjeveru je od -9 do -14 stepeni.
+
+Dan je dosta vjetrovit.

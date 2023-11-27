@@ -1,0 +1,61 @@
+## Redio \| Habari wazi \| Jumapili tarehe 5 Novemba 2023
+
+Ukarabati wa nishati. Uunganisho wa makampuni ya ice cream na Urusi. Jaribio la kombora la Urusi. Hali ya mateka wa Ujerumani. Mafuriko. Utabiri.
+
+### Usaidizi wa ukarabati wa nishati
+
+![Ruzuku ya nishati inaweza kutumika, kwa mfano, kwa mifumo mipya ya kupasha joto. Picha: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3349,w_5954,x_0,y_325/ar_1.777777777777777,c_fill,g_faces,w_675.q_auto:eco/f_auto/fl_lossy/v1676637402/39-107442463ef747ea1acd)
+
+Wataalam wana wasiwasi juu ya siku zijazo za ukarabati wa nishati. Jimbo litaacha kutoa ruzuku ya ukarabati wa nishati mwaka ujao.
+
+Usaidizi umekuwa maarufu. Msaada umepokelewa, kwa mfano, kwa ajili ya ujenzi wa joto la joto au kutengeneza muhuri wa nyumba. Ufanisi wa nishati ya nyumba umeboreshwa kwa msaada.
+
+Wasimamizi wa mali wanahofia kuwa ukarabati wa nishati ya nyumba utapungua kwa sababu ruzuku itaisha.
+
+### Muunganisho wa chapa za aiskrimu nchini Urusi
+
+![Baadhi ya chapa za aiskrimu zina uhusiano na Urusi. Picha: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_1_10,h_192,h_60,0_60,q_auto:eco/f_auto/fl_lossy/v1682321321/39-110323664462e3b6fb8b)
+
+Yle amechunguza uhusiano wa chapa za aiskrimu za Kifini na Urusi. Bidhaa zingine za ice cream zina uhusiano na Urusi.
+
+Kampuni nyingi kubwa za kimataifa bado zinafanya kazi nchini Urusi. Kampuni hizo hizo pia zinamiliki kampuni zinazotengeneza ice cream katika nchi zingine. Kwa mfano, makampuni makubwa ya kimataifa ya Nestle na Unilever yanamiliki bidhaa nyingi za aiskrimu nchini Ufini.
+
+Makampuni mengi yameondoka Urusi kwa sababu Urusi iko vitani nchini Ukraine. Nchi za EU hazipendi ukweli kwamba makampuni yanafanya kazi nchini Urusi. Umoja wa Ulaya umeiwekea Urusi vikwazo kutokana na vita hivyo.
+
+### Jaribio la kombora la Urusi
+
+![Rais wa Urusi Vladimir Putin. Picha: Mikhael Klimentyev / Sputnik / Kremlin Pool](https://images.cdn.yle.fi/image/upload/c_crop,h_4519,w_8034,x_16,y_238/ar_1.777777777777777fill_crop_10,777,8034,x_151.0/q_auto:eco/f_auto/fl_lossy/v1678982359/39-108632664133bfc2dc51)
+
+Urusi imefanya jaribio la kurusha kwa kombora la masafa marefu. Urusi inasema jaribio la kurusha kombora lilifanikiwa.
+
+Kombora la Bulava lina urefu wa mita 12. Kombora hilo linaweza kuruka takriban kilomita 8,000 na linaweza kubeba vichwa 6 vya nyuklia.
+
+Urusi ilirusha kombora la manowari kutoka Bahari ya Viennese.
+
+### Hali ya utekaji nchini Ujerumani
+
+![Njia ya kwenda uwanja wa ndege wa Hamburg ilifungwa kutokana na hali ya utekaji. Picha: Alama za Bodo / DPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2703,w_4806,x_0,y_500/ar_1.777777777777777,c_fill,g_faces,h_675/0.q_auto:eco/f_auto/fl_lossy/v1699181525/39-11959676547736ea1bc0)
+
+Kumekuwa na hali ya mateka kwa muda mrefu katika uwanja wa ndege wa Hamburg nchini Ujerumani.
+
+Hali hiyo ilianza Jumamosi jioni, wakati mtu mmoja aliendesha gari katika eneo la uwanja wa ndege na kupiga risasi hewani. Pia alitupa chupa 2 za petroli kutoka kwenye gari. Ndani ya gari hilo alikuwemo binti wa mtu huyo mwenye umri wa miaka 4, ambaye alikuwa mateka wa mtu huyo. Sababu ya matendo ya mwanamume huyo labda ilikuwa mzozo juu ya malezi ya mtoto.
+
+Uwanja wa ndege wa Hamburg ulifungwa na safari zote za ndege zilighairiwa. Hali hiyo ilikamilika Jumapili mchana wakati polisi walipomkamata mtu huyo. Uwanja wa ndege wa Hamburg ulifunguliwa kwa trafiki tena jioni.
+
+### Onyo la Mafuriko Ufini Magharibi
+
+![Barabara zinaweza kujaa maji mvua inaponyesha na theluji kuyeyuka haraka. Picha: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_218/ar_1.7777777777777777,c_fill,g_faces,w_61_1.q_auto:eco/f_auto/fl_lossy/v1697618867/39-11828126521489e76d51)
+
+Taasisi ya Hali ya Hewa ya Finland imetoa onyo la mafuriko kwa Ufini Magharibi. Sababu ni mvua kubwa. Kumekuwa na theluji katika eneo hilo, ambalo linayeyuka. Kwa kuongeza, kutakuwa na mvua mpya za maji.
+
+Maji mengi hutoka kwa theluji na mvua. Kwa hivyo, viwango vya maji vinaweza kuongezeka magharibi.
+
+Kwa mfano, mito inaweza mafuriko mashamba na barabara katika Kaskazini Finland, Pirkanmaa, Satakunta, Ostrobothnia na Ostrobothnia Kusini.
+
+### Hali ya hewa
+
+... f_auto/fl_lossy/v1699200945/39-11960206547bf95c98f5)
+
+Kuna mawingu Jumatatu. Mvua inanyesha au kunyesha katika sehemu za kusini na katikati mwa nchi. Katika kaskazini mwa Ufini, mvua huacha kunyesha wakati wa mchana.
+
+Joto wakati wa mchana ni kati ya digrii 0 na +8, Kaskazini mwa Lapland kati ya digrii 0 na -3.

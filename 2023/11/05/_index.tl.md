@@ -1,0 +1,61 @@
+## Radyo \| Malinaw na balita \| Linggo 5 Nobyembre 2023
+
+Mga pagsasaayos ng enerhiya. Koneksyon ng mga kumpanya ng ice cream sa Russia. pagsubok ng missile ng Russia. Ang sitwasyon ng hostage ng Aleman. Pagbaha. Pagtataya.
+
+### Suporta para sa mga pagsasaayos ng enerhiya
+
+![Maaaring gamitin ang mga subsidyo sa enerhiya, halimbawa, para sa mga bagong sistema ng pag-init. Larawan: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3349,w_5954,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_6105,/0.q_auto:eco/f_auto/fl_lossy/v1676637402/39-107442463ef747ea1acd)
+
+Nag-aalala ang mga eksperto tungkol sa kinabukasan ng mga pagsasaayos ng enerhiya. Ihihinto ng estado ang pag-subsidize sa mga renovation ng enerhiya sa susunod na taon.
+
+Naging popular ang suporta. Ang suporta ay natanggap, halimbawa, para sa pagtatayo ng geothermal heating o pag-aayos ng sealing ng mga bahay. Ang kahusayan ng enerhiya ng mga bahay ay napabuti sa suporta.
+
+Nangangamba ang mga tagapamahala ng ari-arian na mababawasan ang pagkukumpuni ng enerhiya ng mga bahay dahil matatapos na ang subsidy.
+
+### Koneksyon ng mga tatak ng ice cream sa Russia
+
+![May koneksyon ang ilang brand ng ice cream sa Russia. Larawan: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_670/w_pr_120.q_auto:eco/f_auto/fl_lossy/v1682321321/39-110323664462e3b6fb8b)
+
+Sinisiyasat ni Yle ang mga koneksyon ng mga tatak ng Finnish na ice cream sa Russia. Ang ilang mga tatak ng ice cream ay may koneksyon sa Russia.
+
+Maraming malalaking internasyonal na kumpanya ang nagpapatakbo pa rin sa Russia. Ang parehong mga kumpanya ay nagmamay-ari din ng mga kumpanya na gumagawa ng ice cream sa ibang mga bansa. Halimbawa, ang malalaking internasyonal na kumpanya na Nestle at Unilever ay nagmamay-ari ng maraming brand ng ice cream sa Finland.
+
+Maraming kumpanya ang umalis sa Russia dahil ang Russia ay nasa digmaan sa Ukraine. Ang mga bansa sa EU ay hindi gusto ang katotohanan na ang mga kumpanya ay nagpapatakbo sa Russia. Ang EU ay nagpataw ng mga parusa sa Russia dahil sa digmaan.
+
+### Pagsubok ng missile ng Russia
+
+![Presidente ng Russia na si Vladimir Putin. Larawan: Mikhael Klimentyev / Sputnik / Kremlin Pool](https://images.cdn.yle.fi/image/upload/c_crop,h_4519,w_8034,x_16,y_238/ar_1.777777777777777,c_fill,g_pr_faces,0000.0/q_auto:eco/f_auto/fl_lossy/v1678982359/39-108632664133bfc2dc51)
+
+Ang Russia ay nagsagawa ng isang pagsubok sa paglulunsad gamit ang isang long-range missile. Sinabi ng Russia na matagumpay ang missile launch test.
+
+Ang Bulava missile ay 12 metro ang haba. Ang missile ay maaaring lumipad ng humigit-kumulang 8,000 kilometro at maaari itong magdala ng 6 na nuclear warheads.
+
+Inilunsad ng Russia ang isang submarine missile mula sa Viennese Sea.
+
+### Sitwasyon ng hostage sa Germany
+
+![Ang pagpasa sa Hamburg airport ay isinara dahil sa sitwasyon ng hostage. Larawan: Bodo Marks / DPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2703,w_4806,x_0,y_500/ar_1.777777777777777,c_fill,g_faces,h_675,d_1200.q_auto:eco/f_auto/fl_lossy/v1699181525/39-11959676547736ea1bc0)
+
+Matagal nang nangyari ang hostage situation sa Hamburg airport sa Germany.
+
+Nagsimula ang sitwasyon noong Sabado ng gabi, nang isang lalaki ang nagmaneho sa lugar ng paliparan at bumaril sa hangin. Naghagis din siya ng 2 bote ng gasolina mula sa sasakyan. Nasa kotse ang 4 na taong gulang na anak na babae ng lalaki, na hostage ng lalaki. Ang dahilan ng ginawa ng lalaki ay marahil ay isang pagtatalo sa pag-iingat ng bata.
+
+Sarado ang airport ng Hamburg at kinansela ang lahat ng flight. Natapos ang sitwasyon noong Linggo ng hapon nang arestuhin ng mga pulis ang lalaki. Ang airport ng Hamburg ay binuksan muli sa trapiko sa gabi.
+
+### Babala sa Baha ng Western Finland
+
+![Maaaring matubig ang mga kalsada kapag umuulan at mabilis na natutunaw ang niyebe. Larawan: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_218/ar_1.7777777777777777,c_fill,g_faces,h_670/w_pr_120.q_auto:eco/f_auto/fl_lossy/v1697618867/39-11828126521489e76d51)
+
+Ang Finnish Meteorological Institute ay naglabas ng babala sa baha para sa Western Finland. Ang dahilan ay ang malakas na pag-ulan. Umuulan ng niyebe sa lugar, na natutunaw. Bilang karagdagan, magkakaroon ng mga bagong pagbuhos ng tubig.
+
+Maraming tubig ang nagmumula sa niyebe at ulan. Samakatuwid, ang mga antas ng tubig ay maaaring tumaas sa kanluran.
+
+Halimbawa, maaaring bahain ng mga ilog ang mga bukid at kalsada sa Northern Finland, Pirkanmaa, Satakunta, Ostrobothnia at South Ostrobothnia.
+
+### Panahon
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_au:ef_auto/fl_lossy/v1699200945/39-11960206547bf95c98f5)
+
+Maulap sa Lunes. Umuulan o umuulan sa timog at gitnang bahagi ng bansa. Sa hilagang Finland, humihinto ang pag-ulan sa araw.
+
+Ang temperatura sa araw ay nasa pagitan ng 0 at +8 degrees, sa Northern Lapland sa pagitan ng 0 at -3 degrees.

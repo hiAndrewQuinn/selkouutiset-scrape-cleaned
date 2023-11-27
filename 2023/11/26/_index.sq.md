@@ -1,0 +1,48 @@
+Radio \| Lajme të qarta \| e diel 26 nëntor 2023
+----------------------------------------------
+
+Kerkuesit e azilit. Kryeministri Orpo. Izraeli. Dritat veriore. Moti.
+
+### 3 azilkërkues nga Raja-Joosep
+
+![Stacioni kufitar Raja-Joosepi fotografuar më 24 nëntor 2023. Foto: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700842179/39-120631365605f150)
+
+Të dielën, 3 azilkërkues nga Rusia erdhën në Finlandë. Burrat kaluan kufirin pasdite. Të shtunën, 55 persona nga Rusia erdhën në stacionin kufitar Raja-Joosepi të Inarit.
+
+Raja-Jooseppi është aktualisht i vetmi vendkalim kufitar në kufirin lindor të Finlandës që është i hapur. Vendkalimet e tjera kufitare janë të mbyllura sepse Rusia po i drejton njerëzit nga vendet e tjera në Finlandë.
+
+### Ora e intervistës së kryeministrit
+
+![Kryeministri Petteri Orpo përgatiti për seancën e intervistës së kryeministrit Yle në Kesäranta në Helsinki më 26 nëntor 2023. Foto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2772 , W_4928, x_0, y_207/ar_1.7777777777777777, c_fill, g_faces, h_675, w_1200/dpr_1.0/q_auto: eko/f_auto/fl_lossy/v1701000739/39-1206810656565635
+
+Kryeministri Petteri Orpo thotë se Finlanda po shqyrton mbylljen e plotë të kufirit lindor. Orpo tha gjatë intervistës së Yle me Kryeministrin se qeveria mund të marrë masa të reja nëse Rusia dërgon më shumë azilkërkues në Finlandë.
+
+Kryeministri Petteri Orpo thekson se detyra më e rëndësishme e qeverisë është të kujdeset për sigurinë e Finlandës.
+
+### Izraeli dhe Hamasi
+
+![Një automjet i Kryqit të Kuq Ndërkombëtar që mbante pengje izraelite të liruar nga Hamasi kalon pikën kufitare Rafah rrugës për në Egjipt më 24 nëntor 2023. Foto: Mohammed Abed / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2079,w_3696,x_0,y_366/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_lossy-auto:eco/f_lossy-auto:eco/f_lossy-auto/636560e4e1a0ebe)
+
+Izraeli dhe organizata terroriste Hamas liruan të burgosur. Hamasi liroi 13 pengje izraelite dhe disa qytetarë të vendeve të tjera të shtunën në mbrëmje. Izraeli liroi 39 të burgosur palestinezë.
+
+Izraeli dhe Hamasi planifikojnë të lirojnë më shumë të burgosur më vonë të dielën ose të hënën. Izraeli dhe Hamasi ranë dakord më parë që të dy të lironin të burgosurit. Në të njëjtën kohë, Izraeli dhe Hamasi ranë dakord që do të ketë një armëpushim të shkurtër në Gaza.
+
+Hamasi sulmoi Izraelin në tetor dhe mori rreth 240 pengje. Një total prej rreth 1,400 njerëz vdiqën në sulmin e Hamasit. Pas kësaj, Izraeli filloi një luftë në Gaza.
+
+### Dritat veriore
+
+![Aurora borealis në Vihti. Foto: Bhabishya Gurung](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_443/ar_1.77777777777777,c_fill,g_faces,h_12:au.eco/f_auto/fl_lossy/v1700996219/39-120676065630ab4cbda3)
+
+Dritat veriore ishin të dukshme në qiell natën ndërmjet të shtunës dhe të dielës. Dritat veriore ishin gjithashtu të dukshme në Finlandën jugore. Dritat veriore gjithashtu mund të jenë të dukshme në qiell natën ndërmjet të dielës dhe të hënës.
+
+Dritat veriore janë modele të lehta që mund të shihen në qiell. Dritat veriore janë shpesh jeshile, por ndonjëherë edhe të kuqe ose blu. Dritat veriore krijohen kur grimcat nga Dielli godasin atmosferën e Tokës.
+
+Yle u kërkoi njerëzve të dërgonin foto të dritave veriore. Fotografitë janë të disponueshme në internet në yle.fi.
+
+### Moti
+
+![ Foto: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.77777777777777,c_fill,g_501,w_1.0/q_auto:eco/f_auto/fl_lossy/v1701007097/39-120685165634edcb0ac7)
+
+Sipas parashikimit të motit, vende-vende do të bjerë pak borë. Mund të bjerë borë më shumë në bregdet sesa në pjesë të tjera të Finlandës.
+
+Temperatura është nga -7 deri në -20 gradë. Në Lapland, ngrica është midis 15 dhe 25 gradë.

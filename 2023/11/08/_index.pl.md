@@ -1,0 +1,47 @@
+## Radio Selkouutiset środa, 8 listopada 2023 r
+
+Informacje podatkowe. Psie jedzenie. Negocjacje w sprawie członkostwa w UE. Pogoda.
+
+### Informacje podatkowe
+
+![Informacje podatkowe za rok 2022 są już publiczne. Obraz ilustracyjny. Zdjęcie: Toni Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a)
+
+Informacje podatkowe za 2022 rok są już publiczne. Dane podatkowe pokazują, które osoby otrzymały w ubiegłym roku najwięcej pieniędzy z tytułu wynagrodzeń i dochodów kapitałowych.
+
+Mikko Kuusi zarobił w zeszłym roku najwięcej pieniędzy w Finlandii. Zarobił dużo pieniędzy, gdy firma zajmująca się dostawą jedzenia Wolt została sprzedana za granicę. W 2022 roku Mikko Kuusi zarobił łącznie 79,5 mln euro.
+
+Dane podatkowe pokazują, że dużą część osób dobrze zarabiających stanowią mężczyźni. Wśród 1000 osób, które w zeszłym roku zarobiły najwięcej, około 15 procent stanowiły kobiety.
+
+W kalkulatorze podatkowym Yle możesz przeglądać informacje podatkowe najlepiej zarabiających Finów. Verokone jest dostępna online pod adresem yle.fi.
+
+### Psie jedzenie
+
+![Wiele psów zachorowało po zjedzeniu psiej karmy. Zdjęcie: Urho Haho, Jaakko Stenroos / AOP, Leena Luotio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699386970/39-11965956548f484ed3bb)
+
+W tym tygodniu dużo mówiło się o tym, że wiele psów zachorowało na skutek spożycia psiej karmy. Teraz stało się jasne, że przyczyną może być obcy płatek ziemniaczany.
+
+Firma dostarczająca artykuły dla zwierząt Musti Group twierdzi, że psy mogły zostać otrute obcym płatkiem ziemniaczanym. Płatki ziemniaczane znajdują się w karmie dla kotów i psów Musti Group. Podejrzewa się, że jedzenie to spowodowało u wielu psów mdłości.
+
+Wiele osób zabrało psa do weterynarza, gdy zachorował po zjedzeniu psiej karmy. Musti Group obiecuje zapłacić te rachunki za weterynarza.
+
+Agencja ds. Żywności bada próbki pobrane z karmy dla psów Musti Group.
+
+### Negocjacje w sprawie członkostwa w UE
+
+![Unia Europejska obejmuje obecnie 27 krajów. Zdjęcie: Ana Fernandez / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2)
+
+Komisja Europejska zaleca, aby UE rozpoczęła negocjacje z Ukrainą w sprawie członkostwa tego kraju w UE. Ukraina musi jednak najpierw spełnić pewne warunki członkostwa. Komisja ma nadzieję, że Ukraina podejmie na przykład więcej działań przeciwko korupcji.
+
+Komisja Europejska zaleca także rozpoczęcie negocjacji członkowskich z Bośnią i Hercegowiną oraz Mołdawią.
+
+Obecnie w Unii Europejskiej jest 27 krajów.
+
+### Pogoda
+
+![Zdjęcie: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699449326/39-1197700654b89b86284a)
+
+Prawie w całym kraju jest pochmurno. Na południu kraju w wielu miejscach pada deszcz. Śnieg pada także w środkowej i północnej Finlandii.
+
+Temperatura wynosi od -1 do +7 stopni w południowej i środkowej części kraju, od 0 do -10 stopni w północnej części kraju.
+
+Pogoda na drogach jest zła we wschodniej części kraju i w Laponii.

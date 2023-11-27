@@ -1,0 +1,61 @@
+## Redio \| Habari wazi \| Ijumaa tarehe 17 Novemba 2023
+
+Mpaka wa Mashariki. Maambukizi ya Corona. Msaada wa kijeshi kwa Ukraine. Usafiri wa shule. Hali ya hewa.
+
+### Mpaka wa Mashariki
+
+![Finland yafunga vivuko vya mpaka. Picha: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,/w_605.q_auto:eco/f_auto/fl_lossy/v1699908616/39-1200025655285565477b)
+
+Kulikuwa na msongamano mkubwa wa magari kwenye mpaka wa mashariki wa Ufini siku ya Ijumaa. Waomba hifadhi pia waliendelea kufika mpakani.
+
+Trafiki kwenye mpaka wa mashariki iliongezeka kwa sababu Ufini imeamua kufunga vivuko vya mpaka kwenye mpaka wa mashariki.
+
+Vivuko vya mpaka hufungwa usiku kati ya Ijumaa na Jumamosi. Usiku wa manane, vikwazo kwenye pointi za kuvuka mpaka hupunguzwa. Vikwazo vingine pia huletwa kwenye maeneo, ambayo magari hayawezi kupita.
+
+Njia za mpaka zimefungwa kwa muda wa miezi 3, yaani hadi katikati ya Februari. Vivuko vya mpaka wa kaskazini tu kwenye mpaka wa mashariki ndio vitabaki wazi.
+
+Ufini yafunga vivuko vya mpaka kwa sababu za kiusalama. Watu wengi wamekuja mpaka bila karatasi muhimu, kwa mfano visa.
+
+Urusi imewaruhusu hadi mpaka wa Finnish kwa sababu inaweza kutaka kusumbua Ufini. Ufini inataka kusitisha shughuli hii.
+
+### Maambukizi ya Corona
+
+![Vikundi vya hatari vimepewa chanjo ya nyongeza dhidi ya virusi vya corona tena. Picha: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_p_675,w_620,/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+
+Idadi ya maambukizi ya corona inapungua Kusini mwa Finland. Hivi ndivyo Taasisi ya Afya na Ustawi inavyosema.
+
+Kumekuwa na maambukizi mengi ya corona msimu huu, lakini sasa kuenea kwa corona kumeanza kupungua.
+
+Hata hivyo, idadi kamili ya maambukizo ya corona haijajulikana, kwa sababu ni watu wachache wanaochukua vipimo vya corona kuliko miaka iliyopita.
+
+Chanjo ya corona ya vuli inaendelea. Idara ya Afya na Ustawi inasema kwamba kuna chanjo za kutosha kwa watu wote walio katika vikundi vya hatari.
+
+### Msaada wa kijeshi kwa Ukraine
+
+![Rais wa Ukraine Volodymyr Zelenskyi. Picha: Jakub Porzycki / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,w_130,h_605.q_auto:eco/f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb)
+
+Ufini yatuma msaada zaidi wa kijeshi kwa Ukraine. Thamani ya msaada huo ni euro milioni 100.
+
+Hii ni mara ya 20 kwa Finland kutuma msaada wa kijeshi kwa Ukraine. Finland imetuma msaada wa kijeshi kwa Ukraine wa jumla ya euro bilioni 1.5.
+
+Rais wa Ukraine Volodymyr Zelenskyi ameshukuru kwa msaada huo kwenye mitandao ya kijamii. Anasema kuwa msaada huo unaimarisha usalama wa Ulaya nzima.
+
+### Usafiri wa shule
+
+![ Picha: Sakari Partanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1494,w_2655,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,w_605.0/q_auto:eco/f_auto/fl_lossy/v1677057284/39-107608063f5dc988d5c3)
+
+Muda wa kusafiri kwa usafiri wa shule umeongezwa. Mara nyingi, wakati wa kusafiri wa mtoto wa shule ni saa 1 au 2 kwa siku.
+
+Sababu mara nyingi ni akiba. Shule nyingi zimefungwa vijijini. Ndio maana inaweza kuwa safari ndefu kwenda shule.
+
+Aidha, usafiri wa shule mara nyingi hupitia nyumba nyingi kabla ya kufika shuleni. Inaokoa pesa, lakini huongeza wakati wa kusafiri.
+
+### Hali ya hewa
+
+... f_auto/fl_lossy/v1700238427/39-120255565579437e32dc)
+
+Siku ya Jumamosi, theluji inaweza kuwa kidogo kusini na mashariki. Kwingineko, kuna mawingu, kumaanisha kuwa mvua hainyeshi.
+
+Mara nyingi kuna mawingu, lakini jua huangaza mahali fulani, angalau Kaskazini mwa Lapland.
+
+Halijoto itapungua kote nchini mwishoni mwa juma. Katika kusini kuna baridi kidogo tu, lakini kaskazini baridi ni kali.

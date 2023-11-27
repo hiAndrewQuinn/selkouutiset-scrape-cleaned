@@ -1,0 +1,47 @@
+## Radyo Selkouutiset Çarşamba 8 Kasım 2023
+
+Vergi bilgisi. Köpek maması. AB üyelik müzakereleri. Hava durumu.
+
+### Vergi bilgisi
+
+![2022 yılı vergi bilgileri artık kamuya açıktır. İllüstrasyon resmi. Fotoğraf: Toni Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2628,w_4672,x_747,y_536/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692260664/39-115812464ddd8da1ad5a)
+
+2022 yılı vergi bilgileri artık herkese açık. Vergi verileri, geçen yıl maaş geliri ve sermaye gelirinde en çok parayı hangi kişilerin aldığını gösteriyor.
+
+Mikko Kuusi geçen yıl Finlandiya'da en çok parayı kazandı. Yemek dağıtım hizmeti Wolt yurt dışına satıldığında çok para kazandı. Mikko Kuusi, 2022'de toplam 79,5 milyon euro kazandı.
+
+Vergi verileri, çok kazanan insanların büyük bir kısmının erkek olduğunu gösteriyor. Geçen yıl en çok para kazanan 1000 kişinin yaklaşık yüzde 15'i kadındı.
+
+Yle'nin vergi hesaplayıcısında en çok kazanan Finlilerin vergi bilgilerini görebilirsiniz. Verokone yle.fi'de çevrimiçidir.
+
+### Köpek maması
+
+![Birçok köpek köpek maması yüzünden hastalandı. Fotoğraf: Urho Haho, Jaakko Stenroos / AOP, Leena Luotio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699386970/39-11965956548f484ed3bb)
+
+Bu hafta pek çok köpeğin köpek maması yüzünden hastalandığına dair çok fazla konuşma yapıldı. Artık sebebin yabancı bir patates gevreği olabileceği ortaya çıktı.
+
+Evcil hayvan tedarik şirketi Musti Group, köpeklerin yabancı bir patates tanesinden zehirlenmiş olabileceğini söylüyor. Patates gevreği Musti Group'un kedi maması ve köpek mamasında yer alıyor. Yemeğin birçok köpekte bulantıya (örneğin mide bulantısı) neden olduğundan şüpheleniliyor.
+
+Pek çok kişi köpeklerini köpek maması yüzünden hastalanınca veterinere götürdü. Musti Group bu veteriner faturalarını ödemeyi vaat ediyor.
+
+Gıda Ajansı, Musti Group'un köpek mamasından alınan numuneleri araştırıyor.
+
+### AB üyelik müzakereleri
+
+![Avrupa Birliği şu anda 27 ülkeyi kapsamaktadır. Fotoğraf: Ana Fernandez / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_419/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1632407032/39-857648614c8a7c923f2)
+
+Avrupa Komisyonu, AB'nin Ukrayna ile ülkenin AB üyeliği konusunda müzakerelere başlamasını tavsiye ediyor. Ancak Ukrayna'nın öncelikle bazı üyelik koşullarını yerine getirmesi gerekiyor. Komisyon, örneğin Ukrayna'nın yolsuzluğa karşı daha fazla önlem almasını umuyor.
+
+AB Komisyonu ayrıca Bosna-Hersek ve Moldova ile üyelik müzakerelerinin başlatılmasını da tavsiye ediyor.
+
+Şu anda Avrupa Birliği'nde 27 ülke bulunmaktadır.
+
+### Hava durumu
+
+![ Fotoğraf: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699449326/39-1197700654b89b86284a)
+
+Ülkenin hemen hemen her yerinde hava bulutlu. Ülkenin güney kesiminde birçok yerde yağmur yağıyor. Finlandiya'nın orta ve kuzey kesimlerinde de kar yağıyor.
+
+Sıcaklık ülkenin güney ve orta kesimlerinde -1 ile +7 arasında, kuzey kesimlerinde ise 0 ile -10 derece arasında seyrediyor.
+
+Ülkenin doğu kesiminde ve Laponya'da yollarda sürüş koşulları kötü.

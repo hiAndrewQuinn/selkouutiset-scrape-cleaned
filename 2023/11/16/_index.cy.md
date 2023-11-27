@@ -1,0 +1,45 @@
+## Radio Selkouutiset Dydd Iau 16 Tachwedd 2023
+
+Gorsafoedd ffin ar gau. Diweithdra. Treial Dödspatrllen. Tywydd.
+
+### Gorsafoedd ffin ar gau
+
+![Bydd gorsafoedd ffin Imatra, Niirala, Nuijamaa a Vaalimaa ar gau. Llun: Laura Merikalla / Yle a Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.777777777777,c_fill,g_faces,g_faces/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
+
+Mae'r Ffindir yn cau llawer o groesfannau ffin ar y ffin ddwyreiniol.
+
+Penderfynodd y llywodraeth y bydd gorsafoedd ffin Imatra, Niirala, Nuijamaa a Vaalimaa ar gau ar y noson rhwng dydd Gwener a dydd Sadwrn. Ar ôl hyn, nid oes unrhyw draffig yn mynd trwy'r gorsafoedd ffin hyn. Mae gorsafoedd ffin ar gau o leiaf tan ganol mis Chwefror.
+
+Ar y ffin ddwyreiniol, dim ond croesfannau ffin Vartius, Salla, Kuusamo a Raja-Joosepi fydd ar agor o ddydd Sadwrn.
+
+Dywed y Prif Weinidog Petteri Orpo fod y Ffindir am sicrhau diogelwch ffiniau. Dyna pam mae'r gorsafoedd ffin ar gau.
+
+Yn ystod y cwymp, mae mwy o geiswyr lloches nag arfer wedi cyrraedd y mannau croesi ffin yn Ne-ddwyrain y Ffindir. Daeth ceiswyr lloches o lawer o wledydd i ffin y Ffindir trwy Rwsia. Nid oedd y papurau gyda nhw, sydd eu hangen wrth ddod i'r Ffindir o Rwsia.
+
+### Diweithdra
+
+![Mae diweithdra yn cynyddu. Darlun darluniadol. Llun: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.77777777777777,c_fill,g_faces,h_670.w/q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+
+Bydd nifer y bobl ddi-waith yn cynyddu yn y Ffindir eleni. Dyma mae'r Weinyddiaeth Lafur yn ei amcangyfrif.
+
+Dywed y weinidogaeth y bydd yr un nifer o bobl ddiswyddo yn fuan ag yn 2009. Ar ddechrau'r flwyddyn nesaf, bydd bron i 40,000 o weithwyr wedi'u diswyddo. o, er enghraifft, 3 mis neu 6 mis.
+
+Mae'r Weinyddiaeth Lafur yn amcangyfrif y bydd economi'r Ffindir yn gwella yn 2025. Roedd yna hefyd fwy o swyddi bryd hynny nag yn awr.
+
+### treial Dödspatrllen
+
+![llysoedd Dödspatrule 16.11.2023. Llun: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.77777777777777,c_fill,g_faces,h_170.w/q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+
+Dechreuodd treial yn ymwneud â gang Dödspatrullen Sweden yn Helsinki.
+
+Mae 27 o bobl yn cael eu cyhuddo yn y llys ardal. Mae'r erlynydd yn mynnu carchar i bron bob un o'r cyhuddwyr. Mae 9 o'r rhai a gyhuddir yn ddinasyddion Ffindir a 7 yn ddinasyddion Sweden. Mae gweddill y cyhuddedig yn ddinasyddion gwledydd eraill.
+
+Mae'r llys yn delio â throseddau cyffuriau. Dywed yr heddlu bod gang stryd o Sweden wedi ceisio meddiannu marchnad gyffuriau’r Ffindir. Mae Dödspatrullen yn gang stryd treisgar o Sweden sy'n cyflawni llawer o droseddau cyffuriau.
+
+### Tywydd
+
+![Llun: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777,c_fill,g_faces,h_671.w_faces,h_671,w_pdr0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
+
+Yfory, dydd Gwener, bydd yr haul yn tywynnu yn y de a'r gogledd. Mae cymylau yn yr awyr yng nghanol y ddaear. Mae'r tywydd yn llychlyd, ond efallai y bydd hi'n bwrw eira ychydig ar arfordir y gorllewin.
+
+Mae'r tymheredd ar yr ochr rew ledled y wlad. Mae'r oeraf yn Lapdir.

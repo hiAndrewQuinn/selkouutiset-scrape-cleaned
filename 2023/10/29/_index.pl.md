@@ -1,0 +1,49 @@
+## Radio \| Jasne wiadomości \| Niedziela 29 października 2023
+
+Gaza. Wyczyść książki. Mateusz Perry. Kalle Rovanperä. Prognoza.
+
+### Sytuacja w Gazie
+
+![Sytuacja w Gazie jest trudna. ONZ ostrzega, że w regionie rozpocznie się chaos. Zdjęcie: Abed Rahim Khatib / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3780,w_6720,x_0,y_700/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698587757/39-1192921653e641fc4a70)
+
+Izrael nasilił swoje ataki na Gazę. Izrael przeprowadził naloty na Gazę i wysłał do Gazy więcej wojsk lądowych. Premier Izraela **Benjamin Netanjahu** mówi, że rozpoczęła się druga faza wojny przeciwko ekstremistycznej organizacji Hamas.
+
+Hamas twierdzi, że w ciągu trzech tygodni w izraelskich atakach na Gazę zginęło ponad 8 000 osób. Informacji nie udało się potwierdzić w wiarygodnych źródłach.
+
+ONZ ostrzega, że w Gazie rozpocznie się chaos. Na przykład tysiące Palestyńczyków włamało się do magazynów, aby zdobyć żywność.
+
+### Literatura faktu
+
+![Autor Merete Mazzarella. Zdjęcie: Barbro Ahlstedt/Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3159,w_5616,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1620995152/39-806292609e6be113e02)
+
+W ten weekend w Helsinkach odbyły się Targi Książki. Na targach książki nie zabrakło także literatury prostojęzycznej i autorów posługujących się językiem prostym. Na targach książki na przykład uczczono, że powstała prosta wersja językowa książki autorki **Merete Mazzarelli** *Violetti hetki*.
+
+Na targach książki odbyła się także duża otwarta dyskusja o książkach, podczas której dyskutowano o książkach w otwartym języku.
+
+W Finlandii około 750 000 osób nie potrafi czytać literatury w powszechnym języku. Mogą zdobyć doświadczenia związane z czytaniem książek w języku prostym. Literatura faktu jest również potrzebna, ponieważ umiejętność czytania Finów i zainteresowanie czytaniem spadły.
+
+### Matthew Perry’ego
+
+![Matthew Perry (19.8.1969 - 28.10.2023) Zdjęcie: Matt Baron/BEI/Shutterstock](https://images.cdn.yle.fi/image/upload/c_crop,h_2329,w_4141,x_0,y_54/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698579698/39-1192810653dd4bb051f5)
+
+Zmarł aktor **Matthew Perry**. Matthew Perry był obywatelem USA i Kanady.
+
+Perry znany jest z występów w popularnym serialu telewizyjnym Przyjaciele. Postać Perry'ego to Chandler Bing. Serial telewizyjny Frendit powstawał przez 10 lat. Seria rozpoczęła się w 1994 roku. Wykazano także w Finlandii.
+
+Aktor Matthew Perry miał 54 lata. Zmarł w domu w Los Angeles w USA.
+
+### Mistrzostwa świata Kalle Rovanperä
+
+![Kierowca rajdowy Kalle Rovanperä (po lewej) i kierowca torowy Jonne Haltunen (po prawej) cieszyli się ze zwycięstwa. Obraz: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2406,w_4278,x_0,y_445/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698587806/39-1192922653e645d852bc)
+
+Fiński kierowca Toyoty **Kalle Rovanperä** zdobył rajdowe mistrzostwo świata. W niedzielę rozstrzygnęły się Rajdowe Mistrzostwa Świata w Mistrzostwach Europy Środkowo-Wschodniej.
+
+W tym roku rajdowa rywalizacja była wyjątkowa, gdyż rozgrywana była w trzech różnych krajach: Czechach, Niemczech i Austrii.
+
+Mistrzostwa są drugimi z rzędu dla Kalle Rovanpery, który w zeszłym roku zdobył także rajdowe mistrzostwo świata. Rovanperä ma 23 lata.
+
+### Pogoda
+
+![Na południu mogą wystąpić przelotne opady śniegu.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698594490/39-1192967653e7ea05e07b)
+
+W poniedziałek zachmurzenie będzie zróżnicowane w północnej i środkowej części kraju. Przeważnie pada deszcz, to znaczy nie pada. Na południu mogą wystąpić przelotne opady śniegu. Temperatura wynosi od +1 do -6 stopni, w Laponii jest chłodniej.

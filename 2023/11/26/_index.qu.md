@@ -1,0 +1,48 @@
+Radio \| Ch'uya willakuy \| Domingo 26 ñiqin inti raymi killapi 2023 watapi
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Asilo maskaqkuna. Uma kamayuq Orpo. Israel. Norte lawpi llimpikuna. Llapiya.
+
+### 3 asilo maskaqkuna Raja-Joosep llaqtamanta
+
+![Raja-Joosepi frontera estación fotografía 24 ñiqin inti raymi killapi 2023. Foto: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.77777777777777777,c_llenado,g_uyakuna,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_perdida/v1700842179/39-120631365609f1502057)
+
+Domingo punchawmi Rusia nacionmanta 3 asilo maskaqkuna Finlandia nacionman hamurqaku. Chay runakunaqa tardetan frontera chimparqanku. Sábado punchawmi Rusia nacionmanta 55 runakuna hamurqaku Inari llaqtapa Raja-Joosepi frontera wasiman.
+
+Kunanqa Raja-Jooseppi llaqtallam Finlandiapa inti lluqsimuy ladupi frontera chimpapuray kichasqa kachkan. Huk frontera chimpaykunam wichqasqa kachkan, Rusia huk nacionkunamanta runakunata Finlandia nacionman pusasqanrayku.
+
+### Primer Ministropa entrevistan hora
+
+![Umalliq umalliqnin Petteri Orpo Yle umalliq ministrup rimanakuy huñunakuyninpaq wakichisqa karqan Kesäranta llaqtapi Helsinki llaqtapi 26 ñiqin inti raymi killapi 2023 watapi.. Foto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2772,w_4928,x_0,y_207/AR_1.7777777777777777,C_FLAL,G_Camas,H_675,W_1200/DPR_1.0/Q_AUTO:ECO/F_AUTO/AUTO/VLOSY/VFL170101/AUTO9) .
+
+Primer ministro Petteri Orpo nin Finlandia inti lluqsimuy lado frontera llapanta wichqananpaq yuyaymanasqanmanta. Orpoqa Ylepa Primer Ministrowan rimasqanpim nirqa, Rusia aswan asilo maskaqkunata Finlandiaman kachaptinqa, gobierno musuq ruwaykunata ruwanman.
+
+Primer ministro Petteri Orpo sutiyoq runan resaltan gobiernoq aswan importante ruwayninqa Finlandia nacionpa seguridadninta cuidaymi.
+
+### Israelwan Hamaswan
+
+![Huk Puka Cruz Internacional antawa, Israelmanta reheneskunata apaspa, Hamas kacharisqa, Rafah frontera chimpayta chimpan Egiptoman richkaspa, 24 ñiqin inti raymi killapi 2023. Foto: Mohammed Abed / AFP](https://images.cdn.yle.fi/image/cargar/c_tarpuy,h_2079,w_3696,x_0,y_366/ar_1.7777777777777777,c_llenado,g_uyakuna,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700849015/39-12064636560e4e1a0ebe) nisqa.
+
+Israel, Hamas nisqa terrorista organizacionpas presokunatan kacharirqanku. Hamas nisqa 13 Israelmanta rehenes nisqakunata, huk suyukunamanta achka llaqtayuqkunatapas, sábado chisi kacharirqa. Israelqa 39 Palestinu presokunatam kacharirqan.
+
+Israelwan Hamáswanqa domingo otaq lunes p’unchay qhepamanmi aswan presokunata kachariyta yuyaykushanku. Israelwan Hamaswanqa ñawpaqtaraqmi rimanakurqaku iskayninku presokunata kacharinankupaq. Chaypachallapitaqmi Israelwan Hamaswan rimanakurqanku Gaza suyupi pisi pachallapi maqanakuy sayachiy kananmanta.
+
+Hamás nisqakunaqa octubre killapin Israel nacionta atacarqan, yaqa 240 rehenkunatataqmi hap’irqan. Llapanpiqa yaqa 1.400 runakunam Hamas nisqap atakayninpi wañurqan. Chay qhepamanmi Israelqa Gaza llaqtapi guerrata qallarirqan.
+
+### Norte lawpi llimpikuna
+
+![Aurora borealis nisqa Vihti llaqtapi. Foto: Bhabishya Gurung](https://qu.images.cdn.yle.fi/imagen/cargar/c_cultivo,h_360,w_640,x_0,y_443/ar_1.777777777777777,c_llenado,g_uyas,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_perdida/v1700996219/39-120676065630ab4cbda3)
+
+Wichay ladomanta k’anchaykunaqa sábadomanta domingokama tutapin hanaq pachapi rikukuq. Wichay lado k’anchaykunapas rikukurqanmi Finlandia nacionpa uray ladonpi. Wichay ladomanta k’anchaykunapas domingomanta luneskama tutakunapin hanaq pachapi rikukunman.
+
+Wichay k'anchaykunaqa hanaq pachapi rikukuq k'anchaypa rikch'ayninmi. Norte lawpi llimpikunaqa sapa kutim verde, ichaqa wakinpiqa puka utaq azulpas. Wichay k'anchaykunaqa Intimanta partikulakuna Pachamamap wayra pachanman tupaptinmi kamasqa.
+
+Yleqa runakunatam mañakurqa norte lawpi llimpikunapa fotonkunata apachinankupaq. Siqikunaqa internetpi yle.fi nisqapi tarikun.
+
+### Llapiya
+
+![ Foto: Elias Paakkanen / Yle](https://qu.images.cdn.yle.fi/imagen/cargar/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_llenado,g_uyas,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_perdida/v1701007097/39-120685165634edcb0ac7) .
+
+Tiempomanta willakuymi nin wakin llaqtakunapi pisilla rit’i kananmanta. Finlandia nacionpa huk lawninkunamantaqa, lamar qochapa patanpim aswan achkata rit’inman.
+
+Ruphayqa -7manta -20 gradukamam. Laponia suyupiqa 15 gradosmanta 25 gradoskamam chiriqa.

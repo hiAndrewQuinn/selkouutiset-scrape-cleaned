@@ -1,0 +1,48 @@
+Rádio \| Jasné správy \| Nedeľa 26. novembra 2023
+---------------------------------------------
+
+Žiadatelia o azyl. Premiér Orpo. Izrael. Severné svetlá. Počasie.
+
+### 3 žiadatelia o azyl z Raja-Joosep
+
+![Pohraničná stanica Raja-Joosepi odfotografovaná 24. novembra 2023. Foto: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700842179/39-120631365609f7)1502059
+
+V nedeľu prišli do Fínska 3 žiadatelia o azyl z Ruska. Muži prekročili hranicu popoludní. V sobotu prišlo do pohraničnej stanice Raja-Joosepi Inari 55 ľudí z Ruska.
+
+Raja-Jooseppi je v súčasnosti jediným hraničným priechodom na východnej hranici Fínska, ktorý je otvorený. Ostatné hraničné priechody sú uzavreté, pretože Rusko smeruje ľudí z iných krajín do Fínska.
+
+### Hodina rozhovoru s premiérom
+
+![Predseda vlády Petteri Orpo sa pripravil na rozhovor s predsedom vlády Yle v Kesärante v Helsinkách 26. novembra 2023. Foto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2772 ,w_4928,x_0,y_207/ ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v170100901509b/56290709b/56290739b/5629070709
+
+Premiér Petteri Orpo hovorí, že Fínsko zvažuje úplné uzavretie východnej hranice. Orpo počas rozhovoru Yle s premiérom povedal, že vláda môže prijať nové opatrenia, ak Rusko pošle do Fínska viac žiadateľov o azyl.
+
+Premiér Petteri Orpo zdôrazňuje, že najdôležitejšou úlohou vlády je starať sa o bezpečnosť Fínska.
+
+### Izrael a Hamas
+
+![Vozidlo Medzinárodného Červeného kríža s izraelskými rukojemníkmi prepustenými Hamasom prekročilo hraničný priechod Rafah na svojej ceste do Egypta 24. novembra 2023. Foto: Mohammed Abed / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2079,w_3696,x_0,y_366/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f504919fl_015_84-91fl6560e4e1a0ebe)
+
+Izrael a teroristická organizácia Hamas prepustili väzňov. Hamas v sobotu večer prepustil 13 izraelských rukojemníkov a niekoľkých občanov iných krajín. Izrael prepustil 39 palestínskych väzňov.
+
+Izrael a Hamas plánujú prepustiť ďalších väzňov neskôr v nedeľu alebo v pondelok. Izrael a Hamas sa predtým dohodli, že obaja prepustia väzňov. Izrael a Hamas sa zároveň dohodli, že v Gaze bude krátke prímerie.
+
+Hamas zaútočil na Izrael v októbri a zajal asi 240 rukojemníkov. Pri útoku Hamasu zomrelo celkovo asi 1400 ľudí. Potom Izrael začal vojnu v Gaze.
+
+### Severné svetlá
+
+![Aurora borealis vo Vihti. Foto: Bhabishya Gurung](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_443/ar_1.777777777777777,c_fill,g_autos,h_205/d_10eco/f_auto/fl_lossy/v1700996219/39-120676065630ab4cbda3)
+
+V noci zo soboty na nedeľu bolo na oblohe vidieť polárne svetlá. Polárna žiara bola viditeľná aj v južnom Fínsku. Polárna žiara môže byť na oblohe viditeľná aj v noci z nedele na pondelok.
+
+Polárna žiara sú svetelné vzory, ktoré možno vidieť na oblohe. Polárna žiara je často zelená, ale niekedy aj červená alebo modrá. Polárna žiara sa vytvára, keď častice zo Slnka dopadnú na zemskú atmosféru.
+
+Yle požiadal ľudí, aby poslali fotografie polárnej žiary. Obrázky sú dostupné online na yle.fi.
+
+### Počasie
+
+![ Foto: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_50,h_120.0/q_auto:eco/f_auto/fl_lossy/v1701007097/39-120685165634edcb0ac7)
+
+Predpoveď počasia hovorí, že na niektorých miestach bude slabo snežiť. Na pobreží môže snežiť viac ako v iných častiach Fínska.
+
+Teplota sa pohybuje od -7 do -20 stupňov. V Laponsku je mráz od 15 do 25 stupňov.

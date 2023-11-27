@@ -1,0 +1,55 @@
+## Radio Selkouutiset trešdien, 2023. gada 15. novembrī
+
+Prezidenta sacīkstes. Austrumu robeža. Koronas vakcīna. Kažokādu audzētavas. Laikapstākļi.
+
+### Prezidenta aptauja
+
+![Aleksandrs Stubs un Peka Haavisto. Foto: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_120./w_pr_670,/wq_auto:eco/f_auto/fl_lossy/v1698912813/39-11947566543595173663)
+
+Koalīcijas pārstāvis Aleksandrs Stubs tagad ir populārākais kandidāts uz jauno Somijas prezidentu. Yle aptauja liecina, ka 28 procenti cilvēku tagad atbalsta Stubbu.
+
+Peka Haavisto aptaujā ierindots 2. vietā. Hāvisto atbalsts ir 26 procenti.
+
+Stubba atbalsts pieaudzis par 6 procentpunktiem. Hāvisto atbalsts samazinājies par 3 procentpunktiem.
+
+Aptaujā teikts, ka Stubs ir populārākais kandidāts pat tad, ja prezidenta vēlēšanās ir 2. kārta.
+
+Valsts prezidenta vēlēšanu 1.kārta ir 28.janvārī.
+
+### Niinistö par patvēruma meklētājiem
+
+![Attēlā redzama norāde Vaalimaa robežstacijā. Foto: Kari Saastamoinens / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6200./d_1275,0q_auto:eco/f_auto/fl_lossy/v1699908638/39-120003165528559efc2b)
+
+Valsts prezidents Sauli Nīnisto lēš, ka Somijas un ASV iecerētais aizsardzības līgums varētu būt par iemeslu tam, ka patvēruma meklētāji pie Somijas robežas ierodas caur Krieviju. Varbūt Krievija sadusmojās par līgumu.
+
+Nīnisto norāda, ka sarežģītas situācijas uz Somijas austrumu robežas var būt arī turpmāk. Prezidents komentēja situāciju uz austrumu robežas Bonnā, Vācijā, kur viņš šobrīd viesojas.
+
+Diennakts laikā robežstacijās Somijas dienvidaustrumos ieradušies vairāk nekā 60 patvēruma meklētāji. Viņiem nav vīzas uz Somiju.
+
+### Koronas vakcīna
+
+![Rokotuspiste zīme pie ieejas Kouvola Hallituskatu Pastaiga vakcinācijas punktā. Foto: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_6275,/d_1275,0/dq_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+
+Amatpersona saka, ka dažiem ir pietiekami daudz koronas vakcīnas. Korona vakcīnas revakcinācijas devas ir pietiekamas visiem tiem cilvēkiem, kuriem vakcīna tagad ir ieteicama.
+
+Revakcinācijas ir ieteicamas rudens un ziemas periodā tiem cilvēkiem, kuriem ir vislielākais risks saslimt ar smagu koronaslimību. Lielākais riska faktors ir cilvēka vecums.
+
+### Kažokādu fermas
+
+![Somijā ir aptuveni 550 kažokzvēru audzētavas. Fotoattēls: Janne Järvinena / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6275./d_1275,0q_auto:eco/f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0)
+
+Kažokzvēru audzētāji ir vērsušies Somijas valdībā, lai pieprasītu kompensāciju par dzīvniekiem, kuri bija jānogalina putnu gripas dēļ. Kažokādu audzētāji kopumā pieteikuši kompensāciju 6 miljonu eiro apmērā.
+
+Līdz šim kompensācijām pieteikušās 12 kažokzvēru audzētavas. Kopumā jau 42 kažokzvēru audzētavas ir saslimušas ar putnu gripu. Kažokzvēri ir jānogalina, ja kažokzvēru fermā ir putnu gripa. Mērķis ir novērst putnu gripas izplatīšanos.
+
+Somijā kopumā ir aptuveni 550 kažokzvēru audzētavas.
+
+### Laikapstākļi
+
+![ Foto: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_670,/wd_1215.0/q_auto:eco/f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc)
+
+Laiks ir putekļains.
+
+Gaisa temperatūra naktī ir no -1 līdz -9, valsts centrālajos rajonos no -7 līdz -12 un Lapzemē no -10 līdz -20 grādiem.
+
+Ceturtdien dienas laikā temperatūra būs no -2 līdz -10, valsts centrālajos rajonos no -10 līdz -15 un Lapzemē no -10 līdz -20 grādiem.

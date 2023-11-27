@@ -1,0 +1,65 @@
+## Redio \| Habari wazi \| Alhamisi tarehe 2 Novemba 2023
+
+Matatizo ya makampuni. Umaarufu wa vyama. Mashambulizi kwenye tovuti. Muonekano wa askari. Hali ya hewa.
+
+### Matatizo ya makampuni
+
+![Kampuni nyingi katika sekta ya chuma zina matatizo. Picha: Jukka Eskanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_410/ar_1.777777777777777,c_fill,g_faces,w_1_70.q_auto:eco/f_auto/fl_lossy/v1698216498/39-11907536538b9d499762)
+
+Makampuni mengi ya teknolojia ya Kifini yana matatizo makubwa. Wateja wa kigeni wa makampuni ya Kifini hawanunui bidhaa za kutosha. Ndio maana makampuni yanapata faida kidogo sana.
+
+Baadhi ya makampuni ya teknolojia tayari yamesema yanapunguza wafanyakazi. Kwa mfano, Nokia, Fiskars na Vaisala wanapunguza wafanyikazi.
+
+Makampuni katika sekta ya mashine na sekta ya chuma hasa wana matatizo kwa sasa.
+
+Hiyo ni habari mbaya kwa Finland. Sekta ya mashine na makampuni ya sekta ya chuma ni muhimu kwa uchumi wa Kifini.
+
+Ikiwa wateja wa kigeni wa makampuni hawaanza hivi karibuni kununua bidhaa zaidi za Kifini, ukosefu wa ajira unaweza kuongezeka.
+
+### Umaarufu wa vyama
+
+![Antti Lindtman ni mwenyekiti wa SDP. Picha: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3984,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_p/0r_1.q_auto:eco/f_auto/fl_lossy/v1696930784/39-118400565251b6be058f)
+
+SDP sasa ndicho chama maarufu zaidi nchini Ufini, kulingana na utafiti mpya wa Yle. Umaarufu wa SDP uliongezeka sana mnamo Oktoba.
+
+Takriban asilimia 24 ya Wafini sasa wanaunga mkono SDP.
+
+Katika uchaguzi wa bunge, Koomum kilikuwa chama kikubwa zaidi, lakini umaarufu wake umepungua. Muungano sasa ni chama cha pili kwa umaarufu.
+
+Takriban asilimia 20 ya Wafini sasa wanaunga mkono muungano huo.
+
+Umaarufu wa Finns msingi haukubadilika sana mnamo Oktoba. Ni chama cha tatu maarufu zaidi.
+
+Usaidizi wa SDP unaweza kuongezwa na ukweli kwamba serikali inakusudia kudhoofisha usalama wa ukosefu wa ajira, kwa mfano. SDP imekosoa mipango mingi ya serikali.
+
+### Mashambulizi kwenye tovuti
+
+![Jengo la Benki ya Suomen katikati mwa Helsinki. Picha: Matti Myller / Yle ](https://images.cdn.yle.fi/image/upload/c_crop,h_1391,w_2472,x_0,y_112/ar_1.7777777777777777,c_fill,g_faces,w_1/120,w_670.q_auto:eco/f_auto/fl_lossy/v1587997073/39-6686595ea6e8fc70cab)
+
+Wadukuzi wanaoiunga mkono Urusi walishambulia tovuti ya Benki ya Finland siku ya Alhamisi. Tovuti haikufanya kazi kama kawaida.
+
+Kwa sababu ya shambulio hilo, Benki ya Finland ilizuia matumizi ya tovuti kutoka nje ya nchi.
+
+Siku ya Jumatano, wadukuzi walishambulia tovuti ya usimamizi wa ushuru.
+
+Wadukuzi wanaoiunga mkono Urusi walisema walifanya mashambulizi yote mawili.
+
+Mashambulizi kwenye tovuti za Kifini yameongezeka tangu Urusi iliposhambulia Ukraine mwaka jana.
+
+### Muonekano wa askari
+
+![Askari wa kiume lazima wasiwe na nywele ndefu. Picha: Linus Westerlund](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_522/ar_1.7777777777777777,c_fill,g_faces,h_670_duutoa.eco/f_auto/fl_lossy/v1688460639/39-113784464a3db01e8a65)
+
+Mashirika ya kijeshi yanataka kubadilisha mahitaji ya mwonekano wa jeshi.
+
+Mashirika ya kijeshi yanatumai kwamba wanajeshi wa jeshi wanaweza kuwa na ndevu na masharubu katika siku zijazo.
+
+Uongozi wa jeshi unasema kwamba mahitaji ya kuonekana kwa jeshi yanaweza kubadilishwa katika siku zijazo.
+
+Siku hizi, wanaume wanapaswa kuwa na nywele fupi katika jeshi. Ndevu na masharubu lazima kunyolewa. Wanajeshi wa kike wanaweza kuwa na nywele ndefu,
+
+### Hali ya hewa
+
+![ Picha: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6710/0_pq2.:eco/f_auto/fl_lossy/v1698940434/39-11951316543c5fbc620f)
+
+Huenda kunyesha mvua kidogo au theluji siku ya Ijumaa. Huenda kunyesha zaidi kusini siku ya Ijumaa jioni. Joto ni kati ya +7 na -12 digrii. Ni baridi zaidi kaskazini.

@@ -1,0 +1,67 @@
+## Đài phát thanh \| Xóa tin tức \| Thứ hai ngày 13 tháng 11 năm 2023
+
+Biên giới phía đông của Phần Lan. Cảnh sát giám sát. Bể bơi. Giáo viên Phần Lan của năm. Thời tiết.
+
+### Biên giới phía đông Phần Lan
+
+![Chính quyền Phần Lan đang theo dõi tình hình ở biên giới phía đông Phần Lan. Ảnh: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_171/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699859472/39-11996406551cb5a3d93a)
+
+Ngày càng có nhiều người đến biên giới giữa Phần Lan và Nga, giấy tờ không hợp lệ. Ví dụ, họ không có thị thực đến Phần Lan.
+
+Hôm thứ Hai, hơn 20 người đã đến biên giới mà không có giấy tờ cần thiết. Trong mùa thu, hơn 100 người trong số họ đã đến.
+
+Trong số đó có công dân của Iraq, Syria, Yemen và Somalia. Họ đã đi qua Nga đến biên giới Phần Lan, nơi họ nộp đơn xin tị nạn ở Phần Lan.
+
+Trước đây, Nga không cho bất kỳ ai đến biên giới Phần Lan mà không có giấy tờ cần thiết. Không rõ tại sao hành động của Nga lại thay đổi.
+
+Các chuyên gia ước tính nguyên nhân là do Phần Lan đã trở thành thành viên của liên minh phòng thủ NATO. Nga coi NATO là kẻ thù của mình.
+
+### Cảnh sát giám sát
+
+![Cảnh sát đang tăng cường giám sát ở Helsinki. Ảnh: Matias Väänänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5148,x_0,y_107/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697807957/39-11771286512a4e83c1e1)
+
+Cảnh sát tăng cường giám sát ở Helsinki.
+
+Việc giám sát sẽ được tăng cường trong 3 tuần tới. Công an đặc biệt giám sát những nơi thường xuyên xảy ra tội phạm, gây rối.
+
+Có nhiều sự kiểm soát hơn bình thường trong giao thông công cộng, chẳng hạn như xe buýt và xe điện. Ngoài ra, công an còn giám sát những nơi thanh niên tụ tập.
+
+Cảnh sát tăng cường giám sát, đặc biệt là vào buổi tối và cuối tuần. Cảnh sát muốn mọi người cảm thấy an toàn ở Helsinki.
+
+### công việc của Veikkaus
+
+![Việc làm sẽ hết khi Veikkaus đóng cửa, chẳng hạn như trò chơi điện tử. Ảnh: Anne Savin / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1928,w_3427,x_567,y_428/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1633956464/39-86542961643200866ed)
+
+Công ty cờ bạc Veikkaus đang cắt giảm nhân viên. Khoảng 200 nhân viên sẽ mất việc.
+
+Ví dụ: Lotto, thẻ cào và trò chơi máy đánh bạc là những trò chơi của Veikkaus.
+
+Veikkaus hiện đã quyết định sẽ đóng cửa 19 phòng chơi game vào cuối năm nay.
+
+Ngoài ra, Veikkaus sẽ đóng cửa sòng bạc Tampere. Sòng bạc được mở ở Tampere chỉ 2 năm trước. Sự khởi đầu của sòng bạc thật khó khăn vì hào quang.
+
+### Giáo viên Phần Lan của năm
+
+![Giáo viên Phần Lan của năm Satu Lahtonen (giữa) và các học sinh Mohamed Batraan Abdullahi và Osama Al-Sharif. Ảnh: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2982,w_5300,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438785/39-1197531654b5ee49bf1f)
+
+Selkouutiset đã gặp gỡ Giáo viên Phần Lan của Năm Satu Lahtonen và các học sinh của Lahtonen.
+
+![ Ảnh: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3153,w_5603,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438827/39-1197537654b5ee95baf1)
+
+![ Ảnh: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197536654b5ee899b41)
+
+Satu Lahtonen hiện đang dạy tiếng Phần Lan, đọc và viết tại trường trung học dành cho người lớn Konepaja ở Helsinki.
+
+![Hạnh phúc bắt đầu bằng chữ i. Ảnh: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
+
+Bạn có thể biết đến nhóm của Lahtonen trên chương trình truyền hình Selkouutisten tại![yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link}. Ngoài ra còn có những bức ảnh của nhóm Lahtonen ở cùng địa chỉ.
+
+### Thời tiết
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699893163/39-119999365524f872df8f)
+
+Ở Lapland trời rất lạnh. Sáng sớm thứ Hai, trời lạnh tới 27 độ ở một số nơi.
+
+Vào thứ Ba, thời tiết sẽ lạnh hơn trên khắp cả nước và sẽ có tuyết rơi một chút ở phía đông. Rõ ràng ở nhiều nơi ở phía bắc.
+
+Nhiệt độ vào thứ Ba sẽ từ 0 đến -5 độ, ở miền Bắc từ -10 đến -20 độ.

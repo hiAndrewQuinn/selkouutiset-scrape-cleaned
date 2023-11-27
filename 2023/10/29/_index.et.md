@@ -1,0 +1,49 @@
+## Raadio \| Selged uudised \| Pühapäeval 29.10.2023
+
+Gaza. Selge raamatud. Matthew Perry. Kalle Rovanperä. Prognoos.
+
+### Olukord Gazas
+
+![Olukord Gazas on raske. ÜRO hoiatab, et piirkonnas algab kaos. Foto: Abed Rahim Khatib / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3780,w_6720,x_0,y_700/ar_1.7777777777777777,c_fill,g_faces,0_d_27,0_d_17/q_auto:eco/f_auto/fl_lossy/v1698587757/39-1192921653e641fc4a70)
+
+Iisrael on suurendanud rünnakuid Gaza vastu. Iisrael on andnud Gazale õhurünnakuid ja saatnud Gazasse rohkem maavägesid. Iisraeli peaminister **Benjamin Netanyahu** ütles, et alanud on sõja teine etapp äärmusorganisatsiooni Hamas vastu.
+
+Hamasi teatel on Iisraeli Gaza rünnakutes kolme nädala jooksul hukkunud üle 8000 inimese. Seda teavet ei õnnestunud usaldusväärsetest allikatest kinnitada.
+
+ÜRO hoiatab, et Gazas algab kaos. Näiteks on tuhanded palestiinlased tunginud ladudesse, et toitu hankida.
+
+### Mitteilukirjandus
+
+![Autor Merete Mazzarella. Foto: Barbro Ahlstedt/Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3159,w_5616,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_pr_670,/wd_1210.q_auto:eco/f_auto/fl_lossy/v1620995152/39-806292609e6be113e02)
+
+Sel nädalavahetusel toimus Helsingis raamatumess. Raamatumessil oli ka lihtkeelset kirjandust ja lihtkeelseid autoreid. Raamatumessil tähistati näiteks seda, et autori **Merete Mazzarella** raamatust *Violetti hetki* on valminud tavaline keel.
+
+Raamatumessil toimus ka suur selge raamatu arutelu, kus arutleti selges keeles raamatute üle.
+
+Soomes on ligikaudu 750 000 inimest, kes ei oska üldkeeles kirjandust lugeda. Lugemiskogemusi saavad nad lihtsakeelsetest raamatutest. Aimekirjandust on vaja ka seetõttu, et soomlaste lugemisoskus ja lugemishuvi on vähenenud.
+
+### Matthew Perry
+
+![Matthew Perry (19.8.1969 - 28.10.2023) Foto: Matt Baron/BEI/Shutterstock](https://images.cdn.yle.fi/image/upload/c_crop,h_2329,w_4141,x_0,y_54/ ar_1 .7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698579698/39-1192810653dd4bb051
+
+Näitleja **Matthew Perry** on surnud. Matthew Perry oli USA ja Kanada kodanik.
+
+Perry on tuntud oma esinemise poolest populaarses telesarjas Sõbrad. Perry tegelane oli Chandler Bing. Frenditi teleseriaale tehti 10 aastat. Sari sai alguse 1994. Seda näidati ka Soomes.
+
+Näitleja Matthew Perry oli 54-aastane. Ta suri kodus USA-s Los Angeleses.
+
+### Kalle Rovanperä maailmameistrivõistlused
+
+![Rallisõitja Kalle Rovanperä (vasakul) ja ringrajasõitja Jonne Haltunen (paremal) rõõmustasid võidu üle. Foto: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2406,w_4278,x_0,y_445/ar_1.77777777777777,c_fill,g_faces,h_675,w_co_120.0/d_pr_120.0/f_auto/fl_lossy/v1698587806/39-1192922653e645d852bc)
+
+Toyota soomlasest piloot **Kalle Rovanperä** on võitnud autoralli maailmameistritiitli. Kesk-Euroopa MM-sarjas otsustati pühapäeval autoralli MM.
+
+Sel aastal oli rallivõistlus eriline, kuna sõideti kolmes erinevas riigis: Tšehhis, Saksamaal ja Austrias.
+
+Meistritiitel on Kalle Rovanperale teine järjest ehk ta võitis ka mullu autoralli maailmameistritiitli. Rovanperä on 23-aastane.
+
+### Ilm
+
+![Lõunas võib sadada lund.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_1670/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698594490/39-1192967653e7ea05e07b)
+
+Esmaspäeval on riigi põhja- ja keskosas vahelduva pilvisusega ilm. Enamasti sajab, ehk siis ei saja. Lõuna pool võib sadada lund. Sooja on +1 kuni -6 kraadi, Lapimaal on külmem.

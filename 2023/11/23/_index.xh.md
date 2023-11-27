@@ -1,0 +1,49 @@
+## Irediyo \| Iindaba ezicacileyo \| NgoLwesine 23 Novemba 2023
+
+Umda oseMpuma. Frontex. Amaziko abafudukayo. Ucalucalulo. Uqikelelo.
+
+### Imeko kwiindawo zokunqumla imida
+
+![IRaja-Jooseppi yeyona ndawo isemantla enqumla kumda osempuma. Ezinye iindawo zokunqumla imida zivaliwe. Ifoto: Miku Huttunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3216,w_5712,x_0,y_421/ar_1.7777777777777777,c_fill,g_faces/0,wp_67,wp_2.q_auto:eco/f_auto/fl_lossy/v1700751077/39-1205645655f665a86285)
+
+IFinland ivala iindawo ezininzi zokunqumla imida kumda osempuma. Isizathu ngabafuduki abathunyelwa yiRashiya kumda waseFinnish.
+
+Izikhululo zemida iVartius, Kuusamo kunye neSalla ziza kuvalwa namhlanje, ngoLwesine. Kuphela umda omnye onqumlayo, uRaja-Jooseppi, uhlala uvulekile. IRaja-Jooseppi sesona sikhululo somda sisemantla. Sele kwimpelaveki ephelileyo, iFinland ivale imida yokunqumla impuma yeFinland.
+
+IFinland inethemba lokuba ukufika kwabafuduki kuya kuyeka xa kukho isikhululo esivulekileyo somda, esikumantla akude.
+
+### Uncedo lweFrontex kumlindi womda waseFinland
+
+![I-Frontex ithumela oonogada bemida kunye nezixhobo zokusebenza eFinland. Ifoto: Pauliina Tolvanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,w_p_670.q_auto:eco/f_auto/fl_lossy/v1663055873/39-100697563203716d9ecd)
+
+IFinland ifumana uncedo kwi-European Border Guard Agency, iFrontex, ukubeka iliso kumda osempuma. I-Frontex ithumela abantu abangama-50 eFinland ukuba baye kunceda ukubeka iliso kumda osempuma. Baza kuza eFinland kwiveki ezayo.
+
+IFinland icele uncedo kwiFrontex ngenxa yemeko ekumda osempuma. I-Frontex izisa nezixhobo zobugcisa eFinland zokubeka iliso kumda osempuma. I-Frontex izisa, umzekelo, iimoto zokujikeleza eFinland.
+
+Bangaphezu kwama-700 abantu abafuna indawo yokhuseleko beze eFinland besuka kumda osempuma ngoNovemba.
+
+### Ukusekwa kwamaziko ombutho
+
+![UMphathiswa Wezangaphakathi uMari Rantanen uthe ngoLwesine iFinland ilungiselela ukuseka amaziko okulungelelanisa. Umfanekiso: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.77777777777777777,c_fill,g_faces,h_675,w_prcod_a1:/f_auto/fl_lossy/v1700721586/39-1205201655eed1e81849)
+
+IFinland iseka amaziko okulungisa abaphambukeli abeza eFinland besuka kumda osempuma. Oku koko uMphathiswa wezangaphakathi **Mari Rantanen** uthi.
+
+Izazisi zabafuduki kunye nesizathu sokuba beze eFinland zifunyenwe kumaziko okucubungula. Abafuduki kufuneka bahlale kumaziko oququzelelo de babhaliswe. Injongo kukuba abasemagunyeni bakwazi ukubeka esweni abafuduki.
+
+Umphathiswa wezangaphakathi uRantanen uthi amaziko abafudukayo ayafuneka kuba iFinland ayazi ukuba ngoobani aba bafikayo. I-Ofisi yoMphathiswa we-Interior ilungiselela ummiselo kumaziko okulungelelanisa.
+
+### Ukufumana i-buzz
+
+![Ucalucalulo lusenokwenziwa, umzekelo, kwisini, kwiminyaka okanye kwinkangeleko. Ifoto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_110/ar_1.7777777777777777,c_fill,g_faces/60,wh_1.q_auto:eco/f_auto/fl_lossy/v1700718446/39-1205193655ee719688c7)
+
+Abasetyhini abaninzi abaselula bafumana ucalucalulo kubomi basemsebenzini. ISebe lezeMpilo kunye neNtlalontle libuze iFinns malunga nocalucalulo.
+
+Malunga nama-20 ekhulwini amabhinqa aselula aye acalulwa emsebenzini okanye xa efuna umsebenzi ebudeni bonyaka. Kuphononongo, abasetyhini abancinci bathetha abasetyhini abaneminyaka engama-20-39. I-16 ekhulwini lawo onke amabhinqa aye acalulwa yaye i-11 ekhulwini lawo onke amadoda aye acalulwa.
+
+Abantu abaninzi baseFinland nabo baba nesithukuthezi. Malunga ne-10 ekhulwini labantu baseFinland baba nobulolo. Ubulolo buye banda kwiminyaka yakutshanje.
+
+### Imozulu
+
+![Ilanga lisenokukhanya emantla ngoLwesihlanu.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_75,h_65,h_65,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700752778/39-1205671655f6d69ed984)
+
+Kukhithika kakhulu ebusuku emazantsi nasentshona naseOstrobothnia. NgoLwesihlanu, kuya kuba yikhephu kwiindawo ezisemazantsi nezimbindi welizwe. Ilanga ngamanye amaxesha linokukhanya emantla. Iqondo lobushushu emzantsi nakwintshona yelizwe liphakathi kwe--5 kunye ne-0 degrees, empuma nangasentla phakathi kwe--5 kunye ne-15 degrees.

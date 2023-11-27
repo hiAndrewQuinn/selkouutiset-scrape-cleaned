@@ -1,0 +1,55 @@
+## Radio klara novaĵo dimanĉo la 12-an de novembro 2023
+
+Limkontrolo de Rusio. Urba sekureco. Nepagitaj studentaj pruntoj. Tago de la Patro. Vetero.
+
+### Limkontrolo de Rusio ĝis Finnlando
+
+![Finnlando estas preta por ŝanĝo en la landlima sekureca situacio, diras la ministro pri internaj aferoj Mari Rantanen. Foto: Mikko Savolainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2720,w_4836,x_0,y_450/ar_1.7777777777777777,c_fill,g_faces,h_6701,w_1201.q_auto:eco/f_auto/fl_lossy/v1695988171/39-11790926516b884859ee)
+
+Pli da homoj ol kutime venis al la sudorienta landlimo de Finnlando el Rusio sen vizo.
+
+Ili estas civitanoj de triaj landoj, kiuj uzis Rusion por trafiko. Ĉirkaŭ 100 el ili venis aŭtune.Ili petis azilon en Finnlando ĉe la landlimo.
+
+Ĝis nun la rusaj aŭtoritatoj ne permesis eniron al la finna landlimo sen vizo. La Limgardisto diras, ke la operacioj de Rusio havas trajtojn de hibrida influo. En hibrida influo, unu ŝtato provas influi la sistemon de alia ŝtato.
+
+Kontraŭleĝaj enmigrintoj venis al la landlimo per bicikloj dum la semajno. Nun la limgardisto malhelpis biciklojn eniri Finnlandon.
+
+### Sekureco de urboj
+
+![La sekureca situacio en Tampere plimalboniĝis ol en Helsinko dum la pasintaj 10 jaroj. Foto: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2687,w_4777,x_1,y_258/ar_1.7777777777777777,c_fill,g_faces,h_6710,w_r1201,w_258q_auto:eco/f_auto/fl_lossy/v1699517677/39-1197321654a95de6dbe7)
+
+Sekureco plimalboniĝis en la grandaj urboj de Finnlando.
+
+Yle kolektis datumojn de la 10 plej grandaj urboj. La perturba indico montras, ke sekureco plimalboniĝis precipe en Espoo kaj Tampere. La indekso rakontas kiom da suspektataj krimoj estis registritaj en publikaj lokoj. La indekso rilatas al la nombro da loĝantoj.
+
+Jouni Perttula, sekureca administranto de la urbo Tampere, diras, ke la kaŭzoj de malsekureco estas ekzemple ebriaĵoj, mensaj sanproblemoj kaj rapida loĝantarkresko.
+
+### Studentpruntoj
+
+![La fono de la ŝuldmalfacilaĵoj estas ankaŭ la 2017-a studsubtena reformo. La prunto povus esti retirita kontraŭ 650 eŭroj monate anstataŭ la antaŭaj 400 eŭroj. Foto: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_557/ar_1.7777777777777777,c_fill,g_faces,h_671/0,d_r1201/w_557q_auto:eco/f_auto/fl_lossy/v1694583672/39-1171262650149d3dfd0c)
+
+Kela devas kolekti rekordan kvanton de studentaj pruntoj de studentoj, kiujn la studento ne pagis. Kela kolektis ŝuldojn ĉi-jare jam 3 fojojn pli ol pasintjare. La kolekto de Kela jam havas pli ol 72 milionojn da eŭroj en studentaj pruntoj.
+
+En Finnlando, studentoj ricevas ne nur studentan stipendion sed ankaŭ studentan prunton. La prunto estas garantiata de la ŝtato, aŭ praktike Kela.
+
+Se la studento ne povas repagi la prunton, Kela pagas ĝin al la banko. Post tio, Kela komencas kolekti la ŝuldon de la ŝuldanto, t.e. la studento.
+
+La fono estas, ekzemple, ke studenta subteno estas pli dependa de studentaj pruntoj ol antaŭe. Krome, altaj interezoprocentoj kaj inflacio malfaciligas la financon de studentoj.
+
+### Tago de la Patro
+
+![La ideo de la Tago de la Patro disvolviĝis en Usono pro la Tago de la Patrino. En la malfruaj 1940-aj jaroj, nordiaj komercistoj proponis la duan dimanĉon en novembro kiel la tagon, kiam la butikoj daŭre estas trankvilaj antaŭ la kristnaska sezono.](https://images.cdn.yle.fi/image/upload/c_crop,h_360, w_640,x_0,y_0/ar_1. 7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v15103075400/356757400/35103075400/356775400
+
+La Tago de la Patro estis festita dimanĉe.
+
+La Tago de la Patro estas ĉiam la dua dimanĉo de novembro. La Tago de la Patro estas la oficiala flaga tago en Finnlando ekde 2019. Ĝi estis establita flagtago ekde la 1980-aj jaroj.
+
+Estas 1,3 milionoj da patroj en Finnlando, diras Statistics Finland.
+
+### Vetero
+
+![ Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1201/0dp_auto.:eco/f_auto/fl_lossy/v1699803736/39-11995176550f22164d93)
+
+Malvarma aero komencas flui de nordo al Finnlando. Malpezaj neĝaj pluvoj ankoraŭ povas okazi lunde en la sudo kaj oriento.
+
+La temperaturo estas minuso dumtage ankaŭ ĉe la suda marbordo. En la nordo frostas nokte kaj matene 15\...25 gradoj, kelkloke eĉ pli.

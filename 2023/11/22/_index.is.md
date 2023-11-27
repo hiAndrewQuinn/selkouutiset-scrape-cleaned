@@ -1,0 +1,51 @@
+## Útvarp \| Skýrar fréttir \| Miðvikudagur 22. nóvember 2023
+
+Austur landamæri. Hælisleitendur. Traust stjórnvalda. Áfengi skaðar. Spá.
+
+### Styrking austurlandamæranna
+
+![Austurmörkin eru styrkt með td gaddavírsvörnum. Mynd: Ari Haimakainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_157/ar_1.7777777777777777,c_fill,g_faces,h_6_00,0dpr.q_auto:eco/f_auto/fl_lossy/v1700489748/39-1203622655b691ed016a)
+
+Finnland styrkir austurlandamærin með hindrunum. Tilgangurinn er að koma í veg fyrir að fólk komist inn í Finnland án leyfis frá Rússlandi.
+
+Rússar hafa komið fólki að landamærunum sem Rússar senda finnsku megin. Þess vegna eru reistar hindranir við og nálægt landamærastöðvum.
+
+Verið er að reisa girðingar að minnsta kosti í kringum Salla, Kuusamo og Vartius landamærastöðvarnar.
+
+Finnland tekur aðeins við hælisleitendum við austurlandamærin á Salla og Vartius landamærastöðvunum. Finnland hefur lokað landamærastöðvum Suðaustur-Finnlands.
+
+### Landamærastöðvar
+
+![Hælisleitendur á miðvikudag á landamærastöðinni í Salla. Ljósmynd: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_429/ar_1.77777777777777777,c_fill,g_05,w_12r,h_05,w_1r.q_auto:eco/f_auto/fl_lossy/v1700655653/39-1204918655df1f3cef50)
+
+Ríkisstjórnin er að undirbúa nýjar leiðir til að takmarka umferð á landamærastöðvum.
+
+Á þriðjudag neitaði aðstoðardómsmálaráðherra þeirri áætlun sem ríkisstjórnin var að undirbúa. Áætlunin hefur ekki verið birt opinberlega þar sem áætlunin er í vinnslu. Áætlunin takmarkaði ef til vill of mikið möguleika á að sækja um hæli í Finnlandi.
+
+Ríkisstjórnin undirbýr nú nýja tillögu um að koma í veg fyrir að fólk komist inn í Finnland án leyfis frá austurlandamærunum.
+
+Finnland hefur einnig óskað eftir aðstoð frá Frontex, landamæra- og strandgæslustofnun Evrópu. Finnar fara fram á að Frontex sendi 60 embættismenn til Finnlands til að aðstoða vegna ástandsins við austurlandamærin.
+
+![Ríkisstjórnin ávann sér traust þingsins. Mynd: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3983,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_6270,0dpr.q_auto:eco/f_auto/fl_lossy/v1696934704/39-118409465252a7d6dc9d)
+
+Ríkisstjórnin hefur áunnið sér traust þingsins í millimálakosningunni.
+
+Bráðabirgðaspurningin var lögð fram af stjórnarandstöðuflokkunum SDP, Græningjum og Vinstribandalaginu. Þeir segja að niðurskurður ríkisstjórnarinnar beinast að of mörgum ungu fólki og námsmönnum.
+
+Ríkisstjórnin hlaut traust þingsins með atkvæðum 96-76. Meirihluti þingsins treystir ríkisstjórninni. Þess vegna getur ríkisstjórnin starfað áfram.
+
+### Skaðar áfengis
+
+![Skaði áfengis kostar samfélagið mikið. Mynd: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2944,w_5235,x_0,y_312/ar_1.7777777777777777,c_fill,g_faces,h_1270,0dpr.q_auto:eco/f_auto/fl_lossy/v1700406169/39-1203003655a1febe291f)
+
+Skaðsemi áfengis veldur miklum kostnaði fyrir finnskt samfélag.
+
+Aalto háskólinn hefur rannsakað kostnað vegna áfengisskaða. Skaðinn af áfengi kostaði samfélagið að minnsta kosti 1,4 milljarða evra á síðasta ári. Kostnaður stafar af áfengistengdum dauðsföllum, meðferð áfengistengdra sjúkdóma, glæpum og fötlun.
+
+Að auki urðu atvinnurekendur fyrir 500 milljónum evra í fjárhagstjóni á síðasta ári vegna skaða af völdum áfengis. Vinnuveitandi verður fyrir kostnaði, til dæmis ef starfsmaður er óvinnufær.
+
+### Veður
+
+![Veðrið kólnar, svo hitinn hækkar.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_670,h_670,h_670,h_670,/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700671048/39-1205140655e2e229bced)
+
+Það snjóar mikið á nóttunni. Á Vesturlandi snjóar sums staðar allt að 20 cm. Snjókoma mun lægja í nótt fyrir vestan. Hiti sunnanlands er á bilinu 0 til +2 stig. Norðanlands víðast á bilinu -4 til -7 stig. Vindur er sums staðar mikill.

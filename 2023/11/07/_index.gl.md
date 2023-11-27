@@ -1,0 +1,57 @@
+## Radio \| Novas claras \| Martes 7 de novembro de 2023
+
+Vacinas contra a corona. Folgas. Capaz de traballar pensionistas. Tempo.
+
+### Vacinas contra a Corona
+
+![Os grupos de risco reciben agora vacinas de reforzo contra o virus da corona. Foto: Petri Niemi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2266,w_4027,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_r201.0/d_1_1q_auto:eco/f_auto/fl_lossy/v1675253861/39-99789363046bc0166b4)
+
+As vacinas contra a corona comezaron demasiado tarde este outono. Isto tamén é o que di o Instituto de Saúde e Benestar, ou THL, que coordina a organización das vacinas contra a corona.
+
+A coroa comeza a estenderse no outono, porque a xente volve estar na casa con outras persoas. Este outono, o número de casos de corona e pacientes de corona aumentou rapidamente.
+
+THL di que as vacinas contra a corona deben organizarse ao mesmo tempo que as vacinas contra a gripe. En caso contrario, non hai traballadores suficientes para xestionar todas as vacinas.
+
+É por iso que as vacinas contra a corona fíxose un pouco tarde e as contra a gripe un pouco cedo. Non obstante, o máis importante é que os grupos de risco reciban ambas vacinas.
+
+É especialmente importante que as persoas maiores de 80 anos reciban unha vacinación de reforzo contra o virus da corona, lembra THL.
+
+### Folgas
+
+![Atacantes en Oulu, ao norte de Finlandia. Foto: Ville Honkonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675/0d_r_1205.q_auto:eco/f_auto/fl_lossy/v1699368229/39-11968696549f7933eb81)
+
+As folgas paralizaron o traballo en moitos lugares de traballo en Finlandia.
+
+O martes houbo folgas no norte de Finlandia, o mércores houbo folgas na rexión de Turku. As folgas teñen unha duración máxima de 1 día.
+
+As folgas paran as fábricas por un día, por exemplo. Ademais, as folgas pechan instalacións deportivas e piscinas, por exemplo. O mércores, a folga parará os autobuses de Turku.
+
+Os sindicatos obreiros teñen previsto organizar folgas durante todo o próximo mes.
+
+Os sindicatos obreiros organizan folgas porque están enfadados co goberno.
+
+Por exemplo, o goberno pretende cambiar as regras de baixa por enfermidade para que o empregado xa non perciba salario desde o primeiro día de baixa.
+
+Ademais, o goberno prevé facilitar o despedimento dun empregado.
+
+### Maiores que sexan capaces de traballar
+
+![Moitos permanecen en bo estado durante moito tempo. Foto: Esa Syväkuru / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_47/ar_1.7777777777777777,c_fill,g_faces,h_6705,wd_r_1201.q_auto:eco/f_auto/fl_lossy/v1568642672/39-5915475d7f9625891ee)
+
+Hai moitos pensionistas en Finlandia que aínda poden traballar. A información procede dun estudo do Instituto de Saúde e Benestar.
+
+Máis do 50 por cento das persoas de 65 a 74 anos estiman que son capaces de traballar. Non obstante, só un 10 por cento deles vai traballar.
+
+Os xubilados poden ter unha condición moi diferente. Outros poden correr, pero para algúns é difícil camiñar.
+
+### Tempo
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_auto1eco.0/dpr_f_auto/fl_lossy/v1699373925/39-1197270654a63406a4f5)
+
+O mércores, o tempo estará nubrado e con néboa.
+
+Chove especialmente no centro do país e na Laponia occidental. As precipitacións son principalmente neve.
+
+Hai unha pequena xeada no norte do país, senón o mércores estaremos no lado positivo.
+
+O xoves, o tempo vai facer máis frío no norte, e en Laponia estarán arredor dos 10 graos baixo cero. As choivas de auga achéganse ao sur de Finlandia dende o oeste.

@@ -1,0 +1,51 @@
+## Radio \| Aydın xəbər \| 22 noyabr 2023-cü il, çərşənbə
+
+Şərq sərhədi. Sığınacaq axtaranlar. Hökumətin etimadı. Alkoqol zərər verir. Proqnoz.
+
+### Şərq sərhədinin möhkəmləndirilməsi
+
+![Şərq sərhədi, məsələn, tikanlı məftilli maneələrlə möhkəmləndirilib. Foto: Ari Haimakainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_157/ar_1.777777777777777,c_fill,g_faces,w_06/h_02q_auto:eco/f_auto/fl_lossy/v1700489748/39-1203622655b691ed016a)
+
+Finlandiya şərq sərhədini maneələrlə gücləndirir. Məqsəd insanların Rusiyadan icazə almadan Finlandiyaya daxil olmasının qarşısını almaqdır.
+
+Rusiya Finlandiya tərəfinə göndərdiyi insanları sərhədə gətirib. Ona görə də sərhəd-keçid məntəqələrində və yaxınlığında maneələr tikilir.
+
+Ən azı Salla, Kuusamo və Vartius sərhəd stansiyalarının ətrafında hasarlar tikilir.
+
+Finlandiya şərq sərhədində sığınacaq axtaranları yalnız Salla və Vartius sərhəd stansiyalarında qəbul edir. Finlandiya Cənub-Şərqi Finlandiyanın sərhəd keçidlərini bağlayıb.
+
+### Sərhəd keçid məntəqələri
+
+![Çərşənbə günü Salla sərhəd stansiyasında sığınacaq axtaranlar. Foto: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_429/ar_1.777777777777777,c_fill,g_faces/610h,q_auto:eco/f_auto/fl_lossy/v1700655653/39-1204918655df1f3cef50)
+
+Hökumət sərhəd keçidlərində nəqliyyatın hərəkətini məhdudlaşdırmaq üçün yeni üsullar hazırlayır.
+
+Çərşənbə axşamı ədliyyə kanslerinin müavini hökumətin hazırladığı planı təkzib etdi. Planın icrası davam etdiyi üçün plan ictimaiyyətə açıqlanmayıb. Plan Finlandiyadan sığınacaq üçün müraciət etmək imkanını bəlkə də çox məhdudlaşdırırdı.
+
+Hökumət indi insanların Finlandiyaya şərq sərhədindən icazəsiz daxil olmasının qarşısını almaq üçün yeni təklif hazırlayır.
+
+Finlandiya Avropa Sərhəd və Sahil Mühafizəsi Agentliyi olan Frontex-dən də kömək istəyib. Finlandiya Frontex-dən şərq sərhədindəki vəziyyətə görə Finlandiyaya kömək üçün 60 məmur göndərməsini xahiş edir.
+
+![Hökumət parlamentin etimadını qazandı. Foto: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3983,x_0,y_325/ar_1.777777777777777,c_fill,g_faces,h_pr_610.q_auto:eco/f_auto/fl_lossy/v1696934704/39-118409465252a7d6dc9d)
+
+Hökumət aralıq sual səsverməsində parlamentin etimadını qazanıb.
+
+Aralıq sualı müxalifət partiyaları SDP, Yaşıllar və Sol Alyans verib. Onlar deyirlər ki, hökumətin ixtisarları həddən artıq çox gənc və tələbələri hədəfləyir.
+
+Hökumət 96-76 səslə parlamentin etimadını qazanıb. Parlamentin əksəriyyəti hökumətə güvənir. Ona görə də hökumət işləməyə davam edə bilər.
+
+### Alkoqolun zərərləri
+
+![Alkoqolun zərərləri cəmiyyətə çox baha başa gəldi. Foto: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2944,w_5235,x_0,y_312/ar_1.777777777777777,c_fill,g_faces,h_pr_120.q_auto:eco/f_auto/fl_lossy/v1700406169/39-1203003655a1febe291f)
+
+Alkoqolun zərərləri Fin cəmiyyəti üçün çoxlu xərclərə səbəb olur.
+
+Aalto Universiteti alkoqolun zərərini araşdırıb. Spirtli içkilərin zərərləri ötən il cəmiyyətə ən azı 1,4 milyard avroya başa gəlib. Xərclər alkoqolla əlaqəli ölümlər, alkoqolla əlaqəli xəstəliklərin müalicəsi, cinayətlər və əlillikdən gəlir.
+
+Bundan başqa, işəgötürənlər ötən il spirtli içkilərin vurduğu zərərə görə 500 milyon avro maliyyə itkisinə məruz qalıblar. İşəgötürən, məsələn, işçi işləyə bilmirsə, xərcləri çəkir.
+
+### Hava
+
+![Hava soyuyur, buna görə də temperatur yüksəlir.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_02/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700671048/39-1205140655e2e229bced)
+
+Gecələr çoxlu qar yağır. Qərbdə bəzi yerlərdə 20 sm-ə qədər qar yağacaq. Gecə qərbdə qar yağacaq. Cənubda temperatur 0 ilə +2 dərəcə arasındadır. Şimalda, əsasən, -4 ilə -7 dərəcə arasında. Bəzi yerlərdə külək güclüdür.

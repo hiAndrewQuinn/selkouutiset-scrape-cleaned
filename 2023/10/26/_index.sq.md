@@ -1,0 +1,61 @@
+## Radio Selkouutiset e enjte 26 tetor 2023
+
+Gjyqi kundërmasës. Gardhi i kufirit lindor. Bordi i Pyjeve. Aksident hipur në kalë. Kufizimet e rrugëve dimërore. Moti.
+
+### Gjyqi kundërmasës
+
+![I akuzuari Aleksanteri Kivimäki. Foto: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2875,w_5112,x_0,y_568/ar_1.777777777777777,c_fill,g_500,c_fill,g_500,00,00,00,00,00,000,000,000,000,2010,g_500,2000,000,200,200,1000,100,2000,200,200,200,10,2,1,2,1,2,1,2,1,1,1,1,1,1,1,1,1,1,1,9,1,3.q_auto:eco/f_auto/fl_lossy/v1698305049/39-1191484653a13e7df175)
+
+Ka nisur gjykimi për shkeljen e të dhënave në zyrë. Vastaamo ishte një kompani që u jepte njerëzve psikoterapi.
+
+Në padi, Aleksanteri Kivimäki akuzohet se fillimisht ka thyer informacionin e klientit të Vastaamo. Prokurorët thonë se pas shkeljes së të dhënave, Kivimäki shantazhoi brutalisht dhjetëra mijëra njerëz. Kivimäki publikoi gjithashtu informacionin e klientit të Vastaamo në internet.
+
+Prokurorët kërkojnë që Kivimäki të dënohet me 7 vjet burg.
+
+Aleksanteri Kivimäki thotë se nuk i ka kryer krimet për të cilat akuzohet.
+
+### Gardhi i kufirit lindor
+
+![Një gardh i ri kufitar pranë stacionit kufitar Pelkola në Imatra. Foto: Kare Lehtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2243,w_3993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_1205,h_pr.q_auto:eco/f_auto/fl_lossy/v1698323397/39-1191724653a55b2a04b0)
+
+Një gardh po ndërtohet në kufirin lindor të Finlandës. Ndërtimi i gardhit do të nisë në prill.
+
+Së pari, gardhi do të ndërtohet në Finlandën Juglindore pranë pikave kufitare për Imatra, Vaalimaa dhe Nuijamaa. Kur të përfundojë gardhi, do të jetë gjithsej rreth 200 kilometra i gjatë. I gjithë gardhi do të jetë gati në vitin 2026.
+
+Roja Kufitare tashmë ka ndërtuar një gardh të vogël në Imatra. Roja Kufitare thotë se ka eksperienca të mira me këtë gardh testues.
+
+Qëllimi i gardhit është që ju nuk mund të kaloni lehtësisht kufirin midis Finlandës dhe Rusisë pa leje.
+
+### Bordi i Pyjeve
+
+![Ndërtesa me tulla e vendosur në portën kryesore të fabrikës së kartonit Äänekoski të Metsä Board më 26 tetor 2023. Foto: Jussi Lindroos / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_1205,h_1100q_auto:eco/f_auto/fl_lossy/v1698319726/39-1191672653a4ca1724ad)
+
+Kompania pyjore Metsä Board mund të pushojë nga puna punonjësit.
+
+Negociatat e ndryshimit kanë të bëjnë me një total prej rreth 1100 njerëzve në fabrikat finlandeze të kartonit të Metsä Board. Me siguri do të ketë pushime nga puna vitin e ardhshëm dhe do të zgjasin 3 muaj.
+
+Bordi i Metsä thotë se tani po blihet shumë pak karton. Prandaj, kompania mund të duhet të pushojë punonjësit.
+
+### Aksident hipur në kalë
+
+![Aksidenti ndodhi në stallën e kuajve. Foto ilustrimi. Foto: Linus Westerlund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_387/ar_1.7777777777777777,c_fill,g_50,h_10,h_1.q_auto:eco/f_auto/fl_lossy/v1692692625/39-116023264e46d0e45030)
+
+Në Espoo, një grua e re vdiq në një aksident në një stallë kuajsh. Një grua rreth të 20-tave ka vdekur pasi ra nga kali të martën. Kalorësi kishte veshur një helmetë.
+
+Shkaku i aksidentit po hetohet.
+
+### Shpejtësitë e dimrit
+
+![Kufijtë e shpejtësisë rrugore dimërore hyjnë në fuqi. Foto: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_120,h_120,h_120,h_100,h_120,h_120,h_120,h_120,h_100,h_120.q_auto:eco/f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
+
+Në shumë autostrada kufiri i shpejtësisë do të ndryshojë ditën e enjte. Në dimër, kufiri i shpejtësisë në pothuajse të gjitha rrugët në Finlandë është 80 kilometra në orë.
+
+Kufiri i shpejtësisë në autostrada në dimër është 100 kilometra në orë.
+
+### Moti
+
+![ Foto: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_5/wp_107777777777777777777777777777,c_fill,g_5/w_10.0/q_auto:eco/f_auto/fl_lossy/v1698292510/39-11913736539e2ff81a55)
+
+Të premten do të bjerë pak borë në Lapland. Gjithashtu në bregdetin jugor do të ketë reshje shiu ose bore. Diku tjetër në Finlandë, ka telashe.
+
+Temperatura është pozitive në pjesën jugore të vendit. Në zonat qendrore dhe veriore të vendit ka ngrica.

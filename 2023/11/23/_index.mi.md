@@ -1,0 +1,49 @@
+## Irirangi \| Nga korero marama \| Rāpare 23 Noema 2023
+
+rohe ki te rawhiti. Frontex. Nga pokapū manene. Whakahāwea. Matapae.
+
+### Te ahuatanga i nga waahi whakawhiti rohe
+
+![Ko Raja-Jooseppi te rohe whakateraki rawa atu e whakawhiti ana i te rohe ki te rawhiti. Ko etahi atu whakawhitinga rohe kua katia. Whakaahua: Miku Huttunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3216,w_5712,x_0,y_421/ar_1.7777777777777777,c_fill,g_faces,h_610,/w_pr_205/w_pr_1.q_auto:eco/f_auto/fl_lossy/v1700751077/39-1205645655f665a86285)
+
+Kei te kati a Finland i nga waahi whakawhiti rohe ki te rohe ki te rawhiti. Ko te take ko nga manene ka tukuna e Ruhia ki te rohe o Finnish.
+
+Ka kati nga teihana taitapa Vartius, Kuusamo me Salla i tenei ra, Rāpare. Kotahi noa te whakawhiti rohe, ko Raja-Jooseppi, ka noho tuwhera tonu. Ko Raja-Jooseppi te teihana rohe ki te raki. I tera wiki kua hipa, ka tutakina e Finland nga whakawhitinga rohe o te Tonga o Finland.
+
+Ko te tumanako a Finland ka mutu te taenga mai o nga manene ina kotahi noa te teihana rohe tuwhera, kei te taha raki.
+
+### Te awhina a Frontex ki te kaitiaki rohe o Finnish
+
+![Ka tukuna e Frontex nga kaitiaki rohe me nga taputapu ki Finland. Whakaahua: Pauliina Tolvanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675/w_pr_120.q_auto:eco/f_auto/fl_lossy/v1663055873/39-100697563203716d9ecd)
+
+Ka whiwhi awhina a Finland mai i te European Border Guard Agency, Frontex, mo te tirotiro i te rohe ki te rawhiti. Ka tukuna e Frontex nga tangata 50 ki Finland ki te awhina i te aro turuki i te rohe ki te rawhiti. Ka haere mai ratou ki Finland a tera wiki.
+
+I tono a Finland ki a Frontex mo te awhina na te ahuatanga o te rohe ki te rawhiti. Ka mauria ano e Frontex nga taputapu hangarau ki Finland mo te tirotiro i te rohe ki te rawhiti. Ka mauria e Frontex, hei tauira, nga waka tautiaki ki Finland.
+
+Neke atu i te 700 te hunga rapu whakarurutanga kua tae mai ki Finland mai i te rohe ki te rawhiti i te marama o Noema.
+
+### Te whakatu i nga pokapu whakahaere
+
+![I kii te Minita mo te Taiwhenua a Mari Rantanen i te Rapare kei te whakarite a Finland ki te whakatu i nga pokapu whakahaere. Atahanga: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_au:toe/f_auto/fl_lossy/v1700721586/39-1205201655eed1e81849)
+
+Kei te whakatuu a Finland i nga pokapū tukatuka mo nga manene e haere mai ana ki Finland mai i te rohe ki te rawhiti. Koia te korero a te Minita o roto i a **Mari Rantanen**.
+
+Ko te tuakiri o nga manene me te take i tae mai ai ratou ki Finland ka kitea i roto i nga pokapū tukatuka. Me noho nga manene ki roto i nga pokapū whakahaere kia rehita ra ano ratou. Ko te kaupapa kia taea e nga mana whakahaere te aro turuki i nga manene.
+
+E ai ki te Minita o roto o Rantanen, me hiahia nga pokapu manene na te mea kare a Finland i te mohio ko wai nga taunga hou. Kei te whakarite te Manatu o te Taiwhenua i tetahi ture mo te whakahaere i nga pokapu.
+
+### Ka rongo i te haruru
+
+![Ka taea te whakahāwea ki runga, hei tauira, te ira tangata, te pakeke, te ahua ranei. Whakaahua: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2394,w_4256,x_0,y_110/ar_1.7777777777777777,c_fill,g_faces,h_675,/wd_pr_675,q_auto:eco/f_auto/fl_lossy/v1700718446/39-1205193655ee719688c7)
+
+He maha nga rangatahi wahine e pa ana ki te mahi whakatoi. Kua patai te Tari Hauora me te Toko i te Ora ki a Finns mo te whakahāweatanga.
+
+Tata ki te 20 paiheneti o nga rangatahi wahine kua pa ki te whakawhäiti i te mahi, i te wa e rapu mahi ana i roto i te tau. I roto i te rangahau, ko nga wahine rangatahi ko nga wahine 20-39 tau. 16 ōrau o ngā wāhine katoa kua pā ki te whakahāwea, ā, 11 ōrau o ngā tāne katoa kua pā ki te whakahāweatanga.
+
+He maha nga Finns ka wheako mokemoke. Tata ki te 10 paihēneti o Finns ka kite mokemoke. Kua piki ake te mokemoke i nga tau tata nei.
+
+### Huarere
+
+![Ka whiti te ra ki te raki a te Paraire.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700752778/39-1205671655f6d69ed984)
+
+He nui te hukarere i te po ki te tonga me te hauauru me Ostrobothnia. Hei te Paraire, ka heke te hukarere ki te tonga me te puku o te motu. I etahi wa ka whiti te ra ki te raki. Ko te mahana i te tonga me te hauauru o te whenua kei waenganui i te -5 me te 0 nga nekehanga, kei te rawhiti me te raki kei waenganui i te -5 me te -15 nga nekehanga.

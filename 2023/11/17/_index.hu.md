@@ -1,0 +1,61 @@
+## Rádió \| Világos hírek \| 2023. november 17. péntek
+
+Keleti határ. Korona fertőzések. Katonai segély Ukrajnának. Iskolai közlekedés. Időjárás.
+
+### Keleti határ
+
+![Finnország lezárja a határátkelőket. Fotó: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6201./d_1275,/dq_auto:eco/f_auto/fl_lossy/v1699908616/39-1200025655285565477b)
+
+Finnország keleti határán nagy volt a forgalom pénteken. Továbbra is érkeztek menedékkérők a határra.
+
+Megnövekedett a forgalom a keleti határon, mert Finnország úgy döntött, hogy lezárja a keleti határon lévő határátkelőhelyeket.
+
+A határátkelőhelyek péntekről szombatra virradó éjjel zárva tartanak. Éjfélkor leengedik a sorompókat a határátkelőhelyeken. A helyekre más akadályokat is hoznak, amelyeken az autók nem tudnak átmenni.
+
+A határátkelőhelyek 3 hónapig, azaz február közepéig zárva tartanak. Csak a keleti határ északi határátkelői maradnak nyitva.
+
+Finnország biztonsági okokból lezárja a határátkelőket. Sokan a szükséges papírok, például vízum nélkül érkeztek a határra.
+
+Oroszország a finn határhoz engedte őket, mert esetleg meg akarja zavarni Finnországot. Finnország le akarja állítani ezt a tevékenységet.
+
+### Koronafertőzések
+
+![A kockázati csoportok ismét kaptak egy emlékeztető oltást a koronavírus ellen. Fotó: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_6275./d_pr1275,0q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+
+Csökken a koronafertőzöttek száma Finnország déli részén. Ezt állítja az Egészségügyi és Népjóléti Intézet.
+
+Idén ősszel sok volt a koronafertőzés, de mostanra lassulni kezdett a korona terjedése.
+
+A koronafertőzések pontos számát azonban nem tudni, mert kevesebben végeznek koronatesztet, mint a korábbi években.
+
+Folynak az őszi korona elleni oltások. Az Egészségügyi és Népjóléti Minisztérium szerint minden kockázati csoportba tartozó ember számára elegendő védőoltás áll rendelkezésre.
+
+### Katonai segély Ukrajnának
+
+![Ukrajna elnöke, Volodimir Zelenszkij. Fotó: Jakub Porzycki / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_1200,/w_1270,/wq_auto:eco/f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb)
+
+Finnország újabb katonai segélyt küld Ukrajnának. A támogatás értéke 100 millió euró.
+
+Finnország immár 20. alkalommal küld katonai segélyt Ukrajnának. Finnország összesen 1,5 milliárd euró katonai segélyt küldött Ukrajnának.
+
+Volodimir Zelenszkij ukrán elnök a közösségi médiában köszönte meg a segítséget. Szerinte a segély egész Európa biztonságát erősíti.
+
+### Iskolai közlekedés
+
+![ Fotó: Sakari Partanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1494,w_2655,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,/w_pr_670,/w_pr_6750/q_auto:eco/f_auto/fl_lossy/v1677057284/39-107608063f5dc988d5c3)
+
+Az iskolai közlekedés utazási idejét meghosszabbították. Egy iskolás gyermek utazási ideje gyakran napi 1 vagy 2 óra.
+
+Ennek oka gyakran a megtakarítás. Sok iskolát bezártak a vidéki területeken. Ezért lehet hosszú út az iskoláig.
+
+Ezenkívül az iskolai szállítmányok gyakran sok otthonon keresztül mennek át, mielőtt megérkeznének az iskolába. Pénzt takarít meg, de növeli az utazási időt.
+
+### Időjárás
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/0/q_:autoe.f_auto/fl_lossy/v1700238427/39-120255565579437e32dc)
+
+Szombaton délen, keleten havas eső is lehet. Máshol felhős, vagyis nem esik.
+
+Többnyire felhős az idő, de néhol kisüt a nap, legalábbis Észak-Lapföldön.
+
+A hétvégén országszerte fagypont várható. Délen csak kis fagy van, északon viszont erős a fagy.

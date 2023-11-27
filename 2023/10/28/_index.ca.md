@@ -1,0 +1,63 @@
+## Ràdio \| Notícies clares \| Dissabte 28 d'octubre de 2023
+
+Gaza. ONU Alexander Stubb. Premi Sèsam. Hora d'hivern. Previsió.
+
+### Batalles a l'Orient Mitjà
+
+![Israel ha augmentat els atacs a Gaza. Foto: Aris Messinis / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_531/ar_1.7777777777777777,c_fill,g_faces,h_6710,/d_r1_201./0.q_auto:eco/f_auto/fl_lossy/v1698410872/39-1192351653bb10bf0b47)
+
+Els combats a l'Orient Mitjà s'intensifiquen. Israel ha augmentat molts atacs a Gaza. Israel ha colpejat 150 objectius de l'organització extremista Hamàs.
+
+No hi ha informació precisa sobre la destrucció i les víctimes a Gaza, perquè les connexions amb Gaza estan trencades.
+
+Moltes organitzacions d'ajuda també han perdut el contacte amb els cooperants a Gaza.
+
+### Resolució de l'Assemblea General de les Nacions Unides
+
+![L'ONU exigeix un alto el foc a Gaza. Foto: EPA/HANNIBAL HANSCHKE](https://images.cdn.yle.fi/image/upload/c_crop,h_3150,w_5600,x_0,y_268/ar_1.7777777777777777,c_fill,g_faces,w_1205,w_1200,x_0,y_268/ar_1.7777777777777777q_auto:eco/f_auto/fl_lossy/v1698499380/39-1192714653d0ab7d4d4c)
+
+L'Assemblea General de l'ONU demana un alto el foc humanitari a Gaza. L'Assemblea General de l'ONU ha emès una resolució al respecte. La resolució condemna la violència contra civils palestins i israelians.
+
+120 països van votar a favor de la resolució. 14 estats van votar en contra. 45 estats es van abstenir, és a dir, no es van posicionar sobre el tema.
+
+Per exemple, Finlàndia i molts altres països van votar no perquè la resolució de l'ONU no condemnava l'atac de Hamàs a Israel.
+
+### El candidat a la presidència de la coalició
+
+![Alexader Stubb és ara oficialment el candidat de la coalició a la presidència. Foto: Antti Aimo-Koivisto / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_287/ar_1.7777777777777777,c_fill,g_faces,w_1201,w_1200.0/q_auto:eco/f_auto/fl_lossy/v1698494219/39-1192698653cf6c267686)
+
+La coalició ha nomenat **Alexander Stubb** com a candidat presidencial del partit.
+
+La coalició va decidir sobre el tema en una reunió extraordinària del partit.
+
+La coalició havia acordat anteriorment que Stubbs es convertiria en el candidat presidencial del partit. És per això que Stubb també va començar la campanya electoral abans. La candidatura de Stubb es va decidir oficialment ara.
+
+### Premi Sèsam de no ficció
+
+![La il·lustradora Pekka Rahkonen va rebre el premi Sesam. Foto: Pekka Rahkonen](https://images.cdn.yle.fi/image/upload/c_crop,h_861,w_1531,x_2,y_65/ar_1.777777777777777,c_fill,g_faces,h_675,w_qr_auto.eco/f_auto/fl_lossy/v1698504762/39-1192741653d1f5e2611a)
+
+La il·lustradora **Pekka Rahkonen** ha guanyat el premi Sesam de no-ficció. Rahkonen ha il·lustrat llibres en llenguatge senzill, dibuixos animats, llibres de text i llibres en línia. El premi Sesam s'atorga a les obres que promouen la no ficció.
+
+El premi Sesam l'atorga el grup de treball de rústica de Selkokeskus. El grup de treball diu que Pekka Rahkone té un bon estil propi i una il·lustració d'alta qualitat.
+
+El premi Sesam de no ficció es va lliurar a Rahkonen a la fira del llibre d'Hèlsinki. El premi Sesam és de 1.000 euros.
+
+### Canvi d'hora
+
+![L'hora es traslladarà una hora a les 4 del matí de diumenge. Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dp_auto_1.0/dpr_1.0/dpr/f_auto/fl_lossy/v1603530654/14-svyle-6142553197327452bd)
+
+L'horari d'estiu acaba demà a la nit. L'hora s'endarrerirà una hora diumenge al matí a les 4 de la tarda.
+
+A molta gent els agrada poder dormir una hora més perquè l'hora s'ha endarrerit una hora.
+
+El canvi horari es va introduir a la UE l'any 1981. L'horari d'estiu sempre comença a finals de març i acaba a finals d'octubre.
+
+### El temps
+
+![El temps és força fred.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200./d_12010/q_auto:eco/f_auto/fl_lossy/v1698504972/39-1192742653d20d3625ce)
+
+Diumenge el temps serà majoritàriament ennuvolat. A la costa d'Ostrobotnia, neva molt i el temps de conducció pot ser dolent.
+
+De vegades el sol brilla a la part central i occidental del país.
+
+A la nit, tot el país es congela. Durant el dia de diumenge, la temperatura se situarà entre +1 i -5 graus, farà més fred a llocs de Lapònia.

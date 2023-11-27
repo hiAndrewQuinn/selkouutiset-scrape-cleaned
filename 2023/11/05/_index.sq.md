@@ -1,0 +1,61 @@
+## Radio \| Lajme të qarta \| e diel 5 nëntor 2023
+
+Rinovime energjitike. Lidhja e kompanive të akullores me Rusinë. Testi i raketave ruse. Situata e pengjeve gjermane. Përmbytje. Parashikim.
+
+### Mbështetje për rinovimet energjetike
+
+![Subvencionet e energjisë mund të përdoren, për shembull, për sistemet e reja të ngrohjes. Foto: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3349,w_5954,x_0,y_325/ar_1.777777777777777,c_fill,g_5,w_01,h_1.q_auto:eco/f_auto/fl_lossy/v1676637402/39-107442463ef747ea1acd)
+
+Ekspertët janë të shqetësuar për të ardhmen e rinovimeve të energjisë. Shteti do të ndalojë subvencionimin e rinovimeve të energjisë vitin e ardhshëm.
+
+Mbështetja ka qenë popullore. Mbështetje është marrë, për shembull, për ndërtimin e ngrohjes gjeotermale ose riparimin e vulosjes së shtëpive. Efikasiteti energjetik i shtëpive është përmirësuar me mbështetjen.
+
+Menaxherët e pronave kanë frikë se renovimet energjetike të shtëpive do të ulen sepse do të përfundojë subvencionimi.
+
+### Lidhja e markave të akulloreve me Rusinë
+
+![Disa marka akulloresh kanë lidhje me Rusinë. Foto: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_120/w_pr.q_auto:eco/f_auto/fl_lossy/v1682321321/39-110323664462e3b6fb8b)
+
+Yle ka hetuar lidhjet e markave finlandeze të akulloreve me Rusinë. Disa marka akulloresh kanë lidhje me Rusinë.
+
+Shumë kompani të mëdha ndërkombëtare ende operojnë në Rusi. Të njëjtat kompani zotërojnë edhe kompani që prodhojnë akullore në vende të tjera. Për shembull, kompanitë e mëdha ndërkombëtare Nestle dhe Unilever zotërojnë shumë marka akulloresh në Finlandë.
+
+Shumë kompani janë larguar nga Rusia sepse Rusia është në luftë në Ukrainë. Vendeve të BE-së nuk u pëlqen fakti që kompanitë operojnë në Rusi. BE-ja ka vendosur sanksione ndaj Rusisë për shkak të luftës.
+
+### Testi i raketës ruse
+
+![Presidenti rus Vladimir Putin. Foto: Mikhael Klimentyev / Sputnik / Kremlin Pool](https://images.cdn.yle.fi/image/upload/c_crop,h_4519,w_8034,x_16,y_238/ar_1.77777777777777777717,05.0/q_auto:eco/f_auto/fl_lossy/v1678982359/39-108632664133bfc2dc51)
+
+Rusia ka kryer një test lëshimi me një raketë me rreze të gjatë. Rusia thotë se testi i lëshimit të raketës ishte i suksesshëm.
+
+Raketa Bulava është 12 metra e gjatë. Raketa mund të fluturojë rreth 8000 kilometra dhe mund të mbajë 6 koka bërthamore.
+
+Rusia lëshoi një raketë nëndetëse nga Deti Vjenez.
+
+### Situata e pengjeve në Gjermani
+
+![Kalimi për në aeroportin e Hamburgut u mbyll për shkak të situatës së pengjeve. Foto: Bodo Marks / DPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2703,w_4806,x_0,y_500/ar_1.777777777777777,c_fill,g_faces,h_1270,dq_auto:eco/f_auto/fl_lossy/v1699181525/39-11959676547736ea1bc0)
+
+Ka pasur një situatë të gjatë pengjesh në aeroportin e Hamburgut në Gjermani.
+
+Situata nisi mbrëmjen e së shtunës, kur një burrë hyri me makinë në zonën e aeroportit dhe qëlloi në ajër. Nga makina ka hedhur edhe 2 shishe benzine. Në makinë ishte vajza 4-vjeçare e burrit, e cila ishte peng i burrit. Shkak për veprimet e burrit ishte ndoshta një mosmarrëveshje për kujdestarinë e fëmijës.
+
+Aeroporti i Hamburgut u mbyll dhe të gjitha fluturimet u anuluan. Situata ka përfunduar pasditen e së dielës kur policia ka arrestuar burrin. Aeroporti i Hamburgut është hapur sërish për trafik në mbrëmje.
+
+### Paralajmërim për përmbytjet në Finlandën Perëndimore
+
+![Rrugët mund të ujohen kur bie shi dhe bora shkrihet shpejt. Foto: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_218/ar_1.7777777777777777,c_fill,g_faces,h_120/h_120/h_120.q_auto:eco/f_auto/fl_lossy/v1697618867/39-11828126521489e76d51)
+
+Instituti Meteorologjik Finlandez ka lëshuar një paralajmërim për përmbytjet për Finlandën Perëndimore. Shkak janë shirat e dendur. Në zonë ka rënë borë, e cila po shkrihet. Gjithashtu, do të ketë edhe dushe të reja uji.
+
+Shumë ujë vjen nga bora dhe shiu. Prandaj, niveli i ujit mund të rritet në perëndim.
+
+Për shembull, lumenjtë mund të vërshojnë fusha dhe rrugë në Finlandën Veriore, Pirkanmaa, Satakunta, Ostrobothnia dhe Ostrobothnia Jugore.
+
+### Moti
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_12.1200d/f_auto/fl_lossy/v1699200945/39-11960206547bf95c98f5)
+
+Të hënën është me re. Në pjesët jugore dhe qendrore të vendit bie shi ose shi. Në Finlandën veriore, reshjet ndalojnë gjatë ditës.
+
+Temperatura gjatë ditës është ndërmjet 0 dhe +8 gradë, në Laplandën Veriore midis 0 dhe -3 gradë.

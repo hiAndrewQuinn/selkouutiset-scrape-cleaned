@@ -1,0 +1,61 @@
+## Radio \| Čiste vijesti \| Petak 17. studenog 2023
+
+Istočna granica. Korona infekcije. Vojna pomoć Ukrajini. Školski prijevoz. Vrijeme.
+
+### Istočna granica
+
+![Finska zatvara granične prijelaze. Fotografija: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908616/39-1200025655285565477b)
+
+U petak je na istočnoj granici Finske bila velika gužva. Na granicu su nastavili pristizati i tražitelji azila.
+
+Pojačan je promet na istočnoj granici jer je Finska odlučila zatvoriti granične prijelaze na istočnoj granici.
+
+U noći između petka i subote granični prijelazi su zatvoreni. U ponoć se spuštaju rampe na graničnim prijelazima. Na mjesta se dovoze i druge prepreke, koje automobili ne mogu proći.
+
+Granični prijelazi zatvoreni su 3 mjeseca, odnosno do sredine veljače. Otvoreni će ostati samo sjeverni granični prijelazi na istočnoj granici.
+
+Finska zatvara granične prijelaze iz sigurnosnih razloga. Mnogi ljudi su došli na granicu bez potrebnih papira, primjerice vize.
+
+Rusija ih je pustila do finske granice jer bi mogla uznemiriti Finsku. Finska želi zaustaviti ovu aktivnost.
+
+### Corona infekcije
+
+![Rizične skupine ponovno su cijepljene protiv korona virusa. Fotografija: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+
+Broj zaraženih korona virusom opada u južnoj Finskoj. Kažu to iz Zavoda za zdravstvo i socijalnu skrb.
+
+Ove jeseni bilo je dosta zaraza koronom, ali sada se širenje korone počelo usporavati.
+
+No, ne zna se točan broj zaraženih, jer se manje ljudi testira na korona virus nego prethodnih godina.
+
+U tijeku je jesensko cijepljenje protiv korone. Iz Zavoda za zdravstvo i socijalnu skrb kažu da ima dovoljno cijepljenja za sve osobe u rizičnim skupinama.
+
+### Vojna pomoć Ukrajini
+
+![Predsjednik Ukrajine Volodymyr Zelenskyi. Fotografija: Jakub Porzycki / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1393,w_2477,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696579988/39-1182210651fc13097ccb)
+
+Finska šalje dodatnu vojnu pomoć Ukrajini. Vrijednost pomoći je 100 milijuna eura.
+
+Ovo je 20. put da Finska šalje vojnu pomoć Ukrajini. Finska je poslala Ukrajini vojnu pomoć u ukupnom iznosu od 1,5 milijardi eura.
+
+Ukrajinski predsjednik Volodymyr Zelenskyi zahvalio je na pomoći na društvenim mrežama. Kaže da pomoć jača sigurnost cijele Europe.
+
+### Školski prijevoz
+
+![ Fotografija: Sakari Partanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1494,w_2655,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1677057284/39-107608063f5dc988d5c3)
+
+Produljeno je vrijeme putovanja školskog prijevoza. Često je vrijeme putovanja školarca 1 ili 2 sata dnevno.
+
+Razlog je često ušteda. Mnoge škole su zatvorene u ruralnim područjima. Zato put do škole može biti dug.
+
+Osim toga, školski prijevozi često prolaze kroz mnoge domove prije nego stignu u školu. Štedi novac, ali povećava vrijeme putovanja.
+
+### Vrijeme
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700238427/39-120255565579437e32dc)
+
+U subotu na jugu i istoku može pasti malo snijega. Drugdje je oblačno, što znači da nema kiše.
+
+Pretežno je oblačno, ali mjestimice sija sunce, barem u sjevernoj Laponiji.
+
+Temperatura će za vikend biti niska u cijeloj zemlji. Na jugu samo malo mraza, ali na sjeveru je mraz jak.

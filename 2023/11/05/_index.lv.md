@@ -1,0 +1,61 @@
+## Radio \| Skaidras ziņas \| Svētdiena, 2023. gada 5. novembris
+
+Enerģētikas renovācijas. Saldējuma uzņēmumu savienošana ar Krieviju. Krievijas raķešu izmēģinājums. Vācu ķīlnieku situācija. Plūdi. Prognoze.
+
+### Atbalsts energorenovācijām
+
+![Enerģijas subsīdijas var izmantot, piemēram, jaunām apkures sistēmām. Fotoattēls: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3349,w_5954,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_pr_670/w_pr_670/q_auto:eco/f_auto/fl_lossy/v1676637402/39-107442463ef747ea1acd)
+
+Speciālisti ir nobažījušies par energorenovācijas nākotni. Valsts nākamgad pārtrauks dotēt energorenovācijas.
+
+Atbalsts ir bijis populārs. Atbalsts saņemts, piemēram, ģeotermālās apkures izbūvei vai māju hermetizācijas remontam. Ar atbalstu ir uzlabota māju energoefektivitāte.
+
+Īpašumu apsaimniekotāji baidās, ka samazināsies māju energorenovācijas, jo beigsies dotācija.
+
+### Saldējuma zīmolu saistība ar Krieviju
+
+![Dažiem saldējuma zīmoliem ir saistība ar Krieviju. Foto: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6275,/d_1275,0q_auto:eco/f_auto/fl_lossy/v1682321321/39-110323664462e3b6fb8b)
+
+Yle ir izpētījis Somijas saldējuma zīmolu saistību ar Krieviju. Dažiem saldējuma zīmoliem ir saistība ar Krieviju.
+
+Krievijā joprojām darbojas daudzi lieli starptautiski uzņēmumi. Šiem pašiem uzņēmumiem pieder arī uzņēmumi, kas ražo saldējumu citās valstīs. Piemēram, lielajām starptautiskajām kompānijām Nestle un Unilever Somijā pieder daudzi saldējuma zīmoli.
+
+Daudzi uzņēmumi ir pametuši Krieviju, jo Krievija karo Ukrainā. ES valstīm nepatīk, ka uzņēmumi darbojas Krievijā. ES ir noteikusi sankcijas pret Krieviju kara dēļ.
+
+### Krievijas raķetes izmēģinājums
+
+![Krievijas prezidents Vladimirs Putins. Foto: Mihaels Klimentjevs / Sputnik / Kremlin Pool](https://images.cdn.yle.fi/image/upload/c_crop,h_4519,w_8034,x_16,y_238/ar_1.7777777777777777,c_fild_g6_05/,prd_g6_7.0/q_auto:eco/f_auto/fl_lossy/v1678982359/39-108632664133bfc2dc51)
+
+Krievija veikusi palaišanas izmēģinājumu ar tāla darbības rādiusa raķeti. Krievija apgalvo, ka raķetes palaišanas izmēģinājums bijis veiksmīgs.
+
+Raķete Bulava ir 12 metrus gara. Raķete var nolidot aptuveni 8000 kilometrus, un tā var pārvadāt 6 kodolgalviņas.
+
+Krievija palaida zemūdens raķeti no Vīnes jūras.
+
+### Ķīlnieku situācija Vācijā
+
+![Ķīlnieku situācijas dēļ tika slēgta pāreja uz Hamburgas lidostu. Fotoattēls: Bodo Marks / DPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2703,w_4806,x_0,y_500/ar_1.777777777777777,c_fill,g_faces,h_675,0/dpr1_200,/.q_auto:eco/f_auto/fl_lossy/v1699181525/39-11959676547736ea1bc0)
+
+Hamburgas lidostā Vācijā ir bijusi ilgstoša ķīlnieku situācija.
+
+Situācija sākās sestdienas vakarā, kad kāds vīrietis iebrauca lidostas teritorijā un šāva gaisā. Tāpat viņš no mašīnas izmeta 2 benzīna pudeles. Automašīnā atradās vīrieša 4 gadus vecā meita, kura bija vīrieša ķīlniece. Par iemeslu vīrieša rīcībai, iespējams, bijis strīds par bērna aizbildnību.
+
+Hamburgas lidosta tika slēgta, un visi reisi tika atcelti. Situācija beidzās svētdienas pēcpusdienā, kad policija vīrieti aizturēja. Hamburgas lidosta vakarā atkal tika atvērta satiksmei.
+
+### Rietumsomijas plūdu brīdinājums
+
+![Līstot lietum un ātri nokūst sniegs, ceļi var kļūt ūdeņaini. Fotoattēls: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_218/ar_1.7777777777777777,c_fill,g_faces,h_6200./d_1275,0q_auto:eco/f_auto/fl_lossy/v1697618867/39-11828126521489e76d51)
+
+Somijas Meteoroloģijas institūts izsludinājis brīdinājumu par plūdiem Somijas rietumos. Iemesls ir spēcīgas lietusgāzes. Apkārtnē ir snidzis, kas kūst. Turklāt būs jaunas ūdens dušas.
+
+Daudz ūdens nāk no sniega un lietus. Tāpēc rietumos var paaugstināties ūdens līmenis.
+
+Piemēram, upes var appludināt laukus un ceļus Somijas ziemeļos, Pirkanmā, Satakuntā, Postrobotnijā un Dienvidostrobotnijā.
+
+### Laikapstākļi
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/0/q_1e.f_auto/fl_lossy/v1699200945/39-11960206547bf95c98f5)
+
+Pirmdien apmācies. Valsts dienvidu un centrālajā daļā līst vai smidzina. Somijas ziemeļos lietus beidzas dienas laikā.
+
+Gaisa temperatūra dienā no 0 līdz +8 grādiem, Lapzemes ziemeļos no 0 līdz -3 grādiem.

@@ -1,0 +1,57 @@
+## Radio \| Aydın xəbər \| 7 noyabr 2023-cü il, çərşənbə axşamı
+
+Korona peyvəndləri. Zərbələr. İşləmək bacarığı olan pensiyaçılar. Hava.
+
+### Korona peyvəndi
+
+![Risk qruplarına indi korona virusuna qarşı gücləndirici peyvəndlər verilir. Foto: Petri Niemi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2266,w_4027,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_6705/w_pr.q_auto:eco/f_auto/fl_lossy/v1675253861/39-99789363046bc0166b4)
+
+Korona peyvəndi bu payızda çox gec başlayıb. Korona peyvəndlərinin təşkilini koordinasiya edən Sağlamlıq və Rifah İnstitutu və ya THL də bunu deyir.
+
+Korona payızda yayılmağa başlayır, çünki insanlar yenidən başqalarının yanında olurlar. Bu payızda koronaya yoluxanların və korona xəstələrinin sayı sürətlə artıb.
+
+THL bildirir ki, korona peyvəndləri qripə qarşı peyvəndlərlə eyni vaxtda təşkil edilməlidir. Əks halda, bütün peyvəndləri idarə etmək üçün kifayət qədər işçi yoxdur.
+
+Ona görə də tac peyvəndi bir az gec, qripə qarşı peyvəndlər isə bir qədər tez verilib. Bununla belə, ən vacibi risk qruplarının hər iki peyvəndi almasıdır.
+
+THL xatırladır ki, 80 yaşdan yuxarı insanlar üçün korona virusuna qarşı gücləndirici peyvənd almaq xüsusilə vacibdir.
+
+### Zərbələr
+
+![Finlandiyanın şimalındakı Oulu şəhərində tətilçilər. Foto: Ville Honkonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.777777777777777,c_fill,g_faces/610h,q_auto:eco/f_auto/fl_lossy/v1699368229/39-11968696549f7933eb81)
+
+Finlandiyada bir çox iş yerlərində tətillər dayandırılıb.
+
+Çərşənbə axşamı Finlandiyanın şimalında, çərşənbə günü Turku bölgəsində tətillər olub. Tətillər maksimum 1 gün davam edir.
+
+Tətillər, məsələn, bir günlük fabrikləri dayandırır. Bundan əlavə, tətillər, məsələn, idman qurğularını və hovuzları bağlayır. Çərşənbə günü tətil Turkunun avtobuslarını dayandıracaq.
+
+İşçi həmkarlar ittifaqları gələn ay ərzində bir günlük tətillər təşkil etməyi planlaşdırır.
+
+Fəhlə həmkarlar ittifaqları hökumətə qəzəbləndikləri üçün tətillər təşkil edirlər.
+
+Məsələn, hökumət xəstəlik məzuniyyəti qaydalarını dəyişdirmək niyyətindədir ki, işçi xəstəlik məzuniyyətinin ilk günündən maaş almasın.
+
+Bundan əlavə, hökumət işçinin işdən çıxarılmasını asanlaşdırmağı planlaşdırır.
+
+### İşləmək qabiliyyəti olan yaşlılar
+
+![Bir çoxları uzun müddət yaxşı vəziyyətdə qalırlar. Şəkil: Esa Syväkuru / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_47/ar_1.7777777777777777,c_fill,g_faces,h_12/d/d_07q_auto:eco/f_auto/fl_lossy/v1568642672/39-5915475d7f9625891ee)
+
+Finlandiyada hələ də işləmək qabiliyyəti olan çoxlu pensiyaçılar var. Məlumat Səhiyyə və Rifah İnstitutunun araşdırmasındandır.
+
+65-74 yaşlı insanların 50 faizindən çoxu əmək qabiliyyətli olduqlarını təxmin edir. Lakin onların yalnız 10 faizi işə gedir.
+
+Təqaüdçülərin vəziyyəti çox fərqli ola bilər. Digərləri qaça bilər, amma yerimək bəziləri üçün çətin ola bilər.
+
+### Hava
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/eq/eqf_auto/fl_lossy/v1699373925/39-1197270654a63406a4f5)
+
+Çərşənbə günü hava buludlu olacaq, duman olacaq.
+
+Xüsusilə ölkənin mərkəzi hissəsində və Qərbi Laplandiyada yağış yağır. Yağıntılar əsasən qardır.
+
+Ölkənin şimal bölgəsində bir az şaxta var, əks halda çərşənbə günü müsbət tərəfdə olacağıq.
+
+Cümə axşamı şimalda hava soyuyacaq, Laplandiyada isə 10 dərəcə şaxta olacaq. Su yağışları Finlandiyanın cənubuna qərbdən yaxınlaşır.

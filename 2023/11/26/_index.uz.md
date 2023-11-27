@@ -1,0 +1,48 @@
+Radio \| Aniq yangilik \| Yakshanba 26-noyabr 2023 yil
+---------------------------------------------
+
+Boshpana izlovchilar. Bosh vazir Orpo. Isroil. Shimoliy chiroqlar. Ob-havo.
+
+### Raja-Jozepdan 3 nafar boshpana izlovchi
+
+![Raja-Joosepi chegara bekati 2023-yil 24-noyabrda suratga olingan. Surat: Emmi Korxonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700842179/39-120631365209f15)
+
+Yakshanba kuni Rossiyadan 3 nafar boshpana izlovchi Finlyandiyaga keldi. Erkaklar tushdan keyin chegarani kesib o‘tishgan. Shanba kuni Inarining Raja-Joosepi chegara stansiyasiga Rossiyadan 55 kishi kelgan.
+
+Raja-Jooseppi hozirda Finlyandiyaning sharqiy chegarasida ochiq bo'lgan yagona chegara o'tish joyidir. Boshqa chegara punktlari yopiq, chunki Rossiya boshqa davlatlardan odamlarni Finlyandiyaga yo'naltirmoqda.
+
+### Bosh vazirning suhbat vaqti
+
+![Bosh vazir Petteri Orpo 2023-yil 26-noyabrda Xelsinkidagi Kesarantada Yle bosh vazirining intervyu sessiyasiga tayyorlandi. Foto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2772,w_4928,x_0,y_207/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v17010610303-29)
+
+Bosh vazir Petteri Orponing aytishicha, Finlyandiya sharqiy chegarani butunlay yopish masalasini ko'rib chiqmoqda. Orpo Ylening bosh vazir bilan suhbati chog'ida, agar Rossiya Finlyandiyaga ko'proq boshpana izlovchilarni yuborsa, hukumat yangi choralar ko'rishi mumkinligini aytdi.
+
+Bosh vazir Petteri Orpo hukumatning eng muhim vazifasi Finlyandiya xavfsizligiga g'amxo'rlik qilish ekanligini ta'kidlaydi.
+
+### Isroil va Xamas
+
+![Hamas tomonidan qo‘yib yuborilgan isroilliklarni garovga olgan Xalqaro Qizil Xoch avtomobili 2023-yil 24-noyabr kuni Misrga ketayotganda Rafah chegara punktidan o‘tdi. Foto: Mohammed Abed / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2079,w_3696,x_0,y_366/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_01029v/fl_0103/64636560e4e1a0ebe)
+
+Isroil va HAMAS terror tashkiloti mahbuslarni ozod qildi. Hamas shanba oqshomida 13 nafar isroillik garovga olinganlar va boshqa davlatlarning bir qancha fuqarolarini ozod qildi. Isroil 39 falastinlik mahbusni ozod qildi.
+
+Isroil va HAMAS yakshanba yoki dushanba kuni qo‘shimcha mahbuslarni ozod qilishni rejalashtirmoqda. Isroil va HAMAS avvalroq mahbuslarni ozod qilishga kelishib olgan edi. Ayni vaqtda Isroil va HAMAS G‘azoda qisqa muddatli o‘t ochishni to‘xtatishga kelishib oldi.
+
+HAMAS oktabr oyida Isroilga hujum qilib, 240 ga yaqin odamni garovga oldi. Xamas hujumida jami 1400 ga yaqin odam halok bo'ldi. Shundan so'ng Isroil G'azoda urush boshladi.
+
+### Shimoliy chiroqlar
+
+![Vixtidagi Aurora borealis. Foto: Bhabishya Gurung](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_443/ar_1.77777777777777,c_fill,g_faces,h_6705:pr_00/d,eco/f_auto/fl_lossy/v1700996219/39-120676065630ab4cbda3)
+
+Shanbadan yakshanbaga o'tar kechasi osmonda shimoliy chiroqlar ko'rindi. Shimoliy chiroqlar Finlyandiyaning janubida ham ko'rindi. Yakshanbadan dushanbaga o'tar kechasi osmonda shimoliy chiroqlar ham ko'rinishi mumkin.
+
+Shimoliy chiroqlar osmonda ko'rinadigan engil naqshlardir. Shimoliy chiroqlar ko'pincha yashil, lekin ba'zan qizil yoki ko'k ham bo'ladi. Quyosh zarralari Yer atmosferasiga tushganda shimoliy yorug'lik paydo bo'ladi.
+
+Yle odamlardan shimoliy chiroqlarning rasmlarini yuborishni so'radi. Rasmlar yle.fi saytida mavjud.
+
+### Ob-havo
+
+![ Surat: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,_67012d,0/q_auto:eco/f_auto/fl_lossy/v1701007097/39-120685165634edcb0ac7)
+
+Ob-havo maʼlumotlariga koʻra, baʼzi joylarda biroz qor yogʻadi. Finlyandiyaning boshqa qismlariga qaraganda qirg'oqda ko'proq qor yog'ishi mumkin.
+
+Harorat -7 dan -20 darajagacha. Laplandiyada sovuq 15 dan 25 darajagacha.

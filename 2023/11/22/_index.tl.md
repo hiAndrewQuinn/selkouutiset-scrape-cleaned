@@ -1,0 +1,51 @@
+## Radyo \| Malinaw na balita \| Miyerkules 22 Nobyembre 2023
+
+silangang hangganan. Mga naghahanap ng asylum. Tiwala ng gobyerno. Nakakasira ng alkohol. Pagtataya.
+
+### Pagpapalakas sa silangang hangganan
+
+![Ang silangang hangganan ay pinalakas ng, halimbawa, barbed wire barriers. Larawan: Ari Haimakainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_157/ar_1.7777777777777777,c_fill,g_faces,h_670/w_pr_121.q_auto:eco/f_auto/fl_lossy/v1700489748/39-1203622655b691ed016a)
+
+Pinalalakas ng Finland ang silangang hangganan na may mga hadlang. Ang layunin ay upang maiwasan ang mga tao na makapasok sa Finland nang walang permit mula sa Russia.
+
+Dinala ng Russia ang mga tao sa hangganan, na ipinadala ng Russia sa panig ng Finnish. Iyon ang dahilan kung bakit itinayo ang mga hadlang sa at malapit sa mga tawiran sa hangganan.
+
+Ang mga bakod ay itinatayo kahit man lang sa paligid ng mga istasyon ng hangganan ng Salla, Kuusamo at Vartius.
+
+Ang Finland ay tumatanggap ng mga naghahanap ng asylum sa silangang hangganan lamang sa mga istasyon ng hangganan ng Salla at Vartius. Isinara ng Finland ang mga tawiran sa hangganan ng Southeast Finland.
+
+### Mga tawiran sa hangganan
+
+![Mga naghahanap ng asylum sa Miyerkules sa istasyon ng hangganan ng Salla. Larawan: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_429/ar_1.7777777777777777,c_fill,g_faces,h_1205,/w.q_auto:eco/f_auto/fl_lossy/v1700655653/39-1204918655df1f3cef50)
+
+Ang gobyerno ay naghahanda ng mga bagong paraan upang limitahan ang trapiko sa mga tawiran sa hangganan.
+
+Noong Martes, itinanggi ng deputy chancellor of justice ang planong inihahanda ng gobyerno. Ang plano ay hindi isinapubliko dahil ang plano ay isinasagawa. Maaaring limitado ng plano ang posibilidad na mag-aplay para sa asylum sa Finland.
+
+Ang gobyerno ay naghahanda na ngayon ng isang bagong panukala upang pigilan ang mga tao na makapasok sa Finland nang walang permit mula sa silangang hangganan.
+
+Humiling din ang Finland ng tulong mula sa Frontex, ang European Border at Coast Guard Agency. Hinihiling ng Finland na magpadala ang Frontex ng 60 opisyal sa Finland upang tumulong dahil sa sitwasyon sa silangang hangganan.
+
+![Nakuha ng gobyerno ang tiwala ng parlamento. Larawan: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3983,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_6100/w_pr_2.q_auto:eco/f_auto/fl_lossy/v1696934704/39-118409465252a7d6dc9d)
+
+Nakuha ng gobyerno ang tiwala ng parlyamento sa intermediate question vote.
+
+Ang pansamantalang tanong ay ginawa ng mga partido ng oposisyon na SDP, Greens at Left Alliance. Masyado raw maraming kabataan at estudyante ang target ng mga cuts ng gobyerno.
+
+Natanggap ng gobyerno ang kumpiyansa ng parlyamento na may boto na 96-76. Ang karamihan ng parlamento ay nagtitiwala sa gobyerno. Kaya naman ang gobyerno ay maaaring magpatuloy sa pagtatrabaho.
+
+### Mga pinsala sa alkohol
+
+![Ang pinsala ng alak ay nagdulot ng malaking pinsala sa lipunan. Larawan: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2944,w_5235,x_0,y_312/ar_1.7777777777777777,c_fill,g_faces,h_670,w_pr_1205,w_pr_1210.q_auto:eco/f_auto/fl_lossy/v1700406169/39-1203003655a1febe291f)
+
+Ang pinsala ng alkohol ay nagdudulot ng maraming gastos para sa lipunang Finnish.
+
+Pinag-aralan ng Aalto University ang mga halaga ng pinsala ng alak. Ang pinsala ng alkohol ay nagkakahalaga ng lipunan ng hindi bababa sa 1.4 bilyong euro noong nakaraang taon. Ang mga gastos ay nagmumula sa mga pagkamatay na nauugnay sa alkohol, paggamot sa mga sakit na nauugnay sa alkohol, mga krimen at kapansanan.
+
+Bilang karagdagan, ang mga tagapag-empleyo ay nagkaroon ng 500 milyong euro sa mga pagkalugi sa pananalapi noong nakaraang taon dahil sa pinsalang dulot ng alak. Ang employer ay nagkakaroon ng mga gastos, halimbawa, kung ang empleyado ay hindi makapagtrabaho.
+
+### Panahon
+
+![Lalamig ang panahon, kaya tumaas ang temperatura.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_670,w_1/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700671048/39-1205140655e2e229bced)
+
+Napakalakas ng niyebe sa gabi. Sa kanluran, magi-snow hanggang 20 cm sa ilang lugar. Ang snow ay titigil sa gabi sa kanluran. Ang temperatura sa timog ay nasa pagitan ng 0 at +2 degrees. Sa hilaga, karamihan ay nasa pagitan ng -4 at -7 degrees. Malakas ang hangin sa mga lugar.

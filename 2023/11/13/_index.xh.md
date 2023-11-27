@@ -1,0 +1,67 @@
+## Irediyo \| Iindaba ezicacileyo \| NgoMvulo we-13 kaNovemba 2023
+
+Umda osempuma weFinland. Ukubek' esweni kwamapolisa. Amachibi. Utitshala wonyaka waseFinland. Imozulu.
+
+### Umda oseMpuma weFinland
+
+![Abasemagunyeni eFinland bayibeke esweni imeko kumda osempuma weFinland. Ifoto: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_171/ar_1.777777777777777,c_fill,g_faces,h_0125.q_auto:eco/f_auto/fl_lossy/v1699859472/39-11996406551cb5a3d93a)
+
+Abantu abaninzi baye beza kumda ophakathi kweFinland neRashiya, abamaphepha abo akalungelelananga. Ngokomzekelo, abanayo i-visa yokuya eFinland.
+
+NgoMvulo, bangaphezulu kwe-20 abantu abeze kumda ngaphandle kwamaphepha ayimfuneko. Ngexesha lokuwa, ngaphezu kwe-100 kubo sele befikile.
+
+Phakathi kwabo kukho, umzekelo, abemi base-Iraq, eSiriya, eYemen naseSomalia. Baye badlula eRashiya baya kumda waseFinland, apho baye bafaka isicelo sokukhuselwa eFinland.
+
+Ngaphambili, iRashiya ayizange ivumele nabani na ukuba aye kumda waseFinland ngaphandle kwamaphepha ayimfuneko. Akuqinisekanga ukuba kutheni izenzo zaseRashiya zitshintshile.
+
+Iingcali ziqikelela ukuba isizathu kukuba iFinland ibe lilungu lombutho wezokhuselo we-NATO. IRashiya ithatha i-NATO njengotshaba lwayo.
+
+### Ukubekw' esweni kwamapolisa
+
+![Amapolisa anyusa izinga lokucupha eHelsinki. Ifoto: Matias Väänänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5148,x_0,y_107/ar_1.7777777777777777,c_fill,g_p_2_01,g_p_10,q_auto:eco/f_auto/fl_lossy/v1697807957/39-11771286512a4e83c1e1)
+
+Amapolisa andisa ukubeka iliso eHelsinki.
+
+Ukubeka iliso kuya kwandiswa kwezi veki zi-3 zizayo. Amapolisa awongamela ngokukodwa iindawo apho ulwaphulo-mthetho neziphazamiso zihlala zisenzeka khona.
+
+Kukho ulawulo olungaphezulu kunesiqhelo kwizithuthi zikawonke-wonke, umzekelo kwiibhasi kunye neetram. Ukongeza, amapolisa ajongana neendawo apho abantu abatsha bahlanganisana khona.
+
+Amapolisa alonyusa izinga lokucupha, ingakumbi ngorhatya nangeempelaveki. Amapolisa afuna abantu bazive bekhuselekile eHelsinki.
+
+### Imisebenzi yeVeikkaus
+
+![Imisebenzi iyaphela xa iVeikkaus ivala, umzekelo, iiholo. Ifoto: Anne Savin / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1928,w_3427,x_567,y_428/ar_1.7777777777777777,c_fill,g_faces,w_01_1.q_auto:eco/f_auto/fl_lossy/v1633956464/39-86542961643200866ed)
+
+Inkampani yongcakazo iVeikkaus inciphisa abasebenzi. Bamalunga nama-200 abasebenzi abazakuphulukana nemisebenzi yabo.
+
+Umzekelo, iLotto, amakhadi okukrwempa kunye nemidlalo yoomatshini bokungcakaza yimidlalo yeVeikkaus.
+
+Ngoku iVeikkaus igqibe ekubeni iza kuvala iiholo zemidlalo ezili-19 ekupheleni kwalo nyaka.
+
+Ukongeza, iVeikkaus iya kuvala i-casino yaseTampere. Ikhasino yavulwa e Tampere kuphela 2 kwiminyaka eyadlulayo. Ukuqala kwekhasino kwakunzima ngenxa ye-corona.
+
+### Utitshala wonyaka waseFinland
+
+![Umfundisi-ntsapho waseFinland wonyaka uSatu Lahtonen (ophakathi) nabafundi uMohamed Batraan Abdullahi no-Osama Al-Sharif. Ifoto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2982,w_5300,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,w_p_670.q_auto:eco/f_auto/fl_lossy/v1699438785/39-1197531654b5ee49bf1f)
+
+USelkouutiset udibene noTitshala woNyaka waseFinland uSatu Lahtonen kunye nabafundi bakaLahtonen.
+
+![ Ifoto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3153,w_5603,x_0,y_0/ar_1.7777777777777777,c_fill,g_750,w_p_1.0/q_auto:eco/f_auto/fl_lossy/v1699438827/39-1197537654b5ee95baf1)
+
+... 0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197536654b5ee899b41)
+
+USatu Lahtonen ngoku ufundisa ulwimi lwesiFinnish, ukufunda nokubhala kwisikolo samabanga aphakamileyo saseKonepaja eHelsinki.
+
+![Uvuyo luqala ngonobumba u-i. Ifoto: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,w_p_670.q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
+
+Ungaqhelana neqela likaLahtonen kumabonakude wosasazo lweSelkouttisten, enokufumaneka ku![yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link}. Kukho neefoto zeqela likaLahtonen kwidilesi enye.
+
+### Imozulu
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200_coa1/df_auto/fl_lossy/v1699893163/39-119999365524f872df8f)
+
+Bekubanda kakhulu eLapland. Ekuseni ngoMvulo, ingqele yayingama-27 degrees kwezinye iindawo.
+
+NgoLwesibini, imozulu iya kubanda kulo lonke ilizwe kwaye kuya kuba nekhephu kancinci empuma. Kucacile kwiindawo ezisemantla.
+
+Iqondo lokushisa ngoLwesibini liya kuba phakathi kwe-0 kunye ne-5 degrees, emantla phakathi kwe--10 kunye ne-20 degrees.

@@ -1,0 +1,49 @@
+## Radio \| Skaidras ziņas \| Svētdien, 29.10.2023
+
+Gaza. Notīrīt grāmatas. Metjū Perijs. Kalle Rovanpera. Prognoze.
+
+### Situācija Gazā
+
+![Situācija Gazā ir sarežģīta. ANO brīdina, ka reģionā sāksies haoss. Fotoattēls: Abeds Rahims Khatibs / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3780,w_6720,x_0,y_700/ar_1.7777777777777777,c_fill,g_faces,0_d_17,0_d_17/q_auto:eco/f_auto/fl_lossy/v1698587757/39-1192921653e641fc4a70)
+
+Izraēla pastiprinājusi uzbrukumus Gazai. Izraēla ir veikusi gaisa triecienus Gazai un nosūtījusi uz Gazu vairāk sauszemes karavīru. Izraēlas premjerministrs **Benjamins Netanjahu** saka, ka ir sācies kara otrais posms pret ekstrēmistu organizāciju Hamas.
+
+Hamas saka, ka Izraēlas uzbrukumos Gazai trīs nedēļu laikā dzīvību zaudējuši vairāk nekā 8000 cilvēku. Informāciju nevarēja apstiprināt no uzticamiem avotiem.
+
+ANO brīdina, ka Gazā sāksies haoss. Piemēram, tūkstošiem palestīniešu ir ielauzušies noliktavās, lai iegūtu pārtiku.
+
+### Nonfiction
+
+![Autore Merete Mazzarella. Fotoattēls: Barbro Ahlstedt/Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3159,w_5616,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_pr_670,/w_pr_670.q_auto:eco/f_auto/fl_lossy/v1620995152/39-806292609e6be113e02)
+
+Šajā nedēļas nogalē Helsinkos notika grāmatu gadatirgus. Grāmatu gadatirgū tika piedāvāta arī vienkārša valodas literatūra un vienkāršās valodas autori. Grāmatu izstādē, piemēram, tika atzīmēts, ka ir tapusi autores **Meretes Mazzarellas** grāmatas *Violetti moment* versija vienkāršajā valodā.
+
+Grāmatu tirdziņā notika arī plaša skaidrās grāmatas diskusija, kurā tika apspriestas grāmatas skaidrā valodā.
+
+Somijā ir aptuveni 750 000 cilvēku, kas nevar lasīt literatūru kopējā valodā. Viņi var iegūt lasīšanas pieredzi no grāmatām vienkāršā valodā. Zinātniskā literatūra ir nepieciešama arī tāpēc, ka somu lasītprasme un interese par lasīšanu ir samazinājusies.
+
+### Metjū Perijs
+
+![Metjū Perijs (19.8.1969. - 28.10.2023.) Foto: Mets Barons/BEI/Shutterstock](https://images.cdn.yle.fi/image/upload/c_crop,h_2329,w_4141,x_0,y_54/ ar_1 .7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698579698/39-1192810653dd4bb055
+
+Aktieris **Metjū Perijs** ir miris. Metjū Perijs bija ASV un Kanādas pilsonis.
+
+Perijs ir pazīstams ar savu piedalīšanos populārajā televīzijas seriālā Draugi. Perija varonis bija Čendlers Bings. Frendit seriāls tika veidots 10 gadus. Seriāls sākās 1994. Tas tika rādīts arī Somijā.
+
+Aktierim Metjū Perijam bija 54 gadi. Viņš nomira mājās Losandželosā, ASV.
+
+### Kalles Rovanperas pasaules čempionāts
+
+![Rallija braucējs Kalle Rovanperä (pa kreisi) un apļa braucējs Džons Haltunens (pa labi) priecājās par uzvaru. Attēls: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2406,w_4278,x_0,y_445/ar_1.77777777777777,c_fill,g_faces,h_675,/d_pr_120.0/f_auto/fl_lossy/v1698587806/39-1192922653e645d852bc)
+
+Toyota somu pilots **Kalle Rovanperä** uzvarējis pasaules rallija čempionātā. Centrāleiropas pasaules čempionātā svētdien izšķīrās pasaules rallija čempionāts.
+
+Šogad rallija sacensības bija īpašas, jo tās tika aizvadītas trīs dažādās valstīs: Čehijā, Vācijā un Austrijā.
+
+Čempionāts Kallem Rovanperam ir otrais pēc kārtas, t.i., viņš arī pērn uzvarēja pasaules rallija čempionātā. Rovanperai ir 23 gadi.
+
+### Laikapstākļi
+
+![Dienvidos var būt sniegs.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,w_1275/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698594490/39-1192967653e7ea05e07b)
+
+Pirmdien valsts ziemeļos un centrālajā daļā mainīgs mākoņu daudzums. Pārsvarā līst, tas ir, nelīst. Dienvidos iespējams sniegs. Temperatūra ir no +1 līdz -6 grādiem, vēsāks ir Lapzemē.

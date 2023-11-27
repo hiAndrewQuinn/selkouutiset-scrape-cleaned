@@ -1,0 +1,48 @@
+Radio\| Notizie chiare \| Domenica 26 novembre 2023
+---------------------------------------------
+
+Richiedenti asilo. Il Primo Ministro Orpo. Israele. Aurora boreale. Tempo atmosferico.
+
+### 3 richiedenti asilo di Raja-Joosep
+
+![Stazione di confine di Raja-Joosepi fotografata il 24 novembre 2023. Foto: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700842179/39-120631365609f1502057)
+
+Domenica sono arrivati in Finlandia 3 richiedenti asilo provenienti dalla Russia. Gli uomini hanno attraversato il confine nel pomeriggio. Sabato, 55 persone provenienti dalla Russia sono arrivate alla stazione di confine Raja-Joosepi di Inari.
+
+Raja-Jooseppi è attualmente l'unico valico di frontiera aperto sul confine orientale della Finlandia. Altri valichi di frontiera sono chiusi perché la Russia dirige persone da altri paesi verso la Finlandia.
+
+### Orario dell'intervista al Primo Ministro
+
+![Il primo ministro Petteri Orpo si è preparato per la sessione di interviste del primo ministro di Yle a Kesäranta a Helsinki il 26 novembre 2023. Foto: Mikko Stig / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2772 , W_4928, X_0, Y_207/AR_1.77777777777777, C_FILL, G_FACES, H_675, W_1200/DPR_1.0/Q_AUTO: ECO/F_AUTO/FL_LOSSY/V1701000739/39-1206563333333333333333333333333333356333333333333333333333335633333335635633333335635633333563563333563356333335633333356333333563333356333335633356333356335633356333563563333329
+
+Il primo ministro Petteri Orpo afferma che la Finlandia sta valutando la possibilità di chiudere completamente il confine orientale. Orpo ha detto durante l'intervista di Yle con il Primo Ministro che il governo potrebbe adottare nuove misure se la Russia mandasse più richiedenti asilo in Finlandia.
+
+Il primo ministro Petteri Orpo sottolinea che il compito più importante del governo è prendersi cura della sicurezza della Finlandia.
+
+### Israele e Hamas
+
+![Un veicolo della Croce Rossa Internazionale che trasportava ostaggi israeliani rilasciati da Hamas attraversa il valico di frontiera di Rafah diretto in Egitto il 24 novembre 2023. Foto: Mohammed Abed / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2079,w_3696,x_0,y_366/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700849015/39-12064636560e4e1a0ebe)
+
+Israele e l'organizzazione terroristica Hamas hanno liberato i prigionieri. Sabato sera Hamas ha rilasciato 13 ostaggi israeliani e diversi cittadini di altri paesi. Israele ha rilasciato 39 prigionieri palestinesi.
+
+Israele e Hamas prevedono di rilasciare altri prigionieri entro domenica o lunedì. Israele e Hamas avevano precedentemente concordato che entrambi avrebbero rilasciato i prigionieri. Allo stesso tempo, Israele e Hamas hanno concordato che ci sarà un breve cessate il fuoco a Gaza.
+
+Hamas ha attaccato Israele in ottobre e ha preso circa 240 ostaggi. Nell’attacco di Hamas sono morte in totale circa 1.400 persone. Successivamente, Israele ha iniziato una guerra a Gaza.
+
+### Aurora boreale
+
+![Aurora boreale a Vihti. Foto: Bhabishya Gurung](https://images.cdn.yle.fi/image/upload/c_crop,h_360,w_640,x_0,y_443/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700996219/39-120676065630ab4cbda3)
+
+L'aurora boreale era visibile nel cielo nella notte tra sabato e domenica. L'aurora boreale era visibile anche nel sud della Finlandia. L'aurora boreale potrebbe essere visibile nel cielo anche nella notte tra domenica e lunedì.
+
+L'aurora boreale è una serie di luci visibili nel cielo. L'aurora boreale è spesso verde, ma a volte anche rossa o blu. L'aurora boreale si crea quando le particelle del Sole colpiscono l'atmosfera terrestre.
+
+Yle ha chiesto alle persone di inviare foto dell'aurora boreale. Le immagini sono disponibili online su yle.fi.
+
+### Tempo atmosferico
+
+![ Foto: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701007097/39-120685165634edcb0ac7)
+
+Le previsioni meteo dicono che in alcune località nevicherà un po'. Sulla costa può nevicare più che in altre parti della Finlandia.
+
+La temperatura è compresa tra -7 e -20 gradi. In Lapponia il gelo è compreso tra 15 e 25 gradi.

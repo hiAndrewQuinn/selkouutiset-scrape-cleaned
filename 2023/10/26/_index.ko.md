@@ -1,0 +1,61 @@
+## 라디오 셀코우티세트 2023년 10월 26일 목요일
+
+대책 재판. 동부 국경 울타리. 산림위원회. 승마사고. 겨울 도로 제한. 날씨.
+
+### 대책 재판
+
+![피고인 Aleksanteri Kivimäki. 사진: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2875,w_5112,x_0,y_568/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698305049/39-1191484653a13e7df175)
+
+사무실 데이터 유출 사건에 대한 재판이 시작됐다. Vastaamo는 사람들에게 심리치료를 제공하는 회사였습니다.
+
+소송에서 Aleksanteri Kivimäki는 Vastaamo의 고객 정보를 최초로 침해한 혐의로 기소되었습니다. 검찰은 데이터 유출 이후 Kivimäki가 수만 명의 사람들을 잔인하게 협박했다고 밝혔습니다. Kivimäki는 또한 Vastaamo의 고객 정보를 인터넷에 게시했습니다.
+
+검찰은 Kivimäki에게 7년의 징역형을 선고할 것을 요구합니다.
+
+Aleksanteri Kivimäki는 자신이 기소된 범죄를 저 지르지 않았다고 말했습니다.
+
+### 동부 국경 울타리
+
+![Imatra의 Pelkola 국경역 근처에 새로운 국경 울타리가 설치되었습니다. 사진: Kare Lehtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2243,w_3993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698323397/39-1191724653a55b2a04b0)
+
+핀란드 동부 국경에 울타리가 건설되고 있습니다. 울타리 건설은 4월부터 시작될 예정이다.
+
+첫째, 이마트라(Imatra), 발리마아(Vaalimaa), 누이야마아(Nuijamaa)의 국경 교차점 근처 핀란드 남동부에 울타리가 건설될 예정입니다. 울타리가 완성되면 총 길이는 약 200㎞에 이른다. 전체 울타리는 2026년에 준비될 예정이다.
+
+국경수비대는 이미 이마트라(Imatra)에 작은 울타리를 건설했습니다. 국경수비대는 이 테스트 울타리에 대해 좋은 경험이 있다고 말합니다.
+
+울타리의 목적은 허가 없이는 핀란드와 러시아 국경을 쉽게 넘을 수 없다는 것입니다.
+
+### 산림위원회
+
+![2023년 10월 26일 Metsä Board의 äänekoski 판지 공장 정문에 위치한 벽돌 건물. 사진: Jussi Lindroos / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698319726/39-1191672653a4ca1724ad)
+
+산림회사 Metsä Board는 직원을 해고할 수 있습니다.
+
+변경 협상에는 Metsä Board의 핀란드 판지 공장에 근무하는 약 1,100명의 직원이 참여합니다. 아마 내년에 정리해고가 있을 것이고, 그 기간은 3개월이 될 것입니다.
+
+Metsä Board는 현재 구매되는 판지가 너무 적다고 말합니다. 따라서 회사는 직원을 해고해야 할 수도 있습니다.
+
+### 승마사고
+
+![마구간에서 사고가 발생했습니다. 일러스트 사진입니다. 사진: Linus Westerlund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692692625/39-116023264e46d0e45030)
+
+Espoo에서는 한 젊은 여성이 마구간에서 사고로 사망했습니다. 지난 화요일 20대 여성이 말에서 떨어져 사망했습니다. 라이더는 헬멧을 착용하고 있었습니다.
+
+사고 원인은 조사 중이다.
+
+### 겨울 속도
+
+![겨울철 도로 속도 제한이 시행됩니다. 사진: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
+
+많은 고속도로에서 오늘 목요일부터 속도 제한이 변경됩니다. 겨울에는 핀란드 거의 모든 도로의 제한 속도가 시속 80km입니다.
+
+겨울철 고속도로의 제한 속도는 시속 100km입니다.
+
+### 날씨
+
+![ 사진: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698292510/39-11913736539e2ff81a55)
+
+금요일에는 라플란드에 약간의 눈이 내릴 예정입니다. 남해안에도 눈이나 눈이 내리는 곳이 있겠습니다. 핀란드의 다른 곳에서도 문제가 발생했습니다.
+
+남부지방의 기온은 플러스 편입니다. 전국 중부와 북부에는 서리가 내립니다.

@@ -1,0 +1,61 @@
+## Ràdio \| Notícies clares \| el dissabte 4 de novembre de 2023
+
+Impostos. Terratrèmol del Nepal. Ucraïna. Gaza. Dia de Tots Sants. Previsió.
+
+### Satisfacció amb la fiscalitat
+
+![Els finlandesos estan contents de pagar impostos. Foto: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3061,w_5443,x_0,y_226/ar_1.7777777777777777,c_fill,g_faces,h_6710,wd_r1_671.q_auto:eco/f_auto/fl_lossy/v1692510416/39-115736664dc9b0569c81)
+
+La majoria dels finlandesos estan satisfets amb la fiscalitat. L'Administració Tributària ha preguntat als finlandesos què pensen sobre el pagament d'impostos.
+
+Més del 70 per cent dels finlandesos estan encantats de pagar impostos.
+
+Només el 17% dels finlandesos diuen que no els agrada pagar impostos. Tanmateix, la majoria d'ells opinen que encara s'han de pagar impostos.
+
+La satisfacció amb el pagament d'impostos ha augmentat clarament durant els últims 10 anys.
+
+### Terratrèmol al Nepal
+
+![Cases esfondrades a Jajarkot, Nepal. Foto: Balkumar Sharma / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1350,w_2400,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_6710,/d_r1_201./0.q_auto:eco/f_auto/fl_lossy/v1699091137/39-1195827654612690580a)
+
+S'ha produït un gran terratrèmol al Nepal. El terratrèmol es va produir divendres al vespre a l'oest del Nepal.
+
+Almenys 150 persones han mort en el terratrèmol. El nombre de morts pot augmentar quan s'obté més informació de la zona. Moltes persones també han resultat ferides pel terratrèmol del Nepal. Molts edificis es van esfondrar pel terratrèmol.
+
+El terratrèmol del Nepal es va produir en una zona remota. És per això que la informació sobre la destrucció arriba lentament.
+
+### Visita del president de la UE a Ucraïna
+
+![Ursula von der Leyen es va reunir amb el president Volodymyr Zelensky a l'estació de tren de Kíev. Foto: AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_3000,x_0,y_305/ar_1.777777777777777,c_fill,g_faces,h_675,w_1201:eco/0dp_auto/f_auto/fl_lossy/v1699098434/39-119583265462e51258c1)
+
+La presidenta de la Comissió Europea **Ursula von der Leyen** ha visitat Ucraïna dissabte. Von der Leyen es va reunir amb el president ucraïnès **Volodymyr Zelensky** a la capital, Kíev.
+
+Von der Leyen va parlar a Ucraïna, per exemple, sobre com Ucraïna pot ser que algun dia esdevingui membre de la UE.
+
+Von der Leyen també va parlar del suport de la UE a Ucraïna.
+
+### La situació a Gaza
+
+![Israel ha concentrat els atacs militars a la part nord de Gaza. Foto: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1121,w_1994,x_5,y_0/ar_1.7777777777777777,c_fill,g_faces,h_671,/0_r1_201,/0_rq_auto:eco/f_auto/fl_lossy/v1699023208/39-1195711654506b2bc2d4)
+
+Fins a un milió de persones s'han traslladat de Gaza a la part sud del territori a causa de la guerra.
+
+Els experts diuen que almenys 800.000 persones han entrat a la zona, però la xifra podria arribar al milió. Això és el que diu l'enviat especial dels EUA per a l'ajuda humanitària a l'Orient Mitjà.
+
+Els atacs de les forces aèries i terrestres israelianes s'han concentrat al nord de Gaza. Per això la gent ha fugit cap al sud. Encara hi ha unes 400.000 persones al nord de Gaza.
+
+### Dia de Tots Sants
+
+![El dia sant es porten espelmes a les tombes. Foto: Leena-kaisa Laakso / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_435/ar_1.7777777777777777,c_fill,g_faces,/h_1200,w_1200,w_12000/q_auto:eco/f_auto/fl_lossy/v1699101771/39-119586665463c1d71d1c)
+
+Avui dissabte és el dia de Tots Sants. El dia de Tots Sants és important en la tradició cristiana. És el dia de record dels sants, màrtirs i morts.
+
+El dia de Tots Sants recordem persones properes que ja han mort. El dia de Tots Sants es porten espelmes a les tombes dels éssers estimats. Les esglésies recorden aquells feligresos que han mort des de l'últim dia de Tots Sants.
+
+A Finlàndia sempre se celebra el dia de Tots Sants el primer dissabte de novembre.
+
+### El temps
+
+![El diumenge està majoritàriament ennuvolat.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,/0_r1_201./0./q_auto:eco/f_auto/fl_lossy/v1699111715/39-1195891654662ff4432c)
+
+El temps és majoritàriament ennuvolat i plujós. Al sud-oest de Finlàndia, de vegades el sol pot brillar una mica. La temperatura és majoritàriament entre 3 i 8 graus. Fa més fred al nord de Finlàndia.

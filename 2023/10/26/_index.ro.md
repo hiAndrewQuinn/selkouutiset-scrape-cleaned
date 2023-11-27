@@ -1,0 +1,61 @@
+## Radio Selkouutiset joi 26 octombrie 2023
+
+Procesul de contramăsuri. gard de frontieră de est. Board forestier. Accident de călărie. Restricții rutiere de iarnă. Vreme.
+
+### Proces de contramăsuri
+
+![Acuzat Aleksanteri Kivimäki. Foto: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2875,w_5112,x_0,y_568/ar_1.7777777777777777,c_fill,g_faces,h_1270,w_1270.q_auto:eco/f_auto/fl_lossy/v1698305049/39-1191484653a13e7df175)
+
+A început procesul de încălcare a datelor în birou. Vastaamo era o companie care oferea oamenilor psihoterapie.
+
+În proces, Aleksanteri Kivimäki este acuzat că a spart mai întâi informațiile despre clienții lui Vastaamo. Procurorii spun că, după încălcarea datelor, Kivimäki a șantajat cu brutalitate zeci de mii de oameni. Kivimäki a publicat și informațiile despre clienții lui Vastaamo pe internet.
+
+Procurorii cer ca Kivimäki să primească o pedeapsă de 7 ani de închisoare.
+
+Aleksanteri Kivimäki spune că nu a comis crimele de care este acuzat.
+
+### Gard de frontieră de est
+
+![Un nou gard de frontieră lângă stația de frontieră Pelkola din Imatra. Foto: Kare Lehtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2243,w_3993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,/0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,/0_r1_201.q_auto:eco/f_auto/fl_lossy/v1698323397/39-1191724653a55b2a04b0)
+
+Se construiește un gard la granița de est a Finlandei. Construcția gardului va începe în aprilie.
+
+În primul rând, gardul va fi construit în sud-estul Finlandei, lângă punctele de trecere a frontierei pentru Imatra, Vaalimaa și Nuijamaa. Când gardul va fi terminat, acesta va avea aproximativ 200 de kilometri lungime în total. Întregul gard va fi gata în 2026.
+
+Poliția de frontieră a construit deja un mic gard la Imatra. Poliția de frontieră spune că există experiențe bune cu acest gard de probă.
+
+Scopul gardului este că nu puteți trece cu ușurință granița dintre Finlanda și Rusia fără permis.
+
+### Board Forest
+
+![Clădirea din cărămidă situată la poarta principală a fabricii de carton Äänekoski a Metsä Board pe 26 octombrie 2023. Foto: Jussi Lindroos / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1000./d_1_1.7777777777777777q_auto:eco/f_auto/fl_lossy/v1698319726/39-1191672653a4ca1724ad)
+
+Compania forestieră Metsä Board poate concedia angajați.
+
+Negocierile de schimbare se referă la un total de aproximativ 1.100 de persoane la fabricile de carton finlandeze ale Metsä Board. Probabil vor fi disponibilizări anul viitor și vor dura 3 luni.
+
+Metsä Board spune că acum se cumpără prea puțin carton. Prin urmare, compania poate fi nevoită să concedieze angajați.
+
+### Accident de călărie
+
+![Accidentul s-a petrecut la grajdul de cai. Imagine ilustrativă. Fotografie: Linus Westerlund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_1275,w_1270.q_auto:eco/f_auto/fl_lossy/v1692692625/39-116023264e46d0e45030)
+
+În Espoo, o tânără a murit într-un accident la un grajd de cai. O femeie în vârstă de 20 de ani a murit când a căzut de pe cal marți. Călărețul purta o cască.
+
+Cauza accidentului este în curs de investigare.
+
+### Viteze de iarnă
+
+![Intră în vigoare limitele de viteză pe drumul de iarnă. Foto: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_671,/0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_671,/0_r1_201.q_auto:eco/f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
+
+Pe multe autostrăzi, limita de viteză se va modifica astăzi, joi. Iarna, limita de viteză pe aproape toate drumurile din Finlanda este de 80 de kilometri pe oră.
+
+Limita de viteză pe autostrăzi în timpul iernii este de 100 de kilometri pe oră.
+
+### Vremea
+
+![ Foto: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_p1_201.0/q_auto:eco/f_auto/fl_lossy/v1698292510/39-11913736539e2ff81a55)
+
+Vineri va ninge puțin în Laponia. De asemenea, vor fi averse de lapoviță sau ninsoare pe coasta de sud. În altă parte în Finlanda, există probleme.
+
+Temperatura este pozitivă în partea de sud a țării. În centrul și nordul țării este îngheț.

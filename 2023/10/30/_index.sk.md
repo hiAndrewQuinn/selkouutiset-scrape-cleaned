@@ -1,0 +1,61 @@
+## Rádio \| Jasné správy \| Pondelok 30. októbra 2023
+
+Korónová situácia. Užívanie alkoholu. Turizmus v Laponsku. Medvede z Korkeasaari. Počasie.
+
+### Korónová situácia
+
+![Koronové infekcie pribúdajú. Foto: Ismo Pekkarinen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1992,w_3543,x_0,y_232/ar_1.7777777777777777,c_fill,g_faces,w/d_1670.0q_auto:eco/f_auto/fl_lossy/v1698673937/39-1193332653fb40a9c4a2)
+
+Počet prípadov koróny sa zvyšuje. Koronavírus sa teraz zvyšuje v celom Fínsku.
+
+Na jednotke intenzívnej starostlivosti je asi 10 pacientov s koronavírusom. Okrem toho majú nemocnice približne 450 hospitalizovaných pacientov s korona infekciou.
+
+S postupujúcou zimou sa situácia s korónou zrejme zhorší. Cieľom je zabezpečiť chod nemocníc pomocou koronaočkovania.
+
+Očkovanie proti koronavírusu sa začína v novembri v rôznych častiach Fínska. Očkovanie proti koronavírusu sa vykonáva súčasne s očkovaním proti chrípke.
+
+### Užívanie alkoholu
+
+![Spotreba alkoholu Fínov sa znížila. Foto: Ilkka Loikkanen](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_12075,h_12075,w.0eco/f_auto/fl_lossy/v1682602904/39-1105424644a7b35b4046)
+
+Fíni pijú menej alkoholu ako predtým. Tvrdí to Ústav zdravia a sociálnej starostlivosti.
+
+Menej ako 50 percent mužov pije alkohol každý týždeň. Len necelých 20 percent žien pije alkohol každý týždeň.
+
+Čísla sú nižšie ako v roku 2016, keď sa robil predchádzajúci prieskum.
+
+### Cestovný ruch v Laponsku
+
+![Turisti hľadajú v Laponsku zasneženú zimu. Foto: Vesa-Pekka Hiltunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_473/ar_1.7777777777777777,c_fill,g6d_215s,h00/q_auto:eco/f_auto/fl_lossy/v1673250132/39-105687963bbc441bd57b)
+
+Začína sa zimná sezóna turistiky v Laponsku. Cez víkend začali zimné lety zo zahraničia na laponské letiská.
+
+Zimná sezóna bude dokonca rekordne nabitá. Do Laponska prichádzajú turisti najmä z veľkých európskych krajín, teda z Británie, Francúzska, Španielska a Nemecka. Veľa turistov navyše prichádza z ázijského Singapuru.
+
+Zimná sezóna sa zintenzívňuje najmä v decembri. Potom napríklad v Rovaniemi pristane až 130 letov týždenne.
+
+Turistov zaujíma najmä zasnežená zima. Október bol teraz v Laponsku zasnežený a to zvýšilo záujem o Laponsko.
+
+### Medvede z Korkeasaari
+
+![zimný spánok medveďov Korkeasaari sa začal. Foto: Korkeasaari Zoo / Mari Lehmonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3239,w_5759,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,/wd_167/q_auto:eco/f_auto/fl_lossy/v1698664391/39-1193141653f687431ff4)
+
+Medvede zo Zoo Korkeasaari sa uložili do hibernácie. Medvede túto jeseň tvrdo spali už koncom októbra.
+
+V posledných rokoch sa medvede zvyčajne ukladajú na zimný spánok o niečo neskôr, začiatkom novembra.
+
+Pred zimným spánkom medvede veľa pojedli. Hrubá vrstva tuku chráni medvede počas dlhého zimného spánku.
+
+Korkeasaariho medvede sa zvyčajne prebúdzajú zo zimného spánku vo februári. V prírode severného Fínska môžu medvede hibernovať až šesť mesiacov.
+
+### Počasie
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_auto:w_1100/dprf_auto/fl_lossy/v1698681609/39-1193390653fd2ed08682)
+
+V utorok bude na mnohých miestach v južnej a strednej časti krajiny pršať s dažďom alebo snežením, prípadne aj mrznúcim dažďom. Na severe je prašan.
+
+Teplota sa bude v utorok na juhu pohybovať od 0 do +7 stupňov, inde od -1 do -9 stupňov.
+
+V dôsledku sneženia a mrznúceho dažďa je počasie v niektorých častiach Fínska zlé. Počasie na jazdu je zlé, najmä v centrálnych častiach krajiny.
+
+V strede týždňa je počasie chladné, no cez víkend je aspoň na juhu pár plusových stupňov.

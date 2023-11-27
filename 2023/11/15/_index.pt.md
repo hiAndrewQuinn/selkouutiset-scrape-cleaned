@@ -1,0 +1,55 @@
+## Rádio Selkouutiset Quarta-feira, 15 de novembro de 2023
+
+Corrida presidencial. Fronteira oriental. Vacina corona. Fazendas de peles. Clima.
+
+### Pesquisa presidencial
+
+![Alexander Stubb e Pekka Haavisto. Foto: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698912813/39-11947566543595173663)
+
+Alexander Stubb, da Coalizão, é agora o candidato mais popular para o novo presidente da Finlândia. A pesquisa de Yle mostra que 28% das pessoas agora apoiam Stubb.
+
+Pekka Haavisto ficou em 2º lugar na pesquisa. O apoio de Haavisto é de 26 por cento.
+
+O apoio de Stubb aumentou 6 pontos percentuais. O apoio de Haavisto diminuiu 3 pontos percentuais.
+
+A pesquisa diz que Stubb é o candidato mais popular mesmo que haja um 2º turno nas eleições presidenciais.
+
+O primeiro turno das eleições presidenciais será no dia 28 de janeiro.
+
+### Niinistö sobre requerentes de asilo
+
+![A imagem mostra a placa na estação fronteiriça de Vaalimaa. Foto: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908638/39-120003165528559efc2b)
+
+O Presidente da República, Sauli Niinistö, estima que o acordo de defesa planeado pela Finlândia e pelos EUA pode ser a razão pela qual os requerentes de asilo chegam à fronteira da Finlândia através da Rússia. Talvez a Rússia tenha ficado irritada com o acordo.
+
+Niinistö afirma que no futuro também poderá haver situações difíceis na fronteira oriental da Finlândia. O presidente comentou a situação na fronteira oriental de Bonn, na Alemanha, onde está atualmente de visita.
+
+Durante o dia, mais de 60 requerentes de asilo chegaram aos postos fronteiriços no sudeste da Finlândia. Eles não têm visto para a Finlândia.
+
+### Vacina Corona
+
+![Sinal Rokotuspiste na entrada do Kouvola Hallituskatu Caminhada no ponto de vacinação. Foto: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acff3)
+
+O funcionário diz que Alguns têm vacina corona suficiente. As doses de reforço da vacina corona são suficientes para todas as pessoas para as quais a vacina é agora recomendada.
+
+As vacinas de reforço são recomendadas durante o outono e inverno para as pessoas que correm maior risco de contrair doença corona grave. O maior fator de risco é a velhice de uma pessoa.
+
+### Fazendas de peles
+
+![Existem cerca de 550 fazendas de peles na Finlândia. Foto: Janne Järvinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0)
+
+Os criadores de peles solicitaram ao governo finlandês uma compensação pelos animais que tiveram de ser mortos devido à gripe aviária. Os criadores de peles pediram uma indemnização total de 6 milhões de euros.
+
+Até agora, 12 explorações de produção de peles solicitaram compensação. Um total de 42 fazendas de produção de peles já contraíram a gripe aviária. Os animais peludos devem ser mortos se os animais da fazenda de peles estiverem com gripe aviária. O objetivo é evitar que a gripe aviária se espalhe.
+
+Há um total de aproximadamente 550 fazendas de peles na Finlândia.
+
+### Clima
+
+![ Foto: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc)
+
+O tempo está empoeirado.
+
+A temperatura fica entre -1 e -9 graus à noite, entre -7 e -12 graus nas partes centrais do país e entre -10 e -20 graus na Lapônia.
+
+Durante o dia de quinta-feira, a temperatura estará entre -2 e -10 graus, entre -10 e -15 graus no centro do país e entre -10 e -20 graus na Lapónia.

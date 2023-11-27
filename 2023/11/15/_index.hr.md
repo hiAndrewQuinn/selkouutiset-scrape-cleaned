@@ -1,0 +1,55 @@
+## Radio Selkouutiset Srijeda, 15. studenog 2023
+
+Predsjednička utrka. Istočna granica. Cjepivo protiv korone. Farme krzna. Vrijeme.
+
+### Predsjednička anketa
+
+![Alexander Stubb i Pekka Haavisto. Fotografija: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3188,w_5668,x_0,y_327/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698912813/39-11947566543595173663)
+
+Alexander Stubb iz Koalicije sada je najpopularniji kandidat za novog predsjednika Finske. Yleova anketa pokazuje da 28 posto ljudi sada podržava Stubba.
+
+Pekka Haavisto je na drugom mjestu u istraživanju. Haavisto podržava 26 posto.
+
+Stubbova potpora porasla je za 6 postotnih bodova. Podrška Haavistu smanjena je za 3 postotna boda.
+
+Istraživanje kaže da je Stubb najpopularniji kandidat čak i ako bude drugog kruga predsjedničkih izbora.
+
+Prvi krug predsjedničkih izbora je 28. siječnja.
+
+### Niinistö o tražiteljima azila
+
+![Slika prikazuje znak na graničnoj stanici Vaalimaa. Fotografija: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699908638/39-120003165528559efc2b)
+
+Predsjednik Republike Sauli Niinistö ocjenjuje da bi obrambeni sporazum koji planiraju Finska i SAD možda biti razlog zašto tražitelji azila stižu na granicu Finske preko Rusije. Možda se Rusija naljutila zbog sporazuma.
+
+Niinistö kaže da bi u budućnosti moglo biti teških situacija i na istočnoj granici Finske. Situaciju na istočnoj granici predsjednik je komentirao u njemačkom Bonnu, gdje je trenutno u posjetu.
+
+Tijekom dana više od 60 tražitelja azila došlo je na granične postaje u jugoistočnoj Finskoj. Nemaju vizu za Finsku.
+
+### Cjepivo protiv korone
+
+![Znak Rokotuspiste na ulazu u Kouvola Hallituskatu Prošećite mjestom cijepljenja. Fotografija: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3247,w_5773,x_0,y_601/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699867130/39-11997076551e51acfff3)
+
+Službenik kaže da neki imaju dovoljno cjepiva protiv korone. Dopunske doze cjepiva protiv korone dovoljne su za sve one kojima se cjepivo sada preporučuje.
+
+Dopunska cjepiva se preporučuju tijekom jeseni i zime za one osobe koje su u najvećem riziku da obole od teške korona bolesti. Najveći faktor rizika je starost osobe.
+
+### Farme krzna
+
+![U Finskoj postoji oko 550 farmi krzna. Fotografija: Janne Järvinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4597,w_8174,x_18,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696520468/39-1181997651ed401620a0)
+
+Uzgajivači krznaša podnijeli su zahtjev finskoj vladi za odštetu za životinje koje su morale biti ubijene zbog ptičje gripe. Uzgajivači krznašica zatražili su odštetu od ukupno 6 milijuna eura.
+
+Za odštetu se do sada prijavilo 12 farmi krznašica. Ukupno 42 farme krznaša već su imale ptičju gripu. Krznene životinje moraju biti ubijene ako životinje na farmi krznašice imaju ptičju gripu. Svrha je spriječiti širenje ptičje gripe.
+
+U Finskoj postoji ukupno oko 550 farmi krzna.
+
+### Vrijeme
+
+![ Fotografija: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700050702/39-12009776554b6f9117dc)
+
+Vrijeme je prašnjavo.
+
+Temperatura noću od -1 do -9, u središnjim dijelovima od -7 do -12, au Laponiji od -10 do -20 stupnjeva.
+
+Temperatura će u četvrtak tijekom dana biti od -2 do -10, u središnjim predjelima od -10 do -15, au Laponiji od -10 do -20 stupnjeva.

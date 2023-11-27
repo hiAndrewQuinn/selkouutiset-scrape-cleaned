@@ -1,0 +1,53 @@
+## Radio Selkouutiset Sreda, 1. november 2023
+
+Gaza. Tekočina. Delo na daljavo. Snežna nevihta. Jutrišnje vreme.
+
+### Gaza
+
+![Reševalno vozilo pripelje ranjence na zdravljenje iz Gaze na egiptovsko stran. Foto: Haitham Imad / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2821,w_5016,x_0,y_744/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698852282/39-1194530654258b7aaf7a)
+
+Odprt je mejni prehod Rafa iz Gaze v Egipt. Mejni prehod so zdaj odprli prvič po napadu teroristične organizacije Hamas na Izrael v začetku oktobra.
+
+Reševalna vozila so ranjene Palestince pripeljala na zdravljenje na egiptovsko stran. Gazo so zapustili tudi prvi tuji državljani. Egiptovski uradniki pravijo, da bo mejo v Egipt danes prečkalo okoli petsto tujcev.
+
+V Gazi je tudi 12 Fincev. Kdaj bodo pobegnili, še ni znano.
+
+### Tekočina
+
+![Neste odpušča delovna mesta, ker želi prihraniti denar. Foto: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2611,w_4643,x_0,y_483/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698838481/39-1191437653a0928a0b5b)
+
+Proizvajalec goriv Neste odpušča na stotine delovnih mest. Neste namerava odpustiti okoli 400 delavcev, od tega večinoma s Finske.
+
+Z znižanji cilja Neste na letni prihranek okoli 50 milijonov evrov.
+
+Neste ima več kot 6000 zaposlenih, od tega jih skoraj 4000 dela na Finskem.
+
+### Delo na daljavo
+
+![Strokovnjakinja za storitve Saara Peiponen pravi, da delo na daljavo olajša vsakdanje življenje in izboljša obvladovanje. Foto: Heikki Haapalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2988,w_5312,x_16,y_569/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698754242/39-11936826540ed9ea44a0)
+
+Finci želijo obdržati pravico do dela na daljavo.
+
+Ankete, izvedene na delovnih mestih, kažejo, da so mnogi celo pripravljeni zamenjati službo, če delo na daljavo ni mogoče.
+
+Yle je prosil ljudi, da povedo, zakaj jim je priložnost za delo na daljavo pomembna. Odzivov je bilo več kot tisoč.
+
+Mnogi so rekli, da je delovni mir boljši doma kot v službi. Mnogi so tudi povedali, da delo na daljavo prinaša fleksibilnost v delovni dan in izboljša obvladovanje.
+
+### Snežni metež
+
+![ Foto: Merja Siirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_0,y_378/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698853993/39-119441665423d86dff6c)
+
+V osrednjih delih države je zapadlo veliko snega. V Jyväskylä je na primer od včeraj zapadlo snega, morda do 30 centimetrov.
+
+Zaradi sneženja je vreme za vožnjo slabo ali zelo slabo. V številnih občinah snežni plugi že ves dan plužijo ceste, v marsikateri občini pa tudi vso noč.
+
+Še vedno je bilo veliko padcev in padcev. Na primer, popoldne je prišlo do verižnega trčenja štirih avtomobilov na Nelostie v Jyväskylä. V Vaasi je več lokalnih avtobusov iztirilo s ceste v jarek.
+
+### Jutrišnje vreme
+
+![ Fotografija: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698848166/39-119453865425d62868a1)
+
+Jutri bo deževalo. Nebo je oblačno, a ponekod lahko posije sonce.
+
+Temperature so večinoma od 0 do -10 stopinj. Na samem jugu smo malo pred nami.

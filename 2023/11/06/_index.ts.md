@@ -1,0 +1,65 @@
+## Xiya-ni-moya \| Mahungu lama nga erivaleni \| Ravumbirhi 6 Nyenyankulu 2023
+
+Mintokoto ya xihlawuhlawu ya vahlapfa. Ku tshoveka ka khebulu ya le Rhaxiya. Timbyana ti sungula ku vabya. Ku velekiwa ka vana. Siku ra Vusweden. Maxelo.
+
+### Xihlawuhlawu eka vahlapfa
+
+![Vanhu vo tala lava humaka ematikweni mambe va langutana ni xihlawuhlawu. Xifaniso: Mikko Ahmajärvi / Yle](https://ku.q_auto:eco/f_auto/fl_kulahlekeriwa/v1698074800/39-115894164df61298ec3e)
+
+Vanhu lava humaka ematikweni mambe va langutana ni xihlawuhlawu eFinland. Leswi hi leswi nkambisiso wa Institute of Health and Welfare wu swi vulaka.
+
+Ku tlula 40 wa tiphesente ta vanhu lava humaka ematikweni mambe va langutane ni xihlawuhlawu eka lembe leri hundzeke. Vavanuna lava humaka ematikweni mambe lava teke eFinland va huma eAfrika kumbe eMiddle East ngopfu-ngopfu va langutana ni xihlawuhlawu.
+
+Kwalomu ka 8 000 wa vanhu lava humaka ematikweni mambe va hlanganyerile eka nkambisiso lowu endliweke hi Nhlangano wa Rihanyo ni Vuhlayiseki.
+
+### Ntambhu ya vuhlanganisi ya le Rhaxiya
+
+![Xikepe xa le Rhaxiya xi ri entirhweni wo lunghisa tikhebulu. Xifaniso: AOP](https://ku/f_auto/fl_kulahlekeriwa/v1699268142/39-11962776548c5acae94c)
+
+Ntambhu ya vuhlanganisi ya le Rhaxiya yi tshovekile endhawini ya lwandle ya Gulf of Finland. Xikepe xa le Rhaxiya xi tile ku ta lulamisa xiphiqo lexi.
+
+Ntambhu leyi yi tlhela yi famba endhawini ya ikhonomi ya le Finland. Rhaxiya ri tivise Finland hi ku tshoveka ka khebulu exikarhi ka October.
+
+### Timhangu ta mavabyi eka timbyana
+
+![Musti na Mirri va ni switolo etindhawini to hambana-hambana ta le Finland. Xifaniso: Jaakko Stenroos / AOP](https://ku.q_auto:eco/f_auto/fl_lossy/v1699194714/39-11960056547a6fe024cd)
+
+Timbyana to tala ti vabya hikwalaho ka swakudya swa timbyana. Timbyana ti vabya kumbexana hikuva ti dyile swakudya swa timbyana swa Musti ja Mirri.
+
+Musti ja Mirri u vula leswaku madzana yo tala ya vaxavi va swakudya swa timbyana va tihlanganisile na khamphani leyi. Khamphani yi yimise ku xavisiwa ka swakudya swo tlula 30,000 wa tikhilogiramu ta swakudya swa timbyana.
+
+Valawuri va le ku lavisiseni ka mhaka leyi.
+
+### Nhlayo ya tincece
+
+![Tincece ti velekiwa hi nhlayo ya le hansi swinene. Xifaniso: Silja Viitala / Yle](https://ku.q_auto:eco/f_auto/fl_lossy/v1697805617/39-1189261653274b0907f5)
+
+Vana va nga ri vangani lava velekiwaka eFinland ku tlula eku sunguleni. Leswi hi leswi Nhlangano wa Rihanyo ni Vuhlayiseki wu swi vulaka.
+
+Hi 2022, vana va kwalomu ka 45 000 va ta velekiwa eFinland. Yi le hansi hi tiphesente ta 9 ku tlula ya 2021.
+
+Nakambe lembe leri, hi ximun’wana, ku velekiwe vana va nga ri vangani ku tlula lembe leri hundzeke.
+
+### Siku ra Vusweden
+
+![Ku vulavula tindzimi timbirhi ku nga voniwa, hi xikombiso, eka swikombiso swa le xitarateni eHelsinki. Xifaniso: Silja Viitala / Yle](https://ku.Swifaniso.Swifaniso.cdn.yle.fi/xifaniso/kulayicha/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1615970514/39-7850546051bda715b05)
+
+Hi Musumbhunuku, ku tlangeriwa siku ra Vusweden. Hi Siku ra Xisweden, ririmi ra Xisweden ri tlangeriwa eFinland.
+
+Kwalomu ka 300 000 wa vanhu va le Finland va vulavula Xisweden tanihi ririmi ra rikwavo. Vanhu vo tala va le Finland lava dumeke va tshame va vulavula Xisweden, hi xikombiso Marshal Mannerheim na mutsari Tove Jansson.
+
+Siku ra le Sweden ri tlangeriwa eFinland ku tlula malembe ya 100, ku sukela hi 1908. Siku ra Vusweden, kumbe Svenska dagen, minkarhi hinkwayo i November 6.
+
+Un’wana ni un’wana a nga titoloveta Xisweden hi, hi xikombiso, mahungu lama nga erivaleni ya Yle hi Xisweden. Ti nga kumeka eAreena ehansi ka vito leri nge Yle Nyheter på lät svenska.
+
+### Maxelo
+
+![](https://ku.f_auto/fl_kulahlekeriwa/v1699290254/39-119671665491c7602c1a)
+
+Hi Ravumbirhi, maxelo ya ta va ya ri na mapapa. Ku ni nkungu etindhawini tin’wana ta tiko.
+
+Eka xiphemu xale xikarhi xa tiko, ku na mpfula ya gamboko, sleet na mati. Ku na gamboko en’walungwini.
+
+Mahiselo hi Ravumbirhi ya ta va exikarhi ka -2 na +7 degrees.
+
+Maxelo ya ta hundzuka ya titimela eku heleni ka vhiki leri. Le Lapland, xirhami xiya xi tika, naswona e dzongeni mahiselo ya hunguteka ehansi ka 5 degrees.

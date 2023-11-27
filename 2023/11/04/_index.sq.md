@@ -1,0 +1,61 @@
+## Radio \| Lajme të qarta \| të shtunën më 4 nëntor 2023
+
+Taksat. Tërmeti i Nepalit. Ukrainë. Gaza. Dita e te gjithe shenjetoreve. Parashikim.
+
+### Kënaqshmëri me tatimin
+
+![Finlandezët janë të lumtur të paguajnë taksat. Foto: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3061,w_5443,x_0,y_226/ar_1.777777777777777,c_fill,g_501,wh_1q_auto:eco/f_auto/fl_lossy/v1692510416/39-115736664dc9b0569c81)
+
+Shumica e finlandezëve janë të kënaqur me taksat. Administrata Tatimore ka pyetur finlandezët se çfarë mendojnë ata për pagimin e taksave.
+
+Më shumë se 70 për qind e finlandezëve janë të lumtur të paguajnë taksat.
+
+Vetëm 17 për qind e finlandezëve thonë se nuk u pëlqen të paguajnë taksa. Megjithatë, shumica e tyre janë të mendimit se taksat duhet të paguhen ende.
+
+Kënaqësia me pagimin e taksave është rritur dukshëm gjatë 10 viteve të fundit.
+
+### Tërmet në Nepal
+
+![Shtëpi të shembura në Jajarkot, Nepal. Foto: Balkumar Sharma / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1350,w_2400,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_120,h_120.q_auto:eco/f_auto/fl_lossy/v1699091137/39-1195827654612690580a)
+
+Një tërmet i madh ka ndodhur në Nepal. Tërmeti ka ndodhur në Nepalin perëndimor të premten në mbrëmje.
+
+Të paktën 150 persona kanë humbur jetën nga tërmeti. Numri i të vdekurve mund të rritet kur të merret më shumë informacion nga zona. Shumë njerëz janë lënduar gjithashtu nga tërmeti i Nepalit. Shumë ndërtesa janë shembur nga tërmeti.
+
+Tërmeti i Nepalit ndodhi në një zonë të largët. Kjo është arsyeja pse informacioni për shkatërrimin vjen ngadalë.
+
+### Vizita e Presidentit të BE-së në Ukrainë
+
+![Ursula von der Leyen u takua me Presidentin Volodymyr Zelensky në stacionin hekurudhor të Kievit. Foto: AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_3000,x_0,y_305/ar_1.7777777777777777,c_fill,g_faces,h_670,w_1au./f_auto/fl_lossy/v1699098434/39-119583265462e51258c1)
+
+Presidentja e Komisionit Evropian **Ursula von der Leyen** ka vizituar Ukrainën të shtunën. Von der Leyen u takua me presidentin ukrainas **Volodymyr Zelensky** në kryeqytetin Kiev.
+
+Von der Leyen foli në Ukrainë, për shembull, se si Ukraina mund të bëhet një ditë anëtare e BE-së.
+
+Von der Leyen foli edhe për mbështetjen e BE-së për Ukrainën.
+
+### Situata në Gaza
+
+![Izraeli ka përqendruar sulmet ushtarake në pjesën veriore të Gazës. Foto: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1121,w_1994,x_5,y_0/ar_1.7777777777777777,c_fill,g_faces,h_120/h_120.q_auto:eco/f_auto/fl_lossy/v1699023208/39-1195711654506b2bc2d4)
+
+Rreth një milion njerëz janë shpërngulur nga Gaza në pjesën jugore të territorit për shkak të luftës.
+
+Ekspertët thonë se të paktën 800,000 njerëz kanë hyrë në zonë, por numri mund të jetë deri në një milion. Kështu thotë i dërguari special i SHBA-së për Ndihmën Humanitare në Lindjen e Mesme.
+
+Sulmet nga forcat ajrore izraelite dhe ato tokësore janë përqendruar në veri të Gazës. Kjo është arsyeja pse njerëzit kanë ikur në jug. Në veri të Gazës ka ende rreth 400,000 njerëz.
+
+### Dita e te gjithe shenjetoreve
+
+![Në ditën e shenjtë çohen qirinj në varre. Foto: Leena-kaisa Laakso / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_435/ar_1.777777777777777,c_fill,g_501,wh0/q_auto:eco/f_auto/fl_lossy/v1699101771/39-119586665463c1d71d1c)
+
+Sot e shtuna është Dita e Gjithë Shenjtorëve. Dita e të gjithë Shenjtorëve është e rëndësishme në traditën e krishterë. Është dita e përkujtimit të shenjtorëve, martirëve dhe të vdekurve.
+
+Në Ditën e Gjithë Shenjtorëve, ne kujtojmë njerëzit e afërt që tashmë kanë vdekur. Në Ditën e të Gjithë Shenjtorëve, qirinjtë çohen në varret e të dashurve. Kishat kujtojnë ata famullitarë që kanë vdekur që nga Dita e fundit e Gjithë Shenjtorëve.
+
+Dita e të Gjithë Shenjtorëve festohet gjithmonë në Finlandë të shtunën e parë të nëntorit.
+
+### Moti
+
+![E diela është kryesisht me re.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_120.h_120./q_auto:eco/f_auto/fl_lossy/v1699111715/39-1195891654662ff4432c)
+
+Moti është kryesisht i vranët dhe me shi. Në Finlandën jugperëndimore, dielli ndonjëherë mund të shkëlqejë pak. Temperatura është kryesisht ndërmjet 3 dhe 8 gradë. Është më ftohtë në Finlandën veriore.

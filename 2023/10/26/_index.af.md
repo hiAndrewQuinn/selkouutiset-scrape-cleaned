@@ -1,0 +1,61 @@
+## Radio Selkouutiset Donderdag 26 Oktober 2023
+
+Teenmaatreël verhoor. Oosgrensheining. Bosraad. Perdry ongeluk. Winterpadbeperkings. Weer.
+
+### Teenmaatreëlproef
+
+![Beskuldigde Aleksanteri Kivimäki. Foto: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2875,w_5112,x_0,y_568/ar_1.77777777777777777,c_fill,g_gesigte,h_12_00,h_12_00,w_12_00,h_61_00,h_12_r.q_auto:eco/f_auto/fl_lossy/v1698305049/39-1191484653a13e7df175)
+
+Die verhoor van die data-oortreding in die kantoor het begin. Vastaamo was 'n maatskappy wat mense psigoterapie gegee het.
+
+In die regsgeding word Aleksanteri Kivimäki daarvan beskuldig dat hy eers by Vastaamo se kliënteinligting ingebreek het. Aanklaers sê dat Kivimäki ná die data-oortreding tienduisende mense wreed afgepers het. Kivimäki het ook Vastaamo se klante-inligting op die internet gepubliseer.
+
+Die aanklaers eis dat Kivimäki 7 jaar tronkstraf opgelê moet word.
+
+Aleksanteri Kivimäki sê dat hy nie die misdade waarvan hy beskuldig word, gepleeg het nie.
+
+### Oosgrensheining
+
+!['n Nuwe grensheining naby die Pelkola-grensstasie in Imatra. Foto: Kare Lehtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2243,w_3993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6_01,wdpr.wdpr.q_auto:eco/f_auto/fl_lossy/v1698323397/39-1191724653a55b2a04b0)
+
+’n Heining word op Finland se oostelike grens gebou. Die bou van die heining sal in April begin.
+
+Eerstens sal die heining in Suidoos-Finland naby die grensoorgange vir Imatra, Vaalimaa en Nuijamaa gebou word. Wanneer die heining klaar is, sal dit altesaam sowat 200 kilometer lank wees. Die hele heining sal in 2026 gereed wees.
+
+Die Grenswag het reeds 'n klein heining by Imatra gebou. Die Grenswag sê daar is goeie ervarings met dié toetsheining.
+
+Die doel van die heining is dat jy nie maklik sonder ’n permit die grens tussen Finland en Rusland kan oorsteek nie.
+
+### Bosraad
+
+![Die baksteengebou wat op 26 Oktober 2023 by die hoofhek van Metsä Board se Äänekoski-kartonfabriek geleë is. Foto: Jussi Lindroos / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6_00,w_1pr.q_auto:eco/f_auto/fl_lossy/v1698319726/39-1191672653a4ca1724ad)
+
+Die bosmaatskappy Metsä Board kan werknemers afdank.
+
+Die veranderingsonderhandelinge het betrekking op 'n totaal van ongeveer 1 100 mense by Metsä Board se Finse kartonfabrieke. Daar sal waarskynlik volgende jaar afleggings wees en dit sal 3 maande duur.
+
+Metsä Board sê daar word nou te min karton gekoop. Daarom sal die maatskappy dalk werknemers moet afdank.
+
+### Perdry ongeluk
+
+![Die ongeluk het by die perdestal gebeur. Illustrasie prentjie. Foto: Linus Westerlund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_1270,0d_600,h_1270,wdq_auto:eco/f_auto/fl_lossy/v1692692625/39-116023264e46d0e45030)
+
+In Espoo is 'n jong vrou in 'n ongeluk by 'n perdestal dood. ’n Vrou in haar 20’s is dood toe sy Dinsdag van ’n perd afgeval het. Die ruiter het 'n helm gedra.
+
+Die oorsaak van die ongeluk word ondersoek.
+
+### Wintersnelhede
+
+![Winterpadspoedbeperkings tree in werking. Foto: Juha Kemppainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_6_01,wdpr.wdpr.q_auto:eco/f_auto/fl_lossy/v1603287400/39-7327705f903747751c2)
+
+Op baie snelweë sal die spoedgrens vandag, Donderdag, verander. In die winter is die spoedgrens op byna alle paaie in Finland 80 kilometer per uur.
+
+Die spoedgrens op snelweë in die winter is 100 kilometer per uur.
+
+### Weer
+
+![ Foto: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_625,.rp0/q_auto:eco/f_auto/fl_lossy/v1698292510/39-11913736539e2ff81a55)
+
+Dit sal Vrydag 'n bietjie sneeu in Lapland. Daar sal ook reënbuie of sneeubuie aan die suidkus wees. Elders in Finland is daar moeilikheid.
+
+Die temperatuur is aan die positiewe kant in die suidelike deel van die land. Daar is ryp in die sentrale en noordelike dele van die land.

@@ -1,0 +1,59 @@
+## Umsakazo izindaba ezicacile ngoMgqibelo 11.11.2023
+
+Corona. I-Tiktok. Abangane besilisa. Usuku lwekhala. Isimo sezulu.
+
+### Corona
+
+![HUS udokotela omkhulu wezifo ezithathelwanayo u-Asko Järvinen. Isithombe: Paavo Jantunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3027,w_5382,x_0,y_311/ar_1.777777777777777,c_fill,g_faces,w_1_7.q_auto:eco/f_auto/fl_lossy/v1699692578/39-1199235654f3bb0eba14)
+
+Uchwepheshe we-corona uthi izakhamizi akudingeki zikhathazeke, yize ingozi yokutheleleka manje isiphezulu eFinland. U-Asko Järvinen, udokotela omkhulu wezifo ezithathelwanayo, uthi ukuvikelwa kwemigomo kanye ne-corona enegciwane kuhle.
+
+Uhlobo olusha lwegciwane le-corona i-EG5, noma i-Eris, ludala isifo esifana nomkhuhlane kunangaphambili. Umkhuhlane usengaba mkhulu.
+
+Uprofesa wabagula kakhulu uMatti Reinikainen uthi lo mkhuba uyakhathaza nokho. Njengamanje, zilinganiselwa ku-30 iziguli ezisezikhundleni ezibucayi ngenxa yegciwane le-corona. Kufana nasentwasahlobo nasebusika buka-2022 phakathi nobhubhane. Kulolu bhubhane, lesi sifo sasakazeka emhlabeni wonke.
+
+### Tiktok
+
+![U-Yle usebenzise ubuhlakani bokwenziwa ukuze akhe iphrofayela yentombazane ecindezelekile eneminyaka engu-13 ku-Tiktok. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2955,w_5255,x_371,y_789/ar_1.7777777777777777,c_fill,g_faces,h_675,w_q_1200_utoe/1200.fl_lossy/v1697625813/39-1187987652fb3e8a7ce7)
+
+Okuqukethwe kohlelo lwevidiyo i-Tiktok kungaqala ukuba kubi ukudangala ngokushesha ngokumangazayo, ngokusho kokuhlolwa kukaYle.
+
+U-Yle udale iphrofayela nesithombe sentombazane ecindezelekile eneminyaka engu-13 ubudala e-Tiktok ngosizo lobuhlakani bokwenziwa. I-Tiktok yaqala ngokushesha ukubonisa amavidiyo anokuqukethwe okuhlobene nokudangala, ukuba nombono omuhle wokuba mncane, ngisho nokuzibulala.
+
+Ungoti wezengqondo ohamba phambili wenhlangano engekho ngaphansi kukahulumeni uMeli ry, uFrans Horneman, uthi la ma-video ayingozi empilweni yengqondo yamaqembu asengozini.
+
+I-Tiktok inabasebenzisi abayizigidi eziyi-1.5 eFinland. Iningi lingabantu abasha.
+
+Kunendatshana ebanzi mayelana nokuhlolwa ku-yle.fi.
+
+### Abangani besilisa
+
+![UNikodemus Nousiainen wase-Helsinki usebenza njengesoka lomfana oneminyaka engu-7 ubudala. Isithombe: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_150/ar_1.7777777777777777,c_fill,g_faces_60,wh_1.q_auto:eco/f_auto/fl_lossy/v1699361417/39-1197061654a30293868a)
+
+Ubungane bamadoda budinga amadoda amaningi. Abangane besilisa bangabangane bezingane ezingenabo ubuhlobo noyise noma ezinobudlelwane obubuthakathaka.
+
+Imisebenzi yabangane bamadoda ihlelwa yi-Pienperheyhdistys ezindaweni ezingu-6. Amavolontiya angaba ngu-250 ahilelekile.
+
+Izingane ezingaba ngu-110 000 zihlala nonina, kusho iStatistics Finland.
+
+Ngokuvamile, ingane nomngane wesilisa bahlangana izikhathi 2 kuya 4 ngenyanga. Abangane bazinqumela ukuthi bazokwenzani emihlanganweni.
+
+Amavolontiya anikezwa amahora angu-15 okuqeqeshwa.
+
+### Usuku lwekhala
+
+![Abahleli bohlelo olugamenxe ihora lesikhombisa, u-Ella Kanninen no-Mikko Kekäläinen, babambe iqhaza ku-Nenäpäivä. Isithombe: Jari Pussinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.777777777777777,c_fill,g_faces,w_125,wp_65.q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6)
+
+I-Nenäpäivä yangoLwesihlanu ku-Yle TV1 iqoqe ama-euro angaphezu kwesigidi esingu-1.6 ngeminikelo kulo nyaka. I-Nenäpäivä umkhankaso wokupha we-Nenäpäivä foundation.
+
+I-Nose Day imema abakwaFinn ukuthi basize izingane zomhlaba, ezisesimweni esisengozini kakhulu.
+
+Usengabamba iqhaza eqoqweni loSuku Lwekhala kuze kube sekupheleni konyaka.
+
+### Isimo sezulu
+
+![ Isithombe: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.77777777777777777,c_fill,g_faces,h_6710/0_pq2uto.:eco/f_auto/fl_lossy/v1699717391/39-1199335654fa0f0a84d5)
+
+NgeSonto, imvula yamanzi izovame kakhulu eningizimu. Iqhwa liyahamba ezingxenyeni ezimaphakathi nezwe. Izinga lokushisa ezingxenyeni eziseningizimu yi-0 kuya ku-4 degrees. Enyakatho ingu-9 kuya ku-14 degrees.
+
+Usuku kunomoya.

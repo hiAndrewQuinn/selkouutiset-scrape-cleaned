@@ -1,0 +1,45 @@
+## Radio Selkouutiset jeudi 16 novembre 2023
+
+Postes frontières fermés. Chômage. Le procès Dödspatrullen. Météo.
+
+### Postes frontières fermés
+
+![Les postes frontières d'Imatra, Niirala, Nuijamaa et Vaalimaa seront fermés. Photo : Laura Merikalla / Yle et Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
+
+La Finlande ferme de nombreux postes frontaliers à la frontière orientale.
+
+Le gouvernement a décidé que les postes frontières d'Imatra, Niirala, Nuijamaa et Vaalimaa seraient fermés dans la nuit de vendredi à samedi. Après cela, plus aucun trafic ne passe par ces postes frontières. Les postes frontières sont fermés au moins jusqu'à la mi-février.
+
+À la frontière orientale, seuls les postes frontières de Vartius, Salla, Kuusamo et Raja-Joosepi seront ouverts à partir de samedi.
+
+Le Premier ministre Petteri Orpo a déclaré que la Finlande souhaitait garantir la sécurité des frontières. C'est pourquoi les postes frontières sont fermés.
+
+Au cours de l’automne, davantage de demandeurs d’asile que d’habitude sont arrivés aux points de passage frontaliers du sud-est de la Finlande. Les demandeurs d'asile arrivaient de nombreux pays jusqu'à la frontière finlandaise via la Russie. Ils n’avaient pas avec eux les papiers nécessaires pour venir en Finlande depuis la Russie.
+
+### Chômage
+
+![Le chômage augmente. Image d’illustration. Photo : Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+
+Le nombre de chômeurs va augmenter en Finlande cette année. C’est ce qu’estime le ministère du Travail.
+
+Selon le ministère, il y aura bientôt le même nombre de personnes licenciées qu'en 2009. Au début de l'année prochaine, il y aura près de 40 000 travailleurs licenciés. de, par exemple, 3 mois ou 6 mois.
+
+Le ministère du Travail estime que l’économie finlandaise s’améliorera en 2025. Il y avait aussi plus d’emplois à l’époque qu’aujourd’hui.
+
+### Procès Dödspatrullen
+
+![Tribunaux Dödspatrulle 16.11.2023. Photo : Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+
+Un procès lié au gang suédois Dödspatrullen a débuté à Helsinki.
+
+27 personnes sont accusées devant le tribunal de district. Le procureur demande l'emprisonnement pour presque tous les accusés. Neuf des accusés sont des citoyens finlandais et sept sont des citoyens suédois. Les autres accusés sont des citoyens d'autres pays.
+
+Le tribunal traite des crimes liés à la drogue. La police affirme qu'un gang de rue suédois a tenté de s'emparer du marché de la drogue finlandais. Dödspatrullen est un gang de rue suédois violent qui commet de nombreux crimes liés à la drogue.
+
+### Météo
+
+![Photo : Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
+
+Demain vendredi, le soleil brillera au sud et au nord. Il y a des nuages dans le ciel au milieu de la terre. Le temps est poussiéreux, mais il risque de neiger un peu sur la côte ouest.
+
+La température est glaciale dans tout le pays. Le plus froid se trouve en Laponie.

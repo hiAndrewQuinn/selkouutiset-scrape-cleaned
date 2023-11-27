@@ -1,0 +1,57 @@
+## Xiya-ni-moya \| Mahungu lama nga erivaleni \| Ravumbirhi 7 Nyenyankulu 2023
+
+Switlhavelo swa corona. Switereka. Ku kota ku tirha vathoriwa va mudende. Maxelo.
+
+### Ntlhavelo wa Corona
+
+![Sweswi mintlawa leyi nga na khombo yi nyikiwa switlhavelo swo pfuneta ku lwisana na xitsongwatsongwana xa corona. Xifaniso: Petri Niemi / Yle](https://ku.q_auto:eco/f_auto/fl_lossy/v1675253861/39-99789363046bc0166b4)
+
+Mitlhavelo ya corona yi sungurile endzhaku ka nkarhi swinene eka xixika lexi. Leswi na swona hi leswi Institute of Health and Welfare, kumbe THL, yi swi vulaka, leyi hlanganisaka nhlengeletano ya switlhavelo swa corona.
+
+Corona yi sungula ku hangalaka hi xixika, hikuva vanhu va le ndzeni ka yindlu na van’wana nakambe. Kuwa loku, nhlayo ya timhangu ta corona na vavabyi va corona yi tlakukile hi xihatla.
+
+THL yi vula leswaku mintlhavelo ya corona yi fanele ku hleriwa hi nkarhi wun’we na ku tshungula mukhuhlwana. Handle ka sweswo, a ku na vatirhi vo enela ku khoma switlhavelo hinkwaswo.
+
+Hi yona mhaka leyi mintlhavelo ya corona yi nyikiweke endzhaku nyana na mintlhavelo ya mukhuhlwana ka ha ri na nkarhinyana. Hambiswiritano, nchumu wa nkoka swinene hileswaku mintlawa ya khombo yi kuma switlhavelo leswimbirhi.
+
+I swa nkoka ngopfu eka vanhu vo tlula 80 ku kuma ntlhavelo wo pfuneta ku lwisana na xitsongwatsongwana xa corona, THL ya tsundzuxa.
+
+### Switereka
+
+![Vahlaseri eOulu, en’walungwini wa Finland. Xifaniso: Ville Honkonen / Lehtikuva](https://ku.q_auto:eco/f_auto/fl_lossy/v1699368229/39-11968696549f7933eb81)
+
+Switereka swi yimise ntirho etindhawini to tala ta ntirho eFinland.
+
+Hi Ravumbirhi ku ve ni switereka en’walungwini wa Finland, hi Ravunharhu ku ve ni switereka exifundzheni xa Turku. Switereka swi teka nkarhi wo leha wa siku rin’we.
+
+Switereka swi yimisa tifektri ku ringana siku, hi xikombiso. Ku engetela kwalaho, switereka swi pfala tindhawu ta mintlangu na swidziva swo hlambela, hi xikombiso. Hi Ravunharhu, xitereka lexi xi ta yimisa mabazi ya Turku.
+
+Tiyuniyoni ta vatirhi ti kunguhata ku hlela switereka swa siku hinkwaro eka n’hweti hinkwayo leyi taka.
+
+Minhlangano ya vatirhi yi hlela switereka hikuva yi hlundzukela mfumo.
+
+Xikombiso, mfumo wu kunguhata ku cinca milawu ya nkarhi wo wisa wa vuvabyi leswaku mutirhi a nga ha kumi muholo ku sukela hi siku ro sungula ra nkarhi wo wisa wa vuvabyi.
+
+Ku engetela kwalaho, mfumo wu kunguhata ku endla leswaku swi olova ku hlongola mutirhi.
+
+### Vadyuhari lava kotaka ku tirha
+
+![Vo tala va tshama va ri exiyin’weni lexinene nkarhi wo leha. Xifaniso: Esa Syväkuru / YLE](https://ku.q_auto:eco/f_auto/fl_lossy/v1568642672/39-5915475d7f9625891ee)
+
+Ku ni vanhu vo tala lava kumaka mudende eFinland lava ha swi kotaka ku tirha. Rungula leri ri huma eka nkambisiso lowu endliweke hi Nhlangano wa Rihanyo ni Vuhlayiseki.
+
+Vanhu vo tlula 50 wa tiphesente lava nga ni malembe ya 65-74 va ringanyeta leswaku va swi kota ku tirha. Hambiswiritano, i kwalomu ka khume ra tiphesente ntsena ta vona lava yaka entirhweni.
+
+Vanhu lava nga le penceni va nga va ni xiyimo lexi hambaneke swinene. Van’wana va nga tsutsuma, kambe ku famba swi nga tika eka van’wana.
+
+### Maxelo
+
+![](https://ku.f_auto/fl_kulahlekeriwa/v1699373925/39-1197270654a63406a4f5)
+
+Hi Ravunharhu, maxelo ya ta va na mapapa na nkungu.
+
+Mpfula yi na ngopfu-ngopfu exikarhi ka tiko ni le Vupela-dyambu bya Lapland. Mpfula yi tala ngopfu hi gamboko.
+
+Kuna xirhami nyana eka xiphemu xale n’walungwini wa tiko, handle ka sweswo hi Ravunharhu hitava hiri eka tlhelo lerinene.
+
+Hi Ravumune, maxelo yata titimela en’walungwini, naswona yatava kwalomu ka 10 degrees ehansi ka zero e Lapland. Timpfula ta mati ti tshinela edzongeni wa Finland ku suka evupela-dyambu.

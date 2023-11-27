@@ -1,0 +1,53 @@
+## Radio Selkouutiset Ravunharhu 1 Nyenyankulu 2023
+
+Gaza. Xihalaki. Ku tirha hi riqingho. Xidzedze xa gamboko. Maxelo ya mundzuku.
+
+### Gaza
+
+![Ambulance yi tisa lava vavisekeke leswaku va ta tshunguriwa ku suka eGaza ku ya etlhelweni ra Egypt. Xifaniso: Haitham Imad / EPA](https://ku.q_auto:eco/f_auto/fl_lossy/v1698852282/39-1194530654258b7aaf7a)
+
+Ndlela yo tsemakanya ndzilakano ya Rafah ku suka eGaza ku ya eEgipta yi pfuriwile. Sweswi ndhawu leyi yo tsemakanya ndzilakano yi pfuriwile ro sungula ku sukela loko nhlangano wa matherorisi wa Hamas wu hlasele Israyele eku sunguleni ka October.
+
+Tiambulensi ti tise Vapalestina lava vavisekeke etlhelweni ra Egipta leswaku va ya tshunguriwa. Vaaki vo sungula va matiko mambe na vona va sukile eGaza. Vatirhela-mfumo va le Egipta va vula leswaku kumbexana kwalomu ka madzana ya ntlhanu ya vanhu va matiko mambe va ta tsemakanya ndzilakano va nghena eEgipta namuntlha.
+
+Nakambe ku ni vanhu va 12 va le Finland eGaza. A swi se tiveka leswaku va ta baleka rini.
+
+### Xihalaki
+
+![Neste yi tsema mintirho hikuva yi lava ku hlayisa mali. Xifaniso: Jaakko Stenroos / AOP](https://ku.q_auto:eco/f_auto/fl_lossy/v1698838481/39-1191437653a0928a0b5b)
+
+Muendli wa mafurha Neste u tsema madzana ya mintirho. Neste yi kunguhata ku hunguta mintirho ya kwalomu ka 400, leyi vunyingi bya yona yi humaka eFinland.
+
+Hi ku hungutiwa loku, Neste yi kongomisa eka ku hlayisa mali ya lembe na lembe ya kwalomu ka 50 wa timiliyoni ta ti-euro.
+
+Neste yi ni vatirhi vo tlula 6 000, laha kwalomu ka 4 000 wa vona va tirhaka eFinland.
+
+### Ntirho wa le kule
+
+![Mutivi wa vutirheli Saara Peiponen u vula leswaku ntirho wa le kule wu olovisa vutomi bya siku na siku naswona wu antswisa ku langutana ni swiyimo. Xifaniso: Heikki Haapalainen / Yle](https://ku.q_auto:eco/f_auto/fl_lossy/v1698754242/39-11936826540ed9ea44a0)
+
+Vanhu va le Finland va lava ku khomelela hi tlhelo ra xinene leswaku va tirha va ri ekule.
+
+Mindzavisiso leyi endliweke etindhawini ta ntirho yi kombisa leswaku vo tala va lunghekele hambi ku ri ku cinca mintirho loko ntirho wa le kule wu nga koteki.
+
+Yle u komberile vanhu ku byela leswaku hikokwalaho ka yini nkarhi wo tirha ekule wu ri wa nkoka eka vona. Ku ve ni tinhlamulo to tlula gidi.
+
+Vo tala va vule leswaku ku rhula entirhweni swa antswa ekaya ku tlula entirhweni. Vo tala va tlhele va vula leswaku ntirho wa le kule wu tisa ku cinca-cinca esikwini ra ntirho naswona wu antswisa ku langutana ni swiyimo.
+
+### Xidzedze xa gamboko
+
+![ Xifaniso: Merja Siirilä / Yle](https://swifaniso.cdn.yle.fi/xifaniso/kulayicha/c_crop,h_2265,w_4028,x_0,y_378/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698853993/39-119441665423d86dff6c) Xihlamusela-marito xa Xitsonga.
+
+Ku ni gamboko yo tala eswiphen’wini swa le xikarhi swa tiko. Hi xikombiso, eJyväskylä, ku ni gamboko ku sukela tolo, kumbexana ku fika eka 30 wa tisentimitara.
+
+Hikwalaho ka gamboko, maxelo yo chayela ya bihile kumbe yo biha swinene. Eka timasipala to tala, swimilana swa gamboko swi ri karhi swi rima magondzo siku hinkwaro, naswona eka timasipala to tala na swona swi rima vusiku hinkwabyo.
+
+Ku ha ri na ku tshoveka ko tala na ku tlumbana ka mimovha. Hi xikombiso, ku ve ni mhangu ya timovha ta mune hi nketani eNelostie eJyväskylä nimadyambu. Le Vaasa, mabazi yo hlayanyana ya kwalaho ma humile egondzweni ma nghena emugodini.
+
+### Maxelo ya mundzuku
+
+![ Xifaniso: Yle](https://swifaniso.cdn.yle.fi/xifaniso/kulayicha/c_crop,h_1080,w_1919,x_0,y_0/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698848166/39-119453865425d62868a1)
+
+Mpfula yi ta na mundzuku. Xibakabaka xi ni mapapa, kambe dyambu ri nga voninga etindhawini tin’wana.
+
+Mahiselo ya kona yatala kuva exikarhi ka 0 na -10 degrees. Edzongeni swinene, hi le mahlweninyana.

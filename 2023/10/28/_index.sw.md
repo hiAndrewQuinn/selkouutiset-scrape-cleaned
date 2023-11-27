@@ -1,0 +1,63 @@
+## Redio \| Habari wazi \| Jumamosi tarehe 28 Oktoba 2023
+
+Gaza. Umoja wa Mataifa Alexander Stubb. Zawadi ya Sesame. Wakati wa baridi. Utabiri.
+
+### Vita katika Mashariki ya Kati
+
+![Israeli imeongeza mashambulizi dhidi ya Gaza. Picha: Aris Messinis / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_531/ar_1.7777777777777777,c_fill,g_faces,w_12_1.q_auto:eco/f_auto/fl_lossy/v1698410872/39-1192351653bb10bf0b47)
+
+Mapigano katika Mashariki ya Kati yanazidi. Israel imeongeza mashambulizi mengi Gaza. Israel imefikia malengo 150 ya shirika la itikadi kali la Hamas.
+
+Hakuna taarifa sahihi kuhusu uharibifu na majeruhi katika Gaza, kwa sababu uhusiano na Gaza ni kuvunjwa.
+
+Mashirika mengi ya misaada pia yamepoteza mawasiliano na wafanyakazi wa misaada huko Gaza.
+
+### Azimio la Baraza Kuu la Umoja wa Mataifa
+
+![Umoja wa Mataifa wataka kusitishwa kwa mapigano huko Gaza. Picha: EPA/HANNIBAL HANSCHKE](https://images.cdn.yle.fi/image/upload/c_crop,h_3150,w_5600,x_0,y_268/ar_1.7777777777777777,c_fill,g_faces/0_70,w_60,wp_1.q_auto:eco/f_auto/fl_lossy/v1698499380/39-1192714653d0ab7d4d4c)
+
+Baraza Kuu la Umoja wa Mataifa lataka kusitishwa kwa mapigano ya kibinadamu huko Gaza. Baraza Kuu la Umoja wa Mataifa limetoa azimio kuhusu suala hilo. Azimio hilo linalaani ghasia dhidi ya raia wa Palestina na Israel.
+
+Nchi 120 zilipiga kura kuunga mkono azimio hilo. Majimbo 14 yalipiga kura ya kupinga. Majimbo 45 yalijizuia, yaani hayakuchukua msimamo kuhusu suala hilo.
+
+Kwa mfano, Finland na nchi nyingine nyingi zilipiga kura ya hapana kwa sababu azimio la Umoja wa Mataifa halikulaani shambulio la Hamas dhidi ya Israel.
+
+### Mgombea urais wa muungano huo
+
+![Alexader Stubb sasa ndiye mgombea rasmi wa urais wa muungano huo. Picha: Antti Aimo-Koivisto / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_287/ar_1.7777777777777777,c_fill,g_6_01.0/q_auto:eco/f_auto/fl_lossy/v1698494219/39-1192698653cf6c267686)
+
+Muungano huo umemteua **Alexander Stubb** kuwa mgombea urais wa chama hicho.
+
+Muungano huo uliamua kuhusu suala hilo katika mkutano wa ajabu wa chama.
+
+Muungano huo ulikuwa umekubali hapo awali kuwa Stubbs ndiye atakuwa mgombea urais wa chama hicho. Ndio maana Stubb pia alianza kampeni za uchaguzi mapema. Ugombea wa Stubb uliamuliwa rasmi sasa.
+
+### Nonfiction Sesame
+
+![Mchoraji Pekka Rahkonen alitunukiwa tuzo ya Sesam. Picha: Pekka Rahkonen](https://images.cdn.yle.fi/image/upload/c_crop,h_861,w_1531,x_2,y_65/ar_1.7777777777777777,c_fill,g_faces,h_671_utoa/0.eco/f_auto/fl_lossy/v1698504762/39-1192741653d1f5e2611a)
+
+Mchoraji **Pekka Rahkonen** amejishindia zawadi ya Sesam kwa hadithi zisizo za kubuni. Rahkonen ameonyesha vitabu vya lugha rahisi, katuni, vitabu vya kiada na vitabu vya mtandaoni. Tuzo la Sesam hutolewa kwa kazi ambayo inakuza hadithi zisizo za uwongo.
+
+Zawadi ya Sesam inatolewa na kikundi cha kazi cha karatasi cha Selkokeskus. Kikundi cha kazi kinasema kwamba Pekka Rahkone ana mtindo mzuri mwenyewe na kielelezo cha ubora wa juu.
+
+Tuzo ya Sesam kwa wasio wa uwongo ilitolewa kwa Rahkonen kwenye maonyesho ya vitabu ya Helsinki. Zawadi ya Sesam ni euro 1,000.
+
+### Zamu ya saa
+
+![Muda utarudishwa nyuma saa moja saa 4 asubuhi Jumapili. Picha: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200_uutop/d0./f_auto/fl_lossy/v1603530654/14-svyle-6142553197327452bd)
+
+Muda wa kuokoa mchana utaisha kesho usiku. Muda utarejeshwa nyuma saa moja Jumapili asubuhi saa 4 kamili.
+
+Watu wengi wanapenda kulala saa moja zaidi kwa sababu muda unarudishwa nyuma saa moja.
+
+Mabadiliko ya wakati yalianzishwa katika EU mnamo 1981. Wakati wa kiangazi huanza mwishoni mwa Machi na kumalizika mwishoni mwa Oktoba.
+
+### Hali ya hewa
+
+![Hali ya hewa ni baridi sana.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_670/1_p_1.0/q_auto:eco/f_auto/fl_lossy/v1698504972/39-1192742653d20d3625ce)
+
+Siku ya Jumapili, hali ya hewa itakuwa ya mawingu zaidi. Kuna theluji nyingi kwenye ufuo wa Ostrobothnia na hali ya hewa ya kuendesha gari inaweza kuwa mbaya.
+
+Wakati mwingine jua huangaza katika sehemu za kati na magharibi mwa nchi.
+
+Usiku, nchi nzima ni baridi. Wakati wa mchana Jumapili, joto litakuwa kati ya digrii +1 na -5, itakuwa baridi zaidi katika maeneo ya Lapland.

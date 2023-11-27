@@ -1,0 +1,65 @@
+## Raadio \| Selged uudised \| Esmaspäeval, 6. novembril 2023
+
+Sisserändajate diskrimineerimise kogemused. Vene kaabli purunemine. Koerad haigestuvad. Laste sünd. rootsi päev. Ilm.
+
+### Immigrantide diskrimineerimine
+
+![Paljud immigrandid kogevad diskrimineerimist. Foto: Mikko Ahmajärvi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2485,w_4419,x_0,y_114/ar_1.7777777777777777,c_fill,g_faces/,h_1610,/wd_114.q_auto:eco/f_auto/fl_lossy/v1698074800/39-115894164df61298ec3e)
+
+Sisserändajad kogevad Soomes diskrimineerimist. Nii väidab Tervise ja Heaolu Instituudi uuring.
+
+Üle 40 protsendi immigrantidest on kogenud diskrimineerimist eelneva aasta jooksul. Eriti kogevad diskrimineerimist immigrantidest mehed, kes on Soome tulnud Aafrikast või Lähis-Idast.
+
+Tervise ja heaolu instituudi uuringus osales ligi 8000 immigranti.
+
+### Vene sidekaabel
+
+![Vene laev kaabliparandustöödel. Pilt: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3283,w_5838,x_0,y_380/ar_1.7777777777777777,c_fill,g_faces,h_675,w_pr_120:e0/d_pr_120.co./f_auto/fl_lossy/v1699268142/39-11962776548c5acae94c)
+
+Vene sidekaabel on Soome lahe merealal katki läinud. Vene laev on tulnud viga parandama.
+
+Kaabel jookseb ka Soome majandusvööndis. Venemaa teavitas Soomet kaabli purunemisest oktoobri keskel.
+
+### Koerte haigusjuhud
+
+![Mustil ja Mirril on kauplused Soome eri paigus. Foto: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2746,w_4883,x_0,y_452/ar_1.7777777777777777,c_fill,g_faces/,h_1670/wd_170.q_auto:eco/f_auto/fl_lossy/v1699194714/39-11960056547a6fe024cd)
+
+Paljud koerad on koeratoidust haigeks jäänud. Koerad jäid haigeks võib-olla sellepärast, et sõid Musti ja Mirri koeratoitu.
+
+Musti ja Mirri ütleb, et ettevõttega on ühendust võtnud mitusada koeratoidu ostjat. Ettevõte on lõpetanud enam kui 30 000 kilo koeratoidu müügi.
+
+Ametivõimud uurivad asja.
+
+### Imikute arv
+
+![Imikuid sünnib rekordiliselt vähe. Foto: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_233/ar_1.7777777777777777,c_fill,g_faces,h_1210,/wdq_auto:eco/f_auto/fl_lossy/v1697805617/39-1189261653274b0907f5)
+
+Soomes sünnib vähem lapsi kui varem. Nii ütleb Tervise ja Heaolu Instituut.
+
+2022. aastal sünnib Soomes ligikaudu 45 000 last. Seda on 9 protsenti vähem kui 2021. aastal.
+
+Ka tänavu sündis sügiseks lapsi vähem kui aasta varem.
+
+### Rootsi päev
+
+![Kakskeelsust võib näha näiteks Helsingi tänavasiltidelt. Foto: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,0/dpr1_200,/.q_auto:eco/f_auto/fl_lossy/v1615970514/39-7850546051bda715b05)
+
+Esmaspäeval tähistati rootsipäeva. Rootsi päeva puhul tähistatakse Soomes rootsi keelt.
+
+Ligi 300 000 soomlast räägib emakeelena rootsi keelt. Paljud kuulsad soomlased on olnud rootsikeelsed, näiteks marssal Mannerheim ja kirjanik Tove Jansson.
+
+Rootsi päeva on Soomes tähistatud juba üle 100 aasta, alates 1908. aastast. Rootsluse päev ehk Svenska dagen on alati 6. november.
+
+Igaüks saab rootsi keelt harjutada näiteks Yle selgete rootsikeelsete uudistega. Areenast leiab neid Yle Nyheter på lätt svenska nime all.
+
+### Ilm
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/0/q_1e.f_auto/fl_lossy/v1699290254/39-119671665491c7602c1a)
+
+Teisipäeval on pilves ilm. Mõnel pool riigis on udu.
+
+Riigi keskosas sajab lund, lörtsi ja vett. Põhja pool sajab lund.
+
+Sooja on teisipäeval -2 kuni +7 kraadi.
+
+Sel nädalal läheb ilm külmemaks. Lapimaal läheb pakane karmimaks, lõuna pool langeb temperatuur alla 5 kraadi.

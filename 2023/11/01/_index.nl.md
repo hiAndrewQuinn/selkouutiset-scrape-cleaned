@@ -1,0 +1,53 @@
+## Radio Selkouutiset woensdag 1 november 2023
+
+Gaza. Vloeistof. Telewerken. Sneeuwstorm. Het weer van morgen.
+
+### Gaza
+
+![Ambulance brengt de gewonden voor behandeling vanuit Gaza naar Egyptische zijde. Foto: Haitham Imad / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2821,w_5016,x_0,y_744/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698852282/39-1194530654258b7aaf7a)
+
+De grensovergang bij Rafah van Gaza naar Egypte is geopend. De grensovergang werd nu voor het eerst geopend sinds de terroristische organisatie Hamas begin oktober Israël aanviel.
+
+Ambulances brachten gewonde Palestijnen voor behandeling naar Egypte. Ook de eerste buitenlanders hebben Gaza verlaten. Egyptische functionarissen zeggen dat vandaag misschien ongeveer vijfhonderd buitenlanders de grens met Egypte zullen oversteken.
+
+Er zijn ook twaalf Finnen in Gaza. Het is nog niet bekend wanneer ze zullen wegkomen.
+
+### Vloeistof
+
+![Neste schrapt banen omdat het geld wil besparen. Foto: Jaakko Stenroos / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2611,w_4643,x_0,y_483/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698838481/39-1191437653a0928a0b5b)
+
+Brandstoffabrikant Neste schrapt honderden banen. Neste is van plan ongeveer 400 banen te schrappen, waarvan de meeste uit Finland komen.
+
+Met de bezuinigingen mikt Neste op een jaarlijkse besparing van zo'n 50 miljoen euro.
+
+Neste heeft ruim 6.000 medewerkers, waarvan bijna 4.000 in Finland werken.
+
+### Afstandswerk
+
+![Service-expert Saara Peiponen zegt dat werken op afstand het dagelijks leven gemakkelijker maakt en de verwerking ervan verbetert. Foto: Heikki Haapalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2988,w_5312,x_16,y_569/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698754242/39-11936826540ed9ea44a0)
+
+De Finnen willen het recht behouden om op afstand te werken.
+
+Uit enquêtes op de werkplek blijkt dat velen zelfs bereid zijn van baan te veranderen als werken op afstand niet mogelijk is.
+
+Yle vroeg mensen waarom de mogelijkheid om op afstand te werken belangrijk voor hen is. Er kwamen ruim duizend reacties.
+
+Velen zeiden dat werkvrede thuis beter is dan op het werk. Velen zeiden ook dat werken op afstand de werkdag flexibeler maakt en de coping-omstandigheden verbetert.
+
+### Sneeuwstorm
+
+![ Foto: Merja Siirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_0,y_378/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698853993/39-119441665423d86dff6c)
+
+In de centrale delen van het land is veel sneeuw gevallen. In Jyväskylä heeft het bijvoorbeeld sinds gisteren gesneeuwd, misschien wel tot 30 centimeter.
+
+Door de sneeuwval is het rijweer slecht tot zeer slecht. In veel gemeenten zijn sneeuwploegen de hele dag bezig met het ploegen van de wegen, en in veel gemeenten zijn ze ook de hele nacht aan het ploegen.
+
+Er zijn nog steeds veel crashes en crashes geweest. Zo vond er in de middag een kettingbotsing plaats van vier auto's op Nelostie in Jyväskylä. In Vaasa ontspoorden meerdere lokale bussen van de weg in een sloot.
+
+### Het weer van morgen
+
+![ Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698848166/39-119453865425d62868a1)
+
+Morgen gaat het regenen. De lucht is bewolkt, maar op sommige plekken kan de zon schijnen.
+
+De temperatuur ligt meestal tussen de 0 en -10 graden. In het uiterste zuiden lopen we iets verder.

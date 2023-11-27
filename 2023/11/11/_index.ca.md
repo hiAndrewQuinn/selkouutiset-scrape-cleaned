@@ -1,0 +1,59 @@
+## Notícies clares de ràdio dissabte 11.11.2023
+
+Corona. Tik Tok. Amics homes. Dia del nas. El temps.
+
+### Corona
+
+![HUS cap de malalties infeccioses metge Asko Järvinen. Foto: Paavo Jantunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3027,w_5382,x_0,y_311/ar_1.7777777777777777,c_fill,g_faces,h_6705,w_1205.q_auto:eco/f_auto/fl_lossy/v1699692578/39-1199235654f3bb0eba14)
+
+Un expert en corona diu que els ciutadans no s'han de preocupar, tot i que ara el risc d'infecció és alt a Finlàndia. Asko Järvinen, metge en cap de malalties infeccioses, diu que la protecció de les vacunacions i la corona infectada és bona.
+
+El nou virus de la corona tipus EG5, o Eris, causa una malaltia que s'assembla més a la grip que abans. La febre encara pot ser severa.
+
+El professor de cures intensives Matti Reinikainen diu que la tendència és, però, preocupant. Actualment, hi ha un total de gairebé 30 pacients en cures intensives a causa del virus corona. És tant com a la primavera i l'hivern del 2022 durant la pandèmia. En una pandèmia, la malaltia es va estendre per tot el món.
+
+### Tik Tok
+
+![Yle va utilitzar la intel·ligència artificial per crear un perfil d'una noia deprimida de 13 anys a Tiktok. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2955,w_5255,x_371,y_789/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/autofq_auto_1/0fq_autofl_lossy/v1697625813/39-1187987652fb3e8a7ce7)
+
+El contingut de l'aplicació de vídeo Tiktok pot començar a empitjorar la depressió amb una rapidesa sorprenent, segons la prova d'Yle.
+
+Yle va crear el perfil i la imatge d'una noia deprimida de 13 anys a Tiktok amb l'ajuda de la intel·ligència artificial. Tiktok va començar ràpidament a mostrar vídeos amb contingut relacionat amb la depressió, la idealització de la primesa i fins i tot el suïcidi.
+
+El psicòleg líder de l'organització no governamental Mieli ry, Frans Horneman, diu que els vídeos són perjudicials per a la salut mental dels grups vulnerables.
+
+Tiktok té 1,5 milions d'usuaris a Finlàndia. La majoria són joves.
+
+Hi ha un article extens sobre la prova a yle.fi.
+
+### Amics masculins
+
+![Nikodemus Nousiainen d'Hèlsinki treballa com a xicot per a un nen de 7 anys. Foto: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_150/ar_1.7777777777777777,c_fill,g_faces,h_671.0,w_1201q_auto:eco/f_auto/fl_lossy/v1699361417/39-1197061654a30293868a)
+
+L'amistat dels homes necessita més homes. Els amics masculins són amics dels nens que no tenen una relació amb el seu pare o que tenen una relació feble.
+
+Pienperheyhdistys organitza activitats d'amics masculins a 6 localitats. Hi participen uns 250 voluntaris.
+
+Uns 110.000 nens viuen amb la seva mare, diu Statistics Finland.
+
+Molt sovint, el nen i l'amic masculí es reuneixen de 2 a 4 vegades al mes. Els amics decideixen per ells mateixos què faran a les reunions.
+
+Els voluntaris reben 15 hores de formació.
+
+### Dia del nas
+
+![Els editors del programa de dos quarts de set, Ella Kanninen i Mikko Kekäläinen, estaven implicats a Nenäpäivä. Foto: Jari Pussinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.7777777777777777,c_fill,g_faces,h_671/0_1201,w_1205/w_1201q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6)
+
+El Nenäpäivä de divendres a Yle TV1 va recaptar aquest any més d'1,6 milions d'euros en donacions. Nenäpäivä és una campanya benèfica de la fundació Nenäpäivä.
+
+Nose Day convida els finlandesos a ajudar els nens del món, que es troben en la posició més vulnerable.
+
+Encara podeu participar a la recollida del Dia del Nas fins a finals d'any.
+
+### El temps
+
+![ Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1201/0dp_r_auto.:eco/f_auto/fl_lossy/v1699717391/39-1199335654fa0f0a84d5)
+
+Diumenge, les pluges d'aigua seran més freqüents al sud. Les nevades es mouen al centre del país. La temperatura a les parts del sud és de 0 a -4 graus. Al nord fa -9 a -14 graus.
+
+El dia fa força vent.

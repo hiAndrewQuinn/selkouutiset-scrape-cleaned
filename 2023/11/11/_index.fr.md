@@ -1,0 +1,59 @@
+## Radio info claire samedi 11.11.2023
+
+Couronne. TIC Tac. Amis masculins. Jour du nez. Météo.
+
+### Couronne
+
+![Asko Järvinen, médecin en chef des maladies infectieuses du HUS. Photo : Paavo Jantunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3027,w_5382,x_0,y_311/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699692578/39-1199235654f3bb0eba14)
+
+Un expert du coronavirus affirme que les citoyens n’ont pas à s’inquiéter, même si le risque d’infection est désormais élevé en Finlande. Asko Järvinen, médecin-chef du département des maladies infectieuses, affirme que la protection des vaccins et du corona infecté est bonne.
+
+Le nouveau virus corona de type EG5, ou Eris, provoque une maladie qui ressemble plus qu’auparavant à la grippe. La fièvre peut encore être sévère.
+
+Le professeur de soins intensifs Matti Reinikainen estime que la tendance est néanmoins inquiétante. Actuellement, près de 30 patients au total sont en soins intensifs à cause du virus corona. C’est autant qu’au printemps et à l’hiver 2022 pendant la pandémie. Lors d’une pandémie, la maladie s’est propagée dans le monde entier.
+
+### TIC Tac
+
+![Yle a utilisé l'intelligence artificielle pour créer le profil d'une jeune fille déprimée de 13 ans sur Tiktok. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2955,w_5255,x_371,y_789/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697625813/39-1187987652fb3e8a7ce7)
+
+Le contenu de l'application vidéo Tiktok peut commencer à aggraver la dépression étonnamment rapidement, selon le test d'Yle.
+
+Yle a créé le profil et la photo d'une jeune fille déprimée de 13 ans sur Tiktok avec l'aide de l'intelligence artificielle. Tiktok a rapidement commencé à diffuser des vidéos dont le contenu était lié à la dépression, à l'idéalisation de la minceur et même au suicide.
+
+Le psychologue principal de l'organisation non gouvernementale Mieli ry, Frans Horneman, affirme que les vidéos nuisent à la santé mentale des groupes vulnérables.
+
+Tiktok compte 1,5 million d'utilisateurs en Finlande. La plupart sont des jeunes.
+
+Il existe un article détaillé sur le test sur yle.fi.
+
+### Amis masculins
+
+![Nikodemus Nousiainen d'Helsinki travaille comme petit ami pour un garçon de 7 ans. Photo : Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_150/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699361417/39-1197061654a30293868a)
+
+L'amitié des hommes a besoin de plus d'hommes. Les amis masculins sont les amis des enfants qui n’ont pas de relation avec leur père ou qui ont une relation faible.
+
+Des activités entre amis des hommes sont organisées par Pienperheyhdistys dans 6 localités. Environ 250 bénévoles sont impliqués.
+
+Environ 110 000 enfants vivent avec leur mère, selon les statistiques finlandaises.
+
+Le plus souvent, l'enfant et l'ami se rencontrent 2 à 4 fois par mois. Les amis décident eux-mêmes de ce qu'ils feront lors des réunions.
+
+Les bénévoles bénéficient de 15 heures de formation.
+
+### Jour du nez
+
+![Les rédacteurs du programme de sept heures et demie, Ella Kanninen et Mikko Kekäläinen, ont participé à Nenäpäivä. Photo : Jari Pussinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6)
+
+L'émission Nenäpäivä de vendredi sur Yle TV1 a collecté plus de 1,6 million d'euros de dons cette année. Nenäpäivä est une campagne caritative de la Fondation Nenäpäivä.
+
+Nose Day invite les Finlandais à aider les enfants du monde, qui se trouvent dans la position la plus vulnérable.
+
+Vous pouvez encore participer à la collecte Nose Day jusqu'à la fin de l'année.
+
+### Météo
+
+![ Photo : Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699717391/39-1199335654fa0f0a84d5)
+
+Dimanche, les pluies d'eau deviendront plus fréquentes dans le sud. Les chutes de neige se déplacent dans le centre du pays. La température dans les parties sud est de 0 à -4 degrés. Au nord, il fait -9 à -14 degrés.
+
+La journée est assez venteuse.

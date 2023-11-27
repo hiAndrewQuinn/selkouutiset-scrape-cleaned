@@ -54,7 +54,7 @@ Satu Lahtonen currently teaches Finnish language, reading and writing at Konepaj
 
 ![Happy starts with the letter i. Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
 
-You can get to know Lahtonen's group on the TV broadcast of Selkouutisten, which can be found at [yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link}. There are also photos of Lahtonen's group at the same address.
+You can get to know Lahtonen's group on the TV broadcast of Selkouutisten, which can be found at![yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link}. There are also photos of Lahtonen's group at the same address.
 
 ### Weather
 

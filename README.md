@@ -121,7 +121,9 @@ Alright, *here's* where things get a bit tricky. We have a bunch of Finnish-lang
 There are two Python files in `translation-code/`: `markdown2json.py`, and `json2markdown.py`. The easiest way to use them is by piping in the names of the files you wish to transform with the `fd` command:
 
 ```fish
-fd '.*.fi.md$' | python translation-code/markdown2json.py
+cat languages.txt | while read -l lang
+    fd '.*.fi.md$' | python translation-code/markdown2json.py --target-lang=$lang
+end
 ```
 
 #### Send JSON requests to the cloud

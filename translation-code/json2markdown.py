@@ -39,7 +39,7 @@ def fix_image_links(content: str, indent=0):
 
 
 def fix_markdown_headings(content: str, indent=0):
-    md_heading_pattern = re.compile(r"^(#+)\s+(.*?)\s*$")
+    md_heading_pattern = re.compile(r"^(#+)\s*(.*?)\s*$")
 
     def fix_heading(match):
         return f"{match.group(1)} {match.group(2)}"

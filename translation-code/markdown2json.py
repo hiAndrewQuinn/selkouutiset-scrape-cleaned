@@ -21,11 +21,16 @@ def process_markdown_file(md_file_path: str, target_lang: str = "en"):
     """
     # Derive the JSON file path from the markdown file path
     source_lang = os.path.split(md_file_path)[1].split(".")[1]
-    typer.echo(f"Source language detected from filename: {source_lang}")
     json_file_path = (
         f"{os.path.split(md_file_path)[0]}/_request.{source_lang}.{target_lang}.json"
     )
-    typer.echo("Creating: " + json_file_path)
+
+    typer.echo(md_file_path + " => " + json_file_path)
+
+    if os.path.exists(json_file_path):
+        return
+
+    typer.echo(md_file_path + " => " + json_file_path)
 
     # Read the markdown file
     with open(md_file_path, "r", encoding="utf-8") as file:
@@ -35,7 +40,8 @@ def process_markdown_file(md_file_path: str, target_lang: str = "en"):
     lines = [line.strip() for line in lines]
 
     # Create the JSON data for translation
-    json_data = {"q": lines, "source": "fi", "target": target_lang, "format": "text"}
+    json_data = {"q": lines, "source": "fi",
+                 "target": target_lang, "format": "text"}
 
     # Write the JSON data to a file
     with open(json_file_path, "w", encoding="utf-8") as json_file:
@@ -48,16 +54,14 @@ def process_markdown_file(md_file_path: str, target_lang: str = "en"):
 @app.command()
 def process_files(
     files: list[str] = typer.Argument(None),
-    target_lang: str = typer.Option("en", help="Target language ISO 639-1 code"),
+    target_lang: str = typer.Option(
+        "en", help="Target language ISO 639-1 code"),
 ):
-    typer.echo(files)
     if not files:
-        typer.echo("No files provided. Reading from stdin.")
         # Read from stdin if no arguments are provided
         files = [line.strip() for line in sys.stdin]
 
     for md_file_path in files:
-        typer.echo("Processing: " + md_file_path)
         if os.path.isfile(md_file_path):
             process_markdown_file(md_file_path, target_lang)
         else:

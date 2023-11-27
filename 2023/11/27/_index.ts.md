@@ -1,0 +1,52 @@
+Radio Selkouutiset Musumbhunuku 27 Nyenyankulu 2023
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Miako ya tihofisi. Ndzavisiso wa moya eka swikolo swa vana va kondlo-a-ndzi-dyi. Sagwadi ra Tifilimi. Maxelo.
+
+### Miako ya tihofisi
+
+![Yindlu ya Sponda eMannerheimintie ya Helsinki yi ta hirimuxiwa naswona muako lowuntshwa wa tihofisi wu ta yi siva. Xifaniso: Esa Syväkuru / Yle](https://ku.q_auto:eco/f_auto/fl_lossy/v1700118894/39-12013716555c1029fb19)
+
+Tikhampani ti koka vatirhi lava humaka entirhweni wa le kule va tlhelela etihofisini. Tikhampani ti tshemba leswaku tindhawu letintshwa kumbe leti lunghisiweke ti ta koka vatirhi va tlhelela endzhaku.
+
+Eka tindhawu to tala ta ntirho, ku na makungu yo tiyisisa ndhavuko wa khamphani, ku engetela ku dyondza na ku tlakusa vuhlayiseki. Hinkwaswo leswi swa tika ku swi endla ekule kumbe eka miako leyi nga riki kahle.
+
+Ndhawu leyinene ya ndhawu ya ntirho na yona i ya nkoka ku tlula rini na rini. Hi xikombiso, le Helsinki, tikhampani ti tsakela ku tiva exikarhi ka doroba.
+
+Exikarhi ka Helsinki, muako wa khale wa tihofisi wa tlhela wu mbundzumuxiwa naswona ku akiwa wuntshwa ematshan’weni ya wona. Tikhampani to tala ti lunghekele ku hakela ndhawu leyinene.
+
+### Khwalithi ya moya eka ti kindergarten
+
+![Vana va khavisile ndhawu yo hlayisa moya ya daycare eKamomilla eViikki, Helsinki. Xifaniso: Mårten Lampén / Yle](https://ku.q_auto:eco/f_auto/fl_lossy/v1695638511/39-117653165115d5600150)
+
+Swibasisi swa moya eti kindergarten swi nga hunguta swinene mavabyi ya vana.
+
+Nkambisiso wa malembe ya 2 wu kuma ndlela leyi ku basisa moya loku humelelaka exikolweni xa vana swi khumbaka mavabyi ha yona. Dyondzo leyi yi tlhela yi lavisisa mavabyi ya vatirhi. Hi nkarhi lowu fanaka, vuyelo lebyi nga erivaleni eka ku pfumaleka ka vatswari va vana entirhweni.
+
+Endzhaku ka lembe ro sungula ra ndzavisiso, vuyelo bya kona i byinene. Dokodela wa ndzavisiso Enni Sanmark u vula leswaku mavabyi ma hunguteke hi kwalomu ka 30 wa tiphesente.
+
+Siku ra mutirhi un’we ro pfumala ntirho ri durhela muthori kwalomu ka 370 wa ti-euro. Leswi a swi katsi mali ya nhlayiso wa rihanyo kumbe nxavo wa mirhi.
+
+Swibasisi swa moya swi tsakeriwa ngopfu eka ti kindergarten ta ndzavisiso. Mpfumawulo wa tona wa twala. Ku engetela kwalaho, ku xiyiwile leswaku mpfumawulo lowu faneleke wu rhulise vana leswaku va wisa ni ku etlela hi nkarhi wa ku etlela.
+
+### Mufambisi wa tifilimi Suvi West
+
+![Mufambisi wa tifilimi wa Xisami Suvi West. Xifaniso: Linda Tammela / Yle](Swifanisoswalehenhlaswahttp://swifaniso.cdn.yle.fi/xifaniso/kulayicha/c_crop,h_2268,w_4032,x_0,y_120/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1613476645/39-774637602bb23ea1c4a)
+
+Mufambisi Suvi West u amukerile sagwadi ra Mufambisi wa Tifilimi wa Lembe. Yi nyikiwile hi Nhlangano wa Vafambisi va Tifilimi va le Finland SELO. West u nyikiwile sagwadi eka filimi leyi nge Máhccan -- Homecoming. Filimi leyi yi vulavula hi ku tlherisela swilo swa khale swa Vasámi.
+
+Filimi leyi yi kombisiwe ro sungula emisaveni hinkwayo eka Nkhuvo wa Tifilimi wa Matiko Hinkwawo wa le Toronto.
+
+Eka swivangelo swa sagwadi leri, ku vuriwa leswaku West u endla tifilimi to saseka ni leti khumbaka mbilu malunghana ni tinhloko-mhaka leti nga ta nkoka eka vanhu va Xisami. Hi nkarhi lowu fanaka, ti pfuna vaaki vo tala va le Finland leswaku va twisisa ku antswa ndhavuko ni vumunhu bya vanhu va ndhawu yoleyo.
+
+Mufambisi wa tifilimi wa lembe u hlawuriwile ku sukela hi 2004.
+
+### Maxelo
+
+![ Xifaniso: Yle](https://swifaniso.cdn.yle.fi/xifaniso/kulayicha/c_crop,h_1080,w_1919,x_0,y_0/ar_1.77777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701100995/39-12073206564bd79da68c)
+
+Hi Ravumbirhi, ku ta na gamboko ya tisentimitara ta 3 ku ya eka 13 kwalomu ka tiko hinkwaro. Le Lapland, i poutaa, leswi vulaka leswaku mpfula a yi na.
+
+Mahiselo yata tlakuka kuya kwalomu ka 5 degrees ehansi ka zero etikweni hinkwaro, kambe hi nkarhi lowu fanaka mimoya yita tiya. Moya wu luma ngopfu en’walungwini. Swidzedze swa moya kwalaho swi nga hunga 18 wa timitara hi sekoni.
+
+Hi Ravunharhu, ku na ka gamboko ku ta rhurhela eDzongeni ni le Xikarhi ka Lapland.

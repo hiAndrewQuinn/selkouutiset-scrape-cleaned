@@ -1,0 +1,52 @@
+Radio Selkouutiset 2023. november 27., hétfő
+---------------------------------------
+
+Irodaépületek. Óvodai levegő felmérése. Filmdíj. Időjárás.
+
+### Irodaépületek
+
+![Lebontják a Sponda házát a helsinki Mannerheimintie-n, és új irodaház kerül a helyére. Fotó: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3270,w_5814,x_0,y_404/ar_1.7777777777777777,c_fill,g_faces/,h_pr_670/w_pr_670.q_auto:eco/f_auto/fl_lossy/v1700118894/39-12013716555c1029fb19)
+
+A vállalatok a távoli munkából visszacsábítják az alkalmazottakat az irodákba. A cégek abban reménykednek, hogy az új vagy javított létesítmények visszacsábítják az alkalmazottakat.
+
+Sok munkahelyen tervezik a vállalati kultúra erősítését, a tanulás fokozását és a jólét elősegítését. Mindezt nehéz távolról vagy rossz körülmények között megtenni.
+
+A munkahely jó elhelyezkedése is fontosabb, mint valaha. Például Helsinkiben a városközpont iránt érdeklődnek a cégek.
+
+Helsinki központjában még egy régi irodaházat is lebontanak, és újat építenek a helyére. Sok cég kész fizetni egy jó helyért.
+
+### Levegőminőség az óvodákban
+
+![A gyerekek feldíszítették a helsinki Viikkiben található Kamomilla légtisztító napközijét. Fotó: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_334/ar_1.777777777777777,c_fill,g_faces/,h_pr610/q_auto:eco/f_auto/fl_lossy/v1695638511/39-117653165115d5600150)
+
+Az óvodai légtisztítók jelentősen csökkenthetik a gyermekek megbetegedését.
+
+Egy 2 éves tanulmány azt deríti ki, hogy az óvodai levegőtisztítás hogyan hat a betegségekre. A tanulmány a személyzet betegségeit is vizsgálja. Ugyanakkor egyértelmű hatással van a gyerekek szüleinek munkából való hiányzása.
+
+A kutatás első éve után az eredmények jók. Enni Sanmark kutatóorvos azt mondja, hogy a betegségek körülbelül 30 százalékkal csökkentek.
+
+1 munkavállaló távolléte körülbelül 370 euróba kerül a munkáltatónak. Ez nem tartalmazza az egészségügyi költségeket és a gyógyszerek árát.
+
+A légtisztítókat kedvelték a kutatóóvodákban. A hangjuk ésszerű. Ezen kívül észrevették, hogy a megfelelő zaj nyugtatta a gyerekeket, hogy pihenjenek és aludjanak szunyókálás közben.
+
+### Suvi West filmrendező
+
+![Számi filmrendező, Suvi West. Fotó: Linda Tammela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_120/ar_1.7777777777777777,c_fill,g_faces,h_pr_6201,0/d_pr_6275,0q_auto:eco/f_auto/fl_lossy/v1613476645/39-774637602bb23ea1c4a)
+
+Suvi West rendező megkapta az év filmrendezője díjat. A finn filmrendezők szövetsége, a SELO adományozta. Westet a Máhccan -- Hazatérés című filmért díjazták. A film a számi tárgyak visszaadásáról szól.
+
+A film világpremierje a Torontói Nemzetközi Filmfesztiválon volt.
+
+A díj indoklásában elhangzik, hogy West gyönyörű és megható filmeket készít a számik számára fontos témákról. Ugyanakkor segítik Finnország többségi lakosságát abban, hogy jobban megértsék az őslakosok kultúráját és identitását.
+
+Az év filmrendezőjét 2004 óta választják.
+
+### Időjárás
+
+![ Fotó: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675/d_prq_1200/d_prq_120.:eco/f_auto/fl_lossy/v1701100995/39-12073206564bd79da68c)
+
+Kedden szinte az egész országban 3-13 centiméter hó hullik. Lappföldön poutaa, vagyis nem esik.
+
+Országszerte 5 fok alá emelkedik a hőmérséklet, ugyanakkor megélénkül a szél. Főleg északon fúj a szél. A széllökések ott másodpercenként 18 métert is megfújhatnak.
+
+Szerdára a havazás átvonul Dél- és Közép-Lapföldre.

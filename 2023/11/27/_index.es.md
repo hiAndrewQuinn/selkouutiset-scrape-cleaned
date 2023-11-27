@@ -1,0 +1,52 @@
+Radio Selkouutiset lunes 27 de noviembre de 2023
+---------------------------------------
+
+Edificios de oficinas. Estudio del aire en las guarderías. Premio de Cine. Clima.
+
+### Edificios de oficinas
+
+![La casa de Sponda en Mannerheimintie de Helsinki será demolida y en su lugar se construirá un nuevo edificio de oficinas. Foto: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3270,w_5814,x_0,y_404/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700118894/39-12013716555c1029fb19)
+
+Las empresas están atrayendo a empleados del trabajo remoto a las oficinas. Las empresas esperan que las instalaciones nuevas o reparadas atraigan a los empleados.
+
+En muchos lugares de trabajo existen planes para fortalecer la cultura empresarial, aumentar el aprendizaje y promover el bienestar. Todo esto es difícil de hacer de forma remota o en malas instalaciones.
+
+La buena ubicación del lugar de trabajo también es más importante que nunca. Por ejemplo, en Helsinki las empresas están interesadas en el centro de la ciudad.
+
+En el centro de Helsinki incluso se está derribando un antiguo edificio de oficinas y en su lugar se está construyendo uno nuevo. Muchas empresas están dispuestas a pagar por una buena ubicación.
+
+### Calidad del aire en las guarderías
+
+![Los niños han decorado la guardería con purificador de aire en Kamomilla en Viikki, Helsinki. Foto: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_334/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695638511/39-117653165115d5600150)
+
+Los purificadores de aire en las guarderías pueden reducir significativamente las enfermedades infantiles.
+
+Un estudio de dos años descubre cómo la limpieza eficaz del aire en una guardería influye en las enfermedades. El estudio también investiga las enfermedades del personal. Al mismo tiempo, un efecto claro en las ausencias laborales de los padres de los niños.
+
+Después del primer año de investigación, los resultados son buenos. La doctora investigadora Enni Sanmark afirma que las enfermedades han disminuido aproximadamente un 30 por ciento.
+
+Un día de ausencia de un empleado le cuesta al empresario aproximadamente 370 euros. Esto no incluye los costes sanitarios ni el precio de los medicamentos.
+
+Los purificadores de aire han gustado mucho en los jardines de infancia de investigación. Su sonido es razonable. Además, se ha observado que el ruido adecuado ha calmado a los niños para que descansen y duerman durante las siestas.
+
+### Director de cine Suvi West
+
+![El director de cine sami Suvi West. Foto: Linda Tammela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_120/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1613476645/39-774637602bb23ea1c4a)
+
+El director Suvi West recibió el premio al director de cine del año. Fue otorgado por la Asociación de Directores de Cine de Finlandia SELO. West fue premiado por la película Máhccan – Homecoming. La película trata sobre la devolución de artefactos sami.
+
+La película tuvo su estreno mundial en el Festival Internacional de Cine de Toronto.
+
+En las justificaciones del premio se dice que West hace películas hermosas y conmovedoras sobre temas que son importantes para el pueblo sámi. Al mismo tiempo, ayudan a la población mayoritaria de Finlandia a comprender mejor la cultura y la identidad de los pueblos indígenas.
+
+El director de cine del año es elegido desde 2004.
+
+### Clima
+
+![ Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701100995/39-12073206564bd79da68c)
+
+El martes caerán entre 3 y 13 centímetros de nieve en casi todo el país. En Laponia es poutaa, lo que significa que no llueve.
+
+Las temperaturas subirán hasta los 5 grados bajo cero en todo el país, pero al mismo tiempo los vientos se intensificarán. El viento sopla especialmente fuerte en el norte. Allí las ráfagas de viento pueden alcanzar 18 metros por segundo.
+
+A partir del miércoles las nevadas se trasladarán al sur y al centro de Laponia.

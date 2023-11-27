@@ -1,0 +1,52 @@
+Radio Selkouutiset poniedziałek, 27 listopada 2023 r
+----------------------------------------
+
+Budynki biurowe. Badanie powietrza w przedszkolach. Nagroda Filmowa. Pogoda.
+
+### Budynki biurowe
+
+![Dom Spondy przy Mannerheimintie w Helsinkach zostanie zburzony, a na jego miejscu stanie nowy biurowiec. Zdjęcie: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3270,w_5814,x_0,y_404/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700118894/39-12013716555c1029fb19)
+
+Firmy przyciągają pracowników z pracy zdalnej z powrotem do biur. Firmy mają nadzieję, że nowe lub wyremontowane obiekty przyciągną ponownie pracowników.
+
+W wielu miejscach pracy planuje się wzmocnienie kultury firmy, zwiększenie poziomu uczenia się i promowanie dobrego samopoczucia. Trudno to wszystko zrobić zdalnie lub w kiepskich obiektach.
+
+Dobra lokalizacja miejsca pracy jest również ważniejsza niż kiedykolwiek. Na przykład w Helsinkach firmy interesują się centrum miasta.
+
+W centrum Helsinek trwa nawet rozbiórka starego biurowca i na jego miejscu powstaje nowy. Wiele firm jest gotowych zapłacić za dobrą lokalizację.
+
+### Jakość powietrza w przedszkolach
+
+![Dzieci ozdobiły przedszkole oczyszczacza powietrza w Kamomilla w Viikki w Helsinkach. Zdjęcie: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_334/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695638511/39-117653165115d5600150)
+
+Oczyszczacze powietrza w przedszkolach mogą znacząco zmniejszyć zachorowalność dzieci.
+
+Dwuletnie badanie sprawdza, jak skuteczne oczyszczanie powietrza w przedszkolu wpływa na choroby. W badaniu uwzględniono także choroby personelu. Jednocześnie wyraźny wpływ na absencję rodziców dzieci w pracy.
+
+Po pierwszym roku badań wyniki są dobre. Doktor Enni Sanmark twierdzi, że liczba zachorowań spadła o około 30 procent.
+
+1 dzień nieobecności pracownika kosztuje pracodawcę około 370 euro. Nie obejmuje to kosztów opieki zdrowotnej ani cen leków.
+
+Oczyszczacze powietrza cieszą się popularnością w przedszkolach badawczych. Ich brzmienie jest rozsądne. Dodatkowo zauważono, że odpowiedni hałas uspokajał dzieci do odpoczynku i snu podczas drzemek.
+
+### Reżyserka filmowa Suvi West
+
+![Lapońska reżyserka Suvi West. Zdjęcie: Linda Tammela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_120/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1613476645/39-774637602bb23ea1c4a)
+
+Reżyserka Suvi West otrzymała nagrodę Reżysera Filmowego Roku. Zostało przyznane przez Fińskie Stowarzyszenie Reżyserów Filmowych SELO. West został nagrodzony za film Máhccan – Homecoming. Film opowiada o zwróceniu artefaktów Lapończyków.
+
+Film miał swoją światową premierę na Międzynarodowym Festiwalu Filmowym w Toronto.
+
+W uzasadnieniu nagrody napisano, że West kręci piękne i wzruszające filmy poruszające tematy ważne dla Samów. Jednocześnie pomagają większości populacji Finlandii lepiej zrozumieć kulturę i tożsamość rdzennej ludności.
+
+Reżyser Roku wybierany jest od 2004 roku.
+
+### Pogoda
+
+![Zdjęcie: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701100995/39-12073206564bd79da68c)
+
+We wtorek w niemal całym kraju spadnie od 3 do 13 centymetrów śniegu. W Laponii jest to poutaa, co oznacza, że nie pada deszcz.
+
+W całym kraju temperatura wzrośnie do około 5 stopni poniżej zera, ale jednocześnie nasili się wiatr. Wiatr jest szczególnie dokuczliwy na północy. W porywach wiatru może wiać z prędkością 18 metrów na sekundę.
+
+Do środy opady śniegu przeniosą się do południowej i środkowej Laponii.

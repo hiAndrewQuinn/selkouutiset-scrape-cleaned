@@ -16,28 +16,35 @@ def get_language_code(json_file_path: str):
     return os.path.basename(json_file_path).split(".")[2]
 
 
-def fix_image_links(content: str):
+def fix_image_links(content: str, indent=0):
     """Fix image links in the translated content.
 
-    For some reason, Google Translate adds spaces in random places in the URLs
+    For some reason, Google Translate adds spaces and removes !s in random places in the URLs
     we use to link to YLE's images. Luckily, since the images are always on
     their own lines, this is easy to fix: Just remove all of the spaces
     inside ()s.
     """
-    print("Analyzing line:")
+
     print(content)
-    print("---")
-    md_img_pattern = re.compile(r"!\[(.*?)\]\((.*?)\)")
 
-    def remove_spaces_in_url(match):
-        # Remove spaces in the URL part of the Markdown image syntax
-        return f"![{match.group(1)}]({match.group(2).replace(' ', '')})"
+    def remove_whitespace_in_image_url(match):
+        # Remove all whitespace in the URL part of the Markdown image syntax
+        url_without_whitespace = re.sub(r"\s+", "", match.group(2))
+        return f"![{match.group(1)}]({url_without_whitespace})"
 
-    return (
-        md_img_pattern.sub(remove_spaces_in_url, content)
-        if md_img_pattern.search(content)
-        else content
-    )
+    print("Building regex...")
+    md_img_pattern = re.compile(r"!?\s*?\[(.*?)\]\((.*?)\)")
+    print("Checking to see if there's a match...")
+    if md_img_pattern.search(content):
+        print("There's a match!")
+        print("Removing whitespace...")
+        content = md_img_pattern.sub(remove_whitespace_in_image_url, content)
+        print("Whitespace removed!")
+        print(content)
+        return content
+    else:
+        print("There's no match!")
+        return content
 
 
 def process_json_file(json_file_path: str):

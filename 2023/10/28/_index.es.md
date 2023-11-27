@@ -1,0 +1,63 @@
+##Radio\| Noticias claras \| Sábado 28 de octubre de 2023
+
+Gaza. Naciones Unidas Alejandro Stubb. Premio Sésamo. Horario de invierno. Pronóstico.
+
+### Batallas en Medio Oriente
+
+![Israel ha aumentado los ataques contra Gaza. Foto: Aris Messinis / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_531/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698410872/39-1192351653bb10bf0b47)
+
+Los combates en Medio Oriente se están intensificando. Israel ha aumentado muchos ataques contra Gaza. Israel ha atacado 150 objetivos de la organización extremista Hamás.
+
+No hay información precisa sobre la destrucción y las víctimas en Gaza, porque las conexiones con Gaza están rotas.
+
+Muchas organizaciones de ayuda también han perdido contacto con los trabajadores humanitarios en Gaza.
+
+### Resolución de la Asamblea General de la ONU
+
+![La ONU exige un alto el fuego en Gaza. Foto: EPA/HANNIBAL HANSCHKE](https://images.cdn.yle.fi/image/upload/c_crop,h_3150,w_5600,x_0,y_268/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698499380/39-1192714653d0ab7d4d4c)
+
+La Asamblea General de la ONU exige un alto el fuego humanitario en Gaza. La Asamblea General de la ONU ha emitido una resolución al respecto. La resolución condena la violencia contra civiles palestinos e israelíes.
+
+120 países votaron a favor de la resolución. 14 estados votaron en contra. 45 estados se abstuvieron, es decir, no tomaron posición sobre el tema.
+
+Por ejemplo, Finlandia y muchos otros países votaron no porque la resolución de la ONU no condenaba el ataque de Hamás a Israel.
+
+### El candidato presidencial de la coalición
+
+![Alexader Stubb es ahora oficialmente el candidato a presidente de la coalición. Foto: Antti Aimo-Koivisto / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_287/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698494219/39-1192698653cf6c267686)
+
+La coalición ha designado a **Alexander Stubb** como candidato presidencial del partido.
+
+La coalición decidió sobre el tema en una reunión extraordinaria del partido.
+
+La coalición había acordado previamente que Stubbs se convertiría en el candidato presidencial del partido. Por eso Stubb también empezó antes la campaña electoral. La candidatura de Stubb ya estaba oficialmente decidida.
+
+### Premio Sésamo de no ficción
+
+![El ilustrador Pekka Rahkonen recibió el premio Sesam. Foto: Pekka Rahkonen](https://images.cdn.yle.fi/image/upload/c_crop,h_861,w_1531,x_2,y_65/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698504762/39-1192741653d1f5e2611a)
+
+El ilustrador **Pekka Rahkonen** ganó el premio Sesam de no ficción. Rahkonen ha ilustrado libros en lenguaje sencillo, dibujos animados, libros de texto y libros en línea. El premio Sesam se otorga a trabajos que promuevan la no ficción.
+
+El premio Sesam lo otorga el grupo de trabajo de edición de bolsillo de Selkokeskus. El grupo de trabajo dice que Pekka Rahkone tiene un buen estilo propio y una ilustración de alta calidad.
+
+El premio Sesam de no ficción lo recibió Rahkonen en la feria del libro de Helsinki. El premio Sesam es de 1.000 euros.
+
+### Cambio de hora
+
+![La hora se retrasará una hora a las 4 en punto del domingo por la mañana. Imagen: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603530654/14-svyle-6142553197327452bd)
+
+El horario de verano termina mañana por la noche. El domingo a las cuatro de la mañana la hora se retrasará una hora.
+
+A muchas personas les gusta poder dormir una hora más porque el tiempo se retrasa una hora.
+
+El cambio horario se introdujo en la UE en 1981. El horario de verano siempre comienza a finales de marzo y finaliza a finales de octubre.
+
+### Clima
+
+![El clima es bastante frío.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698504972/39-1192742653d20d3625ce)
+
+El domingo el tiempo estará mayormente nublado. En la costa de Ostrobotnia nieva mucho y el tiempo para conducir puede ser malo.
+
+El sol brilla a veces en las zonas central y occidental del país.
+
+Por la noche, todo el país está helado. Durante el día del domingo la temperatura estará entre +1 y -5 grados, en algunas zonas de Laponia hará más frío.

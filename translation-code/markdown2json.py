@@ -46,7 +46,10 @@ def process_markdown_file(md_file_path: str, target_lang: str = "en"):
 
 
 @app.command()
-def process_files(files: list[str] = typer.Argument(None)):
+def process_files(
+    files: list[str] = typer.Argument(None),
+    target_lang: str = typer.Option("en", help="Target language ISO 639-1 code"),
+):
     typer.echo(files)
     if not files:
         typer.echo("No files provided. Reading from stdin.")
@@ -56,7 +59,7 @@ def process_files(files: list[str] = typer.Argument(None)):
     for md_file_path in files:
         typer.echo("Processing: " + md_file_path)
         if os.path.isfile(md_file_path):
-            process_markdown_file(md_file_path)
+            process_markdown_file(md_file_path, target_lang)
         else:
             typer.echo(f"File not found: {md_file_path}", err=True)
 

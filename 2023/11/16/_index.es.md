@@ -1,0 +1,45 @@
+## Radio Selkouutiset jueves 16 de noviembre de 2023
+
+Se cerraron las estaciones fronterizas. Desempleo. El juicio Dödspatrullen. Clima.
+
+### Estaciones fronterizas cerradas
+
+![Se cerrarán las estaciones fronterizas de Imatra, Niirala, Nuijamaa y Vaalimaa. Foto: Laura Merikalla / Yle y Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1215,w_2161,x_0,y_943/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700138081/39-1201615655605bd910f3)
+
+Finlandia cierra muchos pasos fronterizos en la frontera oriental.
+
+El gobierno decidió que las estaciones fronterizas de Imatra, Niirala, Nuijamaa y Vaalimaa permanecerán cerradas la noche del viernes al sábado. Después de esto, ningún tráfico pasa por estas estaciones fronterizas. Las estaciones fronterizas están cerradas al menos hasta mediados de febrero.
+
+En la frontera oriental, a partir del sábado sólo estarán abiertos los pasos fronterizos de Vartius, Salla, Kuusamo y Raja-Joosepi.
+
+El primer ministro Petteri Orpo afirma que Finlandia quiere garantizar la seguridad fronteriza. Por eso las estaciones fronterizas están cerradas.
+
+Durante el otoño, llegaron a los puestos fronterizos del sudeste de Finlandia más solicitantes de asilo de lo habitual. Los solicitantes de asilo llegaron de muchos países a la frontera finlandesa a través de Rusia. No llevaban consigo los documentos necesarios para viajar a Finlandia desde Rusia.
+
+### Desempleo
+
+![El desempleo está aumentando. Imagen de ilustración. Foto: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3007,w_5346,x_0,y_409/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1636455286/39-7675556012f34491801)
+
+El número de desempleados aumentará este año en Finlandia. Esto es lo que estima el Ministerio de Trabajo.
+
+El Ministerio afirma que pronto habrá el mismo número de despedidos que en 2009. A principios del próximo año habrá casi 40.000 trabajadores despedidos. El despido significa que una persona estará desempleada durante un período de, por ejemplo, 3 meses o 6 meses.
+
+El Ministerio de Trabajo estima que la economía finlandesa mejorará en 2025. También había más empleo entonces que ahora.
+
+### Prueba de Dödspatrullen
+
+![Tribunales de Dödspatrulle 16.11.2023. Foto: Marjatta Rautio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2295,w_4080,x_0,y_278/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700137634/39-12015276555f550196e3)
+
+En Helsinki comenzó un juicio relacionado con la banda sueca Dödspatrullen.
+
+27 personas están acusadas en el tribunal de distrito. El fiscal exige prisión para casi todos los acusados. Nueve de los acusados son ciudadanos finlandeses y siete son ciudadanos suecos. El resto de los acusados son ciudadanos de otros países.
+
+El tribunal se ocupa de los delitos relacionados con las drogas. La policía dice que una banda callejera sueca intentó apoderarse del mercado de drogas finlandés. Dödspatrullen es una violenta pandilla callejera sueca que comete muchos delitos relacionados con las drogas.
+
+### Clima
+
+![ Foto: Laura Tuomola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700136474/39-1201617655606029adf4)
+
+Mañana viernes brillará el sol en el sur y el norte. Hay nubes en el cielo en medio de la tierra. El clima es polvoriento, pero puede nevar un poco en la costa oeste.
+
+La temperatura es gélida en todo el país. El más frío está en Laponia.

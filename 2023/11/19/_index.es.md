@@ -1,0 +1,59 @@
+##Radio\| Noticias claras \| domingo 19 noviembre 2023
+
+Candidato presidencial del SPD. Los acontecimientos de la frontera oriental. Día del Hombre. Clima.
+
+### candidato presidencial del SDP
+
+![Jutta Urpilainen en la reunión del SDP en Tampere. Foto: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_536/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700390392/39-12029436559e5d3e7734)
+
+**Jutta Urpilainen** se presenta como candidata presidencial del partido SDP. Lo contó en la reunión del SDP en Tampere.
+
+Urpilainen también habló de cosas que son importantes para él cuando sea candidato presidencial.
+
+Urpilainen afirmó que en Finlandia hay que cuidar a todas las personas. Nadie puede quedarse atrás.
+
+También dijo que los políticos deberían defender a los trabajadores y no sólo a las empresas.
+
+Urpilainen es comisario de la UE. Su decisión de convertirse en candidato presidencial del SDP se esperaba desde hace mucho tiempo.
+
+La carrera presidencial lleva muchos meses. Otros candidatos importantes se han apuntado desde hace tiempo.
+
+Actualmente, los candidatos presidenciales más populares son **Pekka Haavisto** y **Alexander** **Stubb**.
+
+Las elecciones presidenciales son en enero.
+
+### Eventos en la frontera oriental
+
+![Solicitantes de asilo en la estación fronteriza de Vartius en Kuhmo. Foto: Timo Valtteri Sihvonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2312,w_4110,x_1360,y_535/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700313355/39-12026836558740e2c62a)
+
+La estación fronteriza de Vartius, en la frontera oriental de Finlandia, estuvo cerrada el domingo. La estación fronteriza estuvo cerrada por un corto tiempo.
+
+Los finlandeses cerraron el puesto fronterizo porque las autoridades rusas trajeron más solicitantes de asilo a la frontera. Cuando los solicitantes de asilo llegaron a la frontera, ya no pudieron regresar a Rusia.
+
+No había muchos solicitantes de asilo.
+
+Finlandia ha cerrado cuatro cruces fronterizos en el este. La razón es que los rusos han enviado cada vez más solicitantes de asilo a Finlandia.
+
+Los funcionarios dicen que Rusia quiere provocar y causar desorden.
+
+### Día del Hombre
+
+![Hombre finlandés. Foto: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_164/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700042381/39-1200843655493de62883)
+
+El domingo era el día de los hombres. El propósito del día es enfatizar la salud, la igualdad y las buenas obras de hombres y niños en la familia y la sociedad.
+
+Las estadísticas muestran que un finlandés de 30 años pesa una media de 87 kilogramos. Mide 177 centímetros de altura.
+
+El 43 por ciento de los hombres adultos finlandeses están casados.
+
+El primer nombre más común para los hombres es Juha.
+
+En la escuela, los niños finlandeses leen peor que las niñas. El 20 por ciento de los niños tienen malas habilidades de lectura.
+
+### Clima
+
+El lunes nevará.
+
+La temperatura oscila entre 0 y -10 grados. En Laponia la temperatura oscila entre -15 y -30 grados.
+
+![ Foto: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700408413/39-1203034655a2c36dc32d)

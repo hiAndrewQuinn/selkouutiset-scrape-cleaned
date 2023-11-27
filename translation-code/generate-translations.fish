@@ -22,7 +22,7 @@ fd '_request\...\...\.json' | while read -l file
         -o $output_file
 
     echo ---
-    cat $output_file
+    cat $output_file | jq
     echo ---
 
     echo "Translation saved to $output_file"

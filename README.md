@@ -19,11 +19,13 @@ rm .hash
 rm -rf 20*/
 fish create-markdown-versions.fish
 
-fd '.*.fi.md$' | python translation-code/markdown2json.py
+cat languages.txt | while read -l lang
+    fd '.*.fi.md$' | python translation-code/markdown2json.py --target-lang=$lang
+end
 ```
 
 ```fish
-# Only if you have ☁️ Google Translate API and gcloud
+# ☁️ gcloud + Google Translate API ONLY, `curl` is to test.
 curl -X POST \
           -H "Authorization: Bearer $(gcloud auth print-access-token)" \
           -H "x-goog-user-project: andrews-selkouutiset-archive" \

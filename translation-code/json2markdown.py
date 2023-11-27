@@ -24,27 +24,31 @@ def fix_image_links(content: str, indent=0):
     their own lines, this is easy to fix: Just remove all of the spaces
     inside ()s.
     """
-
-    print(content)
+    md_img_pattern = re.compile(r"!?\s*?\[(.*?)\]\((.*?)\)")
 
     def remove_whitespace_in_image_url(match):
         # Remove all whitespace in the URL part of the Markdown image syntax
         url_without_whitespace = re.sub(r"\s+", "", match.group(2))
         return f"![{match.group(1)}]({url_without_whitespace})"
 
-    print("Building regex...")
-    md_img_pattern = re.compile(r"!?\s*?\[(.*?)\]\((.*?)\)")
-    print("Checking to see if there's a match...")
-    if md_img_pattern.search(content):
-        print("There's a match!")
-        print("Removing whitespace...")
-        content = md_img_pattern.sub(remove_whitespace_in_image_url, content)
-        print("Whitespace removed!")
-        print(content)
-        return content
-    else:
-        print("There's no match!")
-        return content
+    return (
+        md_img_pattern.sub(remove_whitespace_in_image_url, content)
+        if md_img_pattern.search(content)
+        else content
+    )
+
+
+def fix_markdown_headings(content: str, indent=0):
+    md_heading_pattern = re.compile(r"^(#+)\s+(.*?)\s*$")
+
+    def fix_heading(match):
+        return f"{match.group(1)} {match.group(2)}"
+
+    return (
+        md_heading_pattern.sub(fix_heading, content)
+        if md_heading_pattern.search(content)
+        else content
+    )
 
 
 def process_json_file(json_file_path: str):
@@ -60,7 +64,7 @@ def process_json_file(json_file_path: str):
         data = process_json(json.load(file))
 
     # Fix any broken image links before we start processing the JSON.
-    data = [fix_image_links(line) for line in data]
+    data = [fix_markdown_headings(fix_image_links(line)) for line in data]
     content = "\n".join(data)
 
     # Write the content to the new Markdown file

@@ -1,0 +1,54 @@
+Radio Selkouutiset 2023. november 28
+-----------------------------
+
+A keleti határ lezárva. Nyugalom Raja-Joosepben. Az SDP alternatív költségvetése. Thai bogyószedők. Időjárás.
+
+### A teljes keleti határ le van zárva
+
+![Petteri Orpo miniszterelnök a kormány határokon átnyúló forgalomkorlátozásokról szóló sajtótájékoztatóján Helsinkiben, 2023. november 28-án. Fotó: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/ar_17fb63bc0)
+
+A kormány 2 hétre lezárja Finnország teljes keleti határát.
+
+Csütörtökön az Inari Raja-Joosepi határállomást is lezárják. A keleti határ legalább december 13-ig zárva marad. Finnország keleti határát csak a teherforgalom lépheti át.
+
+Ez idő alatt Finnországban csak a repülőtereken és a kikötőkben igényelhet biztonsági készletet.
+
+Petteri Orpo miniszterelnök szerint a keleti határt lezárják, mert Oroszország menedékkérőket szállít a finn határhoz. Augusztus óta több mint 900 menedékkérő Oroszországból lépte át Finnország keleti határát.
+
+### Nyugalom Raja-Joosepben
+
+![A Raja-Joosepi határátkelőhely Inariban, 2023. november 27-én, hétfőn. Fotó: Tomi Hänninen / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_474/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701178188/39-1206798e)
+
+Csendes nap volt a kedd a lappföldi Raja-Joosepi határátkelőnél. Vesa Arffman, az ivaloi határőrállomás vezetője azt állítja, hogy egyetlen oroszországi menedékkérő sem lépte át a határt.
+
+A Frontex európai határvédelmi hatóság mintegy 50 alkalmazottja érkezett a finn határőrség segítségére kedden. Finnország korábban a Frontex segítségét kérte a keleti határ megfigyeléséhez.
+
+### Az SDP alternatív költségvetése
+
+![Az SDP elnöke, Antti Lindtman az Ykkösaamu vendégeként 2023. november 25-én. Fotó: Petteri Sopanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_214/ar_1.7777777777777777,c_fill,g_faces,h_1210,/w_prdq_auto:eco/f_auto/fl_lossy/v1700900437/39-12065046561addd1ff4d)
+
+A legnagyobb ellenzéki párt, az SDP saját alternatívát mutatott be a finn állam pénzfelhasználására.
+
+Az alternatív költségvetésben az SDP azt javasolja, hogy Finnország jövőre 430 millió euróval kevesebb adósságot vállaljon, mint Petteri Orpo miniszterelnök kormánya. Finnország adóbevételei 830 millió euróval nőnek ebben az SDP-alternatívában.
+
+Az SDP álláspontja szerint nem kellene csökkenteni a magas jövedelműek adóztatását.
+
+A parlament holnap, szerdán tárgyalja az ellenzék alternatív költségvetését.
+
+### Thai bogyószedők
+
+![Egy thaiföldi eperszedő egy hollolai eperföldön dolgozik. Illusztráció kép. Fotó: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3158,w_5615,x_0,y_362/ar_1.7777777777777777,c_fill,g_faces,h_1210,/w_prdq_auto:eco/f_auto/fl_lossy/v1697111616/39-11854426527dce6a43a2)
+
+A rendőrség gyanúja szerint 5 ember követett el bűncselekményt a thai bogyósokkal kapcsolatos történetben.
+
+Ezt követően az ügyben eljárás indul. A rendőrség azt gyanítja, hogy a thaiföldi bogyószedők embercsempészet áldozatai lettek Finnországban 2020 és 2022 között.
+
+Az előzetes nyomozás során 170 thaiföldi bogyószedőt találtak a rendőrök, de talán kétezren estek áldozatul az embercsempészetnek.
+
+### Időjárás
+
+![ Fotó: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces/,h_pr_670/0/q_auto:eco/f_auto/fl_lossy/v1701179634/39-12078316565f0cf485dd)
+
+Szerdán északon havazik. Valószínűleg a déli parton lehet havazás. Az ország többi részén nagyrészt havazik.
+
+Szinte az egész országban felhők vannak az égen. Nyugaton kisüthet egy kis időre a nap. 5 fok körül van a hőmérséklet.

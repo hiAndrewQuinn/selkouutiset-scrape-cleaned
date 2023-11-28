@@ -1,0 +1,54 @@
+Rádio Selkouutiset 28. listopadu 2023
+-----------------------------
+
+Východní hranice uzavřena. Klid v Raja-Joosep. Alternativní rozpočet SDP. Thajští sběrači bobulí. Počasí.
+
+### Celá východní hranice je uzavřena
+
+![Premiér Petteri Orpo na vládní tiskové konferenci o omezeních přeshraničního provozu v Helsinkách 28. listopadu 2023. Foto: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/f_lossy/f21829290516058292901b63bc0)
+
+Vláda na 2 týdny uzavírá celou východní hranici Finska.
+
+Ve čtvrtek bude uzavřena také hraniční stanice Inari Raja-Joosepi. Východní hranice zůstane uzavřena minimálně do 13. prosince. Přes východní hranici Finska může překročit pouze nákladní doprava.
+
+Během této doby můžete ve Finsku žádat o bezpečnostní sadu pouze na letištích a v přístavech.
+
+Premiér Petteri Orpo říká, že východní hranice bude uzavřena, protože Rusko převáží žadatele o azyl na finské hranice. Od srpna překročilo východní hranici Finska více než 900 žadatelů o azyl z Ruska.
+
+### Klid v Raja-Joosep
+
+![hraniční přechod Raja-Joosepi v Inari v pondělí 27. listopadu 2023. Foto: Tomi Hänninen / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0, y_474/ar_1.7777777777777777 ,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701178188/39-12072a956565652a956565652a95665
+
+Úterý byl na hraničním přechodu Raja-Joosepi v Laponsku klidným dnem. Vesa Arffman, vedoucí stanice pohraniční stráže Ivalo, říká, že žádní žadatelé o azyl z Ruska hranici nepřekročili.
+
+Na pomoc finské pohraniční stráži v úterý dorazilo asi 50 zaměstnanců evropského pohraničního úřadu Frontex. Finsko dříve požádalo Frontex o pomoc při monitorování východní hranice.
+
+### Alternativní rozpočet SDP
+
+![Předseda SDP Antti Lindtman jako host Ykkösaamu dne 25. listopadu 2023. Foto: Petteri Sopanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_214/ar_1.7777777777777777,c_fill,g_faces,h_1200.0q_auto:eco/f_auto/fl_lossy/v1700900437/39-12065046561addd1ff4d)
+
+Největší opoziční strana SDP představila vlastní alternativu využití peněz finským státem.
+
+V alternativním rozpočtu SDP navrhuje, aby příští rok Finsko převzalo o 430 milionů eur nižší dluh než vláda premiéra Petteriho Orpa. Daňové příjmy Finska se v této alternativě SDP zvýší o 830 milionů eur.
+
+Zdanění lidí s vysokými příjmy by se podle SDP nemělo snižovat.
+
+Parlament bude zítra ve středu jednat o alternativních rozpočtech opozice.
+
+### Thajští sběrači bobulí
+
+![Thajský sběrač jahod pracuje na jahodovém poli v Hollole. Ilustrační obrázek. Foto: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3158,w_5615,x_0,y_362/ar_1.7777777777777777,c_fill,g_faces,w/d_1675.0q_auto:eco/f_auto/fl_lossy/v1697111616/39-11854426527dce6a43a2)
+
+Policie má podezření, že 5 lidí spáchalo trestný čin v příběhu souvisejícím s thajskými sběrači bobulí.
+
+Případ pak postoupí k trestnímu stíhání. Policie má podezření, že thajskí sběrači bobulí byli ve Finsku v letech 2020–2022 obětí obchodování s lidmi.
+
+Během předběžného vyšetřování policie našla 170 thajských sběračů bobulí, ale možná až 2000 lidí se stalo obětí obchodování s lidmi.
+
+### Počasí
+
+![ Foto: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_50,/wd_1670/q_auto:eco/f_auto/fl_lossy/v1701179634/39-12078316565f0cf485dd)
+
+Ve středu bude na severu sněžit. Na jižním pobřeží se pravděpodobně vyskytnou sněhové přeháňky. Ve zbytku republiky je převážně sníh.
+
+Téměř celá země má na obloze mraky. Na západě může chvíli svítit slunce. Je asi 5 stupňů pod nulou.

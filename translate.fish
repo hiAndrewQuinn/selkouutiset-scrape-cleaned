@@ -1,7 +1,10 @@
 #!/bin/fish
 
+git sumbodule update --remote
+git pull
+
 cat languages.txt | while read -l lang
-  fd '.*.fi.md$' | python translation-code/markdown2json.py --target-lang=$lang
+    fd '.*.fi.md$' | python translation-code/markdown2json.py --target-lang=$lang
 end
 
 fish translation-code/generate-translations.fish

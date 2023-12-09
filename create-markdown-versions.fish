@@ -1,5 +1,7 @@
 #!/usr/bin/fish
 
+source html2md.fish
+
 set source_dir "./selkouutiset-scrape/"
 set hash "./.hash"
 
@@ -20,24 +22,5 @@ for source_file in (find $source_dir -type f -name "*.html")
 
     set dest_file "$dest_dir/_index.fi.md"
 
-    cat $source_file |
-        pandoc -f html -t commonmark --wrap=none |
-        sed -n '/## Radio/,$p' |
-        sed '/Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./Q' |
-        sed '/^<div\|^<\/div/d' |
-        sed '/^<span\|^<\/span/d' |
-        pandoc -f commonmark -t html |
-        sed '/^<ul>\|^<\/ul>/d' |
-        sed '/^<li><a/d' |
-        sed '/^<p><a href.*poddar/d' |
-        sed '/<p>journalismia/d' |
-        sed '/lukea uutiset samanaikaisesti alta/d' |
-        pandoc -f html -t markdown --wrap=none |
-        sed 's/{\.aw-zhx2sq \.hyCAoR}//g' >$dest_file
+    html2md $source_file $dest_file
 end
-
-# git add -A
-# set timestamp (date -u)
-# git commit -m "Latest data: $timestamp" || exit 0
-# git push
-#

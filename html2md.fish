@@ -7,7 +7,9 @@ function html2md
     cat $source_file |
         pandoc -f html -t commonmark --wrap=none |
         sed -n '/## Radio/,$p' |
-        sed '/Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./Q' |
+        tac |
+        sed '0,/Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./d' |
+        tac |
         sed '/^<div\|^<\/div/d' |
         sed '/^<span\|^<\/span/d' |
         pandoc -f commonmark -t html |
@@ -17,5 +19,6 @@ function html2md
         sed '/<p>journalismia/d' |
         sed '/lukea uutiset samanaikaisesti alta/d' |
         pandoc -f html -t markdown --wrap=none |
-        sed 's/{\.aw-zhx2sq \.hyCAoR}//g' >$dest_file
+        sed 's/{\.aw-zhx2sq \.hyCAoR}//g' |
+        cat >$dest_file
 end

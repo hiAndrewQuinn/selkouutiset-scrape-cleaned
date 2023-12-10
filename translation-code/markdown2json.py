@@ -25,12 +25,10 @@ def process_markdown_file(md_file_path: str, target_lang: str = "en"):
         f"{os.path.split(md_file_path)[0]}/_request.{source_lang}.{target_lang}.json"
     )
 
-    typer.echo(md_file_path + " => " + json_file_path)
-
     if os.path.exists(json_file_path):
+        typer.secho(md_file_path + " => " +
+                    json_file_path + ' [exists]', fg=typer.colors.GREEN)
         return
-
-    typer.echo(md_file_path + " => " + json_file_path)
 
     # Read the markdown file
     with open(md_file_path, "r", encoding="utf-8") as file:
@@ -48,7 +46,8 @@ def process_markdown_file(md_file_path: str, target_lang: str = "en"):
         json.dump(json_data, json_file, indent=4, ensure_ascii=False)
 
     # Inform the user that the file has been created
-    typer.echo(f"{json_file_path} file has been created.")
+    typer.secho(md_file_path + " => " + json_file_path +
+                ' [created]', fg=typer.colors.YELLOW)
 
 
 @app.command()

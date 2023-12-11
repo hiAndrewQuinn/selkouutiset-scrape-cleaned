@@ -1,6 +1,6 @@
 #!/bin/fish
 
-git sumbodule update --remote
+git submodule update --remote
 git pull
 
 cat languages.txt | while read -l lang

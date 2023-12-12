@@ -1,0 +1,50 @@
+Radio \| Selkouutiset \| tiistai 12.12.2023
+-------------------------------------------
+
+Itäraja. Ampumatapaus Helsingissä. Asuntokauppa. YK:n ilmastokokous. Sää.
+
+### Itärajan avaaminen
+
+![Suomi avaa 2 raja-asemaa torstaina. Tämä Vartiuksen raja-asema pysyy vielä kiinni. Kuva: Jarmo Nuotio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2098,w_3730,x_1,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702384366/39-1214341657850ad684de)
+
+Suomi avaa 2 raja-asemaa itärajalla. Suomi avaa Vaalimaan raja-aseman Kaakkois-Suomessa ja Niiralan raja-aseman Pohjois-Karjalassa. Raja-asemat avataan tänä torstaina 14. joulukuuta. Muut 6 raja-asemaa itärajalla pysyvät kiinni.
+
+Suomi sulki rajan 2 viikkoa sitten, koska Venäjä alkoi lähettää Suomeen turvapaikanhakijoita. Venäjä lähetti Suomen rajalle noin 1000 turvapaikanhakijaa ennen rajan sulkua.
+
+Pääministeri **Petteri Orpo** sanoo, että Suomi kokeilee, voiko raja olla taas auki. Suomi voi sulkea rajan uudestaan, jos Venäjä lähettää taas turvapaikanhakijoita Suomeen.
+
+### Ampumatapaus Helsingissä
+
+![Luotiliivit voivat näyttää esimerkiksi tältä. Luotiliiviä käyttävät esimerkiksi poliisit ja sotilaat. Kuva: Susanna Pesonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_456/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1691049946/39-115115364cb5d39dae86)
+
+Helsingin Kampissa on ollut ampumistapaus. 16-vuotias nuori ampui 19-vuotiasta nuorta maanantaina illalla. 19-vuotias nuori ei kuitenkaan loukkaantunut, koska hänellä oli luotiliivit.
+
+Poliisi epäilee ampujaa tapon yrityksestä. On harvinaista, että Suomessa ammutaan ihmistä yleisellä paikalla. Kampin tapaus on erikoinen myös siksi, että 19-vuotiaalla nuorella oli luotiliivit. Hänellä oli ehkä syy pelätä väkivaltaa.
+
+Poliisi sanoo, että Kampin ampumatapaus ei liity jengirikollisuuteen. Ampumistapaus tapahtui Kampissa elokuvateatterin luona.
+
+### Asuntokauppa
+
+![Nainen tutkii keittiön kaappeja asuntonäytöllä. Kuva: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2806,w_4989,x_10,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1673837646/39-105859863c00b7c4f726)
+
+Vanhojen asuntojen kauppa on vilkastunut marraskuussa. Näin kertoo Nordea-pankki.
+
+Asuntokauppoja tehtiin marraskuussa melkein 11 prosenttia enemmän kuin viime vuoden marraskuussa. Syy on asuntokaupan verotuksen uudistus.
+
+Ensiasunnon ostajilta poistuu veroetu ensi vuonna. Siksi monet nuoret ostavat ensimmäisen asunnon ennen vuoden loppua.
+
+### YK:n ilmastokokous
+
+![YK:n ilmastokokous on Dubaissa Arabiemiraateissa. Kuva: Lotte Krank-van de Burgt / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702389689/39-12144796578671f7e663)
+
+YK:n ilmastokokousessa asioiden käsittely on vaikeutunut. Kiistaa on fossiilisten polttoaineiden tulevaisuudesta.
+
+Ilmastokokouksen tunnelma huononi, koska Arabiemiraatit teki oman esityksen polttoaineista. Arabiemiraattien esityksessä ei vähennetä fossiilisten polttoaineiden käyttöä. Fossiilisia polttoaineita ovat esimerkiksi öljy ja kivihiili.
+
+Tutkijat sanovat, että maapallon lämpeneminen ei pysähdy, jos fossiilisten polttoaineiden käyttöä ei vähennetä. Siksi monet maat haluavat tehdä toimia, joilla vähennetään fossiilisten polttoaineiden käyttöä. Arabiemiraattien esitys ihmetyttää monia muita maita.
+
+### Sää
+
+![Pohjoisessa on paljon pakkasta eli tosi kylmää.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702394459/39-121453865787a452a8f0)
+
+Maan etelä- ja keskiosassa tulee lumisateita. Lunta sataa erityisesti etelässä ja idässä. Lumisateessa myös ajokeli on huono. Lämpötila on enimmäkseen -3 ja -15 asteen välillä, Lapissa -20 ja -30 asteen välillä.

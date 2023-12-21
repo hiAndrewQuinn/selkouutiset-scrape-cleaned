@@ -1,58 +1,50 @@
-Radio Selkouutiset tiistai 19.12.2023
--------------------------------------
+Radio \| Selkouutiset \| keskiviikko 20.12.2023
+-----------------------------------------------
 
-Islannin tulivuori. Talousennusteet. Ydinvoima. Suomen asukasluku. Sää.
+Hoitoonpääsy. EU:n turvapaikkalait. Porvoon jalostamo. Uutisten välttely. Sääennuste.
 
-### Islannin tulivuori
+### Hoitoon pääsy
 
-![Islannissa purkautuu tulivuori. Kuva: Kristinn Magnusson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1395,w_2480,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702985177/39-121778965817d7552de6)
+![Kiireettömään hoitoon pääsee usein viikossa. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_576,w_1024,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1641215409/14-svyle-1638531971ec48415)
 
-Islannissa purkautuu tulivuori.
+Pääsy kiirettömään hoitoon on helpottunut. Näin kertoo Terveyden ja hyvinvoinnin laitos. Lokakuussa potilaista yli 80 prosenttia pääsi avosairaanhoitoon viikon kuluessa siitä, kun tarve todettiin esimerkiksi lääkärissä tai etävastaanotolla.
 
-Purkaus alkoi yöllä pienen Grindavikin kaupungin pohjoispuolella. Alueelle on julistettu hätätila. Poliisi arvioi kuitenkin, että ihmiset eivät ole vaarassa.
+Viimeistään 2 viikon kuluessa hoitoon pääsi noin 90 prosenttia potilaista. Suurin osa potilaista pääsi sairaanhoitajan tai terveydenhoitajan vastaanotolle.
 
-Tulivuori on lähellä Reykjavíkin lentokenttää. Lentokenttä on yhä auki, mutta lennot ovat myöhässä.
+Hoitajille on päässyt noin viikossa jo jonkin aikaa. Nyt myös lääkäriin pääsee usein viikossa.
 
-Asiantuntijat sanovat, että purkaus ei todennäköisesti aiheuta sellaista tuhkapilveä, joka pysäyttää lentoliikenteen. Vuonna 2010 islantilaisen tulivuoren tuhka sekoitti pahoin pohjoisen Euroopan lentoliikenteen.
+### EU:n turvapaikkapolitiikka
 
-Tulivuori purkautuu Islannissa ehkä jopa 3 viikkoa.
+![Rajavartija Etelä-Karjalan rajavartiostossa Suomessa. Kuva: Marika Anttonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2137,w_3798,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700662917/39-1205067655e0ac716e9a)
 
-### Talousennusteet
+EU-maat ovat päässeet sopuun maahanmuutto- ja turvapaikkalakien uudistamisesta. Tarkoitus on nopeuttaa maahantulotarkastuksia.
 
-![Suomen pankin talousennuste on synkkä. Kuvituskuva. Kuva: Seppo Ahava / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_265/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1620756706/39-805272609ac85c66a4e)
+Lakeja muutetaan niin, että raja-alueille voidaan perustaa turvapaikanhakijoille odotuskeskuksia. Karkotuksia nopeutetaan. Jos ihminen saa kielteisen turvapaikkapäätöksen, hänet voidaan karkottaa nopeasti.
 
-Suomen pankki on tehnyt ennusteen Suomen talouden kehityksestä. Ennuste on melko synkkä.
+EU-maille tulee myös taakanjako. Se tarkoittaa, että kaikki jäsenmaat osallistuvat yhdessä kuluihin, joita turvapaikanhakijoista syntyy. Turvapaikanhakijoita voidaan jakaa eri EU-maihin.
 
-Suomen pankki arvioi, että Suomen talous pienentyy tänä vuonna 0,5 prosenttia. Ensi vuonna Suomen talous pienentyy 0,2 prosenttia. Aikaisemmin Suomen pankki ennusti, että Suomen talous kääntyy ensi vuonna nousuun.
+### Nesteen Porvoon jalostamo
 
-Myös valtiovarainministeriö on tehnyt ennusteen Suomen taloudesta. Ministeriö arvioi, että Suomen talous kasvaa ensi vuonna 0,7 prosenttia.
+![Nesteen Porvoon jalostamo. Kuva: Yle/Stefan Härus](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_366/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1579513532/39-6328885e25764c72a47)
 
-### Ydinvoima
+Öljyfirma Neste tekee isoja uudistuksia Porvoon jalostamossa. Neste investoi eli käyttää paljon rahaa Porvoon jalostamoon. Jalostamo keskittyy käyttämään uusiutuvia raaka-aineita ja kierrätysraaka-aineita.
 
-![Ydinvoiman tuotanto lisääntyi tammikuun ja syyskuun välisenä. Kuvassa Loviisan ydinvoimala. Kuva: Milena Hackman / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2223,w_3952,x_0,y_1998/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1680247056/39-1092850642687d0260a7)
+Muutos on tosi iso. Siksi se kestää noin 10 vuotta. Muutoksia tehdään vaiheittain. Tarkoitus on, että Porvoon jalostamosta tulee uusiutuvien ja kierrätysmateriaalien johtava jalostamo.
 
-Suomessa tuotetaan ydinvoimaa enemmän kuin ennen.
+Porvoon jalostamo tuottaa esimerkiksi uusiutuvaa dieseliä ja raaka-aineita kemianteollisuudelle. Neste käyttää Porvoon jalostamon uudistamiseen noin 2,5 miljardia euroa.
 
-Ydinvoiman tuotanto lisääntyi tammikuun ja syyskuun välisenä aikana 32 prosenttia vuodesta 2022.
+### Uutisten välttely
 
-Myös uusiutuvaa sähköä tuotettiin enemmän kuin viime vuonna. Aurinkovoiman tuotanto lisääntyi 63 prosenttia ja tuulivoiman tuotanto 31 prosenttia.
+![Noin puolet suomalaisista välttelee joskus uutisia. Kuva: Antti Laakso / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1948,w_3464,x_0,y_228/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1664371756/39-101385663343e363a51e)
 
-Suomessa kulutettiin sähköä yhteensä 6 prosenttia vähemmän kuin vuonna 2022.
+Monet suomalaiset välttelevät joskus uutisia. Näin kertoo Uutismedia verkossa -tutkimus. Noin puolet suomalaisista sanoo, että ei halua aina nähdä tai kuulla kaikkia uutisia.
 
-### Suomen asukasluku
+Uutisten välttely on lisääntynyt Suomessa jonkin verran. Näin kertoo journalistiikan professori **Mikko Villi**.
 
-![Suomen väkiluku kasvoi. Kuvassa Helsingin kantakaupunkia. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_141/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1584710360/39-4763715ac7277fd476a)
-
-Suomessa asuu nyt enemmän ihmisiä kuin aikaisemmin.
-
-Suomessa asuu yli 5,6 miljoonaa ihmistä. Tilastokeskus kertoo, että tämän vuoden tammikuun ja marraskuun välisenä aikana Suomen asukasluku lisääntyi yli 39 000 ihmisellä.
-
-Suomen asukasluvun lisääntyminen johtuu siitä, että Suomeen muuttaa ulkomailta enemmän ihmisiä kuin Suomesta muuttaa ihmisiä ulkomaille.
+Yksi syy on uutisten ahdistavuus. Ikävät uutiset tuntuvat raskailta. Toinen syy on kyllästyminen. Sama aihe voi toistua uutisissa usein. Silloin ihminen ei aina halua lukea tai kuulla uutisia.
 
 ### Sää
 
-![ Kuva: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702991489/39-1217895658196636bffe)
+![Etelässä lämpötila on nollassa. Pohjoisessa on reilusti pakkasta.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703094827/39-121885065832a0eb04da)
 
-Vielä sääennuste.
-
-Sää kylmenee keskiviikkona ja koko maassa on taas pakkasta. Etelässä ja lännessä paistaa aurinko. Idässä ja pohjoisessa on enimmäkseen pilvistä. Paikoin sataa lunta.
+Torstaina etelässä sataa vähän lunta ja jäätävää tihkusadetta. Suuressa osassa maata on pilvistä, mutta poutaa eli ei sada. Lämpötila on 0 ja -15 asteen välillä. Lämpimintä on etelärannikolla. Kylmintä on Pohjois-Lapissa.

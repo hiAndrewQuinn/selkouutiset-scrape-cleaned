@@ -1,0 +1,70 @@
+Radio \| Selkouutiset \| perjantai 22.12.2023
+---------------------------------------------
+
+Presidentinvaalien vaalikeskustelu. Tshekin ampumistapaus. Talvipäivänseisaus. Lumisade. Sää.
+
+### Vaalikeskustelu
+
+![Suuri vaalikeskustelu järjestettiin Ylen tv-studiossa. Kuva: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_334/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703197601/39-12196056584b9768b285)
+
+Ylen ensimmäinen presidentinvaalien suuri vaalikeskustelu oli torstaina.
+
+Keskustelussa olivat mukana kaikki ehdokkaat. Ehdokkaita on 9.
+
+Keskustelussa puhuttiin erityisesti ulkopolitiikasta ja turvallisuuspolitiikasta, koska ne ovat Suomen presidentin tärkeimmät tehtävät.
+
+Suurin osa ehdokkaista sanoi, että armeija tarvitsee lisää rahaa. Syy on se, että Venäjä on Suomen naapurimaa ja Venäjä on hyökännyt Ukrainaan.
+
+Presidentinvaalit järjestetään tammikuun lopussa.
+
+Voit etsiä sinulle sopivaa ehdokasta Ylen vaalikoneen avulla.
+
+Kun vastaat vaalikoneen kysymyksiin, se kertoo sinulle, kuka ehdokkaista ajattelee asioista samalla tavalla kuin sinä.
+
+Vaalikone on osoitteessa [yle.fi/vaalikone](https://vaalit.yle.fi/vaalikone/presidentinvaali2024).
+
+Presidenttiehdokkaiden esittelyt selkokielellä löytyvät Selkosanomat-lehdestä. Osoite on [selkosanomat.fi](https://selkosanomat.fi/).
+
+### Tshekin ampumistapaus
+
+![Ihmiset surevat Prahassa ampumistapauksen takia. Kuva: Michal Cizek / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_174/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703251121/39-121991865858c42626c0)
+
+Tshekissä on ollut paha ampumistapaus.
+
+Ampuja tappoi torstaina 13 ihmistä maan pääkaupungissa Prahassa. Teon jälkeen hän tappoi itsensä.
+
+Ampumistapauksessa loukkaantui 25 ihmistä. Osa heistä loukkaantui vakavasti.
+
+Ampuminen tapahtui yliopistossa. Ampuja oli 24-vuotias opiskelija.
+
+### Talvipäivänseisaus
+
+![Talvi pohjoisessa. Kuva: Yle / Jouni Aikio](https://images.cdn.yle.fi/image/upload/c_crop,h_2929,w_5208,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1513864300/39-4524175a3bbb971b81b)
+
+Perjantai on ollut vuoden lyhyin päivä. Sanotaan, että nyt on talvipäivänseisaus.
+
+Etelä-Suomessa aurinko on taivaalla vain muutaman tunnin. Esimerkiksi Helsingissä päivä on vähän alle 6 tuntia pitkä.
+
+Aivan pohjoisessa aurinko ei nouse ollenkaan tähän aikaan vuodesta. Suomen pohjoisimmassa kunnassa Utsjoella aurinko nousee seuraavan kerran tammikuun puolivälissä.
+
+Talvipäivänseisauksen jälkeen päivä alkaa taas hitaasti pidentyä. Vuoden pisin päivä on 6 kuukauden kuluttua.
+
+### Lumisade
+
+![Perjantaina lunta on satanut paljon. Kuva: Markku Ulander / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703235015/39-121971165854d36daaf9)
+
+Lumisade on haitannut liikennettä perjantaina. Autoteillä on paljon liikennettä, koska monet matkustavat maalle viettämään joulua.
+
+Lumisade on haitannut myös busseja. Esimerkiksi Helsingin seudulla on perjantaina peruttu monia bussivuoroja.
+
+Myös lentoja on peruttu Helsinki-Vantaan lentokentällä lumisateen takia. Lisäksi monet lennot ovat olleet myöhässä.
+
+### Sää
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703261684/39-12200016585b5d12cf7d)
+
+Lunta sataa vielä lauantaina melkein koko maassa.
+
+Eniten lunta sataa maan keskivaiheilla ja idässä. Siellä lunta voi tulla yli 5 senttimetriä, paikoin yli 10 senttimetriä.
+
+Lämpötila on maan etelä- ja keskiosassa 0 ja -5 asteen välillä, Lapissa on kylmempää.

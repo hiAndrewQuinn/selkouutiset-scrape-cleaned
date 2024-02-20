@@ -14,7 +14,7 @@ fd '_request\...\...\.json' | while read -l file
 
     # Execute the curl command and save the response
     curl -s -X POST \
-        -H "Authorization: Bearer $(gcloud auth print-access-token)" \
+        -H "Authorization: Bearer (gcloud auth print-access-token)" \
         -H "x-goog-user-project: andrews-selkouutiset-archive" \
         -H "Content-Type: application/json; charset=utf-8" \
         -d @$file \

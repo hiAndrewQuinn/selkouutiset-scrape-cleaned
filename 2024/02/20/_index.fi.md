@@ -1,0 +1,69 @@
+TV \| Selkouutiset \| tiistai 20.2.2024
+=======================================
+
+Työmarkkinakysely. Appelsiinimehu. Hiihtoloma. Sää.
+
+Työmarkkinakysely
+-----------------
+
+Ensin kerromme, mitä suomalaiset ajattelevat hallituksen aikeista uudistaa työmarkkinoita ja sosiaaliturvaa.
+
+Ensimmäisen sairauspäivän muuttaminen palkattomaksi on suomalaisille kaikkein vaikein asia hallituksen uudistuksissa.
+
+Taloustutkimus kysyi suomalaisilta, mitkä hallituksen uudistusaikeista ovat vaikeimpia hyväksyä.
+
+34 prosenttia sanoi, että ensimmäisen sairauslomapäivän palkattomuutta on vaikea hyväksyä.
+
+Melkein yhtä moni piti vaikeimpana sitä, että työttömyysturvasta poistetaan lapsikorotus ja niin sanottu 300 euron suojaosa.
+
+Helpointa suomalaisten on hyväksyä paikallisen sopimisen laajentaminen ja se, että laittomien lakkojen hyvityssakkoja korotetaan.
+
+Appelsiinimehu
+--------------
+
+Sitten uutinen appelsiinimehun hinnasta.
+
+Appelsiinimehu on kallistunut paljon vuoden aikana.
+
+Sen hinta on noussut jopa useita kymmeniä prosentteja.
+
+HInnannousu johtuu siitä, että appelsiinisadot Etelä-Amerikassa ovat olleet huonoja. Satoa ovat heikentäneet esimerkiksi huono sää ja kasvitaudit, kertoo päivittäistavarakaupan osto- ja myyntijohtaja Janne Vuorinen Keskosta.
+
+Kun appelsiinimehu on kallistunut, asiakkaat ovat vaihtaneet halvempaan mehuun.
+
+K-kauppias Petri Miettinen kertoo, että esimerkiksi omenamehun myynti on kasvanut.
+
+Hiihtolomat
+-----------
+
+Nyt asiaa hiihtoloman hinnasta.
+
+Pohjoisen hiihtokeskuksissa on nyt vilkasta, kun talvilomasesonki on alkanut.
+
+Sesonki nostaa majoitusten ja palvelujen hintoja. Lomaviikko Lapissa voi maksaa tuhansia euroja.
+
+Kati Rantala, Yle, Levi:
+
+\- Osaatko arvioida noin suurin piirtein, paljonko kuluu yhteensä?
+
+Kati ja Noora Heikkilä, Helsinki:
+
+\- Varmaan pari tonnia.
+
+\- Yli pari tonnia varmaan. Majoitus, hissiliput on kallistunut, Välineiden vuokraus ei ollut ehkä niin paljon kallistunut. Ja sitten toki ruokailut.
+
+Andre Silfver, Raasepori:
+
+\- Kyllähän meillä oli tietty joku budjetti mutta kyllä se aina paukkuu yli tietenkin, kun tässä touhuskelee. Kyllä siinä ainakin tonneja menee.
+
+Keskiviikon sää
+---------------
+
+Heikkoa lumisadetta sataa pohjoisessa.
+
+Myös paikoin etelämpänä voi sataa hyvin vähän lunta. Pilvisyys on runsasta koko maassa.
+
+Keskiviikkoillaksi lännestä saapuu uusi lumisadealue.
+
+Lämpötila on koko maassa +1 ja -12 asteen välillä.
+

@@ -1,1 +1,75 @@
+# Selkouutiset | tiistai 2.1.2024
 
+Presidentin uudenvuodenpuhe. Musiikkitalon urut. Pakkanen. Sääennuste.
+
+**Ylen Selkouutiset ovat uudistuneet.** Tällä sivulla julkaistaan
+arkipäivinä TV:n selkouutisten video ja tekstit. Lauantaisin ja
+sunnuntaisin tehdään radioon Uutisviikko selkosuomeksi -ohjelma, jonka
+kuuntelu ja teksti julkaistaan tällä sivulla. Ensimmäiset Uutisviikko
+selkosuomeksi -ohjelmat tehdään lauantaina tammikuun 13. päivä ja
+sunnuntaina tammikuun 14. päivä.
+
+## Presidentin uudenvuodenpuhe
+
+Aluksi uutinen presidentin uudenvuodenpuheesta.
+
+Presidentti **Sauli Niinistö** on pitänyt uudenvuodenpuheen.
+
+Niinistö toivoo, että Eurooppa ottaa enemmän vastuuta omasta
+turvallisuudesta. Esimerkiksi asetuotantoa pitää lisätä, että Eurooppa
+on vahva.
+
+”Sitä tarvitaan vakuuttamaan, että Eurooppa on vahva.”
+
+Maailmalla on epävarmuutta, mutta Suomen turvallisuus on hyvä. Suomen
+armeija on kunnossa. Suomi on Naton jäsen. Suomella on puolustuksesta
+yhteistyösopimus USA:n kanssa. Suomella on pitkä yhteistyö Pohjoismaiden
+kanssa. Presidentti Niinistö sanoo, että Suomi on varautunut hyvin.
+Monet maat haluavat ehkä ottaa Suomesta mallia.
+
+”Perustukset olivat hyvässä kunnossa, jo ennen Nato-jäsenyyttä. Jopa
+niin, että tuo Suomen malli saa nyt kovasti huomiota. Suomalaistuminen
+saattaa olla monille kokonaisturvallisuuden osalta hyvä tavoite.”
+
+Presidentti Sauli Niinistö on pitänyt uudenvuodenpuheen. Puhe oli
+Niinistön viimeinen.
+
+Puheen lopuksi Niinistö toivoi, että suomalaiset ovat toisilleen
+reiluja, ymmärtävät toisiaan ja kunnioittavat ihmisyyttä ja luottamusta.
+
+## Musiikkitalon uudet konserttiurut
+
+Nyt uutinen kulttuurista.
+
+Helsingin Musiikkitalon urut ovat valmistuneet.
+
+Urkujen rakentaminen kesti 6 vuotta. Uruissa on melkein 8000 urkupilliä.
+Musiikkitalon urut ovat modernit konserttiurut. Uruissa on paljon
+tietotekniikkaa. Urkuja voi esimerkiksi korjata etänä ja soittaa
+matkapuhelimella.
+
+Helsingin Musiikkitalon urut ovat valmistuneet. Urut maksoivat noin 4,5
+miljoonaa euroa. Urut ovat osa Musiikkitalon arkkitehtuuria. Uusille
+uruille on sävelletty yli 100 sävellystä.
+
+## Kovat pakkaset
+
+Lopuksi uutinen kovista pakkasista.
+
+Suomessa on nyt tosi kylmää. Pohjoisessa pakkasta on yli 30 astetta.
+Viime yönä tehtiin talven pakkasennätys. Ylivieskassa lämpötila oli -38
+astetta.
+
+Suomessa on nyt tosi kylmää. Kylmä sää haittaa työskentelyä
+rakennustyömailla. Monia töitä ei voi tehdä, koska on liian kylmä.
+
+Pakkanen on aiheuttanut ongelmia myös junaliikenteelle.
+
+## Sää
+
+Vielä sääennuste.
+
+Sää on kylmää koko maassa. Etelässä pakkasta on noin 20 astetta.
+Pohjoisessa pakkasta on noin 30 astetta.
+
+Pilvisyys on vaihtelevaa. Lännessä paistaa aurinko.

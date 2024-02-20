@@ -1,11 +1,10 @@
-Radio Selkouutiset keskiviikko 13.12.2023
------------------------------------------
+## Radio Selkouutiset keskiviikko 13.12.2023
 
 YK:n ilmastokokous. Torstain lakot. Presidentinvaalien kannatusmittaus. Lucian päivä. Sää
 
 ### YK:n ilmastokokous
 
-![YK:n ilmastokokouksen puheenjohtaja Sultan Al Jaber. Kuva: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3312,w_5889,x_0,y_92/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702452877/39-121463665795d88c3567)
+![YK:n ilmastokokouksen puheenjohtaja Sultan Al Jaber. Kuva: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3312,w_5889,x_0,y_92/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702452877/39-121463665795d88c3567){.aw-108q8uy .hXqXJz}
 
 YK:n ilmastokokous Dubaissa on hyväksynyt historiallisen päätöslauselman.
 
@@ -15,7 +14,7 @@ Päätöslauselman mukaan fossiilisesta energiajärjestelmästä pitää siirty�
 
 ### Torstain lakkopäivä
 
-![Laajat lakot sekoittavat huomenna julkista liikennettä. Kuva: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1900,w_3379,x_0,y_654/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701335434/39-1208808656845cd0862c)
+![Laajat lakot sekoittavat huomenna julkista liikennettä. Kuva: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1900,w_3379,x_0,y_654/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701335434/39-1208808656845cd0862c){.aw-108q8uy .hXqXJz}
 
 Suomessa on huomenna, torstaina, iso lakkopäivä.
 
@@ -43,7 +42,7 @@ Presidentinvaalit pidetään tammikuussa.
 
 ### Lucian päivä
 
-![Lucia-neito Madeleine Amoroso sai päähänsä kynttiläkruunun. Kuva: Yle / Marcus Rosenlund](https://images.cdn.yle.fi/image/upload/c_crop,h_2187,w_3888,x_0,y_224/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702484026/39-12150946579cd140b42c)
+![Lucia-neito Madeleine Amoroso sai päähänsä kynttiläkruunun. Kuva: Yle / Marcus Rosenlund](https://images.cdn.yle.fi/image/upload/c_crop,h_2187,w_3888,x_0,y_224/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702484026/39-12150946579cd140b42c){.aw-108q8uy .hXqXJz}
 
 Tänään on vietetty Lucian päivää.
 
@@ -53,7 +52,7 @@ Lucia-neito vierailee talven aikana esimerkiksi kouluissa, sairaaloissa ja vanha
 
 ### Sää
 
-![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702474076/39-12149876579b12fb0574)
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702474076/39-12149876579b12fb0574){.aw-108q8uy .hXqXJz}
 
 Huomenna torstaina maan etelä- ja itäosassa sataa vähän lunta. Lännessä ja Lapissa on poutaa.
 

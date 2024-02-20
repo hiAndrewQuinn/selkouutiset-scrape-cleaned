@@ -1,11 +1,10 @@
-Radio Selkouutiset 28.12.2023
------------------------------
+## Radio Selkouutiset 28.12.2023
 
 Uusia lakkoja. Digitaaliset terveyspalvelut. Kalastuslaki. Tervehtiminen. Sää.
 
 ### Uusia lakkoja
 
-![Nesteen jalostamo Porvoossa. Kuva: Kristiina Lehto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1681,w_2993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702300320/39-12138016576fb51b07a7)
+![Nesteen jalostamo Porvoossa. Kuva: Kristiina Lehto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1681,w_2993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702300320/39-12138016576fb51b07a7){.aw-1l9m598 .bTKagC}
 
 Työntekijäjärjestöt jatkavat poliittisia lakkoja hallitusta vastaan.
 
@@ -19,7 +18,7 @@ Liitot vastustavat hallituksen työmarkkinauudistuksia ja sosiaaliturvan leikkau
 
 ### Digitaaliset terveyspalvelut
 
-![Digiklinikalla potilas on yhteydessä lääkäriin tai hoitajaan esimerkiksi chatin kautta. Kuva: Marjo Pirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_322/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1604918011/39-7397865fa91a1814b97)
+![Digiklinikalla potilas on yhteydessä lääkäriin tai hoitajaan esimerkiksi chatin kautta. Kuva: Marjo Pirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_322/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1604918011/39-7397865fa91a1814b97){.aw-1l9m598 .bTKagC}
 
 Digitaalinen asiointi terveyspalveluissa yleistyy.
 
@@ -31,7 +30,7 @@ Digitaalisissa terveyspalveluissa asiakas on yhteydessä lääkäriin tai hoitaj
 
 ### Kalastuslaki
 
-![Hauki- ja kuhasaalista Laukaan Leppävedeltä viime tammikussa Kuva: Timo Hytönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_378/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674123240/39-106135163c9174eed3bc)
+![Hauki- ja kuhasaalista Laukaan Leppävedeltä viime tammikussa Kuva: Timo Hytönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_378/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674123240/39-106135163c9174eed3bc){.aw-1l9m598 .bTKagC}
 
 Kalastuslaki muuttuu vuodenvaihteessa. Uudella lailla halutaan vähentää saaliskalojen kärsimystä.
 
@@ -39,7 +38,7 @@ Lain mukaan saaliskala tai kala, jota käytetään syöttinä, pitää lopettaa 
 
 ### Tervehtiminen
 
-![ Kuva: Asmo Raimoaho / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_607,w_1080,x_0,y_927/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702994422/39-121794065819bf54efd4)
+![ Kuva: Asmo Raimoaho / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_607,w_1080,x_0,y_927/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702994422/39-121794065819bf54efd4){.aw-1l9m598 .bTKagC}
 
 Suomalaiset tervehtivät tuttua ihmistä eri tavoin kuin tuntematonta.
 
@@ -51,7 +50,7 @@ Myös alueellisia eroja on. Esimerkiksi Itä-Suomessa, Kainuussa, Oulun seudulla
 
 ### Perjantain sää
 
-![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703768882/39-1221125658d730b8605a)
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703768882/39-1221125658d730b8605a){.aw-1l9m598 .bTKagC}
 
 Perjantaina maan keski- ja pohjosassa on pääosin poutaa. Etelässä on pilvistä ja vähän voi sataa lunta.
 

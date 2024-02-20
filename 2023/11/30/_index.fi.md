@@ -1,5 +1,4 @@
-Radio Selkouutiset torstai 30.11.2023
--------------------------------------
+## Radio Selkouutiset torstai 30.11.2023
 
 Suomen itäraja. Fazer irtisanoo. Puolueiden kannatusmittaus. YK:n ilmastokokous. Ennätyslämmin vuosi. Perjantain sää.
 

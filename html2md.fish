@@ -39,6 +39,7 @@ end
 function html2md
     set source_file $argv[1]
     set dest_file $argv[2]
+    touch $dest_file
 
     set tmp_md_file (mktemp).UNPROCESSED.md
     pandoc -f html -t commonmark --wrap=none $source_file >$tmp_md_file
@@ -66,20 +67,28 @@ function html2md
         set selection (echo $choices | fzf --prompt="Which pipeline should we use?" --preview="bat --color=always -pp {}" --preview-window=right:50%)
 
         switch $selection
-            case TV
-                cat $dest_file_tv >$dest_file
-            case Radio
-                cat $dest_file_radio >$dest_file
+            case $dest_file_tv
+                mv $dest_file_tv $dest_file
+            case $dest_file_radio
+                mv $dest_file_radio $dest_file
+            case $tmp_md_file
+                mv $tmp_md_file $dest_file
         end
     else if $has_tv
         set_color green
         echo "# TV :: $source_file"
         set_color normal
-        cat $source_file | process_tv_file >$dest_file
+        cat $tmp_md_file | process_tv_file >$dest_file
     else if $has_radio
         set_color blue
         echo "Radio $source_file"
         set_color normal
-        cat $source_file | process_radio_file >$dest_file
+        cat $tmp_md_file | process_radio_file >$dest_file
     end
+
+    echo "Printing $dest_file ..."
+    bat -pp --color=always $dest_file | head
+    echo ""
+    echo ""
+    echo ""
 end

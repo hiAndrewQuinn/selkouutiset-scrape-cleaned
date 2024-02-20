@@ -1,1 +1,66 @@
+# TV\| Selkouutiset \| tiistai 30.1.2024
+
+Presidentinvaalit. Metalliala. Öljyonnettomuuden riski. Sää.
+
+Voit lukea uutiset alta.
+
+## Presidentinvaalit
+
+Ensin uutinen presidentinvaaleista.
+
+Presidentinvaalien toisen kierroksen kampanjat alkoivat maanantaina.
+
+Toisella kierroksella ovat kokoomuksen **Alexander Stubb** ja valitsijayhdistyksen **Pekka Haavisto**.
+
+Alexander Stubb kutsui ihmiset kävelemään Helsingin keskustaan.
+
+Stubb sanoi, että hän aikoo kampanjoida samalla tavalla kuin ensimmäisellä kierroksella.
+
+Myös Pekka Haavisto aloitti kampanjan Helsingin keskustassa.
+
+Hän sanoi, että toisen kierroksen vaalitenteissä on paremmin aikaa puhua, kun ehdokkaita on vain kaksi.
+
+Molempien ehdokkaiden täytyy houkutella uusia äänestäjiä.
+
+Ensimmäisellä kierroksella 1,5 miljoonaa suomalaista äänesti jotain muuta ehdokasta kuin Stubbia tai Haavistoa.
+
+## Metalliala
+
+Sitten uutinen työelämästä.
+
+Suomessa on liian vähän hyviä metallialan työntekijöitä.
+
+Metallialan firmat etsivät siksi esimerkiksi hitsaajia ja koneistajia ulkomailta.
+
+Suomessa koulutetaan kyllä ihmisiä metallialalle, mutta monet heistä ovat työttömiä.
+
+Metallialan firmat sanovat, että se kertoo alan koulutuksen ongelmista.
+
+Kaikki opiskelijat eivät opi metallialan kouluissa hyvää ammattitaitoa.
+
+Hyviä metallialan työntekijöitä on Suomessa liian vähän.
+
+Siksi esimerkiksi hitsaajia ja koneistajia etsitään ulkomailta.
+
+Metallialan firmat tekevät esimerkiksi moottoreiden ja koneiden osia.
+
+## Öljyonnettomuuden riski
+
+Sitten uutinen Suomenlahdesta
+
+Öljyonnettomuuden riski Suomenlahdella on kasvanut.
+
+Syy on se, että Venäjä vie Suomenlahdella öljyä laivoilla, jotka eivät ehkä sovi talviolosuhteisiin.
+
+Venäjä käyttää esimerkiksi afrikkalaisia laivoja, koska länsimaalaiset firmat eivät enää kuljeta Venäjän öljyä.
+
+Syy on Venäjän hyökkäys Ukrainaan.
+
+Viranomaiset sanovat, että öljyonnettomuuden riski Suomenlahdella on kasvanut.
+
+Öljyonnettomuus on Itämeren suurin ympäristöuhka.
+
+## Sää
+
+Vielä sääennuste. Lämpötila on lähellä nollaa koko maassa. Lapissa voi sataa vähän lunta.
 

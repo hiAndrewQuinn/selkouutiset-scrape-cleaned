@@ -1,11 +1,10 @@
-Radio \| Selkouutiset \| torstai 7.12.2023
-------------------------------------------
+## Radio \| Selkouutiset \| torstai 7.12.2023
 
 SAK:n lakkosuunnitelmat. Poliisin toiminta itenäisyyspäivänä. Linnan juhlien suosio. Kauppaneuvos Tiivola kuollut. Sää.
 
 ### SAK:n lakkosuunnitelmat
 
-![SAK:n puheenjohtaja Jarkko Eloranta. Kuva: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2218,w_3943,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701939038/39-12120456571873a79ad2)
+![SAK:n puheenjohtaja Jarkko Eloranta. Kuva: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2218,w_3943,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701939038/39-12120456571873a79ad2){.aw-91onpl .bRLZhq}
 
 Työntekijöiden järjestö SAK suunnittelee lakkoja. Jos lakkoja järjestetään, ne alkavat ensi viikon torstaina ja kestävät aina yhden päivän.
 
@@ -15,7 +14,7 @@ Pääministeri Petteri Orpo ei pidä SAK:n lakkosuunnitelmista. Orpo sanoo, ett�
 
 ### Poliisin toiminta itsenäisyyspäivänä
 
-![Poliiseja Töölöntorilla 6.12.2023. Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701900466/39-12117966570f06aad394)
+![Poliiseja Töölöntorilla 6.12.2023. Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701900466/39-12117966570f06aad394){.aw-91onpl .bRLZhq}
 
 Helsingissä Töölöntorilla järjestettiin itsenäisyyspäivänä 2 mielenosoitusta. Nyt keskustellaan poliisin toiminnasta mielenosoittajia vastaan.
 
@@ -25,7 +24,7 @@ Poliisi tyhjensi Töölöntorin, jotta eri mielenosoitusten osallistujat eivät 
 
 ### Linnan juhlien suosio
 
-![Presidenttipari kätteli 1700 vierasta. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701887140/39-12116406570bc5211c62)
+![Presidenttipari kätteli 1700 vierasta. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701887140/39-12116406570bc5211c62){.aw-91onpl .bRLZhq}
 
 Itsenäisyyspäivän Linnan juhlat kiinnostivat ihmisiä myös tänä vuonna. Yli 3 miljoonaa ihmistä katsoi Linnan juhlia televisiosta.
 
@@ -39,7 +38,7 @@ Sauli Niinistö ja Jenni Haukio kertoivat Ylen haastattelussa, että Linnan juhl
 
 ### Satu Tiivola kuollut
 
-![Satu Tiivola Linnan juhlissa vuonna 1984. Kuva: Martti Juntunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1900,w_3386,x_0,y_68/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701970254/14-svyle-148735531974f1c7f7f)
+![Satu Tiivola Linnan juhlissa vuonna 1984. Kuva: Martti Juntunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1900,w_3386,x_0,y_68/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701970254/14-svyle-148735531974f1c7f7f){.aw-91onpl .bRLZhq}
 
 Kauppaneuvos Satu Tiivola on kuollut. Tiivola oli 99-vuotias.
 
@@ -49,7 +48,7 @@ Haikon kartano on Porvoossa. Satu Tiivola perusti Haikon kartanon 1960-luvulla.
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701970344/39-121246965720191c5355)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701970344/39-121246965720191c5355){.aw-91onpl .bRLZhq}
 
 Itsenäisyyspäivän jälkeinen yö oli kylmä erityisesti pohjoisessa. Lapissa oli paikoin yli 30 astetta pakkasta.
 

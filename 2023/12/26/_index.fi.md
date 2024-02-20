@@ -1,11 +1,10 @@
-Radio \| Selkouutiset \| tiistai 26.12.2023
--------------------------------------------
+## Radio \| Selkouutiset \| tiistai 26.12.2023
 
 Presidenttiehdokkaat. Sota Ukrainassa. Joulun liikenne. Suomalaisten jalat. Sää.
 
 ### Presidenttiehdokkaat
 
-![ Kuva: Leena Luotio / Yle, Hilppa Hyrkäs / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703585205/39-1220354658aa55111eb6)
+![ Kuva: Leena Luotio / Yle, Hilppa Hyrkäs / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703585205/39-1220354658aa55111eb6){.aw-1l9m598 .bTKagC}
 
 Presidenttiehdokkaat ovat erimielisiä siitä, onko Suomessa liian helppo elää yhteiskunnan tuilla.
 
@@ -21,7 +20,7 @@ Presidentinvaalit ovat 28. päivä tammikuuta
 
 ### Sota Ukrainassa
 
-![Kuvassa on venäläisten sotalaiva, jota Ukraina ampui ohjuksella. Kuva: EPA/SEDAT SUNA](https://images.cdn.yle.fi/image/upload/c_crop,h_1869,w_3324,x_0,y_35/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703579070/39-1220342658a8d26acafc)
+![Kuvassa on venäläisten sotalaiva, jota Ukraina ampui ohjuksella. Kuva: EPA/SEDAT SUNA](https://images.cdn.yle.fi/image/upload/c_crop,h_1869,w_3324,x_0,y_35/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703579070/39-1220342658a8d26acafc){.aw-1l9m598 .bTKagC}
 
 Ukraina on todennäköisesti tuhonnut ison venäläisen sotalaivan Mustallamerellä.
 
@@ -35,7 +34,7 @@ Venäjä aloitti sodan Ukrainassa helmikuussa 2020.
 
 ### Joulun liikenne
 
-![Jouluna autoteillä on paljon liikennettä. Kuva: Antti Aimo-Koivisto / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2520,w_4480,x_0,y_464/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703345255/39-12200926586fc12360d0)
+![Jouluna autoteillä on paljon liikennettä. Kuva: Antti Aimo-Koivisto / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2520,w_4480,x_0,y_464/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703345255/39-12200926586fc12360d0){.aw-1l9m598 .bTKagC}
 
 Joulun pyhäpäivät päättyvät tänään tiistaina.
 
@@ -47,7 +46,7 @@ Eniten liikennettä on ollut iltapäivällä. Liikenne isoimmilla teillä jatkuu
 
 ### Suomalaisten jalat
 
-![Isoja kenkiä myydään paljon. Kuva: Simo Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2800,w_4979,x_0,y_254/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695988704/39-1090454641edb4ca3dcc)
+![Isoja kenkiä myydään paljon. Kuva: Simo Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2800,w_4979,x_0,y_254/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695988704/39-1090454641edb4ca3dcc){.aw-1l9m598 .bTKagC}
 
 Suomalaisten jalat ovat kasvaneet. Miehet ja naiset ostavat isompia kenkiä kuin ennen
 

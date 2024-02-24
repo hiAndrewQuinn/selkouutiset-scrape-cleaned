@@ -1,16 +1,204 @@
 {
-  "error": {
-    "code": 401,
-    "message": "Request had invalid authentication credentials. Expected OAuth 2 access token, login cookie or other valid authentication credential. See https://developers.google.com/identity/sign-in/web/devconsole-project.",
-    "errors": [
+  "data": {
+    "translations": [
       {
-        "message": "Invalid Credentials",
-        "domain": "global",
-        "reason": "authError",
-        "location": "Authorization",
-        "locationType": "header"
+        "translatedText": "# Radio \\| News week in plain Finnish \\| Sunday 21 January 2024"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Big strikes in February. Strikes are political. A tough fight. Repeat."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Here is Uutisviikko in plain Finnish and Tuukka Lukinmaa."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "There are big strikes in Finland at the beginning of February. Trade unions organize strikes because they oppose government policies."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Now we will tell you more about the dispute between the trade unions and the government."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Big strikes in February"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "![The photo is from the port of Turku. There was a short strike in December. Photo: Samuli Holopainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_448/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702537699/39-1215303657aa4a0c8030){.aw-1l9m598 .bTKagC}"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The workers' organizations, i.e. trade unions, organize big strikes at the beginning of February. The strikes last two days."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "At least 70,000 workers in more than 700 workplaces will then be on strike."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "There are strikes, for example, in factories, shops and many other places."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Air traffic also stops, and buses do not run normally."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Strikes are political"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "![For example, trade unionist Tehy opposes the government's policy. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2811,w_4999,x_0,y_296/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1695377004/39-1175736650d65a34214f){.aw-1l9m598 .bTKagC}"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The unions' strikes at the beginning of February are political."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "It means that unions go on strike because they oppose government policies."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "According to the trade unions, the government wants to weaken the position of the employee."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The government has many plans that concern working life."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "For example, the government plans to make it easier to fire an employee in the future."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The government also wants to influence what kind of wage increases are made in Finland."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In addition, the government intends to weaken unemployment security, for example."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The government says that it is trying to reform Finland's working life because it has big problems. For example, too many people are unemployed in Finland."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The majority of Finnish companies say that the government's plans are good."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## A tough fight"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "![Arto Satonen of the Kokooomus party is the minister of labor in the government. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2811,w_4999,x_0,y_272/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1692865400/39-116165964e712115a558){.aw-1l9m598 .bTKagC}"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The trade unions oppose the government's plans and are therefore organizing large strikes in early February."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The dispute between the government and the trade unions is big."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The government says it wants people to work. The government also says that the trade unions cannot decide what kind of policy the governments in Finland make."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The trade unions, on the other hand, say that they can organize even bigger strikes in the future."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Repeat"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "This time, Uutisvikiko's topic has been political strikes. Let's repeat the most important things."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The trade unions are organizing big strikes at the beginning of February."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The reason for the strikes is that the trade unions oppose the government's policies."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "This was Uutisviikko in clear Finnish. See you again, by the way!"
+      },
+      {
+        "translatedText": ""
       }
-    ],
-    "status": "UNAUTHENTICATED"
+    ]
   }
 }

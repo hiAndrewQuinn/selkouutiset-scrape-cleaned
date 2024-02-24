@@ -1,16 +1,204 @@
 {
-  "error": {
-    "code": 401,
-    "message": "Request had invalid authentication credentials. Expected OAuth 2 access token, login cookie or other valid authentication credential. See https://developers.google.com/identity/sign-in/web/devconsole-project.",
-    "errors": [
+  "data": {
+    "translations": [
       {
-        "message": "Invalid Credentials",
-        "domain": "global",
-        "reason": "authError",
-        "location": "Authorization",
-        "locationType": "header"
+        "translatedText": "# TV\\| Clear news \\| Tuesday 30 January 2024"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Presidential elections. Metal industry. Risk of an oil accident. Weather."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "You can read the news below."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Presidential elections"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "First, news about the presidential election."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The campaigns for the second round of the presidential elections started on Monday."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In the second round are the coalition's **Alexander Stubb** and the voters' association **Pekka Haavisto**."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Alexander Stubb invited people to walk in the center of Helsinki."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Stubb said he plans to campaign the same way he did in the first round."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Pekka Haavisto also started a campaign in the center of Helsinki."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "He said that there is better time to speak in the second round of election exams when there are only two candidates."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Both candidates must attract new voters."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In the first round, 1.5 million Finns voted for a candidate other than Stubb or Haavisto."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Metal industry"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Then news about working life."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "There are too few good workers in the metal industry in Finland."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Companies in the metal industry therefore look for welders and machinists from abroad, for example."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "People are trained in the metal industry in Finland, but many of them are unemployed."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Companies in the metal industry say that it tells about the problems of education in the industry."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Not all students learn good professional skills in metalworking schools."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "There are too few good workers in the metal industry in Finland."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "That is why, for example, welders and machinists are being sought from abroad."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Companies in the metal industry make parts for engines and machines, for example."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Oil accident risk"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Then news from the Gulf of Finland"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The risk of an oil accident in the Gulf of Finland has increased."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The reason is that Russia exports oil in the Gulf of Finland with ships that may not be suitable for winter conditions."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Russia uses African ships, for example, because Western companies no longer transport Russian oil."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The reason is Russia's attack on Ukraine."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The authorities say that the risk of an oil accident in the Gulf of Finland has increased."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "An oil accident is the biggest environmental threat to the Baltic Sea."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Weather"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Another weather forecast. The temperature is close to zero throughout the country. It may snow a little in Lapland."
+      },
+      {
+        "translatedText": ""
       }
-    ],
-    "status": "UNAUTHENTICATED"
+    ]
   }
 }

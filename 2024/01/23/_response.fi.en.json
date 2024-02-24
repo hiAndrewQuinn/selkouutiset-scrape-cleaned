@@ -1,16 +1,210 @@
 {
-  "error": {
-    "code": 401,
-    "message": "Request had invalid authentication credentials. Expected OAuth 2 access token, login cookie or other valid authentication credential. See https://developers.google.com/identity/sign-in/web/devconsole-project.",
-    "errors": [
+  "data": {
+    "translations": [
       {
-        "message": "Invalid Credentials",
-        "domain": "global",
-        "reason": "authError",
-        "location": "Authorization",
-        "locationType": "header"
+        "translatedText": "# TV \\| Clear news \\| Tuesday 23 January 2024"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Kindergarten strike. ADHD. The young people of Myyrmäki. Weather."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Kindergarten strike"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "First, the strike news."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Kindergartens in the Helsinki region will be on strike next week."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The workers' unions announced the strike today."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The strike lasts 2 days. Daycare workers will not work on Wednesday and Thursday next week."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The strike does not apply to, for example, family day care or care assistance services."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Kindergartens in the Helsinki region will be on strike next week."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "With the help of the strike, the trade unions oppose the government's policy."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The government wants to influence, for example, how large salary increases are made in Finland."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In the opinion of the trade unions, the workers in the nursing sector, who have low salaries, suffer from it."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "(Clarification: The trade unions later said that the strike also applies to family day care.)"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## ADHD in children and adolescents"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Then the topic is ADHD, i.e. activity and attention disorder."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The number of children and young people with ADHD has increased."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In 2022, more than 8 percent of boys and more than 3 percent of girls had an ADHD diagnosis."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The number of ADHD cases has increased rapidly."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "One reason for this is that doctors are better able to find cases of ADHD than before."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In addition, the environment has changed so that children's restlessness increases."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Children don't always get enough sleep and exercise, but they use their smartphones too much."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## The young people of Myyrmäki"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Finally, news from Vantaa."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In Vantaa's Myyrmäki, it has been possible to reduce the violence experienced by young people."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The Myyrmäki mosque is also involved in the work."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The imam of the mosque, Sharmarke Said Aw-Musse, says that the mothers of the young people wished for more spaces and hobbies for the young people."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "That's why the Myyrmäki mosque and organizations started organizing activities for young people. The city of Vantaa has supported the work."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "With the help of cooperation, Myyrmäki has succeeded in reducing youth violence."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "(Imam Sharmarke Said Aw-Musse)"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "*- We want to promote this society and give young people from different backgrounds a message that they belong to this society and Finland is their country.*"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Weather"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Another weather forecast."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Wet snow is falling in the southern part of the country. Elsewhere it's dusty. The sun is shining in Lapland."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The temperature is freezing in the northern part of the country. In the southern and central parts of the country, the temperature is close to zero."
+      },
+      {
+        "translatedText": ""
       }
-    ],
-    "status": "UNAUTHENTICATED"
+    ]
   }
 }

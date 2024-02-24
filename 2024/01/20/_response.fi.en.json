@@ -1,16 +1,192 @@
 {
-  "error": {
-    "code": 401,
-    "message": "Request had invalid authentication credentials. Expected OAuth 2 access token, login cookie or other valid authentication credential. See https://developers.google.com/identity/sign-in/web/devconsole-project.",
-    "errors": [
+  "data": {
+    "translations": [
       {
-        "message": "Invalid Credentials",
-        "domain": "global",
-        "reason": "authError",
-        "location": "Authorization",
-        "locationType": "header"
+        "translatedText": "# Radio \\| News week in plain Finnish \\| Saturday 20 January 2023"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The people elect the president. Voting is easy. First round. Repeat."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The topic of the news week this time is the presidential election. A new president will soon be elected in Finland."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Election day is a week from now on Sunday. In the elections, we all get to participate in choosing a new president."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Now we will tell you more about the presidential election and voting."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## The people elect the president"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "![There are 9 candidates in the presidential election. Photo: Photos: Jani Aarnio / Yle, Ari Haimakainen / Yle, Petteri Bülow / Yle, Grigory Vorobyev / Yle, Silja Viitala / Yle, Henrietta Hassinen / Yle, Antti Haanpää / Yle, Minna Rosvall / Yle, graphics: Hilppa Hyrkäs / Yle , photo collage: Miku Huttunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0 /q_auto:eco/f_auto/fl_lossy/v1705677559/39-123063565aa91d0f178e){.aw-1l9m598 .bTKagC}"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In Finland, we all choose the decision-makers together. So Finland is a democratic country."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The president is elected every 6 years. This time there are 9 candidates. The candidates are 6 men and 3 women."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Candidates are candidates of parties or voter associations."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Ordinary people can form a voter association to support a candidate in the presidential election."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The presidential candidates travel around Finland. All the candidates want to tell people why he will be a good president."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Voting is easy"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "![Ballot box. Photo: Pertti Huotari / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1680452718/39-107346663ede1378da48){.aw-1l9m598 .bTKagC}"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "In Finland, all adults can vote in presidential elections."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "However, no one needs to tell others who to vote for. There is an election secret in Finland."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Voting at polling stations is easy."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "More instructions can be found in the plain-language brochure that the Ministry of Justice has made with Selkokeskus."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The brochure can be found at selkokeskus.fi."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## First round"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "![The presidential palace is the president's workplace. Photo: Pekka Tynell / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3115,w_5537,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1575530180/39-6193715de8aea02c234){.aw-1l9m598 .bTKagC}"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "It will soon become clear who will be the new president of Finland. The first voting round of the presidential election is a week from now on Sunday."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The president is already clear if one of the candidates gets more than 50 percent of the votes."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "If none of the candidates gets enough votes in the first round of voting, a second round is required."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "Only the 2 most popular candidates make it to the second round."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "## Repeat"
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "This time the topic has been the presidential election. Let's repeat the most important things."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "There are presidential elections in Finland soon."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "All adult citizens are allowed to vote."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "The new president is the one that more than half of the voters support."
+      },
+      {
+        "translatedText": ""
+      },
+      {
+        "translatedText": "This was Utisviikko in clear Finnish See you again, by the way!"
+      },
+      {
+        "translatedText": ""
       }
-    ],
-    "status": "UNAUTHENTICATED"
+    ]
   }
 }

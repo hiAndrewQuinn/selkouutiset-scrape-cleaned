@@ -18,7 +18,7 @@ This is how Leo Hara, the chief trustee:
 
 The government intends to weaken social security and workers' rights.
 
-For example, the government intends to change the rules of sick leave so that the employee will no longer receive a salary from the first day of sick leave.
+For example, the government intends to change the rules of sick leave so that the employee will no longer receive salary from the first day of sick leave.
 
 In addition, the government plans to make it easier to fire an employee.
 

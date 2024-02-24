@@ -38,7 +38,7 @@ Pekka Haavisto tells Yle that his role model in foreign policy is former UN Secr
 
 ## Hobbies
 
-![Pekka Haavisto enjoys literature. He has also written many books. Photo: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_333/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706880554/39-111453564634af73a9c7){.aw-1l9m598 .bTKagC}
+![Pekka Haavisto enjoys literature. He has also written many books. Image: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_333/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706880554/39-111453564634af73a9c7){.aw-1l9m598 .bTKagC}
 
 Pekka Haavisto's hobbies are literature, wooden boats and bubble volkars, i.e. Volkswagen Kupla cars.
 

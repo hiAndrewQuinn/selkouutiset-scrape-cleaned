@@ -26,14 +26,16 @@ end
 
 ```fish
 # ☁️ gcloud + Google Translate API ONLY, `curl` is to test.
+set GCP_SELKOUUTISET_ARCHIVE_PROJECT 'andrews-selkouutiset-archive'
 curl -X POST \
           -H "Authorization: Bearer $(gcloud auth print-access-token)" \
-          -H "x-goog-user-project: andrews-selkouutiset-archive" \
+          -H "x-goog-user-project: $GCP_SELKOUUTISET_ARCHIVE_PROJECT" \
           -H "Content-Type: application/json; charset=utf-8" \
           -d @2023/11/11/_request.fi.en.json \
-          "https://translation.googleapis.com/language/translate/v2"
+          "https://translation.googleapis.com/language/translate/v2" | jq .
 
-fish translation-code/generate-translations.fish
+# Now we actually send the requests to the cloud.
+fish translation-code/generate-translations.fish $GCP_SELKOUUTISET_ARCHIVE_PROJECT
 fd '_response\...\...\.json' | python translation-code/json2markdown.py
 ```
 

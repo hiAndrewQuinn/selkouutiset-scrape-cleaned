@@ -1,7 +1,7 @@
 #!/usr/bin/fish
 
 function process_tv_file
-    sed -n '/# TV/,$p' |
+    sed -n '/#.*TV/,$p' |
         tac |
         sed '0,/Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./d' |
         tac |
@@ -19,7 +19,7 @@ function process_tv_file
 end
 
 function process_radio_file
-    sed -n '/# Radio/,$p' |
+    sed -n '/#.*Radio/,$p' |
         tac |
         sed '0,/Yle Selkouutiset kertoo uutiset helpolla suomen kielellä./d' |
         tac |
@@ -44,8 +44,8 @@ function html2md
     set tmp_md_file (mktemp).UNPROCESSED.md
     pandoc -f html -t commonmark --wrap=none $source_file >$tmp_md_file
 
-    set has_tv (grep -q "# TV" $tmp_md_file; and echo true; or echo false)
-    set has_radio (grep -q "# Radio" $tmp_md_file; and echo true; or echo false)
+    set has_tv (grep -q "#.*TV" $tmp_md_file; and echo true; or echo false)
+    set has_radio (grep -q "#.*Radio" $tmp_md_file; and echo true; or echo false)
 
     if not $has_tv; and not $has_radio
         set_color red
@@ -76,12 +76,12 @@ function html2md
         end
     else if $has_tv
         set_color green
-        echo "# TV :: $source_file"
+        echo "#.*TV :: $source_file"
         set_color normal
         cat $tmp_md_file | process_tv_file >$dest_file
     else if $has_radio
         set_color blue
-        echo "Radio $source_file"
+        echo "#.*Radio $source_file"
         set_color normal
         cat $tmp_md_file | process_radio_file >$dest_file
     end

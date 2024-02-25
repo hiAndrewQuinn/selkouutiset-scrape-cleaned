@@ -1,7 +1,7 @@
 #!/usr/bin/env fish
 
 # Find all .en.json files and process them
-find . -name '*_index.en.md.json' | while read -l json_file
+find . -name '*index.en.md.json' | while read -l json_file
     echo "Processing $json_file"
     # Construct the Markdown file name
     set markdown_file (string replace ".en.md.json" ".en.md" $json_file)

@@ -57,7 +57,7 @@ def process_json_file(json_file_path: str):
 
     basedir = os.path.dirname(json_file_path)
     language_code = get_language_code(json_file_path)
-    md_file_path = f"{basedir}/_index.{language_code}.md"
+    md_file_path = f"{basedir}/index.{language_code}.md"
     typer.echo(f"{json_file_path} => {md_file_path}")
 
     with open(json_file_path, "r", encoding="utf-8") as file:

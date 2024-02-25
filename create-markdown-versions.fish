@@ -22,7 +22,7 @@ for source_file in (find $source_dir -type f -name "*.html")
     set dest_dir (echo $source_file | sed "s|$source_dir||" | sed 's|/[^/]*$||')
     mkdir -p $dest_dir
 
-    set dest_file "$dest_dir/_index.fi.md"
+    set dest_file "$dest_dir/index.fi.md"
 
     html2md $source_file $dest_file
 

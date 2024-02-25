@@ -43,14 +43,14 @@ fd '_response\...\...\.json' | python translation-code/json2markdown.py
 
 The bulk of this Git repo is contained in the `YYYY/MM/DD` folders. Each `YYYY/MM/DD` folder contains 2*n things, where n is the number of languages we are translating to (curently just Finnish and English).
 
-- `_index.source.md` is the Selkouutiset article, converted to Markdown, and translated into the appropriate language if necessary.
+- `index.source.md` is the Selkouutiset article, converted to Markdown, and translated into the appropriate language if necessary.
   - `source` is the langauge the article is in, as defined by the [ISO 639-1](https://en.wikipedia.org/wiki/List_of_ISO_639-1_codes) standard.
-  - `2023/10/25/_index.fi.md` is the Finnish-language version of the Selkouutiset articles from 2023.10.25.
-  - `2023/11/11/_index.en.md` is the English-language version of the Selkouutiset articles from 2023.11.11.
-- `_request.source.target.json` is a JSON file, generated from `_index.source.md` by a Python script, which contains the JSON request we send to the Google Translation API.
+  - `2023/10/25/index.fi.md` is the Finnish-language version of the Selkouutiset articles from 2023.10.25.
+  - `2023/11/11/index.en.md` is the English-language version of the Selkouutiset articles from 2023.11.11.
+- `_request.source.target.json` is a JSON file, generated from `index.source.md` by a Python script, which contains the JSON request we send to the Google Translation API.
   - `source` should match `jq '.source'` for the JSON file.
   - `target` should match `'.target'`.
-  - As an example, this file would be called `_index.fi.en.md`:
+  - As an example, this file would be called `index.fi.en.md`:
     ```json
     {
       "source": "fi",
@@ -64,7 +64,7 @@ The bulk of this Git repo is contained in the `YYYY/MM/DD` folders. Each `YYYY/M
 - `_response.source.target.json` is a JSON file, which contains the JSON response we get back from sending `_request.source.target.json` to the Google Translation API.
   - `source` should match `jq '.source'` for the JSON file.
   - `target` should match `'.target'`.
-  - As an example, this file would be called `_index.fi.en.md`:
+  - As an example, this file would be called `index.fi.en.md`:
     ```json
     {
       "data": {
@@ -77,7 +77,7 @@ The bulk of this Git repo is contained in the `YYYY/MM/DD` folders. Each `YYYY/M
     }
     ```
 
-⚠️: `_index.source.md` doesn't actually clue you in as to _which_ translation was used to generate it. For this simple project that's not a big deal, because I'm not interested in running my JSON requests through `fi` then `ar` then `es` then `fr` then `en` just to mangle `_index.en.md` up. But if you're doing something more complicated, you might want to keep track of this.
+⚠️: `index.source.md` doesn't actually clue you in as to _which_ translation was used to generate it. For this simple project that's not a big deal, because I'm not interested in running my JSON requests through `fi` then `ar` then `es` then `fr` then `en` just to mangle `index.en.md` up. But if you're doing something more complicated, you might want to keep track of this.
 
 ## Detailed instructions
 
@@ -101,7 +101,7 @@ Once we have a fresh set of HTML, we can then run
 fish create-markdown-versions.fish
 ```
 
-again while in the root of the `cleaned` repo, to run all of our HTML files through the `pandoc` and `sed` filters that eventually produce our nice and clean `_index.fi.md` files.
+again while in the root of the `cleaned` repo, to run all of our HTML files through the `pandoc` and `sed` filters that eventually produce our nice and clean `index.fi.md` files.
 
 In an automated environment, I usually run `create-markdown-versions` and then immediately commit the changes:
 

@@ -16,7 +16,7 @@ cd selkouutiset-scrape-cleaned
 fish update.fish
 
 rm .hash
-rm -rf 20*/
+rm -rf 2024/02  # does NOT work with all earlier versions out of the box sadly.
 fish create-markdown-versions.fish
 
 cat languages.txt | while read -l lang

@@ -3,6 +3,10 @@
 # This script is meant to be run with one argument, the Google Cloud project name.
 set GCP_SELKOUUTISET_ARCHIVE_PROJECT $argv[1]
 
+# A cheeky preprocessing step. We keep getting these weird curly braces in our
+# Markdown and JSON files, so we're just going to always remove them with this!
+find . \( -name "*.md" -o -name "*.json" \) | xargs -I _ -- sed -i _ -e 's/{[^{}]*}//g'
+
 # Use `fd` to find all .md.json files and pipe the results to the while loop
 fd '_request\...\...\.json' | while read -l file
     # Construct the name for the output file

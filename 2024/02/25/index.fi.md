@@ -1,0 +1,66 @@
+# Radio \| Uutisviikko selkosuomeksi \| sunnuntai 25.2.2024
+
+Nuoret miehet ja alkoholi
+
+Uutisviikon aiheena on nuorten miesten raitistuminen Suomessa.
+
+Nuoret miehet ovat raitistuneet, eli he juovat vähemmän alkoholia kuin ennen. Muutos on historiallinen.
+
+Nyt kerromme lisää nuorten miesten alkoholinkäytöstä.
+
+## Alkoholinkäytön historiallinen muutos
+
+![ Kuva: Joel Peltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1235,w_2197,x_0,y_893/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1690180005/39-114649464be1564d749e)
+
+Alkoholinkäytössä on Suomessa tapahtunut iso muutos. Aikuiset nuoret miehet juovat alkoholia vähemmän kuin ennen.
+
+Monet eivät enää halua tulla humalaan. Näin kertoo Terveyden ja hyvinvoinnin laitoksen kyselytutkimus.
+
+Aikaisemmin nuoret miehet käyttivät alkoholia enemmän ja useammin kuin nuoret naiset.
+
+Nyt raittiita nuoria miehiä on ensimmäistä kertaa ehkä vähän enemmän kuin raittiita nuoria naisia.
+
+Raitis ihminen ei käytä alkoholia.
+
+THL on tutkinut suomalaisten juomatapoja yli 50 vuotta. Uusin tutkimus osoittaa, että aiempaa useampi nuori haluaa nyt välttää humalaa.
+
+## Alkoholi, terveys ja some
+
+![ Kuva: Simo Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1966,w_3496,x_13,y_2057/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703836306/39-1221335658e750195d38)
+
+Nuoret miehet juovat vähemmän alkoholia, koska esimerkiksi terveys on heille tärkeää.
+
+Helsinkiläinen Arttu Ylitalo päätti ensin kokeilla kuukauden raittiutta. Hän aloitti samaan aikaan urheiluvalmennuksen.
+
+Siksi hän ymmärsi, että hän ei voi juoda alkoholia enää samalla tavalla kuin siihen saakka.
+
+Myös sosiaalinen media voi vähentää nuorten halua juoda alkoholia.
+
+Nuoret pelkäävät, että humalassa he tekevät jotakin tyhmää ja joku kuvaa sen videolle. Näin sanoo päihdetyön asiantuntija Maaret Väkinen.
+
+## Tipaton tammikuu
+
+![ Kuva: Riika Raitio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_756/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674578255/39-106336963d008c7ccb2d)
+
+Nuoria miehiä on haluttu kannustaa raittiutteen jo kauan.
+
+1940-luvulla aloitettiin Tipaton tammikuu -kampanja, jolla haluttiin tukea sotilaiden raittiutta. Se tarkoitti sitä, että tammikuussa ei juoda yhtään alkoholia.
+
+Tipatonta tammikuuta vietetään yhä.
+
+Noin 12 prosenttia aloittaa joka vuosi tipattoman tammikuun. Erityisesti alle 25-vuotiaat ovat tammikuussa ilman alkoholia.
+
+Useille käy niin, että tipaton jatkuu myös tammikuun jälkeen.
+
+THL arvioi, että nuorten aikuisten alkoholin kulutus voi jatkaa vähentymistä.
+
+## Kertaus
+
+Uutisviikon aihe oli nuorten miesten alkoholinkäyttö. Kerrataan vielä tärkeimmät asiat.
+
+Nuoret miehet eivät enää juo alkoholia yhtä paljon kuin ennen, eli he ovat raittiimpia. Monet ajattelevat terveyttä ja haluavat välttää humalaa.
+
+Muutos on historiallinen.
+
+Tämä oli Uutisviikko selkosuomeksi, tavataan taas. Kuulemiin!
+

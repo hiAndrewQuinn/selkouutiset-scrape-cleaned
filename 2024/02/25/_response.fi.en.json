@@ -1,0 +1,24 @@
+{
+  "error": {
+    "code": 400,
+    "message": "Required Text",
+    "errors": [
+      {
+        "message": "Required Text",
+        "domain": "global",
+        "reason": "required"
+      }
+    ],
+    "details": [
+      {
+        "@type": "type.googleapis.com/google.rpc.BadRequest",
+        "fieldViolations": [
+          {
+            "field": "q",
+            "description": "No text queries provided."
+          }
+        ]
+      }
+    ]
+  }
+}

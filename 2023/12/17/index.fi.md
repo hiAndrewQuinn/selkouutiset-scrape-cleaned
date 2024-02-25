@@ -4,7 +4,7 @@ Itäraja. Haudoilla käyminen. Omavero-huijaukset. Turkka Mali. Sää.
 
 ### Itäraja
 
-![Lappeenrannassa oli sunnuntaina mielenosoitus, joka vastusti itärajan sulkua. Kuva: Elli Sormunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702818568/39-1216789657ef20bc6692){.aw-108q8uy .hXqXJz}
+![Lappeenrannassa oli sunnuntaina mielenosoitus, joka vastusti itärajan sulkua. Kuva: Elli Sormunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702818568/39-1216789657ef20bc6692)
 
 Tilanne Suomen itärajalla on rauhoittunut. Suomi sulki rajan perjantaina. Suomeen on silti tullut rajan yli 2 ihmistä. Yksi ihminen kiipesi lauantaina Vaalimaan raja-asemalla aidan yli. Toinen ihminen tuli lauantaina Suomeen maastorajan yli metsässä, lähellä Vaalimaan raja-asemaa. Molemmat henkilöt hakivat turvapaikkaa Suomesta.
 
@@ -14,7 +14,7 @@ Lappeenrannassa järjestettiin sunnuntaina mielenosoitus, joka vastusti itäraja
 
 ### Haudoilla käyminen
 
-![Perinteisesti haudoille sytytetään kynttilöitä läheisten muistoksi. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1614264353/39-7786696037b058f24a1){.aw-108q8uy .hXqXJz}
+![Perinteisesti haudoille sytytetään kynttilöitä läheisten muistoksi. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1614264353/39-7786696037b058f24a1)
 
 Haudoilla käyminen vähenee Suomessa. Näin kertoo Helsingin yliopisto. Vanhemmat ihmiset käyvät haudoilla enemmän kuin nuoret ihmiset.
 
@@ -24,7 +24,7 @@ Monet omaiset sirottelevat tuhkat esimerkiksi mereen tai muuhun heille tärkeä�
 
 ### Omavero-huijausviestit
 
-![Omavero-palvelussa voi hoitaa omia veroasioita. Outoihin viesteihin ei kuitenkaan pidä antaa omia pankkitunnuksia. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2852,w_5070,x_0,y_166/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1666765089/39-7368105f9d3694cc146){.aw-108q8uy .hXqXJz}
+![Omavero-palvelussa voi hoitaa omia veroasioita. Outoihin viesteihin ei kuitenkaan pidä antaa omia pankkitunnuksia. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2852,w_5070,x_0,y_166/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1666765089/39-7368105f9d3694cc146)
 
 Poliisi varoittaa taas Omavero-huijausviesteistä. Omavero on verohallinnon nettipalvelu, jossa voi hoitaa omia veroasioita.
 
@@ -34,7 +34,7 @@ Omavero-huijauksia on ollut syksyn aikana paljon. Poliisi muistuttaa, että verk
 
 ### Turkka Mali
 
-![Turkka Mali (18.1.1956-- 17.12.2023) Kuva: Timo Vottonen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1364,w_2426,x_0,y_40/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702816659/39-1216785657eeb552be24){.aw-108q8uy .hXqXJz}
+![Turkka Mali (18.1.1956-- 17.12.2023) Kuva: Timo Vottonen / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1364,w_2426,x_0,y_40/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702816659/39-1216785657eeb552be24)
 
 Forssalainen muusikko ja sanoittaja **Turkka Mali** on kuollut. Mali oli 67-vuotias. Mali kuoli pitkän sairauden jälkeen.
 
@@ -44,6 +44,6 @@ Turkka Mali sanoitti myös Suomen euroviisun vuonna 1989. Kappale oli *La dolce 
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702826561/39-1216806657f1227232a2){.aw-108q8uy .hXqXJz}
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702826561/39-1216806657f1227232a2)
 
 Sää on monin paikoin selkeää tai puolipilvistä. Idässä on pilvisempää. Pohjoisessa voi tulla lumikuuroja. Lämpötila on etelässä -3 ja +2 asteen välillä, pohjoisessa 0 ja -10 asteen välillä.

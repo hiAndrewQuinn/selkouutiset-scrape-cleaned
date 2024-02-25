@@ -46,7 +46,7 @@ Tänä syksynä valmistuu noin 4300 uutta ylioppilasta.
 
 Ylioppilaskokeeseen osallistui yhteensä melkein 44 000 opiskelijaa. Suuri osa tekee kokeen monessa osassa.
 
-Syksyn ylioppilaskirjoitusten tulokset on kerrottu tänään. Uusien ylioppilaiden nimet löytyvät nettiosoitteesta [yle.fi](https://yle.fi/a/74-20057938){.aw-1bz6tfj .iiyKBc .yle__article__link}.
+Syksyn ylioppilaskirjoitusten tulokset on kerrottu tänään. Uusien ylioppilaiden nimet löytyvät nettiosoitteesta [yle.fi](https://yle.fi/a/74-20057938).
 
 Ylioppilastutkinnon jälkeen opiskelija voi hakea esimerkiksi yliopistoon. 
 

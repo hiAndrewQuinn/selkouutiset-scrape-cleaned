@@ -8,7 +8,7 @@ Suomi saa pian uuden presidentin. Samalla Suomi saa myös uuden presidentin puol
 
 ## Presidenttipari
 
-![Presidenttipari kättelee vieraita Linnan juhlissa 2023. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701887140/39-12116406570bc5211c62){.aw-1l9m598 .bTKagC}
+![Presidenttipari kättelee vieraita Linnan juhlissa 2023. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701887140/39-12116406570bc5211c62)
 
 Presidentin puoliso edustaa Suomea yhdessä presidentin kanssa. Monissa tilaisuuksissa on mukana presidenttipari, ei presidentti yksin.
 
@@ -20,7 +20,7 @@ Suomalaisille on tärkeää, että presidentin vierellä on tyylikäs puoliso. H
 
 ## Rooli muuttuu
 
-![Suomen pitkäaikainen presidenttipari Urho ja Sylvi Kekkonen. Kuva on vuodelta 1964. Kuva: Kalle Kultala](https://images.cdn.yle.fi/image/upload/c_crop,h_840,w_1493,x_0,y_79/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706353760/14-svyle-148463531974f0a0bbb){.aw-1l9m598 .bTKagC}
+![Suomen pitkäaikainen presidenttipari Urho ja Sylvi Kekkonen. Kuva on vuodelta 1964. Kuva: Kalle Kultala](https://images.cdn.yle.fi/image/upload/c_crop,h_840,w_1493,x_0,y_79/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706353760/14-svyle-148463531974f0a0bbb)
 
 Presidentin puolison rooli on muuttunut ajan mukana.
 
@@ -36,7 +36,7 @@ Yksi asia presidentin puolison roolissa ei muutu. Presidentin puoliso ei ota kan
 
 ## Presidenttiehdokkaiden puolisot
 
-![Presidenttiehdokkaiden puolisoita. Kuva: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1704290267/39-1223076659566f783c7c){.aw-1l9m598 .bTKagC}
+![Presidenttiehdokkaiden puolisoita. Kuva: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1704290267/39-1223076659566f783c7c)
 
 Presidentinvaaleissa on nyt 9 presidenttiehdokasta, 6 miestä ja 3 naista. Kaikilla on puoliso.
 

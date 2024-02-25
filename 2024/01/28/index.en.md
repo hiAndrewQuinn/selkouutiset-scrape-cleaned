@@ -8,7 +8,7 @@ Finland will soon have a new president. At the same time, Finland also gets a ne
 
 ## Presidential couple
 
-![The presidential couple shaking hands with guests at the 2023 Linna celebrations. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_138/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701887140/39-12116406570bc5211c62){.aw-1l9m598 .bTKagC}
+![The presidential couple shaking hands with guests at the 2023 Linna celebrations. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_138/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701887140/39-12116406570bc5211c62)
 
 The spouse of the president represents Finland together with the president. Many events involve the presidential couple, not the president alone.
 
@@ -20,7 +20,7 @@ For Finns, it is important that the president has a stylish spouse by his side. 
 
 ## The role changes
 
-![Finland's long-term presidential couple Urho and Sylvi Kekkonen. The photo is from 1964. Photo: Kalle Kultala](https://images.cdn.yle.fi/image/upload/c_crop,h_840,w_1493,x_0,y_79/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706353760/14-svyle-148463531974f0a0bbb){.aw-1l9m598 .bTKagC}
+![Finland's long-term presidential couple Urho and Sylvi Kekkonen. The photo is from 1964. Photo: Kalle Kultala](https://images.cdn.yle.fi/image/upload/c_crop,h_840,w_1493,x_0,y_79/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706353760/14-svyle-148463531974f0a0bbb)
 
 The role of the president's spouse has changed over time.
 
@@ -36,7 +36,7 @@ One thing about the role of the president's spouse does not change. The presiden
 
 ## Spouses of presidential candidates
 
-![Spouses of presidential candidates. Photo: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1704290267/39-1223076659566f783c7c){.aw-1l9m598 .bTKagC}
+![Spouses of presidential candidates. Photo: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1704290267/39-1223076659566f783c7c)
 
 There are now 9 presidential candidates in the presidential election, 6 men and 3 women. Everyone has a spouse.
 

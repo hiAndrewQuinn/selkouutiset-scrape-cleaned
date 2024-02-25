@@ -26,7 +26,7 @@ Vocational education can be a path to a well-paid job.
 
 For example, a car salesman can earn more than a master's degree with a university education.
 
-This is what Yle's salary machine tells you, with which you can compare salaries in different fields. The payroll machine can be found at![yle.fi](https://yle.fi/a/74-20053544){.aw-iao6s4 .drtaeR .yle__article__link role="link"}.
+This is what Yle's salary machine tells you, with which you can compare salaries in different fields. The payroll machine can be found at![yle.fi](https://yle.fi/a/74-20053544).
 
 Yle's salary machine tells you that vocational training can lead to a well-paid job.
 

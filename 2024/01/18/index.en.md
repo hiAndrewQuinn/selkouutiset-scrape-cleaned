@@ -34,7 +34,7 @@ The border between Finland and Russia is more than 1300 kilometers long. About 7
 
 However, there will be no obstacles along the entire eastern border.
 
-{core sentence} Maybe more obstacles will be built on the border with Finland's eastern border.
+ Maybe more obstacles will be built on the border with Finland's eastern border.
 
 Temporary barriers are now being planned, which will only be on the border for a while.
 

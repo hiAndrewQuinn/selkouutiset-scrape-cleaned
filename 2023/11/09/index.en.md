@@ -46,7 +46,7 @@ About 4,300 new high school students will graduate this fall.
 
 A total of almost 44,000 students took part in the matriculation exam. A large number take the exam in several parts.
 
-The results of the fall matriculation essays have been announced today. The names of the new graduates can be found at![yle.fi](https://yle.fi/a/74-20057938){.aw-1bz6tfj .iiyKBc .yle__article__link}.
+The results of the fall matriculation essays have been announced today. The names of the new graduates can be found at![yle.fi](https://yle.fi/a/74-20057938).
 
 After matriculation, a student can apply to a university, for example.
 

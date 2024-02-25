@@ -4,7 +4,7 @@ Islannin tulivuori. Talousennusteet. Ydinvoima. Suomen asukasluku. Sää.
 
 ### Islannin tulivuori
 
-![Islannissa purkautuu tulivuori. Kuva: Kristinn Magnusson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1395,w_2480,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702985177/39-121778965817d7552de6){.aw-15lr7gn .bNAUcv}
+![Islannissa purkautuu tulivuori. Kuva: Kristinn Magnusson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1395,w_2480,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702985177/39-121778965817d7552de6)
 
 Islannissa purkautuu tulivuori.
 
@@ -18,7 +18,7 @@ Tulivuori purkautuu Islannissa ehkä jopa 3 viikkoa.
 
 ### Talousennusteet
 
-![Suomen pankin talousennuste on synkkä. Kuvituskuva. Kuva: Seppo Ahava / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_265/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1620756706/39-805272609ac85c66a4e){.aw-15lr7gn .bNAUcv}
+![Suomen pankin talousennuste on synkkä. Kuvituskuva. Kuva: Seppo Ahava / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_265/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1620756706/39-805272609ac85c66a4e)
 
 Suomen pankki on tehnyt ennusteen Suomen talouden kehityksestä. Ennuste on melko synkkä.
 
@@ -28,7 +28,7 @@ Myös valtiovarainministeriö on tehnyt ennusteen Suomen taloudesta. Ministeriö
 
 ### Ydinvoima
 
-![Ydinvoiman tuotanto lisääntyi tammikuun ja syyskuun välisenä. Kuvassa Loviisan ydinvoimala. Kuva: Milena Hackman / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2223,w_3952,x_0,y_1998/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1680247056/39-1092850642687d0260a7){.aw-15lr7gn .bNAUcv}
+![Ydinvoiman tuotanto lisääntyi tammikuun ja syyskuun välisenä. Kuvassa Loviisan ydinvoimala. Kuva: Milena Hackman / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2223,w_3952,x_0,y_1998/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1680247056/39-1092850642687d0260a7)
 
 Suomessa tuotetaan ydinvoimaa enemmän kuin ennen.
 
@@ -40,7 +40,7 @@ Suomessa kulutettiin sähköä yhteensä 6 prosenttia vähemmän kuin vuonna 202
 
 ### Suomen asukasluku
 
-![Suomen väkiluku kasvoi. Kuvassa Helsingin kantakaupunkia. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_141/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1584710360/39-4763715ac7277fd476a){.aw-15lr7gn .bNAUcv}
+![Suomen väkiluku kasvoi. Kuvassa Helsingin kantakaupunkia. Kuva: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_141/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1584710360/39-4763715ac7277fd476a)
 
 Suomessa asuu nyt enemmän ihmisiä kuin aikaisemmin.
 
@@ -50,7 +50,7 @@ Suomen asukasluvun lisääntyminen johtuu siitä, että Suomeen muuttaa ulkomail
 
 ### Sää
 
-![ Kuva: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702991489/39-1217895658196636bffe){.aw-15lr7gn .bNAUcv}
+![ Kuva: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702991489/39-1217895658196636bffe)
 
 Vielä sääennuste.
 

@@ -22,7 +22,7 @@ About 40 percent of those entitled to vote have voted in advance.
 
 The actual election day is next Sunday.
 
-Uutisviikko in plain Finnish tells more about the presidential candidates. The programs can be found at yle.fi/selkouutiset, under![All broadcasts.](https://yle.fi/selkouutiset/kaikki-lahetykset){.aw-iao6s4 .drtaeR .yle__article__link role="link"}
+Uutisviikko in plain Finnish tells more about the presidential candidates. The programs can be found at yle.fi/selkouutiset, under![All broadcasts.](https://yle.fi/selkouutiset/kaikki-lahetykset)
 
 ## Akava's march out
 

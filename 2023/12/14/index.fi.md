@@ -4,7 +4,7 @@ Itäraja. Suomen ja USA:n sopimus. Lakkopäivä. Sää.
 
 ### Itäraja
 
-![Vaalimaan raja-asema oli auki torstaina. Kuva: Mikko Savolainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_400/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702542798/39-1215371657abbdd76a8b){.aw-108q8uy .hXqXJz}
+![Vaalimaan raja-asema oli auki torstaina. Kuva: Mikko Savolainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_400/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702542798/39-1215371657abbdd76a8b)
 
 Suomen ja Venäjän raja menee uudelleen kiinni. Raja suljetaan perjantai-iltana.
 
@@ -16,7 +16,7 @@ Suomi sulki koko itärajan ensimmäisen kerran 2 viikkoa sitten. Syy oli se, ett
 
 ### Puolustussopimus
 
-![Puolustusministeri Antti Häkkänen kertoi Suomen ja USA:n puolustussopimuksesta torstaina. Kuva: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_397/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702554669/39-1215596657aeb4e1e3fc){.aw-108q8uy .hXqXJz}
+![Puolustusministeri Antti Häkkänen kertoi Suomen ja USA:n puolustussopimuksesta torstaina. Kuva: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_397/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702554669/39-1215596657aeb4e1e3fc)
 
 Suomeen tulee USA:n sotilaita. Suomi avaa USA:n joukoille sotilasalueita eri puolilla Suomea.
 
@@ -28,7 +28,7 @@ Sopimuksen perusteella USA voi myös varastoida aseita Suomeen. Vielä ei ole ta
 
 ### Lakkopäivä
 
-![Junat ovat seisoneet torstaina lakon takia. Kuva: Jouni Koutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2204,w_3933,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702544376/39-1215434657ac3616da78){.aw-108q8uy .hXqXJz}
+![Junat ovat seisoneet torstaina lakon takia. Kuva: Jouni Koutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2204,w_3933,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702544376/39-1215434657ac3616da78)
 
 Torstai on ollut Suomessa lakkopäivä. Lakkoja on ollut eri aloilla. Esimerkiksi junat ja monet bussit ovat pysähtyneet lakkojen takia.
 
@@ -38,7 +38,7 @@ Työntekijöiden ammattiliitot järjestävät lakkoja, koska ne ovat vihaisia Su
 
 ### Uusi ohjelma
 
-![Tuukka Lukinmaa on yksi uuden ohjelman toimittajista. Kuva: Jari Kovalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_500/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702453190/39-121464765795f1987360){.aw-108q8uy .hXqXJz}
+![Tuukka Lukinmaa on yksi uuden ohjelman toimittajista. Kuva: Jari Kovalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_500/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702453190/39-121464765795f1987360)
 
 Tammikuussa alkaa selkouutisten uusi radio-ohjelma Uutisviikko selkosuomeksi. Ohjelma keskittyy aina yhteen tärkeään uutisaiheeseen.
 
@@ -52,7 +52,7 @@ Tammikuusta alkaen arkipäivien selkouutiset lähetetään televisiossa.
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702576725/39-1215877657b423d44173){.aw-108q8uy .hXqXJz}
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702576725/39-1215877657b423d44173)
 
 Perjantaina sää on pääosin poutaista. Heikkoa lumisadetta voi sataa paikoin. Pilvisyys on runsasta.
 

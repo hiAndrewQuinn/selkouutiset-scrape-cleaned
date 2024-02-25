@@ -8,7 +8,7 @@ Pian voiton jälkeen Stubb tapasi toimittajia eri maista. Toimittajat kysyivät 
 
 ## Venäjä
 
-![Alexander Stubbin tiedotustilaisuudessa toimittajia kiinnosti erityisesti Suomen ja Venäjän suhde. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3324,w_5910,x_1,y_458/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1707834383/39-124378365cb7b83a20b1){.aw-1l9m598 .bTKagC}
+![Alexander Stubbin tiedotustilaisuudessa toimittajia kiinnosti erityisesti Suomen ja Venäjän suhde. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3324,w_5910,x_1,y_458/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1707834383/39-124378365cb7b83a20b1)
 
 Presidentinvaalien voittaja Alexander Stubb tapasi kansainvälisiä toimittajia pian vaalien jälkeen. Toimittajat halusivat tietää, mitä Stubb ajattelee Suomen naapurimaasta Venäjästä.
 
@@ -18,7 +18,7 @@ Suomen ulkopolitiikan tärkeimmät osat ovat nyt Euroopan unioni ja puolustuslii
 
 ## USA ja Nato
 
-![Donald Trump sanoo, että osa Nato-maista ei käytä tarpeeksi rahaa puolustukseen. Kuva: Hunter Cone / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_4608,w_8192,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708071958/39-124463365cdeb214aba9){.aw-1l9m598 .bTKagC}
+![Donald Trump sanoo, että osa Nato-maista ei käytä tarpeeksi rahaa puolustukseen. Kuva: Hunter Cone / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_4608,w_8192,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708071958/39-124463365cdeb214aba9)
 
 Stubb otti kantaa myös amerikkalaisten Nato-keskusteluun.
 
@@ -30,7 +30,7 @@ Stubbin mielestä Euroopan maiden pitää kuitenkin muistaa oma vastuu Natossa. 
 
 ## Ruotsi
 
-![Ruotsin pääministeri Ulf Kristersson onnitteli Stubbia vaalivoiton jälkeen. Kuva: Pelle T. Nilsson / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3859,w_6894,x_0,y_143/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674582044/39-106339963d017ef9a960){.aw-1l9m598 .bTKagC}
+![Ruotsin pääministeri Ulf Kristersson onnitteli Stubbia vaalivoiton jälkeen. Kuva: Pelle T. Nilsson / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3859,w_6894,x_0,y_143/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674582044/39-106339963d017ef9a960)
 
 Entä missä maassa uusi presidentti aikoo ensimmäiseksi vierailla?
 

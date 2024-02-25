@@ -8,7 +8,7 @@ Navalny was an opponent of President Vladimir Putin. Uutisviikko is now talking 
 
 ## Navalny's death
 
-![Alexei Navalnyi died at only 47 years old. Photo: Artem Priakhin / Reuters](https://images.cdn.yle.fi/image/upload/c_crop,h_3161,w_5620,x_1,y_403/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708152338/39-124573165d055957c2ad){.aw-1l9m598 .bTKagC}
+![Alexei Navalnyi died at only 47 years old. Photo: Artem Priakhin / Reuters](https://images.cdn.yle.fi/image/upload/c_crop,h_3161,w_5620,x_1,y_403/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708152338/39-124573165d055957c2ad)
 
 Russian politician Alexei Navalny died on Friday. He was 47 years old.
 
@@ -22,7 +22,7 @@ Navalny's supporters have organized memorial services for Navalny in Russia. The
 
 ## Navalny's fight against Putin
 
-![Alexei Navalnyi died in prison. Photo: Yuri Kochetkov / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2442,w_4343,x_0,y_19/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708107052/39-124541565cf471a63deb){.aw-1l9m598 .bTKagC}
+![Alexei Navalnyi died in prison. Photo: Yuri Kochetkov / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2442,w_4343,x_0,y_19/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708107052/39-124541565cf471a63deb)
 
 Alexei Navalny fought against Vladimir Putin for many years. He had many supporters.
 
@@ -34,7 +34,7 @@ When Navalnyi returned to Russia, the police immediately arrested him at the air
 
 ## Navalny has been remembered
 
-![Aleksei Navalny was also remembered in Helsinki's Kansalaistor. Photo: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_193/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708175449/39-124581065d0a892a07b8){.aw-1l9m598 .bTKagC}
+![Aleksei Navalny was also remembered in Helsinki's Kansalaistor. Photo: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_193/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708175449/39-124581065d0a892a07b8)
 
 Navalny's death has shocked the whole of Europe. Leaders of many countries say Navalny's death is Putin's fault.
 

@@ -1,0 +1,65 @@
+## Radio Selkouutiset 29.11.2023
+
+Itäraja. Työvoimapula. Ydinvoimalat. Lakot. Sää.
+
+### Itäraja
+
+![ Kuva: Vesa Toppari / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_264/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701189256/39-12079316566165b139fc)
+
+Suomen itäraja on mennyt kiinni.
+
+Raja-Joosepin kansainvälinen rajanylityspaikka Inarissa sulkeutui viimeisenä iltapäivällä kello kaksi.
+
+Kaikki itärajan rajanylityspaikat ovat kiinni joulukuun 13. päivään saakka.
+
+Tänä aikana turvapaikkaa voi hakea vain satamista ja lentokentiltä.
+
+Sulkua voidaan jatkaa myös sen jälkeen.
+
+Itäraja suljetaan, koska Suomen valtiojohdon mukaan Venäjä kuljettaa rajalle turvapaikanhakijoita.
+
+Suomen ja Venäjän rajan yli on tullut elokuun alusta alkaen noin 1 000 turvapaikanhakijaa.
+
+### Työvoimapula
+
+![ Kuva: Antti Valtteri Tauriainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3983,x_0,y_415/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1686145588/39-1126025648086980778f)
+
+Työnhakijoiden taidot ja työpaikkojen vaatimukset eivät kohtaa Suomessa.
+
+Avoimia työpaikkoja on tarjolla, mutta työttömien työnhakijoiden osaaminen ei vastaa paikkojen vaatimuksia.
+
+Työ- ja elinkeinoministeriön mukaan sopivia työntekijöitä on liian vähän suuressa osassa Suomen alueista.
+
+Työvoiman puutteesta kärsii etenkin sosiaali- ja terveysala. Alalla tarvitaan erityisesti työntekijöitä, jotka osaavat käyttää digitaalisia laitteita ja palveluita.
+
+### Ydinvoimalat
+
+![ Kuva: Jari Pelkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3256,w_5787,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1683031267/39-1107408645102d538768)
+
+Suomessa ja Ruotsissa kahden ydinvoimalan tuotanto on keskeytynyt yllättävän vian vuoksi.
+
+Olkiluoto 3:n sähkötuotanto keskeytyi tänään iltapäivällä, kun siellä tehtiin koetta, kertoo Teollisuuden Voima. Keskeytymisen syytä selvitetään.
+
+Ruotsissa Ringhals 4 -ydinvoimalan tuotanto katkesi viime yönä myös tuntemattomasta syystä.
+
+Jos häiriötilanne pitkittyy, sähkön hinta voi tulevina päivinä kallistua.
+
+Sähkö maksaa Suomessa paljon jo nyt, noin 30 senttiä kilowattitunnilta.
+
+### Lakot
+
+![ Kuva: Tommi Pylkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1680886596/39-10967826430479cd9824)
+
+Poliittiset lakot jatkuvat.
+
+SAK:n ammattiliitot jatkavat tänään työtaisteluja Helsingissä ja muualla Uudellamaalla.
+
+Helsingissä lakossa on mukana muun muassa Helsingin kaupungin työntekijöitä, mikä saattaa näkyä hiekoituksen puuttumisena.
+
+Ammattiliitot vastustavat hallituksen kaavailemia heikennyksiä sosiaaliturvaan ja työntekijöiden perusoikeuksiin.
+
+### Sää
+
+![ Kuva: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701268401/39-120849965674b9a12a64)
+
+Huomenna sataa lunta Pohjois-Lapissa ja etelärannikolla. Aurinko paistaa paikoin maan keskiosissa. Pakkasta on suuressa osassa Suomea noin kymmenen astetta, etelässä ja Pohjois-Lapissa pakkasta on viisi astetta.

@@ -48,7 +48,7 @@ Tässä kiipeillään Iitin Jääkirkkovuorella.
 
 Näin hyviä jääkiipeilypaikkoja on Keski-Euroopassa enää vähän, koska talvet ovat lämmenneet.
 
-{ydinlause} Jääkiipeilyn suosio kasvaa.
+ Jääkiipeilyn suosio kasvaa.
 
 Harrastajia on jo joitakin satoja.
 

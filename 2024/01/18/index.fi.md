@@ -34,7 +34,7 @@ Suomen ja Venäjän raja on yli 1300 kilometriä pitkä. Noin 70 prosenttia raja
 
 Koko itärajalle esteitä ei kuitenkaan tule.
 
-{ydinlause} Suomen itärajalle rajalle rakennetaan ehkä lisää esteitä.
+ Suomen itärajalle rajalle rakennetaan ehkä lisää esteitä.
 
 Nyt suunnitellaan tilapäisiä esteitä, jotka ovat rajalla vain jonkin aikaa.
 

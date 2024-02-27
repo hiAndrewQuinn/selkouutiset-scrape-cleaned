@@ -26,7 +26,7 @@ Ammatillinen koulutus voi olla tie hyväpalkkaiseen työhön.
 
 Esimerkiksi automyyjä voi saada enemmän palkkaa kuin maisteri, jolla on yliopistokoulutus.
 
-Näin kertoo Ylen palkkakone, jolla voi vertailla eri alojen palkkoja. Palkkakone löytyy osoitteesta [yle.fi](https://yle.fi/a/74-20053544){.aw-iao6s4 .drtaeR .yle__article__link role="link"}.
+Näin kertoo Ylen palkkakone, jolla voi vertailla eri alojen palkkoja. Palkkakone löytyy osoitteesta [yle.fi](https://yle.fi/a/74-20053544).
 
 Ylen palkkakone kertoo, että ammatillinen koulutus voi johtaa hyväpalkkaiseen työhön.
 

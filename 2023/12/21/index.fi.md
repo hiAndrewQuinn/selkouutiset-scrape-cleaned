@@ -4,7 +4,7 @@ Suomalaiset ja Nato. Islannin tulivuorenpurkaus. Katujen liukkaus. Sää.
 
 ### Suomalaiset ja Nato
 
-![Puolustusliitto Natoon kuuluu nyt 31 maata. Kuva: Jorma Vihtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2944,w_5235,x_0,y_332/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700073539/39-1201236655503578335b){.aw-1l9m598 .bTKagC}
+![Puolustusliitto Natoon kuuluu nyt 31 maata. Kuva: Jorma Vihtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2944,w_5235,x_0,y_332/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700073539/39-1201236655503578335b)
 
 Suurin osa suomalaisista on sitä mieltä, että Suomen Nato-jäsenyys on hyvä asia. Suomesta tuli puolustusliitto Naton jäsen viime huhtikuussa.
 
@@ -18,7 +18,7 @@ Puolustusliitto Nato huolehtii jäsenmaiden turvallisuudesta. Natossa on Suomen 
 
 ### Tuhkapilvet Islannista
 
-![Islannin tulivuorenpurkaus alkoi maanantaina. Kuva: Kristinn Magnusson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1395,w_2480,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702985177/39-121778965817d7552de6){.aw-1l9m598 .bTKagC}
+![Islannin tulivuorenpurkaus alkoi maanantaina. Kuva: Kristinn Magnusson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1395,w_2480,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702985177/39-121778965817d7552de6)
 
 Islannin tulivuorenpurkaus on päästänyt ilmaan rikkiä. Rikin takia Islannin taivas on punainen.
 
@@ -44,7 +44,7 @@ Sitten tietoa selkouutisten uudesta ohjelmasta.
 
 ### Liukkaat kadut
 
-![Liukkaalla kadulla on hyvä kävellä varovaisesti. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_257/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702982198/39-12177286581706d0746c){.aw-1l9m598 .bTKagC}
+![Liukkaalla kadulla on hyvä kävellä varovaisesti. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_257/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702982198/39-12177286581706d0746c)
 
 Kadut ovat nyt liukkaita. Monet kadut ovat jään peitossa.
 
@@ -54,7 +54,7 @@ Sairaaloiden päivystyksissä on ollut torstaina ruuhkaa. Esimerkiksi Helsingin 
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703175960/39-1219504658466ff1758b){.aw-1l9m598 .bTKagC}
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703175960/39-1219504658466ff1758b)
 
 Matalapaine on saapunut Suomeen. Etelässä sataa päivällä lunta. Myöhemmin lunta sataa myös maan keskiosassa.
 

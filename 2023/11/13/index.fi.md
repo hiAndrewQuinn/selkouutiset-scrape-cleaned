@@ -54,7 +54,7 @@ Satu Lahtonen opettaa suomen kieltä, lukemista ja kirjoittamista nykyään Kone
 
 ![Iloinen alkaa i-kirjaimella. Kuva: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3362,w_5987,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699438816/39-1197535654b5ee7e3b58)
 
-Lahtosen ryhmään voi tutustua Selkouutisten tv-lähetyksessä, joka löytyy osoitteesta [yle.fi/selkouutiset](https://yle.fi/selkouutiset){.aw-1bz6tfj .iiyKBc .yle__article__link}. Samassa osoitteessa on myös valokuvia Lahtosen ryhmästä.
+Lahtosen ryhmään voi tutustua Selkouutisten tv-lähetyksessä, joka löytyy osoitteesta [yle.fi/selkouutiset](https://yle.fi/selkouutiset). Samassa osoitteessa on myös valokuvia Lahtosen ryhmästä.
 
 ### Sää
 

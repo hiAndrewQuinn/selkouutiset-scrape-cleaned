@@ -10,7 +10,7 @@ Nyt kerromme lisää nuorten miesten alkoholinkäytöstä.
 
 ## Alkoholinkäytön historiallinen muutos
 
-![ Kuva: Joel Peltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1235,w_2197,x_0,y_893/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1690180005/39-114649464be1564d749e){.aw-1l9m598 .bTKagC}
+![ Kuva: Joel Peltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1235,w_2197,x_0,y_893/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1690180005/39-114649464be1564d749e)
 
 Alkoholinkäytössä on Suomessa tapahtunut iso muutos. Aikuiset nuoret miehet juovat alkoholia vähemmän kuin ennen.
 
@@ -26,7 +26,7 @@ THL on tutkinut suomalaisten juomatapoja yli 50 vuotta. Uusin tutkimus osoittaa,
 
 ## Alkoholi, terveys ja some
 
-![ Kuva: Simo Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1966,w_3496,x_13,y_2057/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703836306/39-1221335658e750195d38){.aw-1l9m598 .bTKagC}
+![ Kuva: Simo Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1966,w_3496,x_13,y_2057/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703836306/39-1221335658e750195d38)
 
 Nuoret miehet juovat vähemmän alkoholia, koska esimerkiksi terveys on heille tärkeää.
 
@@ -40,7 +40,7 @@ Nuoret pelkäävät, että humalassa he tekevät jotakin tyhmää ja joku kuvaa 
 
 ## Tipaton tammikuu
 
-![ Kuva: Riika Raitio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_756/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674578255/39-106336963d008c7ccb2d){.aw-1l9m598 .bTKagC}
+![ Kuva: Riika Raitio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_756/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674578255/39-106336963d008c7ccb2d)
 
 Nuoria miehiä on haluttu kannustaa raittiutteen jo kauan.
 

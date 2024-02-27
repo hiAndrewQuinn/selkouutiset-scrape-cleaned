@@ -4,7 +4,7 @@ Presidenttiehdokkaat 2/2
 
 **Pekka Haavisto**
 
-![ Kuva: Kuva: Silja Viitala, kuvamuokkaus: Asmo Raimoaho / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2016,w_3597,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706511937/39-122811465a538d0a573a){.aw-1l9m598 .bTKagC}
+![ Kuva: Kuva: Silja Viitala, kuvamuokkaus: Asmo Raimoaho / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2016,w_3597,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706511937/39-122811465a538d0a573a)
 
 Uutisviikon aihe on Suomen presidentinvaalit. Presidentinvaalien toiselle kierrokselle pääsivät Alexander Stubb ja Pekka Haavisto.
 
@@ -14,7 +14,7 @@ Tänään kerromme Pekka Haavistosta. Hän sai toiseksi eniten ääniä, liki 26
 
 ## Perhe ja opinnot
 
-![Pekka Haavisto ja Antonio Flores. Kuva: Jussi Koivunoro / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2732,w_4857,x_6,y_416/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706546153/39-123498065b7d2396610c){.aw-1l9m598 .bTKagC}
+![Pekka Haavisto ja Antonio Flores. Kuva: Jussi Koivunoro / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2732,w_4857,x_6,y_416/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706546153/39-123498065b7d2396610c)
 
 Pekka Haavisto on valitsijayhdistyksen presidenttiehdokas. Myös vihreät tukee Haavistoa.
 
@@ -24,7 +24,7 @@ Pekka Haaviston koulutus on ylioppilas.
 
 ## Ura politiikassa
 
-![Ulkoministeri Pekka Haavisto allekirjoitti Suomen Nato-hakemuksen toukokuussa 2022. Kuva: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2800,w_4989,x_0,y_521/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1652814188/39-9563946283ccf5cf20d){.aw-1l9m598 .bTKagC}
+![Ulkoministeri Pekka Haavisto allekirjoitti Suomen Nato-hakemuksen toukokuussa 2022. Kuva: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2800,w_4989,x_0,y_521/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1652814188/39-9563946283ccf5cf20d)
 
 Pekka Haavisto on ollut mukana politiikassa 1980-luvulta lähtien. Hän on ollut esimerkiksi ulkoministeri, ympäristöministeri ja kehitysministeri. Hän on myös ollut esimerkiksi Euroopan unionin eli EU:n ja Yhdistyneiden kansakuntien eli YK:n edustaja Afrikassa.
 
@@ -38,13 +38,13 @@ Pekka Haavisto kertoo Ylelle, että hänelle esikuva ulkopolitiikassa on YK:n en
 
 ## Harrastukset
 
-![Pekka Haavisto harrastaa kirjallisuutta. Hän on myös kirjoittanut monta kirjaa. Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_333/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706880554/39-111453564634af73a9c7){.aw-1l9m598 .bTKagC}
+![Pekka Haavisto harrastaa kirjallisuutta. Hän on myös kirjoittanut monta kirjaa. Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_333/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706880554/39-111453564634af73a9c7)
 
 Pekka Haaviston harrastuksia ovat kirjallisuus, puuveneet ja kuplavolkkarit eli Volkswagen Kupla -autot.
 
 Haaviston lempikaupunki maailmalla on Kroatian pääkaupunki Zagreb ja lempiruoka ovat pastaruoat.
 
-![ Kuva: Markku Ulander / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_150/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706870529/39-123741165bcb466ca39a){.aw-1l9m598 .bTKagC}
+![ Kuva: Markku Ulander / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_150/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706870529/39-123741165bcb466ca39a)
 
 Uutisviikon aihe oli tänään presidenttiehdokas Pekka Haavisto.
 

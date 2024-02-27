@@ -4,7 +4,7 @@ Joulun menoliikenne. Lennot myöhässä. Kauppojen suojakopit. Sää.
 
 ### Joulun menoliikenne
 
-![Autoja jouluaatonaattona 2023 viitostiellä Kuopiossa. Kuva: Jukka Eskanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_231/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703332693/39-12200786586ca7511c4c){.aw-1l9m598 .bTKagC}
+![Autoja jouluaatonaattona 2023 viitostiellä Kuopiossa. Kuva: Jukka Eskanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_231/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703332693/39-12200786586ca7511c4c)
 
 Maanteillä joululiikenne on ollut lauantaina rauhallista. Pahoja ruuhkia ei ollut missään päin Suomea. Moni ihminen matkusti joulun viettoon jo perjantaina.
 
@@ -12,7 +12,7 @@ Maanteillä oli eniten liikennettä iltapäivällä. Ajokeli on ollut monin paik
 
 ### Lennot myöhässä
 
-![Lennot ovat olleet myöhässä lumisateen takia. Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2874,w_5110,x_0,y_119/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703245066/39-1219830658573a0aee81){.aw-1l9m598 .bTKagC}
+![Lennot ovat olleet myöhässä lumisateen takia. Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2874,w_5110,x_0,y_119/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703245066/39-1219830658573a0aee81)
 
 Lumisateen takia myös lennot ovat myöhässä.
 
@@ -22,7 +22,7 @@ Finnair kertoo, että perjantain lumisade vaikutti lentojen aikatauluihin vielä
 
 ### Kauppojen suojakopit
 
-![ Vantaan Alepoihin ilmestyi lasikoppeja. Kuva: Ronnie Holmberg / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_125/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703173362/39-121947165845ad3b51cb){.aw-1l9m598 .bTKagC}
+![ Vantaan Alepoihin ilmestyi lasikoppeja. Kuva: Ronnie Holmberg / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_125/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703173362/39-121947165845ad3b51cb)
 
 Pääkaupunkiseudulla kokeillaan uuttaa keinoa, jonka tarkoituksena on lisätä ruokakauppojen myyjien turvallisuutta.
 
@@ -36,7 +36,7 @@ Tammikuussa alkaa selkouutisten uusi radio-ohjelma Uutisviikko selkosuomeksi. Oh
 
 Joka viikko tehdään 2 Uutisviikko-ohjelmaa. Ne lähetetään lauantaina ja sunnuntaina Radio Suomessa kello 21.12.
 
-Yle Areenassa ja nettiosoitteessa [*yle.fi/selkouutiset*](http://yle.fi/selkouutiset){.aw-iao6s4 .drtaeR .yle__article__link} voit kuunnella ohjelmat, milloin haluat.
+Yle Areenassa ja nettiosoitteessa [*yle.fi/selkouutiset*](http://yle.fi/selkouutiset) voit kuunnella ohjelmat, milloin haluat.
 
 1\. Uutisviikko selkosuomeksi lähetetään lauantaina, tammikuun 13. päivä.
 
@@ -44,7 +44,7 @@ Tammikuusta alkaen arkipäivien selkouutiset lähetetään televisiossa.
 
 ### Sää
 
-![ Kuva: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703254046/39-1219957658597fe4b26c){.aw-1l9m598 .bTKagC}
+![ Kuva: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703254046/39-1219957658597fe4b26c)
 
 Vielä säätiedotus.
 

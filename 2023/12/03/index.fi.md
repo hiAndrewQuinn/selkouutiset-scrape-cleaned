@@ -4,7 +4,7 @@ Gazan taistelut. Rovaniemen lentoreitit. Kaurismäen elokuva. Unen tärkeys. Adv
 
 ### Gazan taistelut
 
-![Israelin armeija on iskenyt Gazaan, kun aselepo loppui. Kuva: Jack Guez / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_118/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701530919/39-1209984656b4cacaf252){.aw-91onpl .bRLZhq}
+![Israelin armeija on iskenyt Gazaan, kun aselepo loppui. Kuva: Jack Guez / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_118/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701530919/39-1209984656b4cacaf252)
 
 Sota Gazassa jatkuu. Sodassa oli tauko aselevon aikana, mutta aselepo loppui perjantaina.
 
@@ -16,7 +16,7 @@ Gazan taisteluissa ovat vastakkain Israel ja terroristijärjestö Hamas.
 
 ### Rovaniemen lentoreitit
 
-![Joulupukki oli paikalla, kun lento Madridista tuli Rovaniemelle. Kuva: Risto Koskinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701589651/39-1210040656c327841b57){.aw-91onpl .bRLZhq}
+![Joulupukki oli paikalla, kun lento Madridista tuli Rovaniemelle. Kuva: Risto Koskinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701589651/39-1210040656c327841b57)
 
 Rovaniemeltä avataan uusia ulkomaan lentoreittejä. Rovaniemelle ja koko Lappiin tulee joka talvi paljon turisteja ulkomailta.
 
@@ -28,7 +28,7 @@ Rovaniemelle tulee eniten turisteja joulukuussa. He haluavat nauttia lumisesta t
 
 ### Kaurismäen elokuva
 
-![Jussi Vatanen ja Alma Pöysti näyttelevät elokuvassa Kuolleet lehdet. Kuva: Malla Hukkanen](https://images.cdn.yle.fi/image/upload/c_crop,h_1324,w_2359,x_0,y_246/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701610891/39-11706796500072a5c5f1){.aw-91onpl .bRLZhq}
+![Jussi Vatanen ja Alma Pöysti näyttelevät elokuvassa Kuolleet lehdet. Kuva: Malla Hukkanen](https://images.cdn.yle.fi/image/upload/c_crop,h_1324,w_2359,x_0,y_246/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701610891/39-11706796500072a5c5f1)
 
 Suomalainen elokuva Kuolleet lehdet on Time-lehden mielestä vuoden paras elokuva.
 
@@ -40,7 +40,7 @@ Kuolleet lehdet kertoo 2 yksinäisen ihmisen rakkaudesta. Elokuvan pääosissa o
 
 ### Uni ja oppiminen
 
-![Uni auttaa oppimisessa. Kuva: Tapio Rissanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_222/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1567762731/39-5888895d7226f7d011e){.aw-91onpl .bRLZhq}
+![Uni auttaa oppimisessa. Kuva: Tapio Rissanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_222/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1567762731/39-5888895d7226f7d011e)
 
 Uni on tärkeää. Nyt tutkijat sanovat, että uni vahvistaa myös oppimista.
 
@@ -50,7 +50,7 @@ Näyttää siis siltä, että hyvä yöuni on tärkeää, kun ihminen opiskelee 
 
 ### Adventtisunnuntai
 
-![Ensimmäisenä adventtisunnuntaina sytytetään ensimmäinen adventtikynttilä. Kuva: Kirkon kuvapankki / Markku Pihlaja](https://images.cdn.yle.fi/image/upload/c_crop,h_2784,w_4950,x_0,y_196/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1637768059/39-883537619e5adcecf75){.aw-91onpl .bRLZhq}
+![Ensimmäisenä adventtisunnuntaina sytytetään ensimmäinen adventtikynttilä. Kuva: Kirkon kuvapankki / Markku Pihlaja](https://images.cdn.yle.fi/image/upload/c_crop,h_2784,w_4950,x_0,y_196/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1637768059/39-883537619e5adcecf75)
 
 Sunnuntaina on vietetty ensimmäistä adventtisunnuntaita. Silloin alkaa joulun odotus.
 
@@ -60,7 +60,7 @@ Ennen joulua on yhteensä 4 adventtisunnuntaita.
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701611898/39-1210087656c895e33a34){.aw-91onpl .bRLZhq}
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701611898/39-1210087656c895e33a34)
 
 Kylmä pakkasää jatkuu alkuviikon aikana.
 

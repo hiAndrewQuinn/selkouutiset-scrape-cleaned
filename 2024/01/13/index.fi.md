@@ -6,13 +6,13 @@ Ensimmäisen Uutisviikon aihe on Suomen itäraja eli Suomen ja Venäjän väline
 
 ## Itäraja pysyy kiinni
 
-![Ihmiset eivät voi nyt ylittää Suomen itärajaa. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702400223/39-121455065788e90b80db){.aw-1l9m598 .bTKagC}
+![Ihmiset eivät voi nyt ylittää Suomen itärajaa. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702400223/39-121455065788e90b80db)
 
 Suomen itäraja on kiinni. Tällä viikolla Suomen hallitus päätti, että raja on kiinni ainakin 11. helmikuuta asti. Raja on ollut kiinni melkein koko ajan marraskuusta lähtien. Rajan yli pääsevät vain tavarajunat, eivät ihmiset.
 
 ## Suomenvenäläisiä harmittaa
 
-![Marzhan Kakimova haluaa, että Suomi avaa itärajan. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_54/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702898611/39-1216779657ee4e7b202e){.aw-1l9m598 .bTKagC}
+![Marzhan Kakimova haluaa, että Suomi avaa itärajan. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_54/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702898611/39-1216779657ee4e7b202e)
 
 Monia suomalais-venäläisiä perheitä harmittaa, että Suomen itäraja on kiinni. Monet eivät ole nähneet pitkään aikaan sukulaisia, jotka asuvat rajan takana. Siksi suomenvenäläiset ovat protestoineet rajan sulkemista vastaan.
 
@@ -20,7 +20,7 @@ Lappeenrannan mielenosoituksessa oli mukana esimerkiksi Marzhan Kakimova. Hän k
 
 ## Venäjä häiritsee Suomea
 
-![Venäjä lähettää turvapaikanhakijoita Suomen rajalle. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1014,w_1798,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702637327/39-1216250657c2ecc76b64){.aw-1l9m598 .bTKagC}
+![Venäjä lähettää turvapaikanhakijoita Suomen rajalle. Kuva: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1014,w_1798,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702637327/39-1216250657c2ecc76b64)
 
 Suomi sulki itärajan, koska Venäjä toi rajalle paljon turvapaikanhakijoita. Näin Venäjä halusi häiritä Suomea. Venäjä halusi häiritä Suomea, koska viime keväänä Suomi liittyi puolustusliitto Natoon. Venäjän mielestä Nato on Venäjän vihollinen.
 

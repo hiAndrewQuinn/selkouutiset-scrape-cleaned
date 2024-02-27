@@ -4,7 +4,7 @@ Suomen ja Venäjän raja. Tylsät työt. Pelastusarmeijan joulukeräys. Operaati
 
 ### Suomen ja Venäjän raja kiinni
 
-![Torstaina ja perjantaina rajalle tuli paljon turvapaikanhakijoita. Kuva: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_1890,w_3360,x_0,y_229/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702561407/39-1215742657b0613b71f0){.aw-108q8uy .hXqXJz}
+![Torstaina ja perjantaina rajalle tuli paljon turvapaikanhakijoita. Kuva: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_1890,w_3360,x_0,y_229/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702561407/39-1215742657b0613b71f0)
 
 Suomi on sulkenut Suomen ja Venäjän rajan tänään perjantaina. Raja pysyy kiinni tammikuun puoliväliin asti.
 
@@ -14,7 +14,7 @@ Venäjä on lähettänyt turvapaikanhakijoita kohti Suomea, koska se haluaa häi
 
 ### Tylsät työt
 
-![Jos kokous on turha, se on myös tylsä. Kuva: Mostphotos](https://images.cdn.yle.fi/image/upload/c_crop,h_1013,w_1800,x_0,y_143/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1685978173/39-858064614daffe46662){.aw-108q8uy .hXqXJz}
+![Jos kokous on turha, se on myös tylsä. Kuva: Mostphotos](https://images.cdn.yle.fi/image/upload/c_crop,h_1013,w_1800,x_0,y_143/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1685978173/39-858064614daffe46662)
 
 Monilla työntekijöillä on töissä tylsää. Näin kertoo uusi tutkimus, joka on tehty Suomessa ja Britanniassa.
 
@@ -24,7 +24,7 @@ Töissä voi olla tylsää monesta syystä. Esimerkiksi turhat kokoukset ja turh
 
 ### Pelastusarmeijan joulukeräys
 
-![Pelastusarmeijan joulupadat ovat taas kaduilla. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_402,w_716,x_4,y_1/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702661739/14-svyle-215555319725153cc0){.aw-108q8uy .hXqXJz}
+![Pelastusarmeijan joulupadat ovat taas kaduilla. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_402,w_716,x_4,y_1/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702661739/14-svyle-215555319725153cc0)
 
 Pelastusarmeijan joulukeräys on alkanut. Pelastusarmeija tuo kaduille joulupadat, joihin ihmiset voivat pudottaa rahaa.
 
@@ -34,7 +34,7 @@ Pelastusarmeija on vanha kristillinen järjestö, joka tekee auttamistyötä.
 
 ### Operaatio Lumihiutale
 
-![Joulunajan liikenne on vilkasta. Kuva: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_514/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702536952/39-1215306657aa6ad5ef69){.aw-108q8uy .hXqXJz}
+![Joulunajan liikenne on vilkasta. Kuva: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_514/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702536952/39-1215306657aa6ad5ef69)
 
 Lauantaina alkaa Autoliiton Operaatio Lumihiutale. Operaatio jatkuu tammikuun 1. päivään asti.
 
@@ -44,7 +44,7 @@ Autoliitto muistuttaa, että joulunajan liikenteessä kaikkien on hyvä ottaa hu
 
 ### Niinistö Selkosanomissa
 
-![Selkosanomat on haastatellut presidentti Sauli Niinistöä. Kuva: Kaisa Kaatra / Selkokeskus](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_174/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702564687/39-1215789657b128c10ad0){.aw-108q8uy .hXqXJz}
+![Selkosanomat on haastatellut presidentti Sauli Niinistöä. Kuva: Kaisa Kaatra / Selkokeskus](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_174/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702564687/39-1215789657b128c10ad0)
 
 Kerrotaan vielä, että uusin Selkosanomat on ilmestynyt.
 
@@ -58,7 +58,7 @@ Selkosanomat-lehti löytyy myös verkosta. Osoite on selkosanomat.fi.
 
 ### Sää
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702662142/39-1216618657c8fe29bef2){.aw-108q8uy .hXqXJz}
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702662142/39-1216618657c8fe29bef2)
 
 Lauantaina sadealue liikkuu Suomen yli itään.
 

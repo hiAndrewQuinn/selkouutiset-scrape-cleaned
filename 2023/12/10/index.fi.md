@@ -1,4 +1,59 @@
-## Radio \| Selkouutiset \| perjantai 8.12.2023
+## Radio Selkouutiset sunnuntai 10.12.2023
 
-Valtion säästöt. Sähköautot. Sauna. Sää.
+Ukrainalaislasten aivopesu. Ihmisoikeudet. Rauhannobelisti. Taloyhtiöiden riidat. Sää.
 
+### Ukrainalaislapset Venäjän leireillä
+
+![Leirin ohjaajat tunnistaa punaisista vaatteista ja radiopuhelimista. Kuva: Kuvakaappauksia Telegramista. Kuva: Kuvakaappauksia Telegramista.](https://images.cdn.yle.fi/image/upload/c_crop,h_947,w_1684,x_65,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701245115/39-12080776566f02ddc587)
+
+Ylen selvitys paljastaa, että Venäjä aivopesee ukrainalaislapsia. Venäjän leireillä yritetään saada ukrainalaislapset ihailemaan Venäjää.
+
+Suljettuja leirejä on järjestetty Pietarin suurkaupungin länsipuolella. Leirejä on ollut jo useita yli vuoden ajan. Lapset ovat kotoisin Mariupolista, jonka Venäjä tuhosi ja miehitti.
+
+Yle hankki leiriltä turvakamerakuvaa. Lisäksi Yle soluttautui eli liittyi salanimellä järjestäjien ryhmään sosiaalisessa mediassa. Ryhmässä leirin järjestäjät julkaisivat kuvamateriaalia.
+
+Aivopesu tarkoittaa sitä, että toisen ihmisen ajattelua ja käytöstä muutetaan väkisin.
+
+### Guterres ja ihmisoikeuksien päivä
+
+![YK:n pääsihteeri Antonio Guterres varoittaa autoritaarisuuden noususta. Kuva: Johnson Sabin / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3914,w_6959,x_0,y_249/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1688681393/39-113927164a73afd1f5f4)
+
+Yhdistyneiden kansakuntien eli YK:n pääsihteeri Antonio Guterres varoittaa autoritaarisuuden noususta. Siinä yksittäinen johtaja tai eliittiryhmä käyttää valtaa.
+
+Guterres sanoo, että ihmisoikeuksista muistuttaminen on nyt tärkeämpää kuin koskaan.
+
+Guterres sanoo, että kansalaisyhteiskunta on ahtaalla ja mediaa vastaan hyökätään kaikkialta. Myös sukupuolten välinen tasa-arvo on edelleen kaukainen haave.
+
+Tänään vietetään ihmisoikeuksien päivää. YK:n ihmisoikeuksien julistus hyväksyttiin tasan 75 vuotta sitten.
+
+### Rauhannobelisti syömälakossa
+
+![Nobelin tämänvuotisen rauhanpalkinnon saanut aktivisti Narges Mohammadi aloittaa uuden syömälakon iranilaisvankilassa, kun palkinto jaetaan Oslossa hänen poissa ollessaan. Kuva: Reuters](https://images.cdn.yle.fi/image/upload/c_crop,h_960,w_1707,x_0,y_275/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1696583117/39-1182289651fcd8d8e876)
+
+Nobelin rauhanpalkinto on jaettu Oslossa Norjassa. Palkinnon on saanut iranilainen ihmisoikeusaktivisti Narges naagus Mohammadi.
+
+Hän on aloittanut uuden syömälakon iranilaisessa vankilassa. Mohammadin lapset ottivat tänään rauhanpalkinnon vastaan.
+
+51-vuotias Mohammadi palkittiin taistelusta naisten sortoa vastaan Iranissa sekä ihmisoikeuksien ja vapauden puolesta.
+
+Hän on ollut vankilassa suuren osan 20:stä viime vuodesta.
+
+### Riidat taloyhtiöissä
+
+![Taloyhtiöissä on usein riitoja asukkaiden välillä sekä yhtiön ja asukkaan välillä. Kuva: Pyry Sarkiola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2197,w_3906,x_0,y_306/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693899551/39-116750164f6d9e4b2663)
+
+Monissa taloyhtiöissä on riitoja.
+
+Kilpailu- ja kuluttajavirasto saa vuodessa monta tuhatta yhteydenottoa. Ne liittyvät esimerkiksi asuntokauppaan, remontointiin ja vuokra-asumiseen.
+
+Myös taloyhtiöiden etujärjestö Suomen kiinteistöliitto saa paljon kyselyjä. Osakkaiden riidat johtuvat usein erilaisista häiriöistä kuten metelistä tai musiikin soittamisesta.
+
+Maksuton ratkaisu on Naapuruussovittelun keskus. Sovitteluja on pari sataa vuodessa. Keskuksessa riidan osapuolet tapaavat yhdessä sovittelijan kanssa.
+
+### Sää
+
+![ Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702222125/39-12134556575d8fe9be8f)
+
+Sää jatkuu pilvisenä ja ajoittaisia lumisateita liikkuu Suomen yli myös lähipäivinä.
+
+Enimmät lumisateet painottuvat etelään ja itään. Etelässä pakkasta on 1 - 7 astetta, pohjoisessa 11 - 16 astetta.

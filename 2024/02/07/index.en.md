@@ -10,7 +10,7 @@ At first, the topic is the parliament.
 
 MPs have started work after the vacation. Basic Finns MP Jussi Halla-aho was elected to continue as speaker of the parliament on Tuesday.
 
-Today, Wednesday, the opening of the Diet was held. President Sauli Niinistö opened the parliament for the last time and gave a speech to the parliament. The president will change after Sunday's election.
+Today, Wednesday, the opening of the Diet was organized. President Sauli Niinistö opened the parliament for the last time and gave a speech to the parliament. The president will change after Sunday's election.
 
 ## Early voting
 
@@ -20,7 +20,7 @@ Early voting for the 2nd round of the presidential election ended yesterday, Tue
 
 Almost 2 million people voted in advance in the 2nd round of the presidential election. This is 45.7 percent of the people who have the right to vote in Finland.
 
-More people participated in the early voting of the presidential election than ever before.
+More people participated in the early voting of the presidential elections than ever before.
 
 The next president of Finland will be Alexander Stubb or Pekka Haavisto.
 

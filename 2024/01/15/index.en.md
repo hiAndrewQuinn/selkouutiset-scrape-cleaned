@@ -1,12 +1,10 @@
-TV Selkouutiset Monday 15 January 2024
-===================================
+# TV Selkouutiset Monday 15 January 2024
 
 Internet scams. Volcano. King of Denmark. Weather.
 
 **You can also read the texts of the news here:**
 
-Phishing of bank details
-------------------------
+## Phishing of bank details
 
 First, news about online scams.
 
@@ -24,8 +22,7 @@ Disputes about compensation can end up in court proceedings. The responsibility 
 
 Criminals' number one method of phishing is to appeal to urgency.
 
-Iceland lava eruption
----------------------
+## Lava eruption in Iceland
 
 Then about the volcanoes of Iceland.
 
@@ -37,8 +34,7 @@ Grindavik, with about 4,000 inhabitants, has been evacuated, and there are no pe
 
 Officials say that the last such serious eruption was in Iceland in the 1970s.
 
-The King and Queen of Denmark
-------------------------------
+## King and Queen of Denmark
 
 Finally, about the Danish monarchy.
 
@@ -52,8 +48,7 @@ The royal family is very popular in Denmark. The king has no power, but he is an
 
 The website of Selkouutinen has a lot of information about the new king and other Nordic countries.
 
-Weather
----
+## Weather
 
 Another weather forecast.
 

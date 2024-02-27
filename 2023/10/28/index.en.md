@@ -18,7 +18,7 @@ Many aid organizations have also lost contact with aid workers in Gaza.
 
 The UN General Assembly demands a humanitarian ceasefire in Gaza. The UN General Assembly has issued a resolution on the matter. The resolution condemns violence against Palestinian and Israeli civilians.
 
-120 countries voted in favor of the resolution. 14 states voted against. 45 states abstained, i.e. did not take a position on the matter.
+120 countries voted in favor of the resolution. 14 states voted against. 45 states abstained, i.e. did not take a position on the issue.
 
 For example, Finland and many other countries voted no because the UN resolution did not condemn Hamas's attack on Israel.
 
@@ -44,19 +44,19 @@ The Sesam award for non-fiction was given to Rahkonen at the Helsinki book fair.
 
 ### Time shift
 
-![Time will be moved back one hour at 4 o'clock on Sunday morning. Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603530654/14-svyle-6142553197327452bd)
+![The time will be moved back one hour at 4 o'clock on Sunday morning. Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1603530654/14-svyle-6142553197327452bd)
 
 Daylight saving time ends tomorrow night. The time will be moved back one hour on Sunday morning at 4 o'clock.
 
 Many people like being able to sleep an hour longer because the time is moved back an hour.
 
-Time shifting was introduced in the EU in 1981. Summer time always starts at the end of March and ends at the end of October.
+The time shift was introduced in the EU in 1981. Summer time always starts at the end of March and ends at the end of October.
 
 ### Weather
 
 ![The weather is quite cold.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698504972/39-1192742653d20d3625ce)
 
-On Sunday, the weather will be mostly cloudy. It snows a lot on the coast of Ostrobothnia and the driving weather can be bad.
+On Sunday, the weather will be mostly cloudy. On the coast of Ostrobothnia, it is snowing a lot and the driving weather can be bad.
 
 The sun sometimes shines in the central and western parts of the country.
 

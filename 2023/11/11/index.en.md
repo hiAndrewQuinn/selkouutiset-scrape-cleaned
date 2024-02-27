@@ -44,7 +44,7 @@ Volunteers are given 15 hours of training.
 
 ![The editors of the half-past seven program, Ella Kanninen and Mikko Kekäläinen, were involved in Nenäpäivä. Photo: Jari Pussinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3125,w_5557,x_0,y_126/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699531130/39-1198130654cc7a81d6f6)
 
-Friday's Nenäpäivä on Yle TV1 collected more than 1.6 million euros in donations this year. Nenäpäivä is a charity campaign of the Nenäpäivä Foundation.
+Friday's Nenäpäivä on Yle TV1 collected over 1.6 million euros in donations this year. Nenäpäivä is a charity campaign of the Nenäpäivä Foundation.
 
 Nose Day invites Finns to help the world's children, who are in the most vulnerable position.
 

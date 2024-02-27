@@ -1,5 +1,4 @@
-Radio Selkouutiset 29 November 2023
------------------------------
+## Radio Selkouutiset 29 November 2023
 
 Eastern border. Shortage of manpower. Nuclear power plants. Strikes. Weather.
 
@@ -55,7 +54,7 @@ Political strikes continue.
 
 SAK's trade unions continue their industrial action today in Helsinki and elsewhere in Uusimaa.
 
-In Helsinki, the strike includes, among others, employees of the City of Helsinki, which may be reflected in the absence of sandblasting.
+In Helsinki, the strike includes, among others, employees of the city of Helsinki, which may be reflected in the absence of sandblasting.
 
 The trade unions oppose the weakening of social security and the basic rights of employees planned by the government.
 

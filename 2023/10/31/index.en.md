@@ -42,7 +42,7 @@ President Sauli Niinistö and Jenni Haukio are inviting around 1,700 guests to t
 
 A large part of the guests will be invited to Linna's party for the first time. This year, however, the guests of honor are veterans who fought for Finland's independence during the Second World War.
 
-Most Finns follow Linna's celebrations on television. Last year, almost 3 million Finns watched Linna's party.
+The majority of Finns follow Linna's celebrations on television. Last year, almost 3 million Finns watched Linna's party.
 
 ### Snowfalls in Pirkanmaa
 

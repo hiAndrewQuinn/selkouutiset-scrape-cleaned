@@ -1,5 +1,4 @@
-Radio \| Clear news \| Thursday 21 December 2023
-------------------------------------------
+## Radio \| Clear news \| Thursday 21 December 2023
 
 Finns and NATO. Icelandic volcanic eruption. Slippery streets. Weather.
 
@@ -15,7 +14,7 @@ Finns who have a good education and a good salary trust NATO the most.
 
 Finland decided to join NATO after Russia invaded Ukraine.
 
-The defense alliance NATO takes care of the security of the member countries. In addition to Finland, NATO has 30 other member countries. NATO includes the USA, Canada and most European countries.
+The defense alliance NATO takes care of the security of the member countries. In addition to Finland, there are 30 other member countries in NATO. NATO includes the USA, Canada and most European countries.
 
 ### Ash clouds from Iceland
 

@@ -1,5 +1,4 @@
-Radio Selkouutiset 28 November 2023
------------------------------
+## Radio Selkouutiset 28 November 2023
 
 Eastern border closed. Calm in Raja-Joosep. SDP's alternative budget. Thai berry pickers. Weather.
 
@@ -9,7 +8,7 @@ Eastern border closed. Calm in Raja-Joosep. SDP's alternative budget. Thai berry
 
 The government closes the entire eastern border of Finland for 2 weeks.
 
-The Inari Raja-Joosepi border station will also be closed on Thursday. The eastern border will remain closed at least until December 13. Only freight traffic can cross the eastern border of Finland.
+The Inari Raja-Joosepi border station will also be closed on Thursday. The eastern border will remain closed at least until December 13. Only goods traffic can cross the eastern border of Finland.
 
 During this time, you can only apply for a safety kit in Finland at airports and ports.
 
@@ -37,7 +36,7 @@ Parliament will discuss the opposition's alternative budgets tomorrow, Wednesday
 
 ### Thai berry pickers
 
-![A Thai strawberry picker works in a strawberry field in Hollola. Illustration picture. Photo: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3158,w_5615,x_0,y_362/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697111616/39-11854426527dce6a43a2)
+![A Thai strawberry picker works in a strawberry field in Hollola. Illustration image. Photo: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3158,w_5615,x_0,y_362/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697111616/39-11854426527dce6a43a2)
 
 The police suspect that 5 people have committed a crime in a story related to Thai berry pickers.
 

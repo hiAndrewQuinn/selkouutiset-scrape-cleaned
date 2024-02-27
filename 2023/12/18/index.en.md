@@ -1,5 +1,4 @@
-Radio Selkouutiset Monday 18 December 2023
----------------------------------------
+## Radio Selkouutiset Monday 18.12.2023
 
 Voislav Torden. Suspicion of a crime on the table. YIT's dismissals. Death doulas. Weather.
 
@@ -15,7 +14,7 @@ Torden founded a military group suspected of atrocities in Ukraine. Torden says 
 
 ### Suspicion of a crime on the table
 
-![Police suspect crimes in Pöytä municipality home care. Illustration picture. Photo: Kati M. Rantala](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_3,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697011663/39-11844756526475b78c4c)
+![Police suspect crimes in Pöytä municipality home care. Illustration image. Photo: Kati M. Rantala](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_3,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697011663/39-11844756526475b78c4c)
 
 The police suspect crimes in the Pöytä municipality home care.
 
@@ -27,15 +26,15 @@ The police do not suspect the nurses who visited the couple of a crime.
 
 ### YIT's dismissals
 
-![Construction company YIT is cutting about 50 jobs in Finland. Illustration picture. Photo: Matti Myller / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3284,w_5839,x_0,y_183/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1684497754/39-1116274646761f123a4f)
+![Construction company YIT is cutting about 50 jobs in Finland. Illustration image. Photo: Matti Myller / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3284,w_5839,x_0,y_183/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1684497754/39-1116274646761f123a4f)
 
-The construction company YIT is reducing approximately 50 jobs in Finland. In addition, people are furloughed for a limited period.
+The construction company YIT is reducing approximately 50 jobs in Finland. In addition, people are furloughed for a limited period of time.
 
 The company previously estimated that about 90 jobs need to be cut. YIT employs about 5,000 people in 9 countries.
 
 ### Death doulas
 
-![Pirkanmaa nursing home, which offers hospice care, pictured on September 8, 2022. Illustration picture. Photo: Juha Kokkala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2258,w_4029,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1662632933/39-10048756319c22aa9914)
+![Pirkanmaa nursing home, which offers hospice care, pictured on September 8, 2022. Illustration image. Photo: Juha Kokkala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2258,w_4029,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1662632933/39-10048756319c22aa9914)
 
 Death doulas are trained in Finland.
 

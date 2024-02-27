@@ -12,7 +12,7 @@ Some technology companies have already said that they are reducing employees. Fo
 
 Companies in the machine industry and the metal industry in particular have problems at the moment.
 
-That is bad news for Finland. Machine industry and metal industry companies are important to the Finnish economy.
+It is bad news for Finland. Machine industry and metal industry companies are important to the Finnish economy.
 
 If the foreign customers of the companies do not soon start buying more Finnish products, unemployment may increase.
 

@@ -1,5 +1,4 @@
-Radio Selkouutiset Sunday 3 December 2023
--------------------------------------
+## Radio Selkouutiset Sunday 3 December 2023
 
 Gaza fighting. Rovaniemi flight routes. Kaurismäki's film. The importance of sleep. Advent Sunday. Weather.
 
@@ -37,7 +36,7 @@ The big American magazine Time made a list of the best movies of this year. Numb
 
 Dead leaves is Aki Kaurismäki's film. Kaurismäki is a famous Finnish film director.
 
-Dead leaves is about the love of 2 lonely people. Actors Alma Pöysti and Jussi Vatanen star in the movie.
+Dead leaves is about the love of 2 lonely people. Actors Alma Pöysti and Jussi Vatanen star in the film.
 
 ### Sleep and learning
 
@@ -51,7 +50,7 @@ So it seems that a good night's sleep is important when a person is studying new
 
 ### Advent Sunday
 
-![The first Advent candle is lit on the first Advent Sunday. Photo: Church image bank / Markku Pihlaja](https://images.cdn.yle.fi/image/upload/c_crop,h_2784,w_4950,x_0,y_196/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1637768059/39-883537619e5adcecf75)
+![The first Advent candle is lit on the first Advent Sunday. Photo: Kirkko image bank / Markku Pihlaja](https://images.cdn.yle.fi/image/upload/c_crop,h_2784,w_4950,x_0,y_196/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1637768059/39-883537619e5adcecf75)
 
 The first Advent Sunday was celebrated on Sunday. Then the wait for Christmas begins.
 

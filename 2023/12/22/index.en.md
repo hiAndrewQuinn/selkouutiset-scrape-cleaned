@@ -1,5 +1,4 @@
-Radio \| Clear news \| Friday 22 December 2023
----------------------------------------------
+## Radio \| Clear news \| Friday 22 December 2023
 
 Presidential election debate. The Czech shooting incident. Winter solstice. Snowing. Weather.
 
@@ -17,7 +16,7 @@ Most of the candidates said the military needs more money. The reason is that Ru
 
 The presidential election will be held at the end of January.
 
-You can search for a candidate that suits you using Yle's election machine.
+You can search for a suitable candidate with Yle's election machine.
 
 When you answer the questions on the election machine, it tells you which of the candidates thinks the same way as you do.
 

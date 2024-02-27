@@ -56,7 +56,7 @@ This sauna in Iijoki is built of ice. The big pieces of ice have been sawn from 
 
 The builders of the ice sauna say that the ice sauna works well.
 
-Normally, you are in the ice sauna without clothes. Heat is retained well when water is thrown into the stove often.
+Usually you are in the ice sauna without clothes. Heat is retained well when water is thrown into the stove often.
 
 ## Weather
 

@@ -38,7 +38,7 @@ Many said that work peace is better at home than at work. Many also said that re
 
 ![ Photo: Merja Siirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_0,y_378/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698853993/39-119441665423d86dff6c)
 
-A lot of snow has fallen in the central parts of the country. For example, in Jyväskylä, it has snowed since yesterday, maybe up to 30 centimeters.
+A lot of snow has fallen in the central parts of the country. For example, in Jyväskylä, it has snowed since yesterday, perhaps up to 30 centimeters.
 
 Due to the snowfall, the driving weather is bad or very bad. In many municipalities, snow plows have been plowing the roads all day, and in many municipalities they are also plowing all night.
 

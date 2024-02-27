@@ -1,12 +1,10 @@
-TV \| Clear news \| Tuesday 16 January 2024
-=======================================
+# TV \| Clear news \| Tuesday 16 January 2024
 
 Purchasing power. Eastern border. Rome. Forecast.
 
 **You can also read the texts of the news here:**
 
-Purchasing power
----------
+## Purchasing power
 
 First, news about the economy.
 
@@ -30,8 +28,7 @@ This is what economist **Hannu Nummiaro** says.
 (Hannu Nummiaro, economist, Lähitapiola)\
 *"It's probably still 3-4 years before we're at the same level as before the beginning of this purchasing powerhouse."*
 
-Eastern border
--------
+## Eastern border
 
 Now news about the situation on the eastern border.
 
@@ -50,8 +47,7 @@ This is what deputy commander **Marko Saareks** says.
 (Correction: the person's name is Marko Saareks, deputy head of department, Border Guard. The video has the wrong name)\
 *"In any case, the number is so significant that we have to take it into account when planning and preparing for border security tasks."*
 
-Public transport in Rome
----------------------
+## Public transport in Rome
 
 Finally, news from abroad.
 
@@ -61,8 +57,7 @@ Yle reporter **Jenna Vehviläinen** travels a distance of 4 kilometers. There ar
 
 Public transport in Rome is the slowest in Europe. It took Jenna more than an hour to cover 4 kilometers. He took 2 subways and 1 bus.
 
-Weather
----
+## Weather
 
 Another weather forecast. The weather is cold. It is snowing a little in the west and north, otherwise it is quite sunny.
 

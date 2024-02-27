@@ -22,7 +22,7 @@ Strikes oppose the government's working life reforms.
 
 ## Financial difficulties in housing construction
 
-Now the economic news.
+Now the financial news.
 
 The financial difficulties of housing construction are getting worse.
 

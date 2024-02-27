@@ -36,7 +36,7 @@ The government wants more shooting ranges in Finland.
 
 There are now around 700 shooting ranges in Finland that are maintained by associations.
 
-The ranges are crowded, as the number of shooting enthusiasts has increased. For example, hunters, shooters and people who practice national defense train on the same tracks.
+The ranges are crowded, as the number of shooting enthusiasts has increased. For example, hunters, shooters and people who are involved in national defense train on the same tracks.
 
 The government wants to increase the number of shooting ranges so that there are already 1,000 of them in the next few years.
 

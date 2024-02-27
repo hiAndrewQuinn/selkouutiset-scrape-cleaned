@@ -1,5 +1,4 @@
-Radio \| Clear news \| Thursday 14 December 2023
-------------------------------------------
+## Radio \| Clear news \| Thursday 14 December 2023
 
 Eastern border. Agreement between Finland and the USA. Strike day. Weather.
 

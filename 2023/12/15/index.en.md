@@ -1,5 +1,4 @@
-Radio \| Clear news \| Friday 15 December 2023
----------------------------------------------
+## Radio \| Clear news \| Friday 15 December 2023
 
 Finnish and Russian border. Boring jobs. The Salvation Army's Christmas collection. Operation Snowflake. Clear messages. Weather.
 
@@ -41,7 +40,7 @@ Autoliito's Operation Snowflake starts on Saturday. The operation will continue 
 
 During the operation, Autoliito's volunteers help motorists who have problems with traffic during Christmas.
 
-Autoliitto reminds us that it is good for everyone to consider other motorists in traffic during the Christmas season.
+Autoliitto reminds us that it is good for everyone to consider other motorists in traffic during the Christmas period.
 
 ### Niinistö in Selkosanomi
 

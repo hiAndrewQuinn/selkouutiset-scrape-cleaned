@@ -1,5 +1,4 @@
-Radio Selkouutiset Friday 1 December 2023
--------------------------------------
+## Radio Selkouutiset Friday 1 December 2023
 
 Gaza. UN climate conference. Low-income families. Driving schools. Cold November. Saturday's weather.
 
@@ -15,7 +14,7 @@ Israel says it has struck more than 200 targets in Gaza today. Hamas says that m
 
 ### UN climate conference
 
-![Chairman of the Dubai Climate Summit Sultan Al Jaber. Image: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2247,w_3995,x_0,y_42/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701418450/39-119026365376598aea83)
+![Chairman of the Dubai Climate Summit Sultan Al Jaber. Photo: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2247,w_3995,x_0,y_42/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701418450/39-119026365376598aea83)
 
 At the UN Climate Summit in Dubai, an important agreement has been reached on a fund to compensate for climate damage.
 
@@ -27,7 +26,7 @@ The United Arab Emirates and Germany both pledged $100 million to the fund. EU c
 
 ![Not all homes have enough food. Photo: Janne Körkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4366,w_7763,x_8,y_1006/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700826485/39-120615265608cc026cb1)
 
-In Finland, children go hungry in many low-income families. This is clear from the survey that the Save the Children aid organization does every year.
+In Finland, children go hungry in many low-income families. This is clear from the survey that the Save the Children aid organization does annually.
 
 About 15 percent of the survey respondents said that the family does not have enough food. Last year, about 10 percent of respondents said that there is not enough food at home.
 

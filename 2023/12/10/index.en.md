@@ -1,20 +1,10 @@
-Radio \| Clear news \| Friday 8 December 2023
--------------------------------------------
-
-Government savings. Electric cars. Sauna. Weather.
-
-Yle Selkouutiset tells the news in easy Finnish.
-
-Selkouutiset on TV1 every weekday at 16:35 and Radio Finland every day at 21:12.
-
-Radio Selkouutiset Sunday 10 December 2023
----------------------------------------
+## Radio Selkouutiset Sunday 10.12.2023
 
 Brainwashing of Ukrainian children. Human rights. Peace Nobel laureate. Housing company disputes. Weather.
 
 ### Ukrainian children in Russian camps
 
-![You can recognize camp instructors by their red clothes and radio phones. Image: Screenshots from Telegram. Image: Screenshots from Telegram.](https://images.cdn.yle.fi/image/upload/c_crop,h_947,w_1684,x_65,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701245115/39-12080776566f02ddc587)
+![You can recognize camp instructors by their red clothes and radio phones. Image: Screenshots from Telegram. Photo: Screenshots from Telegram.](https://images.cdn.yle.fi/image/upload/c_crop,h_947,w_1684,x_65,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701245115/39-12080776566f02ddc587)
 
 Yle's report reveals that Russia is brainwashing Ukrainian children. At Russian camps, they try to make Ukrainian children admire Russia.
 

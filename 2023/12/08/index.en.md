@@ -1,14 +1,4 @@
-Radio \| Clear news \| Friday 8 December 2023
--------------------------------------------
-
-Government savings. Electric cars. Sauna. Weather.
-
-Yle Selkouutiset tells the news in easy Finnish.
-
-Selkouutiset on TV1 every weekday at 16:35 and Radio Finland every day at 21:12.
-
-Radio \| Clear news \| Friday 8 December 2023
--------------------------------------------
+## Radio \| Clear news \| Friday 8 December 2023
 
 Train strike. Putin. Electric cars. Drowned. Finnish Music Day. Weather.
 

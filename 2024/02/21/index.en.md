@@ -12,7 +12,7 @@ In January, there were over 30,000 more unemployed than a year ago.
 
 There are also more laid off people. Those who have been furloughed still have a job, but they are on compulsory leave without pay.
 
-The number of unemployed people has therefore increased.
+So the number of unemployed people has increased.
 
 However, Elina Pylkkänen from the Ministry of Labor and Economic Affairs sees signs that the situation is starting to improve. For example, the number of open jobs has started to increase.
 

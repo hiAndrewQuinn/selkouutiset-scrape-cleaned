@@ -8,7 +8,7 @@ Corona situation. Use of alcohol. Tourism in Lapland. The bears of Korkeasaari. 
 
 The number of corona cases is increasing. The coronavirus is now increasing throughout Finland.
 
-There are about 10 corona patients in intensive care. In addition, the hospitals have approximately 450 inpatients with corona infection.
+There are about 10 corona patients in intensive care. In addition, the hospitals have approximately 450 bed patients with corona infection.
 
 The corona situation will probably get worse as the winter progresses. The aim is to secure the operation of hospitals with the help of corona vaccinations.
 
@@ -42,7 +42,7 @@ Tourists are especially interested in the snowy winter. October has now been sno
 
 The bears of Korkeasaari Zoo have gone into hibernation. The bears slept soundly this fall already at the end of October.
 
-In recent years, the bears have usually gone into hibernation a little later, in early November.
+In recent years, bears have usually gone into hibernation a little later, in early November.
 
 Before hibernation, the bears have eaten a lot. A thick layer of fat protects the bears during their long winter sleep.
 

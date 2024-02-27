@@ -1,5 +1,4 @@
-Radio Selkouutiset Thursday 30 November 2023
--------------------------------------
+## Radio Selkouutiset Thursday 30 November 2023
 
 Eastern border of Finland. Fazer dismisses. Party support measurement. UN climate conference. The warmest year on record. Friday weather.
 
@@ -21,7 +20,7 @@ The food company Fazer is laying off dozens of people.
 
 Fazer is laying off 64 employees from the Kouvola factory. Fazer has already dismissed around 80 employees from the same factory earlier this year.
 
-Fazer justifies the reductions by the fact that oat milk production is being moved from Kouvola to Sweden. In the future, oat yogurts, or gurts, will be made at the Kouvola factory.
+Fazer justifies the reductions by the fact that the production of oat milk is being moved from Kouvola to Sweden. In the future, oat yogurts, or gurts, will be made at the Kouvola factory.
 
 ### Party support
 
@@ -35,7 +34,7 @@ The changes from the previous support survey in October were very small.
 
 ### UN climate conference
 
-![Abu Dhabi National Oil Company Director Sultan Al Jaber leads negotiations at the UN climate conference. Photo: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3995,x_0,y_81/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701178027/39-12077946565ea187de76)
+![Abu Dhabi National Oil Company Director Sultan Al Jaber leads negotiations at the UN climate conference. Image: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3995,x_0,y_81/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701178027/39-12077946565ea187de76)
 
 The UN climate conference has started in Dubai, United Arab Emirates.
 

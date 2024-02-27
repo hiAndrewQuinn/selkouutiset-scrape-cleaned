@@ -52,7 +52,7 @@ There are strikes in Finland this week.
 
 Many kindergartens are closed on Tuesday and Wednesday due to the strike.
 
-There are also strikes in other workplaces. Due to strikes, for example, the selection of shops may be smaller than usual.
+There are also strikes in other workplaces. Due to strikes, for example, the selection of stores may be smaller than usual.
 
 ## Weather
 

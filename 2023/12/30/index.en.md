@@ -1,5 +1,4 @@
-Radio \| Clear news \| Friday 29 December 2023
----------------------------------------------
+## Radio \| Clear news \| Friday 29 December 2023
 
 Russian attacks on Ukraine. Road safety. World population. Weather. Clear news next year.
 
@@ -25,7 +24,7 @@ Traffic safety has been improving for a long time. Even about 50 years ago, even
 
 ### World population
 
-![In January, 4 people are born in the world every second. Image: Alamy / All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_2285,w_4063,x_0,y_425/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1631857516/39-78934860614ca07066a)
+![In January, 4 people are born in the world every second. Photo: Alamy / All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_2285,w_4063,x_0,y_425/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1631857516/39-78934860614ca07066a)
 
 The world's population has grown this year as well.
 

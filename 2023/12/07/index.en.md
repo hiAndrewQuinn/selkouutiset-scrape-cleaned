@@ -1,5 +1,4 @@
-Radio \| Clear news \| Thursday 7 December 2023
-------------------------------------------
+## Radio \| Clear news \| Thursday 7 December 2023
 
 SAK's strike plans. Police activities on Independence Day. The popularity of castle parties. Sales advisor Tiivola died. Weather.
 

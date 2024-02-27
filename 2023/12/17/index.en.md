@@ -1,5 +1,4 @@
-Radio \| Clear news \| Sunday 17 December 2023
----------------------------------------------
+## Radio \| Clear news \| Sunday 17 December 2023
 
 Eastern border. Visiting graves. Personal tax scams. Turkey Mali. Weather.
 
@@ -27,7 +26,7 @@ Many relatives scatter the ashes, for example, in the sea or in another place th
 
 ![In the Omavero service, you can handle your own tax affairs. However, you should not give your own bank credentials to strange messages. Photo: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2852,w_5070,x_0,y_166/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1666765089/39-7368105f9d3694cc146)
 
-The police are again warning about Omavero scam messages. Self-tax is the tax administration's online service where you can handle your own tax affairs.
+The police are again warning about Omavero scam messages. Self-tax is the tax administration's online service where you can handle your own tax matters.
 
 Fraudsters have been spreading messages that look like messages from the tax administration. The scam messages have included a link asking for a person's online banking credentials. Actually, the message is not from the tax administration, but the message is from criminals who are trying to get people's bank credentials.
 

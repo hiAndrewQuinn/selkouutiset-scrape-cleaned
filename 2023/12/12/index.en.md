@@ -1,5 +1,4 @@
-Radio \| Clear news \| Tuesday 12 December 2023
-------------------------------------------
+## Radio \| Clear news \| Tuesday 12 December 2023
 
 Eastern border. Shooting incident in Helsinki. Housing trade. UN climate conference. Weather.
 

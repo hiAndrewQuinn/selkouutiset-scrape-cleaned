@@ -1,5 +1,4 @@
-Radio Selkouutiset 28 December 2023
------------------------------
+## Radio Selkouutiset 28.12.2023
 
 New strikes. Digital health services. Fishing Act. Greeting. Weather.
 
@@ -25,7 +24,7 @@ Digital transactions in health services are becoming more common.
 
 According to a survey by the Institute of Health and Welfare, more than 35 percent of Finns have used digital social and health services during the year.
 
-Digital services are now being developed in all welfare areas. For example, the Hyvä-digi digisotekeskus started in the welfare region of Eastern Uusimaa at the beginning of September. During the first three months, Hyvä-digi has treated a total of approximately 7,000 patients.
+Digital services are now being developed in all welfare areas. For example, the Hyvä-digi digisotekeskus started in the welfare region of Eastern Uusimaa at the beginning of September. During the first three months, Hyvä-digi has treated a total of around 7,000 patients.
 
 In digital health services, the customer communicates with a doctor or nurse via chat or video connection.
 

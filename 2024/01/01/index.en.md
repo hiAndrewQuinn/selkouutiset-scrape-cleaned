@@ -24,7 +24,7 @@ Traffic safety has been improving for a long time. Even about 50 years ago, even
 
 ### World population
 
-![In January, 4 people are born in the world every second. Image: Alamy / All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_2285,w_4063,x_0,y_425/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1631857516/39-78934860614ca07066a)
+![In January, 4 people are born in the world every second. Photo: Alamy / All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_2285,w_4063,x_0,y_425/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1631857516/39-78934860614ca07066a)
 
 The world's population has grown this year as well.
 
@@ -58,7 +58,7 @@ Next year, weekday news will be broadcast on TV1, Yle Areena and on the website 
 
 Radio Finland will start a new current affairs program Uutisviikko in clear Finnish next year. Selkouutiset makes two Uutisviikko programs in plain Finnish every week. They are sent on Saturday and Sunday.
 
-The first Uutisviikko programs in plain Finnish will be broadcast on Saturday January 13th and Sunday January 14th. In addition to Radio Suomen, the programs can be heard on Yle Areena and on the website of Selkouinten.
+The first Uutisviikko programs in plain Finnish will be broadcast on Saturday January 13 and Sunday January 14. In addition to Radio Suomen, the programs can be heard on Yle Areena and on the website of Selkouinten.
 
 ![ Photo: Sharosh Rajasekher / Unsplash](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_175/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1672296040/39-105331563aafba278b68)
 

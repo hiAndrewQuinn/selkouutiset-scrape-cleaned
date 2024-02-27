@@ -1,14 +1,4 @@
-Radio \| Clear news \| Friday 8 December 2023
--------------------------------------------
-
-Government savings. Electric cars. Sauna. Weather.
-
-Yle Selkouutiset tells the news in easy Finnish.
-
-Selkouutiset on TV1 every weekday at 16:35 and Radio Finland every day at 21:12.
-
-Radio Selkouutiset Saturday 9 December 2023
--------------------------------------
+## Radio Selkouutiset Saturday 9 December 2023
 
 Research by the Chinese ship Newnew Polar Bear. Students' scientific thinking. Regulation of artificial intelligence. The work of police dogs. Weather.
 
@@ -38,7 +28,7 @@ Research shows that not everyone learns even the basic concepts of science durin
 
 ### Regulation of artificial intelligence
 
-![Artificial intelligence is both a help and a danger to humanity. That's why we want to regulate it. Image: Mostphotos](https://images.cdn.yle.fi/image/upload/c_crop,h_2475,w_4400,x_0,y_821/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693829679/39-115465064d4ba831e8a8)
+![Artificial intelligence is both a help and a danger to humanity. That's why we want to regulate it. Photo: Mostphotos](https://images.cdn.yle.fi/image/upload/c_crop,h_2475,w_4400,x_0,y_821/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693829679/39-115465064d4ba831e8a8)
 
 The European Union has reached a preliminary agreement on a law that regulates the use of artificial intelligence.
 
@@ -48,7 +38,7 @@ The agreement respects human rights in the digital age, European values, but enc
 
 ### Police dogs
 
-![Senior constable Teppo Kainulainen and police dog Roope. Photo: Minna Almark](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_285/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702118433/39-117897965169f3fbbe8d)
+![Senior constable Teppo Kainulainen and police dog Roope. Photo: Minna Almark](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_285/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702118433/39-117897965169f3fbbe8d)
 
 Finnish police dogs have many different tasks.
 

@@ -58,4 +58,4 @@ All adult citizens are allowed to vote.
 
 The new president is the one that more than half of the voters support.
 
-This was Utisviikko in clear Finnish See you again, by the way!
+This was News Week in clear Finnish See you again, by the way!

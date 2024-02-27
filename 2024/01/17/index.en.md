@@ -20,7 +20,7 @@ Early voting for the presidential election has begun.
 
 All adult Finnish citizens can vote in the presidential election.
 
-Information about the presidential elections in plain language can be found at![vaalit.fi](https://vaalit.fi/etusivu) and![selkokeskus.fi](https://selkokeskus.fi/).
+Information about the presidential election in plain language can be found at the websites![vaalit.fi](https://vaalit.fi/etusivu) and![selkokeskus.fi](https://selkokeskus.fi/).
 
 ## Shoplifting
 

@@ -14,7 +14,7 @@ The candidates discussed, for example, the situation on the eastern border. Most
 
 The Coalition's **Alexader Stubb** reminded that people can be turned away from the border in Norway.
 
-*Push back is, for example, legal in Norway. We have the problem at the moment that it is not yet legal in the European Union, but unfortunately we have to fight hard with Russia.*
+*Push back is, for example, legal in Norway. We have the problem at the moment that it is not yet legal in the European Union, but with Russia, unfortunately, we have to fight hard.*
 
 The presidential candidates discussed the situation on the eastern border yesterday.
 

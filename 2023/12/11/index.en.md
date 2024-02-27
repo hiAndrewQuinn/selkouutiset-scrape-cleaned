@@ -1,5 +1,4 @@
-Radio \| Clear news \| Monday 11 December 2023
----------------------------------------------
+## Radio \| Clear news \| Monday 11 December 2023
 
 Strikes. Eastern border. International Equality Award. Use of Yle Areena. Forecast.
 
@@ -23,7 +22,7 @@ Finland is considering opening the eastern border. Foreign Minister **Elina Valt
 
 Finland closed the eastern border because Russia started sending asylum seekers to Finland. Finland can open the border if Russia stops sending asylum seekers to the border.
 
-The decision to close the eastern border ends on Thursday. The government must decide at the beginning of the week whether Finland will continue to close the border or whether Finland will open the border.
+The decision to close the eastern border ends on Thursday. The government must decide at the beginning of the week whether Finland will continue to close the border or open the border.
 
 ### International Equality Award
 

@@ -32,7 +32,7 @@ The course has students from many countries. They study together, there is no te
 
 (Student Ville-Veikko Patjas)
 
-*- Everyone works as a teacher and student at the same time. We mainly do group work here, and so far it has gone surprisingly smoothly. There is a good supportive atmosphere here.*
+*- Everyone works as a teacher and student at the same time. We mainly do group work here and so far it has gone surprisingly smoothly. There is a good supportive atmosphere here.*
 
 Rapid training for coders has started in Åland.
 

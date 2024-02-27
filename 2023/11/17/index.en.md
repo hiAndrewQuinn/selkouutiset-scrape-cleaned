@@ -58,4 +58,4 @@ On Saturday, it may snow a little in the south and east. Elsewhere, it's cloudy,
 
 It is mostly cloudy, but the sun shines in places, at least in Northern Lapland.
 
-The temperature will be freezing all over the country at the weekend. In the south there is only a little frost, but in the north the frost is intense.
+The temperature will be freezing all over the country at the weekend. In the south there is only a little frost, but in the north the frost is severe.

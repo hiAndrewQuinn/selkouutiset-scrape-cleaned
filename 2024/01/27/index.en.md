@@ -46,7 +46,7 @@ We still don't know who will be the next spouse of the president. What is certai
 
 ## Repeat
 
-This time, the topic of Uutisvikio has been the role of the president's spouse.
+This time the topic of Uutisviikko has been the role of the president's spouse.
 
 Finland will soon have a new president.
 

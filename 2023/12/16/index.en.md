@@ -1,5 +1,4 @@
-Radio \| Clear news \| Saturday 16 December 2023
--------------------------------------------
+## Radio \| Clear news \| Saturday 16 December 2023
 
 Eastern border. Dog registry. Sports and cultural benefit. Exchange electricity. Weather.
 
@@ -29,7 +28,7 @@ The purpose of the dog registry is to reduce puppy mills, i.e. the fact that a l
 
 Finns miss out on a lot of the exercise and cultural benefits of their workplaces. Many companies give their employees sports and culture vouchers. The benefit is tax-free for the employee.
 
-The companies distribute sports and culture vouchers worth around 400 million euros per year. Tens of millions of euros in benefits remain unused. This is what the companies that pass sports and culture vouchers from companies to people say. The companies say people don't always know they have benefits available to them.
+The companies distribute sports and culture vouchers worth around 400 million euros per year. Tens of millions of euros in benefits remain unused. This is what the companies that pass sports and culture vouchers from companies to people say. Companies say people don't always know they have benefits available to them.
 
 Sports and culture vouchers must be used by the end of the year.
 

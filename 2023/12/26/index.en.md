@@ -1,11 +1,10 @@
-Radio \| Clear news \| Tuesday 26 December 2023
-------------------------------------------
+## Radio \| Clear news \| Tuesday 26 December 2023
 
 Presidential candidates. War in Ukraine. Christmas traffic. Finns' feet. Weather.
 
 ### Presidential candidates
 
-![ Photo: Leena Luotio / Yle, Hilppa Hyrkäs / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703585205/39-1220354658aa55111eb6)
+![ Photo: Leena Luotio / Yle, Hilppa Hyrkäs / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703585205/39-1220354658aa55111eb6)
 
 The presidential candidates are divided on whether it is too easy to live on social benefits in Finland.
 

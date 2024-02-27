@@ -1,5 +1,4 @@
-Radio Selkouutiset Saturday 23 December 2023
--------------------------------------
+## Radio Selkouutiset Saturday 23 December 2023
 
 Christmas traffic. Flights late. Store shelters. Weather.
 
@@ -13,7 +12,7 @@ The roads had the most traffic in the afternoon. The driving weather has been ba
 
 ### Flights are late
 
-![The flights have been delayed because of the snow. Photo: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2874,w_5110,x_0,y_119/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703245066/39-1219830658573a0aee81)
+![The flights have been delayed because of the snow. Image: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2874,w_5110,x_0,y_119/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703245066/39-1219830658573a0aee81)
 
 Due to the snowfall, the flights are also late.
 

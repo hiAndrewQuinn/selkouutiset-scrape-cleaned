@@ -24,7 +24,7 @@ As president, Niinistö has emphasized the power of the president in managing fo
 
 He also had good relations with the presidents of the USA and Russia. Relations with Russia are now broken because of the war of aggression.
 
-![US President Joe Biden and Finnish President Sauli Niinistö. Image: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1688634029/39-113877464a677d215b54)
+![US President Joe Biden and Finnish President Sauli Niinistö. Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1688634029/39-113877464a677d215b54)
 
 Finance has always been important to Niinistö. Even as president, he has emphasized economic discipline.
 

@@ -20,9 +20,9 @@ Election day is next Sunday.
 
 Early voting for the presidential election continues.
 
-More information about the elections can be found in the program![Uutisviikko in clear Finnish](https://yle.fi/a/74-20070449). It can be found at yle.fi/selkouutiset, under All broadcasts.
+More information about the elections can be found in the program [Uutisviikko in clear Finnish] (https://yle.fi/a/74-20070449). It can be found at yle.fi/selkouutiset, under All broadcasts.
 
-Election information in Finnish is also available at![selkokeskus.fi](https://selkokeskus.fi/) and![vaalit.fi](https://vaalit.fi/frontpage).
+Election information in Selko-Finnish is also available at![selkokeskus.fi](https://selkokeskus.fi/) and![vaalit.fi](https://vaalit.fi/etusivu).
 
 ## Home museums of the presidents
 

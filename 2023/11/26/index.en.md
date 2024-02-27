@@ -1,5 +1,4 @@
-Radio \| Clear news \| Sunday 26 November 2023
----------------------------------------------
+## Radio \| Clear news \| Sunday 26 November 2023
 
 Asylum seekers. Prime Minister Orpo. Israel. Northern lights. Weather.
 
@@ -7,7 +6,7 @@ Asylum seekers. Prime Minister Orpo. Israel. Northern lights. Weather.
 
 ![Raja-Joosepi border station photographed on November 24, 2023. Photo: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_424/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700842179/39-120631365609f1502057)
 
-On Sunday, 3 asylum seekers from Russia came to Finland. The men crossed the border in the afternoon. On Saturday, 55 people from Russia came to Inari's Raja-Joosepi border station.
+3 asylum seekers from Russia came to Finland on Sunday. The men crossed the border in the afternoon. On Saturday, 55 people from Russia came to Inari's Raja-Joosepi border station.
 
 Raja-Jooseppi is currently the only border crossing on Finland's eastern border that is open. Other border crossings are closed because Russia is directing people from other countries to Finland.
 

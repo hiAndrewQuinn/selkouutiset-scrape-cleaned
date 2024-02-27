@@ -22,7 +22,7 @@ Ennakkoon on äänestänyt noin 40 prosenttia prosenttia äänioikeutetuista.
 
 Varsinainen vaalipäivä on ensi sunnuntai.
 
-Uutisviikko selkosuomeksi kertoo lisää presidenttiehdokkaista. Ohjelmat löytyvät osoitteesta yle.fi/selkouutiset, kohdasta [Kaikki lähetykset.](https://yle.fi/selkouutiset/kaikki-lahetykset)
+Uutisviikko selkosuomeksi kertoo lisää presidenttiehdokkaista. Ohjelmat löytyvät osoitteesta yle.fi/selkouutiset, kohdasta [Kaikki lähetykset.](https://yle.fi/selkouutiset/kaikki-lahetykset){.aw-iao6s4 .drtaeR .yle__article__link role="link"}
 
 ## Akavan ulosmarssi
 

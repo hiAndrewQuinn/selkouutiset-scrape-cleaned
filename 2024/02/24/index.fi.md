@@ -10,7 +10,7 @@ Nyt kerromme Niinistön kaudesta.
 
 ## Presidentti Sauli Niinistö
 
-![ Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_197/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1689336195/39-114284264b1384bdcfe5)
+![ Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_197/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1689336195/39-114284264b1384bdcfe5){.aw-1l9m598 .bTKagC}
 
 Sauli Väinämö Niinistö on ollut Suomen presidentti 2 kautta eli 12 vuotta.
 
@@ -24,7 +24,7 @@ Presidenttinä Niinistö on korostanut presidentin valtaa ulkopolitiikan hoidoss
 
 Hän myös piti hyviä suhteita USA:n ja Venäjän presidentteihin. Suhteet Venäjään ovat nyt poikki hyökkäyssodan takia.
 
-![USA:n presidentti Joe Biden ja Suomen presidentti Sauli Niinistö. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1688634029/39-113877464a677d215b54)
+![USA:n presidentti Joe Biden ja Suomen presidentti Sauli Niinistö. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1688634029/39-113877464a677d215b54){.aw-1l9m598 .bTKagC}
 
 Niinistölle talous on aina ollut tärkeä asia. Myös presidenttinä hän on korostanut talouskuria.
 
@@ -34,7 +34,7 @@ Niinistö alkoi presidenttinä puhua myös ilmastonmuutoksen vaaroista. Hän on 
 
 ## Niinistön suosio
 
-![Presidentti Sauli Niinistö teki viimeisen maakuntavierailun Saloon. Salo on Niinistön synnyinkaupunki. Salon torilla häntä oli tapaamassa satoja ihmisiä. Kuva: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_64/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708597528/39-124785065d720f51b156)
+![Presidentti Sauli Niinistö teki viimeisen maakuntavierailun Saloon. Salo on Niinistön synnyinkaupunki. Salon torilla häntä oli tapaamassa satoja ihmisiä. Kuva: Jussi Nukari / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_64/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708597528/39-124785065d720f51b156){.aw-1l9m598 .bTKagC}
 
 Sauli Niinistöstä on tullut hyvin suosittu presidentti.
 
@@ -48,7 +48,7 @@ Suomalaisten enemmistön mielestä ratkaisu oli oikea ja presidentti toimi asias
 
 ## Suomen presidentit
 
-![Presidentinlinna Helsingissä. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1607272318/39-7509385fcd06a53f54c)
+![Presidentinlinna Helsingissä. Kuva: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2813,w_5000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1607272318/39-7509385fcd06a53f54c){.aw-1l9m598 .bTKagC}
 
 Sauli Niinistö on presidentti myös sen jälkeen, kun hän on lopettanut presidentin työn.
 

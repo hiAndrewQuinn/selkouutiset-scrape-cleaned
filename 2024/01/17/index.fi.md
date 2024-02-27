@@ -20,7 +20,7 @@ Presidentinvaalien ennakkoäänestys on alkanut.
 
 Kaikki aikuiset Suomen kansalaiset saavat äänestää presidentinvaaleissa.
 
-Tietoa presidentinvaaleista selkokielellä löytyy nettiosoitteista [vaalit.fi](https://vaalit.fi/etusivu) ja [selkokeskus.fi](https://selkokeskus.fi/).
+Tietoa presidentinvaaleista selkokielellä löytyy nettiosoitteista [vaalit.fi](https://vaalit.fi/etusivu){.aw-iao6s4 .drtaeR .yle__article__link role="link"} ja [selkokeskus.fi](https://selkokeskus.fi/){.aw-iao6s4 .drtaeR .yle__article__link role="link"}.
 
 ## Myymälävarkaudet
 

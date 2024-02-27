@@ -6,7 +6,7 @@ Tällä kertaa Uutisviikon aihe on se, että Tanskassa on uusi kuningas. Tanska 
 
 ## Kuningas Frederik
 
-![Tanskan kuningaspari Frederik ja Mary. Kuva: Bo Amstrup / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3015,w_5359,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705244966/39-122767165a3f5eb69db1)
+![Tanskan kuningaspari Frederik ja Mary. Kuva: Bo Amstrup / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3015,w_5359,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705244966/39-122767165a3f5eb69db1){.aw-1l9m598 .bTKagC}
 
 Tanskalaisilla on uusi kuningas. Hän on Frederik X.
 
@@ -18,7 +18,7 @@ Kuningasperhe on Tanskassa tosi suosittu. Kuninkaalla ei ole valtaa, mutta hän 
 
 ## Kuningatar Margareeta
 
-![Tanskan Margareeta vierailulla Suomesa vuonna 2017. Kuningatar Suomen presidenttiparin keskellä. Kuva: All over press/ Timo Korhonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3130,w_5568,x_0,y_426/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705250801/14-svyle-342743592fc74029ed3)
+![Tanskan Margareeta vierailulla Suomesa vuonna 2017. Kuningatar Suomen presidenttiparin keskellä. Kuva: All over press/ Timo Korhonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3130,w_5568,x_0,y_426/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705250801/14-svyle-342743592fc74029ed3){.aw-1l9m598 .bTKagC}
 
 Frederikistä tuli kuningas, koska kuningatar Margareeta II luopui kruunusta. 83-vuotias Margareeta on Tanskan edellinen hallitsija ja Frederikin äiti.
 
@@ -30,7 +30,7 @@ Margareeta sanoi myös, että Suomi ja muut Pohjoismaat ovat yksi perhe.
 
 ## Pohjoismaat
 
-![Kaikkien Pohjoismaiden eli Islannin, Norjan, Tanskan, Ruotsin ja Suomen liput. Kuva: Mostphotos](https://images.cdn.yle.fi/image/upload/c_crop,h_2052,w_3648,x_0,y_604/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705251223/39-6746475ebba7c6ca01f)
+![Kaikkien Pohjoismaiden eli Islannin, Norjan, Tanskan, Ruotsin ja Suomen liput. Kuva: Mostphotos](https://images.cdn.yle.fi/image/upload/c_crop,h_2052,w_3648,x_0,y_604/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705251223/39-6746475ebba7c6ca01f){.aw-1l9m598 .bTKagC}
 
 Tanskan kuninkaalliset kiinnostavat monia suomalaisia, koska Tanska on tuttu maa. Tanskalaisilla on hyvin samanlainen kulttuuri ja samanlaiset arvot kuin suomalaisilla.
 

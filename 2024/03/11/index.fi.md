@@ -1,0 +1,64 @@
+# TV \| Selkouutiset \| maanantai 11.3.2024
+
+Lakko. Alkoholipolitiikka. Oscar-palkinnot. Sääennuste.
+
+*Voit lukea uutisten tekstit myös tästä:*
+
+## Lakko
+
+Aluksi lakkouutinen.
+
+Suomessa on alkanut tänään laaja poliittinen lakko. Lakkoon osallistuu noin 7000 ihmistä.
+
+Satamien työntekijät ovat lakossa. Siksi lakko pysäyttää Suomen viennin ja tuonnin.
+
+Tavaroiden kuljetuksissa voi olla viiveitä. Siksi kaupoista voi puuttua esimerkiksi joitain hedelmiä. Joiltakin bensiiniasemilta voi välillä loppua bensiini.
+
+Lakot haittaavat erityisesti metalliteollisuutta, kemianteollisuutta ja metsäteollisuutta.
+
+Suomessa on alkanut tänään laaja poliittinen lakko.
+
+Lakolla ammattijärjestöt vastustavat työelämäuudistuksia, joita hallitus aikoo tehdä. Lakko kestää 2 viikkoa.
+
+## Alkoholipolitiikan muutos
+
+Nyt uutinen alkoholipolitiikasta.
+
+Suomen alkoholipolitiikka ehkä muuttuu. Näin arvioivat tutkijat.
+
+Hallituksen suunnitelmissa on monta asiaa, jotka helpottavat alkoholin myyntiä.
+
+Vahvat oluet ja siiderit tulevat kauppoihin ehkä tänä keväänä.
+
+Suomessa myös keskustellaan siitä, tuodaanko viinit ruokakauppoihin. Nyt viinejä ja vahvoja oluita saa myydä vain Alkossa.
+
+Suomen alkoholipolitiikka ehkä muuttuu.
+
+**Thomas Karlsson** on Terveyden ja hyvinvoinninlaitoksen tutkija. Karlsson arvioi, että Alkon asema voi heikentyä, jos alkoholijuomien määrä kaupoissa kasvaa.
+
+*"Ei meillä enää sitten oikein ole, perusteita eikä myöskään mahdollisuutta pitää vain monopolia väkeville juomille."*
+
+## Elokuva-alan Oscar-palkinnot
+
+Lopuksi uutinen elokuva-alan Oscar-palkinnoista.
+
+USA:ssa on jaettu taas elokuva-alan Oscar-palkinnot.
+
+Eniten Oscar-palkintoja sai elokuva *Oppenheimer*. Elokuva kertoo miehestä, joka kehitti ydinaseen. Oppenheimer voitti 7 Oscaria.
+
+Fyysikko Robert Oppenheimeriä esittää **Killian Murphy**. Hän sai parhaan miespääosan palkinnon.
+
+Parhaan naispääosan palkinnon sai **Emma Stone**. Hän esittää pääosaa elokuvassa *Poor Things*.
+
+USA:ssa on jaettu taas elokuva-alan Oscar-palkinnot.
+
+**Billie Eilish** palkittiin musiikista, jonka hän esittää *Barbie*-elokuvassa.
+
+## Sää
+
+Vielä sääennuste.
+
+Tiistaina on laajalti aurinkoista. Pohjois-Lapissa sataa vähän lunta.
+
+Lämpötila on -1 ja +6 asteen välillä. Viileintä on pohjoisessa.
+

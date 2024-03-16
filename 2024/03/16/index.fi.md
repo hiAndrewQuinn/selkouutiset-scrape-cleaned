@@ -1,0 +1,42 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 16.3.2024
+
+Suomalaisen peruskoulun muutokset.
+
+Uutisviikon aiheena on suomalainen peruskoulu. Koulujen välillä on Suomessa suurempia eroja kuin ennen. Myös suomalaisten nuorten oppimistulokset ovat huonompia kuin aikaisemmin. Suomessa syntyy niin vähän lapsia, että tulevaisuudessa kouluja pitää sulkea. Tästä kaikesta kerromme nyt lisää.
+
+## Koulujen väliset erot
+
+![ Kuva: Kalle Niskala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3147,w_5595,x_0,y_469/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710319189/39-125688465f1626c2b8a1)
+
+Koulujen väliset erot ovat Suomessa entistä suurempia. Joissakin kouluissa suurin osa oppilaista menestyy hyvin. Joissakin kouluissa taas lasten oppimistulokset ovat huonoja.
+
+Lapsen perhetausta vaikuttaa entistä enemmän siihen, mihin kouluun lapsi menee. Suomessa on kouluja, joissa monen lapsen perheessä on paljon erilaisia ongelmia. Tämä vaikuttaa lasten koulumenestykseen.
+
+Jos lapsen vanhemmilla on korkea koulutus ja hyvä palkka, lapsi laitetaan usein kouluun, jolla on hyvä maine. Tällaisissa kouluissa lapset saavat usein hyviä arvosanoja.
+
+Pääkaupunkiseudulla joissakin kouluissa on paljon maahanmuuttajataustaisia oppilaita. Maahanmuuttajataustaisilla lapsilla voi olla ongelmia esimerkiksi suomen kielen kanssa.
+
+## Oppimistulokset
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_95/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700419794/39-1203088655a57e032b5a)
+
+Suomalaisten nuorten oppimistulokset ovat huonompia kuin aikaisemmin. Nuorten lukutaito on huonompi kuin ennen. Nuoret osaavat myös matematiikkaa huonommin kuin aiemmin.
+
+Suomalaisten nuorten oppimistulokset ovat kuitenkin yhä parempia kuin monessa muussa Euroopan maassa. Lasten oppimistulokset ovat entistä huonompia myös muualla Euroopassa.
+
+## Koulujen sulkeminen
+
+![Niittylahden alakoulu päätyi lakkautettavien kyläkoulujen joukkoon 22.1.24. Kuva: Siru Päivinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_567/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706267844/39-123355165b3936896abb)
+
+Suomessa on pian niin vähän lapsia, että kuntien pitää sulkea kouluja. Kaikkiin kouluihin ei riitä oppilaita. Varsinkin pieniä kouluja maaseudulla pitää sulkea.
+
+Monessa Suomen kunnassa on enää 1 peruskoulu. Samalla lasten koulumatka on pitempi kuin aikaisemmin.
+
+Vuonna 2030 Suomessa on ehkä 80 000 peruskoululaista vähemmän kuin nyt.
+
+## Kertaus
+
+Uutisviikon aiheena oli suomalainen peruskoulu. Kerrataan vielä tärkeimmät asiat. Koulujen välillä on suurempia eroja kuin aikaisemmin. Suomalaisten nuorten oppimistulokset ovat heikentyneet. Kouluja pitää tulevaisuudessa sulkea, koska Suomessa syntyy vain vähän lapsia.
+
+Tämä oli Uutisviikko selkosuomeksi, tavataan taas. Kuulemiin!
+

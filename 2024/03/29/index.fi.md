@@ -1,0 +1,66 @@
+# TV \| Selkouutiset \| torstai 28.3.2024
+
+Sähköautojen lataus. Stubbin maakuntamatka. Sää.
+
+## Sähköautojen lataus
+
+Ensin uutinen sähköautoista.
+
+Sähköauton lataaminen on pian helpompaa.
+
+Latureihin tulee maksupääte. Silloin sähköauton voi ladata myös tavallisella pankki- ja luottokortilla.
+
+Uusissa latureissa pitää olla maksupääte jo huhtikuun puolivälistä alkaen.
+
+Vanhoihin latureihin pitää asentaa maksupääte vuoden 2027 alkuun mennessä.
+
+Sähköauton lataaminen on siis pian helpompaa.
+
+Toivotaan, että korttimaksu lisää sähköautojen suosiota.
+
+Myös tulevaisuudessa sähköauton voi ladata mobiilisovelluksilla ja etätunnisteilla. Nämä maksutavat eivät poistu käytöstä.
+
+## Stubbin maakuntamatka
+
+Sitten uutinen presidentistä.
+
+Presidentti Alexander Stubb on tehnyt ensimmäisen maakuntamatkan.
+
+Maakuntamatkoilla presidentti tutustuu Suomen eri alueisiin. Stubbin ensimmäisen maakuntamatkan kohde oli Itä-Suomi.
+
+Alexander Stubb ja Suzanne Innes-Stubb aloittivat matkan Suomen itärajalta. Presidenttipari tutustui rajavartijoiden työhön.
+
+Presidenttipari vieraili myös Joensuussa. Siellä he tapasivat esimerkiksi kaupungin päättäjiä ja koululaisia.
+
+Presidentti Stubb on tehnyt maakuntamatkan Itä-Suomeen.
+
+Uusi presidentti kiinnosti ihmisiä. Joensuun tori oli täynnä väkeä, kun presidentti saapui paikalle.
+
+## Perjantain sää
+
+Sitten sääennuste.
+
+Perjantaina sataa monin paikoin vettä tai lunta.
+
+Pohjois-Lapissa on aurinkoista.
+
+Lämpötila vaihtelee pääosin -2 ja +6 asteen välillä.
+
+## Pääsiäinen
+
+Viikonloppuna Suomessa vietetään pääsiäistä.
+
+Pääsiäisen pyhäpäivät alkavat huomenna perjantaina eli pitkäperjantaina.
+
+Pyhäpäivät jatkuvat maanantaihin asti. Silloin on pääsiäismaanantai eli toinen pääsiäispäivä.
+
+Pääsiäinen vaikuttaa esimerkiksi liikenteen aikatauluihin.
+
+Esimerkiksi Helsingin seudulla bussit ja raitiovaunut noudattavat sunnuntain aikatauluja myös pitkäperjantaina ja pääsiäismaanantaina.
+
+Pääsiäisen takia selkouutiset nähdään televisiossa seuraavan kerran vasta tiistaina.
+
+Viikonlopun Uutisviikko selkosuomeksi -ohjelmat tulevat kuitenkin radioon ja selkouutisten nettisivuille normaalisti.
+
+Oikein hyvää pääsiäistä kaikille!
+

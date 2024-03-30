@@ -1,0 +1,48 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 30.3.2024
+
+Suomen turvallisuus.
+
+Uutisviikon aihe on Suomen turvallisuus. Suojelupoliisi kertoi tällä viikolla, mitä se ajattelee Suomen turvallisuudesta. Suojelupoliisin mielestä Suomen suurin uhka on Venäjä. Terrorismin uhka Suomessa ei ole noussut. Kerromme nyt tarkemmin, mitä Suojelupoliisi arvioi.
+
+## Venäjä suurin uhka
+
+![ Kuva: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_474/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1711377385/39-126245766018baea8f48)
+
+Venäjä on yhä Suomen turvallisuuden suurin uhka. Näin sanoo Suojelupoliisi.
+
+Venäjän mielestä Suomi ei ole ystävällinen valtio. Venäjä ei pidä siitä, että Suomi liittyi puolustusliitto Natoon.
+
+Venäjä esimerkiksi vakoilee Suomessa. Venäjä todennäköisesti lähettää lisää turvapaikanhakijoita Suomen rajalle. Venäjä haluaa vaikuttaa siihen, millaisia päätöksiä suomalaiset poliitikot tekevät.
+
+Suojelupoliisi arvioi kuitenkin, että Venäjän huomio on nyt muualla kuin Suomessa. Siksi Venäjä ei ole lähiaikoina suuri sotilaallinen uhka Suomelle.
+
+Suojelupoliisi sanoo, että Suomen jäsenyys puolustusliitto Natossa antaa Suomelle suojaa Venäjän uhkaa vastaan.
+
+## Suomen venäläiset
+
+![ Kuva: Tanja Heino / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_368/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710780383/39-125865465f714f1e9ff0)
+
+Suomessa asuu paljon venäläisiä ihmisiä. Suojelupoliisi sanoo, että nämä ihmiset eivät ole uhka Suomen turvallisuudelle.
+
+Suuri osa Suomen venäläisistä ihmisistä vastustaa Venäjän hallintoa.
+
+Suojelupoliisi arvioi, että jos Venäjän hallinto romahtaa, Suomeen ei todennäköisesti tule suurta määrää venäläisiä ihmisiä.
+
+## Terrorismi
+
+![ Kuva: Maksim Blinov / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_4461,w_7932,x_0,y_875/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1711133748/39-126164565fdd3e220116)
+
+Terrorismin uhka on Suomessa samalla tasolla kuin aikaisemmin.
+
+Suojelupoliisi arvioi, että yksittäiset ihmiset ehkä suunnittelevat terrori-iskua Suomessa. Näillä ihmisillä on äärioikeistolaisia tai radikaali-islamistisia ajatuksia. Terrori-iskun todennäköisyys on Suomessa tällä hetkellä kuitenkin pieni.
+
+Terroristijärjestö Isis teki vähän aikaa sitten ison terrori-iskun Moskovassa. Suojelupoliisi sanoo, että Isis ei ole suuri uhka Suomessa.
+
+## Kertaus
+
+Uutisviikon aiheena oli Suomen turvallisuus. Kerrataan vielä tärkeimmät asiat.
+
+Suojelupoliisi sanoo, että Suomen suurin uhka on Venäjä. Venäjä vakoilee Suomessa ja lähettää jatkossa lisää turvapaikanhakijoita Suomen rajalle. Terrori-iskun vaara ei ole Suomessa isompi kuin aikaisemmin.
+
+Tämä oli Uutisviikko selkosuomeksi, tavataan taas. Kuulemiin!
+

@@ -1,0 +1,50 @@
+# TV \| Selkouutiset \| torstai 4.4.2024
+
+Vantaan kouluampuminen. Suomi ja Ukraina. Uusi taidenäyttely. Sää.
+
+## Vantaan kouluampuminen
+
+Ensin uutinen Vantaan kouluampumisesta.
+
+Poliisi on kertonut lisää tietoa Vantaan tiistain kouluampumisesta.
+
+Vantaan epäilty kouluampuja sanoo poliisille, että häntä kiusattiin koulussa.
+
+Se voi olla yksi syy, miksi hän ampui muita lapsia.
+
+Ampuja kävi Viertolan koulua Vantaalla. Hän oli tullut kouluun vasta tammikuussa.
+
+Vantaan epäilty kouluampuja sanoo poliisille, että häntä kiusattiin koulussa.
+
+1 poika kuoli ja 2 tyttöä loukkaantui tiistaina, kun 12-vuotias poika ampui heitä koulussa.
+
+## Suomi ja Ukraina
+
+Sitten uutinen Suomesta ja Ukrainasta.
+
+Suomen presidentti **Alexander Stubb** ja Ukrainan presidentti **Volodymyr Zelenskyi** tapasivat keskiviikkona Ukrainassa.
+
+Stubbin vierailun aikana Suomi ja Ukraina sopivat, että Suomi antaa Ukrainalle apua ainakin kymmenen vuotta.
+
+Suomi auttaa Ukrainan armeijaa. Suomi esimerkiksi auttaa, kun Ukraina haluaa liittyä Natoon.
+
+Presidentti Alexander Stubb kävi keskiviikkona Ukrainassa.
+
+Tämä oli vasta toinen presidentti Stubbin virallinen vierailu ulkomailla.
+
+## Uusi taidenäyttely
+
+Sitten uutinen taiteesta.
+
+Ateneumin taidemuseossa Helsingissä aukeaa uusi taidenäyttely.
+
+Taidenäyttelyssä on **Eero Järnfeltin** taidetta.
+
+Eero Järnefelt on kuuluisa 1800-luvun suomalainen taiteilija.
+
+Monet Järnefeltin taulut kuvaavat, millaista elämä oli Suomessa 1800-luvulla.
+
+Ateneumin taidemuseon uusi näyttely esittelee Eero Järnefeltin taidetta.
+
+Monet Eero Järnefeltin kuuluisat taulut esittävät suomalaisia maisemia. Hän kuvasi myös köyhiä ihmisiä, joita Suomessa oli paljon.
+

@@ -1,0 +1,40 @@
+# TV \| Selkouutiset \| perjantai 19.4.2024
+
+Maahanmuutto. Autonkorjaajat. Pariisin olympialaiset. Sää.
+
+## Maahanmuutto
+
+Aluksi aiheena on maahanmuutto Suomeen.
+
+Hallitus haluaa tiukentaa maahanmuuton ehtoja.
+
+Hallitus esittää, että ihmisen turvapaikkahakemus käsitellään jatkossa heti Suomen rajalla. Jos turvapaikkahakemus hylätään, ihminen ei saa jäädä Suomeen esimerkiksi työn perusteella. Hallitus haluaa, että turvanpaikanhakija palautetaan lähtömaahan useammin ja nopeammin kuin aikaisemmin.
+
+Hallitus haluaa tiukentaa maahanmuuton ehtoja. Hallitus esittää myös, että Suomen kansalaisuus on tulevaisuudessa vaikeampi saada kuin nyt.
+
+## Autonkorjaajat
+
+Seuraava uutinen on ihmisistä, jotka korjaavat autoja.
+
+Autonkorjaajista on Suomessa pulaa. Sekä henkilöautojen että rekkojen korjaajia on liian vähän. Firmat kilpailevat nyt alan opiskelijoista. Moni nuori pääsee ammattikoulusta suoraan töihin.
+
+Matti Leppänen opiskelee autonkorjaajaksi. Hän sanoo, että moni nuori ei halua korjata autoja:
+
+\-*Jos tekee sähköhommia, se on vähän puhtaampaa. Mutta jos tekee koneremonttia, kyllä siinä näpit eli kädet likaantuu.*
+
+## Pariisin olympialaiset
+
+Nyt uutinen Pariisin olympialaisista.
+
+Kesäolympialaiset alkavat Pariisissa heinäkuun lopussa. Pariisiin rakennetaan paljon uusia kisapaikkoja. Kaupunkiin odotetaan olympialaisten ajaksi miljoonia turisteja.
+
+Jotkut pariisilaiset ihmiset sanovat, että olympialaiset ovat huono asia. Pariisissa on kisojen aikana esimerkiksi pahoja ruuhkia.
+
+Kesäolympialaiset alkavat Pariisissa heinäkuun lopussa. Olympialaiset kestävät yli 2 viikkoa. Kisoissa on 32 eri urheilumuotoa.
+
+## Sää
+
+Vielä sääennuste.
+
+Maan etelä- ja keskiosissa sataa paikoin vähän lunta. Lapissa ja Pohjanmaan rannikolla ei sada. Lämpötila on pakkasella lähes koko maassa. Etelärannikolla lämpötila on plussan puolella.
+

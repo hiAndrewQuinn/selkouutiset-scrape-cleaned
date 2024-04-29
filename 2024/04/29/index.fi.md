@@ -1,0 +1,60 @@
+# TV \| Selkouutiset \| maanantai 29.4.2024
+
+Kansanedustaja Timo Vornanen. Turistit. Jääkiekon Suomen mestari. Sää.
+
+## Kansanedustaja Timo Vornanen
+
+Ensin uutinen kansanedustajasta.
+
+Poliisi epäilee, että perussuomalaisten kansanedustaja **Timo Vornanen** on tehnyt rikoksen.
+
+Poliisi pidätti kansanedustaja Vornasen yöllä viime viikon perjantaina.
+
+Vornasella oli riita ravintolassa Helsingin keskustassa.
+
+Ravintolan ulkopuolella Vornanen osoitti muita ihmisiä pistoolilla ja ampui maahan. Kukaan ei loukkaantunut.
+
+Poliisi sanoo, että Vornanen oli humalassa.
+
+Poliisi epäilee, että perussuomalaisten kansanedustaja Timo Vornanen on tehnyt rikoksen.
+
+Perussuomalaisten puheenjohtaja Riikka Purra sanoo, että asia on järkyttävä.
+
+Poliisi tutkii tapahtumia, ja sitten syyttäjä alkaa tutkia tapahtumia. Sen jälkeen voi alkaa oikeudenkäynti.
+
+## Turistit
+
+Sitten uutinen turisteista.
+
+Suomessa käy turisteja paljon vähemmän kuin ennen. Suomessa käy turisteja 20 prosenttia vähemmän kuin 5 vuotta sitten.
+
+Turistien määrä on vähentynyt etenkin siksi, että venäläiset eivät saa enää tulla Suomeen. Syy on se, että Venäjä käy sotaa Ukrainassa.
+
+Suomessa käy turisteja paljon vähemmän kuin ennen. Esimerkiksi Aasiasta tulee vähemmän turisteja.
+
+Syy on se, että lennot Aasiasta Suomeen kestävät nykyään tosi pitkään, koska Venäjä ei anna lentokoneiden lentää Venäjän yli.
+
+Se on iso ongelma matkailu-firmoille.
+
+## Jääkiekon Suomen mestari
+
+Sitten uutinen jääkiekosta.
+
+Jääkiekkojoukkue Tappara on voittanut jääkiekon Suomen mestaruuden.
+
+Tappara voitti mestaruuden jo kolmannen kerran peräkkäin.
+
+Finaalissa eilen sunnuntaina Tappara voitti Lahden Pelicans -joukkueen 3 - 0.
+
+Edellisen kerran mestaruuden voitti kolme kertaa peräkkäin Turun Palloseura vuosina 1999, 2000 ja 2001.
+
+Tappara on voittanut jääkiekon Suomen mestaruuden.
+
+Tappara on vanha tamperelainen jääkiekkoseura. Se on voittanut jääkiekon Suomen mestaruuden 20 kertaa.
+
+## Sää
+
+Vielä sääennuste.
+
+Etelässä paistaa monessa paikassa aurinko. Pohjoisessa voi sataa vähän vettä tai räntää.
+

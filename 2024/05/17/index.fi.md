@@ -1,0 +1,62 @@
+# TV \| Selkouutiset \| perjantai 17.5.2024
+
+Ministerien turvallisuus. Rautatientorin metroasema. YKI-harjoitustehtäviä. Sää.
+
+## Ministerien turvallisuus
+
+Ensin uutinen ministerien turvallisuudesta.
+
+Slovakian pääministeriä ammuttiin keskiviikkona, ja nyt myös Suomessa kiinnitetään paljon huomiota ministerien turvallisuuteen.
+
+Suomalaiset ovat tottuneet siihen, että ministerit liikkuvat ihmisten joukossa vapaasti.
+
+Valtioneuvoston turvallisuusjohtaja Ahti Kurvinen kuitenkin kertoo, että myös Suomen hallituksen ministerit ovat saaneet viime aikoina enemmän uhkauksia kuin ennen.
+
+Siksi ministerit ovat jopa peruneet osallistumisia tilaisuuksiin.
+
+## Rautatientorin metroasema
+
+Sitten uutinen Helsingin metrosta.
+
+Rautatientorin metroasema on kesällä suljettu.
+
+Syynä on remontti, jolla metroaseman paloturvallisuutta parannetaan.
+
+Rautatientorin metroasema suljetaan kesäkuun 3. päivä.
+
+Sen jälkeen metrojunat kulkevat Espoosta vain Kamppiin asti ja Itä-Helsingistä vain Helsingin yliopistolle asti.
+
+Kampin ja Helsingin yliopiston metroasemien välillä matkustajat voivat kulkea raitiovaunuilla.
+
+Rautatientorin metroasema avataan uudelleen syyskuun alussa.
+
+## YKI-harjoitustehtävät
+
+Lopuksi vielä tietoa Ylen uudesta suomen kielen oppimispaketista. Sen avulla voit harjoitella YKI-testiä varten.
+
+Oppimispaketissa on tekstin ymmärtämisen ja puheen ymmärtämisen tehtäviä.
+
+Voit tehdä tehtävät puhelimella. Toimi näin:
+
+\- Kirjoita hakukoneeseen sanat yle yki, ja tulet tälle sivulle.
+
+\- Valitse listalta aihe, esimerkiksi Minä ja taustani.
+
+\- Pane ääni päälle.
+
+\- Nyt voit tehdä tehtäviä.
+
+Tehtäviä on monesta eri aihepiiristä, kertoo Yle Oppimisen tuottaja **Anna-Leena Lappalainen**.
+
+*- Aihepiirejä ovat esimerkiksi työ, koti ja asuminen, kauppa ja palvelut.*
+
+*- Taitotaso on B1, ja käyttäjällehän näiden tehtävien suorittaminen on ilmaista.*
+
+## Sää
+
+Vielä sääennuste.
+
+Lauantaina on aurinkoista ja kesäisen lämmintä, Lapissa tulee paikoin sade- tai ukkoskuuroja.
+
+Lämpötila on pääosin 19 - 25 astetta, lännessä on lämpimintä.
+

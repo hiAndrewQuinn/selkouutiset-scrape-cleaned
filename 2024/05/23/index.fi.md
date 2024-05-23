@@ -1,0 +1,40 @@
+# TV \| Selkouutiset \| torstai 23.5.2024
+
+Eurovaalitentti. Pörssi. Urheilu. Sää.
+
+## Eurovaalitentti
+
+Ensin aiheena ovat eurovaalit.
+
+Eilen keskiviikkona Ylen eurovaalitentissä olivat mukana 3 suurimman eduskuntapuolueen puheenjohtajat. Tentissä oli kokoomuksen puheenjohtaja Petteri Orpo, perussuomalaisten puheenjohtaja Riikka Purra ja SDP:n puheenjohtaja Antti Lindtman.
+
+He keskustelivat esimerkiksi siitä, millaista yhteistyötä eri poliittiset ryhmät voivat tehdä Euroopan parlamentissa.
+
+Puheenjohtajat olivat vähän eri mieltä siitä, voiko Euroopan parlamentissa tehdä yhteistyötä esimerkiksi poliittisen laitaoikeiston kanssa.
+
+Eurovaalit ovat kesäkuussa. Vaalipäivä on 9. kesäkuuta.
+
+## Pörssi
+
+Nyt uutisen aiheena on pörssi.
+
+Osakkeiden arvo on noussut Helsingin pörssissä alkukesän aikana. Osakkeiden pitkä lasku loppui. Syynä on, että teollisuudella menee nyt paremmin kuin aikaisemmin.
+
+Keskuspankit ehkä laskevat pian korkoja. Tämä saa ihmiset sijoittamaan rahaa osakkeisiin.
+
+Osakkeiden arvo on noussut Helsingin pörssissä. Asiantuntija uskoo, että Helsingin pörssin nousu jatkuu. Hän arvioi, että suomalaisten osakkaiden arvo nousee.
+
+## Urheilu
+
+Seuraavaksi urheilua.
+
+Jääkiekon MM-kisoissa Suomi pelaa torstaina illalla Ruotsia vastaan. Suomen pelit ovat menneet kisoissa huonosti, ja siksi Ruotsi on ottelussa suosikki. Ottelun voittaja pääsee kisoissa 4 parhaan joukkoon.
+
+Jalkapallossa italialainen Atalanta voitti keskiviikkona illalla Eurooppa-liigan mestaruuden. Atalanta voitti loppuottelussa saksalaisen Leverkusenin, jossa pelaa suomalainen maalivahti Lukas Hradecky. Hän ei kuitenkaan pelannut keskiviikon ottelussa.
+
+## Sää
+
+Vielä sääennuste.
+
+Sää on enimmäkseen aurinkoinen ja lämmin. Lännessä tulee sade- ja ukkoskuuroja. Myös Lapissa tulee sadekuuroja perjantain aikana.
+

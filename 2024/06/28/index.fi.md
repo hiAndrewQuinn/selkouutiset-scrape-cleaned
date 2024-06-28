@@ -1,0 +1,70 @@
+# TV \| Selkouutiset \| perjantai 28.6.2024
+
+USA:n vaaliväittely. Lastensairaalan perhekaverit. Junaliikenne. Sää.
+
+## Vaaliväittely
+
+Ensin uutinen ulkomailta.
+
+USA:ssa on ollut tärkeä vaaliväittely.
+
+Vaaliväittelyssä olivat mukana presidentti **Joe Biden** ja entinen presidentti **Donald Trump**.
+
+He ovat todennäköiset ehdokkaat USA:n presidentinvaaleissa marraskuussa.
+
+Biden menestyi vaaliväittelyssä huonosti. Hän oli flunssainen ja väsynyt.
+
+Trump menestyi vaaliväittelyssä paremmin. Hänellä oli enemmän energiaa kuin Bidenilla.
+
+USA:ssa oli tärkeä vaaliväittely.
+
+Vaaliväittely on huolestuttanut demokraatit. Demokraattipresidentti Biden näytti siltä, että hän on liian vanha jatkamaan presidentin tehtävässä.
+
+Trumpista on tulossa republikaanien presidenttiehdokas, ja vaaliväittelyn perusteella hänellä on hyvät mahdollisuudet voittaa vaalit.
+
+## Perhekaverit
+
+Sitten aiheena vapaaehtoistyö.
+
+Uudessa lastensairaalassa Helsingissä on vapaaehtoisia perhekavereita.
+
+Perhekaverit auttavat sairaalan perheitä.
+
+2-vuotias Akseli on vakavasti sairas, ja vanhemmat ovat Akselin luona koko ajan.
+
+He voivat kuitenkin pitää pienen tauon, kun perhekaveri tulee käymään Akselin luona.
+
+Uudessa lastensairaalassa on noin 100 vapaaehtoista perhekaveria.
+
+Yksi heistä on **Mohamad Faraj**. Faraj on kokki, mutta hän tykkää tehdä myös vapaaehtoistyötä.
+
+*Se palkitsee, kun mä näen, että lapsi nauraa ja hymyilee.*
+
+## Junaliikenne
+
+Sitten aiheena junaliikenne.
+
+Junaliikenne Turun ja Helsingin välillä meni poikki tällä viikolla. Syynä ovat ratatyöt.
+
+Junat Turun ja Helsingin välillä korvataan busseilla. Junaliikenne alkaa uudelleen heinäkuun lopulla.
+
+Matkustajat ovat suhtautuneet tilanteeseen rauhallisesti.
+
+(**Anna-Marie Minhof**, Salo)
+
+*Ihan tyytyväinen oon, että Turkuun kummiskin pääsi. Kun tuli viestejä just ennen, oisko ollut 3 päivää sitten tullut viesti, että miten nämä bussit kulkee.*
+
+(**Kaisu Karttunen**, Australia)
+
+*Meillä on koira mukana, että se oli vähän harmi, kun junassa on yleensä vähän mukavampi, kun hän voi vähän juoksennella siellä lattialla. Mut ei se haittaa.*
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina Suomessa sataa. Lämpötila laskee sateiden aikana 20 asteeseen.
+
+Idässä ja Lapissa lauantaina päivällä voi olla vielä hellettä.
+
+Sateen mukana voi olla voimakkaita ukkospuuskia.
+

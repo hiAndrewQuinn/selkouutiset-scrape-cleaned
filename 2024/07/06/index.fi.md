@@ -1,0 +1,56 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 6.7.2024
+
+Saimaannorpan suojelu: Saimaan verkkokalastuskielto on päättynyt
+
+Uutisviikon aiheena on uhanalainen saimaannorppa, joita elää vain Suomessa.
+
+Norppaa yritetään suojella kieltämällä verkkokalastus Saimaa-järvessä alkukesällä. Kielto päättyi tällä viikolla.
+
+Nyt kerromme lisää saimaannorpasta.
+
+## Saimaannorppia elää vain Suomessa
+
+![Kuva: Jouni Koskela](https://images.cdn.yle.fi/image/upload/c_crop,h_2916,w_5184,x_0,y_113/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1612868884/39-77190860226cd4c7cef)
+
+Saimaannorppa on hylje, joita elää vain Suomessa. Saimaannorppa elää Itä-Suomessa Saimaassa, joka on Suomen suurin järvi.
+
+Saimaannorppa jäi eristyksiin Saimaaseen noin 8 000 vuotta sitten. Jääkauden jälkeen yhteys Saimaan ja Itämeren välillä katkesi, koska maa alkoi kohota.
+
+Saimaannorppa on harvinainen ja erittäin uhanalainen laji eli vaarassa hävitä. Saimaannorpan suurin uhka on verkkokalastus.
+
+## Saimaan verkkokalastuskielto päättyi
+
+![Kuollut saimaannorpan kuutti eli poikanen kalastusverkkossa. Metsähallituksen kuva 20.9.2023. Kuva: Metsähallitus](https://images.cdn.yle.fi/image/upload/c_crop,h_2035,w_3619,x_0,y_367/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695209688/39-1174652650ad6130ad2d)
+
+Saimaannorppaa on yritetty suojella rajoittamalla verkkokalastusta Saimaalla. Jokavuotinen verkkokielto Saimaan rajoitusalueella alkoi huhtikuun puolivälissä ja päättyi kesäkuun lopussa.
+
+Kalanpyydykset ovat saimaannorpille suurin vaara. Saimaannorppia kuolee joka vuosi, kun ne uivat verkkoon tai katiskaan, joka ei ole turvallinen norpalle.
+
+Siksi luontojärjestö WWF toivoo, että verkolla ei kalasteta heinäkuussakaan.
+
+WWF:n Suomen ohjelmajohtaja Petteri Tolvanen sanoo, että norppia kuolee verkkoihin nimenomaan heinäkuussa, kun rajoitukset päättyvät.
+
+## Verkot ja katiskat ovat vaarallisia kaikkina vuodenaikoina
+
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1536237070/39-5080265b911dc69e8f9)
+
+Verkot ovat saimaannorpalle vaarallisia ympäri vuoden. Norppien ystävä kalastaa pyydyksillä, jotka ovat norpalle turvallisia.
+
+Kalastuslaki sanoo, että pyydykseen kuolleesta norpasta pitää aina ilmoittaa Metsähallitukselle.
+
+Kaikki eivät kuitenkaan tee ilmoitusta. Siksi jokainen norpan hukkuminen verkkoon ei tule tietoon.
+
+## Saimaannorppa tarvitsee edelleen suojelua
+
+![Saimaannorpan poikanen eli kuutti. Kuva: Jouni Koskela](https://images.cdn.yle.fi/image/upload/c_crop,h_1517,w_2696,x_0,y_282/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1612862641/39-7718226022537863f02)
+
+Saimaannorppien määrä on nykyisin noin 480. Norppa katosi välillä kokonaan muun muassa Pohjois-Saimaalta.
+
+Suojelutyöstä huolimatta saimaannorppa on edelleen erittäin uhanalainen.
+
+Verkkokiellon lisäksi ihmiset auttavat norppaa talvella. Saimaan jäälle on tehty lumesta kinoksia. Ne ovat norpan talvipesiä, joihin se synnyttää poikasen eli kuutin.
+
+Saimaannorpan kuutit syntyvät helmi--maaliskuussa.
+
+![Kuva: Saara-Miira Kokkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705499866/39-122931865a7da649026a)
+

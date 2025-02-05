@@ -1,0 +1,76 @@
+# TV \| Selkouutiset \| keskiviikko \| 5.2.2025
+
+Kouluampuminen. Eduskunta. Isät. Oikaisu. Sää.
+
+## Kouluampuminen
+
+Ensin aiheena Ruotsi.
+
+Ruotsissa oli tiistaina koulu-ampuminen.
+
+Poliisi epäilee, että 35-vuotias mies ampui ihmisiä aikuisten oppilaitoksessa.
+
+Ampumisessa kuoli ainakin 11 ihmistä.
+
+Mies ampui myös itsensä ja kuoli.
+
+Ampuminen tapahtui Örebron kaupungissa. Örebro on 200 kilometriä Tukholmasta länteen.
+
+Ruotsissa oli tiistaina paha koulu-ampuminen.
+
+Poliisi uskoo, että ampuja toimi yksin.
+
+Hänellä ei ole rikollinen menneisyys. Poliisi ei epäile, että ampuminen oli terroristi-teko.
+
+## Eduskunta
+
+Sitten aiheena eduskunta.
+
+Perussuomalaisten **Jussi Halla-aho** jatkaa eduskunnan puhemiehen tehtävässä.
+
+Kansanedustajat äänestivät asiasta tiistaina.
+
+Eduskunnan puhemies on eduskunnan puheenjohtaja.
+
+Hän jakaa puheenvuorot, kun hallitus ja oppositio väittelevät.
+
+Perussuomalaisten Jussi Halla-aho jatkaa eduskunnan puhemiehen tehtävässä.
+
+Monet opposition kansanedustajat eivät ole tyytyväisiä Jussi Halla-ahoon.
+
+He sanovat, että Halla-aho on hallituksen puolella, vaikka puhemiehen pitää olla puolueeton.
+
+Jussi Halla-aho sanoo, että opposition syytös ei ole totta.
+
+## Isät
+
+Sitten aiheena isät.
+
+Isät hoitavat lapsia enemmän kuin ennen.
+
+Isät pitävät vanhempainvapaasta jo 20 prosenttia. Se on paljon enemmän kuin ennen.
+
+Isät ja äidit voivat jäädä vanhempainvapaalle, kun perheeseen syntyy lapsi.
+
+Isät hoitavat nykyään pieniä lapsia enemmän kuin ennen.
+
+## Oikaisu
+
+Vielä oikaisu.
+
+Selkouutisissa oli maanantaina virhe.
+
+Virhe oli uutisessa, joka koski ruokakauppojen lakkoa.
+
+Uutisessa sanottiin, että ruokakaupoissa alkaa ehkä lakko ensi viikolla.
+
+Oikeasti mahdolliset lakot alkavat viikolla, joka tulee ensi viikon jälkeen.
+
+## Sää
+
+Vielä sääennuste.
+
+Torstaina ei sada. Etelässä on plus-asteita.
+
+Muualla maassa on pakkanen.
+

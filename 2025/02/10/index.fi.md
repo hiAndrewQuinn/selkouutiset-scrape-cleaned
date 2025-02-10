@@ -1,0 +1,58 @@
+# TV \| Selkouutiset \| maanantai 10.2.2025
+
+Lakot. Kesätyöt. Yrjö Kukkapuro. Sää.
+
+## Lakot
+
+Aluksi lakkouutinen.
+
+Lakot teknologiateollisuudessa ja kemianteollisuudessa jatkuvat tänään.
+
+Lakko kestää tällä kertaa 5 päivää. Se koskee yli sataa toimipaikkaa ja noin 8000 työntekijää.
+
+Teollisuuden työntekijät lakkoilevat, koska neuvottelut uudesta työehtosopimuksesta ovat jumissa.
+
+Työntekijöiden järjestö Teollisuusliitto hylkäsi eilen valtakunnansovittelijan sovintehdotuksen. Teollisuusliitto sanoi, että ehdotuksessa palkankorotukset olivat liian pienet.
+
+## Kesätyöt
+
+Sitten aiheena ovat kesätyöt.
+
+Monet työnantajat etsivät nyt työntekijöitä kesäksi. Vilkkain hakuaika on tammikuusta maaliskuuhun.
+
+Sopivan työntekijän löytäminen voi olla hankalaa, kun hakijoita on paljon.
+
+Valtaosa työnantajista pyytää hakijoilta hakemuskirjettä ja cv:tä eli ansioluetteloa.
+
+Jotkut työnantajat ovat laatineet oman hakulomakkeen. Niiden perusteella hakijoita sitten valitaan haastatteluun.
+
+Muitakin keinoja on.
+
+Esimerkiksi Nurmijärvellä kesätyöntekijät kirjastoon tai muihin kunnan tehtäviin valitaan arpomalla.
+
+Monet työnantajat etsivät nyt kesätyöntekijöitä.
+
+Näyttää siltä, että työpaikkoja on tänä kesänä vähän enemmän kuin viime kesänä.
+
+## Yrjö Kukkapuro
+
+Vielä suru-uutinen.
+
+Muotoilija ja sisustusarkkitehti Yrjö Kukkapuro on kuollut.
+
+Kukkapuro oli yksi Suomen tunnetuimmista muotoilijoista. Hänet tunnettiin erityisesti tuoleista, joissa on mukava istua. Läpimurto tapahtui 1960-luvulla tällä Karuselli-tuolilla.
+
+Kukkapuro sai useita palkintoja kuten esimerkiksi Valtion taideteollisuuspalkinnon ja Pro Finlandia -mitalin.
+
+Muotoilija Yrjö Kukkapuro kuoli 91 vuoden iässä.
+
+## Tiistain sää
+
+Sääennuste.
+
+Huomenna on poutaa, eli ei sada.
+
+Lämmin tuuli puhaltaa pohjoisessa. Lämpötila on jopa +5 astetta.
+
+Etelässä on pikkupakkasta.
+

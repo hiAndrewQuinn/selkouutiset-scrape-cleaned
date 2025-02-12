@@ -1,0 +1,40 @@
+# TV \| Selkouutiset \| keskiviikko 12.2.2025
+
+Lääkärit. Britanniaan matkustuslupa. Venemessut. Sää.
+
+LÄHETYKSESTÄ PUUTTUU TEKSTITYS!
+
+## Lääkärit
+
+Ensin uutinen lääkäreistä.
+
+Hallitus suunnittelee kokeilua, jossa yli 65-vuotias ihminen voi valita vapaasti lääkärin. Jos kokeilu toteutuu, lääkärin voi valita joko yksityiseltä tai julkiselta puolelta.
+
+Ihminen maksaa terveyskeskusmaksun ja Kela maksaa loput. Terveyskeskusmaksu on enintään 28 euroa. Yksityisellä lääkärillä voi käydä 3 kertaa vuoden aikana.
+
+Hallitus suunnittelee kokeilua, jossa yli 65-vuotias ihminen voi valita lääkärin yksityiseltä tai julkiselta puolelta. Kokeilu alkaa ehkä syyskuun alussa.
+
+## Britanniaan matkustuslupa
+
+Nyt aiheena on matkailu Britanniaan.
+
+Britanniaan pitää pian hakea matkustuslupa. Turisti tarvitsee sähköisen luvan, jos matkustaa esimerkiksi Lontooseen. Matkustuslupa haetaan netissä. Lupa maksaa aluksi noin 12 euroa, mutta Britannia aikoo nostaa luvan hintaa. Lupa on voimassa 2 vuotta. Samalla luvalla voi matkustaa Britanniaan monta kertaa.
+
+Britanniaan pitää pian hakea matkustuslupa. Turisti tarvitsee sähköisen luvan huhtikuun 2. päivä alkaen. Lupaa voi hakea netissä jo maaliskuussa.
+
+## Venemessut
+
+Seuraavaksi uutinen veneistä.
+
+Helsingissä on nyt venemessut. Venemessut järjestetään Helsingin messukeskuksessa. Venemessuilla on esillä yli 400 venettä. Venemessuilla on sekä moottoriveneitä että purjeveneitä.
+
+Messuilla esitellään myös välineitä, joita tarvitaan kalastukseen. Venemessuilla on lisäksi paljon erilaista ohjelmaa.
+
+Helsingin Messukeskuksessa on nyt venemessut. Venemessut jatkuvat sunnuntaihin saakka.
+
+## Sää
+
+Vielä sääennuste.
+
+Torstaina sää on koko maassa poutainen. Sää on puolipilvinen tai aurinkoinen. Pohjoisessa pakkasta on noin 10 astetta. Muualla Suomessa lämpötila vaihtelee -2 ja -10 asteen välillä.
+

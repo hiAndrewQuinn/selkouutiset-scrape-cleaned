@@ -1,0 +1,70 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 22.2.2025
+
+USA, Eurooppa ja sota Ukrainassa
+
+Uutisviikon aiheena on tällä kertaa sota Ukrainassa.
+
+Iso sota Ukrainassa alkoi 3 vuotta sitten.
+
+Silloin Venäjä hyökkäsi täysillä Ukrainaan.
+
+USA on auttanut Ukrainaa sodassa, mutta nyt USA:ssa on uusi presidentti, **Donald Trump**. Hän ei halua auttaa Ukrainaa.
+
+Nyt kerromme aiheesta lisää.
+
+## 3 vuotta sotaa
+
+Iso sota Ukrainassa alkoi 3 vuotta sitten, kun Venäjä hyökkäsi.
+
+Venäjä on vallannut paljon alueita Ukrainassa. Tosi paljon ihmisiä on kuollut.
+
+USA:n edellinen presidentti **Joe Biden** auttoi Ukrainaa paljon, kun Ukraina puolusti itseä.
+
+USA:n uusi presidentti Donald Trump ei halua enää auttaa Ukrainaa.
+
+Siksi Trump haluaa, että sota Ukrainassa loppuu nopeasti.
+
+## Voittaako Venäjä sodan?
+
+Venäjän presidentti **Vladimir Putin** haluaa vallata Ukrainan.
+
+Siksi hän on aloittanut ison sodan Ukrainassa.
+
+USA:n presidentti Trump ja Venäjän presidentti Putin keskustelivat vähän aikaa sitten puhelimessa Ukrainan sodasta.
+
+He tapaavat pian.
+
+Eurooppa pelkää, että Trump ei ehkä välitä, mitä Ukrainalle tapahtuu.
+
+Ukraina voi ehkä menettää paljon alueita.
+
+Jos sotaan tulee tauko, Venäjä voi ehkä hyökätä myöhemmin uudelleen.
+
+Silloin Venäjä voi ajatella, että se on sodan voittaja.
+
+Voi olla, että Venäjä haluaa sen jälkeen hyökätä johonkin uuteen maahan Euroopassa.
+
+Se aiheuttaa huolta Venäjän naapurimaissa, esimerkiksi Suomessa.
+
+## Iso huoli Euroopassa
+
+Euroopassa on iso huoli USA:n presidentti Donald Trumpin takia.
+
+Historiassa USA:n armeija on puolustanut Eurooppaa. Siksi Euroopan isoilla mailla on heikot armeijat.
+
+Presidentti Trumpin mielestä on tyhmä asia, että USA puolustaa Eurooppaa ja käyttää siihen rahaa.
+
+Trump ei halua, että USA puolustaa Eurooppaa enää tulevaisuudessa.
+
+Eurooppalaiset pohtivat nyt paljon, mitä tehdä.
+
+## Kertaus
+
+Uutisviikon aihe oli tällä kertaa USA, Eurooppa ja sota Ukrainassa.
+
+Eurooppa pelkää, että Venäjä voittaa sodan Ukrainassa.
+
+Syy on se, että USA:n presidentti Donald Trump ei halua auttaa Ukrainaa.
+
+Jos Venäjä voittaa, Euroopan ja Suomen turvallisuus on ehkä huonompi.
+

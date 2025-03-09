@@ -1,0 +1,78 @@
+# Radio \| Uutisviikko selkosuomeksi \| sunnuntai 9.3.2025
+
+Puoluekannatus kuntavaaleissa ja aluevaaleissa
+
+## Ylen puoluekannatuskysely
+
+Uutisviikon aihe on puoluekannatus kuntavaaleissa ja aluevaaleissa.
+
+Yle on kysynyt suomalaisilta, mitä puoluetta he kannattavat kuntavaaleissa ja aluevaaleissa.
+
+Kuntavaalit ja aluevaalit pidetään huhtikuussa samana päivänä.
+
+Kerromme nyt Ylen kyselyn tuloksista.
+
+![Kuntavaalien suosituimmat puolueet ovat SDP, kokoomus, keskusta ja perussuomalaiset. Kuva: Silja Viitala / Yle, Mimmi Nietula / Yle ja Petteri Sopanen / Yle, grafiikka: Eetu Pietarinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1531,w_2722,x_167,y_309/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1741182960/39-143144067c856a9bdf61)
+
+## SDP
+
+Suosituin puolue kuntavaaleissa ja aluevaaleissa on SDP.
+
+SDP:n kuntavaalikannatus on noin 21 prosenttia ja aluevaalikannatus noin 22 prosenttia.
+
+SDP:n suosio on noussut edellisistä kuntavaaleista.
+
+SDP on oppositiopuolue eli se ei ole hallituksessa.
+
+## Kokoomus
+
+Toiseksi suosituin puolue kuntavaaleissa ja aluevaaleissa on kokoomus.
+
+Kokoomuksen kannatus on molemmissa vaaleissa melkein 20 prosenttia. Kokoomuksen suosio on laskenut hieman edellisistä kuntavaaleista.
+
+Kokoomus on hallituspuolue ja myös pääministeri **Petteri Orpo** on kokoomuksesta.
+
+Kannatuskyselyn on tehnyt Ylelle tutkimusfirma Taloustutkimus.
+
+Tutkimusjohtaja **Tuomo Turja** sanoo, että epävarmat äänestäjät miettivät tarkemmin kuin ennen, mitä puoluetta he äänestävät.
+
+Siksi SDP ja Kokoomus menettävät ääniä pienpuolueille ja pienille ryhmille.
+
+## Keskusta
+
+Kolmanneksi suosituin puolue kuntavaaleissa ja aluevaaleissa on Keskusta.
+
+Keskustan kuntavaalikannatus yli 15 prosenttia ja aluevaalikannatus yli 19 prosenttia.
+
+Keskusta on oppositiopuolue eli se ei ole hallituksessa.
+
+Keskustan kannatus on kasvanut hieman edellisistä kuntavaaleista.
+
+Tutkimusjohtaja Tuomo Turja sanoo, että keskustan kannattajaksi on siirtynyt varsinkin kokoomuksen ja perussuomalaisten kannattajia.
+
+## Perussuomalaiset
+
+Neljänneksi suosituin puolue kuntavaaleissa ja aluevaaleissa on perussuomalaiset. Perussuomalaiset on hallituspuolue.
+
+Perussuomalaisten kannatus on nyt kuntavaaleissa vähän alle 13 prosenttia ja aluevaaleissa vähän alle 11 prosenttia.
+
+Perussuomalaisten kannatus on laskenut edellisistä kuntavaaleista.
+
+## Pienemmät puolueet
+
+Pienemmistä puolueista sekä vasemmistoliiton että vihreiden kannatus on laskenut hieman.
+
+RKP:n, kristillisdemokraattien, Liike Nytin ja muiden puolueiden kannatus on kasvanut.
+
+![Huhtikuun vaaleissa valitaan edustajat sekä kunnanvaltuustoihin että aluevaltuustoihin. Kunnanvaltuustot päättävät kunnan asioista ja aluevaltuustot päättävät hyvinvointialueen asioista. (Kuvassa Pirkanmaan hyvinvointialueen aluevaltuuston kokous joulukuussa.) Kuva: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_3,y_303/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1734439525/39-13966006761705834608)
+
+## Kertaus
+
+Uutisviikon aihe oli tällä kertaa puoluekannatus kunta- ja aluevaaleissa. Molemmat vaalit pidetään samalla kertaa sunnuntaina 13. huhtikuuta.
+
+Tutkimusjohtaja Tuomo Turja arvioi, että kuntavaaleissa ja aluevaaleissa suurimmaksi puolueeksi nousee SDP tai kokoomus. Kolmanneksi tulee ehkä keskusta.
+
+Aluevaaleissa keskusta voi nousta jopa kakkoseksi.
+
+Vaalien ehdokkaisiin voi tutustua [Ylen vaalikoneessa](https://vaalit.yle.fi/vaalikone/alue-ja-kuntavaalit2025) Ylen verkkosivuilla.
+

@@ -1,0 +1,76 @@
+# TV \| Selkouutiset \| keskiviikko 12.3.2025
+
+Ukraina. Omalääkäri. Työmarkkinat. Torstain sää.
+
+## Ukraina
+
+Aluksi uutinen Ukrainasta.
+
+USA ehdottaa Ukrainan sotaan tulitaukoa.
+
+USA:n ja Ukrainan edustajat tapasivat tiistaina Dubaissa.
+
+USA:ta edusti ulkoministeri **Marco Rubio**.
+
+USA ehdottaa Ukrainan sotaan 30 päivän tulitaukoa.
+
+Ukraina sanoo, että se hyväksyy tulitauon, jos myös Venäjä hyväksyy sen.
+
+Ukraina kuitenkin epäilee, että Venäjä ei noudata tulitaukoa.
+
+Venäjä teki eilen ilmahyökkäyksen Ukrainan pääkaupunkiin Kiovaan. Venäjä iski Kiovaan, vaikka Ukraina lupasi suostua tulitaukoon.
+
+## Omalääkäri
+
+Nyt uutinen omalääkäritoiminnasta.
+
+Geriatri eli vanhuslääkäri **Minna Hulkko** hoitaa potilasta.
+
+Vanhuksien omalääkäristä on saatu hyviä kokemuksia Etelä-Savossa.
+
+Omalääkäritoiminta on ollut siellä käytössä noin puoli vuotta.
+
+Esimerkiksi ambulanssikyydit öisin ovat vähentyneet. Myös päivystyskäynnit ovat vähentyneet.
+
+Geriatri Minna Hulkko kertoo, että potilaiden kanssa on sovittu ennalta, miten erilaisissa tilanteissa toimitaan.
+
+Se on vähentänyt tarvetta lähteä päivystykseen.
+
+Vanhuksien omalääkäristä on saatu hyviä kokemuksia Etelä-Savossa.
+
+Omalääkäritoiminta on tarkoitus ottaa käyttöön koko Suomessa lähivuosina.
+
+Asiaa hidastaa kuitenkin lääkäripula.
+
+## Kunta- ja hyvinvointiala
+
+Lopuksi työmarkkinauutinen.
+
+Kunta- ja hyvinvointialan työehtoneuvottelut alkoivat tiistaina.
+
+Neuvottelut koskevat noin puolta miljoonaa ihmistä.
+
+Neuvottelut koskevat esimerkiksi opettajia, hoitajia ja lähihoitajia.
+
+Kunta- ja hyvinvointialan työehtoneuvottelut ovat alkaneet.
+
+Työnantajat ja työntekijät arvioivat, että neuvottelut ovat vaikeat.
+
+Neuvoteltavaa on paljon. Vaikein kysymys on palkankorotukset.
+
+Lisäksi pitää sopia työehdoista ja palkkaohjelman jatkosta.
+
+Palkkaohjelma nostaa palkkoja lisäprosentilla, jos palkkaohjelman jatkosta syntyy sopu.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Etelässä sataa paljon lunta torstaina aamulla.
+
+Päivällä sataa enää vähän.
+
+Pohjoisessa on poutaa, eli ei sada.
+
+Lämpötila on pakkasella. Aivan etelässä on vähän plusasteita.
+

@@ -1,0 +1,70 @@
+# TV \| Selkouutiset \| perjantai 14.3.2025
+
+Tulitauko. Oikeudenkäynti. Norovirus. Sää.
+
+*Huom! Teknisen ongelman takia videossa ei ole tekstitystä.*
+
+## Tulitauko
+
+Ensin aiheena Ukrainan tulitauko.
+
+Venäjän presidentti **Vladimir Putin** puhui torstaina Ukrainan tulitauosta.
+
+USA on ehdottanut, että Ukrainan sotaan tulee 30 päivän tulitauko.
+
+Ukraina on hyväksynyt tulitauon. Venäjä ei ole kertonut, mitä se ajattelee.
+
+Torstaina Venäjän presidentti Vladimir Putin puhui ensimmäisen kerran tulitauosta.
+
+Hän sanoi, että pelkkä tulitauko ei riitä, vaan täytyy tulla oikea rauha.
+
+Putinilla on kuitenkin paljon ehtoja rauhalle.
+
+Putin haluaa määrätä Ukrainaa, vaikka Ukraina on itsenäinen valtio.
+
+Hän haluaa sanoa, mitä Ukraina saa tehdä ja ei saa tehdä.
+
+Putin haluaa myös, että iso osa Ukrainasta liitetään Venäjään.
+
+## Oikeudenkäynti
+
+Sitten aiheena oikeudenkäynti.
+
+Torstaina alkoi **Janne Puhakan** murhan oikeudenkäynti.
+
+Janne Puhakka oli entinen jääkiekkoilija. Hän oli tunnettu henkilö.
+
+Puhakka kuoli viime syksynä, kun entinen miesystävä tappoi hänet.
+
+Puhakka ja entinen miesystävä olivat eronneet vähän aikaa sitten.
+
+Torstaina alkoi Joona Puhakan murhan oikeudenkäynti.
+
+Puhakan entinen miesystävä **Rolf Nordmo** myöntää, että hän tappoi Puhakan. Hän ampui Puhakkaa haulikolla.
+
+Miesystävä silti kiistää, että suunnitteli asiaa etukäteen.
+
+## Norovirus
+
+Sitten aiheena terveys.
+
+Norovirus liikkuu nyt Suomessa. Norovirus voi aiheuttaa ihmiselle pahan vatsataudin.
+
+Esimerkiksi eduskunnassa on tosi paljon vatsatautia. Taudin syy on ehkä norovirus.
+
+Suomessa on taas paljon norovirusta. Se on normaali asia kevättalvella.
+
+Noroviruksen oireet voivat olla kuume, ripuli ja oksennus.
+
+Norovirus leviää vähemmän, jos ihmiset pesevät kädet tarpeeksi usein.
+
+## Sää
+
+Vielä sääennuste.
+
+Lauantaina maan etelä- ja keskiosassa on vähän plus-asteita.
+
+Pohjoisessa on pakkanen. Maan keskiosassa sataa lunta.
+
+*Korjaus 14.3. kello 17.08: Selkouutisten videossa on nimivirhe Oikeudenkäynti-uutisessa. Henkilön oikea nimi on Janne Puhakka, ei Joona Puhakka.*
+

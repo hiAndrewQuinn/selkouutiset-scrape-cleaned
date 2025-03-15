@@ -1,0 +1,58 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 15.3.2025
+
+Aluevaalit
+
+Suomessa on ensi kuussa kahdet vaalit. Ihmiset äänestävät aluevaaleissa ja kuntavaaleissa samana päivänä, sunnuntaina 13. huhtikuuta.
+
+Molemmissa vaaleissa saavat äänestää myös monet ulkomaalaiset, jotka ovat asuneet Suomessa tarpeeksi kauan.
+
+Uutisviikossa kerromme tänään tarkemmin aluevaaleista. Huomenna kerromme lisää kuntavaaleista.
+
+## Aluevaltuusto hyvinvointialueelle
+
+![Aluevaaleissa ja kuntavaaleissa äänestetään nyt ensimmäistä kertaa samana päivänä. Kuva: Janne Lindroos / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2826,w_5025,x_0,y_52/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1738153886/39-1413560679a1f5d54ab9)
+
+Huhtikuussa järjestetään aluevaalit. Aluevaalit järjestetään hyvinvointialueilla, joita on Suomessa 21.
+
+Kunnat ja kaupungit kuuluvat hyvinvointialueisiin. Yhteen alueeseen voi kuulua monta kuntaa. Esimerkiksi Lapin hyvinvointialueella on 21 kuntaa.
+
+Aluevaaleissa valitaan aluevaltuustot. Ne päättävät hyvinvointialueen asioista ja rahankäytöstä.
+
+## Sote-palvelut ja pelastustoimi
+
+![Pohjois-Karjalan hyvinvointialueen aluevaltuuston kokous viime lokakuussa. Kuva: Marja-Liisa Kämppi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_4,y_758/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1728564716/39-13616006707cd5a5b790)
+
+Aluevaalit ovat tärkeät, koska hyvinvointialueella on paljon tehtäviä. Niitä ovat esimerkiksi sosiaalipalvelut ja terveyspalvelut kuten sairaanhoito, terveyskeskukset ja vanhusten hoito.
+
+Hyvinvointialueet päättävät esimerkiksi siitä, miten paljon terveyskeskuksia alueella tarvitaan ja missä ne sijaitsevat.
+
+Alueen tehtävä on myös pelastustoimi eli palokunnat ja ambulanssit.
+
+Hyvinvointialueiden kaikki rahat tulevat valtiolta.
+
+Tänä vuonna valtio antaa alueille yhteensä noin 26 miljardia euroa. Se on melkein 30 prosenttia valtion tämän vuoden budjetista eli talousarviosta.
+
+## Helsinki on poikkeus
+
+![Ambulanssi Päijät-Hämeen keskussairaalan edessä. Kuva: Juha-Petri Koponen](https://images.cdn.yle.fi/image/upload/c_crop,h_2801,w_4980,x_0,y_167/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1739424230/39-1404185677fb29481487)
+
+Aluevaaleissa valitaan jäsenet aluevaltuustoon 4 vuodeksi.
+
+Vaaleissa äänestetään oman alueen ehdokasta. Ehdokkaita asettavat puolueet ja valitsijayhdistykset.
+
+Suomessa on kuitenkin yksi kunta, jossa aluevaaleja ei järjestetä. Helsinki ei kuulu mihinkään hyvinvointialueeseen. Helsingissä kaikista asioista päättää kaupunginvaltuusto.
+
+## Kertaus
+
+Uutisviikon aihe oli tällä kertaa aluevaalit. Kerrataan vielä tärkeimmät asiat.
+
+Suomessa järjestetään huhtikuussa aluevaalit.
+
+Aluevaaleissa valitaan aluevaltuustot hyvinvointialueille.
+
+Ne päättävät esimerkiksi oman alueen terveyskeskuksista ja vanhustenhoidosta.
+
+Aluevaaleissa saavat äänestää myös monet ulkomaalaiset.
+
+Huomenna Uutisviikko kertoo kuntavaaleista. Kuulemiin!
+

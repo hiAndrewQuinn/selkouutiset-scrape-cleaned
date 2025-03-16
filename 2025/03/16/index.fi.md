@@ -1,0 +1,62 @@
+# Radio \| Uutisviikko selkosuomeksi \| sunnuntai 16.3.2025
+
+Kuntavaalit
+
+Suomessa on ensi kuussa kahdet vaalit. Ihmiset äänestävät kuntavaaleissa ja aluevaaleissa samana päivänä, sunnuntaina 13. huhtikuuta.
+
+Molemmissa vaaleissa saavat äänestää myös monet ulkomaalaiset, jotka ovat asuneet Suomessa tarpeeksi kauan.
+
+Uutisviikossa kerroimme eilen aluevaaleista. Tänään kerromme lisää kuntavaaleista.
+
+## Kunnanvaltuusto joka kuntaan
+
+![Kuntavaalit järjestetään jokaisessa Manner-Suomen kunnassa. Kuva: Hilma Toivonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1623228511/39-81810560c07b80a7d3f)
+
+Huhtikuussa järjestetään kuntavaalit. Vaalit järjestetään jokaisessa Manner-Suomen kunnassa. Niitä on melkein 300.
+
+Isoja kuntia kutsutaan myös kaupungeiksi.
+
+Kuntavaaleissa jokaiseen kuntaan valitaan kunnanvaltuusto. Valtuuston jäsenet eli kunnanvaltuutetut päättävät kunnan toiminnasta ja rahoista.
+
+## Kunnilla on paljon tehtäviä
+
+![Kunnan palveluja ovat esimerkiksi kirjastot. Kuvassa Sotkamon uusi kirjasto. Kuva: Jarmo Nuotio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_332/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1737474987/39-1409736678fc00b90442)
+
+Kuntavaalit ovat tärkeät, koska me kaikki käytämme kunnan palveluja. Niitä ovat esimerkiksi koulut ja päiväkodit, kirjastot ja liikuntapaikat.
+
+Kunnat myös päättävät kaavoituksesta eli siitä, mihin esimerkiksi talot, kadut ja puistot rakennetaan. Kunnille kuuluvat myös vesihuolto ja joukkoliikenne.
+
+Kuntavaaleissa äänestetään oman kotikunnan ehdokasta. Ehdokkaita asettavat puolueet ja valitsijayhdistykset.
+
+Kunnanvaltuustot valitaan 4 vuodeksi.
+
+## Rahaa kuntalaisilta ja valtiolta
+
+![Luumäen kunnanvaltuusto oli koolla 9. joulukuuta viime vuoden lopulla. Kuva: Juulia Tillaeus / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2078,w_3709,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1733763142/39-139256267571fc44b983)
+
+Kunnanvaltuusto päättää, mihin kunta käyttää rahaa.
+
+Asukkaat maksavat kunnalle palkasta ja eläkkeestä kunnallisveroa. Valtuusto päättää joka vuosi, kuinka paljon asukkaat maksavat kunnallisveroa.
+
+Kunta saa rahaa myös valtiolta.
+
+Monen kunnan verotulot ovat pienentyneet, koska asukkaita on vähemmän kuin ennen.
+
+Asukasmäärän vähenemisen takia noin 20 prosenttia kunnista valitsee nyt kuntavaaleissa myös vähemmän valtuutettuja kuin ennen.
+
+## Kertaus
+
+Uutisviikon aihe oli tällä kertaa kuntavaalit. Kerrataan vielä tärkeimmät asiat.
+
+Suomessa järjestetään huhtikuussa kuntavaalit
+
+Kuntavaaleissa valitaan kunnanvaltuustot, jotka päättävät kunnan toiminnasta ja rahankäytöstä.
+
+Me kaikki käytämme kunnan palveluja. Niitä ovat esimerkiksi koulut, kirjastot ja joukkoliikenne.
+
+Kuntavaaleissa saavat äänestää myös monet ulkomaalaiset.
+
+Kuntavaalien kanssa samaan aikaa järjestetään aluevaalit. [Niistä kerroimme tarkemmin Uutisviikossa eilen.](https://yle.fi/a/74-20145950)
+
+Kuulemiin ensi viikkoon.
+

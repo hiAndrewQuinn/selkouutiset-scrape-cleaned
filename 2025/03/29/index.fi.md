@@ -1,0 +1,46 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 29.3.2025
+
+Puolueiden teemat aluevaaleissa
+
+Vaaleissa kahden viikon kuluttua valitaan hyvinvointialueille aluevaltuustot ja kuntiin kunnanvaltuustot.
+
+Aluevaltuustot päättävät sosiaali- ja terveyspalveluista.
+
+Kerromme nyt, millaisia sote-palveluita eduskuntapuolueet haluavat alueille.
+
+Kaikki puolueet esimerkiksi kannattavat omalääkärimallia. Siinä ihmisellä on aina sama lääkäri.
+
+## Keskusta, kokoomus ja kristillisdemokraatit
+
+![Luminen kyltti Lappeenrannassa Etelä-Karjalan hyvinvointialueella. Kuva: Helena Korpela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_94/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674563619/39-106322463cfcfc324680)
+
+Keskusta ehdottaa terveydenhoitoon yhtä maksukattoa. Palvelut ovat maksuttomia sen jälkeen, kun tietty summa maksuja on tullut täyteen vuodessa. Samassa maksukatossa ovat mukana esimerkiksi lääkkeet, matkakustannukset ja hoitokulut.
+
+Kokoomus sanoo, että sähköisiä palveluita voi käyttää, jos se helpottaa hoitoon pääsyä. Kokoomuksen mielestä yksityiset firmat ja järjestöt voivat olla mukana tuottamassa julkisia sote-palveluita.
+
+Kristillisdemokraatit haluaa paremman Kela-korvauksen palveluihin, joita saa huonosti julkisesta terveydenhuollosta. Näitä ovat esimerkiksi silmälääkärit, gynekologit ja hammashoito.
+
+## Liike Nyt, perussuomalaiset ja RKP
+
+![Haminan terveyskeskus Kymenlaakson hyvinvointialueella. Kuva: Antro Valo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3179,w_5653,x_0,y_83/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710166167/39-11855466527f10854aec)
+
+Liike Nyt sanoo, että sote-alan irtisanomiset pitää lopettaa. Lisäksi pitää tarjota verohelpotuksia hoitajille, jotka ovat jo eläkkeellä. Näin saadaan heitä takaisin hoitotyöhön.
+
+Perussuomalaiset haluaa etävastaanotot ja terveyskeskusautot parantamaan palveluja. Puolue myös vaatii sote-alalle soveltuvuuskokeita ja kielikokeita.
+
+RKP eli Ruotsalainen kansanpuolue haluaa, että hyvinvointialueen rahat käytetään vakituisiin lääkäreihin. Silloin ei tarvita kalliita vuokralääkäreitä.
+
+## SDP, vasemmistoliitto ja vihreät
+
+![Ambulansseja Porissa Satakunnan hyvinvointialueella. Kuva: Anna-Mari Vuollet / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_360/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1704534931/39-1224220659922d308731)
+
+SDP:n eli sosialidemokraattien mielestä sote-alan vuokratyöllä pitää olla hintakatto. SDP kannattaa etäpalveluita mutta sanoo, että ihmisten pitää voida soittaa terveyskeskukseen ja päästä vastaanotolle.
+
+Vasemmistoliiton mielestä sote-palvelut voidaan tarjota myös etänä tai liikkuvana palveluna. Hyvinvointialueiden pitää tavoittaa kaikki. Sen takia tarvitaan esimerkiksi viittomakieltä ja selkokieltä.
+
+Vihreät haluaa helpottaa hoitoon pääsyä, jolloin ihmiset eivät tarvitse yksityisiä terveysvakuutuksia. Taide ja kulttuuri ovat tärkeitä mielenterveydelle. Siksi hyvinvointialueen pitää käyttää rahaa myös taiteeseen, vihreät sanoo.
+
+Aluevaalit ovat 13. huhtikuuta. Helsingissä ei pidetä aluevaaleja.
+
+Huomenna kerromme puolueista kuntavaaleissa.
+

@@ -1,0 +1,44 @@
+# TV \| Selkouutiset \| maanantai 31.3.2025
+
+Presidentti Stubb. Maanjäristys. Vaalit. Sää.
+
+## Presidentit Stubb ja Trump
+
+Ensin kansainvälistä politiikkaa.
+
+Suomen presidentti Alexander Stubb vieraili USA:ssa. Stubb pelasi lauantaina golfia USA:n presidentin Donald Trumpin kanssa.
+
+Stubb sanoi Trumpille, että Ukrainaan pitää saada tulitauko. Stubb ehdotti, että tulitauko alkaa 20. huhtikuuta.
+
+Suomen presidentti Alexander Stubb vieraili USA:ssa. USA:sta Stubb lensi Lontooseen.
+
+## Maanjäristys
+
+Seuraavan uutisen aihe on maanjäristys.
+
+Kaakkois-Aasiassa oli perjantaina iso maanjäristys. Maanjäristys tapahtui Myanmarissa. Maanjäristyksessä kuoli Myanmarissa ehkä useita tuhansia ihmisiä. Maanjäristys tuhosi paljon rakennuksia. Ihmisiä jäi rakennusten raunioihin.
+
+Maa järisi myös Thaimaan pääkaupungissa Bangkokissa. Bangkokissa kuoli ainakin 17 ihmistä.
+
+Kaakkois-Aasiassa oli perjantaina iso maanjäristys. Pelastustyöntekijät etsivät yhä ihmisiä rakennusten raunioista. Punainen risti kerää rahaa, jotta Myanmariin saadaan apua.
+
+## Aluevaalit ja kuntavaalit
+
+Sitten asiaa vaaleista.
+
+Aluevaaleihin ja kuntavaaleihin on aikaa 2 viikkoa. Silloin valitaan hyvinvointialueille aluevaltuustot ja kuntiin kunnanvaltuustot.
+
+Aluevaltuustot päättävät esimerkiksi alueen sosiaali- ja terveyspalveluista. Kunnanvaltuustot päättävät esimerkiksi kuntien päivähoidosta ja kouluista.
+
+Uutisviikko selkosuomeksi -ohjelmassa kerrottiin viikonloppuna, miten eduskuntapuolueet haluavat kehittää sote-palveluita ja kouluja.
+
+Ohjelman voi kuunnella ja lukea selkouutisten nettisivuilla.
+
+Aluevaaleissa ja kuntavaaleissa saavat äänestää myös monet ulkomaalaiset, jos he ovat asuneet tarpeeksi kauan Suomessa.
+
+## Sää
+
+Vielä sääennuste.
+
+Sää kuivuu ja lämpenee. Huomenna tiistaina paistaa aurinko. Sää on lämmin. Lämpötila on etelässä yli 10 astetta. Pohjoisessa lämpötila on noin 5 astetta.
+

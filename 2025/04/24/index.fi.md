@@ -1,0 +1,80 @@
+# TV \| Selkouutiset \| torstai 24.4.2025
+
+Veroalennukset. Säästöt. Kruununprinsessa Victoria. Perjantain sää.
+
+Aluksi uutinen politiikasta.
+
+## Veroalennukset
+
+Hallitus on päättänyt isosta veroalesta. Tarkoitus on nopeuttaa talouskasvua.
+
+Työn verotusta kevennetään noin miljardi euroa.
+
+Hallitus kertoi asiasta myöhään illalla keskiviikkona.
+
+Pienituloisten ja keskituloisten verotus pienenee ensi vuonna noin 525 miljonaa euroa ja seuraavana vuonna noin 650 miljoonaa euroa.
+
+Myös suurien, yli 100 000 euron vuositulojen verotus kevenee.
+
+Firmojen yhteisöveroa lasketaan.
+
+Ruoan arvonlisäveroa lasketaan hieman.
+
+Hallitus on päättänyt isosta veroalesta.
+
+Joidenkin asioiden veroa kiristetään. Esimerkiksi virvoitusjuomien, sähkötupakan ja nikotiinipussien verotusta kiristetään.
+
+## Säästöt
+
+Jatketaan aiheella verotus.
+
+Verokevennysten takia hallitus tekee myös säästöjä.
+
+Esimerkiksi valtion hallinnosta säästetään 130 miljoonaa euroa lisää.
+
+Valtion rahoituksesta kunnille leikataan 75 miljoonaa euroa.
+
+Ammattiliittojen jäsenmaksujen verovähennysoikeus loppuu.
+
+Kehitysyhteistyöstä leikataan.
+
+Korkeakoulujen rahoitusta vähennetään.
+
+Kaivosveroa korotetaan.
+
+Verokevennysten takia hallitus tekee myös säästöjä.
+
+Valtiovarainministeri **Riikka Purra** sanoo, että verokevennykset rahoitetaan joidenkin asioiden veronkorotuksilla ja säästöillä.
+
+*"Niiden rahoittamiseksi pitää löytää joko veronkorotuksia toisaalta kuten nyt tehdään, ja toisaalta säästöjä jostain muualta."*
+
+## Prinessa Victoria
+
+Lopuksi uutinen prinessa **Victorian** vierailusta Suomessa.
+
+Ruotsin kruununprinessa Victoria on vieraillut Suomessa. Vierailu kesti 2 päivää.
+
+Vierailun aihe oli puolustus ja kriisivalmius.
+
+Victoria osallistui keskiviikkona seminaariin, jonka aihe oli huoltovarmuus.
+
+Victorian asussa oli Suomen lipun värit, sininen ja valkoinen.
+
+Ruotsin kruununprinessa Victoria on vieraillut Suomessa.
+
+Victoria tapasi myös presidentti **Alexader Stubbin**.
+
+Stubbin tapaaminen oli tiistaina presidentin virka-asunnolla Helsingin Munkkiniemessä.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina sataa vähän lunta tai vettä.
+
+Aurinko paistaa välillä.
+
+Suomee tulee kylmää ilmaa.
+
+Aivan pohjoisessa on myös päivällä pakkasta.
+

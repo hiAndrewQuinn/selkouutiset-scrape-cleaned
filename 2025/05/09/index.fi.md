@@ -1,0 +1,70 @@
+# TV \| Selkouutiset \| perjantai 9.5.2025
+
+Uusi Paavi. 80 vuotta toisesta maailmansodasta. Metsuripula. Sää.
+
+## Leo XIV on uusi paavi
+
+Aluksi aiheena on uusi paavi.
+
+Katolinen kirkko on saanut uuden johtajan. Uusi paavi on amerikkalainen Robert Francis Prevost.
+
+Paavina hän käyttää nimeä Leo XIV. Paavi Leo on 69-vuotias ja ensimmäinen paavi USA:sta.
+
+Katolisen kirkon kardinaalien kokous sai uuden paavin valittua jo toisena kokouspäivänä.
+
+Paavi Leo puhui illalla ensimmäistä kertaa Vatikaanin Pietarinkirkon parvekkeella.
+
+Hän korosti puheessa yhteistyön tärkeyttä.
+
+Uutta paavia tervehti Pietarinaukiolla valtava määrä ihmisiä.
+
+## 80 vuotta toisesta maailmansodasta
+
+Sitten historiaa.
+
+Toisen maailmansodan päättymisestä on kulunut 80 vuotta.
+
+Natsi-Saksa antautui liittoutuneiden joukoille toukokuun 8. päivä 1945.
+
+Sota oli kestänyt 6 vuotta ja siinä kuoli kymmeniä miljoonia ihmisiä.
+
+Toisen maailmansodan päättymisestä on kulunut 80 vuotta.
+
+Lännessä muistettiin sotaa eilen.
+
+Venäjällä juhlittiin tänään. Presidentti Vladimir Putinin kanssa Voitonpäivän sotilasparaatia katsoi esimerkiksi Kiinan johtaja Xi Jinping.
+
+Sotilasparaatiin Punaisella torilla osallistui sotilaita myös muista maista, esimerkiksi Kiinasta.
+
+## Metsuripula
+
+Sitten kerromme metsätöistä.
+
+Suomen metsiin tarvitaan lähivuosina satoja uusia työntekijöitä.
+
+Metsämiesten säätiön selvitys kertoo, että nykyiset metsurit ovat tulossa eläkeikään.
+
+Sen takia Suomen kannattaa aloittaa ripeästi maahanmuuttajien kouluttaminen metsätöihin.
+
+Ammattitaitoista työvoimaa tarvitaan metsänhoitotyöhön, puunkorjuuseen ja puutavaran kuljetukseen.
+
+Suomen metsiin tarvitaan lähivuosina satoja uusia työntekijöitä.
+
+Keski-Suomessa Saarijärvellä on jo aloitettu maahanmuuttajien koulutus metsätöihin.
+
+Tässä ukrainalaisopiskelijat raivaavat taimikkoa raivaussahoilla.
+
+Näin Vadym Klymenko:
+
+\- Minä haluan työskennellä metsässä ja jatkaa töitä Suomessa.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Sää on huomenna laajalti poutainen. Paikoin aurinkokin näyttäytyy.
+
+Maan lounaisosassa voi sataa vähän vettä.
+
+Sää lämpenee hieman.
+

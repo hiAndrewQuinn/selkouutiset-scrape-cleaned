@@ -47,3 +47,4 @@ The emergency law requires the support of the opposition, because the adoption o
 Another weather forecast.
 
 It is mostly sunny. At night, especially in the north, frost can occur on the surface of the earth. During the day, the temperature is 18\...25 degrees.
+

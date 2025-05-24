@@ -55,3 +55,4 @@ The annual average temperature now exceeds the Paris Climate Agreement target of
 Climate scientists say the climate crisis may be getting worse.
 
 This was Uutisviikko in plain Finnish. See you again next week.
+

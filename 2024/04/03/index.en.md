@@ -59,3 +59,4 @@ Another weather forecast.
 The sun is shining in many places. In Eastern Lapland it may be a little cloudier and there may be very weak snowfall.
 
 The temperature is between 0 and -10 degrees, Lapland is the coldest.
+

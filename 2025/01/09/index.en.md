@@ -39,3 +39,4 @@ The UMK final will be held in Tampere in a month. The winner of the competition 
 ## Weather
 
 Still the weather forecast. It is snowing in the south. The temperature is zero degrees or slightly below zero. The weather is cloudy in the central part of the country. The sky is clear in the north. The weather is very cold in the north.
+

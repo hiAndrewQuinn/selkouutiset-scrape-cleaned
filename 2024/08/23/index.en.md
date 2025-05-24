@@ -73,3 +73,4 @@ In the south, the sun shines in the afternoon.
 The temperature is between 15 and 22 degrees.
 
 The wind can be strong at times.
+

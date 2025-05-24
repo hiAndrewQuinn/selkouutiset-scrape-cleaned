@@ -42,7 +42,7 @@ This is the 10th year that the camera has been following the Saimaa ringed seal.
 
 The nature camera is currently also monitoring the nesting of the osprey, a large bird of prey.
 
-Nature cameras can be found at![wwf.fi/luontolive](https://wwf.fi/luontolive/norppalive/).
+Nature cameras can be found at [wwf.fi/luontolive](https://wwf.fi/luontolive/norppalive/).
 
 ## Saturday weather
 
@@ -53,3 +53,4 @@ There will be snow and rain in the north.
 There will be showers in many places in the southern and central parts of the country. It will be breezy at times.
 
 The temperature is between 0 and +10 degrees. There is a slight frost in places in Northern Lapland.
+

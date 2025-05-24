@@ -51,3 +51,4 @@ The time for the biggest harvest of berries is now or it has already passed.
 Another weather forecast.
 
 On Tuesday, it can rain and thunder in the afternoon. The sun is shining elsewhere. The temperature is 20--25 degrees.
+

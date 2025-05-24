@@ -36,7 +36,7 @@ There were no Finns on the plane, says the Finnish Ministry of Foreign Affairs.
 
 ## Trump accused
 
-![Donald Trump spoke about the accident. Picture: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2248,w_4005,x_0,y_250/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1738259572/39-1414612679bbc64610fa)
+![Donald Trump spoke about the accident. Picture: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2248,w_4005,x_0,y_250/ar_1.777777777777777 7,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1738259572/39-1414612679bbc64610fa)
 
 US President Donald Trump spoke about the plane crash on television.
 
@@ -69,3 +69,4 @@ A plane and a helicopter collided. 67 people died.
 Authorities are now investigating what caused the accident.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

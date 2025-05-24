@@ -57,3 +57,4 @@ In the southern and central parts of the country, it rains snow and water.
 It's dusty in the north, sunny in Lapland.
 
 The temperature is between -5 and +5 degrees.
+

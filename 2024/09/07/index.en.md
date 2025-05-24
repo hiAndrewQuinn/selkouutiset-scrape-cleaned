@@ -8,7 +8,7 @@ This week, the government completed the proposal for next year's budget.
 
 The state takes on more debt and many things are cut. We will now tell you more about the government's budget proposal.
 
-![The government agreed on the budget proposal this week. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3249,w_5776,x_0,y_516/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1725371914/39-134312066d7110cc2f55)
+![The government agreed on the budget proposal this week. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3249,w_5776,x_0,y_516/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1725371914/39-134312066d7110cc2f55)
 
 ## Deficit 12 billion euros
 
@@ -36,7 +36,7 @@ More than 9 million euros will be cut from the reception money.
 
 Interpreting and integration allowances will also be cut.
 
-![Finland buys new fighters from the USA. Photo: Hans-Peter Dhuy / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2384,w_4238,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714142882/39-1276984662bbe08e2674)
+![Finland buys new fighters from the USA. Photo: Hans-Peter Dhuy / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2384,w_4238,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1714142882/39-1276984662bbe08e2674)
 
 ## More money
 
@@ -65,3 +65,4 @@ For example, development cooperation, vocational training and state administrati
 For example, the police, army and NATO activities will receive more money.
 
 Parliament will decide on the budget in the fall. Since the governing parties have a majority in parliament, there will be no major changes to the budget.
+

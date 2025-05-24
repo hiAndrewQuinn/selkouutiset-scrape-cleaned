@@ -20,7 +20,7 @@ Nieminen says that nowadays many people buy a car online. The buyer may not even
 
 The used car trade is growing.
 
-Yle's MOT program tells more about the problems of the car dealership.![The program is at Yle Areena](https://areena.yle.fi/1-66871382).
+Yle's MOT program tells more about the problems of the car dealership. [The program is at Yle Areena](https://areena.yle.fi/1-66871382).
 
 ## Austrian elections
 
@@ -59,3 +59,4 @@ Speakers of minority languages may not dare to speak their own language in publi
 ## Tuesday's weather
 
 Another weather forecast. The week starts sunny. On Tuesday, there will be showers in the north, but most of the country will be cloudy.
+

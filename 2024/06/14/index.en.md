@@ -59,3 +59,4 @@ In the west and Lapland, there may be thunder and rain.
 There is snow in the south and east.
 
 The temperature is 15-20 degrees. It can be cooler in rainy areas.
+

@@ -69,3 +69,4 @@ On Thursday, the weather will continue to be sunny and warm. The sun shines almo
 It is cloudy in the south and it may rain.
 
 The temperature is 20-25 degrees. The temperature can rise to freezing temperatures.
+

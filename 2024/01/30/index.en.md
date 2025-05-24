@@ -63,3 +63,4 @@ An oil accident is the biggest environmental threat to the Baltic Sea.
 ## Weather
 
 Another weather forecast. The temperature is close to zero throughout the country. It may snow a little in Lapland.
+

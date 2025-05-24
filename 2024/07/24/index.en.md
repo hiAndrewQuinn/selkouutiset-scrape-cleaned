@@ -63,3 +63,4 @@ Another weather forecast.
 On Thursday, the weather will be hot. In the east, the temperature can be 30 degrees.
 
 It rains and thunders in the west. It can also rain in Lapland. In rainy areas, the weather is cooler.
+

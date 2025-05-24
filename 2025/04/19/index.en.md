@@ -57,3 +57,4 @@ A little over half of those eligible to vote voted.
 A record number of votes were rejected in the election.
 
 This was a news week - see you again tomorrow.
+

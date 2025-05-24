@@ -67,3 +67,4 @@ It's sunny on the west coast.
 The temperature is between 11 and 18 degrees.
 
 The sun shines in the evening.
+

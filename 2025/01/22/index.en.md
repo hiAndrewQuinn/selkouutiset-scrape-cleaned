@@ -71,3 +71,4 @@ Elsewhere it is dry, meaning it is not raining.
 The sun can shine sometimes in the north.
 
 In the south, the temperature is slightly above zero, while elsewhere it is freezing.
+

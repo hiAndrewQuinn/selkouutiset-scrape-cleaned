@@ -6,7 +6,7 @@ The topic of the news week this time is light. It is now midsummer and there is 
 
 ## The longest day
 
-![Now the night is also bright. Photo: Sirkka Haverinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_375/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1667551688/39-10294326364cfc9d43ac)
+![Now the night is also bright. Photo: Sirkka Haverinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_375/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1667551688/39-10294326364cfc9d43ac)
 
 Midsummer is now celebrated in Finland. The daylight hours are now longer than before.
 
@@ -18,7 +18,7 @@ The bright time of summer is important to Finns. Light even improves health.
 
 ## Light and health
 
-![It was like this in January. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1704535031/39-12242226599239ba5465)
+![It was like this in January. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1704535031/39-12242226599239ba5465)
 
 Finns get too little light in winter.
 
@@ -32,7 +32,7 @@ Unfortunately, the human body cannot store light for the winter. That's why you 
 
 ## Summer and love
 
-![Summer is the season of love. Photo: Grigory Vorobyev / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3151,w_5602,x_7,y_593/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717324036/39-1295217665c4776c4174)
+![Summer is the season of love. Photo: Grigory Vorobyev / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3151,w_5602,x_7,y_593/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1717324036/39-1295217665c4776c4174)
 
 In the summer, many fall in love, or at least want to fall in love. The Finnish language has its own word for summertime lover. It's a summer swing.
 
@@ -42,7 +42,7 @@ After the dark winter, when the light starts to increase, we go out and meet oth
 
 ## Midsummer magic
 
-![Midsummer magic was made with wild flowers. Photo: Merja Siirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1836,w_3264,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1559592326/39-5677955cf57d1d1485e)
+![Midsummer magic was made with wild flowers. Photo: Merja Siirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1836,w_3264,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1559592326/39-5677955cf57d1d1485e)
 
 If you can't find your love, do this: collect 7 different flowers and put them under your pillow on Midsummer. You see in a dream the one who will become your groom or bride.
 
@@ -59,3 +59,4 @@ Light makes people feel better because it affects hormones.
 In old folklore, the midsummer festival is associated with magic and love.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

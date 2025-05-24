@@ -46,8 +46,9 @@ Thank you very much for the interview, Mrs. Innes-Stubb.
 
 *- Thank you.*
 
-![Photo: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_279/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1728671466/39-136272667096df965b5a)
+![Photo: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_279/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1728671466/39-136272667096df965b5a)
 
 The second part of Suzanne Innes-Stubb's interview will be on the radio program Uutisviikko in clear Finnish this weekend.
 
 Then Innes-Stubb tells, for example, what she thinks about the role of the president's spouse and how Finns have received her.
+

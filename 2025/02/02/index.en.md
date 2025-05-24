@@ -54,7 +54,7 @@ Elon Musk believes that Germany should be proud of German culture.
 
 ## The Holocaust lesson
 
-![Professor Antero Holmila. Photo: Niko Mannonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_253/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1737121496/39-1408164678a5e0e196e5)
+![Professor Antero Holmila. Photo: Niko Mannonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_253/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1737121496/39-1408164678a5e0e196e5)
 
 Finnish history professor **Antero Holmila** has studied the Holocaust.
 
@@ -71,3 +71,4 @@ Monday was Holocaust Remembrance Day.
 In the Holocaust, the Germans murdered over 6 million Jews.
 
 The Holocaust teaches that ordinary people can commit terrible acts.
+

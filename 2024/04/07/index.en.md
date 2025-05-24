@@ -8,7 +8,7 @@ NATO turned 75 this week. Finland has been a member of NATO for a year now. Now 
 
 ## Finland and NATO
 
-![NATO turned 75 on April 4, 2024. On the same day, Finland had been a member of NATO for 1 year. Photo: Olivier Matthys / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_86/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712311083/39-1266675660fc667df343)
+![NATO turned 75 on April 4, 2024. On the same day, Finland had been a member of NATO for 1 year. Photo: Olivier Matthys / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_86/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1712311083/39-1266675660fc667df343)
 
 Defense alliance NATO turned 75 years old on Thursday. The party was celebrated at the NATO headquarters in Brussels. Finnish Foreign Minister Elina Valtonen was also present.
 
@@ -20,7 +20,7 @@ Because of this principle, Finland and Sweden decided to join NATO. They wanted 
 
 ## Finland's security
 
-![Finland has a strong army and the support of other NATO countries. Photo: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1669548509/39-103998963833f842ff04)
+![Finland has a strong army and the support of other NATO countries. Photo: Kari Saastamoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2908,w_5178,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1669548509/39-103998963833f842ff04)
 
 What is the security of NATO country Finland based on?
 
@@ -32,7 +32,7 @@ Finland has also signed an agreement on defense cooperation with the USA. Based 
 
 ## Finland and Ukraine
 
-![Presidents Alexander Stubb and Volodymyr Zelenskyi signed the security agreement in Kyiv. Photo: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2520,w_4480,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712147175/39-1265693660d398907826)
+![Presidents Alexander Stubb and Volodymyr Zelenskyi signed the security agreement in Kyiv. Photo: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2520,w_4480,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1712147175/39-1265693660d398907826)
 
 NATO country Finland supports Ukraine. The matter also became clear this week, when President Alexander Stubb visited Ukraine.
 
@@ -49,3 +49,4 @@ NATO country Finland's security is based on its own army and cooperation with ot
 It is important for Finland that Ukraine wins the war against Russia.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

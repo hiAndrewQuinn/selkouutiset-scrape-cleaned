@@ -69,3 +69,4 @@ The sun shines in places in the central and eastern part of the country.
 In sunny areas, the temperature is between +3 and +5 degrees. It is colder in cloudy areas.
 
 It's freezing in the north.
+

@@ -6,7 +6,7 @@ Here is Uutisviikko in plain Finnish and Tuukka Lukinmaa. This time, Uutisvikiko
 
 ## Tight vote
 
-![SDP MP Timo Harakka was against the conversion law. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3330,w_5920,x_0,y_28/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1720793116/39-13181096691367738ed7)
+![SDP MP Timo Harakka was against the conversion law. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3330,w_5920,x_0,y_28/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1720793116/39-13181096691367738ed7)
 
 The big thing in the news this week has been the conversion law. The law concerns the security of Finland's eastern border.
 
@@ -18,7 +18,7 @@ Enough SDP MPs still voted in favor of the conversion law, and the law was appro
 
 ## What is conversion law?
 
-![Asylum seekers on the eastern border. Photo: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3289,w_5860,x_0,y_244/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700738486/39-1205430655f354d9c93c)
+![Asylum seekers on the eastern border. Photo: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3289,w_5860,x_0,y_244/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1700738486/39-1205430655f354d9c93c)
 
 What is conversion law? The Return Act means that the asylum application at the Finnish border can be suspended. Then asylum seekers cannot enter Finland.
 
@@ -40,7 +40,7 @@ The government still says that the Conversion Act is needed for Finland's securi
 
 ## Bad relations between Finland and Russia
 
-![Russian President Vladimir Putin. Photo: Natalia Kolesnikova / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_426/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1718682843/39-130483966710482e09eb)
+![Russian President Vladimir Putin. Photo: Natalia Kolesnikova / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_426/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1718682843/39-130483966710482e09eb)
 
 The reason for the translation law is the bad relations between Finland and Russia.
 
@@ -59,3 +59,4 @@ The Repatriation Act can prevent you from applying for asylum in Finland.
 The purpose of the Reversal Act is to improve the security of the eastern border.
 
 This was Uutisviikko in clear Finnish. See you again, by the way!
+

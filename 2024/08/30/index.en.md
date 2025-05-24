@@ -67,3 +67,4 @@ Another weather forecast.
 The weather is rainy. There can also be thunder in the west.
 
 The temperature is 15-20 degrees. It's a little warmer in the east.
+

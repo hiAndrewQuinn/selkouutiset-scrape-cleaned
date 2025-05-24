@@ -47,3 +47,4 @@ Another weather forecast.
 Tomorrow the sun will shine in Lapland. It snows a little in the central part of the country. In the south it is cloudy and raining.
 
 The temperature varies mostly between 0 and -10 degrees.
+

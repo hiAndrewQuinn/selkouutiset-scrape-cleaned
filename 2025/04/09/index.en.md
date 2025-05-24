@@ -49,3 +49,4 @@ Helmarit is still fighting for the Nations League group stage victory.
 Still a weather forecast.
 
 The sun is shining in many places. There are clouds in the sky in the west. In the evening it will snow in the west. The temperature is mostly between -3 and +3 degrees.
+

@@ -6,7 +6,7 @@ The topic of the news week this time is the Kela compensations, which the govern
 
 ## Kela compensation for pensioners
 
-![Minister of Social Security Sanni Grahn-Laasonen. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3261,w_5798,x_0,y_528/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1728463793/39-135374366f3eb7d25e42)
+![Minister of Social Security Sanni Grahn-Laasonen. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3261,w_5798,x_0,y_528/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1728463793/39-135374366f3eb7d25e42)
 
 The government intends to change Kela compensations. Social Security Minister Sanni Grahn-Laasonen told about the government's plans this week.
 
@@ -18,7 +18,7 @@ If the experiment is successful, it can be extended to all ages. In the future, 
 
 ## Visits to a specialist
 
-![The government intends to increase the Kela compensation for, for example, the ophthalmologist's bill. Photo: Jyrki Lyytikkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2723,w_4840,x_0,y_197/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706043961/39-7595645ff48602b9fdd)
+![The government intends to increase the Kela compensation for, for example, the ophthalmologist's bill. Photo: Jyrki Lyytikkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2723,w_4840,x_0,y_197/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1706043961/39-7595645ff48602b9fdd)
 
 The government plans to change other Kela compensations as well.
 
@@ -30,7 +30,7 @@ The intention is that the new Kela compensations will come into force during the
 
 ## Disputes between politicians
 
-![The opposition criticizes the government's plans. In the photo, SDP chairman Antti Lindtman. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_170/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1727184692/39-135328466f2bb322df03)
+![The opposition criticizes the government's plans. In the photo, SDP chairman Antti Lindtman. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_170/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1727184692/39-135328466f2bb322df03)
 
 There are problems in Finnish healthcare.
 
@@ -53,3 +53,4 @@ In addition, Kela compensations increase for the services of some private specia
 The government's goal is for people to get treatment quickly.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

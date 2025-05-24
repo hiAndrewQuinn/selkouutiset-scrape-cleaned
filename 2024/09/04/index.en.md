@@ -53,3 +53,4 @@ Another weather forecast.
 There will be showers in Lapland. Elsewhere it is cloudy and sunny.
 
 The temperature is around 25 degrees in the southern and central parts of the country. In Lapland, the temperature remains below 20 degrees.
+

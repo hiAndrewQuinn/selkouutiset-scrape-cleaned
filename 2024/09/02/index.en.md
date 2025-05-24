@@ -47,3 +47,4 @@ Another weather forecast.
 Tomorrow the sun will shine in the west and east, but it may rain and thunder in the middle of Finland.
 
 In sunny weather, the temperature is between 20 and 25 degrees.
+

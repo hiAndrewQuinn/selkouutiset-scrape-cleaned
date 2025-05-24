@@ -37,3 +37,4 @@ The Helsinki Fair is now open. The boat fair will continue until Sunday.
 Still a weather forecast.
 
 On Thursday, the weather will be breezy throughout the country. The weather will be partly cloudy or sunny. In the north, the temperature will be around 10 degrees below zero. Elsewhere in Finland, the temperature will vary between -2 and -10 degrees.
+

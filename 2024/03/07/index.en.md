@@ -59,3 +59,4 @@ More weather forecast.\
 On Friday, the weather will be cloudy, meaning no rain.\
 The sun is shining in places.\
 The temperature is mostly between -2 and +2 degrees.
+

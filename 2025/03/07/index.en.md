@@ -36,7 +36,7 @@ So almost every candidate can get into the council.
 
 Municipal elections will be held on April 13. Regional elections will also be held on the same day.
 
-You can find out about the candidates for both elections on![Yle's election machine at vaalit.yle.fi](https://vaalit.yle.fi/vaalikone/alue-ja-kuntavaalit2025)
+You can find out about the candidates for both elections on [Yle's election machine at vaalit.yle.fi](https://vaalit.yle.fi/vaalikone/alue-ja-kuntavaalit2025)
 
 ## Linda Lampenius
 
@@ -61,3 +61,4 @@ It will snow in the north tomorrow. Driving conditions may be poor.
 The sun is shining in the south. It is warm in the south.
 
 The weather is very windy, especially in central Finland.
+

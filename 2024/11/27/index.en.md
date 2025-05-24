@@ -49,3 +49,4 @@ Another weather forecast.
 Tomorrow it will be clear in Lapland, meaning there are no clouds in the sky. It's 10-25 degrees below zero.
 
 Instead, it is mild, cloudy and gray in the southern and central parts of the country. It rains a little in places.
+

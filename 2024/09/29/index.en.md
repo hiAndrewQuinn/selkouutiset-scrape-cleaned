@@ -22,7 +22,7 @@ In the Veikkaus online store, the customer identifies themselves the first time 
 
 The purpose of identification is to facilitate age limit monitoring and reduce gaming disadvantages.
 
-![Traditional lotteries are especially bought by older people. Photo: Yrjö Hjelt / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_442/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702647259/39-1216468657c54b5b8333)
+![Traditional lotteries are especially bought by older people. Photo: Yrjö Hjelt / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_442/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702647259/39-1216468657c54b5b8333)
 
 ## Decrease in lottery sales
 
@@ -42,7 +42,7 @@ At the beginning of the year, the Pajatso and Hedelmäpeli lotteries were discon
 
 Veikkaus says that traditional lotteries are especially bought by older people. Veikkaus believes that sales of traditional cardboard lottery tickets will continue for a long time, even though sales have decreased.
 
-![Onnensanat is a popular lottery. Words are scratched out in it. Photo: Kristiina Lehto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1726580956/39-134985066e986812b68f)
+![Onnensanat is a popular lottery. Words are scratched out in it. Photo: Kristiina Lehto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1726580956/39-134985066e986812b68f)
 
 ## Repeat
 
@@ -53,3 +53,4 @@ Lottery sales have decreased by around 30 percent this year. The reason is the i
 The purpose of identification is to facilitate age limit monitoring and reduce gaming disadvantages.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

@@ -78,3 +78,4 @@ Thursday is a cold day.
 It is cloudy almost throughout the country, but it is not raining.
 
 The sun is shining on the west coast and in Käsivaren Lapland.
+

@@ -6,7 +6,7 @@ The topic of the news week is Finland's security. This week, the protection poli
 
 ## Russia the biggest threat
 
-![ Photo: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_474/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1711377385/39-126245766018baea8f48)
+![ Photo: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_474/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1711377385/39-126245766018baea8f48)
 
 Russia is still the biggest threat to Finland's security. That's what the Protection Police says.
 
@@ -20,7 +20,7 @@ The security police say that Finland's membership in the defense alliance NATO g
 
 ## Finnish Russians
 
-![ Photo: Tanja Heino / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_368/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710780383/39-125865465f714f1e9ff0)
+![ Photo: Tanja Heino / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_368/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1710780383/39-125865465f714f1e9ff0)
 
 There are many Russian people living in Finland. The security police say that these people are not a threat to Finland's security.
 
@@ -30,7 +30,7 @@ The Protection Police estimates that if the Russian regime collapses, a large nu
 
 ## Terrorism
 
-![ Photo: Maksim Blinov / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_4461,w_7932,x_0,y_875/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1711133748/39-126164565fdd3e220116)
+![ Photo: Maksim Blinov / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_4461,w_7932,x_0,y_875/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1711133748/39-126164565fdd3e220116)
 
 The threat of terrorism in Finland is at the same level as before.
 
@@ -45,3 +45,4 @@ The topic of the news week was Finland's security. Let's repeat the most importa
 The security police say that Finland's biggest threat is Russia. Russia is spying in Finland and will send more asylum seekers to the Finnish border in the future. The risk of a terrorist attack is no greater in Finland than before.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

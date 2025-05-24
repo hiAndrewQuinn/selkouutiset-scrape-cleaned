@@ -79,3 +79,4 @@ This time, Uutisviikko reported on the most popular Christmas dishes in Finland.
 The most popular Christmas food is ham and its boxes. Cold fish dishes are also very popular Christmas food.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

@@ -48,7 +48,7 @@ It also happened to **Susan Cheptepkeny** and **Ruth Chemutai**. They cleaned an
 
 Kenyan students got into trouble in Finland.
 
-Yle made a program about students a year ago. After that, many Finns helped the students.![One of the helpers was the musician Paula Vesala](https://areena.yle.fi/1-66871383).
+Yle made a program about students a year ago. After that, many Finns helped the students. [One of the helpers was the musician Paula Vesala](https://areena.yle.fi/1-66871383).
 
 Now Susan and Ruth work in the care industry. My dream is to study to become a nurse.
 
@@ -65,3 +65,4 @@ It's raining in the north. It's 3-15 degrees warm.
 In the west, it rains and thunders sometimes. The wind is strong in the west.
 
 It is sunny and warm in the east. The temperature is almost 20 degrees in the east.
+

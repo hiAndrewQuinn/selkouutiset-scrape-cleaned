@@ -37,3 +37,4 @@ In October, Finland will play against Ireland and England in Helsinki.
 Another weather forecast.
 
 On Thursday, the weather will be rainy. It can rain all over the country. However, the rains are weak. In the east, there is mostly snow. The temperature is 15-20 degrees. In sunny areas, the temperature can be over 20 degrees.
+

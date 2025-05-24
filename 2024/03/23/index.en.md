@@ -10,7 +10,7 @@ Uutisviikko is now talking about hepatitis and its infections.
 
 ## Increase in hepatitis infections
 
-![One reason for the increase in infections may be meat sausage that has been infected with the hepatitis virus. Photo: Rami Moilanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2653,w_4722,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710411708/39-125753965f2cd3be2140)
+![One reason for the increase in infections may be meat sausage that has been infected with the hepatitis virus. Photo: Rami Moilanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2653,w_4722,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1710411708/39-125753965f2cd3be2140)
 
 In Finland, more hepatitis E infections have been detected this year than usual. There have been infections in different parts of Finland.
 
@@ -32,7 +32,7 @@ Symptoms of hepatitis infection usually appear about 40 days after infection.
 
 ## Hepatitis found in meat sausages
 
-![Meetwurst is being studied in the laboratory. Photo: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_814/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710511303/39-125826365f451bdb7786)
+![Meetwurst is being studied in the laboratory. Photo: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_814/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1710511303/39-125826365f451bdb7786)
 
 The Institute of Health and Welfare, or THL, is investigating the increase in hepatitis infections in Finland.
 
@@ -47,3 +47,4 @@ The topic of the news week was hepatitis infections. Hepatitis infections have i
 THL investigates why hepatitis has increased. For example, hepatitis virus has been found in some meat sausages.
 
 Hepatitis is a liver disease. Hepatitis can be spread through food if the food is not cooked hot.
+

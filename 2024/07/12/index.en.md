@@ -51,3 +51,4 @@ Finally, the weather forecast.
 On Saturday, the weather will be mostly clear. It can rain in the central parts of the country, elsewhere it is sunny.
 
 Saturday is the warmest day of the week. The temperature is 20 to 27 degrees, in Lapland the temperature is below 20 degrees.
+

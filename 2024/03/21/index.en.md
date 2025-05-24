@@ -67,3 +67,4 @@ A rain zone arrives from the west.
 In many places it rains, sleet or snow.
 
 The temperature is between -4 and +3 degrees.
+

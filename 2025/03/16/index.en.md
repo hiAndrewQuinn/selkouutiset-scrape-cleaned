@@ -56,6 +56,7 @@ We all use municipal services, such as schools, libraries and public transport.
 
 Many foreigners are also allowed to vote in municipal elections.
 
-Regional elections will be held at the same time as the municipal elections.![We reported on them in more detail in Uutisviiko yesterday.](https://yle.fi/a/74-20145950)
+Regional elections will be held at the same time as the municipal elections. [We reported on them in more detail in Uutisviiko yesterday.](https://yle.fi/a/74-20145950)
 
 See you next week.
+

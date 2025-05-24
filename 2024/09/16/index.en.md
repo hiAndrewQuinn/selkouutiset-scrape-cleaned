@@ -56,7 +56,7 @@ Baseball team Sotkamon Jymy won the Superpesis championship on Saturday.
 
 Jymy from Sotkamo has already won the Finnish baseball championship 21 times
 
-(On Sunday, September 15, the Utisviikko Selkosuomi program told a lot about Finnish baseball. You can listen to and read the program in the![Selkouutisten archive](https://yle.fi/selkouutiset/kaikki-lahetykset). )
+(On Sunday, September 15, the Utisviikko Selkosuomi program told a lot about Finnish baseball. You can listen to and read the program in the [Selkouutisten archive](https://yle.fi/selkouutiset/kaikki-lahetykset). )
 
 ## Weather
 
@@ -65,3 +65,4 @@ Another weather forecast.
 On Tuesday, the weather will continue to be dusty in a large part of the country.
 
 There will be showers in the central part of the country.
+

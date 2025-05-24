@@ -4,7 +4,7 @@ New strikes. Digital health services. Fishing Act. Greeting. Weather.
 
 ### New strikes
 
-![Liquid refinery in Porvoo. Photo: Kristiina Lehto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1681,w_2993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702300320/39-12138016576fb51b07a7)
+![Liquid refinery in Porvoo. Photo: Kristiina Lehto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1681,w_2993,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702300320/39-12138016576fb51b07a7)
 
 Employee organizations continue political strikes against the government.
 
@@ -18,7 +18,7 @@ The unions oppose the government's labor market reforms and social security cuts
 
 ### Digital health services
 
-![At the digital clinic, the patient is in contact with the doctor or nurse via chat, for example. Photo: Marjo Pirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_322/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1604918011/39-7397865fa91a1814b97)
+![At the digital clinic, the patient is in contact with the doctor or nurse via chat, for example. Photo: Marjo Pirilä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_322/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1604918011/39-7397865fa91a1814b97)
 
 Digital transactions in health services are becoming more common.
 
@@ -30,7 +30,7 @@ In digital health services, the customer communicates with a doctor or nurse via
 
 ### Fishing Act
 
-![Pike and pike catch from Leppävedi in Lauka last January Photo: Timo Hytönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_378/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674123240/39-106135163c9174eed3bc)
+![Pike and pike catch from Leppävedi in Lauka last January Photo: Timo Hytönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_378/ar_1.7777777777777777,c_fill, g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674123240/39-106135163c9174eed3bc)
 
 The fishing law changes at the turn of the year. The new law aims to reduce the suffering of prey fish.
 
@@ -38,7 +38,7 @@ According to the law, game fish or fish used as bait must be killed as quickly a
 
 ### Greeting
 
-![ Photo: Asmo Raimoaho / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_607,w_1080,x_0,y_927/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702994422/39-121794065819bf54efd4)
+![ Photo: Asmo Raimoaho / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_607,w_1080,x_0,y_927/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1702994422/39-121794065819bf54efd4)
 
 Finns greet a familiar person differently than a stranger.
 
@@ -50,7 +50,7 @@ There are also regional differences. For example, in Eastern Finland, Kainuu, th
 
 ### Friday's weather
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703768882/39-1221125658d730b8605a)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1703768882/39-1221125658d730b8605a)
 
 On Friday, it will mainly rain in the central and northern parts of the country. It is cloudy in the south and it may snow a little.
 

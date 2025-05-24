@@ -38,7 +38,7 @@ Coldplay is in Finland for the first time.
 
 The members of the group say that they have also had time to swim and take a sauna here.
 
-The program![**Uutisviikko in clear Finnish**](https://yle.fi/a/74-20101776) tells more about Coldplay.
+The program [**Uutisviikko in clear Finnish**](https://yle.fi/a/74-20101776) tells more about Coldplay.
 
 The program can be found at yle.fi/selkouutiset.
 
@@ -63,3 +63,4 @@ Another weather forecast.
 On Tuesday, the weather will be rainy. It is raining in Lapland and the central part of the country, there may also be showers elsewhere.
 
 The temperatures are cooler than before. The temperature is below 20 degrees, in the southwest the temperature can be above 20 degrees.
+

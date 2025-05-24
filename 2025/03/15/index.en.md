@@ -55,3 +55,4 @@ They decide, for example, on health centers and elderly care in their own area.
 Many foreigners are also allowed to vote in regional elections.
 
 Tomorrow, Uutisviikko will report on the municipal elections. Stay tuned!
+

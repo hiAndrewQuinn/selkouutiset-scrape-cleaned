@@ -61,3 +61,4 @@ The sun shines in the south. The temperature is around 10 degrees.
 The temperature is above 5 degrees in a large part of the country.
 
 It is snowing in Lapland. 5-10 centimeters of snow will accumulate. In Lapland, the temperature is close to zero.
+

@@ -6,7 +6,7 @@ This time the topic of the News Week is that Denmark has a new king. Denmark and
 
 ## King Frederik
 
-![Danish royal couple Frederik and Mary. Photo: Bo Amstrup / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3015,w_5359,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705244966/39-122767165a3f5eb69db1)
+![Danish royal couple Frederik and Mary. Photo: Bo Amstrup / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_3015,w_5359,x_0,y_325/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1705244966/39-122767165a3f5eb69db1)
 
 The Danes have a new king. He is Frederik X.
 
@@ -18,7 +18,7 @@ The royal family is very popular in Denmark. The king has no power, but he is an
 
 ## Queen Margaret
 
-![Margaree of Denmark visiting Finland in 2017. The Queen in the middle of the Finnish presidential couple. Photo: All over press/ Timo Korhonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3130,w_5568,x_0,y_426/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705250801/14-svyle-342743592fc74029ed3)
+![Margaree of Denmark visiting Finland in 2017. The Queen in the middle of the Finnish presidential couple. Photo: All over press/ Timo Korhonen](https://images.cdn.yle.fi/image/upload/c_crop,h_3130,w_5568,x_0,y_426/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1705250801/14-svyle-342743592fc74029ed3)
 
 Frederik became king because Queen Margaret II abdicated. 83-year-old Margareeta is the previous ruler of Denmark and Frederik's mother.
 
@@ -30,7 +30,7 @@ Margareeta also said that Finland and the other Nordic countries are one family.
 
 ## The Nordic countries
 
-![Flags of all the Nordic countries, i.e. Iceland, Norway, Denmark, Sweden and Finland. Photo: Mostphotos](https://images.cdn.yle.fi/image/upload/c_crop,h_2052,w_3648,x_0,y_604/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705251223/39-6746475ebba7c6ca01f)
+![Flags of all the Nordic countries, i.e. Iceland, Norway, Denmark, Sweden and Finland. Photo: Mostphotos](https://images.cdn.yle.fi/image/upload/c_crop,h_2052,w_3648,x_0,y_604/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1705251223/39-6746475ebba7c6ca01f)
 
 Danish royals are of interest to many Finns because Denmark is a familiar country. Danes have a very similar culture and similar values to Finns.
 
@@ -49,3 +49,4 @@ The ruler changed because Queen Margaret abdicated.
 Denmark is a familiar country to many Finns, because Finland and Denmark are both Nordic countries.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

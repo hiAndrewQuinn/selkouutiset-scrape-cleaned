@@ -47,3 +47,4 @@ Yle channels will no longer be shown on all televisions. Other channels will sti
 Still a weather forecast.
 
 The weather is blustery in most of Finland. There is little rain in Lapland. The temperature can be up to +17 degrees. In the north the temperature is +1\...+10 degrees.
+

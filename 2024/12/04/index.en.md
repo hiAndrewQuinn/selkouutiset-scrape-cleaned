@@ -49,3 +49,4 @@ Cloudiness is increasing. There will be snow showers on the south coast and in s
 In most of the country, the weather is cloudy, i.e. without rain.
 
 The temperature is on the freezing side almost throughout the country.
+

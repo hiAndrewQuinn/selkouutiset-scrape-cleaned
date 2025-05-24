@@ -45,3 +45,4 @@ You have to be careful on the ice now. The ice may look thick, but a person can 
 Still a weather forecast.
 
 The weather is cold in the south. The temperature is only slightly above zero. In the rest of the country, the temperature is around 0 degrees. It can snow a little sometimes.
+

@@ -37,3 +37,4 @@ There are ticks in a larger area in Finland than before. Only in the very north 
 Another weather forecast.
 
 In Finland, the weather is dusty and the sun is shining. The weather is hot, that is, really warm. The temperature is 20-30 degrees. In Lapland, the temperature can be below 20 degrees.
+

@@ -72,6 +72,7 @@ Many things will become more expensive and many subsidies will decrease this yea
 
 In Part 1, we talked about, for example, the increase in the price of medicines and books due to taxation and changes in the granting of asylum.
 
-You can listen to part 1 and all other news weeks on Yle Areena or on the![Selkouutisten website](https://yle.fi/a/74-20134925).
+You can listen to part 1 and all other news weeks on Yle Areena or on the [Selkouutisten website](https://yle.fi/a/74-20134925).
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

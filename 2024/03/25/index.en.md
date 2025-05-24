@@ -45,3 +45,4 @@ The unions are on strike because they oppose the government's reforms that affec
 ## Weather
 
 Another weather forecast. Almost all of Finland has pouta. The temperature is between -4 and +4 degrees. It can be colder in Lapland.
+

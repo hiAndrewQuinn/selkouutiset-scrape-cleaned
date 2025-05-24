@@ -73,3 +73,4 @@ On Tuesday, it will rain in the east and south. It will snow in Eastern Lapland.
 Elsewhere in the country, it doesn't rain and the sun can shine.
 
 The temperature is between +1 and +5 degrees throughout the country.
+

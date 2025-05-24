@@ -43,3 +43,4 @@ Neil Hardwick has written a book. He says that good humor often has sadness in i
 Still a weather forecast.
 
 The weather is blustery. The sun is shining in the central parts of the country. There are clouds in the sky in the south. The temperature is between +10 and +18 degrees. It is cooler in Northern Lapland.
+

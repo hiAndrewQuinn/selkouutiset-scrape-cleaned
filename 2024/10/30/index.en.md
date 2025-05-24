@@ -39,3 +39,4 @@ Comics have changed a lot, says comic artist Hanneriina Moisseinen:
 Another weather forecast.
 
 There may be some rain on the west coast on Thursday afternoon. On the eastern border, it might rain a little bit. In the rest of the country, it's raining, that is, it's not raining. In the north, the sun is shining and the temperature is on the freezing side.
+

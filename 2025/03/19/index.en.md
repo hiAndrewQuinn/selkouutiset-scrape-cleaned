@@ -59,3 +59,4 @@ It is raining or snowing in Central Finland. The snowfall can be heavy.
 It's freezing in the north.
 
 In the south, the temperature can be up to +8 degrees.
+

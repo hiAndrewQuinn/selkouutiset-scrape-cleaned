@@ -63,3 +63,4 @@ There are no major changes in the weather.
 The weather is still very cold and clear in many places.
 
 There are light snow showers in North Ostrobothnia and Northeast Finland.
+

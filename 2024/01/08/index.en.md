@@ -55,3 +55,4 @@ The roads can be very slippery soon. Frozen water pipes can break when the ice e
 Another weather forecast. It snows a little in Lapland. It also rains a little snow or sleet in the east.
 
 The temperature is on the positive side. It is 10 degrees below zero in Eastern Lapland.
+

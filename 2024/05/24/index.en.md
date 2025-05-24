@@ -41,3 +41,4 @@ Sweden and the Czech Republic, as well as Canada and Switzerland, will play in t
 Another weather forecast.
 
 There will be showers and thunderstorms in the south, which can be strong. In the rest of Finland, the weather is dusty and sunny.
+

@@ -65,3 +65,4 @@ The whole country is cloudy, meaning it doesn't rain.
 The day is warm: the temperature is over 20 degrees in most of Finland.
 
 It is hot in the south and east, i.e. more than 25 degrees.
+

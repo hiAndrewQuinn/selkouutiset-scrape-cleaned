@@ -10,7 +10,7 @@ The hacker has taken the information of more than 100,000 people. That's why a d
 
 We will now tell you more about the data breach in Helsinki.
 
-![A lot of people's information was taken in the data breach. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3729,w_6644,x_0,y_693/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1715778603/39-12856206644b083ba1b4)
+![A lot of people's information was taken in the data breach. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3729,w_6644,x_0,y_693/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1715778603/39-12856206644b083ba1b4)
 
 ## Sensitive information
 
@@ -30,7 +30,7 @@ For example, the remote management server of the city of Helsinki was missing an
 
 ## Police investigation
 
-![The intruder got into the information network of the city of Helsinki via a remote management server. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3361,w_5987,x_0,y_625/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709191377/39-124939765dc70bf04aa4)
+![The intruder got into the information network of the city of Helsinki via a remote management server. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3361,w_5987,x_0,y_625/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1709191377/39-124939765dc70bf04aa4)
 
 The police have started investigating the data breach in Helsinki. The title of the investigation is gross data breach. It is not yet known exactly what data the intruder took.
 
@@ -47,3 +47,4 @@ The hacker took the data of about 120,000 people from the information network of
 So far, information has not been distributed, for example, on the internet, and people have not been blackmailed with information.
 
 The police are investigating the data breach in Helsinki.
+

@@ -63,3 +63,4 @@ In some places, it may also snow in other parts of the country.
 Snowfall can make driving a car dangerous.
 
 It's freezing in the whole country from zero to ten degrees.
+

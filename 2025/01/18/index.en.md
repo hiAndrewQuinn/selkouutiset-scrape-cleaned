@@ -8,7 +8,7 @@ We will now tell you more about last year's best athletes. We will also tell you
 
 ## Athlete of the Year Alexander Barkov
 
-![Photo: Sam Navarro-USA TODAY Sports](https://images.cdn.yle.fi/image/upload/c_crop,h_2949,w_5244,x_0,y_132/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1719387325/39-1308359667a875c0c5c6)
+![Photo: Sam Navarro-USA TODAY Sports](https://images.cdn.yle.fi/image/upload/c_crop,h_2949,w_5244,x_0,y_132/ar_1.7777777777777777 ,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1719387325/39-1308359667a875c0c5c6)
 
 Ice hockey player Aleksander Barkov is Finland's Athlete of the Year 2024. The selection was made by sports journalists. The selection was announced at the Sports Gala on Thursday. Barkov is the first ice hockey player to be selected as Finland's Athlete of the Year.
 
@@ -16,7 +16,7 @@ Alexander Barkov plays ice hockey in the NHL in North America. Barkov's team, th
 
 ## Other awards
 
-![Picture: EPA-EFE/AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1692,w_3008,x_0,y_103/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1732162185/39-1383274673eb26c52932)
+![Picture: EPA-EFE/AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1692,w_3008,x_0,y_103/ar_1.7777777777777 777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1732162185/39-1383274673eb26c52932)
 
 Many other awards were also presented at the sports gala. People said the greatest sporting moment of the year was when Alexander Barkov lifted the Stanley Cup.
 
@@ -26,7 +26,7 @@ The Coach of the Year is Tuomas Iisalo. Iisalo coached the Parisian basketball t
 
 ## Major sporting events of 2025
 
-![Photo: Petri Julkunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_607/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722240442/39-132468466a74d2b81bcf)
+![Photo: Petri Julkunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2267,w_4031,x_0,y_607/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722240442/39-132468466a74d2b81bcf)
 
 Many big sports competitions will be held again this year.
 
@@ -43,3 +43,4 @@ The topic of the news week was the Sports Gala. Let's recap the most important t
 Ice hockey player Alexander Barkov was chosen as the best athlete in Finland last year. The team of the year is the youth national football team. The Coach of the Year award went to basketball coach Tuomas Iisalo.
 
 This year, for example, the World Ski Championships will be held in Norway and the World Athletics Championships in Japan.
+

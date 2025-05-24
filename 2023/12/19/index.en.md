@@ -4,7 +4,7 @@ Iceland volcano. Economic forecasts. Nuclear power. Population of Finland. Weath
 
 ### Iceland's volcano
 
-![A volcano erupts in Iceland. Photo: Kristinn Magnusson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1395,w_2480,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702985177/39-121778965817d7552de6)
+![A volcano erupts in Iceland. Photo: Kristinn Magnusson / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1395,w_2480,x_0,y_258/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702985177/39-121778965817d7552de6)
 
 A volcano erupts in Iceland.
 
@@ -18,7 +18,7 @@ The volcano erupts in Iceland for maybe up to 3 weeks.
 
 ### Economic forecasts
 
-![The Bank of Finland's financial forecast is gloomy. Illustration image. Photo: Seppo Ahava / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_265/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1620756706/39-805272609ac85c66a4e)
+![The Bank of Finland's financial forecast is gloomy. Illustration image. Photo: Seppo Ahava / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_265/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1620756706/39-805272609ac85c66a4e)
 
 The Bank of Finland has made a forecast on the development of the Finnish economy. The prognosis is pretty grim.
 
@@ -28,7 +28,7 @@ The Ministry of Finance has also made a forecast for the Finnish economy. The mi
 
 ### Nuclear power
 
-![Nuclear power production increased between January and September. Pictured is the Loviisa nuclear power plant. Photo: Milena Hackman / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2223,w_3952,x_0,y_1998/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1680247056/39-1092850642687d0260a7)
+![Nuclear power production increased between January and September. Pictured is the Loviisa nuclear power plant. Photo: Milena Hackman / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2223,w_3952,x_0,y_1998/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1680247056/39-1092850642687d0260a7)
 
 More nuclear power is produced in Finland than before.
 
@@ -40,7 +40,7 @@ A total of 6 percent less electricity was consumed in Finland than in 2022.
 
 ### Population of Finland
 
-![The population of Finland grew. The picture shows the inner city of Helsinki. Photo: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_141/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1584710360/39-4763715ac7277fd476a)
+![The population of Finland grew. The picture shows the inner city of Helsinki. Photo: Tiina Jutila / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_141/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1584710360/39-4763715ac7277fd476a)
 
 More people live in Finland now than before.
 
@@ -50,7 +50,7 @@ The increase in Finland's population is due to the fact that more people move to
 
 ### Weather
 
-![ Photo: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702991489/39-1217895658196636bffe)
+![ Photo: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1702991489/39-1217895658196636bffe)
 
 Another weather forecast.
 

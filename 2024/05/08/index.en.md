@@ -69,3 +69,4 @@ Tomorrow afternoon, the whole country will be cloudy, that is, it won't rain.
 It's cloudy in the west, and sunny in the east.
 
 The temperature is around 10 degrees in the south. The rest of the country is colder.
+

@@ -6,7 +6,7 @@ The topic of the news week is September's exceptional weather. Now we will tell 
 
 ## Warm September
 
-![The rowan trees are blooming and the weather has been exceptionally warm in September. Photo: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_213/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1726979741/39-135221566ef9e4517d0a)
+![The rowan trees are blooming and the weather has been exceptionally warm in September. Photo: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_0,y_213/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1726979741/39-135221566ef9e4517d0a)
 
 Early autumn has been record warm. The average temperatures in September have been 4 to 6 degrees higher than normal.
 
@@ -18,7 +18,7 @@ The light limit is 25 degrees.
 
 ## Heat affects animals
 
-![Bears need a lot of food for hibernation. An autumn that is too warm can hinder the acquisition of energy. Photo: Mykola Tys / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3379,w_6008,x_8,y_246/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724222852/39-133609266c58c4f33095)
+![Bears need a lot of food for hibernation. An autumn that is too warm can hinder the acquisition of energy. Photo: Mykola Tys / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3379,w_6008,x_8,y_246/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1724222852/39-133609266c58c4f33095)
 
 Many animals have suffered from the record heat.
 
@@ -34,7 +34,7 @@ Insects also suffer from excessively warm weather. That's why there are fewer in
 
 ## Warm sea
 
-![The sea has been warmer in September than in many summers. Photo: Mikael Holm](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_3996,x_0,y_468/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1721845502/39-132288666a1466a79e78)
+![The sea has been warmer in September than in many summers. Photo: Mikael Holm](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_3996,x_0,y_468/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto: eco/f_auto/fl_lossy/v1721845502/39-132288666a1466a79e78)
 
 The sea water has been record warm even in September.
 
@@ -44,7 +44,7 @@ The water along the entire coast of Finland has also been very warm even in autu
 
 ## The autumns have warmed up
 
-![In September, it's been a while at the beach. Photo: Kristiina Lehto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1725960081/39-134627166e00d2ca3b1d)
+![In September, it's been a while at the beach. Photo: Kristiina Lehto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1725960081/39-134627166e00d2ca3b1d)
 
 September was record warm last year as well. For example, in Kaisaniemi, Helsinki, September of 2023 was the warmest in the station's measurement history.
 
@@ -61,3 +61,4 @@ The sea temperature in the Gulf of Finland and the Red Sea has been more than 5 
 For many animals, the heat has caused problems.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

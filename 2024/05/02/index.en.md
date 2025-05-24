@@ -55,3 +55,4 @@ Another weather forecast.
 It rains a little in the north and east. Elsewhere, it's cloudy, meaning it's not raining.
 
 Cloudiness is variable in the south and west, the sun can also shine a little. The temperature is between +4 and +17 degrees.
+

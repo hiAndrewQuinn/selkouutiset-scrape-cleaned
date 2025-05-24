@@ -67,3 +67,4 @@ On Saturday, there will be a few degrees above zero in the southern and central 
 It's freezing in the north. It's snowing in the central part of the country.
 
 *Correction 14.3. at 17.08: There is a name error in the Selkuutinen video in the Oikeudenkäynti news item. The person's real name is Janne Puhakka, not Joona Puhakka.*
+

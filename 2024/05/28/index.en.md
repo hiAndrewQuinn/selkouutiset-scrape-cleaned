@@ -57,3 +57,4 @@ There will also be thunderstorms in the southern part of the country.
 The sun is shining in many places.
 
 The temperature is 25-30 degrees. It is cooler in Northern Lapland.
+

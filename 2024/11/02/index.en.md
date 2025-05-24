@@ -12,7 +12,7 @@ All Saints Day is an important church holiday in Finland. On All Saints' Day, we
 
 We will now tell you more about All Saints' Day and its history.
 
-![Candles bring light against darkness. Photo: Pekka Tynell / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1667663510/39-103007363668673a6663)
+![Candles bring light against darkness. Photo: Pekka Tynell / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1667663510/39-103007363668673a6663)
 
 ## Time of Saint's Day
 
@@ -40,7 +40,7 @@ The cake also included abundant food and drink and remembering the dead.
 
 On All Saints' Day, many homes eat a better meal than on weekdays.
 
-![The pumpkin lantern is often a decoration for Halloween parties. Photo: Yle / Niina Mattus](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1446024009/17-366635630932ce9fd0)
+![The pumpkin lantern is often a decoration for Halloween parties. Photo: Yle / Niina Mattus](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1446024009/17-366635630932ce9fd0)
 
 ## Halloween
 
@@ -61,3 +61,4 @@ All Saints' Day is a day of remembrance when the dead and saints are honored. Ca
 All Saints' Day is usually the first Saturday in November.
 
 This was news week in plain Finnish, see you again. Goodbye!
+

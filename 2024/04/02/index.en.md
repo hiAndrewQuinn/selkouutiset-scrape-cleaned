@@ -67,3 +67,4 @@ During the day, it is still snowing in the east, in the west and north it is clo
 The weather is getting colder.
 
 The driving weather becomes bad or very bad at night in the south.
+

@@ -36,7 +36,7 @@ For example, it is always good to have a small stock of money, food and medicine
 
 The new guidebook for disruption situations is also available on the internet in easy Finnish.
 
-(![When you click this link, you can read the book](https://cdn.verkkopalvelu.suomi.fi/files/varautunut-parjaa-paremmin_SM_selkosuomi-8df88446129fb865a454e8863b0e97bf.pdf).)
+([When you click this link, you can read the book](https://cdn.verkkopalvelu.suomi.fi/files/varautunut-parjaa-paremmin_SM_selkosuomi-8df88446129fb865a454e8863b0e97bf.pdf).)
 
 ## Churches
 
@@ -57,3 +57,4 @@ Many famous architects have designed churches in Finland. That is why they are i
 Another weather forecast. It will snow a lot in the southern and central part of the country on Wednesday.
 
 The wind is strong and the driving weather is really bad. It doesn't rain in the north.
+

@@ -43,3 +43,4 @@ The first presidential couple started many traditions that have been followed by
 Alexander Stubb is the new president of Finland. Finns are interested in how the new presidential couple will handle the task.
 
 Alexander Stubb and Suzanne Innes-Stubb have discussed the task with the previous presidential couple, Sauli Niinistö and Jenni Haukio.
+

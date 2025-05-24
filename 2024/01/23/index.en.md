@@ -65,3 +65,4 @@ Another weather forecast.
 Wet snow is falling in the southern part of the country. Elsewhere it's dusty. The sun is shining in Lapland.
 
 The temperature is freezing in the northern part of the country. In the southern and central parts of the country, the temperature is close to zero.
+

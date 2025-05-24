@@ -65,3 +65,4 @@ Still a weather forecast.
 The weather will be warm on Thursday. Temperatures will be above zero throughout Finland.
 
 In some places the temperature may rise to +6 degrees. The day will also be sunny.
+

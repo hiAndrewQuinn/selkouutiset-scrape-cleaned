@@ -12,7 +12,7 @@ Power outages cause problems for companies and people.
 
 Russia's purpose is to make life difficult for Ukrainians. We will now tell you more about the situation of energy supply in Ukraine.
 
-![Gas pipes and oil pipes are part of the energy network. Image: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_181/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1655307092/39-97074262a9faec96560)
+![Gas pipes and oil pipes are part of the energy network. Image: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_181/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1655307092/39-97074262a9faec96560)
 
 ## The attacks are increasing
 
@@ -32,7 +32,7 @@ Over the course of 3 months, the Russian attacks have paralyzed about half of Uk
 
 Power outages cause a lot of inconvenience and damage to companies. For example, the operation of food factories becomes more difficult and transportation becomes more difficult. Therefore, Ukraine may experience food shortages, fuel shortages and heating problems as winter approaches.
 
-![Russia has attacked, for example, power plants. Photo: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3431,w_6100,x_0,y_49/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717506690/39-1296931665f0e5abc6d8)
+![Russia has attacked, for example, power plants. Photo: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3431,w_6100,x_0,y_49/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1717506690/39-1296931665f0e5abc6d8)
 
 ## Protecting the energy network
 
@@ -53,3 +53,4 @@ Russia has increased attacks on Ukraine's energy grid since spring. Russia has a
 Ukraine's power generation capacity has dropped to half of normal.
 
 Russia's purpose is to make life difficult for Ukrainians, especially in winter. Ukraine needs a lot of help from the West.
+

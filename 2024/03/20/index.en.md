@@ -71,3 +71,4 @@ Rain is spreading to Finland from the west.
 Rain or snow will fall in the south and east during the day.
 
 In Lapland, the weather is cloudy, i.e. without rain.
+

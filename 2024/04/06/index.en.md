@@ -4,7 +4,7 @@ The topic of the news week this time is a school shooting. There was a school sh
 
 ## School shooting in Vantaa
 
-![The police were quickly on the scene when there was a shooting at the school in Vantaa. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3337,w_5934,x_0,y_257/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712117697/39-1265310660c05591cf34)
+![The police were quickly on the scene when there was a shooting at the school in Vantaa. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3337,w_5934,x_0,y_257/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1712117697/39-1265310660c05591cf34)
 
 The school shooting happened at Viertola school in Vantaa. The school's 12-year-old student came to school with a gun on Tuesday.
 
@@ -16,7 +16,7 @@ The shooter will not be punished because he is a child under the age of 15.
 
 ## Previous school shootings
 
-![9 people died in the shooting at the Jokela school center in 2007.](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1509987633/39-4410625a009517d03c2)
+![9 people died in the shooting at the Jokela school center in 2007.](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767 /dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1509987633/39-4410625a009517d03c2)
 
 There have been serious school shootings in Finland before. There are sad cases that Finns don't forget.
 
@@ -30,7 +30,7 @@ In these cases, the shooters were older than the 12-year-old shooter in Vantaa. 
 
 ## Preventing school shootings
 
-![Police investigate and prevent school shootings. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712053740/39-1265141660bddb2383ad)
+![Police investigate and prevent school shootings. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1712053740/39-1265141660bddb2383ad)
 
 Police trying to prevent school shootings. The police are investigating threats made against schools, for example on social media.
 
@@ -51,3 +51,4 @@ The police do a lot of work to prevent school shootings.
 Some schools also practice what to do in dangerous situations.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

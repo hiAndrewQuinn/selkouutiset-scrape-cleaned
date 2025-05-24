@@ -65,3 +65,4 @@ Still a weather forecast.
 The weather will become cooler and cloudier. Cloudiness will vary in the west and south.
 
 There is little snow in Central and Northern Lapland.
+

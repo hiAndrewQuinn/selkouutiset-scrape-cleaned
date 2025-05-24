@@ -47,3 +47,4 @@ The Paralympics continue until Sunday.
 Another weather forecast.
 
 The weather is sunny. The temperature is exceptionally high. In the south, the temperature is around 25 degrees. It's about 20 degrees warm in the north. The wind is weak to moderate.
+

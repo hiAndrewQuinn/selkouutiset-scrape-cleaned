@@ -14,7 +14,7 @@ We will tell you more about it next.
 
 ## Smaller subsidies
 
-![Kela pays people, for example, housing allowance. Many people's housing allowance will decrease. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2938,w_5224,x_0,y_1660/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706098006/39-1203566655b666174517)
+![Kela pays people, for example, housing allowance. Many people's housing allowance will decrease. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2938,w_5224,x_0,y_1660/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1706098006/39-1203566655b666174517)
 
 The government decided in the negotiations at the beginning of the week to reduce Finland's government spending.
 
@@ -38,7 +38,7 @@ Vocational schools, for example, also receive less money than before.
 
 ## Taxes will be increased
 
-![For example, the price of clothes may go up a little when the value added tax goes up. Photo: Antti Kolppo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3160,w_5618,x_0,y_518/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706102868/39-123244365b0faa044c0e)
+![For example, the price of clothes may go up a little when the value added tax goes up. Photo: Antti Kolppo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3160,w_5618,x_0,y_518/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1706102868/39-123244365b0faa044c0e)
 
 The government also wants the state to get more income. That's why the government increases taxes on pensions a little.
 
@@ -65,3 +65,4 @@ The government also wants more income for the state. That's why the government r
 The government says that without savings, Finland will take on too much debt.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

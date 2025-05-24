@@ -67,3 +67,4 @@ In particular, taxation of labor and companies will be reduced. The aim is to su
 The changes to taxation are significant. They will be financed through savings and increases in some taxes.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

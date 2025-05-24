@@ -6,7 +6,7 @@ Schools started this week almost all over Finland. Now we will tell you what new
 
 ## Weaker competence
 
-![Children's skills at school are weaker than before. Photo: Jyrki Lyytikkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1678718563/39-1084501640f336c9685e)
+![Children's skills at school are weaker than before. Photo: Jyrki Lyytikkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1678718563/39-1084501640f336c9685e)
 
 When schools start, children's skills are in the news a lot.
 
@@ -18,7 +18,7 @@ Politicians and many researchers say that's a cause for concern. No one knows ex
 
 ## Telephones
 
-![Some people think that the phone is the cause of problems in schools. Photo: Benjamin Suomela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_34/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1653657152/39-88458161a0a8f758da1)
+![Some people think that the phone is the cause of problems in schools. Photo: Benjamin Suomela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_34/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1653657152/39-88458161a0a8f758da1)
 
 Schools started this week. Many suspect that smartphones are one of the reasons for children's weaker skills.
 
@@ -42,7 +42,7 @@ According to the Minister of Education, it can also be good for children not to 
 
 ## Fewer children
 
-![The number of such small schools is decreasing. Photo: Harri Oksanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_605/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1716363062/39-1289107664d9e508b5bc)
+![The number of such small schools is decreasing. Photo: Harri Oksanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_605/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1716363062/39-1289107664d9e508b5bc)
 
 Schools have started. Only 54,000 children went to first grade this fall. It's less than ever before.
 
@@ -61,3 +61,4 @@ Many people think that the reason is the phones.
 The number of schoolchildren in Finland has decreased a lot.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

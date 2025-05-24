@@ -73,3 +73,4 @@ On Thursday, a snow area will move over Finland and the weather will be windy.
 In the afternoon, the weather will improve from the west.
 
 The temperature is between +2 and -3 degrees.
+

@@ -4,7 +4,7 @@ Russian interference. Independence Day demonstrations. Kalevi Jänti award. Sea 
 
 ### Russian interference
 
-![The flag of Finland in Salo among the flags of other NATO countries in front of the NATO headquarters in Brussels. Illustration image. Photo: Dursun Aydemir/STELLA Pictures/ddp/abaca press](https://images.cdn.yle.fi/image/upload/c_crop,h_2923,w_5197,x_0,y_153/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692367911/39-115900664df7b7fc3740)
+![The flag of Finland in Salo among the flags of other NATO countries in front of the NATO headquarters in Brussels. Illustration image. Photo: Dursun Aydemir/STELLA Pictures/ddp/abaca press](https://images.cdn.yle.fi/image/upload/c_crop,h_2923,w_5197,x_0,y_153/ar_1.7777777777777777,c_fill,g_faces,h_675, w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692367911/39-115900664df7b7fc3740)
 
 Russia intended to interfere with Finland and Sweden joining the military alliance NATO. This is what the secret Russian intelligence report, which Yle's MOT department has received, says.
 
@@ -14,7 +14,7 @@ Finland and Sweden applied for NATO membership in May 2022. Finland is now a NAT
 
 ### Independence Day demonstrations
 
-![The 612 procession marched in Helsinki on Independence Day 2022. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_291/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1670361144/39-1044585638faf5716c5d)
+![The 612 procession marched in Helsinki on Independence Day 2022. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_291/ar_1.7777777777777777,c_fill, g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1670361144/39-1044585638faf5716c5d)
 
 The police are preparing for the possibility of clashes at the Independence Day demonstrations.
 
@@ -24,7 +24,7 @@ Finland's Independence Day is the day after tomorrow, Wednesday.
 
 ### Kalevi Jänti's award
 
-![Author Aino Vähäpesola at the Helsinki Book Fair at Messukeskus in Helsinki on October 27, 2019. Photo: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_443/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701677630/39-1210219656d89fe47e11)
+![Author Aino Vähäpesola at the Helsinki Book Fair at Messukeskus in Helsinki on October 27, 2019. Photo: Heikki Saukkomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_443/ar_1. 7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701677630/39-1210219656d89fe47e11)
 
 Writers Niko Hallikainen and Aino Vähäpesola will receive the Kalevi Jänti Literature Prize this year.
 
@@ -36,7 +36,7 @@ The Kalevi Jänti literature award supports young writers. The prize is 20,000 e
 
 ### Sea ice
 
-![The sea ice is still thin. Illustration image. Photo: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700738752/39-1205434655f364057d38)
+![The sea ice is still thin. Illustration image. Photo: Jarkko Heikkinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1700738752/39-1205434655f364057d38)
 
 Sea ice is still weak in a large part of Finland. That's why it's not worth going on the ice yet. The sea ice is now thick only north of Oulu.
 
@@ -44,7 +44,7 @@ There is already ice in many places by the sea, but the ice is weak. Therefore, 
 
 ### Weather
 
-![ Photo: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701695113/39-1210551656dce72f300f)
+![ Photo: Elias Paakkanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1701695113/39-1210551656dce72f300f)
 
 The weather is cloudy. It's snowing a little in some places. Sometimes it snows a lot on the coast.
 

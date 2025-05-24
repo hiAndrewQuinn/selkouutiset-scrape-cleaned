@@ -51,3 +51,4 @@ The weather is still warm.
 Cloudiness varies and Friday will be breezy, meaning there will be no rain.
 
 The temperature will be above zero throughout the country tomorrow as well.
+

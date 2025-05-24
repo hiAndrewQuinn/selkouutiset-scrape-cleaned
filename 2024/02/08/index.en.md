@@ -41,3 +41,4 @@ Foreign people are interested in working remotely in Finnish Lapland. For exampl
 Another weather forecast.
 
 The whole country has pouta. The sun shines in the west and south. There are a lot of clouds in the sky in the east and north. In the north, the temperature is between -15 and -30 degrees. Further south, the temperature is between -12 and -20 degrees.
+

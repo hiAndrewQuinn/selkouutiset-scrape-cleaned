@@ -67,3 +67,4 @@ Another weather forecast.
 In the south, the weather is cloudy. Sometimes it rains. There is also fog in some parts of the country. The temperature is between 0 and +6 degrees.
 
 In the north, the weather is clear, i.e. there are no clouds. There is much more frost than today.
+

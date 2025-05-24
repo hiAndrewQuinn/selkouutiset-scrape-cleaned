@@ -63,3 +63,4 @@ In the central part of the country, there will be showers and thunderstorms in p
 The temperature is 20-27 degrees.
 
 The southerly wind is weak to moderate.
+

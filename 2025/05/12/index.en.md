@@ -57,3 +57,4 @@ It rains occasionally in some parts of the country. In the east, it doesn't rain
 The temperature is between 9 and 16 degrees.
 
 It is colder in the northernmost part of Finland.
+

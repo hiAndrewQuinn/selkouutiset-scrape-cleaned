@@ -6,19 +6,19 @@ Here is Uutisviikko in plain Finnish and Pertti Seppä. The topic of the news we
 
 ## Santa Claus and summer
 
-![Santa's pajakylä is also open in summer. Photo: Sari Pöyhönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_671/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722173560/39-132447966a6478973d84)
+![Santa's pajakylä is also open in summer. Photo: Sari Pöyhönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_671/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1722173560/39-132447966a6478973d84)
 
 Santa receives guests in Rovaniemi, Lapland. This is the case every day of the year, even in summer.
 
 During the summer, around 200 families or groups visit Santa every day. Sometimes there are 5 tourist buses at the same time, but sometimes it's quieter, says Veera Kunnari from Santa's chamber's customer service.
 
-![Veera Kunnari works for Santa Claus. Photo: Sari Pöyhönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_644/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722172714/39-132447366a6447ae38d6)
+![Veera Kunnari works for Santa Claus. Photo: Sari Pöyhönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_644/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1722172714/39-132447366a6447ae38d6)
 
 Kunnari says that Santa Claus also interests foreign tourists in the summer. The Christmas atmosphere in the middle of summer is exciting and a bit strange, but interesting.
 
 ## Santa and winter
 
-![In winter, Santa Claus's village is crowded. Photo: Jyri Tynkkynen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_556,w_986,x_34,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703853918/39-1221499658ebeff701b4)
+![In winter, Santa Claus's village is crowded. Photo: Jyri Tynkkynen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_556,w_986,x_34,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1703853918/39-1221499658ebeff701b4)
 
 More than 500,000 tourists visit Rovaniemi every year. Most of them come in winter.
 
@@ -30,7 +30,7 @@ Tourists have returned to Lapland after the corona period. Rovaniemi and other p
 
 ## Santa Claus and a famous guest
 
-![Eleanor Roosevelt. Photo: Wikimedia commons](https://images.cdn.yle.fi/image/upload/c_crop,h_529,w_940,x_0,y_235/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1531491201/39-4982495b48b359bfd6a)
+![Eleanor Roosevelt. Photo: Wikimedia commons](https://images.cdn.yle.fi/image/upload/c_crop,h_529,w_940,x_0,y_235/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto: eco/f_auto/fl_lossy/v1531491201/39-4982495b48b359bfd6a)
 
 Tourism started to develop in Rovaniemi shortly after the Second World War.
 
@@ -53,3 +53,4 @@ The Christmas atmosphere in the middle of summer is especially interesting to fo
 The first famous guest of Santa Claus was Eleanor Roosevelt, the wife of the former President of the USA. He met Santa Claus in 1950.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

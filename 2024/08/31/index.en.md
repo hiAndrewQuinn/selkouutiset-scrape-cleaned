@@ -10,7 +10,7 @@ Now we will tell you more about Finland's nature and nature conservation.
 
 ## Finnish nature day
 
-![Photo: Petri Niemi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1720418939/39-1315100668b8222776e9)
+![Photo: Petri Niemi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1720418939/39-1315100668b8222776e9)
 
 Today, Saturday, is Finland's nature day. Finland's Nature Day is flag-raising day, which means that the Finnish flag is hoisted. The purpose is to celebrate Finnish nature.
 
@@ -20,7 +20,7 @@ On Finland's Nature Day, for example, there are many different events in nationa
 
 ## Nature conservation
 
-![Photo: Rami Moilanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1701,w_3024,x_0,y_1344/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724830803/39-133941566cdc0366aa3a)
+![Photo: Rami Moilanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1701,w_3024,x_0,y_1344/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1724830803/39-133941566cdc0366aa3a)
 
 This week there was a lot of talk about nature conservation. About a week ago, it was revealed that a lot of rascals died in Kainuu. The raakus died when the forest company Stora Enso's forest machine ran over the raakus in Suomussalmi's Hukkajoki. Raakku is a sedated animal, because there are only few raakku in nature.
 
@@ -28,7 +28,7 @@ Once the animal is tranquilized, it must not be killed or harmed. The law says t
 
 ## National parks and nature parks
 
-![Photo: Pyry Sarkiola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2065,w_3672,x_0,y_274/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1723111564/39-132991266b496993584a)
+![Photo: Pyry Sarkiola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2065,w_3672,x_0,y_274/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1723111564/39-132991266b496993584a)
 
 Finnish nature is protected in national parks. National parks are owned by the Finnish state. Finland's first national parks were established in the late 1930s.
 
@@ -47,3 +47,4 @@ Today, Saturday, Finland's Nature Day is celebrated. Finland's Nature Day is fla
 Finnish nature is being protected in many ways. There are many nature parks and national parks in Finland, where animals must not be disturbed and plants must not be harmed.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

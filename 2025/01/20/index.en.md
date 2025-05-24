@@ -73,3 +73,4 @@ The sun shines in the east and north.
 It's freezing all over the country.
 
 In the east and north, the temperature can be 15 or even 30 degrees below zero.
+

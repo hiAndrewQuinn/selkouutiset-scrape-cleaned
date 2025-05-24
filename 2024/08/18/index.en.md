@@ -10,7 +10,7 @@ The situation worries many companies, because foreign experts are needed in Finl
 
 We will now tell you more about it.
 
-![Many foreign experts work in the gaming industry. Photo: Tekla Lilja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2761,w_4909,x_1,y_263/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1716903700/39-12926016655dcb5666f1)
+![Many foreign experts work in the gaming industry. Photo: Tekla Lilja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2761,w_4909,x_1,y_263/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1716903700/39-12926016655dcb5666f1)
 
 ## Finland's interestingness
 
@@ -32,7 +32,7 @@ More than 40 percent of skilled workers have experienced discrimination in Finla
 
 Another reason for experiencing discrimination is the feeling that foreign qualifications or work experience are not valued in Finland.
 
-![Sam Spilsbury works at the game company Supercell in Helsinki. He has come to Finland from Australia. Photo: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3268,w_5811,x_0,y_434/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1723542028/39-133213466bb29aa6cf25)
+![Sam Spilsbury works at the game company Supercell in Helsinki. He has come to Finland from Australia. Photo: Esa Syväkuru / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3268,w_5811,x_0,y_434/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1723542028/39-133213466bb29aa6cf25)
 
 ## Tightening of immigration policy
 
@@ -55,3 +55,4 @@ Many experts in the technical field from abroad work in Finland. Only about half
 Many companies need foreign experts. That's why trade unions in the technical sector are worried about the situation.
 
 This was a news week in clear Finnish, see you again, by the way!
+

@@ -30,7 +30,7 @@ The police remind you that you should not give your bank details to anyone.
 
 More on the topic in the program Uutisviikko in plain Finnish.
 
-The program can be found at![Yle Areena](https://areena.yle.fi/podcastit/1-71747728) and at![yle.fi/selkouutiset](https://yle.fi/a/74-20116156).
+The program can be found at [Yle Areena](https://areena.yle.fi/podcastit/1-71747728) and at [yle.fi/selkouutiset](https://yle.fi/a/74-20116156).
 
 ## Accident in Mäntsälä
 
@@ -71,3 +71,4 @@ On Tuesday, the weather varies in Finland.
 It may rain in the West and Western Lapland, it may also snow in Western Lapland. There is snow in the east.
 
 The temperature is below 10 degrees. There is frost on the arm.
+

@@ -51,3 +51,4 @@ On Friday, the weather in Finland varies.
 It's raining in Lapland and the east. The rain can be heavy. Thunderstorms can occur in the southeast.
 
 The temperature is around 20 degrees. It's hot in the south, cooler in Lapland.
+

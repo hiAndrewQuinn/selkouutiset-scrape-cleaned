@@ -73,3 +73,4 @@ The EU Commission wants to restrict the online sale of cheap Chinese products in
 Restrictive measures may include, for example, customs duties, taxes and environmental fees.
 
 However, it may take many years for such payments to be introduced in the EU.
+

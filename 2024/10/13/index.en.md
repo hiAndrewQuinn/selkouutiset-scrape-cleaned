@@ -6,7 +6,7 @@ The topic of the news week this time is that Finland needs workers from abroad. 
 
 ## Filipino home care nurses
 
-![These Filipino caregivers arrived in Finland at the beginning of October. Photo: Markku Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2133,w_3792,x_6,y_59/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1727891179/39-135770766fd807736ec5)
+![These Filipino caregivers arrived in Finland at the beginning of October. Photo: Markku Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2133,w_3792,x_6,y_59/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1727891179/39-135770766fd807736ec5)
 
 At the beginning of October, a large group of Filipinos arrived at Helsinki-Vantaa Airport. They didn't come on vacation, they came to Finland to work.
 
@@ -18,7 +18,7 @@ Filipinos say that the reasons for moving to Finland are the balance between wor
 
 ## Employees from 4 countries
 
-![Indian Unnikrishnan Kurup works in the IT field in Finland. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3323,w_5909,x_0,y_442/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1725963376/39-134636666e019821dec7)
+![Indian Unnikrishnan Kurup works in the IT field in Finland. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3323,w_5909,x_0,y_442/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1725963376/39-134636666e019821dec7)
 
 The Philippines is one of the countries from which Finland wants workers.
 
@@ -30,7 +30,7 @@ The most arrivals have come from the Philippines, which has become employees in 
 
 ## The need for foreign workers
 
-![There are many pensioners in Finland. Photo: Siiri Pohjoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_728/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1654089058/39-963622629760c5643d7)
+![There are many pensioners in Finland. Photo: Siiri Pohjoinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_728/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1654089058/39-963622629760c5643d7)
 
 Finland needs workers from abroad. The reason is that Finns are getting older. The number of pensioners is increasing, but the number of people of working age is decreasing.
 
@@ -47,3 +47,4 @@ Finland attracts workers from 4 countries, which are the Philippines, India, Vie
 Most of the arrivals are from the Philippines, where Finland has received workers in the care sector.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

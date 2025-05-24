@@ -63,3 +63,4 @@ The sun is shining in the south and west, while it is cloudy or partly cloudy in
 It can rain a little in Northern Lapland.
 
 The temperature is 5 to 10 degrees in the north and around 15 degrees in the south.
+

@@ -59,3 +59,4 @@ Another weather forecast.
 On Thursday, the weather will be cloudy. It may snow in Merialeu, Lapland and the east, but the sun shines elsewhere.
 
 It's freezing all over the country. In Lapland, it can be up to 10 degrees below zero. Winds can be strong in Lapland.
+

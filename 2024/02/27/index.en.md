@@ -65,3 +65,4 @@ Another weather forecast.
 On Wednesday, the weather will be cloudy. It snows a little in Lapland.
 
 The temperature is between +1 and -5 degrees, the coldest is in Lapland.
+

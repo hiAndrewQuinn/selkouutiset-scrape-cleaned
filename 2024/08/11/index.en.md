@@ -12,7 +12,7 @@ Now more about the situation of the Finnish economy. It affects everyone's life.
 
 ## 12 billion new debt
 
-![At the end of last year, Finland had 156 billion euros in debt. Photo: Pixabay ](https://images.cdn.yle.fi/image/upload/c_crop,h_2347,w_4170,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1723015333/39-132912466b31efa5e3b6)
+![At the end of last year, Finland had 156 billion euros in debt. Photo: Pixabay ](https://images.cdn.yle.fi/image/upload/c_crop,h_2347,w_4170,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1723015333/39-132912466b31efa5e3b6)
 
 The situation of the Finnish economy is weak.
 
@@ -30,7 +30,7 @@ The situation of many big Finnish companies is bad.
 
 ## My own money is not enough
 
-![Money goes into health care when Finns get older. Photo: Sampo Saikkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3249,w_5777,x_16,y_342/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692788384/39-99377562f660775c26b)
+![Money goes into health care when Finns get older. Photo: Sampo Saikkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3249,w_5777,x_16,y_342/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1692788384/39-99377562f660775c26b)
 
 This week we received new information about the financial situation in Finland.
 
@@ -54,7 +54,7 @@ Finland has paid the services and subsidies with debt money, because Finland's o
 
 ## Expecting better
 
-![Will the sun finally rise in the Finnish economy? Photo: Nella Nuora / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_244/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1671593634/39-89184061b88214371c0)
+![Will the sun finally rise in the Finnish economy? Photo: Nella Nuora / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_244/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1671593634/39-89184061b88214371c0)
 
 Finland has waited a long time for its economy to improve. There are small signs of it.
 
@@ -77,3 +77,4 @@ Finland's big companies are not successful and there is a lot of debt.
 There may be small signs of better things.
 
 This was a news week in plain Finnish. See you again, by the way!
+

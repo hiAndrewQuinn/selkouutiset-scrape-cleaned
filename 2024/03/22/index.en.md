@@ -65,3 +65,4 @@ It is snowing in the middle of the country.
 The sun can shine on the southern coast and northern Lapland.
 
 It is about 5 degrees below zero in Lapland. In the south, the temperature is between zero and +5 degrees.
+

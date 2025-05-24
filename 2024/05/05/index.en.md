@@ -6,7 +6,7 @@ The topic of the news week is Eurovision. The Eurovision Song Contest is a big s
 
 ## Big singing competition
 
-![Eurovision has started in Malmö. Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4314,w_7667,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714907824/39-12804436637679dca33e)
+![Eurovision has started in Malmö. Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4314,w_7667,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1714907824/39-12804436637679dca33e)
 
 It's Eurovision time again. Eurovision will be held this year in Sweden, in the city of Malmö.
 
@@ -18,7 +18,7 @@ This time, 37 countries are participating in Eurovision. Sweden is allowed to or
 
 ## Eurovision week security
 
-![Swedish police supervise the demonstration in Malmö. Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714907833/39-128044166376796028f7)
+![Swedish police supervise the demonstration in Malmö. Photo: Berislav Jurišić / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1714907833/39-128044166376796028f7)
 
 The venue for the Eurovision Song Contest is therefore Malmö. The Swedish police do a lot of work to make Malmö safe during Eurovision.
 
@@ -30,7 +30,7 @@ The atmosphere in Malmö is tense. A survey by a Swedish newspaper says that onl
 
 ## Finns at Eurovision
 
-![Windows95man is representing Finland in Eurovision this year. Photo: Corinne Cumming / EBU](https://images.cdn.yle.fi/image/upload/c_crop,h_1125,w_2000,x_0,y_121/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714304949/39-1277369662e36f0e8932)
+![Windows95man is representing Finland in Eurovision this year. Photo: Corinne Cumming / EBU](https://images.cdn.yle.fi/image/upload/c_crop,h_1125,w_2000,x_0,y_121/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1714304949/39-1277369662e36f0e8932)
 
 The Finns are an enthusiastic people of wisdom. Finns' interest in Eurovision has only grown, because Käärijä was very successful last year and came second in Eurovision.
 
@@ -49,3 +49,4 @@ During the Eurovision, demonstrations are organized in Malmö and the Swedish po
 However, millions of viewers around the world are waiting for the joyful event.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

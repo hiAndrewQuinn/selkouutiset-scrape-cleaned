@@ -51,3 +51,4 @@ Rural services are being tried to be saved with self-service stores.
 The customer collects the purchases and pays as a purchase at the self-service checkout.
 
 A thousand people live in Kangaslammi. Their own store is really important to them, because the second closest store is more than 20 kilometers away.
+

@@ -61,3 +61,4 @@ Friday is a beautiful and warm day. The weather is dusty.
 It can rain and thunder in the central parts of the country.
 
 The temperature is above 20 degrees throughout the country. In the south, the temperature can rise to 30 degrees.
+

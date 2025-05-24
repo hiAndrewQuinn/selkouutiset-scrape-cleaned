@@ -49,3 +49,4 @@ Another weather forecast.
 On Saturday, it will rain in the west and north. It is snowing in Central Lapland. The sun is shining in the east.
 
 The temperature is mainly 5\...10 degrees, it is cooler in the north.
+

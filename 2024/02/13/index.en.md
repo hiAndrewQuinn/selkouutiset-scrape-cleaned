@@ -67,3 +67,4 @@ The temperature is close to zero in the south.
 In the east and north it is -15 degrees.
 
 The wind is blowing.
+

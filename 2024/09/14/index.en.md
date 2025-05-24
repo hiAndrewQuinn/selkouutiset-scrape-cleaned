@@ -6,7 +6,7 @@ This time the topic of the news week is Yle. The parliamentary parties have fina
 
 ## Ylen's money
 
-![How much can Yle pay? Photo: Derrick Frilund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2483,w_4415,x_99,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724059122/39-82757860dda6b8566db)
+![How much can Yle pay? Photo: Derrick Frilund / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2483,w_4415,x_99,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1724059122/39-82757860dda6b8566db)
 
 The political parties have agreed this week on Yle's money. The parties decided that Yle's money will decrease by millions of euros.
 
@@ -16,7 +16,7 @@ Thus, Yle's money will decrease by a total of 66 million euros. It means that Yl
 
 ## Negotiations between the parties
 
-![The parliamentary parties negotiated about Yle's money. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3333,w_5926,x_14,y_177/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1726153639/39-134778466e30349d425d)
+![The parliamentary parties negotiated about Yle's money. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3333,w_5926,x_14,y_177/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1726153639/39-134778466e30349d425d)
 
 Yle is a public service media company. Yle's owner is the Finnish state, and Yle's money is decided by the parliament. That is why the parliamentary parties negotiated about Yle's money.
 
@@ -30,7 +30,7 @@ Yle CEO Merja Ylä-Anttila says that Yle wants to make the savings so that no au
 
 ## Ye's mission
 
-![Yle also makes programs in minority languages, for example sign language. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2437,w_4353,x_0,y_272/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724845426/39-133997366cf01544dd58)
+![Yle also makes programs in minority languages, for example sign language. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2437,w_4353,x_0,y_272/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1724845426/39-133997366cf01544dd58)
 
 Yelle has an important mission in Finland. Yle must strengthen democracy and Finnish culture and promote equality.
 
@@ -51,3 +51,4 @@ Yle's money will decrease by millions of euros in the coming years.
 Yle tries to make the savings so that no audience group suffers too much from the savings.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

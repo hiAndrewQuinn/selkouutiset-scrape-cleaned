@@ -71,3 +71,4 @@ On Friday, the weather will continue to be hot.
 It can rain in the south, in the middle of the country and in Lapland. The thunderstorms of previous days are decreasing.
 
 The temperature is 24-30 degrees. The heat is terrible.
+

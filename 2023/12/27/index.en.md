@@ -4,7 +4,7 @@ Finns' economy. Electricity self-sufficiency. Art museums. Selkoutinten's new pr
 
 ### Finns' economy
 
-![The financial situation of Finnish households has weakened. Photo: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_205/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1542376227/39-5241095beecafd6a8cf)
+![The financial situation of Finnish households has weakened. Photo: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_205/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1542376227/39-5241095beecafd6a8cf)
 
 The financial situation of Finns has weakened during the year.
 
@@ -16,7 +16,7 @@ The previous survey was conducted a year ago, in the fall of 2022. At that time,
 
 ### Electricity self-sufficiency
 
-![The Olkiluoto 3 nuclear power plant started producing electricity last March. Photo: Jari Pelkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2244,w_3989,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700477562/39-1099941643cd53954601)
+![The Olkiluoto 3 nuclear power plant started producing electricity last March. Photo: Jari Pelkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2244,w_3989,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1700477562/39-1099941643cd53954601)
 
 Finland is now electricity self-sufficient. It means that Finland now produces as much electricity itself as we consume in a year.
 
@@ -28,7 +28,7 @@ In recent years, electricity has been brought to Finland from Sweden and Russia.
 
 ### Art museums
 
-![A lot of people visited the Albert Edelfelt exhibition at the Ateneum Art Museum. Photo: Joel Peltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2503,w_4450,x_0,y_811/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1683186335/39-110833364535e0ed5f33)
+![A lot of people visited the Albert Edelfelt exhibition at the Ateneum Art Museum. Photo: Joel Peltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2503,w_4450,x_0,y_811/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1683186335/39-110833364535e0ed5f33)
 
 The art museums have had a lot of visitors this year.
 
@@ -52,7 +52,7 @@ From January, weekday clear news will be broadcast on television.
 
 ### Thursday's weather
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703684847/39-1220663658c2ab4044d7)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1703684847/39-1220663658c2ab4044d7)
 
 Tomorrow's weather will be mostly cloudy. It may snow or sleet in some places.
 

@@ -74,4 +74,5 @@ Research director Tuomo Turja estimates that the Social Democratic Party or the 
 
 In regional elections, the center could even come in second place.
 
-You can find out about the election candidates on![Yle's election machine](https://vaalit.yle.fi/vaalikone/alue-ja-kuntavaalit2025) on the Yle website.
+You can find out about the election candidates on [Yle's election machine](https://vaalit.yle.fi/vaalikone/alue-ja-kuntavaalit2025) on the Yle website.
+

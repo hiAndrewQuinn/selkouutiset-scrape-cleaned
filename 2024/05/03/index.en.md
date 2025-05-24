@@ -66,3 +66,4 @@ The weather is getting colder. On Saturday, it will still be warm and sunny in t
 In the north it is cloudy and cooler. There will be scattered rains in places.
 
 There will be showers in the east and cloudiness will vary.
+

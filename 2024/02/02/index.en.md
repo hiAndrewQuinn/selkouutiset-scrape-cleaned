@@ -63,3 +63,4 @@ Another weather forecast.
 It is snowing in the east and north. In the rest of the country, it is cloudy and sunny in some places.
 
 It is freezing in the north and east, the temperature is on the plus side in the south and west.
+

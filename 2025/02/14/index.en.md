@@ -75,3 +75,4 @@ However, there may be a little snow in some places. The weather will be cloudy i
 The sun only shines in places.
 
 The temperature is between -5 and -10 degrees.
+

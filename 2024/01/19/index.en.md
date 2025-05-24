@@ -69,3 +69,4 @@ Another weather forecast.
 Tomorrow the sun will shine almost all over the country. There may also be small cloudy areas in the south and west.
 
 The day is cold, the frost is 10-25 degrees in the southern and central parts of the country and 20-40 degrees in the north.
+

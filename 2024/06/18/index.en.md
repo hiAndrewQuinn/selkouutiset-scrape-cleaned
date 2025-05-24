@@ -73,3 +73,4 @@ In the central part of the country it rains occasionally.
 In the south and east, it's raining, that is, it doesn't rain.
 
 The temperature is between 11 and 20 degrees. It is coldest in Lapland.
+

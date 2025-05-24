@@ -49,3 +49,4 @@ It is good to take safety equipment with you on the ice, for example ice picks a
 Another weather forecast. It will neither rain nor snow on Thursday. On the southern coast, the temperature is at zero, elsewhere it is freezing.
 
 The coldest place is in Lapland, where it is 20 degrees below zero.
+

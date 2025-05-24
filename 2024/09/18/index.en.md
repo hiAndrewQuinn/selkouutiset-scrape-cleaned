@@ -61,3 +61,4 @@ Another weather forecast.
 On Thursday, the weather will be cloudy. The sun is shining in a large part of the country. It can rain in Lapland.
 
 In the north, the temperature is below 20 degrees, elsewhere the temperature can be over 20 degrees.
+

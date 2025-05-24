@@ -61,3 +61,4 @@ There will be scattered sleet or snow showers in the western part of the country
 In Eastern Lapland and in the southwest, the sun gets to shine a little.
 
 In the southern part of the country, the temperature rises above +5 degrees in some places. Otherwise, the temperature is between -4 and +4 degrees.
+

@@ -10,7 +10,7 @@ Now we will tell you more about the subject.
 
 ## Warning messages from the police
 
-![The police warn about scam calls. Photo: Roni Rekomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2386,w_4243,x_101,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1728126087/39-1359074670100e663e37)
+![The police warn about scam calls. Photo: Roni Rekomaa / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2386,w_4243,x_101,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1728126087/39-1359074670100e663e37)
 
 Tens of thousands of people have received a text message from the police warning them about scam calls. The police suspect that the criminals are going to call these people and try to swindle money from them.
 
@@ -20,7 +20,7 @@ The police message was received by people whose names were found on criminals' p
 
 ## Criminal playlists
 
-![Tens of thousands of people have received such a warning message from the police. Photo: Risto Laine / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_658,w_1170,x_0,y_579/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1728126297/39-13590856701138d48843)
+![Tens of thousands of people have received such a warning message from the police. Photo: Risto Laine / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_658,w_1170,x_0,y_579/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1728126297/39-13590856701138d48843)
 
 The police say that they have obtained the criminals' playlists. The lists have names and phone numbers of tens of thousands of people. Some people's dates of birth are also written on the lists. The police do not yet know where the information came from.
 
@@ -30,7 +30,7 @@ Crime Commissioner Janne Kyllönen says that the swindlers are really skilled. T
 
 ## Bank IDs should not be given
 
-![You should never give your bank credentials to anyone. Photo: Elisa Kinnunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_180/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1597924046/39-7101975f3e627341ff6)
+![You should never give your bank credentials to anyone. Photo: Elisa Kinnunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_180/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1597924046/39-7101975f3e627341ff6)
 
 The police remind you that you should not give your bank details to anyone. Banks or authorities never ask for bank IDs.
 
@@ -45,3 +45,4 @@ Fraudsters pretend to be bank tellers on the phone, for example, and try to get 
 The police remind you that you should never give your bank credentials to anyone.
 
 This was Uutisviikko in plain Finnish. Goodbye!
+

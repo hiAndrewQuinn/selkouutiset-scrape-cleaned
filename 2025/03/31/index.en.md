@@ -41,3 +41,4 @@ Many foreigners are also allowed to vote in regional and municipal elections if 
 Still a weather forecast.
 
 The weather is getting drier and warmer. Tomorrow, Tuesday, the sun will shine. The weather is warm. The temperature in the south is over 10 degrees. In the north, the temperature is about 5 degrees.
+

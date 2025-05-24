@@ -59,3 +59,4 @@ New job openings have decreased in almost all occupational groups.
 The best jobs are found for nurses and other healthcare professionals, as well as salespeople and cleaners.
 
 This was Uutisviikko in plain Finnish. Listen!
+

@@ -36,7 +36,7 @@ The government has decided to give more money to Kela compensations, which peopl
 
 Selkouiniset has met the president's spouse **Suzanne Innes-Stubb**.
 
-On Tuesday's TV broadcast of Selkouutinen, Innes-Stubb told what she thinks about the Finnish language and studying it. You can still watch the broadcast at![Yle Areena](https://areena.yle.fi/1-66453094) and at![yle.fi/selkouutiset](https://yle.fi/a/74-20119416).
+On Tuesday's TV broadcast of Selkouutinen, Innes-Stubb told what she thinks about the Finnish language and studying it. You can still watch the broadcast at [Yle Areena](https://areena.yle.fi/1-66453094) and at [yle.fi/selkouutiset](https://yle.fi/a/74-20119416).
 
 In the radio program Uutisviikko in plain Finnish, Innes-Stubb tells how life has changed after the presidential election and what she thinks about the role of the president's spouse. The program will be broadcast on Sunday on Radio Finland and on Selkouutinen's website.
 
@@ -49,3 +49,4 @@ Tomorrow the weather will be cloudy, meaning it won't rain.
 The sun shines in the south and in the north. In the middle of the country Cloudiness varies.
 
 The temperature in the south is between 10 and 13 degrees. It is 1-9 degrees warm in the north.
+

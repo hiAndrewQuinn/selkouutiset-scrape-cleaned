@@ -37,3 +37,4 @@ A play with the theme of shame is performed at the KOM theater. The premiere of 
 Another weather forecast.
 
 Rain is spreading to Finland from the southeast. During the day on Friday, it will rain in a large part of Finland. It rains a lot in places. However, the weather is still warm.
+

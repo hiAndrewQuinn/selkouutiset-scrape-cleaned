@@ -63,3 +63,4 @@ In the southern and central parts of the country, the weather is cloudy and sunn
 There may be isolated showers in the east. It's thundering in Lapland.
 
 The temperature is over 25 degrees in the southern and central part of the country, 15-25 degrees in the north.
+

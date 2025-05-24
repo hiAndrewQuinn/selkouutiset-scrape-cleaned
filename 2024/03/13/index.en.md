@@ -59,3 +59,4 @@ Another weather forecast.
 On Thursday, it will rain in the south and west, snow in the north. The wind is strong.
 
 The temperature is mainly between 0 and +4 degrees, there is a slight frost in some places in Lapland.
+

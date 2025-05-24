@@ -18,7 +18,7 @@ President Stubb says that the most important parts of Finland's foreign policy a
 
 The president's wife is **Suzanne Innes-Stubb**. Innes-Stubb's native language is English, but she has also learned Finnish and Swedish.
 
-*I hope I can show that even if you don't speak Finnish or Swedish perfectly, it's always worth trying to say something. That's the most important thing.* This is what Innes-Stubb said![in an interview with Selkouutisten](https://areena.yle.fi/1-72258105) in the fall.
+*I hope I can show that even if you don't speak Finnish or Swedish perfectly, it's always worth trying to say something. That's the most important thing.* This is what Innes-Stubb said [in an interview with Selkouutisten](https://areena.yle.fi/1-72258105) in the fall.
 
 ## State financial problems
 
@@ -32,13 +32,13 @@ Politicians are arguing about what to do about the state's financial problems.
 
 The government is making savings that will affect the lives of many people. For example, many subsidies will be reduced.
 
-In addition, the government is reducing hospital services. For example,![night shifts will end in many hospitals](https://yle.fi/a/74-20133073).
+In addition, the government is reducing hospital services. For example, [night shifts will end in many hospitals](https://yle.fi/a/74-20133073).
 
 The opposition believes the government is saving money in the wrong places. Disputes over state funds will continue next year.
 
 ## Finlandia Prize
 
-![Author Pajtim Statovci. Photo: Katriina Laine / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_206/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724397451/39-133749766c82ffa7d731)
+![Author Pajtim Statovci. Photo: Katriina Laine / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_206/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724397451/39-133749766c82ffa7d731)
 
 Finland's most important literary award, the Finlandia Prize, went to writer **Pajtim Statovc** this year.
 
@@ -59,3 +59,4 @@ Finland's financial situation is bad. That's why politicians have been arguing a
 Pajtim Statovci won the Finlandia Prize for Literature for the second time.
 
 This was Uutisviikko in plain Finnish, see you again next year. See you later!
+

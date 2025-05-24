@@ -51,3 +51,4 @@ Researchers say that trust is still quite weak.
 ## Weather
 
 On Wednesday, the weather will vary. It's raining in Lapland and the east. There can also be thunder in the east. The temperature is slightly below 20 degrees.
+

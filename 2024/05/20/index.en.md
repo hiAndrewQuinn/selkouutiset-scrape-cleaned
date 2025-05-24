@@ -65,3 +65,4 @@ The weather is cloudy throughout the country. The sun shines in the southern and
 The temperature is 15-20 degrees in the southern and central parts of the country.
 
 In the north, the temperature is 1-10 degrees.
+

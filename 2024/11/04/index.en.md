@@ -18,7 +18,7 @@ Presidential elections will be held in the USA on Tuesday.
 
 The results will be available on Wednesday Finnish time.
 
-Yle also follows the US elections at![yle.fi](https://yle.fi/t/18-345335/fi).
+Yle also follows the US elections at [yle.fi](https://yle.fi/t/18-345335/fi).
 
 ## Turku Compass Hospital
 
@@ -69,3 +69,4 @@ Another weather forecast.
 Tomorrow, the rain zone will pass over Finland. It is snowing in Lapland. Elsewhere, it first snows, and then rains.
 
 The temperature rises when the rain zone has passed. In the west, the temperature is above 5 degrees. Elsewhere it is below 5 degrees.
+

@@ -63,3 +63,4 @@ Another weather forecast.
 The weather is cloudy and it is snowing a little in places.
 
 On the coast, the temperature is around zero, otherwise it's a few degrees below zero.
+

@@ -51,3 +51,4 @@ The list includes unique cultural and natural sites that are intended to be prot
 There are already 7 Finnish destinations on the list.
 
 This was Uutisviikko in plain Finnish. See you again next week.
+

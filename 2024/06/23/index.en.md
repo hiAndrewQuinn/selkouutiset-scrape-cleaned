@@ -6,7 +6,7 @@ The topic of the news week this time is Refugee of the Year. This year's Refugee
 
 ## Sa Myer Oo
 
-![Refugee of the year Sa Myer Oo. Photo: Kim Blåfield / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_221/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1719136308/39-1304558667023430dc05)
+![Refugee of the year Sa Myer Oo. Photo: Kim Blåfield / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_221/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1719136308/39-1304558667023430dc05)
 
 This year's Refugee of the Year is Sa Myer Oo. Sa Myer Oo's nickname is San. San is 28 years old.
 
@@ -20,7 +20,7 @@ San currently lives in Vaasa. He will soon graduate as a social worker. She alre
 
 ## Finnish Refugee Aid
 
-![Ali Giray was the first Refugee Man of the Year in 2016. Photo: Heikki Haapalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2026,w_3602,x_0,y_186/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1618560492/39-7953776079427c15e8a)
+![Ali Giray was the first Refugee Man of the Year in 2016. Photo: Heikki Haapalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2026,w_3602,x_0,y_186/ar_1.777777777777777,c_fill ,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1618560492/39-7953776079427c15e8a)
 
 The refugee of the year is selected by Suomen Pakolaisapu. It is an approximately 60-year-old organization that works for refugees and immigrants.
 
@@ -32,7 +32,7 @@ Suomen Pakolaisapu gives the award to a person with a refugee background and exp
 
 ## Purpose of the award
 
-![Refugee woman of the year 2010 Nasima Razmyar. Photo: Anne Heinonen](https://images.cdn.yle.fi/image/upload/c_crop,h_1458,w_2592,x_0,y_1110/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1719143639/14-svyle-2644153197266a4f7a)
+![Refugee woman of the year 2010 Nasima Razmyar. Photo: Anne Heinonen](https://images.cdn.yle.fi/image/upload/c_crop,h_1458,w_2592,x_0,y_1110/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto: eco/f_auto/fl_lossy/v1719143639/14-svyle-2644153197266a4f7a)
 
 The task of the refugee of the year is to tell Finns about the life of refugees and integration in Finland.
 
@@ -53,3 +53,4 @@ The selection was made by an organization called Suomen Pakolaisapu. It has been
 The task of the refugee of the year is to tell Finns about the integration of refugees into Finland.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

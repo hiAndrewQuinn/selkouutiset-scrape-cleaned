@@ -32,7 +32,7 @@ Finally, news about nature cameras.
 
 You can follow the life of Baltic sea minnows on the website of the nature organization WWF. Norppalive broadcasts a program about the life of a norpa. The camera films when the ferrets are lying on the shore rocks of the Archipelago Sea.
 
-You can watch WWF's nature live at![wwf.fi/luontolive](https://wwf.fi/luontolive/itamerennorppa/).
+You can watch WWF's nature live at [wwf.fi/luontolive](https://wwf.fi/luontolive/itamerennorppa/).
 
 You can also follow the life of the gnat family on the WWF website. The vulture is a large bird of prey.
 
@@ -41,3 +41,4 @@ You can also follow the life of the gnat family on the WWF website. The vulture 
 Another weather forecast.
 
 In the western part of the country, as well as in North Ostrobothnia and Kainuu, it will rain on Friday. It may rain a little in the south and east. In Lapland, it's poutaa, meaning it doesn't rain. The temperature is around +5 degrees.
+

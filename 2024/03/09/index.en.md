@@ -6,7 +6,7 @@ The topic of the news week this time is NATO's military exercise in the north. I
 
 ## Big military exercise
 
-![NATO is training for the defense of Northern Europe. Photo: Vesa Toppari / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2579,w_4603,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709650244/39-125358865e72d6e4ee32)
+![NATO is training for the defense of Northern Europe. Photo: Vesa Toppari / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2579,w_4603,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1709650244/39-125358865e72d6e4ee32)
 
 Defense alliance NATO is now having a big military exercise. NATO is training to defend Northern Europe.
 
@@ -18,7 +18,7 @@ The military exercise started in northern Norway, and from there it has progress
 
 ## Stubb in a military exercise
 
-![The President of Finland and the Prime Minister of Norway visited the military exercise. Photo: Jani Saikko / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_500/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709812118/39-125452465e9a7d78fb6e)
+![The President of Finland and the Prime Minister of Norway visited the military exercise. Photo: Jani Saikko / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_500/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1709812118/39-125452465e9a7d78fb6e)
 
 The President of Finland **Alexander Stubb** has visited a NATO military exercise. Stubb got to know the military exercise together with the Prime Minister of Norway **Jonas Gahr Støren**.
 
@@ -28,7 +28,7 @@ The leaders of Finland and Norway called Swedish Prime Minister **Ulf Kristersso
 
 ## NATO expansion
 
-![The Prime Minister of Sweden (left) and the US Secretary of State in Washington on Thursday, when Sweden officially became a member of NATO. Photo: Andrew Caballero-Reynolds / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_229/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709854645/39-125479465e9f6bdd1c9f)
+![The Prime Minister of Sweden (left) and the US Secretary of State in Washington on Thursday, when Sweden officially became a member of NATO. Photo: Andrew Caballero-Reynolds / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_229/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1709854645/39-125479465e9f6bdd1c9f)
 
 The defense alliance NATO has grown rapidly in the north. The reason is Russia's attack on Ukraine in February 2022.
 
@@ -49,3 +49,4 @@ President Alexander Stubb visited a NATO military exercise.
 President Stubb congratulated Sweden because Sweden's NATO membership is now confirmed.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

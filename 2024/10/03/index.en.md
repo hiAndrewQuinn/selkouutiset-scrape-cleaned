@@ -57,3 +57,4 @@ Another weather forecast.
 On Friday afternoon, it will snow in Northern Lapland and it will rain in Eastern Lapland. It doesn't rain in the rest of the country.
 
 The sun is shining in some parts of the country. The temperature is a little over 10 degrees in the south and west. It is colder in the east and north.
+

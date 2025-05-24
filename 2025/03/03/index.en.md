@@ -67,3 +67,4 @@ On Tuesday, the sun will shine in the west and Lapland. It may snow in the east.
 There is a little frost in the north.
 
 Elsewhere, the temperature is between +1 and +5 degrees.
+

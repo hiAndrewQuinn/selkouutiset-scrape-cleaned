@@ -14,7 +14,7 @@ In the European elections, the whole of Finland is one constituency. So you can 
 
 Early voting for the EU elections has started. The actual election day is Sunday, June 9.
 
-You can familiarize yourself with the candidates in Yle's election machine at![yle.fi/vaalikone](https://vaalit.yle.fi/vaalikone/eurovaalit2024)
+You can familiarize yourself with the candidates in Yle's election machine at [yle.fi/vaalikone](https://vaalit.yle.fi/vaalikone/eurovaalit2024)
 
 ## The death of Valkeakoski
 
@@ -59,3 +59,4 @@ The temperature is above 25 degrees.
 The sun shines in the north.
 
 In the north, the temperature is over 20 degrees.
+

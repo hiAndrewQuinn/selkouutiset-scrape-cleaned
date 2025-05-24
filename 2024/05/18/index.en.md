@@ -10,7 +10,7 @@ We will now tell you more about the growing popularity of the far right.
 
 ## The popularity of the far right
 
-![European Parliament in Brussels. Photo: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_260/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1715174150/39-1282232663b7948d6e41)
+![European Parliament in Brussels. Photo: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_260/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1715174150/39-1282232663b7948d6e41)
 
 720 representatives are elected to the European Parliament. The media have asked people in different countries which party they intend to vote for.
 
@@ -26,7 +26,7 @@ Polls show that in the future the right wing will be the majority in the Europea
 
 ## Immigration policy and environmental policy
 
-![Outside the European Parliament there are texts reminding about the European elections and democracy. Image: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_3110,w_5550,x_97,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1713288957/39-1271807661eb67bdd377)
+![Outside the European Parliament there are texts reminding about the European elections and democracy. Image: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_3110,w_5550,x_97,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1713288957/39-1271807661eb67bdd377)
 
 The growth of the far right can affect many things in the European Parliament. For example, climate issues may receive less attention than before.
 
@@ -43,3 +43,4 @@ Far-right refers to many parties with right-wing ideas.
 Opinion polls show that the far right may be growing in the European Parliament. It can tighten immigration policy and relax environmental policy.
 
 The term of the European Parliament is 5 years. The voting day for the European elections is June 9 in Finland. Before that, there is a preliminary vote, which starts on 29.5. and ends on 4.6.
+

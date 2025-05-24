@@ -4,7 +4,7 @@ Corona vaccinations. Strikes. Able to work pensioners. Weather.
 
 ### Corona vaccinations
 
-![Risk groups are now given booster vaccinations against the corona virus. Photo: Petri Niemi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2266,w_4027,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1675253861/39-99789363046bc0166b4)
+![Risk groups are now given booster vaccinations against the corona virus. Photo: Petri Niemi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2266,w_4027,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1675253861/39-99789363046bc0166b4)
 
 Corona vaccinations have started too late this fall. This is also what the Institute of Health and Welfare, or THL, says, which coordinates the organization of corona vaccinations.
 
@@ -18,7 +18,7 @@ It is especially important for people over 80 to receive a booster vaccination a
 
 ### Strikes
 
-![Strikers in Oulu, northern Finland. Photo: Ville Honkonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699368229/39-11968696549f7933eb81)
+![Strikers in Oulu, northern Finland. Photo: Ville Honkonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699368229/39-11968696549f7933eb81)
 
 Strikes have stopped work at many workplaces in Finland.
 
@@ -36,7 +36,7 @@ In addition, the government plans to make it easier to fire an employee.
 
 ### Seniors who are able to work
 
-![Many remain in good condition for a long time. Photo: Esa Syväkuru / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_47/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1568642672/39-5915475d7f9625891ee)
+![Many remain in good condition for a long time. Photo: Esa Syväkuru / YLE](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_47/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1568642672/39-5915475d7f9625891ee)
 
 There are many pensioners in Finland who are still able to work. The information is from a study by the Institute of Health and Welfare.
 
@@ -46,7 +46,7 @@ Retired people can have a very different condition. Others can run, but walking 
 
 ### Weather
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699373925/39-1197270654a63406a4f5)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/ f_auto/fl_lossy/v1699373925/39-1197270654a63406a4f5)
 
 On Wednesday, the weather will be cloudy and foggy.
 

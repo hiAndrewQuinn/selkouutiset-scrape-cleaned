@@ -64,6 +64,7 @@ Elsewhere, the cloudiness varies and in the central parts of the country there w
 
 **Did you already listen to the weekend's Uutisviikko programs in clear Finnish?**
 
-![Finland and javelin throwing](https://yle.fi/a/74-20094215)
+[Finland and javelin throwing](https://yle.fi/a/74-20094215)
 
-![Marimeko Poppy](https://yle.fi/a/74-20094270)
+[Marimeko Poppy](https://yle.fi/a/74-20094270)
+

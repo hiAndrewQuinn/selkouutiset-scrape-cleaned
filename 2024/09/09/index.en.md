@@ -71,3 +71,4 @@ The weather is sunny in the east and north. The temperature there is 20-23 degre
 It is cloudy in the west and there will be showers in places.
 
 The weather will be windy tomorrow. Wind gusts are over 15 meters per second.
+

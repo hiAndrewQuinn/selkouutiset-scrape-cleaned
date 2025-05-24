@@ -30,7 +30,7 @@ Prime Minister **Petteri Orpo** says that the Eagle S is a Russian ship.
 
 ## Police suspect Eagle S ship
 
-![Eagle S ship. Photo: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2929,w_5208,x_0,y_153/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1735322448/39-1400412676ebb7ad409c)
+![Eagle S ship. Photo: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2929,w_5208,x_0,y_153/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1735322448/39-1400412676ebb7ad409c)
 
 The police suspect that the Eagle S ship has damaged important Finnish cables in the Baltic Sea.
 
@@ -54,7 +54,7 @@ Data cables, on the other hand, do not affect the life of the average person.
 
 ## NATO is guarding
 
-![Military alliance NATO emblem. Photo: Antti Kolppo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_161/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703860060/39-10985216437c91059257)
+![Military alliance NATO emblem. Photo: Antti Kolppo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_161/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703860060/39-10985216437c91059257)
 
 Finland is a member of the military alliance NATO.
 
@@ -77,3 +77,4 @@ Police suspect that the cables were broken by a ship called the Eagle S.
 Prime Minister Petteri Orpo says that the Eagle S is a Russian ship.
 
 Because of the cables, the military alliance NATO is sending ships to the Baltic Sea.
+

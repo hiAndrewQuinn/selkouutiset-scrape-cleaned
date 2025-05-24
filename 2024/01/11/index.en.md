@@ -43,3 +43,4 @@ The final is in a month. The winner will represent Finland in May at the Eurovis
 Another weather forecast.
 
 On Friday, the weather will be cold and sunny in some places. It's 10\...20 degrees below freezing, in some places it's 30 degrees.
+

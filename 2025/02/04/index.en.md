@@ -67,3 +67,4 @@ Snowfall is spreading from the west.
 During the day, it will snow, especially in the north. Snow showers will occur in the south.
 
 The southerly wind is gusty and the weather is getting colder, meaning the frost is weakening throughout the country.
+

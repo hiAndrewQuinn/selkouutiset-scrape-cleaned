@@ -2,7 +2,7 @@
 
 Trump and import tariffs. Electricity to Finland. Helene Schjerfbeck. Heat record. Weather.
 
-![Photo: Brendan Smialowski / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1743662274/39-144526967ee2c9e554f0)
+![Photo: Brendan Smialowski / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_138/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1743662274/39-144526967ee2c9e554f0)
 
 17:36
 
@@ -67,3 +67,4 @@ The weather is getting colder.
 In the south it is below 10 degrees. In the north it is a bit frosty and it can snow sometimes.
 
 The wind is strong at the beginning of the day. The wind makes the weather feel even colder.
+

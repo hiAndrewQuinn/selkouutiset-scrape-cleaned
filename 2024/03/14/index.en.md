@@ -53,3 +53,4 @@ Bus traffic has managed with the help of warehouses. Next week, the fuel may sta
 ## Friday weather
 
 Another weather forecast. It is cloudy in the south and there may be drizzle. The sun shines in places in the middle of the earth. There will be light snow showers in Lapland. The temperature is mainly between -2 and +6 degrees, it is colder in Northern Lapland.
+

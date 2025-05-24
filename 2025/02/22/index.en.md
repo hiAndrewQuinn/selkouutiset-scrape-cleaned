@@ -67,3 +67,4 @@ Europe fears that Russia will win the war in Ukraine.
 The reason is that US President Donald Trump does not want to help Ukraine.
 
 If Russia wins, the security of Europe and Finland may be worse.
+

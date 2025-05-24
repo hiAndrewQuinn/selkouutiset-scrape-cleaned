@@ -10,7 +10,7 @@ Uutisviikko now tells about how nursing time was studied in a new way, and what 
 
 ## A new research method for treatment time
 
-![The smartphone recognizes how long the nurse is with the patient. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3195,w_5680,x_0,y_524/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710319962/39-125690865f167a8a41be)
+![The smartphone recognizes how long the nurse is with the patient. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3195,w_5680,x_0,y_524/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1710319962/39-125690865f167a8a41be)
 
 Tampere University Hospital conducted a study on nurses' time with patients. Time was measured in a new way. Patients were given a wristband and nurses were given a smartphone.
 
@@ -22,7 +22,7 @@ The nurse's phone also collects information when the nurse is in the hospital's 
 
 ## Office work for nurses
 
-![In the office, nurses record patients' information. For example, blood pressure measurement results and fever measurement results are always recorded in the hospital's information system. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3284,w_5839,x_15,y_187/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710319941/39-125690565f167a759648)
+![In the office, nurses record patients' information. For example, blood pressure measurement results and fever measurement results are always recorded in the hospital's information system. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3284,w_5839,x_15,y_187/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1710319941/39-125690565f167a759648)
 
 In clerical work, nurses record patients' test results and other information. The nurses also record the patient's information whenever a new patient enters the department or when a patient leaves the department.
 
@@ -41,3 +41,4 @@ The research revealed that nurses spend a lot of time on clerical work. Therefor
 A new research method may help hospitals better plan the work of nurses.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

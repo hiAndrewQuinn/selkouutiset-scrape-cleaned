@@ -39,3 +39,4 @@ Another weather forecast.
 The weather is cloudy in the south. It can sometimes rain in the south. The temperature is between 7 and 11 degrees.
 
 The sun shines in the north. The temperature is between 2 and 7 degrees. The wind is weak.
+

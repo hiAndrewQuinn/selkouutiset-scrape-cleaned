@@ -8,7 +8,7 @@ Shortly after the victory, Stubb met with journalists from different countries. 
 
 ## Russia
 
-![At Alexander Stubb's press conference, journalists were particularly interested in the relationship between Finland and Russia. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3324,w_5910,x_1,y_458/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1707834383/39-124378365cb7b83a20b1)
+![At Alexander Stubb's press conference, journalists were particularly interested in the relationship between Finland and Russia. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3324,w_5910,x_1,y_458/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1707834383/39-124378365cb7b83a20b1)
 
 The winner of the presidential election, Alexander Stubb, met with international journalists shortly after the election. The reporters wanted to know what Stubb thinks about Finland's neighboring country, Russia.
 
@@ -18,7 +18,7 @@ The most important parts of Finland's foreign policy are now the European Union 
 
 ## USA and NATO
 
-![Donald Trump says that some NATO countries do not spend enough money on defense. Photo: Hunter Cone / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_4608,w_8192,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708071958/39-124463365cdeb214aba9)
+![Donald Trump says that some NATO countries do not spend enough money on defense. Photo: Hunter Cone / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_4608,w_8192,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1708071958/39-124463365cdeb214aba9)
 
 Stubb also took a stand on the Americans' NATO discussion.
 
@@ -30,7 +30,7 @@ However, in Stubb's opinion, European countries must remember their responsibili
 
 ## Sweden
 
-![Swedish Prime Minister Ulf Kristersson congratulated Stubb after the election victory. Photo: Pelle T. Nilsson / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3859,w_6894,x_0,y_143/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674582044/39-106339963d017ef9a960)
+![Swedish Prime Minister Ulf Kristersson congratulated Stubb after the election victory. Photo: Pelle T. Nilsson / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_3859,w_6894,x_0,y_143/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1674582044/39-106339963d017ef9a960)
 
 And which country is the new president going to visit first?
 
@@ -53,3 +53,4 @@ In Stubb's opinion, Finland fulfills its obligations in NATO well.
 Stubb plans to make his first foreign trip as president to Sweden.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

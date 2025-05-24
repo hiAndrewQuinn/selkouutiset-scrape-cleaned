@@ -6,7 +6,7 @@ Here is Uutisviikko in plain Finnish and Pertti Seppä. The topic of the news we
 
 ## Lupine
 
-![Lupine is a beautiful plant, but it does not belong to Finnish nature. Photo: Tuija Veirto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2642,w_4697,x_0,y_45/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1721190700/39-130563566729315b8a22)
+![Lupine is a beautiful plant, but it does not belong to Finnish nature. Photo: Tuija Veirto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2642,w_4697,x_0,y_45/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1721190700/39-130563566729315b8a22)
 
 There are many plants in Finland's nature that are actually alien species. So they were not originally grown in Finland.
 
@@ -22,13 +22,13 @@ In nature, lupins change the soil so that other plants disappear. It, in turn, h
 
 ## The duck pond case
 
-![The duck pond had to be emptied because of alien species. Photo: Arash Matin / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1822,w_3240,x_0,y_228/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1721572817/39-129037466503c21453a6)
+![The duck pond had to be emptied because of alien species. Photo: Arash Matin / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1822,w_3240,x_0,y_228/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1721572817/39-129037466503c21453a6)
 
 This summer, Paimo's Ankkalamme has been reported in the news. Duck Pond is normally a popular swimming spot, but now there is no water in it.
 
 The city had to drain the entire pond because of the alien species. Sunbathers swim in the pond. They are fish that do not belong in Finnish waters.
 
-![The sun perch is an alien species in Europe. Photo: Jere Sanaksenaho / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_490/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1689068490/39-114082964ad1925c869f)
+![The sun perch is an alien species in Europe. Photo: Jere Sanaksenaho / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3510,w_6240,x_0,y_490/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1689068490/39-114082964ad1925c869f)
 
 In addition, there was a plant in Aurinkolammi called kelp water plague. These alien species got to Ankkalampe because someone emptied the pond's aquarium.
 
@@ -38,7 +38,7 @@ The works have already cost the city of Paimio more than 100,000 euros.
 
 ## Big costs in the world
 
-![For example, the giant pipe is a poisonous alien species. Photo: Riikka Pennanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2916,w_5184,x_0,y_235/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1625747532/39-82999760e6e9e0884bc)
+![For example, the giant pipe is a poisonous alien species. Photo: Riikka Pennanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2916,w_5184,x_0,y_235/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1625747532/39-82999760e6e9e0884bc)
 
 The World Nature Panel says that harmful alien species cause costs of around 400 billion euros worldwide every year.
 
@@ -57,3 +57,4 @@ Alien species are harmful in many ways, and they cause big costs.
 Harmful alien species may not be brought into Finland.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

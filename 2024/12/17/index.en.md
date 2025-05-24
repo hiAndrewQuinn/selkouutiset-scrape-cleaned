@@ -69,3 +69,4 @@ Still a weather forecast.
 The weather is breezy and fairly cloudy. Cloudiness may be patchy in the east and north.
 
 It is freezing almost all over the country. In the north, temperatures are as low as 30 degrees Celsius in some places.
+

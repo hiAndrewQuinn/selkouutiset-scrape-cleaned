@@ -45,3 +45,4 @@ The weather will vary on Tuesday in Finland.
 It is cloudy and sunny in the south. Elsewhere, it rains and may also thunder.
 
 The temperature is 15 to 20 degrees.
+

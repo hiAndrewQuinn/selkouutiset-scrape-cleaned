@@ -10,7 +10,7 @@ Now we will tell you more about young men's alcohol use.
 
 ## Historical change in alcohol use
 
-![ Photo: Joel Peltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1235,w_2197,x_0,y_893/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1690180005/39-114649464be1564d749e)
+![ Photo: Joel Peltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1235,w_2197,x_0,y_893/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1690180005/39-114649464be1564d749e)
 
 There has been a big change in alcohol use in Finland. Adult young men drink less alcohol than before.
 
@@ -26,7 +26,7 @@ THL has studied the drinking habits of Finns for over 50 years. The latest resea
 
 ## Alcohol, health and social media
 
-![ Photo: Simo Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1966,w_3496,x_13,y_2057/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1703836306/39-1221335658e750195d38)
+![ Photo: Simo Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1966,w_3496,x_13,y_2057/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1703836306/39-1221335658e750195d38)
 
 Young men drink less alcohol because, for example, health is important to them.
 
@@ -40,7 +40,7 @@ Young people are afraid that when they are drunk they will do something stupid a
 
 ## Dropless January
 
-![ Photo: Riika Raitio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_756/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1674578255/39-106336963d008c7ccb2d)
+![ Photo: Riika Raitio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_756/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1674578255/39-106336963d008c7ccb2d)
 
 There has been a desire to encourage abstinence among young men for a long time.
 
@@ -63,3 +63,4 @@ Young men no longer drink as much alcohol as before, which means they are more s
 The change is historic.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

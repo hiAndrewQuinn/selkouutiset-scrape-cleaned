@@ -22,7 +22,7 @@ Early voting continues until tomorrow, Tuesday.
 
 The European elections are held in all EU countries. A total of 720 representatives are elected to the European Parliament. 15 representatives will be elected from Finland.
 
-More information about the European elections in plain language can be found at![selkokeskus.fi](https://selkokeskus.fi/).
+More information about the European elections in plain language can be found at [selkokeskus.fi](https://selkokeskus.fi/).
 
 ## Motor Insurance
 
@@ -59,3 +59,4 @@ Another weather forecast.
 Tomorrow the sun will shine in a large part of the country. In the north, it rains and thunders in some places.
 
 It is hot in the south and east. In the west and north, the temperature is around 20 degrees.
+

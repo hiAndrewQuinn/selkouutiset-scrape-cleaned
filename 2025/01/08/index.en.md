@@ -55,3 +55,4 @@ Still a weather forecast.
 Scattered snowfall or rain will occur in the southern part of the country. Elsewhere, there will be light rain.
 
 In the south, the temperature is between 0 and +2 degrees, in the central and northern parts of the country between -7 and -25 degrees.
+

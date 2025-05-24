@@ -75,3 +75,4 @@ It is snowing a lot in Kilpisjärvi and the driving weather is bad.
 It's raining elsewhere. The temperature is below 10 degrees.
 
 In the south, the weather is sunny. It's almost 20 degrees.
+

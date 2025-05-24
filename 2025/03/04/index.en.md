@@ -63,3 +63,4 @@ The rain area is moving quickly across Finland. There may also be gusts of wind.
 It doesn't rain in the north, and it's freezing there.
 
 In the south it can be 9 degrees Celsius.
+

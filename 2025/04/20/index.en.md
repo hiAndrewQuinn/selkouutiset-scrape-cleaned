@@ -36,7 +36,7 @@ The price of cocoa on the world market has risen sharply in recent years due to 
 
 ## Can cocoa be replaced?
 
-![Cocoa beans. Photo: Yle / Hanna Othman](https://images.cdn.yle.fi/image/upload/c_crop,h_3372,w_6000,x_0,y_309/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1711543024/39-4190645984932f8cbb3)
+![Cocoa beans. Photo: Yle / Hanna Othman](https://images.cdn.yle.fi/image/upload/c_crop,h_3372,w_6000,x_0,y_309/ar_1.777777777777777 7,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1711543024/39-4190645984932f8cbb3)
 
 Climate change threatens to put an end to cocoa farming, which is why confectioners are looking for new ways to make chocolate.
 
@@ -61,3 +61,4 @@ Fazer has already made chocolate from rye malt.
 It may also be that in the future, cocoa beans can be grown using cell culture.
 
 That's all for today. See you again next week.
+

@@ -14,7 +14,7 @@ Now we will tell you more about it.
 
 ## Too few babies
 
-![There are statistics on the number of babies since the 18th century. Photo: Pirkko Kukko-Liedes / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_0,y_494/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1704999792/39-122685765a03abea7c5e)
+![There are statistics on the number of babies since the 18th century. Photo: Pirkko Kukko-Liedes / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_0,y_494/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1704999792/39-122685765a03abea7c5e)
 
 Politicians are trying to get more babies into Finland.
 
@@ -30,7 +30,7 @@ That is why there will probably be far fewer Finns in the future than now.
 
 ## New statement
 
-![Research professor Anna Rotkirch. Photo: Patrik Molander / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_40/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1728564375/39-13612666707995255315)
+![Research professor Anna Rotkirch. Photo: Patrik Molander / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_40/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1728564375/39-13612666707995255315)
 
 Politicians are trying to get more babies into Finland.
 
@@ -52,7 +52,7 @@ Many young women do not understand that fertility declines before middle age.
 
 ## Money and services
 
-![Services for families with children must be maintained. Photo: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3287,w_5844,x_0,y_121/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695638511/39-117653065115d550f6a4)
+![Services for families with children must be maintained. Photo: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3287,w_5844,x_0,y_121/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1695638511/39-117653065115d550f6a4)
 
 Professor Anna Rotkirch's analysis says that it is good to have the first child at a young age if more babies are wanted.
 
@@ -73,3 +73,4 @@ The state must give financial support to young mothers, says Rotkirch.
 Services for families with children must also be in order.
 
 This was Uutisviikko in clear Finnish. See you again. Goodbye!
+

@@ -65,3 +65,4 @@ It snows in Lapland, water elsewhere.
 The weather is getting colder.
 
 The temperature is mostly between -2 and +7 degrees.
+

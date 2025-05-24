@@ -67,3 +67,4 @@ Cloudiness varies across the country, but the sun may shine.
 Sleet and snow may fall in Western Lapland.
 
 The temperature is around 2 - 8 degrees. It can be freezing in the north.
+

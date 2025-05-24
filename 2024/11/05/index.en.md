@@ -55,3 +55,4 @@ Death in Venice is a new performance by the Finnish National Ballet.
 The famous American dance artist **John Neumeier** has designed the dances for the show.
 
 Finnish **Atte Kilpinen** will be seen in the role of Tadzio. He has danced the role of Tadzio before in Hamburg.
+

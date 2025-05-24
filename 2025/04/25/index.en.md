@@ -47,3 +47,4 @@ Nature expert Mikko Pöyhönen is enthusiastic:
 Still a weather forecast.
 
 The weather is breezy, meaning it's not raining. The sun is shining in many places. The weather is cold. It's freezing in the north.
+

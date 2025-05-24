@@ -43,3 +43,4 @@ There are fewer companies that repair goods than before. There are especially fe
 Still a weather forecast.
 
 Tomorrow, Wednesday, the sun will shine. In Lapland, it may snow a little at times. The temperature will be between 0 and -8 degrees. The wind will be weak to moderate.
+

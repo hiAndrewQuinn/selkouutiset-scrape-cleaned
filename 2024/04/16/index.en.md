@@ -30,7 +30,7 @@ Some schools have a lot of applications for upper secondary school. For example,
 
 A school calculator has been published on Yle's website, where you can see how different schools apply for postgraduate studies.
 
-### ![[More: ]Huge differences between schools -- see on the school machine how your local school is applied to a high school or high school](https://yle.fi/a/74-20081385)
+### [[More: ]Huge differences between schools -- see on the school machine how your local school is applied to a high school or high school](https://yle.fi/a/74-20081385)
 
 ## Circus life
 
@@ -55,3 +55,4 @@ Another weather forecast.
 Wednesday is a cold day. There is frost in the east and north. There are a few plus degrees in the south and west.
 
 The weather is mostly cloudy, but in some places the sun shines in the east and north. It may rain a little rain or snow in the south-west.
+

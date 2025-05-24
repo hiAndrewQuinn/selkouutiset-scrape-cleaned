@@ -10,7 +10,7 @@ We will now tell you more about the change of president.
 
 ## Subbi's presidency began
 
-![President of the Republic Alexander Stubb. Image: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_80/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709300151/39-125164865e1b5b937021)
+![President of the Republic Alexander Stubb. Image: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_80/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1709300151/39-125164865e1b5b937021)
 
 Alexander Stubb is now the president of the Republic of Finland.
 
@@ -22,7 +22,7 @@ Alexander Stubb and Sauli Niinistö also gave a speech.
 
 ## Stubb's speech
 
-![ Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_68/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709306433/39-125208265e1ef33ebc6c)
+![ Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_68/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1709306433/39-125208265e1ef33ebc6c)
 
 President Alexander Stubb said in his speech that Finland must work for peace. Russia's attack on Ukraine changed the world and Finland is now a member of the defense alliance NATO.
 
@@ -34,7 +34,7 @@ As president, Stubb promised to talk to people and defend democracy and the rule
 
 ## Niinistö's speech
 
-![ Photo: Benjamin Suomela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3267,w_5808,x_0,y_505/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709288205/39-125156665e1a98fdcb9f)
+![ Photo: Benjamin Suomela / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3267,w_5808,x_0,y_505/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1709288205/39-125156665e1a98fdcb9f)
 
 So Sauli Niinistö's presidential term is over.
 
@@ -49,3 +49,4 @@ The topic of the news week was that the president of Finland has changed. Let's 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
 
 More on the topic:
+

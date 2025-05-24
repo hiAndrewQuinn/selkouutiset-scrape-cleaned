@@ -60,3 +60,4 @@ On Friday, the weather will be cloudy and sunny.
 It's cloudy in Lapland.
 
 The temperature is between -5 and -15 degrees, in the North it is colder in some places.
+

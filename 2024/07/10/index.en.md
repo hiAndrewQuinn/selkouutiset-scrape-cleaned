@@ -51,3 +51,4 @@ On Thursday, the weather will vary in Finland.
 It is raining in the west and Lapland. In rainy areas, the temperature is below 20 degrees.
 
 In the east there is rain and heat. The temperature can be up to 28 degrees in the east.
+

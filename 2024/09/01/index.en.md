@@ -10,7 +10,7 @@ Now we will tell you more about the Paralympians.
 
 ## Paralympics underway
 
-![Photo: IMAGO/Inpho Photography/ All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_3042,w_5408,x_0,y_506/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724767983/39-133953966cddeb3e178e)
+![Photo: IMAGO/Inpho Photography/ All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_3042,w_5408,x_0,y_506/ar_1.7777777777777777,c_fill,g_faces,h_431, w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724767983/39-133953966cddeb3e178e)
 
 The Paralympics are currently competing in the French capital, Paris. Athletes with a disability take part in the competitions. The athlete has a movement disability, visual impairment or developmental disability.
 
@@ -20,7 +20,7 @@ The Paris Paralympics will end on September 8. You can watch the Paralympics on 
 
 ## Finns at the Paris Paralympics
 
-![Photo: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_843,w_1500,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724938039/39-134084566d0772123875)
+![Photo: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_843,w_1500,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1724938039/39-134084566d0772123875)
 
 16 Finnish athletes will participate in the Paris Paralympics. Finland's goal at the Games is 6 medals. Finnish athletes will compete in Paris in 6 different sports.
 
@@ -30,7 +30,7 @@ At the Tokyo Paralympics in 2021, Finland received a total of 5 medals. At the 2
 
 ## History of para sports
 
-![Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2965,w_5272,x_0,y_15/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1697696262/39-11882716530bd7ac2d4f)
+![Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2965,w_5272,x_0,y_15/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1697696262/39-11882716530bd7ac2d4f)
 
 The history of para sports, i.e. disabled sports, is connected to the Second World War. After the war, many people had some sort of disability. They wanted to organize sports competitions for people with physical disabilities.
 
@@ -45,3 +45,4 @@ The Paris Paralympics are currently underway. The Paralympics are a competition 
 16 Finnish athletes are participating in the competitions.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

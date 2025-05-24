@@ -37,3 +37,4 @@ The Summer Olympics begin in Paris at the end of July. The Olympics last more th
 Another weather forecast.
 
 In the southern and central parts of the country, a little snow falls in some places. It doesn't rain in Lapland and the coast of Ostrobothnia. The temperature is below zero in almost the entire country. On the southern coast, the temperature is on the positive side.
+

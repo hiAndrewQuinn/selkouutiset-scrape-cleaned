@@ -67,3 +67,4 @@ Finland is a safe country where public services function well and people can tru
 Healthcare also works well in Finland, although there is a lot of talk about its problems.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

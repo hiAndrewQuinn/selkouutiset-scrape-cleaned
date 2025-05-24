@@ -10,7 +10,7 @@ Now we will tell you more about scabies.
 
 ## Scabies causes the skin to itch
 
-![ Photo: Aada Ramstedt's home album.](https://images.cdn.yle.fi/image/upload/c_crop,h_420,w_748,x_2,y_28/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709137163/39-1186091652926a54f3e0)
+![ Photo: Aada Ramstedt's home album.](https://images.cdn.yle.fi/image/upload/c_crop,h_420,w_748,x_2,y_28/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1709137163/39-1186091652926a54f3e0)
 
 Scabies is not a dangerous disease. However, scabies is a nasty disease because the skin is dry and itches a lot because of scabies.
 
@@ -22,7 +22,7 @@ Scabies is also more common in other parts of Europe than before. Experts do not
 
 ## Scabies is contagious
 
-![ Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1613473760/39-774579602ba6bb4ef81)
+![ Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1613473760/39-774579602ba6bb4ef81)
 
 Scabies is contagious from person to person. Scabies is contagious when a person touches another person for a long time.
 
@@ -34,7 +34,7 @@ Scabies is not contagious during short contact. That's why scabies usually doesn
 
 ## The doctor identifies the cause
 
-![ Photo: Sasha Silvala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3121,w_5549,x_0,y_333/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709138675/39-125075565df62a2a0480)
+![ Photo: Sasha Silvala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3121,w_5549,x_0,y_333/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1709138675/39-125075565df62a2a0480)
 
 The symptoms of scabies are similar to many other skin diseases. If you suspect scabies, you should see a doctor. Your doctor will determine if you have scabies.
 
@@ -51,3 +51,4 @@ Scabies is a nasty disease, but scabies is not dangerous. Scabies is contagious 
 If you suspect scabies, you should see a doctor.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

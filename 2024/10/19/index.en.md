@@ -14,7 +14,7 @@ Now we will tell you more about it.
 
 ## An ex-boyfriend confessed
 
-![Janne Puhakka. Photo: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_310/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1728977070/39-1363635670d231d5b8b1)
+![Janne Puhakka. Photo: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_310/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1728977070/39-1363635670d231d5b8b1)
 
 Former ice hockey player Janne Puhakka died when he was visiting his former home.
 
@@ -28,7 +28,7 @@ Nordmo is shocked and sorry, the police say. Janne Puhakka was 29 years old.
 
 ## Successful ice hockey player
 
-![Janne Puhakka was a former ice hockey player. Photo: Jari Pekkarinen / All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_1540,w_2738,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1572164655/39-6046705db5540903972)
+![Janne Puhakka was a former ice hockey player. Photo: Jari Pekkarinen / All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_1540,w_2738,x_0,y_51/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1572164655/39-6046705db5540903972)
 
 Janne Puhakka, who died last Sunday, was a former professional ice hockey player.
 
@@ -44,7 +44,7 @@ Puhakka also appeared in a television program.
 
 ## An exceptional case
 
-![Candles in front of Janne Puhaka's former home. Photo: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_553/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1729000333/39-1364222670e733cb6ac9)
+![Candles in front of Janne Puhaka's former home. Photo: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_553/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1729000333/39-1364222670e733cb6ac9)
 
 Janne Puhaka's death was exceptional in many ways. The police suspect that Puhaka was killed by a former boyfriend.
 
@@ -73,3 +73,4 @@ The police suspect that a former boyfriend killed Janne Puhaka
 Puhaka's death sparked a discussion about intimate partner violence
 
 This was Uutisviikko in clear Finnish. See you again, by the way!
+

@@ -4,7 +4,7 @@ Strikes. Eastern border. International Equality Award. Use of Yle Areena. Foreca
 
 ### Strikes on Thursday
 
-![A strike can stop, for example, subway traffic. Photo: Ronnie Holmberg / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_119/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1680005990/39-10914126422daa3b3499)
+![A strike can stop, for example, subway traffic. Photo: Ronnie Holmberg / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_119/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1680005990/39-10914126422daa3b3499)
 
 On Thursday, the strikes will stop train traffic and bus traffic on a large scale.
 
@@ -16,7 +16,7 @@ Mail delivery also stops. The strikes on Thursday will also affect, for example,
 
 ### Opening of the eastern border
 
-![Foreign Minister Elina Valtonen. Photo: Jorge González / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_175/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1694784991/39-117279165045b4502e3d)
+![Foreign Minister Elina Valtonen. Photo: Jorge González / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_175/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1694784991/39-117279165045b4502e3d)
 
 Finland is considering opening the eastern border. Foreign Minister **Elina Valtonen** says that Finland may be able to open the border gradually if Russia returns to normal operations.
 
@@ -26,7 +26,7 @@ The decision to close the eastern border ends on Thursday. The government must d
 
 ### International Equality Award
 
-![The Equality Award was accepted by Mahbouba Seraj from the Afghan Women's Skills Development Center. Photo: Marjut Suomi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_3,y_351/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702295629/39-12137716576f7081f562)
+![The Equality Award was accepted by Mahbouba Seraj from the Afghan Women's Skills Development Center. Photo: Marjut Suomi / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_3,y_351/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702295629/39-12137716576f7081f562)
 
 Finland's international equality prize has been awarded to an organization that defends the rights of Afghan women. The name of the organization is Afghan Women Skills Development Center. It organizes training and support for Afghan women.
 
@@ -36,7 +36,7 @@ Finland awards an international equality prize every two years. The award was gi
 
 ### Change of Yle Areena
 
-![Yle ID can be created at arena.yle.fi](https://images.cdn.yle.fi/image/upload/c_crop,h_1440,w_2560,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1521812566/39-4736775ab50425c1d2b)
+![Yle ID can be created at arena.yle.fi](https://images.cdn.yle.fi/image/upload/c_crop,h_1440,w_2560,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675, w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1521812566/39-4736775ab50425c1d2b)
 
 The use of Yle Areena's mobile application will change on Tuesday. With the mobile application, Areena is used, for example, on mobile phones and tablets.
 
@@ -46,6 +46,6 @@ With Yle's ID, it is also easy to continue a program that you have missed listen
 
 ### Weather
 
-![There is a lot of frost in the north.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702311145/39-1214017657734c899dca)
+![There is a lot of frost in the north.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0 /q_auto:eco/f_auto/fl_lossy/v1702311145/39-1214017657734c899dca)
 
 Tuesday will be mostly cloudy. It's snowing a little in the south. In southern Finland, the temperature is between -7 and -13 degrees. It's colder in the north. The temperature can be -25 degrees in the north.

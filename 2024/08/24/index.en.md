@@ -6,7 +6,7 @@ The topic of the news week is corona vaccinations. Corona vaccinations are given
 
 ## Corona vaccinations are about to start
 
-![People over 80 will receive a corona vaccination this fall earlier than a year ago. Photo: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_628/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1616604573/39-77158860215f481cf9b)
+![People over 80 will receive a corona vaccination this fall earlier than a year ago. Photo: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_628/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1616604573/39-77158860215f481cf9b)
 
 This autumn's corona vaccinations are about to start.
 
@@ -20,7 +20,7 @@ Other risk groups can be vaccinated later in the fall. Other risk groups include
 
 ## Last year, corona vaccinations were delayed
 
-![Corona often takes the elderly to hospital. Photo: Aleksei Gorodenkov / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1687836272/39-1079791640023a047114)
+![Corona often takes the elderly to hospital. Photo: Aleksei Gorodenkov / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1687836272/39-1079791640023a047114)
 
 A year ago, all risk groups only received the corona vaccination in late autumn at the same time as the flu vaccination. Many managed to get corona infected before they got vaccinated.
 
@@ -28,7 +28,7 @@ That is why corona vaccinations are given to old and weak people earlier this ye
 
 ## No additional vaccinations for healthy people of working age
 
-![Healthy people of working age can get corona at home. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3361,w_5987,x_0,y_250/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714387783/39-124947465dc85f0cddc1)
+![Healthy people of working age can get corona at home. Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3361,w_5987,x_0,y_250/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1714387783/39-124947465dc85f0cddc1)
 
 The Department of Health and Welfare says that healthy working-age people do not need additional vaccinations against corona.
 
@@ -47,3 +47,4 @@ Healthy working-age people do not need additional vaccinations against corona. T
 Good hand hygiene prevents corona infections.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

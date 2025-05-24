@@ -57,3 +57,4 @@ The new leader of the Catholic Church, or Pope, is the American Robert Francis P
 Many experts believe that the new Pope Leo XIV will continue the line of the previous Pope Francis and support many reforms. Prevost's style is moderate and modest.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

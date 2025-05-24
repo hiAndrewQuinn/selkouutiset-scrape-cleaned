@@ -59,3 +59,4 @@ Many drive with old tires for too long because they have little money and new ti
 ## Weather
 
 Another weather forecast. In the morning, it has snowed in the southern and central parts of the country. The day is dusty in many places. Weak snow or rain may occur in the southern and western parts of the country, however. The temperature is mainly between -5 and +5 degrees, it is colder in Northern Lapland.
+

@@ -6,7 +6,7 @@ Here is Uutisviikko in plain Finnish and Pertti Seppä. This time the topic of t
 
 ## The case of Valkeakoski
 
-![Candles have been brought to the place where the girl was found. Photo: Jorma Vihtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_182/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1716732402/39-12913106653409664a21)
+![Candles have been brought to the place where the girl was found. Photo: Jorma Vihtonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_182/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1716732402/39-12913106653409664a21)
 
 Finns have been shocked by the death of a young girl. The girl died at the weekend in Valkeakoski, Southern Finland.
 
@@ -22,7 +22,7 @@ The case also arouses fear in many young people.
 
 ## Number of homicides
 
-![There are fewer murders than before. Photo: Anu Leena Hankaniemi / Yle, Matias Väänänen / Yle, image editing: Matias Väänänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708091207/39-124559265cf66d04696f)
+![There are fewer murders than before. Photo: Anu Leena Hankaniemi / Yle, Matias Väänänen / Yle, image editing: Matias Väänänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1. 7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1708091207/39-124559265cf66d04696f)
 
 However, it is good to remember that homicides have decreased.
 
@@ -32,7 +32,7 @@ The number is clearly lower than, for example, 30 or 20 years ago.
 
 ## Finnish homicides
 
-![In Finland, homicides are often committed in homes. Photo: Petri Aaltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1294,w_2300,x_0,y_248/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1631191007/39-6386245e3980c4896a8)
+![In Finland, homicides are often committed in homes. Photo: Petri Aaltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1294,w_2300,x_0,y_248/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1631191007/39-6386245e3980c4896a8)
 
 Crime Commissioner Pasi Nieminen confirms that serious violence has decreased in Finland.
 
@@ -60,4 +60,5 @@ Last year, fewer homicides were committed in Finland than ever before.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
 
-![Also read and listen to Uutisviikko about voting in the European elections.](https://yle.fi/a/74-20090541)
+[Also read and listen to Uutisviikko about voting in the European elections.](https://yle.fi/a/74-20090541)
+

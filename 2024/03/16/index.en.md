@@ -6,7 +6,7 @@ The topic of the news week is the Finnish primary school. There are bigger diffe
 
 ## Differences between schools
 
-![ Photo: Kalle Niskala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3147,w_5595,x_0,y_469/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710319189/39-125688465f1626c2b8a1)
+![ Photo: Kalle Niskala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3147,w_5595,x_0,y_469/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1710319189/39-125688465f1626c2b8a1)
 
 The differences between schools are even greater in Finland. In some schools, the majority of students do well. In some schools, on the other hand, children's learning results are poor.
 
@@ -18,7 +18,7 @@ In the capital region, some schools have many students with an immigrant backgro
 
 ## Learning outcomes
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_95/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700419794/39-1203088655a57e032b5a)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_95/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/ f_auto/fl_lossy/v1700419794/39-1203088655a57e032b5a)
 
 The learning results of Finnish youth are worse than before. Young people's literacy is worse than before. Young people also know mathematics worse than before.
 
@@ -26,7 +26,7 @@ However, the learning results of Finnish young people are still better than in m
 
 ## Closing schools
 
-![Niittylahti elementary school ended up among the village schools to be abolished on 22.1.24. Photo: Siru Päivinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_567/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1706267844/39-123355165b3936896abb)
+![Niittylahti elementary school ended up among the village schools to be abolished on 22.1.24. Photo: Siru Päivinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4028,x_0,y_567/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1706267844/39-123355165b3936896abb)
 
 There will soon be so few children in Finland that municipalities will have to close schools. Not all schools have enough students. Especially small schools in rural areas must be closed.
 
@@ -39,3 +39,4 @@ In 2030, there will be perhaps 80,000 fewer elementary school students in Finlan
 The topic of the news week was a Finnish elementary school. Let's repeat the most important things. There are bigger differences between schools than before. The learning results of young Finns have weakened. Schools will have to be closed in the future, because only a few children are born in Finland.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

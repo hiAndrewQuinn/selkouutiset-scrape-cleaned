@@ -4,7 +4,7 @@ UN climate conference. Thursday strikes. Support measurement for the presidentia
 
 ### UN climate conference
 
-![President of the UN climate conference Sultan Al Jaber. Photo: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3312,w_5889,x_0,y_92/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702452877/39-121463665795d88c3567)
+![President of the UN climate conference Sultan Al Jaber. Photo: Juha Kivioja / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3312,w_5889,x_0,y_92/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702452877/39-121463665795d88c3567)
 
 The UN climate conference in Dubai has adopted a historic resolution.
 
@@ -14,7 +14,7 @@ According to the resolution, we must move away from the fossil energy system in 
 
 ### Thursday strike day
 
-![Wide strikes will disrupt public transport tomorrow. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1900,w_3379,x_0,y_654/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701335434/39-1208808656845cd0862c)
+![Wide strikes will disrupt public transport tomorrow. Photo: Jani Aarnio / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1900,w_3379,x_0,y_654/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1701335434/39-1208808656845cd0862c)
 
 Tomorrow, Thursday, is a big strike day in Finland.
 
@@ -42,7 +42,7 @@ The presidential election will be held in January.
 
 ### St. Lucia's day
 
-![Miss Lucia Madeleine Amoroso got a crown of candles on her head. Photo: Yle / Marcus Rosenlund](https://images.cdn.yle.fi/image/upload/c_crop,h_2187,w_3888,x_0,y_224/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702484026/39-12150946579cd140b42c)
+![Miss Lucia Madeleine Amoroso got a crown of candles on her head. Photo: Yle / Marcus Rosenlund](https://images.cdn.yle.fi/image/upload/c_crop,h_2187,w_3888,x_0,y_224/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702484026/39-12150946579cd140b42c)
 
 Today is Lucia's day.
 
@@ -52,7 +52,7 @@ During the winter, Maiden Lucia visits, for example, schools, hospitals and nurs
 
 ### Weather
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702474076/39-12149876579b12fb0574)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1702474076/39-12149876579b12fb0574)
 
 Tomorrow, Thursday, it will snow a little in the southern and eastern parts of the country. There is pouta in the west and Lapland.
 

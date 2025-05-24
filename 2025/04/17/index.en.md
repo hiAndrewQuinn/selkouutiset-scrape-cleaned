@@ -69,3 +69,4 @@ It will be cloudy elsewhere. There will be some rain in Lapland.
 The temperature may rise to close to 25 degrees in the south.
 
 The weather will cool down and become rainier in places over the weekend.
+

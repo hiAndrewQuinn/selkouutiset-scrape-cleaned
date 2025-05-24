@@ -59,3 +59,4 @@ Another weather forecast.
 Saturday will be sunny and summer-like warm, there will be rain or thunder showers in some places in Lapland.
 
 The temperature is mainly 19 to 25 degrees, the west is the warmest.
+

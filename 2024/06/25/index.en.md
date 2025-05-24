@@ -43,3 +43,4 @@ Another weather forecast.
 Tomorrow, Wednesday, it will rain a little in Lapland. The temperature in Lapland is around 20 degrees.
 
 The sun is shining in the rest of Finland. The temperature is between 25 and 30 degrees.
+

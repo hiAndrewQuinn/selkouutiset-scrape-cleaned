@@ -65,3 +65,4 @@ It is dusty in Northern Lapland.
 The temperature is 10-15 degrees, it is colder in Lapland.
 
 Wind gusts are strong on the south coast.
+

@@ -55,3 +55,4 @@ Heathrow Airport in London will be closed throughout Friday. There may be disrup
 Still a weather forecast.
 
 The sun is shining all over the country. The temperature is above zero. In the southern part of the country, it is warm in places above +10 degrees.
+

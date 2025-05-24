@@ -59,3 +59,4 @@ Tomorrow it will snow in the southern part of the country and Eastern Lapland.
 In the central part of the country and in Western Lapland, the sky is clear, meaning there are no clouds in the sky.
 
 Temperatures are below freezing throughout the country.
+

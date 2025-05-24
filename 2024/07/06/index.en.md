@@ -10,7 +10,7 @@ Now we will tell you more about the Saimaa norma.
 
 ## The Saimaan grouse lives only in Finland
 
-![Photo: Jouni Koskela](https://images.cdn.yle.fi/image/upload/c_crop,h_2916,w_5184,x_0,y_113/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1612868884/39-77190860226cd4c7cef)
+![Photo: Jouni Koskela](https://images.cdn.yle.fi/image/upload/c_crop,h_2916,w_5184,x_0,y_113/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1612868884/39-77190860226cd4c7cef)
 
 The Saimaa fur seal is a seal that only lives in Finland. The Saimaa norppa lives in Eastern Finland in Saimaa, which is Finland's largest lake.
 
@@ -20,7 +20,7 @@ The Saimaan grouse is a rare and highly endangered species, i.e. in danger of di
 
 ## Saimaa's net fishing ban ended
 
-![Dead Saimaa Norse Kuutti, or chick, in a fishing net. Photo of Metsähallitus on 20 September 2023. Photo: Metsähallitus](https://images.cdn.yle.fi/image/upload/c_crop,h_2035,w_3619,x_0,y_367/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1695209688/39-1174652650ad6130ad2d)
+![Dead Saimaa Norse Kuutti, or chick, in a fishing net. Photo of Metsähallitus on 20 September 2023. Photo: Metsähallitus](https://images.cdn.yle.fi/image/upload/c_crop,h_2035,w_3619,x_0,y_367/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1695209688/39-1174652650ad6130ad2d)
 
 Attempts have been made to protect the Saimaa norpa by limiting net fishing in Saimaa. The annual internet ban in Saimaa's restricted area started in mid-April and ended at the end of June.
 
@@ -32,7 +32,7 @@ Petteri Tolvanen, WWF Finland's program director, says that norsk dies in nets s
 
 ## Nets and traps are dangerous in all seasons
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1536237070/39-5080265b911dc69e8f9)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/ f_auto/fl_lossy/v1536237070/39-5080265b911dc69e8f9)
 
 Nets are dangerous for whitefish all year round. A friend of ferrets fishes with gear that is safe for ferrets.
 
@@ -42,7 +42,7 @@ However, not everyone makes a report. That's why every drowning of a norpa in th
 
 ## The Saimaa norpa still needs protection
 
-![Saimaannorpa's chick, or kuutti. Photo: Jouni Koskela](https://images.cdn.yle.fi/image/upload/c_crop,h_1517,w_2696,x_0,y_282/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1612862641/39-7718226022537863f02)
+![Saimaannorpa's chick, or kuutti. Photo: Jouni Koskela](https://images.cdn.yle.fi/image/upload/c_crop,h_1517,w_2696,x_0,y_282/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto: eco/f_auto/fl_lossy/v1612862641/39-7718226022537863f02)
 
 The number of Saimaa norppa is currently about 480. The norppa sometimes completely disappeared from, for example, North Saimaa.
 
@@ -52,4 +52,5 @@ In addition to the online ban, people help the norpa in the winter. Snow cones h
 
 Saimaan Norpa cubs are born in February--March.
 
-![Photo: Saara-Miira Kokkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705499866/39-122931865a7da649026a)
+![Photo: Saara-Miira Kokkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/ dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705499866/39-122931865a7da649026a)
+

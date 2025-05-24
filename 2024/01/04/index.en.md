@@ -67,3 +67,4 @@ It is mainly powdery. It is snowing in places in the southern part of the countr
 The cold is still intense. In the south, the temperature is between -15 and -20 degrees.
 
 In the central and northern parts of the country, the temperature is between -25 and -35 degrees, in some places it is even colder.
+

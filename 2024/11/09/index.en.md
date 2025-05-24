@@ -6,7 +6,7 @@ The big news of the week is that Donald Trump is the winner of the US presidenti
 
 ## Election winner Trump
 
-![Donald Trump will return to the presidency in January. Photo: Chip Somodevilla / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1730882285/39-1375599672b1c6d77c57)
+![Donald Trump will return to the presidency in January. Photo: Chip Somodevilla / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1730882285/39-1375599672b1c6d77c57)
 
 There were presidential elections in the USA this week. The winner of the election is Donald Trump of the Republican Party. He defeated Democrat Kamala Harris. Trump takes office as president in January.
 
@@ -16,7 +16,7 @@ Many Finns hoped that Harris would win the US elections. The reason is that Trum
 
 ## Trump's economic policy
 
-![A lot of goods are exported from Finland to the USA. Photo: Jaana Polamo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1730448839/39-137313667248daa5acfa)
+![A lot of goods are exported from Finland to the USA. Photo: Jaana Polamo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1730448839/39-137313667248daa5acfa)
 
 Trump plans to make changes at least in the economy.
 
@@ -28,7 +28,7 @@ It is not yet known which goods Trump wants tariffs on. However, customs are bad
 
 ## Trump's foreign policy
 
-![Finland has ordered 64 such F-35 military aircraft from the USA. Photo: Sgt. Scyrrus Corregidor / U.S. Army ](https://images.cdn.yle.fi/image/upload/c_crop,h_562,w_1000,x_0,y_84/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1725561339/39-134442066d9f986e8db3)
+![Finland has ordered 64 such F-35 military aircraft from the USA. Photo: Sgt. Scyrrus Corregidor / U.S. Army ](https://images.cdn.yle.fi/image/upload/c_crop,h_562,w_1000,x_0,y_84/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto /fl_lossy/v1725561339/39-134442066d9f986e8db3)
 
 Trump can also make changes in US foreign policy.
 
@@ -47,3 +47,4 @@ Finnish companies' exports to the USA may decrease if Trump raises customs dutie
 Trump can weaken the defense alliance NATO, but the defense cooperation between Finland and the USA will continue.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

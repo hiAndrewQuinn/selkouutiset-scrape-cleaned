@@ -10,7 +10,7 @@ Now we will tell you why the European elections are important.
 
 ## Big election
 
-![The EU Parliament is in Brussels. Photo: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_260/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1715174150/39-1282232663b7948d6e41)
+![The EU Parliament is in Brussels. Photo: Mimmi Nietula / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_260/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1715174150/39-1282232663b7948d6e41)
 
 Euro elections are held once every five years.
 
@@ -22,7 +22,7 @@ The EU Parliament has a lot of power when the EU makes laws. Those laws affect a
 
 ## The most popular parties
 
-![The most popular party in the European elections is the coalition, the 2nd most popular is the SDP, the 3rd most popular is Basic Finns, and the 4th most popular is the centre. Photo: Dmitry Rukhlenko / AOP, Silja Viitala / Yle ja eduskunta, graphics: Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_2160,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714632055/39-12786506630d7f849a3d)
+![The most popular party in the European elections is the coalition, the 2nd most popular is the SDP, the 3rd most popular is Basic Finns, and the 4th most popular is the centre. Photo: Dmitry Rukhlenko / AOP, Silja Viitala / Yle ja eduskunta, graphics: Nanna Särkkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3840,x_2160,y_0/ar_1. 7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714632055/39-12786506630d7f849a3d)
 
 The European elections are close.
 
@@ -60,4 +60,5 @@ The European Parliament has a lot of power over our lives.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
 
-![From this link you can access Yle's Eurovoting machine](https://vaalikone.yle.fi/vaalikone/eurovaalit2024).
+[From this link you can access Yle's Eurovoting machine](https://vaalikone.yle.fi/vaalikone/eurovaalit2024).
+

@@ -35,3 +35,4 @@ Many people travel by car to celebrate Midsummer. Finnish people are often at su
 ## Weather
 
 It's raining in Lapland. Elsewhere it's cloudy and the sun can shine. The wind may be strong in the south and central parts of the country. The temperature is between 15 and 22 degrees. In Lapland, the temperature is below 10 degrees.
+

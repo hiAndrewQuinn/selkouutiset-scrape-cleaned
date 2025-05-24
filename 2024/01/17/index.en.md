@@ -20,7 +20,7 @@ Early voting for the presidential election has begun.
 
 All adult Finnish citizens can vote in the presidential election.
 
-Information about the presidential election in plain language can be found at the websites![vaalit.fi](https://vaalit.fi/etusivu) and![selkokeskus.fi](https://selkokeskus.fi/).
+Information about the presidential election in plain language can be found at the websites [vaalit.fi](https://vaalit.fi/etusivu) and [selkokeskus.fi](https://selkokeskus.fi/).
 
 ## Shoplifting
 
@@ -67,3 +67,4 @@ On Thursday, it will snow in many places and the wind will be strong.
 In Lapland it is cloudy and quite sunny.
 
 The frost is 3-20 degrees, the coldest is in the north.
+

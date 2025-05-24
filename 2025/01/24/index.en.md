@@ -45,3 +45,4 @@ Finnish Evangelical Lutheran congregations collected just under 9 million euros 
 The amount is the highest in the 2020s.
 
 Usually, cash is put into the collection. In many churches, you can also pay for the collection with your mobile phone.
+

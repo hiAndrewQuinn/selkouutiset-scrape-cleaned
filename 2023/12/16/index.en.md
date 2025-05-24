@@ -4,7 +4,7 @@ Eastern border. Dog registry. Sports and cultural benefit. Exchange electricity.
 
 ### Eastern border closure
 
-![Prime Minister Petteri Orpo was a guest on Ylen's Ykkösaamu program on Saturday. Photo: Petteri Sopanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2244,w_3990,x_8,y_215/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702715024/39-1216651657d5e18a95c4)
+![Prime Minister Petteri Orpo was a guest on Ylen's Ykkösaamu program on Saturday. Photo: Petteri Sopanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2244,w_3990,x_8,y_215/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702715024/39-1216651657d5e18a95c4)
 
 The government is preparing new measures due to the situation on the eastern border. Finland opened the eastern border on Thursday. Russia immediately started sending asylum seekers to Finland. That's why Finland closed the border again on Friday.
 
@@ -14,7 +14,7 @@ Prime Minister Orpo estimates that Russia's actions are a hybrid attack against 
 
 ### Dog registry
 
-![All dogs must be registered in the dog registry. Photo: Petteri Sopanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2234,w_3973,x_0,y_366/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702045024/39-1213023657323ea99d24)
+![All dogs must be registered in the dog registry. Photo: Petteri Sopanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2234,w_3973,x_0,y_366/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702045024/39-1213023657323ea99d24)
 
 Finns have registered only a few dogs in the new dog register. All dogs must be registered by the end of the year. There are only about 2 weeks left. You can register online.
 
@@ -24,7 +24,7 @@ The purpose of the dog registry is to reduce puppy mills, i.e. the fact that a l
 
 ### Sports and cultural benefits
 
-![With the exercise benefit, you can go to the gym, for example. Photo: Jari Kärkkäinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4608,w_8192,x_0,y_405/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1694777243/39-117265665043f1d06df2)
+![With the exercise benefit, you can go to the gym, for example. Photo: Jari Kärkkäinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4608,w_8192,x_0,y_405/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1694777243/39-117265665043f1d06df2)
 
 Finns miss out on a lot of the exercise and cultural benefits of their workplaces. Many companies give their employees sports and culture vouchers. The benefit is tax-free for the employee.
 
@@ -34,7 +34,7 @@ Sports and culture vouchers must be used by the end of the year.
 
 ### Price of electricity
 
-![Many exchange electricity customers do your example's laundry when electricity is cheap. Photo: Nicole Hjelt / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_125/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702308686/39-1213985657728e08b02d)
+![Many exchange electricity customers do your example's laundry when electricity is cheap. Photo: Nicole Hjelt / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_125/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1702308686/39-1213985657728e08b02d)
 
 Exchange electricity is cheap again. The price of electricity drops to negative on the night between Saturday and Sunday.
 
@@ -44,7 +44,7 @@ Also on Saturday, the price of stock electricity was clearly cheaper than it was
 
 ### Weather
 
-![The sun will shine in a large part of the country on Sunday.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1702742300/39-1216705657dc8fb0fbe5)
+![The sun will shine in a large part of the country on Sunday.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1 .0/q_auto:eco/f_auto/fl_lossy/v1702742300/39-1216705657dc8fb0fbe5)
 
 At night, it snows in the north and east. It is raining and sleeting in the west and south.
 

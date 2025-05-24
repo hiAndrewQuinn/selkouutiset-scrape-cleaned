@@ -61,3 +61,4 @@ The sun is shining in the south. The temperature is +5 degrees or above.
 There are occasional snow showers in the north. The temperature is a bit below freezing.
 
 The weather is windy throughout the country. The wind is strong or strong in gusts.
+

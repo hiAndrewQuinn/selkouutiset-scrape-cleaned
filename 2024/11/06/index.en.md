@@ -37,3 +37,4 @@ Donald Trump was born in New York. He is a businessman and former television sta
 Another weather forecast.
 
 Tomorrow, Thursday, the whole country will be cloudy, that is, it won't rain. The sun is shining on the west coast and in some places also in the north. Mostly, however, the weather is cloudy. The temperature is on the positive side throughout the country.
+

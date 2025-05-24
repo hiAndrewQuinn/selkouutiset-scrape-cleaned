@@ -10,7 +10,7 @@ Now we will tell you more about it.
 
 ## Young people's literacy is declining
 
-![Young people's reading skills have weakened. However, literacy is needed for all kinds of learning. Photo: Yle, screenshot from the program Kansa Koulussa](https://images.cdn.yle.fi/image/upload/c_crop,h_1605,w_2853,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1617952078/39-792780606ffcd0f0573)
+![Young people's reading skills have weakened. However, literacy is needed for all kinds of learning. Photo: Yle, screenshot from the program Kansa Koulussa](https://images.cdn.yle.fi/image/upload/c_crop,h_1605,w_2853,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1617952078/39-792780606ffcd0f0573)
 
 The poor reading skills and poor learning results of young people with immigrant backgrounds are a cause for concern.
 
@@ -22,7 +22,7 @@ Researchers are particularly concerned about the poor reading skills of immigran
 
 ## Literacy is the key to learning
 
-![Abdul Rahman Atout says that he learns things when he listens, concentrates and memorizes well. Photo: Thomas Hagström / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2894,w_5146,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1727867051/39-135746466fd286fbf0a6)
+![Abdul Rahman Atout says that he learns things when he listens, concentrates and memorizes well. Photo: Thomas Hagström / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2894,w_5146,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1727867051/39-135746466fd286fbf0a6)
 
 Reading and reading comprehension is especially difficult for young people who are first-generation immigrants. About 60 percent of them have poor reading skills.
 
@@ -32,7 +32,7 @@ This is a cause for concern, as good literacy is the key to all learning. Weak l
 
 ## Language problems make learning difficult
 
-![Hasti Assiabi was born in Finland and speaks Finnish already better than his mother tongue Farsi. Photo: Thomas Hagström / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1920,w_3414,x_0,y_843/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1727867390/39-135747466fd29ba4ae38)
+![Hasti Assiabi was born in Finland and speaks Finnish already better than his mother tongue Farsi. Photo: Thomas Hagström / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1920,w_3414,x_0,y_843/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1727867390/39-135747466fd29ba4ae38)
 
 Students with an immigrant background also say that language problems make it difficult to learn at school.
 
@@ -47,3 +47,4 @@ The topic of the news week this time was the poor reading skills of young people
 Weak reading skills also weaken learning results in other subjects and make it difficult, for example, to get into postgraduate studies or working life.
 
 This was Uutisviikko in plain Finnish. Goodbye!
+

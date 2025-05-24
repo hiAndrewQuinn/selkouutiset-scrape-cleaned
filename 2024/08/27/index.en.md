@@ -69,3 +69,4 @@ It can rain in the north. Elsewhere, there is trouble.
 The whole country is cloudy.
 
 The temperature is around 20 degrees. It is cooler in rainy areas.
+

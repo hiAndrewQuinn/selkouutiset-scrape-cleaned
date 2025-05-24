@@ -20,7 +20,7 @@ Cinia says that the cable has been cut by some external force. Such forces can b
 
 The reason for the cable breaking can also be sabotage.
 
-![The submarine cable between Finland and Germany is blue in the picture. The break point is south of Gotland. The Swedish and Lithuanian cable is red in the picture. Photo: Ruuti Kotkanoja / Yle, Maiju Hakalahti / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1731959363/39-1381946673b99cb0901e)
+![The submarine cable between Finland and Germany is blue in the picture. The break point is south of Gotland. The Swedish and Lithuanian cable is red in the picture. Photo: Ruuti Kotkanoja / Yle, Maiju Hakalahti / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c _fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1731959363/39-1381946673b99cb0901e)
 
 ## Chinese ship
 
@@ -48,7 +48,7 @@ Finland's internet connections abroad have worked through other countries when t
 
 The cable between Sweden and Lithuania will also be repaired next week.
 
-![This photo is from 2015. That's when the laying of the Finnish and German submarine cable into the sea started. The cable was laid in Santahamina, Helsinki. Photo: Heikki Saukkomaa / Magazine image](https://images.cdn.yle.fi/image/upload/c_crop,h_2767,w_4920,x_8,y_441/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1732012234/39-1382168673c638abfcfa)
+![This photo is from 2015. That's when the laying of the Finnish and German submarine cable into the sea started. The cable was laid in Santahamina, Helsinki. Photo: Heikki Saukkomaa / Magazine image](https://images.cdn.yle.fi/image/upload/c_crop,h_2767,w_4920,x_8,y_441/ar_1.77777777777777 77,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1732012234/39-1382168673c638abfcfa)
 
 ## Repeat
 
@@ -65,3 +65,4 @@ Nordic and German authorities are investigating the cable break.
 However, it may be difficult for authorities to prove who broke the cables.
 
 This was a news week in plain Finnish. See you again, by the way!
+

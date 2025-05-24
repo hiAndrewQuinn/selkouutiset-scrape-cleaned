@@ -37,3 +37,4 @@ The last total solar eclipse was visible in Finland in 1990. The next total sola
 Another weather forecast.
 
 It will rain tomorrow, Wednesday, in the west and north. There is also thunder in places. In the south and east, it's raining, that is, it's not raining. The temperature will be above 15 degrees in some places in South-Eastern Finland on Wednesday. The temperature is lower in the rest of the country.
+

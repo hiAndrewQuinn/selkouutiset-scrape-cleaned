@@ -45,3 +45,4 @@ Another weather forecast.
 The temperature drops to freezing at night throughout the country. On Friday, it will be cloudy during the day. The sun shines in the north.
 
 In southeastern Finland, there are clouds in the sky and the wind is stronger than before.
+

@@ -69,3 +69,4 @@ Another weather forecast.
 On Tuesday, the weather will be cool and mostly cloudy. There will be snow showers in the east and north.
 
 The temperature is between 3 and 10 degrees, in the north it is colder in places.
+

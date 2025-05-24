@@ -38,7 +38,7 @@ There are medicines to treat scabies, but they are expensive.
 
 At least you don't get Kela reimbursement for scabies medicine yet.
 
-![Uutisviikko in clear Finnish](https://yle.fi/a/74-20077411) tells more about scabies. The program can be found at yle.fi/selkouutiset, under All broadcasts.
+[Uutisviikko in clear Finnish](https://yle.fi/a/74-20077411) tells more about scabies. The program can be found at yle.fi/selkouutiset, under All broadcasts.
 
 ## The history of Pohjola
 
@@ -65,3 +65,4 @@ The weather is cloudy, i.e. without rain. It is sunny in the south and west.
 In a large part of the country, the day is cloudy.
 
 After the night of frost, the temperature rises above zero in almost the entire country.
+

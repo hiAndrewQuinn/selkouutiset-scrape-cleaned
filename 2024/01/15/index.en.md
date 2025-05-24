@@ -55,3 +55,4 @@ Another weather forecast.
 It's freezing all over Finland. It's windy, so the frost is biting. It is coldest in the north.
 
 It snows a little in the east and north.
+

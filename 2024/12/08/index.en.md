@@ -6,7 +6,7 @@ The topic of the news week this time is overweight and obesity in children. Many
 
 ## Children's overweight is increasing
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_500/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1733216335/39-135153166ed2675b619a)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_500/ar_1.7777777777777777,c _fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1733216335/39-135153166ed2675b619a)
 
 Worrying information has been reported this week about children being overweight. About 25 percent of boys and about 20 percent of girls were overweight or obese last year. The information is from a new report by the Institute of Health and Welfare, or THL.
 
@@ -16,7 +16,7 @@ Being overweight is often one of the causes of cardiovascular diseases. That's w
 
 ## There are many reasons for being overweight
 
-![Photo: Tanja Heimonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2968,w_5301,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717153696/39-12946246659aca30f65a)
+![Photo: Tanja Heimonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2968,w_5301,x_0,y_0/ar_1.7777777777777777,c _fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717153696/39-12946246659aca30f65a)
 
 Researchers say that the biggest reason for children being overweight is the food environment. Nowadays, delicacies that make you fat are sold everywhere.
 
@@ -28,7 +28,7 @@ It is more common for boys to be overweight than for girls. THL's Päivi Mäki s
 
 ## Being overweight can be prevented
 
-![Family meals together promote children's health. Photo: Antti Kolppo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3001,w_5336,x_0,y_224/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1726488998/39-134899966e815f797d0a)
+![Family meals together promote children's health. Photo: Antti Kolppo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3001,w_5336,x_0,y_224/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1726488998/39-134899966e815f797d0a)
 
 Researchers say that overweight in children can be prevented. It is important that the family eats together and that mealtimes are regular.
 
@@ -51,3 +51,4 @@ However, it is good to follow regular mealtimes in the family.
 Healthy food and exercise prevent children from becoming overweight, but children should not be blamed for being overweight.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

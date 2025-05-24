@@ -65,3 +65,4 @@ Tomorrow the sun will shine in the east and in western and northern Lapland.
 The rest of the country is mostly cloudy. It rains a little in places.
 
 The temperature is over 10 degrees in the southern and central part of the country. It's cooler in the north.
+

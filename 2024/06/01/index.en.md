@@ -10,7 +10,7 @@ We will now tell you more about what happens in Finland in the summer.
 
 ## The end of school is celebrated
 
-![ Photo: Marko Melto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_49/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717242796/39-1295049665b0b738984d)
+![ Photo: Marko Melto / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_49/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1717242796/39-1295049665b0b738984d)
 
 Schoolchildren and students stayed on summer vacation today, Saturday. High school students and young graduates organized a party today.
 
@@ -18,7 +18,7 @@ In the summer, there are also many wedding parties, for example. Many couples wa
 
 ## Big summer events
 
-![ Image: Summer clubs, image service](https://images.cdn.yle.fi/image/upload/c_crop,h_3130,w_5565,x_0,y_579/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1688130051/39-1136800649ed1cc8e61b)
+![ Image: Summer clubs, image service](https://images.cdn.yle.fi/image/upload/c_crop,h_3130,w_5565,x_0,y_579/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0 /q_auto:eco/f_auto/fl_lossy/v1688130051/39-1136800649ed1cc8e61b)
 
 Finland's biggest summer event is Suviseurat. Viseurat is a religious event that takes place this year at the end of June in Pudasjärvi, North Ostrobothnia. Tens of thousands of people participate in summer clubs every year.
 
@@ -30,7 +30,7 @@ A film festival will be held in Sodankylä in June. In Lapland, the sun also shi
 
 ## Small or special summer events
 
-![ Photo: Janne Körkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2021,w_3593,x_5,y_369/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1661550385/39-100015763093ec03b300)
+![ Photo: Janne Körkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2021,w_3593,x_5,y_369/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1661550385/39-100015763093ec03b300)
 
 Some summer events are small. Some events are also quite special.
 
@@ -47,3 +47,4 @@ The topic of the news week was various summer events in Finland. Let's repeat th
 There are a huge number of different summer events in Finland. Some events have tens of thousands of people. Some summer events are small or special.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

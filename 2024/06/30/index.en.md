@@ -18,7 +18,7 @@ The different thinking of girls and boys has increased, i.e. polarized.
 
 The attitudes of young people are most divided in values and identity. Such issues include, for example, sexuality, gender, immigration, racism and climate change.
 
-![People feel that they are standing up for the right cause. Other people's opinions may seem wrong. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_255/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1719322389/39-1308638667ac6ad4c8fe)
+![People feel that they are standing up for the right cause. Other people's opinions may seem wrong. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_255/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1719322389/39-1308638667ac6ad4c8fe)
 
 ## A worldwide phenomenon
 
@@ -38,7 +38,7 @@ For example, political leaders, a party or an extremist group can benefit from p
 
 Informational influence can, for example, create an image of a threat, e.g. immigration. This is how you gather popularity from the opponents of the matter.
 
-![For example, extremist movements can benefit from polarization. Strong opinions can even lead to violence. Photo: Janne Körkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2997,w_5328,x_0,y_174/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1718383628/39-1303275666c03b9ec923)
+![For example, extremist movements can benefit from polarization. Strong opinions can even lead to violence. Photo: Janne Körkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2997,w_5328,x_0,y_174/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1718383628/39-1303275666c03b9ec923)
 
 ## The feeling of being outside
 
@@ -61,3 +61,4 @@ Young people's thinking and values are more strongly divided than before. The ph
 Polarization can continue so that groups of different opinions are unable to discuss issues.
 
 For example, extremist groups or politicians can benefit from polarization.
+

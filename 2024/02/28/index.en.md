@@ -57,3 +57,4 @@ Musician Jaakko Teppo has died. Teppo was 71 years old. Jaakko Tepo's career as 
 Another weather forecast.
 
 Cloudiness is abundant. There will be snow showers in southwestern Lapland. Elsewhere, there is trouble. The temperature is between -3 and +3 degrees. The south wind is moderate.
+

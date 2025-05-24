@@ -57,3 +57,4 @@ Another weather forecast.
 The weather is dusty and the sun shines widely. In the southern part of the country, Cloudiness is more abundant in places.
 
 The weather continues to be quite warm. The temperature is 8-12 degrees. Northern Lapland is cooler.
+

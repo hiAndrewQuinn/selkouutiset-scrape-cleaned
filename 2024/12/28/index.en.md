@@ -42,7 +42,7 @@ The Liashchevskys have not yet decided whether the family will stay in Finland. 
 
 However, the most important thing is health. The father of the family had cancer and the daughter has diabetes. They have received good treatment in Finland.
 
-![Read more about the Petrenko and Liashchevsky families on Yle's general language pages.](https://yle.fi/a/74-20128678)
+[Read more about the Petrenko and Liashchevsky families on Yle's general language pages.](https://yle.fi/a/74-20128678)
 
 ## Repetition
 
@@ -55,3 +55,4 @@ Ukrainians can receive temporary protection in Finland. This will continue for o
 Many Ukrainians are now wondering whether they will stay in Finland or return to Ukraine.
 
 This was Uutisviikko in plain Finnish, see you again. See you later!
+

@@ -77,3 +77,4 @@ The US hopes that due to the tariffs, companies will move factories to the US.
 US tariffs are bad news for the Finnish economy and the entire global economy.
 
 That's all for today. See you again, bye.
+

@@ -43,3 +43,4 @@ Kuusisto received many awards, including the Pro Finlandia Medal in 1984 and the
 Still a weather forecast.
 
 On Saturday, the temperature will be above freezing in many places. It may still be freezing in the eastern part of the country. In some places, it will rain or snow. In the north, it will also rain freezing drizzle.
+

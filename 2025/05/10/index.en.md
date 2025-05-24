@@ -81,3 +81,4 @@ The reason for this situation is the decline in the number of cows and the incre
 The shortage of ground beef may not be quickly alleviated because the number of cows cannot be increased quickly.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

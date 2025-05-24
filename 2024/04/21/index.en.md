@@ -12,7 +12,7 @@ We will now tell you more about it.
 
 ## Finns make few babies
 
-![Little baby. Photo: Jill Nissen / Pixabay](https://images.cdn.yle.fi/image/upload/c_crop,h_1078,w_1917,x_2,y_99/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1713513323/39-127306966222163634b9)
+![Little baby. Photo: Jill Nissen / Pixabay](https://images.cdn.yle.fi/image/upload/c_crop,h_1078,w_1917,x_2,y_99/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1713513323/39-127306966222163634b9)
 
 Finns make very few babies. Last year, fewer babies were born to Finns than ever before.
 
@@ -22,7 +22,7 @@ So there will probably be far fewer Finns in the future than today.
 
 ## Effects
 
-![The countryside empties when the number of people in Finland decreases. Photo: Leo Gammals / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3087,w_5488,x_0,y_426/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710844508/39-125934365f96a1c43a7e)
+![The countryside empties when the number of people in Finland decreases. Photo: Leo Gammals / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3087,w_5488,x_0,y_426/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1710844508/39-125934365f96a1c43a7e)
 
 Few babies are born to Finns these days. It can greatly affect Finland's future.
 
@@ -36,7 +36,7 @@ The number of people in rural Finland is decreasing all the time these days. In 
 
 ## Reasons
 
-![Not everyone finds a good partner. Photo: Yle/Aitomedia](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1445806584/17-36469562d41da2d230)
+![Not everyone finds a good partner. Photo: Yle/Aitomedia](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1445806584/17-36469562d41da2d230)
 
 Why do Finns make so few babies? No one knows exactly what the answer is.
 
@@ -61,3 +61,4 @@ No one knows exactly what causes it.
 Finland will change in many ways if there are much fewer people here.
 
 This was a news week in plain Finnish, see you again! Goodbye.
+

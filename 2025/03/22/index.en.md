@@ -26,7 +26,7 @@ A drone can also carry explosives, meaning it can be used to carry out military 
 
 Ukrainian drones have flown over 1,000 kilometers to Moscow and struck Russian oil refineries.
 
-![The drone and the device used to control the drone. Photo: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3368,w_5986,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1742473368/39-143861167dc0694af67f)
+![The drone and the device used to control the drone. Photo: Juuso Stoor / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3368,w_5986,x_0,y_0/ar_1.7777777777777777,c _fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1742473368/39-143861167dc0694af67f)
 
 ## Finnish defense equipment company Patria
 
@@ -79,3 +79,4 @@ Many countries are now looking to acquire drones. Drone sales are growing rapidl
 Finland also knows how to develop drones. They could perhaps become an important export product for Finland.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

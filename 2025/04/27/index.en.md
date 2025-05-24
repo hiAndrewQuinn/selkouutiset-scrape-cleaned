@@ -63,3 +63,4 @@ Pope Francis died on April 21, Easter Monday. He was 88 years old.
 Pope Francis steered the Catholic Church in a more modern direction.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

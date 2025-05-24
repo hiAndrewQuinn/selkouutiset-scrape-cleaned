@@ -6,7 +6,7 @@ This time, the topic of the news week is the purchasing power of Finns, i.e. wha
 
 ## Purchasing power
 
-![For example, food has become more expensive in recent years. Photo: Yle Image tape](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693566204/39-116614164f1c4b6a48b4)
+![For example, food has become more expensive in recent years. Photo: Yle Image tape](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777 7,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1693566204/39-116614164f1c4b6a48b4)
 
 The news this week has said that the purchasing power of Finns is bad.
 
@@ -20,7 +20,7 @@ However, Finns are still not able to buy as much with their salary as, say, 3 ye
 
 ## Wages
 
-![SAK chairman Jarkko Eloranta says that employees' purchasing power must be improved. Photo: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2214,w_3936,x_0,y_186/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1731485508/39-137886567345d9fb26ef)
+![SAK chairman Jarkko Eloranta says that employees' purchasing power must be improved. Photo: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2214,w_3936,x_0,y_186/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1731485508/39-137886567345d9fb26ef)
 
 Workers' unions are concerned about workers' purchasing power. That's why they want salary increases.
 
@@ -30,7 +30,7 @@ The employers' organization EK says that a 10 percent salary increase is too big
 
 ## Economic growth
 
-![Better times are predicted for Finnish companies. Photo: Petri Aaltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2809,w_4995,x_0,y_630/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1731505854/39-13792516734a17066841)
+![Better times are predicted for Finnish companies. Photo: Petri Aaltonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2809,w_4995,x_0,y_630/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1731505854/39-13792516734a17066841)
 
 There has also been good news about the Finnish economy this week. It is predicted that the Finnish economy will start to grow next year.
 
@@ -49,3 +49,4 @@ Finns have been able to buy fewer goods and services than before because prices 
 Now the situation is starting to look better, because the rise in prices has slowed down and there are signs of growth in the economy.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

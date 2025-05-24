@@ -59,3 +59,4 @@ Another weather forecast. Tomorrow it will snow in the east. In some places, it 
 The sun shines in the north and in some places also in the south.
 
 The frost is 10-20 degrees in most of the country.
+

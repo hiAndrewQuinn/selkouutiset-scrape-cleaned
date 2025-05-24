@@ -39,3 +39,4 @@ The Runeberg Literary Prize went to author Pirkko Saisio. The prize is 20,000 eu
 Still a weather forecast.
 
 The weather is breezy, meaning it is not raining. There are clouds in the sky in the south. The temperature is around 0 degrees. In the north, the weather is sunny in many places. A warm wind is blowing in the north. The temperature is almost 5 degrees above zero.
+

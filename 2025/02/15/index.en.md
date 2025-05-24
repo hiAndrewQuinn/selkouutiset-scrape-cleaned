@@ -53,3 +53,4 @@ Employees can try to speed up negotiations, for example with strikes, while empl
 The task of the Kingdom Mediator is to find a solution that everyone can accept.
 
 This was Uutisviikko in plain Finnish. Listen!
+

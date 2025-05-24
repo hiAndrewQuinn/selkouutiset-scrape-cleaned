@@ -34,9 +34,9 @@ There are places to vote in advance, for example, in libraries and shopping cent
 
 Early voting for the European elections started yesterday.
 
-More information about the European elections and voting can be found on the Ministry of Justice's election website. The pages also have information in plain language. The address is![vaalit.fi](https://vaalit.fi/etusivu).
+More information about the European elections and voting can be found on the Ministry of Justice's election website. The pages also have information in plain language. The address is [vaalit.fi](https://vaalit.fi/etusivu).
 
-You can familiarize yourself with the candidates in Yle's election machine at![yle.fi](https://yle.fi/).
+You can familiarize yourself with the candidates in Yle's election machine at [yle.fi](https://yle.fi/).
 
 ## Supercell's new game
 
@@ -61,3 +61,4 @@ Another weather forecast.
 The weather is warm. The temperature is above 20 degrees throughout the country. Mostly it's over 25 degrees.
 
 In the west and north it rains and thunders occasionally. In the evening it no longer rains, and the sun is shining.
+

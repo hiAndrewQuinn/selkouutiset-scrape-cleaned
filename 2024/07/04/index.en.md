@@ -56,7 +56,7 @@ Maariti's career has lasted more than 50 years. Maarit's most famous song is *JÃ
 
 Yle has made an audio drama about the musician Maarit Hurmerinna.
 
-You can listen to it on![Yle Areena](https://areena.yle.fi/podcastit/1-70639517) and Radio Suomei.
+You can listen to it on [Yle Areena](https://areena.yle.fi/podcastit/1-70639517) and Radio Suomei.
 
 ## Weather
 
@@ -71,3 +71,4 @@ The temperature is between 15 and 20 degrees.
 The wind can be strong in the south.
 
 On Friday, the sun will shine in the south in the evening.
+

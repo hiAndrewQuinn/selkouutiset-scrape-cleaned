@@ -43,3 +43,4 @@ Parish rip camps are popular. Many young people who don't belong to the church a
 Another weather forecast.
 
 The weather is sunny. It is snowing in some places in Lapland. The temperature is around -15 degrees in the south. In the rest of the country, the temperature is between -15 and -30 degrees. The wind is weak.
+

@@ -65,3 +65,4 @@ The whole country has degrees of heat, that is, the temperature is positive. In 
 It may snow or rain a little.
 
 The wind calms down a bit, so it's not so strong anymore.
+

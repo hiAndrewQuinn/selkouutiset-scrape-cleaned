@@ -41,3 +41,4 @@ Finland, on the other hand, produced more electricity than before. Electricity p
 Another weather forecast.
 
 On Saturday, it will snow in many places in the western and central parts of the country. The frost is generally 2\...15 degrees. It is colder in places in Northern Lapland.
+

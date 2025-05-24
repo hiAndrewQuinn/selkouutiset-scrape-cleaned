@@ -49,3 +49,4 @@ Many popular bands from the past have gotten back together recently.
 Another weather forecast. The weather is sunny. There may be showers in Lapland.
 
 In the south, the temperature is around 24 degrees. In Lapland, the temperature is around 20 degrees.
+

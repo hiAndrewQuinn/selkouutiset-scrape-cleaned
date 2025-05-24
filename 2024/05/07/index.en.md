@@ -59,3 +59,4 @@ Another weather forecast.
 On Wednesday, the weather will be sunny and cool.
 
 The temperature is mainly 4\...9 degrees.
+

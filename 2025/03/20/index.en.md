@@ -55,3 +55,4 @@ Laura Nyrhinen is happy:
 Still a weather forecast.
 
 The sun is shining all over the country. The temperature is above zero in the southern and central parts of the country. In the north, it is around 0 degrees.
+

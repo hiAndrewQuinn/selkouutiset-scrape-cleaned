@@ -53,3 +53,4 @@ Literacy must become a key project in education.
 The Greens want schools to work on literacy and reading skills. In addition to electronic materials, students should also be offered textbooks.
 
 The municipal elections are on April 13th.
+

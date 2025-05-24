@@ -45,3 +45,4 @@ Finland will next play Sweden on Thursday. The winner of the match will advance 
 Still a weather forecast.
 
 The weather is breezy and the sun is shining. There is a little snow in places in Northern Lapland. The temperature is 14...20 degrees in the southern and central parts of the country. In Lapland, the temperature is lower.
+

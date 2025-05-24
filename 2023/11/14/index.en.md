@@ -4,7 +4,7 @@ The situation on the eastern border. Räsänen's trial. Political strikes. Weath
 
 ### The situation of the eastern border
 
-![Minister of the Interior Mari Rantanen told about the situation on Finland's eastern border. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2035,w_3619,x_0,y_102/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699539222/39-1186974652d2d84065b6)
+![Minister of the Interior Mari Rantanen told about the situation on Finland's eastern border. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2035,w_3619,x_0,y_102/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699539222/39-1186974652d2d84065b6)
 
 The situation on Finland's eastern border, i.e. the border between Finland and Russia, is still difficult. Asylum seekers whose papers are not in order have also arrived at the border on Tuesday.
 
@@ -16,7 +16,7 @@ Interior Minister Mari Rantanen says that measures are now being planned to impr
 
 ### Räsänen's trial
 
-![Päivi Räsänen met journalists after the trial. Photo: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2874,w_5110,x_10,y_131/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699970382/39-1200146655334491cf27)
+![Päivi Räsänen met journalists after the trial. Photo: Emmi Korhonen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2874,w_5110,x_10,y_131/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699970382/39-1200146655334491cf27)
 
 The Court of Appeal has dismissed the charges against MP Päivä Räsä. The Court of Appeal is of the opinion that Räsänen has not committed a crime.
 
@@ -28,7 +28,7 @@ Päivi Räsänen's lawsuit has been talked about a lot in Finland. Räsänen is 
 
 ### Strikes
 
-![Unions have organized strikes in recent weeks. Photo: Petri Julkunen / Yle ](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_79/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699516057/39-1197941654c8e0786a42)
+![Unions have organized strikes in recent weeks. Photo: Petri Julkunen / Yle ](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_79/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1699516057/39-1197941654c8e0786a42)
 
 Strikes continue in Finland.
 
@@ -42,7 +42,7 @@ For example, the government intends to limit the right of employees to organize 
 
 ### Weather
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1699978341/39-120060665539c47bcdf6)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/ f_auto/fl_lossy/v1699978341/39-120060665539c47bcdf6)
 
 The weather is cold. On Tuesday morning in Lapland it was even over 30 degrees below zero.
 

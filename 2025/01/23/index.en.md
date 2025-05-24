@@ -65,3 +65,4 @@ Snow or rain will fall in the southern and central parts of the country on Frida
 The sun is shining in some places in Lapland.
 
 The temperature in the southern and central parts of the country is between -1 and +3 degrees, and it is quite cold in Lapland.
+

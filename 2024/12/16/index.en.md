@@ -65,3 +65,4 @@ Still a weather forecast.
 The weather is generally dry. Isolated snow showers are possible in some places in the southern and central parts of the country. There will also be some snow in Western Lapland.
 
 In the southern part of the country, the temperature is above zero. In the north and in some places in the east, it is cold, with temperatures as low as 20-30 degrees.
+

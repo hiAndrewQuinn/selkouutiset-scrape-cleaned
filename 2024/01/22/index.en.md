@@ -22,7 +22,7 @@ Early voting for the presidential election continues.
 
 More information about the elections can be found in the program [Uutisviikko in clear Finnish] (https://yle.fi/a/74-20070449). It can be found at yle.fi/selkouutiset, under All broadcasts.
 
-Election information in Selko-Finnish is also available at![selkokeskus.fi](https://selkokeskus.fi/) and![vaalit.fi](https://vaalit.fi/etusivu).
+Election information in Selko-Finnish is also available at [selkokeskus.fi](https://selkokeskus.fi/) and [vaalit.fi](https://vaalit.fi/etusivu).
 
 ## Home museums of the presidents
 
@@ -69,3 +69,4 @@ The weather is cooling down, i.e. warming up.
 The snowstorm will be in the north tomorrow. 10 cm of snow may fall. In the south, it's already raining, so it's not raining.
 
 Tomorrow it will be really wet and the ground will be slippery.
+

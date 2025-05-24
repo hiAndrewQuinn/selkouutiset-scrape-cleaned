@@ -4,7 +4,7 @@ Gaza. UN climate conference. Low-income families. Driving schools. Cold November
 
 ### Gaza ceasefire ended
 
-![Israel says it has struck more than 200 targets in Gaza today. Photo: Said Khatib / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2872,w_5107,x_9,y_129/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701413000/39-12093726569803da2f5b)
+![Israel says it has struck more than 200 targets in Gaza today. Photo: Said Khatib / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2872,w_5107,x_9,y_129/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1701413000/39-12093726569803da2f5b)
 
 The ceasefire between Israel and the terrorist organization Hamas in Gaza has ended.
 
@@ -14,7 +14,7 @@ Israel says it has struck more than 200 targets in Gaza today. Hamas says that m
 
 ### UN climate conference
 
-![Chairman of the Dubai Climate Summit Sultan Al Jaber. Photo: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2247,w_3995,x_0,y_42/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701418450/39-119026365376598aea83)
+![Chairman of the Dubai Climate Summit Sultan Al Jaber. Photo: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2247,w_3995,x_0,y_42/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1701418450/39-119026365376598aea83)
 
 At the UN Climate Summit in Dubai, an important agreement has been reached on a fund to compensate for climate damage.
 
@@ -24,7 +24,7 @@ The United Arab Emirates and Germany both pledged $100 million to the fund. EU c
 
 ### Low-income families
 
-![Not all homes have enough food. Photo: Janne Körkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4366,w_7763,x_8,y_1006/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1700826485/39-120615265608cc026cb1)
+![Not all homes have enough food. Photo: Janne Körkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4366,w_7763,x_8,y_1006/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1700826485/39-120615265608cc026cb1)
 
 In Finland, children go hungry in many low-income families. This is clear from the survey that the Save the Children aid organization does annually.
 
@@ -34,7 +34,7 @@ The Save the Children organization says that the situation has worsened during t
 
 ### Driving schools
 
-![](https://images.cdn.yle.fi/image/upload/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701260167/13-58-6a6a341aeb0d8ff872eac447000dea83410a9617)
+![](https://images.cdn.yle.fi/image/upload/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701260167/13-58- 6a6a341aeb0d8ff872eac447000dea83410a9617)
 
 Driving schools are doing badly now.
 
@@ -44,7 +44,7 @@ Driving schools are crowded because teaching licenses are more popular than befo
 
 ### Cold November
 
-![November was colder than usual. Photo: Anne-Pauliina Rytkönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_0,y_196/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1698128549/39-1190258653762023f213)
+![November was colder than usual. Photo: Anne-Pauliina Rytkönen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_0,y_196/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1698128549/39-1190258653762023f213)
 
 November was cold, says the Finnish Meteorological Institute.
 
@@ -54,7 +54,7 @@ The lowest temperature of the month was measured at Savukoski in Lapland. It was
 
 ### Saturday's weather
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701442288/39-12098256569f2545d36e)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1701442288/39-12098256569f2545d36e)
 
 The weather is winter. It may snow a little in the south tomorrow. The sun may shine in places.
 

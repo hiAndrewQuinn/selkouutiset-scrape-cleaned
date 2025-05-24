@@ -14,7 +14,7 @@ Among the women, Marianne Vikkula made the most money. He also works at Wolt.
 
 For example, the owners of the gaming company Supercell also earned and paid a lot of taxes last year.
 
-The authority is publishing people's last year's tax information. The tax information of high-income people can be viewed on Yle's tax machine. Yle's tax machine is at![yle.fi](https://yle.fi/a/74-20121007).
+The authority is publishing people's last year's tax information. The tax information of high-income people can be viewed on Yle's tax machine. Yle's tax machine is at [yle.fi](https://yle.fi/a/74-20121007).
 
 ## Terrible Harris
 
@@ -39,3 +39,4 @@ Ylen needs to save money. Yle is looking for savings of 50 million euros for the
 Another weather forecast.
 
 The weather is cloudy, that is, it does not rain. There are clouds in the sky in the east. Especially in the west and in Lapland, the sun sometimes shines. The temperature is 5-10 degrees throughout the country.
+

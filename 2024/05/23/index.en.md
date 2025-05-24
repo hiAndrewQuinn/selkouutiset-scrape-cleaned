@@ -37,3 +37,4 @@ In football, the Italian Atalanta won the Europa League championship on Wednesda
 Another weather forecast.
 
 The weather is mostly sunny and warm. There will be showers and thunderstorms in the west. There will also be showers in Lapland during Friday.
+

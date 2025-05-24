@@ -10,7 +10,7 @@ Now we tell you more about Coldplay's visit to Helsinki.
 
 ## A very popular band
 
-![Coldplay will perform at the Helsinki Olympic Stadium on four nights. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5137,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722153964/39-132434666a54c55c5b47)
+![Coldplay will perform at the Helsinki Olympic Stadium on four nights. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2889,w_5137,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1722153964/39-132434666a54c55c5b47)
 
 British Coldplay is one of the most popular bands in the world. The band's music is a mix of pop and rock music.
 
@@ -20,7 +20,7 @@ Coldplay has sold tens of millions of records, won awards in the music industry,
 
 ## First visit to Finland
 
-![Chris Martin is the singer of Coldplay. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2921,w_5194,x_0,y_167/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722126111/39-132439966a58a3155043)
+![Chris Martin is the singer of Coldplay. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2921,w_5194,x_0,y_167/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1722126111/39-132439966a58a3155043)
 
 Coldplay is now performing in Finland for the first time. The Helsinki Olympic Stadium has been sold out in four nights. So a total of 170,000 people are going to see the band.
 
@@ -28,13 +28,13 @@ The first gig was yesterday Saturday, the second today Sunday and the next two o
 
 ## Helsinki is now Coldsink
 
-![Colorful balls bounce among the crowd in the packed Olympic Stadium. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2831,w_5034,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722161547/39-132440766a5924d59213)
+![Colorful balls bounce among the crowd in the packed Olympic Stadium. Photo: Lauri Karo / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2831,w_5034,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1722161547/39-132440766a5924d59213)
 
 The city of Helsinki expects that Coldplay's visit will bring a lot of money to the city. Tens of thousands of concert guests need accommodation, food and other services. The city believes that they spend money up to tens of millions of euros.
 
 Helsinki also wants to make the city famous with the help of a popular band. In social media, Helsinki has changed its name during the band's visit. Helsinki is now Coldsink.
 
-![Image: City of Helsinki](https://images.cdn.yle.fi/image/upload/c_crop,h_1365,w_2428,x_0,y_149/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722163716/39-132444466a621aa8688b)
+![Image: City of Helsinki](https://images.cdn.yle.fi/image/upload/c_crop,h_1365,w_2428,x_0,y_149/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1722163716/39-132444466a621aa8688b)
 
 ## Repeat
 
@@ -45,3 +45,4 @@ The extremely popular band Coldplay is now visiting Helsinki for the first time.
 The city of Helsinki expects that the concert guests will bring tens of millions of euros to the city.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

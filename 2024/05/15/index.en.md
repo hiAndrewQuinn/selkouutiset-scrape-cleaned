@@ -71,3 +71,4 @@ The south has sunny weather.
 It is also hot, i.e. the temperature is more than 25 degrees.
 
 It's cooler in the north. The temperature there is a little below 20 degrees.
+

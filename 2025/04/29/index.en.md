@@ -65,3 +65,4 @@ The weather on Wednesday will be chilly, meaning quite cold.
 It's cloudy in the north, meaning it's not raining. The sun is also shining in the east.
 
 It is raining and quite cloudy in the south.
+

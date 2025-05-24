@@ -71,3 +71,4 @@ There are problems elsewhere as well. Women are more likely to be subjected to v
 Women's pay, educational opportunities, and access to politics are often worse than men's.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

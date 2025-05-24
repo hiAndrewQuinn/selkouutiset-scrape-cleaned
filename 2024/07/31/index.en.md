@@ -55,3 +55,4 @@ Another weather forecast.
 The weather is cloudy and unstable, so there will be showers on Thursday as well.
 
 The daytime temperature remains below 20 degrees in almost the entire country.
+

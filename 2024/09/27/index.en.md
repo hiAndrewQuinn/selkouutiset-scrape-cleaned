@@ -69,3 +69,4 @@ It rains in the southern part of the country. There will also be rain in Eastern
 Elsewhere it's cloudy, sunny in some places. The weather is getting colder.
 
 The temperature is between 5 and 13 degrees throughout the country, it is cooler in Northern Lapland.
+

@@ -65,3 +65,4 @@ It's sunny on the west coast. It's cloudy in Lapland.
 The temperature is mostly above 15 degrees.
 
 The sun shines in the evening.
+

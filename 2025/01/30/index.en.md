@@ -34,10 +34,11 @@ Many Finnish conductors are very successful around the world. A Yle TV series ex
 
 Many Finnish conductors are very successful around the world. The reason for their success is, for example, good education. In addition, there are many small orchestras in different parts of Finland where young conductors can perform.
 
-The Conductors series can be watched on![Yle Areena](https://areena.yle.fi/1-71023552).
+The Conductors series can be watched on [Yle Areena](https://areena.yle.fi/1-71023552).
 
 ## Weather
 
 Still a weather forecast.
 
 Tomorrow, Friday, there will be a little snow in the north and east. There will be light rain in the south and west, meaning no rain. There will also be some sunshine in the west. The temperature will be above freezing in the south. Elsewhere in Finland, it will be freezing.
+

@@ -45,3 +45,4 @@ Finns are also at the forefront of problem solving.
 Finland's success shows that adult education works well here.
 
 This was Uutisviikko in plain Finnish, see you again. See you later!
+

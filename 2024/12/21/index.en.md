@@ -12,7 +12,7 @@ The vote in Parliament was very close. Some representatives of the governing par
 
 We will now tell you more about the hospital network decision.
 
-![Photo: Minna Rosvall / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2759,w_4906,x_4,y_100/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1734422172/39-139616167612d3c2aed9)
+![Photo: Minna Rosvall / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2759,w_4906,x_4,y_100/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1734422172/39-139616167612d3c2aed9)
 
 ## Tight voting result
 
@@ -65,3 +65,4 @@ The issue has been difficult in Parliament. The parties have been arguing about 
 Many citizens and healthcare workers are disappointed with the hospital network decision.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
+

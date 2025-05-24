@@ -61,3 +61,4 @@ Another weather forecast.
 A rainy area will come to Finland from the west. On Friday, it will snow on the west coast during the day, there is still snow elsewhere.
 
 In the evening it generally snows, in the south it also rains. The temperature is mostly between 0 and -5 degrees.
+

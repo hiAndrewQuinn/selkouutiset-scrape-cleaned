@@ -67,3 +67,4 @@ On election day, you can only vote at your local polling station, which opens at
 There are 2 ballot papers, purple for regional elections and white for municipal elections. You can still check the candidate numbers on the wall of the voting booth.
 
 This was Uutisviikko. Sunday's Uutisviikko will be after midnight. That's when we'll report on the election results. Let's hear it!
+

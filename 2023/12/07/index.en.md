@@ -4,7 +4,7 @@ SAK's strike plans. Police activities on Independence Day. The popularity of cas
 
 ### SAK's strike plans
 
-![SAK chairman Jarkko Eloranta. Photo: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2218,w_3943,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701939038/39-12120456571873a79ad2)
+![SAK chairman Jarkko Eloranta. Photo: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2218,w_3943,x_0,y_387/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1701939038/39-12120456571873a79ad2)
 
 The workers' organization SAK is planning strikes. If strikes are organized, they will start on Thursday of next week and always last for one day.
 
@@ -14,7 +14,7 @@ Prime Minister Petteri Orpo does not like SAK's strike plans. Orpo says that the
 
 ### Police activities on Independence Day
 
-![Police officers at Töölöntor 6 December 2023. Image: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701900466/39-12117966570f06aad394)
+![Police officers at Töölöntor 6 December 2023. Image: Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_533/ar_1.777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1701900466/39-12117966570f06aad394)
 
 In Helsinki, 2 demonstrations were organized at Töölöntor on Independence Day. Now we are discussing the actions of the police against the demonstrators.
 
@@ -24,7 +24,7 @@ The police cleared Töölöntor so that the participants of the different demons
 
 ### The popularity of castle parties
 
-![The presidential couple shook hands with 1,700 guests. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701887140/39-12116406570bc5211c62)
+![The presidential couple shook hands with 1,700 guests. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1674,w_2976,x_0,y_138/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1701887140/39-12116406570bc5211c62)
 
 The celebrations of the Independence Day Castle attracted people this year as well. More than 3 million people watched Linna's party on TV.
 
@@ -38,7 +38,7 @@ In an interview with Yle, Sauli Niinistö and Jenni Haukio told that the Linna p
 
 ### Satu Tiivola dead
 
-![A fairy tale at Tiivola Linna's party in 1984. Photo: Martti Juntunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1900,w_3386,x_0,y_68/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701970254/14-svyle-148735531974f1c7f7f)
+![A fairy tale at Tiivola Linna's party in 1984. Photo: Martti Juntunen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1900,w_3386,x_0,y_68/ar_1.7777777777777777,c_fill,g_faces ,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701970254/14-svyle-148735531974f1c7f7f)
 
 Sales advisor Satu Tiivola has died. Tiivola was 99 years old.
 
@@ -48,7 +48,7 @@ Haiko's mansion is in Porvoo. Satu Tiivola founded Haiko Manor in the 1960s.
 
 ### Weather
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701970344/39-121246965720191c5355)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/ f_auto/fl_lossy/v1701970344/39-121246965720191c5355)
 
 The night after Independence Day was cold, especially in the north. In Lapland, it was over 30 degrees below zero in some places.
 

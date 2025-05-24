@@ -42,9 +42,9 @@ The Helsinki Art Museum exhibition continues until April.
 
 The president's spouse **Suzanne Innes-Stubb** was a guest of Selkouutinen last week.
 
-In the radio program![Uutisviikko selkosuomeksi](https://yle.fi/a/74-20120411) Innes-Stubb told how life changed when Alexander Stubb became the president of Finland.
+In the radio program [Uutisviikko selkosuomeksi](https://yle.fi/a/74-20120411) Innes-Stubb told how life changed when Alexander Stubb became the president of Finland.
 
-On Selkouutinen's![TV broadcast](https://yle.fi/a/74-20119416) Innes-Stubb told what she thinks about the Finnish language and studying it.
+On Selkouutinen's [TV broadcast](https://yle.fi/a/74-20119416) Innes-Stubb told what she thinks about the Finnish language and studying it.
 
 The programs are still in Yle Areena and on Selkouutinen's website at yle.fi/selkouutiset.
 
@@ -55,3 +55,4 @@ Another weather forecast.
 Tomorrow afternoon it will rain, meaning it won't rain. The sun shines almost all over the country.
 
 The temperature is plus eight degrees in the south and around plus five degrees in the central part of the country. It's colder in the north.
+

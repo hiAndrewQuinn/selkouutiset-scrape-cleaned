@@ -69,3 +69,4 @@ Cloudiness is also variable.
 The temperature is around 20 degrees.
 
 It is warmest in areas where it does not rain.
+

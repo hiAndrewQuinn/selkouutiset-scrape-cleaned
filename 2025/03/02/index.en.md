@@ -40,7 +40,7 @@ The US has been the largest supporter of Ukraine during the war, after Europe.
 
 ## Ukraine receives support
 
-![Flags of the European Union. Photo: Nicolas Economou / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_231/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1671204920/39-1049612639c8f528eb5a)
+![Flags of the European Union. Photo: Nicolas Economou / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_2812,w_5000,x_0,y_231/ar_1.7777777777777777, c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1671204920/39-1049612639c8f528eb5a)
 
 Many world and European leaders have given support to the Ukrainian president following the dispute.
 
@@ -61,3 +61,4 @@ The meeting between the Ukrainian president and the US president failed.
 Relations between the countries are in crisis, and the agreement on Ukrainian minerals was not signed.
 
 This was Uutisviikko in plain Finnish, see you again. See you later!
+

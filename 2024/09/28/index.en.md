@@ -18,7 +18,7 @@ VM estimates that economic growth will accelerate next year.
 
 Public finances are not improving as well. The public finances will remain in deficit and the debt of the public finances will increase further.
 
-![Exports increase when World Trade increases. Photo: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712484764/39-1267167661270c5ebdae)
+![Exports increase when World Trade increases. Photo: Mikko Koski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_570/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1712484764/39-1267167661270c5ebdae)
 
 ## Export
 
@@ -40,7 +40,7 @@ VM predicts that unemployment will start to decrease next year.
 
 The forecast is that in 2026 unemployment will be a little over 7 percent.
 
-![More money is spent on defense than before. For example, Finland buys new fighter jets. Photo: Heli Kaski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2303,w_4094,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1685897841/39-1124574647cc1f73933b)
+![More money is spent on defense than before. For example, Finland buys new fighter jets. Photo: Heli Kaski / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2303,w_4094,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1685897841/39-1124574647cc1f73933b)
 
 ## Expenditure increases
 
@@ -63,3 +63,4 @@ Next year, the economy will start to grow. The increase is maybe 2 percent. Expo
 The economic situation will improve because the rise in prices will slow down and interest rates will fall.
 
 This was news week in plain Finnish, see you again. Goodbye!
+

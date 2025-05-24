@@ -59,3 +59,4 @@ In a large part of the country, it is cloudy, that is, it does not rain.
 However, it rains a little in Lapland.
 
 The temperature is between 15 and 20 degrees.
+

@@ -57,3 +57,4 @@ A real Christmas is often a quiet family celebration. People are more rowdy at C
 Weather forecast for Wednesday.
 
 The weather is getting colder, and there is frost all over the country. In the north it can be 20 degrees below zero.
+

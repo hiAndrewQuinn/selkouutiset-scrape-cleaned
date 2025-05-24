@@ -6,7 +6,7 @@ This time, the topic of the news week is Timo Vornanen, member of parliament for
 
 ## Vornanen and the parliament
 
-![MP Timo Vornanen in the parliament. Photo: Eduskunta](https://images.cdn.yle.fi/image/upload/c_crop,h_828,w_1473,x_0,y_124/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714395346/39-1277971662f98a3638a2)
+![MP Timo Vornanen in the parliament. Photo: Eduskunta](https://images.cdn.yle.fi/image/upload/c_crop,h_828,w_1473,x_0,y_124/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1714395346/39-1277971662f98a3638a2)
 
 Unusual news has been received from the Parliament of Finland this week.
 
@@ -18,7 +18,7 @@ Vornanen has apologized for the events to basic Finns and the entire parliament.
 
 ## Vornanen and the gun
 
-![Vornanen shot the ground with such a weapon in Helsinki. Photo: Päivi Meritähti / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_3,y_507/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714650931/39-127947466337d9a6873b)
+![Vornanen shot the ground with such a weapon in Helsinki. Photo: Päivi Meritähti / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2265,w_4028,x_3,y_507/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1714650931/39-127947466337d9a6873b)
 
 The police arrested MP Timo Vornanen about a week ago in Helsinki. The police released Vornase shortly after the arrest.
 
@@ -30,7 +30,7 @@ The police are now investigating the events. The trial may begin later.
 
 ## The reputation of Vornane and the party
 
-![Fundamental Finns chairman Riikka Purra does not approve of Vornane's act. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3285,w_5841,x_0,y_38/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714661185/39-12796236633a6fff304f)
+![Fundamental Finns chairman Riikka Purra does not approve of Vornane's act. Photo: Silja Viitala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3285,w_5841,x_0,y_38/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1714661185/39-12796236633a6fff304f)
 
 Timo Vornanen's case is very rare. In Finland, it is not usual for a member of parliament to be arrested for a crime involving a firearm.
 
@@ -51,3 +51,4 @@ Vornanen shot a gun to the ground outside a restaurant in Helsinki. However, no 
 Because of the incident, Vornanen was dismissed from the parliamentary group of the Basic Finns.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

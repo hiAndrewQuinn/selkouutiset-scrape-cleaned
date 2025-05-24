@@ -55,3 +55,4 @@ There are many antique fairs in the summer. Old things interest people because t
 Another weather forecast. Tomorrow, Tuesday, the weather will change. Sometimes it rains, sometimes it thunders, sometimes the sun shines.
 
 The temperature is around 20 degrees.
+

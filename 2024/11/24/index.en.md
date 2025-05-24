@@ -10,7 +10,7 @@ Russia thought it could conquer Ukraine quickly. Ukraine's resistance and Wester
 
 We will now tell you more about the war in Ukraine.
 
-![Ukrainians bring flowers and candles to the memorial to the dead in Kyiv. Many civilians and soldiers have died in the war. Picture: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_3163,w_5628,x_0,y_475/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1732281760/39-13844656740855de11d0)
+![Ukrainians bring flowers and candles to the memorial to the dead in Kyiv. Many civilians and soldiers have died in the war. Picture: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_3163,w_5628,x_0,y_475/ar_1.777777777777777 7,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1732281760/39-13844656740855de11d0)
 
 ## Start of attack
 
@@ -40,7 +40,7 @@ The USA also promised this week that the USA will give Ukraine anti-personnel mi
 
 Ukraine fears that US support may decrease when **Donald Trump** becomes US president in January.
 
-![Firefighters put out a house in Dnipro, Ukraine that caught fire in a Russian missile strike. Photo: Rescue services of Ukraine / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_1170,w_2080,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1732266872/39-138421667404ac372995)
+![Firefighters put out a house in Dnipro, Ukraine that caught fire in a Russian missile strike. Photo: Rescue services of Ukraine / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_1170,w_2080,x_0,y_0/ar_1.7777777777777777,c _fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1732266872/39-138421667404ac372995)
 
 ## Number of dead
 
@@ -63,3 +63,4 @@ Ukraine has received permission to use US long-range missiles.
 Ukraine is worried about whether the new US president will continue to support Ukraine.
 
 This was a news week in plain Finnish. See you again, by the way!
+

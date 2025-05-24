@@ -63,3 +63,4 @@ The fee for an ID card is now 63 euros online and 67 euros at the police station
 The topic of the news week this time was changes in 2025, part 1.
 
 This news week is in two parts. We'll tell you more about the changes in the next part of the news week. See you again, bye!
+

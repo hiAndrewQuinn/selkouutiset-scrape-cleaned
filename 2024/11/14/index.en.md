@@ -65,3 +65,4 @@ In the south and in the middle of the country there is snow.
 It can rain or snow in Lapland.
 
 The highest temperature is around 10 degrees. It's freezing in Lapland.
+

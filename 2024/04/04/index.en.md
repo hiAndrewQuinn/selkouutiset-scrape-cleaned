@@ -47,3 +47,4 @@ Many of Järnefelt's paintings describe what life was like in Finland in the 19t
 Ateneum Art Museum's new exhibition presents the art of Eero Järnefelt.
 
 Many of Eero Järnefelt's famous paintings depict Finnish landscapes. He also photographed poor people, of whom there were many in Finland.
+

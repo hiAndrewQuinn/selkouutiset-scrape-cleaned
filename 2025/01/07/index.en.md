@@ -42,7 +42,7 @@ Many things changed in Finland when the year changed.
 
 For example, medicines, books and movie tickets now cost more. There were also changes to housing benefits and taxation for families with children.
 
-Uutisviikko selkosuomeski tells you what all changed.![Saturday](https://yle.fi/a/74-20134925) and![Sunday](https://yle.fi/a/74-20135002) broadcasts can be found on the selkosuomeski website.
+Uutisviikko selkosuomeski tells you what all changed. [Saturday](https://yle.fi/a/74-20134925) and [Sunday](https://yle.fi/a/74-20135002) broadcasts can be found on the selkosuomeski website.
 
 ## Wednesday's weather
 
@@ -51,3 +51,4 @@ Still a weather forecast.
 Tomorrow, Wednesday, it will snow in the eastern part of the country. Scattered rain or snowfall is also possible in the west.
 
 The temperature is between +3 and -15 degrees.
+

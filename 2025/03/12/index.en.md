@@ -73,3 +73,4 @@ It rains a little more during the day.
 In the north it is dry, meaning it doesn't rain.
 
 The temperature is below freezing. In the very south it is a few degrees above zero.
+

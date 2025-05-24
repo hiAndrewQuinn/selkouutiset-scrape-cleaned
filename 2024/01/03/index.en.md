@@ -63,3 +63,4 @@ In the southern part of the country, the temperature is between -15 and -25 degr
 It is colder in the central and northern part of the country, the temperature is -30 degrees on both sides.
 
 The weather is cloudy and sunny in many places.
+

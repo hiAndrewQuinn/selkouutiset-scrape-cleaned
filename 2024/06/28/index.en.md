@@ -67,3 +67,4 @@ It will rain in Finland on Saturday. The temperature drops to 20 degrees during 
 In the east and Lapland on Saturday, it may still be hot during the day.
 
 The rain can be accompanied by strong thunderstorms.
+

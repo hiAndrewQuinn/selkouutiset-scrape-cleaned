@@ -4,7 +4,7 @@ Eastern border. Shortage of manpower. Nuclear power plants. Strikes. Weather.
 
 ### Eastern border
 
-![ Photo: Vesa Toppari / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_264/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701189256/39-12079316566165b139fc)
+![ Photo: Vesa Toppari / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_264/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1701189256/39-12079316566165b139fc)
 
 Finland's eastern border has closed.
 
@@ -22,7 +22,7 @@ Around 1,000 asylum seekers have crossed the border between Finland and Russia s
 
 ### Labor shortage
 
-![ Photo: Antti Valtteri Tauriainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3983,x_0,y_415/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1686145588/39-1126025648086980778f)
+![ Photo: Antti Valtteri Tauriainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3983,x_0,y_415/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1 .0/q_auto:eco/f_auto/fl_lossy/v1686145588/39-1126025648086980778f)
 
 Job seekers' skills and job requirements do not match in Finland.
 
@@ -34,7 +34,7 @@ The social and health sector is particularly affected by the labor shortage. The
 
 ### Nuclear power plants
 
-![ Photo: Jari Pelkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3256,w_5787,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1683031267/39-1107408645102d538768)
+![ Photo: Jari Pelkonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3256,w_5787,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1683031267/39-1107408645102d538768)
 
 The production of two nuclear power plants in Finland and Sweden has been interrupted due to a surprising fault.
 
@@ -48,7 +48,7 @@ Electricity costs a lot in Finland already, about 30 cents per kilowatt hour.
 
 ### Strikes
 
-![ Photo: Tommi Pylkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1680886596/39-10967826430479cd9824)
+![ Photo: Tommi Pylkkö / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1680886596/39-10967826430479cd9824)
 
 Political strikes continue.
 
@@ -60,6 +60,6 @@ The trade unions oppose the weakening of social security and the basic rights of
 
 ### Weather
 
-![ Photo: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701268401/39-120849965674b9a12a64)
+![ Photo: Matti Huutonen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1701268401/39-120849965674b9a12a64)
 
 Tomorrow it will snow in northern Lapland and on the southern coast. The sun shines in places in the central parts of the country. It is around ten degrees below zero in a large part of Finland, five degrees below zero in the south and northern Lapland.

@@ -73,3 +73,4 @@ There will be light rain in the south.
 In the north, it is cloudy during the day, meaning it does not rain. In the north, it snows a little in the evening.
 
 The temperature is between +2 and +8 degrees.
+

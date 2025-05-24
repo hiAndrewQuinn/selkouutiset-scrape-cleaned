@@ -57,3 +57,4 @@ Low pressure will bring rain for the weekend.
 On Saturday, it will snow or sleet in Lapland, in some places it will rain heavily.
 
 There will be some rain or drizzle in the south.
+

@@ -67,3 +67,4 @@ It can rain in Lapland. It rains and thunders in the south.
 Elsewhere it's raining and the sun is shining.
 
 The temperature is above 20 degrees throughout the country.
+

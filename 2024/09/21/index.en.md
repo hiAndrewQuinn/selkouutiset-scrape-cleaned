@@ -6,7 +6,7 @@ The topic of the news week is Finland's commissioner in the European Union. Now 
 
 ## Commissioner from Henna Virkkus
 
-![ The President of the European Commission, Ursula von der Leyen, introduced the nominees for Commissioners and Vice-Presidents. Photo: Frederick Florin / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_54/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1726594674/39-134995166e9bdc5b0abc)
+![ The President of the European Commission, Ursula von der Leyen, introduced the nominees for Commissioners and Vice-Presidents. Photo: Frederick Florin / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_54/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1726594674/39-134995166e9bdc5b0abc)
 
 European Commission President Ursula von der Leyen nominates Henna Virkkus as Finland's commissioner. Virkkunen, from Kokoumus, is a member of the EU Parliament for the third term.
 
@@ -16,7 +16,7 @@ The Commission implements European Union policy. For example, the Commission mak
 
 ## Virkkunen's task is significant
 
-![Henna Virkkunen speaks at the EU in Brussels. Image: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1594,w_2835,x_0,y_1780/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1726569773/39-134960166e95bcb9c99d)
+![Henna Virkkunen speaks at the EU in Brussels. Image: AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_1594,w_2835,x_0,y_1780/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1726569773/39-134960166e95bcb9c99d)
 
 Finland's Henna Virkkunen begins to handle matters related to technology, security and democracy.
 
@@ -30,7 +30,7 @@ Financial security means, for example, who is allowed to invest in Europe.
 
 ## Democracy and the rule of law
 
-![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1504552227/39-42590359ada512547f7)
+![](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/ f_auto/fl_lossy/v1504552227/39-42590359ada512547f7)
 
 Virkkusen also includes the development of democracy. It includes rule of law development. EU countries' funding is affected by how countries respect the rule of law.
 
@@ -40,7 +40,7 @@ Virkkunen's duties may also include border security and immigration reform. In t
 
 ## Virkkunen has been in politics for a long time
 
-![Photo from Henna Virkkunen's European election campaign. Photo: Hilppa Hyrkäs, Miia Anttila, Eeva Sarlin and Maija Keskisaari / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2430,w_4321,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717961476/39-1299877666602d66c519)
+![Photo from Henna Virkkunen's European election campaign. Photo: Hilppa Hyrkäs, Miia Anttila, Eeva Sarlin and Maija Keskisaari / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2430,w_4321,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces ,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717961476/39-1299877666602d66c519)
 
 In Finland, Virkkus has held many positions of trust.
 
@@ -57,3 +57,4 @@ The president of the European Commission nominates Henna Virkkus as commissioner
 Virkkunen's mission includes technology, security and democracy.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

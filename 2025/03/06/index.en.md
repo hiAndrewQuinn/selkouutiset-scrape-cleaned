@@ -49,3 +49,4 @@ The World Cross-Country Skiing Championships are in Trondheim, Norway. The compe
 Still a weather forecast.
 
 The sun is shining in a large part of Finland. Sometimes there are clouds in the sky. In the south it is over 5 degrees Celsius. In Lapland the temperature is around 0 degrees Celsius. The temperature is rising because the spring sun is warming it.
+

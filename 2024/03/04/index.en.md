@@ -67,3 +67,4 @@ It can also be cloudy on the west coast and in the north.
 The temperature is on the plus side in the southern and central parts of the country.
 
 In the north it is zero degrees or slightly below zero.
+

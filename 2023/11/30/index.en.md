@@ -4,7 +4,7 @@ Eastern border of Finland. Fazer dismisses. Party support measurement. UN climat
 
 ### Eastern border of Finland
 
-![ Photo: Kaija Länsman / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_298/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701332329/39-120878865684509520fd)
+![ Photo: Kaija Länsman / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_298/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1701332329/39-120878865684509520fd)
 
 The UN refugee agency UNHCR is concerned about the closure of Finland's eastern border. The refugee organization says that closing the border could weaken people's chances of applying for asylum.
 
@@ -14,7 +14,7 @@ The eastern border was closed because Russia brought asylum seekers to the borde
 
 ### Fazer terminates
 
-![Fazer moves oat milk production from Kouvola to Sweden. Photo: Pyry Sarkiola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1079,w_1919,x_1,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701343895/39-105527863b41619ac486)
+![Fazer moves oat milk production from Kouvola to Sweden. Photo: Pyry Sarkiola / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1079,w_1919,x_1,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1701343895/39-105527863b41619ac486)
 
 The food company Fazer is laying off dozens of people.
 
@@ -34,7 +34,7 @@ The changes from the previous support survey in October were very small.
 
 ### UN climate conference
 
-![Abu Dhabi National Oil Company Director Sultan Al Jaber leads negotiations at the UN climate conference. Image: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3995,x_0,y_81/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701178027/39-12077946565ea187de76)
+![Abu Dhabi National Oil Company Director Sultan Al Jaber leads negotiations at the UN climate conference. Image: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2241,w_3995,x_0,y_81/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1701178027/39-12077946565ea187de76)
 
 The UN climate conference has started in Dubai, United Arab Emirates.
 
@@ -44,7 +44,7 @@ Finland has emphasized that climate action is urgent and that climate policy mus
 
 ### The warmest year on record
 
-![Last July, a temperature of 52 degrees was measured in Death Valley, California. Photo: Reuters](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1689527349/39-114341564b421e461e8b)
+![Last July, a temperature of 52 degrees was measured in Death Valley, California. Photo: Reuters](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco /f_auto/fl_lossy/v1689527349/39-114341564b421e461e8b)
 
 This year will be the warmest on record, estimates the World Meteorological Organization WMO.
 
@@ -54,7 +54,7 @@ Scientists believe that global warming will continue at a rapid pace next year a
 
 ### Friday's weather
 
-![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701353961/39-1209205656899b37ac30)
+![ Photo: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1701353961/39-1209205656899b37ac30)
 
 On Friday, the weather will be mostly cloudy. It may snow a little in Lapland and the southern part of the country.
 

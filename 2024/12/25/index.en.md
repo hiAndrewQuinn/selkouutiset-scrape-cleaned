@@ -52,7 +52,7 @@ Therefore, it is also suitable for people with fish allergies and contains no ch
 
 Vegetarian dishes are becoming increasingly popular at Christmas.
 
-We will tell you more about Finnish Christmas dishes in the program![Newsweek in plain Finnish](https://yle.fi/a/74-20133137).
+We will tell you more about Finnish Christmas dishes in the program [Newsweek in plain Finnish](https://yle.fi/a/74-20133137).
 
 The program can be listened to at yle.fi/selkouutiset and at Yle Areena.
 
@@ -77,3 +77,4 @@ Plain language TV news will be broadcast again on January 7th.
 The radio program **News Week in Plain Finnish** will also be broadcast during the Christmas season, every Saturday and Sunday.
 
 Now we wish everyone a very Merry Christmas!
+

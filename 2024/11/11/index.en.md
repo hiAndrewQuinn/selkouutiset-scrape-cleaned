@@ -69,3 +69,4 @@ On Tuesday, the weather will be cloudy almost all over the country.
 The sun can shine in the west. It may rain a little rain and snow in the east.
 
 In Lapland it is freezing, elsewhere the temperature is 0-5 degrees.
+

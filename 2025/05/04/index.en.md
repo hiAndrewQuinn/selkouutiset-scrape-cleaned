@@ -62,6 +62,7 @@ The concrete drying process was also monitored in the live broadcast.
 
 The topic of the week was wildlife cameras. The wildlife camera Norppalive was opened on Friday. The säkkilive has also been launched.
 
-Nature cameras can be found at![wwf.fi/luontolive](https://wwf.fi/luontolive)
+Nature cameras can be found at [wwf.fi/luontolive](https://wwf.fi/luontolive)
 
 This was Uutisviikko in plain Finnish, see you again. See you later!
+

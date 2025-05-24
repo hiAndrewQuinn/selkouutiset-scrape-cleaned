@@ -28,7 +28,7 @@ Yle's election machine is open on Yle's website. There are 2 election machines, 
 
 The election machine has various questions that you can answer. The election machine tells you which candidates think the same way as you do.
 
-Yle's regional and municipal election machine is open on Yle's website. There are over 14,000 candidates in Yle's election machine. The election machine is online at![vaalit.yle.fi](https://vaalit.yle.fi/vaalikone/alue-ja-kuntavaalit2025).
+Yle's regional and municipal election machine is open on Yle's website. There are over 14,000 candidates in Yle's election machine. The election machine is online at [vaalit.yle.fi](https://vaalit.yle.fi/vaalikone/alue-ja-kuntavaalit2025).
 
 Regional and municipal elections are on April 13th.
 
@@ -37,3 +37,4 @@ Regional and municipal elections are on April 13th.
 Still a weather forecast.
 
 Tomorrow it will snow in the central parts of the country and also a little water. Elsewhere in Finland it will be light, meaning no rain. In the west and south there will be sunshine in places. The temperature may be up to +10 degrees.
+

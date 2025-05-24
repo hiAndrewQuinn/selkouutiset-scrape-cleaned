@@ -57,3 +57,4 @@ It can rain in the south-west and east.
 The temperature is between 20 and 25 degrees. Maybe a little higher in places.
 
 There are some clouds on the coast.
+

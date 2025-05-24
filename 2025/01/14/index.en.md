@@ -73,3 +73,4 @@ On Wednesday it will be sunny in the east in the afternoon.
 It will rain in Northern Finland in the evening.
 
 The temperature is between +1 and -8 degrees.
+

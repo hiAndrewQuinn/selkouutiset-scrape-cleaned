@@ -14,7 +14,7 @@ Children and young people disappear from Finnish schools every year. No one know
 
 Police say helping these children is difficult. There are also no clear instructions for helping.
 
-More on this topic is told in Yle's MOT program![Disappeared due to honor](https://areena.yle.fi/1-66871378) at Yle Areena.
+More on this topic is told in Yle's MOT program [Disappeared due to honor](https://areena.yle.fi/1-66871378) at Yle Areena.
 
 ## Presidential couple in Norway
 
@@ -49,3 +49,4 @@ It rains a little in the middle parts of the country. There will also be water a
 Cloudiness is abundant in the east and north, elsewhere the sun gets to shine a little in places.
 
 The temperature is 2-11 degrees.
+

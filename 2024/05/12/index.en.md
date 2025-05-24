@@ -10,7 +10,7 @@ Now we will tell you more about the price of sweets, i.e. candy and chocolate.
 
 ## Loose candies
 
-![The store's bulk candy shelf. Photo: Markku Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2973,w_5286,x_10,y_223/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1677160471/39-107684863f76dfd7cffd)
+![The store's bulk candy shelf. Photo: Markku Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2973,w_5286,x_10,y_223/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1677160471/39-107684863f76dfd7cffd)
 
 Finns eat a lot of sweets. Finns especially like loose candy.
 
@@ -24,7 +24,7 @@ S group stores say that after loose candies, the most popular sweets are Fazer's
 
 ## The price goes up
 
-![These candies look like coins. Photo: Pontus Nyqvist ](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_475/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712574608/39-12674676613c953b20c8)
+![These candies look like coins. Photo: Pontus Nyqvist ](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_475/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto: eco/f_auto/fl_lossy/v1712574608/39-12674676613c953b20c8)
 
 Sweets, i.e. candy and chocolate, will soon become more expensive. The reason is that the government is increasing the tax on sweets.
 
@@ -38,7 +38,7 @@ Sweets cause, for example, overweight.
 
 ## Effects
 
-![Sweets make holes in the teeth. Image: Medicimage / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_573,w_1022,x_0,y_85/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701006781/39-120684465634d4a1709e)
+![Sweets make holes in the teeth. Image: Medicimage / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_573,w_1022,x_0,y_85/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1701006781/39-120684465634d4a1709e)
 
 The price of sweets will rise soon. Researchers still say that Finns may not reduce their consumption of sweets.
 
@@ -59,3 +59,4 @@ The government plans to increase the tax on sweets.
 That's why sweets become more expensive.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

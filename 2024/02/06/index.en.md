@@ -22,7 +22,7 @@ About 40 percent of those entitled to vote have voted in advance.
 
 The actual election day is next Sunday.
 
-Uutisviikko in plain Finnish tells more about the presidential candidates. The programs can be found at yle.fi/selkouutiset, under![All broadcasts.](https://yle.fi/selkouutiset/kaikki-lahetysetk)
+Uutisviikko in plain Finnish tells more about the presidential candidates. The programs can be found at yle.fi/selkouutiset, under [All broadcasts.](https://yle.fi/selkouutiset/kaikki-lahetysetk)
 
 ## Akava's march out
 
@@ -53,3 +53,4 @@ Historian Ville Jalovaara says that only 4-5 percent of the bombs hit the target
 The weather is cloudy and clear in many places.
 
 The frost is intensifying throughout the country. The end of the week is clearly colder than usual.
+

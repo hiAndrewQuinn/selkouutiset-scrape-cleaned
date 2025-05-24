@@ -49,3 +49,4 @@ It is easier for second-generation Somali mothers to find work because they know
 In these families, fathers also often participate in childcare and housework.
 
 This was Uutisviikko in plain Finnish. See you again next week!
+

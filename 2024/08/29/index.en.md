@@ -61,3 +61,4 @@ It rains and thunders in the west. It rains a lot locally.
 It is cloudy and sunny in the east.
 
 The temperature is 20-25 degrees. In rainy areas, the temperature remains below 20 degrees.
+

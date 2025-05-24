@@ -53,3 +53,4 @@ Another weather forecast.
 On Thursday, the sun will shine in the east, there will be clouds elsewhere.
 
 It can rain in the north. Temperature around 25 degrees.
+

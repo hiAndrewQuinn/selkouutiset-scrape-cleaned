@@ -67,3 +67,4 @@ It will snow in the southern and central parts of the country tomorrow night.
 Tomorrow afternoon, it will snow again in the east. The sun will shine on the west coast and in Lapland.
 
 It is freezing almost all over the country.
+

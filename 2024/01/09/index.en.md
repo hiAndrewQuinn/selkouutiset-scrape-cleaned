@@ -57,3 +57,4 @@ A large majority of Russians still support Russian President Vladimir Putin.
 Another weather forecast. It snows or sleet in the north and east.
 
 The temperature is between +3 and -4 degrees throughout the country. It is colder in Lapland.
+

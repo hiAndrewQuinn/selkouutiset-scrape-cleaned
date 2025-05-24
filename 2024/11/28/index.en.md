@@ -65,3 +65,4 @@ Tomorrow it will be cloudy and mild in the southern and central part of the coun
 It's freezing in Lapland and the wind is strong. The sky is clear, meaning there are no clouds in the sky.
 
 It is snowing a little in the Northeast.
+

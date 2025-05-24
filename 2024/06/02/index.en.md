@@ -10,7 +10,7 @@ We will now tell you in more detail what is happening in US politics.
 
 ## Trump's criminal conviction
 
-![ Photo: Spencer Platt / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_199/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717131948/39-1294196665909e4c447f)
+![ Photo: Spencer Platt / AFP](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1920,x_0,y_199/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1717131948/39-1294196665909e4c447f)
 
 Former US President Donald Trump is guilty of a crime. That's what the jurors of the court decided. Trump falsified accounting before the 2016 presidential election.
 
@@ -20,7 +20,7 @@ The court will decide Trump's sentence in July. Experts believe Trump will face 
 
 ## US presidential election
 
-![ Photo: Shutterstock, Erik S. Lesser / AOP. Image processing: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710936275/39-126017665fad02e3f492)
+![ Photo: Shutterstock, Erik S. Lesser / AOP. Image processing: Ilkka Kemppinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1710936275/39-126017665fad02e3f492)
 
 In the USA, a presidential election will be held in November of this year. Either Joe Biden or Donald Trump will probably be elected president.
 
@@ -30,7 +30,7 @@ There are 2 major parties in the USA, the Democratic Party and the Republican Pa
 
 ## A divided US
 
-![ Photo: Michael Nigro / AOP ](https://images.cdn.yle.fi/image/upload/c_crop,h_1913,w_3400,x_0,y_175/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1611339871/39-765402600aeaf1d3f38)
+![ Photo: Michael Nigro / AOP ](https://images.cdn.yle.fi/image/upload/c_crop,h_1913,w_3400,x_0,y_175/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1. 0/q_auto:eco/f_auto/fl_lossy/v1611339871/39-765402600aeaf1d3f38)
 
 In the USA, many people think that the political system does not work. People do not believe that the judiciary is impartial. Many people do not trust the media.
 
@@ -45,3 +45,4 @@ The topic of the news week was US politics. Let's repeat the most important thin
 Former US President Donald Trump was found guilty of a crime this week. Experts believe that Trump's verdict will affect the US presidential election, which is in November. Donald Trump sharply divides people's opinions in the USA.
 
 This was Uutisviikko in plain Finnish, see you again. Goodbye!
+

@@ -57,3 +57,4 @@ Tomorrow the sun will shine almost all over the country.
 It is hot in the south and west - i.e. the temperature is over 25 degrees.
 
 In the east and north, the temperature is around 20 degrees. It can rain a little in Northern Lapland.
+

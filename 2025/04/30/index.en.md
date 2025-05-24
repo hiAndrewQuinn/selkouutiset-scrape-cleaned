@@ -41,3 +41,4 @@ People will be able to see the painting in the fall when a new restaurant opens 
 Still a weather forecast.
 
 The weather on May Day is blustery. Cloudiness varies, but the sun may shine. It may rain in the south. The temperature is around 10 degrees. In the north, the temperature is below 10 degrees.
+

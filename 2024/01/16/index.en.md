@@ -62,3 +62,4 @@ Public transport in Rome is the slowest in Europe. It took Jenna more than an ho
 Another weather forecast. The weather is cold. It is snowing a little in the west and north, otherwise it is quite sunny.
 
 The temperature is between -15 and -30 degrees. It is milder on the west coast.
+

@@ -79,3 +79,4 @@ The wind is strong.
 It's freezing in the north.
 
 Elsewhere, the temperature is between 0 and +2 degrees.
+

@@ -67,3 +67,4 @@ It snows a little in Northern Lapland.
 The sun shines in the south and in some places in the middle of the country.
 
 In the north and east there is a little frost, elsewhere there are plus degrees.
+

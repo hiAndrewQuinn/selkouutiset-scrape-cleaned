@@ -20,7 +20,7 @@ Almost 20 percent more foreclosures have been started this year than last year.
 
 Much more property for sale has also gone into foreclosure than last year.
 
-![People's financial difficulties and debt problems have increased. Much more debt counseling has been requested this year than last year Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2467,w_4395,x_0,y_367/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1725450670/39-132722466acd6a934c66)
+![People's financial difficulties and debt problems have increased. Much more debt counseling has been requested this year than last year Photo: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2467,w_4395,x_0,y_367/ar_1.7777777777777777,c_fill, g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1725450670/39-132722466acd6a934c66)
 
 ## Financial problems
 
@@ -48,7 +48,7 @@ This year, more than 600 minors, i.e. children under the age of 18, have been ta
 
 Minors are subject to foreclosure, for example, if the parents have transferred property to the child's name, but they have not paid the fees.
 
-![Quick loans can lead to debt problems if a person pays old debts with new quick loans. Photo: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3017,w_5364,x_0,y_368/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1722003527/39-132402766a3af363ebb6)
+![Quick loans can lead to debt problems if a person pays old debts with new quick loans. Photo: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3017,w_5364,x_0,y_368/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1722003527/39-132402766a3af363ebb6)
 
 ## Repeat
 
@@ -63,3 +63,4 @@ The demand for debt counseling has also grown a lot. The reason is the increase 
 Young people are also subject to foreclosure more than before.
 
 Most small debts end up in foreclosure.
+

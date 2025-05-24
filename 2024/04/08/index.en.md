@@ -45,3 +45,4 @@ Authorities say that there are a lot of such online scams.
 Another weather forecast.
 
 The sun will shine tomorrow, Tuesday, in a large part of the country. The whole country is cloudy, that is, it doesn't rain. The temperature is up to 15 degrees in the south. In Lapland, the temperature is almost 10 degrees in some places.
+

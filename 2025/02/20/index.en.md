@@ -41,3 +41,4 @@ Still a weather forecast.
 The weather will be blustery tomorrow, Friday. There will be a little snow in Northern Lapland.
 
 The temperature varies between +2 and -3 degrees during the day.
+

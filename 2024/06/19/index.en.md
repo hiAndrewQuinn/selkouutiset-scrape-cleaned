@@ -71,3 +71,4 @@ On Thursday, it will rain in the south and west, it may rain elsewhere.
 The day is cloudy.
 
 The temperature is between 15 and 20 degrees. In Lapland, the temperature can be below 10 degrees.
+

@@ -26,7 +26,7 @@ Vocational education can be a path to a well-paid job.
 
 For example, a car salesman can earn more than a master's degree with a university education.
 
-This is what Yle's salary machine tells you, with which you can compare salaries in different fields. The payroll machine can be found at![yle.fi](https://yle.fi/a/74-20053544).
+This is what Yle's salary machine tells you, with which you can compare salaries in different fields. The payroll machine can be found at [yle.fi](https://yle.fi/a/74-20053544).
 
 Yle's salary machine tells you that vocational training can lead to a well-paid job.
 
@@ -63,3 +63,4 @@ The weather is cloudy. Weak rains will occur in many places.
 There will be sleet and water in the southern and central parts of the country, and snow in the northern part.
 
 There are plus degrees up to the height of Oulu, there is frost in the east and north.
+

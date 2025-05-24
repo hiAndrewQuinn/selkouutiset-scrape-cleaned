@@ -73,3 +73,4 @@ The US, on the other hand, no longer protects Europe as it used to.
 The big question is how much money Finland has.
 
 That's all for today. See you again, bye.
+

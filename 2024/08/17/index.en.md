@@ -16,7 +16,7 @@ Ukraine says it has taken over more than 80 population centers in Russia.
 
 Ukraine says it has also taken prisoners of war from Russia. Ukraine may exchange prisoners of war with Russia.
 
-![Ukraine's attack on Russia surprised Russia and the West. Photo: Russian Ministry of Defense / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2018,w_3594,x_0,y_66/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1723810597/39-133322266bdb9c5e5bf2)
+![Ukraine's attack on Russia surprised Russia and the West. Photo: Russian Ministry of Defense / EPA](https://images.cdn.yle.fi/image/upload/c_crop,h_2018,w_3594,x_0,y_66/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/ q_auto:eco/f_auto/fl_lossy/v1723810597/39-133322266bdb9c5e5bf2)
 
 ## Reasons for the attack
 
@@ -44,7 +44,7 @@ Russians' dissatisfaction with the country's leaders is growing.
 
 Finland and other Western countries accept Ukraine's counter-attack on Russia, because Russia has attacked Ukraine first. Western countries accept that Ukraine may use weapons provided by Western countries in the attack.
 
-![Russia has evacuated, i.e. taken people to safety from Kursk. Image: Administration of the Kursk region](https://images.cdn.yle.fi/image/upload/c_crop,h_2025,w_3600,x_0,y_350/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1723466245/39-133176566ba00711aeec)
+![Russia has evacuated, i.e. taken people to safety from Kursk. Image: Administration of the Kursk region](https://images.cdn.yle.fi/image/upload/c_crop,h_2025,w_3600,x_0,y_350/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto :eco/f_auto/fl_lossy/v1723466245/39-133176566ba00711aeec)
 
 ## Repeat
 
@@ -57,3 +57,4 @@ The attack is the first foreign invasion of Russia since World War II. That's wh
 The attack has surprised Russia and the West. Ukraine wants to show that Ukraine can fight.
 
 Finland and other Western countries have accepted Ukraine's counterattack against Russia.
+

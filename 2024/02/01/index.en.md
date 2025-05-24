@@ -71,3 +71,4 @@ Another weather forecast.
 It will be sunny in many places on Friday.
 
 The temperature is between 0 and -10 degrees, in the north it is colder in places.
+

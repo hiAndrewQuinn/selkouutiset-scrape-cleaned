@@ -61,3 +61,4 @@ It is snowing in Western Lapland and the central part of the country.
 It can also snow a little in the south.
 
 It's freezing in many places. In the south there are degrees of heat.
+

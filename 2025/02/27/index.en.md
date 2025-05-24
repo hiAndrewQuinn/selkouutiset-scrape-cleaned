@@ -65,3 +65,4 @@ It will be breezy on Friday, meaning it won't rain.
 The sun may shine in the west, but it will be cloudy elsewhere.
 
 The temperature in Lapland is about -1 degrees. Elsewhere the temperature is about +2 degrees.
+

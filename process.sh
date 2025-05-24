@@ -25,12 +25,12 @@ log_message() {
 
 # --- 0. Dependency Check ---
 log_message "Checking for required commands..."
-for cmd in git pandoc perl seq printf date basename hostname sha1sum awk; do
+for cmd in git pandoc perl seq printf date basename hostname sha1sum awk sort; do
     if ! command -v "$cmd" >/dev/null 2>&1; then
         if [ "$cmd" = "hostname" ]; then
             log_message "WARNING: 'hostname' command not found. Using fallback '$HOSTNAME'."
-        elif [ "$cmd" = "sha1sum" ] || [ "$cmd" = "awk" ]; then
-            log_message "ERROR: Required command '$cmd' for hash checking not found. Please install it."
+        elif [ "$cmd" = "sha1sum" ] || [ "$cmd" = "awk" ] || [ "$cmd" = "sort" ]; then
+            log_message "ERROR: Required command '$cmd' for hash/file operations not found. Please install it."
             exit 1
         else
             log_message "ERROR: Required command '$cmd' not found. Please install it and ensure it's in your PATH."
@@ -38,7 +38,20 @@ for cmd in git pandoc perl seq printf date basename hostname sha1sum awk; do
         fi
     fi
 done
-log_message "All essential commands found or handled."
+
+# Specifically check pandoc version
+PANDOC_REQUIRED_VERSION="pandoc 3.7.0.1"
+log_message "Checking pandoc version..."
+pandoc_version_output=$(pandoc --version 2>/dev/null | head -n 1) # Get first line
+
+if [ "$pandoc_version_output" = "$PANDOC_REQUIRED_VERSION" ]; then
+    log_message "Pandoc version is correct: $pandoc_version_output"
+else
+    log_message "ERROR: Incorrect pandoc version. Found: '$pandoc_version_output'. Required: '$PANDOC_REQUIRED_VERSION'. Please install the correct version."
+    exit 1
+fi
+
+log_message "All essential commands and versions found or handled."
 
 # --- 1. Update Git Submodules ---
 SUBMODULE_PATH="selkouutiset-scrape"
@@ -57,7 +70,7 @@ else
 fi
 
 # --- 2. Process HTML to Markdown with .hash checking ---
-log_message "Starting HTML to Markdown processing with .hash integrity checks..."
+log_message "Starting HTML to Markdown processing with .hash integrity checks (SHA1)..."
 
 HASH_FILE=".hash"
 # Ensure .hash file exists
@@ -78,53 +91,61 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
             if [ ! -d "$day_dir_candidate" ]; then continue; fi
             day_val=$(basename "$day_dir_candidate")
             
-            source_html_file="${day_dir_candidate}/selkouutiset_${year_val}_${month_val}_${day_val}.html"
+            source_html_file_relative="${day_dir_candidate}/selkouutiset_${year_val}_${month_val}_${day_val}.html"
+            # Path for .hash file will be prefixed with ./
+            source_html_file_for_hash="./${source_html_file_relative}"
+            # Actual path for file operations remains relative
+            source_html_file_for_ops="$source_html_file_relative"
+
+
             target_base_dir="${year_val}/${month_val}/${day_val}"
             target_md_file="${target_base_dir}/index.en.md"
-            processed_day_log_suffix="Day: $year_val/$month_val/$day_val, Source: '$source_html_file', Target: '$target_md_file'"
+            processed_day_log_suffix="Day: $year_val/$month_val/$day_val, Source: '$source_html_file_for_ops', Target: '$target_md_file'"
 
-            if [ ! -f "$source_html_file" ]; then
+            if [ ! -f "$source_html_file_for_ops" ]; then
                 log_message "Skipped: Source HTML file not found. $processed_day_log_suffix"
                 continue
             fi
 
-            current_md5=$(sha1sum "$source_html_file" | awk '{print $1}')
-            if [ -z "$current_md5" ]; then
-                log_message "ERROR: Failed to calculate MD5 for source. Skipping. $processed_day_log_suffix"
+            current_sha1=$(sha1sum "$source_html_file_for_ops" | awk '{print $1}')
+            if [ -z "$current_sha1" ]; then
+                log_message "ERROR: Failed to calculate SHA1 for source. Skipping. $processed_day_log_suffix"
                 continue
             fi
 
-            stored_hash_line=$(grep -F -- "$source_html_file" "$HASH_FILE" || true)
+            # Search for the path prefixed with ./ in the hash file
+            stored_hash_line=$(grep -F -- "$source_html_file_for_hash" "$HASH_FILE" || true)
             generate_md=false # Flag to control pandoc pipeline execution
 
             if [ -z "$stored_hash_line" ]; then
                 # Rule 1: HTML file not in .hash
-                printf "%s %s\n" "$source_html_file" "$current_md5" >> "$HASH_FILE"
+                # Write the path prefixed with ./ to the hash file
+                printf "%s %s\n" "$source_html_file_for_hash" "$current_sha1" >> "$HASH_FILE"
                 if [ ! -f "$target_md_file" ]; then
-                    log_message "File newly added to '$HASH_FILE' (MD5: '$current_md5'). Target MD missing, will generate. $processed_day_log_suffix"
+                    log_message "File newly added to '$HASH_FILE' (SHA1: '$current_sha1'). Target MD missing, will generate. $processed_day_log_suffix"
                     generate_md=true
                 else
-                    log_message "File newly added to '$HASH_FILE' (MD5: '$current_md5'). Target MD exists, generation skipped. $processed_day_log_suffix"
+                    log_message "File newly added to '$HASH_FILE' (SHA1: '$current_sha1'). Target MD exists, generation skipped. $processed_day_log_suffix"
                 fi
             else
                 # File IS in .hash
-                stored_md5=$(echo "$stored_hash_line" | awk '{print $2}')
-                if [ -z "$stored_md5" ]; then
-                    log_message "ERROR: Could not extract stored MD5 from line: '$stored_hash_line'. Skipping. $processed_day_log_suffix"
+                stored_sha1=$(echo "$stored_hash_line" | awk '{print $2}')
+                if [ -z "$stored_sha1" ]; then
+                    log_message "ERROR: Could not extract stored SHA1 from line: '$stored_hash_line'. Skipping. $processed_day_log_suffix"
                     continue
                 fi
 
-                if [ "$current_md5" = "$stored_md5" ]; then
+                if [ "$current_sha1" = "$stored_sha1" ]; then
                     # Rule 2: Hashes match
                     if [ ! -f "$target_md_file" ]; then
-                        log_message "Current MD5 '$current_md5' matches stored. Target MD missing, will generate. $processed_day_log_suffix"
+                        log_message "Current SHA1 '$current_sha1' matches stored. Target MD missing, will generate. $processed_day_log_suffix"
                         generate_md=true
                     else
-                        log_message "Current MD5 '$current_md5' matches stored. Target MD exists. MD generation skipped. $processed_day_log_suffix"
+                        log_message "Current SHA1 '$current_sha1' matches stored. Target MD exists. MD generation skipped. $processed_day_log_suffix"
                     fi
                 else
                     # Rule 3: Hashes DO NOT match - CRITICAL ERROR
-                    log_message "CRITICAL HASH MISMATCH! Stored MD5: '$stored_md5', Current MD5: '$current_md5'. ABORTING SCRIPT. $processed_day_log_suffix"
+                    log_message "CRITICAL HASH MISMATCH! Stored SHA1: '$stored_sha1', Current SHA1: '$current_sha1'. ABORTING SCRIPT. $processed_day_log_suffix"
                     exit 2 # Specific exit code for hash mismatch
                 fi
             fi
@@ -139,7 +160,7 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
                 tmp_md_file="${target_md_file}.tmp.$$" 
                 # No separate "Pipeline starting" log, included in "Proceeding with MD generation" or implied by success/failure logs.
 
-                if cat "$source_html_file" | \
+                if cat "$source_html_file_for_ops" | \
                    pandoc --from=html --to=commonmark --wrap=none | \
                    perl -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' | \
                    perl -0777 -pe 's/^(\s*\n)+//g' | \
@@ -157,6 +178,15 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
         done # Day loop
     done # Month loop
 done # Year loop
+
+log_message "Sorting and uniquifying '$HASH_FILE'..."
+if [ -s "$HASH_FILE" ]; then # Check if file is not empty before sorting
+    sort -u "$HASH_FILE" -o "$HASH_FILE"
+    log_message "'$HASH_FILE' sorted."
+else
+    log_message "'$HASH_FILE' is empty or does not exist, no sorting needed."
+fi
+
 
 log_message "All source directories checked. Processing complete."
 exit 0

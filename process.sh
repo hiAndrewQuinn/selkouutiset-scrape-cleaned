@@ -321,7 +321,14 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
         # Ensure Perl one-liners handle UTF-8 correctly using -CSDA
         if cat "$source_html_file_for_ops" |
           pandoc --from=html --to=commonmark --wrap=none |
-          perl -CSDA -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' |                                    # Remove most HTML tags, keep specific img tags
+          # NEW: Remove src="data:image/svg+xml;base64,..." strings that pandoc might output for icons.
+          perl -CSDA -pe 's{src="data:image/svg\+xml;base64,[^"]*"}{}gi' |
+          # Convert <img> tags with src and alt to Markdown image syntax ![alt](src)
+          perl -CSDA -pe 's{<img\s+([^>]+)>}{ my $attrs_img = $1; my $src_img = ($attrs_img =~ m{src="([^"]*)"}i) ? $1 : undef; my $alt_img = ($attrs_img =~ m{alt="([^"]*)"}i) ? $1 : undef; (defined $src_img && defined $alt_img) ? sprintf("![%s](%s)", $alt_img, $src_img) : $& }gei' |
+          # Original Perl line to remove other HTML tags.
+          # Img tags converted above won't be HTML anymore.
+          # Img tags not converted (e.g. missing alt) but containing "yle.fi" will still be spared by the (?!img.*yle\.fi)
+          perl -CSDA -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' |
           perl -CSDA -0777 -pe 's/^(\s*\n)+//g' |                                                # Remove leading blank lines
           perl -CSDA -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |            # Remove "Tulosta" / "Jaa" sections at the end
           perl -CSDA -0777 -pe 's/\n{3,}/\n\n/g' |                                               # Reduce multiple blank lines to one

@@ -1,7 +1,9 @@
 #!/bin/sh
 
 # Script to update submodules, process HTML files to Finnish Markdown (index.fi.md),
-# generate translation request JSON files (with correct UTF-8 encoding),
+# generate translation request JSON files, translate to English (index.en.md) via Google Translate API
+# using gcloud for authentication (Perl for JSON parsing),
+# caches API responses as _response.fi.en.json to avoid redundant calls,
 # with .hash file checking for content integrity and regeneration control.
 # Designed for POSIX sh (e.g., BusyBox ash on Tiny Core Linux).
 
@@ -9,6 +11,7 @@
 set -e
 
 # --- Script Setup ---
+SCRIPT_DIR=$(cd "$(dirname "$0")" && pwd) # Absolute path to script's directory
 SCRIPT_NAME=$(basename "$0")
 # Try to get hostname, default to 'script_host' if command not found or fails.
 HOSTNAME_CMD_OUTPUT=$(hostname 2>/dev/null)
@@ -21,17 +24,24 @@ fi
 # Logging function for syslog-style messages
 log_message() {
   timestamp=$(date +"%b %e %T")
-  printf "%s %s %s[%d]: %s\n" "$timestamp" "$HOSTNAME" "$SCRIPT_NAME" "$$" "$*"
+  # Ensure multi-line messages are handled by indenting subsequent lines or processing line by line
+  echo "$*" | while IFS= read -r line; do
+    printf "%s %s %s[%d]: %s\n" "$timestamp" "$HOSTNAME" "$SCRIPT_NAME" "$$" "$line"
+  done
 }
 
 # --- 0. Dependency Check ---
 log_message "Checking for required commands..."
-for cmd in git pandoc perl seq printf date basename hostname sha1sum awk sort; do
+# Added curl, gcloud, sed.
+for cmd in git pandoc perl seq printf date basename hostname sha1sum awk sort curl gcloud sed; do
   if ! command -v "$cmd" >/dev/null 2>&1; then
     if [ "$cmd" = "hostname" ]; then
       log_message "WARNING: 'hostname' command not found. Using fallback '$HOSTNAME'."
     elif [ "$cmd" = "sha1sum" ] || [ "$cmd" = "awk" ] || [ "$cmd" = "sort" ]; then
       log_message "ERROR: Required command '$cmd' for hash/file operations not found. Please install it."
+      exit 1
+    elif [ "$cmd" = "curl" ] || [ "$cmd" = "gcloud" ] || [ "$cmd" = "sed" ] ; then
+      log_message "ERROR: Required command '$cmd' for API interaction or config not found. Please install it."
       exit 1
     else
       log_message "ERROR: Required command '$cmd' not found. Please install it and ensure it's in your PATH."
@@ -55,16 +65,156 @@ fi
 # Check for Perl module JSON::PP (core in Perl 5.14+)
 log_message "Checking for Perl module JSON::PP..."
 if perl -MJSON::PP -e 1 >/dev/null 2>&1; then
-  log_message "Perl module JSON::PP is available."
+  log_message "Perl module JSON::PP is available (used for request and response JSON)."
 else
-  # This case is highly unlikely with Perl 5.14+
   log_message "ERROR: Perl module JSON::PP not found. This module is core in Perl since version 5.14."
   log_message "Your Perl version: $(perl -v | grep 'This is perl' || echo 'Perl version not detectable easily')"
   log_message "Please ensure your Perl installation is complete or install JSON::PP if using a very old/custom Perl."
   exit 1
 fi
 
-log_message "All essential commands, versions, and modules found or handled."
+# --- Configuration Loading from .env file ---
+ENV_FILE="$SCRIPT_DIR/.env"
+GCP_PROJECT_ID="" # Initialize
+
+log_message "Attempting to load configuration from '$ENV_FILE'..."
+if [ -f "$ENV_FILE" ]; then
+    # Load GCP_SELKOUUTISET_ARCHIVE_PROJECT (Mandatory)
+    PROJECT_ID_LINE=$(grep '^GCP_SELKOUUTISET_ARCHIVE_PROJECT=' "$ENV_FILE" || true)
+    if [ -n "$PROJECT_ID_LINE" ]; then
+        PROJECT_ID_FROM_ENV=$(echo "$PROJECT_ID_LINE" | cut -d'=' -f2- | sed 's/^[[:space:]]*//;s/[[:space:]]*$//;s/^"//;s/"$//')
+        if [ -n "$PROJECT_ID_FROM_ENV" ]; then
+            GCP_PROJECT_ID="$PROJECT_ID_FROM_ENV"
+            log_message "Successfully loaded GCP_SELKOUUTISET_ARCHIVE_PROJECT ('$GCP_PROJECT_ID') from '$ENV_FILE'."
+        else
+            log_message "ERROR: '$ENV_FILE' found, but GCP_SELKOUUTISET_ARCHIVE_PROJECT is empty or malformed. This is required."
+            exit 1
+        fi
+    else
+        log_message "ERROR: '$ENV_FILE' found, but line starting with 'GCP_SELKOUUTISET_ARCHIVE_PROJECT=' is missing. This is required."
+        exit 1
+    fi
+else
+    log_message "ERROR: Configuration file '$ENV_FILE' not found. This file is required."
+    log_message "Please create '$ENV_FILE' with:"
+    log_message "GCP_SELKOUUTISET_ARCHIVE_PROJECT=\"your-gcp-project-id\""
+    exit 1
+fi
+
+# --- Authenticate and Fetch Access Token using gcloud ---
+ACCESS_TOKEN=""
+log_message "Attempting to generate Google Cloud access token using 'gcloud auth print-access-token'..."
+
+ACCESS_TOKEN_CMD_OUTPUT=$(gcloud auth print-access-token 2>/dev/null) # Suppress gcloud's own stderr for cleaner capture if successful
+GCLOUD_EXIT_CODE=$?
+
+if [ $GCLOUD_EXIT_CODE -ne 0 ]; then
+    log_message "CRITICAL ERROR: 'gcloud auth print-access-token' failed with exit code $GCLOUD_EXIT_CODE."
+    log_message "Ensure you are logged in with 'gcloud auth login' and 'gcloud init' has been run."
+    exit 1
+elif [ -z "$ACCESS_TOKEN_CMD_OUTPUT" ]; then
+    log_message "CRITICAL ERROR: 'gcloud auth print-access-token' succeeded but produced no output."
+    log_message "This might indicate an issue with your gcloud configuration or authentication state."
+    exit 1
+else
+    ACCESS_TOKEN="$ACCESS_TOKEN_CMD_OUTPUT"
+    log_message "Successfully generated Google Cloud access token."
+fi
+
+# --- Test Google Translate API Connectivity and Authentication ---
+log_message "Performing a test translation to verify API connectivity and authentication..."
+TEST_TRANSLATION_TEXT="Hello"
+TEST_TRANSLATION_SOURCE_LANG="en"
+TEST_TRANSLATION_TARGET_LANG="fi"
+
+TEST_REQUEST_JSON_STRING=$(printf '{"q": ["%s"],"source": "%s","target": "%s","format": "text"}' \
+    "$TEST_TRANSLATION_TEXT" \
+    "$TEST_TRANSLATION_SOURCE_LANG" \
+    "$TEST_TRANSLATION_TARGET_LANG")
+
+# Temp file for the test API response
+test_api_response_tmp_file="$SCRIPT_DIR/test_translate_api_response.$$.json"
+
+log_message "Test API call: Translating '$TEST_TRANSLATION_TEXT' from '$TEST_TRANSLATION_SOURCE_LANG' to '$TEST_TRANSLATION_TARGET_LANG'."
+
+if curl --silent --fail -X POST \
+    -H "Authorization: Bearer $ACCESS_TOKEN" \
+    -H "x-goog-user-project: $GCP_PROJECT_ID" \
+    -H "Content-Type: application/json; charset=utf-8" \
+    -d "$TEST_REQUEST_JSON_STRING" \
+    "https://translation.googleapis.com/language/translate/v2" > "$test_api_response_tmp_file"; then
+
+    if perl - "$test_api_response_tmp_file" <<'PERL_VALIDATE_TEST_RESPONSE_EOF'; then
+        use strict;
+        use warnings;
+        use utf8;
+        use JSON::PP;
+
+        my $response_file = $ARGV[0];
+        my $json_text;
+
+        eval {
+            open my $fh_in, "<:encoding(UTF-8)", $response_file or die "Cannot open API response file '\''$response_file'\'': $!\n";
+            local $/ = undef;
+            $json_text = <$fh_in>;
+            close $fh_in;
+        };
+        if ($@) { my $e = $@; chomp $e; print STDERR "Perl Error reading test API response file '$response_file': $e\n"; exit 1; }
+
+        unless (defined $json_text && length $json_text) {
+            print STDERR "Perl Error: Test API response file '$response_file' is empty or could not be read.\n";
+            exit 1;
+        }
+
+        my $decoded_json;
+        # Use decode() without utf8(1) because $json_text is already decoded Perl characters
+        eval { $decoded_json = JSON::PP->new->decode($json_text); };
+        if ($@) { my $e = $@; chomp $e; print STDERR "Perl Error decoding JSON from test API response: $e\n"; exit 1; }
+
+        unless (defined $decoded_json) { print STDERR "Perl Error: Failed to decode JSON from test API response, result undefined.\n"; exit 1; }
+
+        if (
+            ref $decoded_json eq 'HASH' &&
+            exists $decoded_json->{data} && ref $decoded_json->{data} eq 'HASH' &&
+            exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY' &&
+            scalar @{$decoded_json->{data}->{translations}} > 0 &&
+            exists $decoded_json->{data}->{translations}->[0]->{translatedText} &&
+            defined $decoded_json->{data}->{translations}->[0]->{translatedText} &&
+            length $decoded_json->{data}->{translations}->[0]->{translatedText} > 0
+        ) {
+            exit 0; # Success
+        } else {
+            print STDERR "Perl Error: Test API response JSON structure is invalid or 'translatedText' is missing/empty.\n";
+            exit 1;
+        }
+PERL_VALIDATE_TEST_RESPONSE_EOF
+        log_message "Test translation successful. API connectivity and authentication verified."
+        rm -f "$test_api_response_tmp_file"
+    else
+        log_message "CRITICAL ERROR: Test translation API call response validation failed (Perl script error)."
+        log_message "Perl script STDERR should have details. Response from API was saved to '$test_api_response_tmp_file' (if curl succeeded)."
+        if [ -f "$test_api_response_tmp_file" ]; then
+            log_message "Content of '$test_api_response_tmp_file':"
+            while IFS= read -r log_line || [ -n "$log_line" ]; do log_message "  $log_line"; done < "$test_api_response_tmp_file"
+        fi
+        exit 1
+    fi
+else
+    CURL_EXIT_CODE=$?
+    log_message "CRITICAL ERROR: Test translation API call failed. curl exit code: $CURL_EXIT_CODE."
+    log_message "Check network, token, API endpoint ($GCP_PROJECT_ID), or quotas. Response (if any) in '$test_api_response_tmp_file'."
+    if [ -f "$test_api_response_tmp_file" ]; then
+        if [ -s "$test_api_response_tmp_file" ]; then
+            log_message "Content of '$test_api_response_tmp_file':"
+            while IFS= read -r log_line || [ -n "$log_line" ]; do log_message "  $log_line"; done < "$test_api_response_tmp_file"
+        else
+            rm -f "$test_api_response_tmp_file"
+        fi
+    fi
+    exit 1
+fi
+
+log_message "All essential commands, versions, modules, configurations, and API authentication test successful."
 
 # --- 1. Update Git Submodules ---
 SUBMODULE_PATH="selkouutiset-scrape"
@@ -82,11 +232,10 @@ else
   log_message "Submodule '$SUBMODULE_PATH' is already up-to-date. No changes to commit in the parent repository."
 fi
 
-# --- 2. Process HTML to Markdown & Generate Translation JSON ---
-log_message "Starting HTML to Markdown processing (for index.fi.md) and Translation JSON generation..."
+# --- 2. Process HTML to Markdown, Generate Translation JSON, and Translate ---
+log_message "Starting HTML processing, JSON generation, and Translation..."
 
 HASH_FILE=".hash"
-# Ensure .hash file exists
 if [ ! -f "$HASH_FILE" ]; then
   log_message "Hash file '$HASH_FILE' not found, creating it."
   touch "$HASH_FILE"
@@ -105,13 +254,12 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
       day_val=$(basename "$day_dir_candidate")
 
       source_html_file_relative="${day_dir_candidate}/selkouutiset_${year_val}_${month_val}_${day_val}.html"
-      source_html_file_for_hash="./${source_html_file_relative}" # Path for .hash file will be prefixed with ./
-      source_html_file_for_ops="$source_html_file_relative"      # Actual path for file operations
+      source_html_file_for_hash="./${source_html_file_relative}"
+      source_html_file_for_ops="$source_html_file_relative"
 
       target_base_dir="${year_val}/${month_val}/${day_val}"
-      target_md_file="${target_base_dir}/index.fi.md"
-      # Consistent log suffix for operations related to this day's article
-      processed_day_log_suffix="Day: $year_val/$month_val/$day_val, Source HTML: '$source_html_file_for_ops', Target MD: '$target_md_file'"
+      target_md_fi_file="${target_base_dir}/index.fi.md"
+      processed_day_log_suffix="Day: $year_val/$month_val/$day_val, SrcHTML: '$source_html_file_for_ops'"
 
       if [ ! -f "$source_html_file_for_ops" ]; then
         log_message "Skipped MD: Source HTML file not found. $processed_day_log_suffix"
@@ -125,19 +273,17 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
       fi
 
       stored_hash_line=$(grep -F -- "$source_html_file_for_hash" "$HASH_FILE" || true)
-      generate_md=false # Flag to control pandoc pipeline execution
+      generate_md=false
 
       if [ -z "$stored_hash_line" ]; then
-        # Rule 1: HTML file not in .hash
         printf "%s %s\n" "$source_html_file_for_hash" "$current_sha1" >>"$HASH_FILE"
-        if [ ! -f "$target_md_file" ]; then
-          log_message "MD Gen: File newly added to '$HASH_FILE' (SHA1: '$current_sha1'). Target MD missing, will generate. $processed_day_log_suffix"
+        if [ ! -f "$target_md_fi_file" ]; then
+          log_message "MD Gen: File newly added to '$HASH_FILE' (SHA1: '$current_sha1'). Target FI MD missing, will generate. $processed_day_log_suffix, TargetMD: '$target_md_fi_file'"
           generate_md=true
         else
-          log_message "MD Skip: File newly added to '$HASH_FILE' (SHA1: '$current_sha1'). Target MD exists, generation skipped. $processed_day_log_suffix"
+          log_message "MD Skip: File newly added to '$HASH_FILE' (SHA1: '$current_sha1'). Target FI MD exists, generation skipped. $processed_day_log_suffix, TargetMD: '$target_md_fi_file'"
         fi
       else
-        # File IS in .hash
         stored_sha1=$(echo "$stored_hash_line" | awk '{print $2}')
         if [ -z "$stored_sha1" ]; then
           log_message "ERROR MD: Could not extract stored SHA1 from line: '$stored_hash_line'. Skipping. $processed_day_log_suffix"
@@ -145,113 +291,247 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
         fi
 
         if [ "$current_sha1" = "$stored_sha1" ]; then
-          # Rule 2: Hashes match
-          if [ ! -f "$target_md_file" ]; then
-            log_message "MD Gen: Current SHA1 '$current_sha1' matches stored. Target MD missing, will generate. $processed_day_log_suffix"
+          if [ ! -f "$target_md_fi_file" ]; then
+            log_message "MD Gen: Current SHA1 '$current_sha1' matches stored. Target FI MD missing, will generate. $processed_day_log_suffix, TargetMD: '$target_md_fi_file'"
             generate_md=true
           else
-            log_message "MD Skip: Current SHA1 '$current_sha1' matches stored. Target MD exists. MD generation skipped. $processed_day_log_suffix"
+            log_message "MD Skip: Current SHA1 '$current_sha1' matches stored. Target FI MD exists. MD generation skipped. $processed_day_log_suffix, TargetMD: '$target_md_fi_file'"
           fi
         else
-          # Rule 3: Hashes DO NOT match - CRITICAL ERROR
           log_message "CRITICAL HASH MISMATCH! Stored SHA1: '$stored_sha1', Current SHA1: '$current_sha1'. ABORTING SCRIPT. $processed_day_log_suffix"
-          exit 2 # Specific exit code for hash mismatch
+          exit 2
         fi
       fi
 
       if [ "$generate_md" = true ]; then
-        log_message "MD Gen: Proceeding with MD generation for '$target_md_file'. $processed_day_log_suffix"
+        log_message "MD Gen: Proceeding with FI MD generation for '$target_md_fi_file'. $processed_day_log_suffix"
         if ! mkdir -p "$target_base_dir"; then
-          log_message "ERROR MD: Failed to create target directory '$target_base_dir'. Cannot generate MD. $processed_day_log_suffix"
+          log_message "ERROR MD: Failed to create target directory '$target_base_dir'. Cannot generate FI MD. $processed_day_log_suffix"
           continue
         fi
 
-        tmp_md_file="${target_md_file}.tmp.$$"
+        tmp_md_file="${target_md_fi_file}.tmp.$$"
         if cat "$source_html_file_for_ops" |
-          pandoc --from=html --to=commonmark --wrap=none |
-          perl -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' |
-          perl -0777 -pe 's/^(\s*\n)+//g' |
-          perl -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |
-          perl -0777 -pe 's/\n{3,}/\n\n/g' |
-          perl -0777 -pe 's/\s*$/\n/ if /./; $_ = "" if $_ eq "\n";' >"$tmp_md_file"; then
-          mv "$tmp_md_file" "$target_md_file"
-          log_message "MD Success: Created/Updated '$target_md_file'. $processed_day_log_suffix"
+           pandoc --from=html --to=commonmark --wrap=none |
+           perl -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' |
+           perl -0777 -pe 's/^(\s*\n)+//g' |
+           perl -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |
+           perl -0777 -pe 's/\n{3,}/\n\n/g' |
+           perl -0777 -pe 's/\s*$/\n/ if /./; $_ = "" if $_ eq "\n";' >"$tmp_md_file"; then
+          mv "$tmp_md_file" "$target_md_fi_file"
+          log_message "MD Success: Created/Updated '$target_md_fi_file'. $processed_day_log_suffix"
         else
-          log_message "MD Failed: Pipeline error during MD generation for '$target_md_file'. Temp file '$tmp_md_file' removed. $processed_day_log_suffix"
+          log_message "MD Failed: Pipeline error during FI MD generation for '$target_md_fi_file'. Temp file '$tmp_md_file' removed. $processed_day_log_suffix"
           rm -f "$tmp_md_file"
-          # set -e will cause the script to exit here.
         fi
-      fi # End of "if generate_md is true"
+      fi
 
-      # --- Generate Translation Request JSON ---
-      if [ -f "$target_md_file" ]; then
-        target_json_file="${target_base_dir}/_request.fi.en.json"
-        abs_target_md_file="$PWD/$target_md_file"
-        abs_target_json_file="$PWD/$target_json_file"
+      abs_target_md_fi_file="$PWD/$target_md_fi_file"
+      target_request_json_file="${target_base_dir}/_request.fi.en.json" # Name for the request file
+      abs_target_request_json_file="$PWD/$target_request_json_file"
 
-        json_gen_log_suffix="Target JSON: '$target_json_file', from MD: '$target_md_file'"
-
+      if [ -f "$target_md_fi_file" ]; then
+        json_gen_log_suffix="TargetRequestJSON: '$target_request_json_file', from FI MD: '$target_md_fi_file'"
         log_message "JSON Check: Checking/Creating translation request JSON. $json_gen_log_suffix"
 
-        if [ -f "$abs_target_json_file" ]; then
-          log_message "JSON Skip: Translation request JSON already exists. $json_gen_log_suffix"
+        if [ -f "$abs_target_request_json_file" ]; then
+          log_message "JSON Skip: Translation request JSON '$abs_target_request_json_file' already exists. $json_gen_log_suffix"
         else
-          log_message "JSON Gen: Generating translation request JSON (using JSON::PP, UTF-8 enforced)... $json_gen_log_suffix"
-          if perl - "$abs_target_md_file" "$abs_target_json_file" <<'PERL_SCRIPT_EOF'; then
+          log_message "JSON Gen: Generating translation request JSON '$abs_target_request_json_file'... $json_gen_log_suffix"
+          if perl - "$abs_target_md_fi_file" "$abs_target_request_json_file" <<'PERL_SCRIPT_EOF'; then
               use strict;
               use warnings;
-              use utf8;         # Declare that this script (and strings) use UTF-8
+              use utf8;
               use JSON::PP;
-
               my $md_filepath = $ARGV[0];
               my $json_filepath = $ARGV[1];
-
               unless (defined $md_filepath && length $md_filepath && -f $md_filepath) {
                   die "Perl Error: Input MD file path invalid or file not found: RCV['\''$md_filepath'\'']\n";
               }
               unless (defined $json_filepath && length $json_filepath) {
                   die "Perl Error: Output JSON file path invalid: RCV['\''$json_filepath'\'']\n";
               }
-
               my @lines_for_json;
-              # Open input MD file with UTF-8 encoding layer
               open(my $fh_in, "<:encoding(UTF-8)", $md_filepath)
                   or die "Perl Error: Could not open MD file '\''$md_filepath'\'': $!\n";
               while (my $line = <$fh_in>) {
                   chomp $line;
-                  $line =~ s/^\s+|\s+$//g; # Strip leading/trailing whitespace
-                  # $line is now a UTF-8 decoded Perl string
                   push @lines_for_json, $line;
               }
               close $fh_in;
-
               my $data_to_encode = {
                   q      => \@lines_for_json,
                   source => "fi",
                   target => "en",
                   format => "text",
               };
-
-              # JSON::PP->utf8(1) ensures $json_string contains UTF-8 *bytes*
               my $json_encoder = JSON::PP->new->utf8(1)->pretty(1);
               my $json_string = $json_encoder->encode($data_to_encode);
-
-              # Open output JSON file for writing raw bytes
-              open(my $fh_out, ">", $json_filepath)
+              open(my $fh_out, ">:encoding(UTF-8)", $json_filepath)
                   or die "Perl Error: Could not create JSON file '\''$json_filepath'\'': $!\n";
-              binmode $fh_out; # Ensure filehandle is in binary mode (no CRLF translation, no encoding layers)
-              print $fh_out $json_string; # Print the UTF-8 bytes directly
+              print $fh_out $json_string;
               close $fh_out;
 PERL_SCRIPT_EOF
             log_message "JSON Success: Created translation request JSON. $json_gen_log_suffix"
           else
-            log_message "JSON ERROR: Perl script (using JSON::PP) failed to generate JSON. $json_gen_log_suffix"
-            rm -f "$abs_target_json_file"
+            log_message "JSON ERROR: Perl script (using JSON::PP) failed to generate request JSON. $json_gen_log_suffix"
+            rm -f "$abs_target_request_json_file"
           fi
         fi
       else
-        log_message "JSON Skip: Skipping translation JSON generation as target MD file '$target_md_file' does not exist. $processed_day_log_suffix"
+        log_message "JSON Skip: Skipping translation request JSON generation as target FI MD file '$target_md_fi_file' does not exist. $processed_day_log_suffix"
       fi
+
+      # --- 3. Perform Translation using Google Translate API (with response caching) ---
+      target_response_json_file="${target_base_dir}/_response.fi.en.json" # Name for the API response file
+      abs_target_response_json_file="$PWD/$target_response_json_file"
+      target_en_md_file="${target_base_dir}/index.en.md"
+      abs_target_en_md_file="$PWD/$target_en_md_file"
+
+      # Proceed only if the request JSON exists
+      if [ -f "$abs_target_request_json_file" ]; then
+        translate_log_suffix="TargetEN_MD: '$target_en_md_file', from RequestJSON: '$abs_target_request_json_file'"
+
+        if [ -f "$abs_target_response_json_file" ]; then
+            log_message "TRANSLATE Skip API Call: Response file '$abs_target_response_json_file' already exists. Using cached response. $translate_log_suffix"
+        else
+            log_message "TRANSLATE API Call: Response file '$abs_target_response_json_file' not found. Calling API. $translate_log_suffix"
+            if [ -z "$ACCESS_TOKEN" ]; then
+                log_message "TRANSLATE ERROR: Access token not available (gcloud auth failed). Cannot call API. $translate_log_suffix"
+                # Skip to next iteration if token is missing for some reason (should be caught earlier)
+                continue
+            elif [ -z "$GCP_PROJECT_ID" ]; then
+                log_message "TRANSLATE ERROR: GCP_PROJECT_ID is not set. Cannot call API. $translate_log_suffix"
+                continue
+            fi
+
+            # Perform the API call using curl, save directly to final response file name
+            if curl --silent --fail -X POST \
+                -H "Authorization: Bearer $ACCESS_TOKEN" \
+                -H "x-goog-user-project: $GCP_PROJECT_ID" \
+                -H "Content-Type: application/json; charset=utf-8" \
+                -d "@$abs_target_request_json_file" \
+                "https://translation.googleapis.com/language/translate/v2" > "$abs_target_response_json_file"; then
+                log_message "TRANSLATE API Success: API call successful, response saved to '$abs_target_response_json_file'. $translate_log_suffix"
+            else
+                CURL_API_EXIT_CODE=$?
+                log_message "TRANSLATE API ERROR: curl command failed with exit code $CURL_API_EXIT_CODE. $translate_log_suffix"
+                # Log content of failed response if it exists and has content
+                if [ -s "$abs_target_response_json_file" ]; then
+                    log_message "Content of failed API response file '$abs_target_response_json_file':"
+                    while IFS= read -r log_line || [ -n "$log_line" ]; do log_message "  $log_line"; done < "$abs_target_response_json_file"
+                fi
+                rm -f "$abs_target_response_json_file" # Remove potentially partial or error JSON response
+                log_message "TRANSLATE API ERROR: Removed failed/partial response file '$abs_target_response_json_file'. Skipping EN.MD generation for this item."
+                continue # Skip to the next day/item
+            fi
+        fi
+
+        # At this point, abs_target_response_json_file should exist (either pre-existing or newly downloaded)
+        # Now, parse it to create/update index.en.md
+        if [ -f "$abs_target_response_json_file" ]; then
+            log_message "TRANSLATE Parse: Processing response file '$abs_target_response_json_file' to generate '$abs_target_en_md_file'. $translate_log_suffix"
+            if perl - "$abs_target_response_json_file" "$abs_target_en_md_file" <<'PERL_PARSE_RESPONSE_EOF'; then
+                use strict;
+                use warnings;
+                use utf8;
+                use JSON::PP;
+
+                if (@ARGV < 2) {
+                    print STDERR "Perl Internal Error: Missing arguments (input_json_file, output_md_file).\n";
+                    exit 2;
+                }
+                my $input_json_file = $ARGV[0];
+                my $output_md_file = $ARGV[1];
+                my $json_text;
+
+                eval {
+                    open my $fh_in, "<:encoding(UTF-8)", $input_json_file or die "Cannot open input file '\''$input_json_file'\'': $!\n";
+                    local $/ = undef;
+                    $json_text = <$fh_in>;
+                    close $fh_in;
+                };
+                if ($@) {
+                    my $errmsg = $@; $errmsg =~ s/\n/ /g;
+                    print STDERR "Perl Error reading input file '$input_json_file' for parsing: $errmsg";
+                    exit 1;
+                }
+                unless (defined $json_text && length $json_text) {
+                    print STDERR "Perl Error: API response file '$input_json_file' is empty or could not be read.\n";
+                    exit 1;
+                }
+
+                my $decoded_json;
+                # Use decode() without utf8(1) because $json_text is already decoded Perl characters
+                eval { $decoded_json = JSON::PP->new->decode($json_text); };
+                if ($@) {
+                    my $errmsg = $@; $errmsg =~ s/\n/ /g;
+                    print STDERR "Perl Error decoding JSON from API response file '$input_json_file': $errmsg";
+                    exit 1;
+                }
+                unless (defined $decoded_json) {
+                     print STDERR "Perl Error: Failed to decode JSON from API response file '$input_json_file', result is undefined.\n";
+                     exit 1;
+                }
+
+                unless (
+                    ref $decoded_json eq 'HASH' &&
+                    exists $decoded_json->{data} && ref $decoded_json->{data} eq 'HASH' &&
+                    exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY'
+                ) {
+                    # If data or translations is missing, it might be an API error message JSON
+                    # Log the structure for debugging but don't treat as fatal for the script,
+                    # as the file might contain a legitimate error from Google.
+                    print STDERR "Perl Warning: Unexpected JSON structure in API response file '$input_json_file'. Expected 'data.translations' (array). File might contain an API error message.\n";
+                    # To see the structure:
+                    # use Data::Dumper; $Data::Dumper::Indent = 1; print STDERR Dumper($decoded_json);
+                    # For now, we'll try to proceed if it's an error structure from Google, or create an empty .en.md
+                    # If it's truly malformed, JSON::PP->decode would have died.
+                    # If we want to be stricter and exit: exit 1;
+                }
+
+                eval {
+                    open my $fh_out, ">:encoding(UTF-8)", $output_md_file or die "Cannot open output file '\''$output_md_file'\'': $!\n";
+                    # Only try to iterate if translations array exists and is an array
+                    if (ref $decoded_json eq 'HASH' && exists $decoded_json->{data} && ref $decoded_json->{data} eq 'HASH' &&
+                        exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY')
+                    {
+                        my @translations_arr = @{$decoded_json->{data}->{translations}};
+                        foreach my $item (@translations_arr) {
+                            if (ref $item eq 'HASH' && exists $item->{translatedText} && defined $item->{translatedText}) {
+                                print $fh_out $item->{translatedText} . "\n";
+                            } else {
+                                print STDERR "Perl Warning: Malformed translation item (missing 'translatedText') in response file '$input_json_file'. Skipping item.\n";
+                            }
+                        }
+                    } else {
+                        # If the expected structure isn't there, we might be dealing with an API error response.
+                        # In this case, the output .en.md will be empty, and the _response.fi.en.json will contain the error.
+                        print STDERR "Perl Note: 'data.translations' array not found in expected structure in '$input_json_file'. Output MD file '$output_md_file' will be empty or reflect previous content if not overwritten.\n";
+                    }
+                    close $fh_out;
+                };
+                if ($@) {
+                    my $errmsg = $@; $errmsg =~ s/\n/ /g;
+                    print STDERR "Perl Error writing to output file '$output_md_file': $errmsg";
+                    exit 1; # This is a more critical failure
+                }
+                exit 0; # Success from Perl script
+PERL_PARSE_RESPONSE_EOF
+                log_message "TRANSLATE Parse Success: Processed '$abs_target_response_json_file' to '$abs_target_en_md_file'. $translate_log_suffix"
+            else
+                # Perl script for parsing response exited with non-zero status
+                log_message "TRANSLATE Parse ERROR: Perl script failed to parse response file '$abs_target_response_json_file' or write to '$abs_target_en_md_file'. $translate_log_suffix"
+                log_message "The response file '$abs_target_response_json_file' is kept for inspection. Perl STDERR should have details."
+                # No need to cat the file here, as it's the permanent _response.fi.en.json
+            fi
+        else
+            log_message "TRANSLATE Parse ERROR: Response file '$abs_target_response_json_file' not found or unreadable after API call/check. Skipping EN.MD generation for this item. $translate_log_suffix"
+        fi
+      else
+        log_message "TRANSLATE Skip: Request JSON file '$abs_target_request_json_file' not found. Cannot proceed with translation. $processed_day_log_suffix"
+      fi
+      # --- End of Translation ---
 
     done # Day loop
   done   # Month loop
@@ -265,6 +545,6 @@ else
   log_message "'$HASH_FILE' is empty or does not exist, no sorting needed."
 fi
 
-log_message "All source directories checked. Processing complete for index.fi.md and _request.fi.en.json files."
+log_message "All source directories checked. Processing complete."
 exit 0
 

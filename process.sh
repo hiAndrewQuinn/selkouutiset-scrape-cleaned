@@ -37,6 +37,31 @@ log_message() {
   done
 }
 
+# --- Ensure $HOME/.local/bin is in PATH for cron ---
+# This is to ensure tools like pandoc, installed in the user's local bin, are found
+# when the script is run via cron, which often has a minimal PATH.
+log_message "Checking and potentially updating PATH for user-specific binaries."
+if [ -n "$HOME" ] && [ -d "$HOME/.local/bin" ]; then
+  # Check if $HOME/.local/bin is already in PATH to avoid redundant additions
+  # and overly long PATH variables, though functionally it's often not an issue.
+  # The pattern matching ensures we match the exact path component.
+  case ":$PATH:" in
+  *":$HOME/.local/bin:"*)
+    log_message "$HOME/.local/bin already in PATH."
+    ;;
+  *)
+    export PATH="$HOME/.local/bin:$PATH"
+    log_message "Prepended $HOME/.local/bin to PATH. New PATH: $PATH"
+    ;;
+  esac
+else
+  if [ -z "$HOME" ]; then
+    log_message "Warning: HOME environment variable not set. Cannot reliably add user's .local/bin to PATH."
+  else
+    log_message "Note: Directory $HOME/.local/bin does not exist. Not added to PATH."
+  fi
+fi
+
 # --- 0. Dependency Check ---
 log_message "Checking for required commands..."
 # Added curl, gcloud, sed.
@@ -266,8 +291,8 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
       day_val=$(basename "$day_dir_candidate")
 
       source_html_file_relative="${day_dir_candidate}/selkouutiset_${year_val}_${month_val}_${day_val}.html"
-      source_html_file_for_hash="./${source_html_file_relative}" 
-      source_html_file_for_ops="$source_html_file_relative"     
+      source_html_file_for_hash="./${source_html_file_relative}"
+      source_html_file_for_ops="$source_html_file_relative"
 
       target_base_dir="${year_val}/${month_val}/${day_val}"
       target_md_fi_file="${target_base_dir}/index.fi.md"
@@ -311,7 +336,7 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
           fi
         else
           log_message "CRITICAL HASH MISMATCH! Stored SHA1: '$stored_sha1', Current SHA1: '$current_sha1'. ABORTING SCRIPT. $processed_day_log_suffix"
-          exit 2 
+          exit 2
         fi
       fi
 
@@ -328,10 +353,10 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
           perl -CSDA -pe 's{src="data:image/svg\+xml;base64,[^"]*"}{}gi' |
           perl -CSDA -pe 's{<img\s+([^>]+)>}{ my $attrs_img = $1; my $src_img = ($attrs_img =~ m{src="([^"]*)"}i) ? $1 : undef; my $alt_img = ($attrs_img =~ m{alt="([^"]*)"}i) ? $1 : undef; (defined $src_img && defined $alt_img) ? sprintf("![%s](%s)", $alt_img, $src_img) : $& }gei' |
           perl -CSDA -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' |
-          perl -CSDA -0777 -pe 's/^(\s*\n)+//g' |                                           
-          perl -CSDA -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |         
-          perl -CSDA -0777 -pe 's/\n{3,}/\n\n/g' |                                           
-          perl -CSDA -0777 -pe 's/\s*$/\n/ if /./; $_ = "" if $_ eq "\n";' >"$tmp_md_file"; then 
+          perl -CSDA -0777 -pe 's/^(\s*\n)+//g' |
+          perl -CSDA -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |
+          perl -CSDA -0777 -pe 's/\n{3,}/\n\n/g' |
+          perl -CSDA -0777 -pe 's/\s*$/\n/ if /./; $_ = "" if $_ eq "\n";' >"$tmp_md_file"; then
           mv "$tmp_md_file" "$target_md_fi_file"
           log_message "MD Success: Created/Updated '$target_md_fi_file'. $processed_day_log_suffix"
         else
@@ -341,7 +366,7 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
       fi
 
       abs_target_md_fi_file="$PWD/$target_md_fi_file"
-      target_request_json_file="${target_base_dir}/_request.fi.en.json" 
+      target_request_json_file="${target_base_dir}/_request.fi.en.json"
       abs_target_request_json_file="$PWD/$target_request_json_file"
 
       if [ -f "$target_md_fi_file" ]; then
@@ -408,7 +433,7 @@ PERL_SCRIPT_EOF
         log_message "JSON Skip: Skipping translation request JSON generation as target FI MD file '$target_md_fi_file' does not exist. $processed_day_log_suffix"
       fi
 
-      target_response_json_file="${target_base_dir}/_response.fi.en.json" 
+      target_response_json_file="${target_base_dir}/_response.fi.en.json"
       abs_target_response_json_file="$PWD/$target_response_json_file"
       target_en_md_file="${target_base_dir}/index.en.md"
       abs_target_en_md_file="$PWD/$target_en_md_file"
@@ -438,13 +463,13 @@ PERL_SCRIPT_EOF
           else
             CURL_API_EXIT_CODE=$?
             log_message "TRANSLATE API ERROR: curl command failed with exit code $CURL_API_EXIT_CODE. $translate_log_suffix"
-            if [ -s "$abs_target_response_json_file" ]; then 
+            if [ -s "$abs_target_response_json_file" ]; then
               log_message "Content of failed API response file '$abs_target_response_json_file':"
               while IFS= read -r log_line || [ -n "$log_line" ]; do log_message "  $log_line"; done <"$abs_target_response_json_file"
             fi
-            rm -f "$abs_target_response_json_file" 
+            rm -f "$abs_target_response_json_file"
             log_message "TRANSLATE API ERROR: Removed failed/partial response file '$abs_target_response_json_file'. Skipping EN.MD generation for this item."
-            continue 
+            continue
           fi
         fi
 
@@ -541,12 +566,12 @@ PERL_PARSE_RESPONSE_EOF
         log_message "TRANSLATE Skip: Request JSON file '$abs_target_request_json_file' not found. Cannot proceed with translation. $processed_day_log_suffix"
       fi
 
-    done 
-  done   
-done     
+    done
+  done
+done
 
 log_message "Sorting and uniquifying '$HASH_FILE'..."
-if [ -s "$HASH_FILE" ]; then 
+if [ -s "$HASH_FILE" ]; then
   sort -u "$HASH_FILE" -o "$HASH_FILE"
   log_message "'$HASH_FILE' sorted."
 else
@@ -555,4 +580,3 @@ fi
 
 log_message "All source directories checked. Processing complete."
 exit 0
-

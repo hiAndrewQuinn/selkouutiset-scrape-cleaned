@@ -14,6 +14,8 @@ set -e
 
 # Ensure a consistent UTF-8 environment for all commands
 export LC_ALL=C.UTF-8
+# Suppress Perl locale warnings by setting PERL_BADLANG to 0
+export PERL_BADLANG=0
 
 # --- Script Setup ---
 SCRIPT_DIR=$(cd "$(dirname "$0")" && pwd) # Absolute path to script's directory
@@ -149,11 +151,16 @@ if curl --silent --fail -X POST \
   -d "$TEST_REQUEST_JSON_STRING" \
   "https://translation.googleapis.com/language/translate/v2" >"$test_api_response_tmp_file"; then
 
+  # PERL_BADLANG=0 is set globally, so internal locale settings/suppressions might be redundant
+  # but are kept for clarity or if PERL_BADLANG was not set for some reason.
   if perl - "$test_api_response_tmp_file" <<'PERL_VALIDATE_TEST_RESPONSE_EOF'; then
+        use POSIX qw(setlocale LC_ALL);
+        setlocale(LC_ALL, "C"); 
         use strict;
         use warnings;
+        no warnings 'locale'; 
         use utf8;
-        binmode STDERR, ":encoding(UTF-8)"; # Ensure STDERR handles UTF-8
+        binmode STDERR, ":encoding(UTF-8)"; 
         use JSON::PP;
 
         my $response_file = $ARGV[0];
@@ -173,7 +180,6 @@ if curl --silent --fail -X POST \
         }
 
         my $decoded_json;
-        # JSON::PP->decode expects Perl character strings (which $json_text is, due to <:encoding(UTF-8) on fh_in)
         eval { $decoded_json = JSON::PP->new->decode($json_text); };
         if ($@) { my $e = $@; chomp $e; print STDERR "Perl Error decoding JSON from test API response: $e\n"; exit 1; }
 
@@ -214,7 +220,6 @@ else
       log_message "Content of '$test_api_response_tmp_file':"
       while IFS= read -r log_line || [ -n "$log_line" ]; do log_message "  $log_line"; done <"$test_api_response_tmp_file"
     else
-      # If curl failed and the file is empty, remove it.
       rm -f "$test_api_response_tmp_file"
     fi
   fi
@@ -261,8 +266,8 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
       day_val=$(basename "$day_dir_candidate")
 
       source_html_file_relative="${day_dir_candidate}/selkouutiset_${year_val}_${month_val}_${day_val}.html"
-      source_html_file_for_hash="./${source_html_file_relative}" # Path as stored in .hash
-      source_html_file_for_ops="$source_html_file_relative"      # Path for actual operations
+      source_html_file_for_hash="./${source_html_file_relative}" 
+      source_html_file_for_ops="$source_html_file_relative"     
 
       target_base_dir="${year_val}/${month_val}/${day_val}"
       target_md_fi_file="${target_base_dir}/index.fi.md"
@@ -306,7 +311,7 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
           fi
         else
           log_message "CRITICAL HASH MISMATCH! Stored SHA1: '$stored_sha1', Current SHA1: '$current_sha1'. ABORTING SCRIPT. $processed_day_log_suffix"
-          exit 2 # Exit on hash mismatch for safety
+          exit 2 
         fi
       fi
 
@@ -318,21 +323,15 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
         fi
 
         tmp_md_file="${target_md_fi_file}.tmp.$$"
-        # Ensure Perl one-liners handle UTF-8 correctly using -CSDA
         if cat "$source_html_file_for_ops" |
           pandoc --from=html --to=commonmark --wrap=none |
-          # NEW: Remove src="data:image/svg+xml;base64,..." strings that pandoc might output for icons.
           perl -CSDA -pe 's{src="data:image/svg\+xml;base64,[^"]*"}{}gi' |
-          # Convert <img> tags with src and alt to Markdown image syntax ![alt](src)
           perl -CSDA -pe 's{<img\s+([^>]+)>}{ my $attrs_img = $1; my $src_img = ($attrs_img =~ m{src="([^"]*)"}i) ? $1 : undef; my $alt_img = ($attrs_img =~ m{alt="([^"]*)"}i) ? $1 : undef; (defined $src_img && defined $alt_img) ? sprintf("![%s](%s)", $alt_img, $src_img) : $& }gei' |
-          # Original Perl line to remove other HTML tags.
-          # Img tags converted above won't be HTML anymore.
-          # Img tags not converted (e.g. missing alt) but containing "yle.fi" will still be spared by the (?!img.*yle\.fi)
           perl -CSDA -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' |
-          perl -CSDA -0777 -pe 's/^(\s*\n)+//g' |                                                # Remove leading blank lines
-          perl -CSDA -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |            # Remove "Tulosta" / "Jaa" sections at the end
-          perl -CSDA -0777 -pe 's/\n{3,}/\n\n/g' |                                               # Reduce multiple blank lines to one
-          perl -CSDA -0777 -pe 's/\s*$/\n/ if /./; $_ = "" if $_ eq "\n";' >"$tmp_md_file"; then # Ensure single newline at EOF, remove if only newline
+          perl -CSDA -0777 -pe 's/^(\s*\n)+//g' |                                           
+          perl -CSDA -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |         
+          perl -CSDA -0777 -pe 's/\n{3,}/\n\n/g' |                                           
+          perl -CSDA -0777 -pe 's/\s*$/\n/ if /./; $_ = "" if $_ eq "\n";' >"$tmp_md_file"; then 
           mv "$tmp_md_file" "$target_md_fi_file"
           log_message "MD Success: Created/Updated '$target_md_fi_file'. $processed_day_log_suffix"
         else
@@ -342,7 +341,7 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
       fi
 
       abs_target_md_fi_file="$PWD/$target_md_fi_file"
-      target_request_json_file="${target_base_dir}/_request.fi.en.json" # Name for the request file
+      target_request_json_file="${target_base_dir}/_request.fi.en.json" 
       abs_target_request_json_file="$PWD/$target_request_json_file"
 
       if [ -f "$target_md_fi_file" ]; then
@@ -353,14 +352,16 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
           log_message "JSON Skip: Translation request JSON '$abs_target_request_json_file' already exists. $json_gen_log_suffix"
         else
           log_message "JSON Gen: Generating translation request JSON '$abs_target_request_json_file'... $json_gen_log_suffix"
-          # Corrected Perl script for generating request JSON
           if perl - "$abs_target_md_fi_file" "$abs_target_request_json_file" <<'PERL_SCRIPT_EOF'; then
+              use POSIX qw(setlocale LC_ALL);
+              setlocale(LC_ALL, "C"); 
               use strict;
               use warnings;
-              use utf8; # Declares script source is UTF-8, enables UTF-8 string literals
-              binmode STDERR, ":encoding(UTF-8)"; # Ensure STDERR handles UTF-8
+              no warnings 'locale'; 
+              use utf8; 
+              binmode STDERR, ":encoding(UTF-8)"; 
               use JSON::PP;
-              use Encode qw(decode FB_CROAK); # For explicitly decoding input
+              use Encode qw(decode FB_CROAK); 
 
               my $md_filepath = $ARGV[0];
               my $json_filepath = $ARGV[1];
@@ -373,13 +374,11 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
               }
 
               my @lines_for_json;
-              # Open the Markdown file in raw byte mode, then explicitly decode its content from UTF-8
               open(my $fh_in, "<:raw", $md_filepath)
                   or die "Perl Error: Could not open MD file (raw) '\''$md_filepath'\'': $!\n";
               while (my $line_bytes = <$fh_in>) {
-                  # Decode bytes to Perl's internal character strings, assuming UTF-8 input
                   my $line_chars = Encode::decode('UTF-8', $line_bytes, FB_CROAK);
-                  chomp $line_chars; # Remove newline from decoded string
+                  chomp $line_chars; 
                   push @lines_for_json, $line_chars;
               }
               close $fh_in;
@@ -391,11 +390,9 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
                   format => "text",
               };
 
-              # JSON::PP->utf8(1) makes encode() output a UTF-8 encoded *byte string*
               my $json_encoder = JSON::PP->new->utf8(1)->pretty(1);
               my $json_byte_string = $json_encoder->encode($data_to_encode);
 
-              # Open the output JSON file in raw byte mode to write the UTF-8 byte string directly
               open(my $fh_out, ">:raw", $json_filepath)
                   or die "Perl Error: Could not create JSON file (raw) '\''$json_filepath'\'': $!\n";
               print $fh_out $json_byte_string;
@@ -404,7 +401,6 @@ PERL_SCRIPT_EOF
             log_message "JSON Success: Created translation request JSON. $json_gen_log_suffix"
           else
             log_message "JSON ERROR: Perl script (using JSON::PP) failed to generate request JSON. $json_gen_log_suffix"
-            # Consider removing $abs_target_request_json_file if Perl script fails
             rm -f "$abs_target_request_json_file"
           fi
         fi
@@ -412,13 +408,11 @@ PERL_SCRIPT_EOF
         log_message "JSON Skip: Skipping translation request JSON generation as target FI MD file '$target_md_fi_file' does not exist. $processed_day_log_suffix"
       fi
 
-      # --- 3. Perform Translation using Google Translate API (with response caching) ---
-      target_response_json_file="${target_base_dir}/_response.fi.en.json" # Name for the API response file
+      target_response_json_file="${target_base_dir}/_response.fi.en.json" 
       abs_target_response_json_file="$PWD/$target_response_json_file"
       target_en_md_file="${target_base_dir}/index.en.md"
       abs_target_en_md_file="$PWD/$target_en_md_file"
 
-      # Proceed only if the request JSON exists
       if [ -f "$abs_target_request_json_file" ]; then
         translate_log_suffix="TargetEN_MD: '$target_en_md_file', from RequestJSON: '$abs_target_request_json_file'"
 
@@ -434,7 +428,6 @@ PERL_SCRIPT_EOF
             continue
           fi
 
-          # Perform the API call using curl, save directly to final response file name
           if curl --silent --fail -X POST \
             -H "Authorization: Bearer $ACCESS_TOKEN" \
             -H "x-goog-user-project: $GCP_PROJECT_ID" \
@@ -445,45 +438,45 @@ PERL_SCRIPT_EOF
           else
             CURL_API_EXIT_CODE=$?
             log_message "TRANSLATE API ERROR: curl command failed with exit code $CURL_API_EXIT_CODE. $translate_log_suffix"
-            if [ -s "$abs_target_response_json_file" ]; then # Check if file has size (content)
+            if [ -s "$abs_target_response_json_file" ]; then 
               log_message "Content of failed API response file '$abs_target_response_json_file':"
               while IFS= read -r log_line || [ -n "$log_line" ]; do log_message "  $log_line"; done <"$abs_target_response_json_file"
             fi
-            rm -f "$abs_target_response_json_file" # Remove potentially partial or error JSON response
+            rm -f "$abs_target_response_json_file" 
             log_message "TRANSLATE API ERROR: Removed failed/partial response file '$abs_target_response_json_file'. Skipping EN.MD generation for this item."
-            continue # Skip to the next day/item
+            continue 
           fi
         fi
 
-        # At this point, abs_target_response_json_file should exist (either pre-existing or newly downloaded)
-        # Now, parse it to create/update index.en.md
         if [ -f "$abs_target_response_json_file" ]; then
           log_message "TRANSLATE Parse: Processing response file '$abs_target_response_json_file' to generate '$abs_target_en_md_file'. $translate_log_suffix"
           if perl - "$abs_target_response_json_file" "$abs_target_en_md_file" <<'PERL_PARSE_RESPONSE_EOF'; then
+                use POSIX qw(setlocale LC_ALL);
+                setlocale(LC_ALL, "C"); 
                 use strict;
                 use warnings;
+                no warnings 'locale'; 
                 use utf8;
-                binmode STDERR, ":encoding(UTF-8)"; # Ensure STDERR handles UTF-8
+                binmode STDERR, ":encoding(UTF-8)"; 
                 use JSON::PP;
 
                 if (@ARGV < 2) {
                     print STDERR "Perl Internal Error: Missing arguments (input_json_file, output_md_file).\n";
-                    exit 2; # Use a different exit code for internal script errors
+                    exit 2; 
                 }
                 my $input_json_file = $ARGV[0];
                 my $output_md_file = $ARGV[1];
                 my $json_text;
 
                 eval {
-                    # API response is expected to be UTF-8 JSON
                     open my $fh_in, "<:encoding(UTF-8)", $input_json_file or die "Cannot open input file '\''$input_json_file'\'': $!\n";
-                    local $/ = undef; # Slurp mode
+                    local $/ = undef; 
                     $json_text = <$fh_in>;
                     close $fh_in;
                 };
                 if ($@) {
-                    my $errmsg = $@; $errmsg =~ s/\n/ /g; # Flatten error message
-                    print STDERR "Perl Error reading input file '$input_json_file' for parsing: $errmsg\n"; # Added newline
+                    my $errmsg = $@; $errmsg =~ s/\n/ /g; 
+                    print STDERR "Perl Error reading input file '$input_json_file' for parsing: $errmsg\n"; 
                     exit 1;
                 }
                 unless (defined $json_text && length $json_text) {
@@ -492,11 +485,10 @@ PERL_SCRIPT_EOF
                 }
 
                 my $decoded_json;
-                # JSON::PP->decode expects Perl character strings (which $json_text is)
                 eval { $decoded_json = JSON::PP->new->decode($json_text); };
                 if ($@) {
                     my $errmsg = $@; $errmsg =~ s/\n/ /g;
-                    print STDERR "Perl Error decoding JSON from API response file '$input_json_file': $errmsg\n"; # Added newline
+                    print STDERR "Perl Error decoding JSON from API response file '$input_json_file': $errmsg\n"; 
                     exit 1;
                 }
                 unless (defined $decoded_json) {
@@ -510,11 +502,9 @@ PERL_SCRIPT_EOF
                     exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY'
                 ) {
                     print STDERR "Perl Warning: Unexpected JSON structure in API response file '$input_json_file'. Expected 'data.translations' (array). File might contain an API error message.\n";
-                    # Do not exit here, try to proceed if possible or output an empty MD.
                 }
 
                 eval {
-                    # Output MD file should be UTF-8
                     open my $fh_out, ">:encoding(UTF-8)", $output_md_file or die "Cannot open output file '\''$output_md_file'\'': $!\n";
                     if (ref $decoded_json eq 'HASH' && exists $decoded_json->{data} && ref $decoded_json->{data} eq 'HASH' &&
                         exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY')
@@ -529,23 +519,20 @@ PERL_SCRIPT_EOF
                         }
                     } else {
                         print STDERR "Perl Note: 'data.translations' array not found in expected structure in '$input_json_file'. Output MD file '$output_md_file' will be empty or reflect previous content if not overwritten.\n";
-                        # This will result in an empty MD file if it was newly created, or leave it untouched if it existed.
                     }
                     close $fh_out;
                 };
                 if ($@) {
                     my $errmsg = $@; $errmsg =~ s/\n/ /g;
-                    print STDERR "Perl Error writing to output file '$output_md_file': $errmsg\n"; # Added newline
-                    exit 1; # This is a more critical failure
+                    print STDERR "Perl Error writing to output file '$output_md_file': $errmsg\n"; 
+                    exit 1; 
                 }
-                exit 0; # Success from Perl script
+                exit 0; 
 PERL_PARSE_RESPONSE_EOF
             log_message "TRANSLATE Parse Success: Processed '$abs_target_response_json_file' to '$abs_target_en_md_file'. $translate_log_suffix"
           else
-            # Perl script for parsing response exited with non-zero status
             log_message "TRANSLATE Parse ERROR: Perl script failed to parse response file '$abs_target_response_json_file' or write to '$abs_target_en_md_file'. $translate_log_suffix"
             log_message "The response file '$abs_target_response_json_file' is kept for inspection. Perl STDERR should have details."
-            # Consider if $abs_target_en_md_file should be removed or not on failure here.
           fi
         else
           log_message "TRANSLATE Parse ERROR: Response file '$abs_target_response_json_file' not found or unreadable after API call/check. Skipping EN.MD generation for this item. $translate_log_suffix"
@@ -553,14 +540,13 @@ PERL_PARSE_RESPONSE_EOF
       else
         log_message "TRANSLATE Skip: Request JSON file '$abs_target_request_json_file' not found. Cannot proceed with translation. $processed_day_log_suffix"
       fi
-      # --- End of Translation ---
 
-    done # Day loop
-  done   # Month loop
-done     # Year loop
+    done 
+  done   
+done     
 
 log_message "Sorting and uniquifying '$HASH_FILE'..."
-if [ -s "$HASH_FILE" ]; then # Check if file exists and has size > 0
+if [ -s "$HASH_FILE" ]; then 
   sort -u "$HASH_FILE" -o "$HASH_FILE"
   log_message "'$HASH_FILE' sorted."
 else
@@ -569,3 +555,4 @@ fi
 
 log_message "All source directories checked. Processing complete."
 exit 0
+

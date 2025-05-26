@@ -9,6 +9,7 @@
 # UTF-8 handling enhanced by setting LC_ALL and ensuring correct pipeline processing.
 # Further refined Perl JSON generation to explicitly decode input and correctly output bytes.
 # ADDED: --force flag to compel regeneration of markdown and JSON files.
+# ADDED: Git add, commit, and push at the end if changes are detected.
 
 # Exit immediately if a command exits with a non-zero status.
 set -e
@@ -561,89 +562,89 @@ PERL_SCRIPT_EOF
           if [ -f "$abs_target_response_json_file" ]; then # Ensure response file is still there
             log_message "TRANSLATE Parse: Generating '$abs_target_en_md_file' from '$abs_target_response_json_file'. Reason(s): $reason_for_en_md_gen $translate_log_suffix"
             if perl - "$abs_target_response_json_file" "$abs_target_en_md_file" <<'PERL_PARSE_RESPONSE_EOF'; then
-                    use POSIX qw(setlocale LC_ALL);
-                    setlocale(LC_ALL, "C"); 
-                    use strict;
-                    use warnings;
-                    no warnings 'locale'; 
-                    use utf8;
-                    binmode STDERR, ":encoding(UTF-8)"; 
-                    use JSON::PP;
+                  use POSIX qw(setlocale LC_ALL);
+                  setlocale(LC_ALL, "C"); 
+                  use strict;
+                  use warnings;
+                  no warnings 'locale'; 
+                  use utf8;
+                  binmode STDERR, ":encoding(UTF-8)"; 
+                  use JSON::PP;
 
-                    if (@ARGV < 2) {
-                        print STDERR "Perl Internal Error: Missing arguments (input_json_file, output_md_file).\n";
-                        exit 2; 
-                    }
-                    my $input_json_file = $ARGV[0];
-                    my $output_md_file = $ARGV[1];
-                    my $json_text;
+                  if (@ARGV < 2) {
+                      print STDERR "Perl Internal Error: Missing arguments (input_json_file, output_md_file).\n";
+                      exit 2; 
+                  }
+                  my $input_json_file = $ARGV[0];
+                  my $output_md_file = $ARGV[1];
+                  my $json_text;
 
-                    eval {
-                        open my $fh_in, "<:encoding(UTF-8)", $input_json_file or die "Cannot open input file '\''$input_json_file'\'': $!\n";
-                        local $/ = undef; 
-                        $json_text = <$fh_in>;
-                        close $fh_in;
-                    };
-                    if ($@) {
-                        my $errmsg = $@; $errmsg =~ s/\n/ /g; 
-                        print STDERR "Perl Error reading input file '$input_json_file' for parsing: $errmsg\n"; 
-                        exit 1;
-                    }
-                    unless (defined $json_text && length $json_text) {
-                        print STDERR "Perl Error: API response file '$input_json_file' is empty or could not be read.\n";
-                        exit 1;
-                    }
+                  eval {
+                      open my $fh_in, "<:encoding(UTF-8)", $input_json_file or die "Cannot open input file '\''$input_json_file'\'': $!\n";
+                      local $/ = undef; 
+                      $json_text = <$fh_in>;
+                      close $fh_in;
+                  };
+                  if ($@) {
+                      my $errmsg = $@; $errmsg =~ s/\n/ /g; 
+                      print STDERR "Perl Error reading input file '$input_json_file' for parsing: $errmsg\n"; 
+                      exit 1;
+                  }
+                  unless (defined $json_text && length $json_text) {
+                      print STDERR "Perl Error: API response file '$input_json_file' is empty or could not be read.\n";
+                      exit 1;
+                  }
 
-                    my $decoded_json;
-                    eval { $decoded_json = JSON::PP->new->decode($json_text); };
-                    if ($@) {
-                        my $errmsg = $@; $errmsg =~ s/\n/ /g;
-                        print STDERR "Perl Error decoding JSON from API response file '$input_json_file': $errmsg\n"; 
-                        exit 1;
-                    }
-                    unless (defined $decoded_json) {
-                        print STDERR "Perl Error: Failed to decode JSON from API response file '$input_json_file', result is undefined.\n";
-                        exit 1;
-                    }
+                  my $decoded_json;
+                  eval { $decoded_json = JSON::PP->new->decode($json_text); };
+                  if ($@) {
+                      my $errmsg = $@; $errmsg =~ s/\n/ /g;
+                      print STDERR "Perl Error decoding JSON from API response file '$input_json_file': $errmsg\n"; 
+                      exit 1;
+                  }
+                  unless (defined $decoded_json) {
+                      print STDERR "Perl Error: Failed to decode JSON from API response file '$input_json_file', result is undefined.\n";
+                      exit 1;
+                  }
 
-                    unless (
-                        ref $decoded_json eq 'HASH' &&
-                        exists $decoded_json->{data} && ref $decoded_json->{data} eq 'HASH' &&
-                        exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY'
-                    ) {
-                        print STDERR "Perl Warning: Unexpected JSON structure in API response file '$input_json_file'. Expected 'data.translations' (array). File might contain an API error message.\n";
-                        # Allow to proceed to output an empty file or handle error content if any
-                    }
+                  unless (
+                      ref $decoded_json eq 'HASH' &&
+                      exists $decoded_json->{data} && ref $decoded_json->{data} eq 'HASH' &&
+                      exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY'
+                  ) {
+                      print STDERR "Perl Warning: Unexpected JSON structure in API response file '$input_json_file'. Expected 'data.translations' (array). File might contain an API error message.\n";
+                      # Allow to proceed to output an empty file or handle error content if any
+                  }
 
-                    eval {
-                        open my $fh_out, ">:encoding(UTF-8)", $output_md_file or die "Cannot open output file '\''$output_md_file'\'': $!\n";
-                        if (ref $decoded_json eq 'HASH' && exists $decoded_json->{data} && ref $decoded_json->{data} eq 'HASH' &&
-                            exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY')
-                        {
-                            my @translations_arr = @{$decoded_json->{data}->{translations}};
-                            foreach my $item (@translations_arr) {
-                                if (ref $item eq 'HASH' && exists $item->{translatedText} && defined $item->{translatedText}) {
-                                    print $fh_out $item->{translatedText} . "\n";
-                                } else {
-                                    print STDERR "Perl Warning: Malformed translation item (missing 'translatedText') in response file '$input_json_file'. Skipping item.\n";
-                                }
-                            }
-                        } else {
-                            # If structure is not as expected but an error object might be at top level:
-                            if (ref $decoded_json eq 'HASH' && exists $decoded_json->{error} && ref $decoded_json->{error} eq 'HASH' && exists $decoded_json->{error}->{message}) {
-                                print STDERR "Perl Note: API Error found in '$input_json_file': " . $decoded_json->{error}->{message} . ". Output MD '$output_md_file' will be empty.\n";
-                            } else {
-                                print STDERR "Perl Note: 'data.translations' array not found in expected structure in '$input_json_file'. Output MD file '$output_md_file' will be empty or reflect previous content if not overwritten.\n";
-                            }
-                        }
-                        close $fh_out;
-                    };
-                    if ($@) {
-                        my $errmsg = $@; $errmsg =~ s/\n/ /g;
-                        print STDERR "Perl Error writing to output file '$output_md_file': $errmsg\n"; 
-                        exit 1; 
-                    }
-                    exit 0; 
+                  eval {
+                      open my $fh_out, ">:encoding(UTF-8)", $output_md_file or die "Cannot open output file '\''$output_md_file'\'': $!\n";
+                      if (ref $decoded_json eq 'HASH' && exists $decoded_json->{data} && ref $decoded_json->{data} eq 'HASH' &&
+                          exists $decoded_json->{data}->{translations} && ref $decoded_json->{data}->{translations} eq 'ARRAY')
+                      {
+                          my @translations_arr = @{$decoded_json->{data}->{translations}};
+                          foreach my $item (@translations_arr) {
+                              if (ref $item eq 'HASH' && exists $item->{translatedText} && defined $item->{translatedText}) {
+                                  print $fh_out $item->{translatedText} . "\n";
+                              } else {
+                                  print STDERR "Perl Warning: Malformed translation item (missing 'translatedText') in response file '$input_json_file'. Skipping item.\n";
+                              }
+                          }
+                      } else {
+                          # If structure is not as expected but an error object might be at top level:
+                          if (ref $decoded_json eq 'HASH' && exists $decoded_json->{error} && ref $decoded_json->{error} eq 'HASH' && exists $decoded_json->{error}->{message}) {
+                              print STDERR "Perl Note: API Error found in '$input_json_file': " . $decoded_json->{error}->{message} . ". Output MD '$output_md_file' will be empty.\n";
+                          } else {
+                              print STDERR "Perl Note: 'data.translations' array not found in expected structure in '$input_json_file'. Output MD file '$output_md_file' will be empty or reflect previous content if not overwritten.\n";
+                          }
+                      }
+                      close $fh_out;
+                  };
+                  if ($@) {
+                      my $errmsg = $@; $errmsg =~ s/\n/ /g;
+                      print STDERR "Perl Error writing to output file '$output_md_file': $errmsg\n"; 
+                      exit 1; 
+                  }
+                  exit 0; 
 PERL_PARSE_RESPONSE_EOF
               log_message "TRANSLATE Parse Success: Processed '$abs_target_response_json_file' to '$abs_target_en_md_file'. $translate_log_suffix"
             else
@@ -672,5 +673,33 @@ else
   log_message "'$HASH_FILE' is empty or does not exist, no sorting needed."
 fi
 
-log_message "All source directories checked. Processing complete."
+# --- Final Git Operations: Commit and Push ---
+log_message "Checking for repository changes to commit and push..."
+if [ -n "$(git status --porcelain)" ]; then
+  log_message "Changes detected in the repository. Proceeding with git add, commit, and push."
+
+  log_message "Staging all changes with 'git add -A'..."
+  git add -A
+  # set -e will cause exit if git add fails. If it passes, we log success.
+  log_message "Successfully staged all changes."
+
+  # LC_ALL=C.UTF-8 is set globally, ensuring English day/month names for date
+  COMMIT_DATE_STR=$(date +"%a %b %d %T %Z %Y")
+  COMMIT_MESSAGE="feat: auto: New MD files - $COMMIT_DATE_STR"
+  log_message "Committing changes with message: '$COMMIT_MESSAGE'..."
+  git commit -m "$COMMIT_MESSAGE"
+  # set -e will cause exit if git commit fails.
+  log_message "Successfully committed changes."
+
+  log_message "Pushing changes to the remote repository..."
+  git push
+  # set -e will cause exit if git push fails.
+  log_message "Successfully pushed changes to the remote repository."
+
+  log_message "Git operations (add, commit, push) completed successfully."
+else
+  log_message "No uncommitted changes detected in the repository. Skipping git operations."
+fi
+
+log_message "Script execution finished."
 exit 0

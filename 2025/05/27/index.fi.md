@@ -1,0 +1,47 @@
+# TV | Selkouutiset | tiistai 27.5.2025
+
+Merz Suomessa. Varastelu. Taina Elg. Sää.
+
+Ensimmäisessä uutisessa ei ole tekstejä, Selkouutiset pahoittelee!
+
+## Merz Suomessa
+
+Ensin politiikkaa.
+
+Saksan liittokansleri Friedrich Merz kävi Suomessa. Maanantaina Merz tapasi Pohjoismaiden pääministereitä, jotka olivat myös Suomessa.
+
+Tänään tiistaina Merz tapasi pääministeri Petteri Orpon Turussa.
+
+Pääministeri Orpo sanoi, että Saksa on Suomelle tärkeä kumppani. Liittokansleri Merz puhui tiedotustilaisuudessa Itämeren maiden turvallisuudesta. Merz sanoi, että Suomi varautuu hyvin kriiseihin. Merzin mielestä Saksa voi oppia tästä Suomelta.
+
+Saksan liittokansleri Friedrich Merz kävi Suomessa. Merz muun muassa tapasi presidentti Alexander Stubbin Naantalissa.
+
+## Varastelu kaupoista
+
+Nyt aiheena on varastelu kaupoista.
+
+Varastelu on ongelma kaupoille eri puolilla Suomea. Jotkut ihmiset vievät tavaroita kaupasta jopa monta kertaa päivässä. Esimerkiksi Itä-Suomessa 1 ihminen on jäänyt kiinni varastelusta tänä vuonna jo 34 kertaa.
+
+Tässä kuvassa myymälävaras vie olutta kaupasta.
+
+Varastelu on ongelma kaupoille eri puolilla Suomea.
+
+Päällikkö Marko Rytkönen Juankosken ja Kaavin S-Marketeista:
+
+\-*Saattaa olla useampi kerta päivässä. Paras päivä 4-5 kertaa joku kävi päivän aikana hakemassa tavaraa. Sitten on välillä aina pieniä taukoja. Sitten jatkuu taas uudestaan.*
+
+## Taina Elg kuollut
+
+Seuraavan uutisen aihe on Taina Elg.
+
+Suomalainen näyttelijä ja balettitanssija Taina Elg on kuollut. Hän oli 95-vuotias.
+
+Taina Elg teki uran USA:ssa. Hän näytteli Hollywoodissa. Elg näytteli esimerkiksi 1950-luvulla musikaalissa Tytöt. Taina Elg sai roolista Golden Globe -palkinnon.
+
+Suomalainen näyttelijä ja balettitanssija Taina Elg on kuollut. Hän näytteli teatterissa, elokuvissa ja televisiossa 1990-luvulle asti.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna keskiviikkona pohjoisessa sataa vähän vettä. Muualla maassa on enimmäkseen poutaa. Lämpötila on 10 ja 21 asteen välillä. Sää on melko tuulinen.

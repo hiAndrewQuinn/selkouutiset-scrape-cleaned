@@ -1,0 +1,43 @@
+# TV | Selkouutiset | perjantai 13.6.2025
+
+Lento-onnettomuus Intiassa. Nuoret yrittäjät. Jalkapallon nuorten EM-kisat.
+
+## Lento-onnettomuus Intiassa
+
+Ensin aiheena on onnettomuus.
+
+Intiassa sattui torstaina iso lento-onnettomuus. Lentokone syöksyi maahan Luoteis-Intiassa Ahmedabadin kaupungissa.
+
+Onnettomuudessa kuoli ainakin 265 ihmistä. Koneessa oli yhteensä 242 ihmistä, joista 1 ihminen selvisi hengissä. Ihmisiä kuoli myös opiskelija-asuntolassa, johon lentokone törmäsi.
+
+Suurin osa onnettomuuden uhreista oli intialaisia ihmisiä. Koneessa oli myös yli 50 Britannian kansalaista.
+
+Intiassa sattui torstaina iso lento-onnettomuus. Onnettomuuden syytä ei tiedetä.
+
+## Nuoret yrittäjät
+
+Nyt uutisen aiheena ovat nuoret yrittäjät.
+
+Nuoret perustavat firmoja enemmän kuin aikaisemmin. Nuoret perustavat pieniä firmoja, jotka tekevät esimerkiksi siivoustöitä. Monessa firmassa on vain 1 työntekijä.
+
+20-vuotias helsinkiläinen Toni Toivonen on perustanut firman. Hän pesee kesällä ikkunoita.
+
+-Nyt on sellainen fiilis, että haluan tehdä tätä ja työllistää joku päivä muita nuoria. Laajentaa tätä pelkästä ikkunanpesusta. Haluan kyllä jatkaa yrittäjänä.
+
+Nuoret perustavat firmoja enemmän kuin aikaisemmin. Nuoret perustavat pieniä firmoja, koska kesätöitä on liian vähän.
+
+## Suomi-Hollanti
+
+Seuraavaksi urheilua.
+
+Suomi ja Hollanti pelasivat tasapelin jalkapallon nuorten EM-kisoissa. Suomi johti ottelua 2-0, mutta Hollanti nousi lopussa tasapeliin. Ottelu päättyi 2-2.
+
+Suomen maalit tekivät Casper Terho ja Topi Keskinen.
+
+Suomen pelit ovat Košicen kaupungissa Slovakiassa.
+
+## Sää
+
+Vielä sääennuste.
+
+Lauantaina sää on poutainen ja lämmin. Melkein koko maassa paistaa aurinko. Lapissa ja idässä voi sataa. Lämpötila on 15 ja 25 asteen välillä.

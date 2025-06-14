@@ -1,0 +1,79 @@
+# Radio | Uutisviikko selkosuomeksi | lauantai 14.6.2025
+
+Työpaikkojen alkoholitestit
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Työpaikkojen alkoholitestit
+
+Uutisviikon aihe on tällä kertaa työpaikkojen alkoholitestit.
+
+Joillakin työpaikoilla on alettu testata työntekijöiden vapaa-ajan alkoholinkäyttöä.
+
+Testi on ollut monille työntekijöille yllätys. Vapaa-ajan alkoholinkäytön testaaminen huolestuttaa työntekijäjärjestöjä.
+
+Kerromme nyt lisää työntekijöiden alkoholitestauksesta.
+
+![Seitsemän vrinäyteputkea telineessä.](https://images.cdn.yle.fi/image/upload/c_crop,h_514,w_914,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1686731073/39-11294206489788389ba4)
+
+Avaa kuvien katselu
+
+PEth-testi tehdään verinäytteestä. Kuva: Heikki Rönty / Yle
+
+## PEth-testi
+
+Työterveystarkastuksissa on otettu käyttöön PEth-testi. Tutkimus tehdään verinäytteestä.
+
+PEth-testi kertoo, onko ihminen käyttänyt paljon alkoholia edellisten viikkojen aikana.
+
+Runsas ja pitkä alkoholin käyttö voi näkyä testissä jopa 4 viikkoa myöhemmin.
+
+Testejä on tehty esimerkiksi rakennusalalla ja kuljetusalalla. Testejä on tehty myös toimistotyössä.
+
+## Työntekijäjärjestöt
+
+Alkoholitestaus on yllättänyt ihmiset. Ihminen on mennyt työpaikan terveystarkastukseen, mutta hän ei ole tiennyt, että verinäytteestä tutkitaan myös alkoholin käyttö.
+
+Siksi työntekijäjärjestöt ovat huolestuneet asiasta.
+
+Työntekijäjärjestö SAK:lle on ilmoitettu kymmeniä tapauksia, joissa työntekijä on saanut tietää testistä vasta jälkikäteen.
+
+Asia on selvinnyt, kun työntekijälle on tullut testituloksen takia seuraamuksia.
+
+Ihmisen työ on keskeytetty ja jopa palkanmaksu lopetettu runsaan alkoholin käytön takia.
+
+Myös Auto- ja kuljetusalan työntekijöiden järjestö AKT kertoo, että alkoholitestit ovat johtaneet esimerkiksi ajokieltoon tai lomaan ilman palkkaa tai jopa irtisanomiseen.
+
+![Oluttuoppi kädessä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3031,w_5390,x_0,y_295/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1730320240/39-128727666489a0730e2a)
+
+Avaa kuvien katselu
+
+Runsas alkoholin käyttö voi näkyä testissä jopa 4 viikkoa myöhemmin.  Kuva: Mikko Koski / Yle
+
+## Perusteet
+
+Firmojen eli työnantajien järjestö EK puolustaa alkoholitestejä.
+
+EK:n asiantuntijalääkäri **Auli Rytivaara** sanoo, että alkoholitestaus on tärkeä keino ehkäistä tapaturmia.
+
+Testi auttaa tunnistamaan tilanteet, joissa työntekijän terveydentila ei ehkä riitä turvalliseen työskentelyyn.
+
+Esimerkiksi ammattikuljettajien terveydentila pitää tarkastaa säännöllisesti.
+
+Rytivaara sanoo, että alkoholitestejä ei pidä tehdä ihmisille sattumanvaraisesti.
+
+Testien pitää olla osa säännöllistä työterveysseurantaa.
+
+## Kertaus
+
+Uutisviikon aihe oli työpaikkojen alkoholitestit eli PEth-testit.
+
+Suomessa on alettu tutkia työterveystarkastuksissa ihmisten alkoholinkäyttöä vapaa-ajalla.
+
+Testejä on esimerkiksi rakennusalalla ja kuljetusalalla. Peruste on, että testeillä lisätään työturvallisuutta.
+
+Työntekijäjärjestöt ovat huolestuneet tilanteesta, koska asia on uusi ja yllättävä.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

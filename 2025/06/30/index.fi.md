@@ -1,0 +1,59 @@
+# TV | Selkouutiset | maanantai 30.6.2025
+
+Kilpailukyky Sosiaalinen media. Haahkat. Sää.
+
+## Kilpailukyky
+
+Aluksi talousuutinen.
+
+Suomen kilpailukyky paranee hitaasti.
+
+Uudessa kilpailukykyvertailussa Suomi on sijalla 14.
+
+Se on vain pykälän verran parempi kuin edellisessä vertailussa viime vuonna.
+
+Vertailun kärjessä ovat nyt Sveitsi, Singapore, Hongkong ja Tanska.
+
+Suomen kilpailukyky paranee hitaasti.
+
+Sitä jarruttaa viime vuosien heikko talouskehitys.
+
+Sveitsiläisen IMD-instituutin vertailussa oli mukana noin 70 maata.
+
+## Nuoret ja some
+
+Sitten aiheena on sosiaalinen media eli some.
+
+Kansanedustajat ovat erimielisiä siitä, pitääkö nuorten sosiaalisen median käyttöä rajoittaa.
+
+Yle kysyi asiaa kansanedustajilta.
+
+Osa kannattaa tiukkaa somekieltoa. Toiset sanovat, että kieltoa on mahdotonta valvoa.
+
+Monissa EU-maissa sosiaalisen median ikäraja on 16 vuotta.
+
+Suomessa ikäraja on 13 vuotta. Suomessa kuitenkin jopa 90 prosenttia 10-vuotiaista lapsista käyttää somea.
+
+Kouluissa lasten ja nuorten puhelimen käyttöä aletaan rajoittaa syksystä lähtien.
+
+## Haahkat
+
+Sitten kerromme haahkasta, joka on uhanlainen lintulaji.
+
+Haahkojen määrä on vähentynyt nopeasti.
+
+Hangossa Tvärminnen eläintieteellisellä asemalla haahkoja on tutkittu yli 30 vuoden ajan. Sinä aikana haahkapopulaatio on kutistunut kolmasosaan
+
+Haahkalla on luonnossa enemmän vihollisia kuin ennen. Niitä saalistavat merikotkat, minkit ja supikoirat, sanoo Suomen ympäristökeskuksen erikoistutkija Kim Jaatinen.
+
+Haahkoja on jo niin vähän, että laji on erittäin uhanalainen.
+
+Tvärminnessä tutkijat selvittävät nyt, miten haahkat sopeutuvat stressaavaan elinympäristöön. Lintujen stressitaso näkyy verikokeessa.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Huomenna melkein koko maassa paistaa aurinko.
+
+Lämpötila on etelässä jopa 23 astetta. Pohjoisessa lämpötila on alle 20 astetta.

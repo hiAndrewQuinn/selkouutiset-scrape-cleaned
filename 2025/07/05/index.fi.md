@@ -1,0 +1,99 @@
+# Radio | Uutisviikko selkosuomeksi | lauantai 5.7.2025
+
+Ylen puoluekannatuskysely
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Uutisviikon aihe on Ylen puoluekannatuskysely.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Puolueiden suosion järjestys on pysynyt ennallaan. Merkittävä muutos on kuitenkin, että perussuomalaisten kannatus on noussut hieman.
+
+Kerromme nyt lisää puoluekannatuskyselyn tuloksista.
+
+![Puoluekannatuksen jakokuva jossa näkyvät 4 suurinta puoluetta: PS: 11,8 %, Kesk. 13,9, Kok. 20,8 ja SDP: 25,1.](https://images.cdn.yle.fi/image/upload/c_crop,h_953,w_1695,x_0,y_67/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1751484539/39-1488560686508204cbcd)
+
+Avaa kuvien katselu
+
+Neljä suosituinta puoluetta ovat SDP, kokoomus, keskusta ja perussuomalaiset. Kuva: Eetu-Mikko Pietarinen / Yle
+
+## SDP
+
+Ylen uusi puoluekannatuskysely tehtiin kesäkuussa.
+
+Suosituin puolue on edelleen SDP. SDP:tä kannattaa noin 25 prosenttia suomalaisista.
+
+SDP:n kannatus on yhtä korkea kuin edellisessä kyselyssä toukokuussa.
+
+SDP on oppositiopuolue, eli se ei ole hallituksessa.
+
+SDP:n etumatka kokoomukseen on kasvanut hieman, koska kokoomuksen kannatus on laskenut hieman.
+
+## Kokoomus
+
+Toiseksi suosituin puolue on Kokoomus.
+
+Kokoomuksen kannatus on melkein 21 prosenttia.
+
+Kokoomuksen kannatus on laskenut hieman. Lasku on kuitenkin pientä.
+
+Yksi laskun syy on, että osa kokoomuksen viime vaalien äänestäjistä ei vielä tiedä, mitä puoluetta he kannattavat seuraavissa vaaleissa.
+
+Kokoomus on hallituspuolue ja myös pääministeri **Petteri Orpo** on kokoomuksesta.
+
+![Antti Kaikkonen ja muut keskustan edustajat hurraavat kukkakimppu kädessään.](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_342/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1744574471/39-145063667fc17780dac2)
+
+Avaa kuvien katselu
+
+Antti Kaikkonen ja muut keskustan jäsenet iloitsivat huhtikuussa keskustan menestyksestä alue- ja kuntavaaleissa.  Kuva: Tuomo Björksten / Yle
+
+## Keskusta
+
+Kolmanneksi suosituin puolue on Keskusta.
+
+Keskustan kannatus on melkein 14 prosenttia.
+
+Keskustan kannatus on laskenut hieman. Keskustan kannatus laski myös edellisessä kyselyssä.
+
+Keväällä keskustan kannatus nousi alue- ja kuntavaaleissa. Nyt keskustan kannatus on palannut aiemmalle tasolle.
+
+Keskusta ei ole hallituksessa.
+
+## Perussuomalaiset
+
+Neljänneksi suosituin puolue on perussuomalaiset. Perussuomalaisten kannatus on melkein 12 prosenttia.
+
+Perussuomalaisten kannatus on noussut 1 prosenttiyksikön toukokuusta. Tämä on kannatuskyselyn merkittävin muutos.
+
+Perussuomalaisten kannatus laski paljon kevään alue- ja kuntavaaleissa. Nyt kannatus on taas noussut vähän.
+
+Perussuomalaiset on hallituspuolue.
+
+![Perussuomalaisten Riikka Purra, kokoomuksen Petteri Orpo ja SDP:n Antti Lindtman osallistuivat Ylen eurovaalitenttiin.](https://images.cdn.yle.fi/image/upload/c_crop,h_3276,w_5825,x_0,y_276/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1716404512/39-1289613664e406827cc1)
+
+Avaa kuvien katselu
+
+Puolueiden puheenjohtajat Riikka Purra (Perussuomalaiset) Antti Lindtman (SDP) ja Petteri Orpo (kokoomus) osallistuivat Ylen vaalitenttiin.  Kuva: Silja Viitala / Yle
+
+## Muut puolueet
+
+Viidenneksi suosituin puolue on vasemmistoliitto, jonka kannatus on noin 10 prosenttia. Vasemmistoliiton kannatuksessa on pieni nousu.
+
+Kuudenneksi suosituin puolue on vihreät, jonka kannatus on alle 8 prosenttia. Vihreiden kannatus on laskenut.
+
+RKP:n ja kristillisdemokraattien kannatus on 4 prosenttia.
+
+Liike Nytin kannatus on hieman yli 1 prosentti.
+
+## Kertaus
+
+Uutisviikon aihe oli Ylen puoluekannatuskysely.
+
+Suosituin puolue on edelleen oppositiopuolue SDP, ja toiseksi suosituin puolue on edelleen pääministeripuolue kokoomus.
+
+Keskustan kannatus on laskenut ja perussuomalaisten kannatus on noussut kevään jälkeen.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

@@ -1,0 +1,65 @@
+# TV | Selkouutiset | tiistai 8.7.2025
+
+Ulkomaisten opiskelijoiden perheet. Kännykät rahaksi. Karhut. Sää.
+
+## Ulkomaisten opiskelijoiden perheet
+
+Aluksi ulkomaisista opiskelijoista.
+
+Suomessa on yhä enemmän ulkomaisten opiskelijoiden perheitä.
+
+Viime vuonna perheenjäsenten hakemuksia tuli lähes 12 000. Pari vuotta sitten määrä oli noin 1 300.
+
+Muutos johtuu siitä, että opiskelijat saavat nyt helpommin oleskeluluvan koko opintojen ajaksi.
+
+Suurin osa opiskelijoista tulee Etelä- ja Kaakkois-Aasiasta.
+
+Kasvu on tuonut myös ongelmia. Monella ulkomaalaisella opiskelijalla ei ole tarpeeksi rahaa elämiseen Suomessa.
+
+Suomessa on yhä enemmän ulkomaisten opiskelijoiden perheitä.
+
+Sisäministeri Mari Rantanen haluaa tiukentaa perheenjäsenten maahantuloa. Aiempi hallitus helpotti maahantuloa.
+
+## Kännykät voi muuttaa rahaksi
+
+Sitten elektroniikasta.
+
+Vanhaa elektroniikkaa halutaan vaihtaa rahaan.
+
+Tekstiilifirma Finlayson on ensimmäinen firma, joka ottaa käyttöön uuden maksutavan.
+
+Siinä esimerkiksi vanhan kännykän arvolla voi ostaa kodintekstiilejä.
+
+Oikeasti elektroniikkaa ei tuoda kaupan kassalle, vaan vaihto tehdään verkossa.
+
+Esimerkiksi vanha iPhone 11 on 111 euron arvoinen. Sillä saa esimerkiksi pari pussilakanaa.
+
+Finlayson sanoo, että se haluaa näyttää suuntaa vastuullisuudessa.
+
+Vanhaa elektroniikkaa halutaan vaihtaa rahaan. Maksutapaa on tarkoitus laajentaa muihinkin verkkokauppohin.
+
+## Karhuja on aiempaa enemmän Keski-Suomessa
+
+Lopuksi karhu-uutinen.
+
+Keski-Suomessa karhuja on nähty talojen lähellä aiempaa enemmän. Havaintoja on 5 kertaa enemmän kuin 5 vuotta sitten.
+
+Karhun metsästysalue laajeni nyt myös Keski-Suomeen ja Etelä-Savoon.
+
+Karhuja on erityisen paljon Kannonkoskella. Siellä on tänä vuonna havaittu yli 200 karhua.
+
+Karhut tekevät haittaa maatiloille. Karhut rikkovat esimerkiksi paalien muovit, jolloin rehu pilaantuu.
+
+Keski-Suomessa karhuja on nähty talojen lähellä aiempaa enemmän.
+
+Kannonkoskella aiotaan hakea kahta karhun kaatolupaa.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna koko maassa on poutaa eli ei sada.
+
+Aurinko paistaa lännessä. Idässä on pilvistä.
+
+Lämpötila on 14 - 21 astetta.

@@ -1,0 +1,81 @@
+# Radio | Uutisviikko selkosuomeksi | lauantai 26.7.2025
+
+Työterveyslaitoksen uudet suositukset työhön kuumassa säässä.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Uutisviikon aihe on kuumuus työssä. Tauot ovat tärkeitä. Taukoihin on nyt tullut uusi suositus.
+
+Eilen perjantaina tuli Suomen sääennätys. Lämpötila on ollut yli 30 astetta 14 päivää peräkkäin. Nyt päiviä on jo 15.
+
+## Työterveyslaitoksen suositukset kuumatyöhön
+
+Työterveyslaitos on antanut suositukset raskaaseen työhön kuumassa ilmassa. Uudet suositukset perustuvat tutkimukseen.
+
+Taukojen pitää olla pidempiä kuin aikaisemmin on luultu.
+
+Työn fyysinen raskaus vaikuttaa paljon siihen, kuinka ihmisen elimistö kuumenee.
+
+Nyt suositetaan, että työ yli 30 asteessa saa kestää vain 30–45 minuuttia. Sen jälkeen täytyy pitää noin 20 minuutin tauko.
+
+Aiempi suositus oli 10–15 minuuttia tunnin aikana.
+
+## Tutkimus tehtiin laboratoriossa
+
+![Mies polkee kuntopyörää. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2763,w_4912,x_0,y_418/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1717009450/39-1293434665779741d6b5)
+
+Avaa kuvien katselu
+
+Tutkimukset on tehty laboratoriossa. Mittauksia tehdään tässä palomies Miika Vihavaiselle. Edellisenä päivänä Vihavainen nieli kapselin. Se mittasi ennen testiä sisälämpötilan, joka oli 37,1 astetta. Kuva: Janne Körkkö
+
+Raskas työ yli 30 asteessa nostaa ihmisen syvälämpötilan yli 38 asteen. Näin tapahtuu jo puolessa tunnissa.
+
+Samalla lihasten voima ja työteho laskevat. Kuumuus rasittaa hengitystä ja verenkiertoa.
+
+Sydämen syke ja aivojen lämpötila nousevat, ja ihminen väsyy.
+
+Lepääminen huoneenlämmössä palauttaa elimistön lämpötilan perustasolle 45–60 minuutissa.
+
+## Työnantajapuoli pitää taukoja pitkinä
+
+![Ihmisen kehon sihuetti ja lämpömittari.](https://images.cdn.yle.fi/image/upload/c_crop,h_2160,w_3839,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1714644209/39-12793786633641d6dc66)
+
+Avaa kuvien katselu
+
+Kuva: Eeva Sarlin / Yle
+
+Työnantajat suhtautuvat kuuman sään taukoihin eri tavalla.
+
+Esimerkiksi Koneyrittäjien yhdistys sanoo, että uudet tauot tuntuvat pitkiltä. Toimialapäällikkö Ville Järvinen kuitenkin sanoo, että ihmisten terveys pitää ottaa huomioon.
+
+Vastuu taukojen pitämisestä on firmoilla.
+
+Järvinen toivoo, että sekä työnantaja että työntekijät joustavat tarpeen mukaan.
+
+## Monessa työpaikassa on nyt kuuma
+
+![Työnjohtaja seuraa kaivuutyömaata helteisenä kesäpäivänä.](https://images.cdn.yle.fi/image/upload/c_crop,h_2410,w_4283,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1753104833/39-1496506687e3fcfb284d)
+
+Avaa kuvien katselu
+
+Työnjohtaja Jari Nahkiaisoja kertoo, että torniolaisella työmaalla taukoja saa kovilla helteillä pitää joustavasti arpeen mukaan. Kuva: Antti Ullakko / Yle
+
+Työterveyslaitos arvioi, että noin 60 000 suomalaista tekee kuumatyötä.
+
+Esimerkiksi Tampereella Hatanpään ratikkatyömaalla voi nyt olla lämmintä 40 astetta.
+
+Tampereen Tohlopissa kattotyömaalla lämpötila voi olla yli 60 astetta. Työt aloitetaan helteen vuoksi jo kello 5 aamulla.
+
+Tornion saneeraustyömaalla voidaan pitää taukoja, jos siltä tuntuu. Helteillä työnantaja tarjoaa kivennäisvettä, koska siinä on elimistölle tärkeitä suoloja.
+
+## Kertaus
+
+Uutisviikon aihe olivat raskas työ ja kuumuus.
+
+Työterveyslaitoksen uudet suositukset ovat tulleet voimaan.
+
+Taukojen pitää olla nyt pidempiä kuin aiemmin on tiedetty.
+
+Tässä oli Uutisviikko selkosuomeksi - kuulemiin huomiseen!

@@ -1,0 +1,89 @@
+# Radio | Uutisviikko selkosuomeksi | sunnuntai 3.8.2025
+
+Valkoposkihanhien haitat rannoilla
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Uutisviikon aihe ovat hanhien ulosteet rannoilla.
+
+Rannat ja maauimalat ovat nyt täynnä ihmisiä. Hanhenkakka tekee rannoista ja nurmikoista likaisia.
+
+## Hanhenkakka on ongelma rannoilla ja nurmikoilla
+
+![Valkoposkihanhia nurmella.](https://images.cdn.yle.fi/image/upload/c_crop,h_1956,w_3478,x_0,y_3/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1753785068/39-14999976888a2673c17e)
+
+Avaa kuvien katselu
+
+Valkoposkihanhia Helsingin Kaivopuistossa. Kuva: Matti Myller / Yle
+
+Valkoposkihanhet viihtyvät uimarannoilla ja jättävät paljon ulostetta.
+
+Hanhia vastaan on kokeiltu kaikenlaista. On tehty aitoja, niittyjä ja huomionauhoja.
+
+Kaupunkien ulkopuolella pelloilla on käytetty koiria, drooneja ja laserkarkottimia. Myös hanhien ampumista ehdotettu.
+
+Ampuminen voi tulevaisuudessa olla mahdollista.
+
+Eduskunnan ympäristövaliokunta tukee ehdotusta valkoposkihanhien metsästyksestä. Hanhet tekevät vahinkoa maataloudelle.
+
+Ehdotus metsästyksestä kuitenkin koskee maaseutua, ei kaupunkeja.
+
+## Maauimalassakin kärsitään hanhenkakasta
+
+![Kotkan Uimala Katariinan nurmella hanhen kakkaa.](https://images.cdn.yle.fi/image/upload/c_crop,h_2597,w_4617,x_12,y_234/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1751444896/39-14885036864ec76e78c6)
+
+Avaa kuvien katselu
+
+Rantojen ja nurmikoiden lisäksi hanhet viihtyvät myös maauimaloissa. Kuva: Kalle Purhonen / Yle
+
+Esimerkiksi Kotkassa Katariinan maauimalassa on ollut paljon valkoposkihanhien ulostetta.
+
+Se haittaa auringonottamista nurmikolla. Käveleminen ilman kenkiä paljain jaloin on inhottavaa.
+
+Hanhet eivät yleensä tule uima-altaisiin. Altaiden reunat kuitenkin puhdistetaan joka päivä.
+
+Ulostetta yritetään poistaa ruohonleikkurilla.
+
+## Hanhenkakka ja New York Times
+
+![The New York Timesin pääsisäänkäynti](https://images.cdn.yle.fi/image/upload/c_crop,h_1683,w_2992,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1524817533/39-4818345ae2de2e6713f)
+
+Avaa kuvien katselu
+
+The New York Timeskin on raportoinut Suomen hanhiongelmasta. Kuva: Vain tämän ohjelman yhteydessä Rajoitettu käyttöoikeus, Yle Kuvapalvelu, kuvapalveluyle.fi
+
+Helsingin hanhenkakasta on tullut myös kansainvälinen uutinen. The New York Times -lehti kirjoittaa, kuinka ongelma haittaa Suomen ”lyhyitä ja kallisarvoisia” kesiä.
+
+Lehti kirjoittaa varsinkin Hietaniemen eli Hietsun uimarannan alueesta, jossa lintuja on kaikkialla.
+
+Ongelma Helsingissä ei ole uusi. Valkoposkihanhien määrä pääkaupunkiseudulla kasvoi nopeasti jo 2000-luvun alkuvuosina.
+
+The New York Times kertoo, että suomalaiset ovat epätoivoisia ratkaisun löytämisessä.
+
+## Helsingissä kokeillaan kakkakeräintä
+
+![Tällaisella laitteella hanhenkakkaa tullaan poistamaan Helsingin rannoilta kesän 2025 aikana.](https://images.cdn.yle.fi/image/upload/c_crop,h_2722,w_4840,x_1,y_223/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1747823182/39-1469102682da7e124d65)
+
+Avaa kuvien katselu
+
+Hanhenkakkaa yritetään nyt kerätä erityisellä laitteella, koska kerääminen lapiolla tai haravalla on hidasta ja kallista. Kuva: Vesa Marttinen / Yle
+
+Hanhenkakkojen kerääminen haravalla tai lapiolla on hidasta. Rannoilla on kymmeniä työntekijöitä siivoamassa ulosteita.
+
+Pääkaupunkiseudulla on kokeiltu uutta keräyslaitetta hanhenkakkaan.
+
+Helsingin kaupunki järjesti viime vuonna ideakilpailun. Ideoita tuli hyvin vähän, joten ratkaisu piti keksiä itse.
+
+Keräyslaite on pieni metallihäkki, jota vedetään pyörillä.
+
+## Kertaus
+
+Uutisviikon aihe olivat hanhien ulosteet uimapaikoilla.
+
+Nurmikoilla ja rannalla on inhottavaa kulkea paljain jaloin.
+
+Toistaiseksi ei ole tehokasta keinoa torjua lintuja ja niiden kakkaa rannoilta.
+
+Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

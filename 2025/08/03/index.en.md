@@ -1,0 +1,89 @@
+# Radio | News week in plain Finnish | Sunday 3.8.2025
+
+Harms of white-fronted geese on beaches
+
+Listen
+
+You can read the news simultaneously below.
+
+The topic of the week is goose droppings on beaches.
+
+Beaches and swimming pools are now full of people. Goose poop makes beaches and lawns dirty.
+
+## Goose poop is a problem on beaches and lawns
+
+![White-cheeked goose on the lawn.](https://images.cdn.yle.fi/image/upload/c_crop,h_1956,w_3478,x_0,y_3/ar_1.777777777777777 7,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1753785068/39-14999976888a2673c17e)
+
+Open image viewer
+
+White-fronted geese in Kaivopuisto Park, Helsinki. Photo: Matti Myller / Yle
+
+White-fronted geese enjoy swimming on beaches and leave a lot of droppings.
+
+Everything has been tried against geese. Fences, meadows and warning tape have been set up.
+
+Dogs, drones and laser repellents have been used in fields outside cities. Shooting geese has also been suggested.
+
+Shooting may be possible in the future.
+
+The Parliament's Environment Committee supports a proposal to hunt barnacle geese. The geese cause damage to agriculture.
+
+However, the proposal on hunting applies to rural areas, not cities.
+
+## Even in the outdoor swimming pool, people suffer from goose poop
+
+![Goose poop on the lawn of Kotka Swimming Pool Katariina.](https://images.cdn.yle.fi/image/upload/c_crop,h_2597,w_4617,x_12,y_234/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1751444896/39-14885036864ec76e78c6)
+
+Open image viewer
+
+In addition to beaches and lawns, geese also enjoy swimming pools. Photo: Kalle Purhonen / Yle
+
+For example, there has been a lot of barnacle goose feces at the Katariina outdoor swimming pool in Kotka.
+
+It makes it difficult to sunbathe on the lawn. Walking barefoot without shoes is disgusting.
+
+Geese do not usually come to the swimming pools, but the edges of the pools are cleaned every day.
+
+An attempt is made to remove the feces with a lawnmower.
+
+## Goose Poop and the New York Times
+
+![The New York Times main entrance](https://images.cdn.yle.fi/image/upload/c_crop,h_1683,w_2992,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1524817533/39-4818345ae2de2e6713f)
+
+Open image viewer
+
+The New York Times has also reported on Finland's goose problem. Photo: Restricted use only in connection with this program, Yle Kuvapalvelu, kuvapalveluyle.fi
+
+The goose poop in Helsinki has also become international news, with The New York Times reporting how the problem is harming Finland's "short and precious" summers.
+
+The newspaper writes especially about the Hietaniemi or Hietsu beach area, where birds are everywhere.
+
+The problem in Helsinki is not new. The number of white-fronted geese in the Helsinki metropolitan area increased rapidly in the early 2000s.
+
+The New York Times reports that Finns are desperate to find a solution.
+
+## A poop collector is being tested in Helsinki
+
+![This type of device will be used to remove goose poop from Helsinki beaches during the summer of 2025.](https://images.cdn.yle.fi/image/upload/c_crop,h_2722,w_4840,x_1,y_223/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1747823182/39-1469102682da7e124d65)
+
+Open image viewer
+
+They are now trying to collect goose droppings with a special device, because collecting them with a shovel or rake is slow and expensive. Photo: Vesa Marttinen / Yle
+
+Collecting goose droppings with a rake or shovel is slow. There are dozens of workers on the beaches cleaning up the droppings.
+
+A new goose poop collection device has been tested in the Helsinki Metropolitan Area.
+
+The City of Helsinki organized an ideas competition last year. There were very few ideas, so we had to come up with a solution ourselves.
+
+The collection device is a small metal cage that is pulled on wheels.
+
+## Repetition
+
+The topic of the week was goose droppings in swimming areas.
+
+It is disgusting to walk barefoot on lawns and beaches.
+
+So far, there is no effective way to repel birds and their poop from beaches.
+
+This was Uutisviikko in plain Finnish. See you again, bye!

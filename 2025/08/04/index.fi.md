@@ -1,0 +1,73 @@
+# TV |Selkouutiset | maanantai 4.8.2025
+
+Ulosotto. Mielentilatutkimus. Alvar Aalto. Tiistain sää.
+
+## Ulosotot
+
+Aluksi uutinen ulosotosta.
+
+Ulosottojen määrä kasvaa Suomessa.
+
+Ulosottovelallisten määrä on kasvanut jo monta vuotta.
+
+Turkulainen **Julianna Brandt-Smal** on vammainen. Brandt-Smal joutui ulosmittaukseen, kun hän jäi työttömäksi.
+
+Hän ei pystynyt enää maksamaan sänkyä, jonka hän osti osamaksusopimuksella.
+
+Ulosottojen määrä kasvaa.
+
+Ulosotossa on noin 450 000 suomalaista.
+
+Ulosottojen määrä on ennätyssuuri. Näin sanoo apulaisvaltakunnanvouti **Jarmo Kivistö**.
+
+*”Kyllä tällä hetkellä puhutaan ihan että velallismäärät on ihan huipussaan, että ei tämmöistä määrä ole ollut.”*
+
+Ulosottoa odottaa noin 7000 kohdetta.
+
+## Mielentilatutkimukset
+
+Nyt uutinen mielentilatutkimuksista.
+
+Mielentilatutkimukset lisääntyvät oikeudenkäynneissä.
+
+Tavallisesti mielentilatutkimuksia tehdään noin 100 vuodessa. Nyt määrä on kasvanut.
+
+Oikeuspsykiatrian ylilääkäri **Marko Lindberg** sanoo, että rikosten raakuus on lisääntynyt.
+
+Lindberg arvioi, että yksi syy on mielenterveyspalveluiden puute.
+
+Mielentilatutkimukset lisääntyvät oikeudenkäynneissä.
+
+Myös rikosasianajaja **Kari Eriksson** arvioi, että mielenterveyspalveluiden puute on lisännyt väkivaltarikoksia.
+
+Kovat rangaistukset eivät auta, jos ihminen on sairas.
+
+## Alvar Aalto
+
+Lopuksi kulttuuriuutinen.
+
+Arkkitehti **Alvar Aallon** suosio kasvaa.
+
+Matkailijat käyvät katsomassa Alvar Aallon rakennuksia enemmän kuin ennen.
+
+Tämä on Alvar Aallon entinen kotitalo Helsingissä.
+
+Sisään pääsee kerralla vain 15 ihmistä. Kierrokset myydään usein loppuun.
+
+Kiinnostus Alvar Aallon rakennuksiin kasvaa.
+
+**Yao Yifan** on Kiinasta. Hän kertoo, että Kiinassa ja muualla Aasiassa ihmiset ihailevat Alvar Aallon töitä.
+
+Arkkitehti Alvar Aallon suosio kasvaa.
+
+Suosio kasvaa ehkä lisää, jos Aallon kohteet pääsevät Unescon maailmanperintölistalle.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Tiistaina sää vaihtelee.
+
+Lännessä sataa ja ukkostaa. Idässä on poutaisempaa ja aurinko paistaa.
+
+Lännessä lämpötila on noin 20 astetta. Muualla on hellettä eli ainakin 25 astetta.

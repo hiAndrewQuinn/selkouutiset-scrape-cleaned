@@ -1,0 +1,61 @@
+# Radio | Uutisviikko selkosuomeksi | lauantai 23.8.2025
+
+Mielenterveys.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Uutisviikon aihe on tällä kertaa mielenterveys ja mielenterveyden hoito. Suomessa on paljon ihmisiä, joilla on mielenterveyden ongelmia. Mielenterveyden ongelma lisää riskiä, että ihminen tekee itsemurhan. Suomessa tehdään yli 700 itsemurhaa joka vuosi.
+
+Kerromme nyt aiheesta lisää.
+
+## Mielenterveyden ongelmat
+
+![Maassa on puhelin, jossa näkyy MIELI ry:n Kriisipuhelimen numero: 09 2525 0111.](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_303/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1692710938/39-116052364e4b615be410)
+
+Avaa kuvien katselu
+
+Kuva: Lauri Karo / Yle
+
+Mielenterveyden ongelmat ovat yleisiä. Yleisin mielenterveyden ongelma on masennus. Tutkimus kertoo, että 20 prosenttia suomalaisista ihmisistä sairastuu masennukseen joskus elämässä.
+
+Asiantuntijat sanovat, että mielenterveydestä pitää puhua enemmän kuin aikaisemmin. Mielenterveyden ongelmiin liittyy usein häpeää, ja siksi ihminen ei ehkä hae ajoissa apua.
+
+## Itsemurhat Suomessa
+
+![Nainen istuu kivellä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3225,w_5731,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1726239237/39-133714866c72ecc0c67e)
+
+Avaa kuvien katselu
+
+Kuva: Juuso Stoor / Yle
+
+Suomessa tehtiin viime vuonna noin 750 itsemurhaa. Suomessa tehdään paljon vähemmän itsemurhia kuin 1990-luvulla, mutta viime vuosina määrä ei ole vähentynyt.
+
+Mielenterveyden ongelmat lisäävät paljon riskiä, että ihminen tekee itsemurhan. Itsemurhan taustalla on usein ihmisen vakava masennus.
+
+## Apu mielenterveyden ongelmiin
+
+![Kännykän näytöllä Nettiterapian sivut.](https://images.cdn.yle.fi/image/upload/c_crop,h_3004,w_5341,x_0,y_246/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712413077/39-126707766115651d1296)
+
+Avaa kuvien katselu
+
+Kuva: Simo Pitkänen / Yle
+
+Erilaisiin mielenterveyden ongelmiin kannattaa hakea apua.
+
+Mielenterveyden ongelmiin saa apua terveyskeskuksesta. Esimerkiksi masennukseen auttaa usein terapia. Terapia on keskusteluhoitoa, jonka tavoitteena on helpottaa ihmisen oloa.
+
+Joskus mielenterveyden hoidossa tarvitaan myös lääkkeitä. Vakavia mielenterveyden ongelmia hoidetaan sairaalassa.
+
+Joskus ihmisen olo voi olla niin huono, että apua tarvitaan heti.
+
+Apua saa esimerkiksi, kun soittaa kriisipuhelimeen. Mieli ry:n kriisipuhelimeen on tullut tänä kesänä paljon puheluita. Kriisipuhelimeen tulee joka päivä yli 20 soittoa ihmisiltä, joilla on itsetuhoisia ajatuksia.
+
+Jos ihmisellä on vakavia itsemurha-ajatuksia, pitää soittaa hätäkeskukseen.
+
+## Kertaus
+
+Uutisviikon aihe oli mielenterveys. Mielenterveyden ongelmat ovat Suomessa yleisiä. Joka vuosi yli 700 ihmistä tekee Suomessa itsemurhan. Taustalla on usein mielenterveyden ongelmia. Mielenterveyden ongelmiin kannattaa hakea apua.
+
+Uutisviikko selkosuomeksi jälleen huomenna sunnuntaina. Tavataan taas, kuulemiin!

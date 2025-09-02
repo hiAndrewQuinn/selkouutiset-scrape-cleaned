@@ -1,0 +1,71 @@
+# TV | Selkouutiset | tiistai 2.9.2025
+
+Hallitus. Uudenkaupungin autotehdas. Videopelit. Sääennuste.
+
+## Hallitus
+
+Aluksi uutinen politiikasta.
+
+Hallitus on jatkanut tänään neuvotteluja budjetista.
+
+Maanantaina hallituksen aika kului muuhun kuin budjettiin.
+
+Hallitus kävi tiukan keskustelun puhetavasta. Syy on perussuomalaisten puheet maahanmuuttajista.
+
+Asia vaikuttaa hallituksen toimintakykyyn.
+
+Pääministeri **Petteri Orpo** sanoo, että hallitus ei hyväksy rasistista puhetapaa.
+
+Orpo sanoo, että maahanmuuton ongelmista saa keskustella, mutta ihmisistä ei saa puhua loukkaavasti.
+
+## Uudenkaupungin autotehdas
+
+Nyt talousuutinen.
+
+Suomen valtio lisää omistusta Uudenkaupungin autotehtaassa.
+
+Autotehtaan nimi on Valmet Automotive.
+
+Kiinalainen akkufirma CATL on omistanut tehtaasta 20 prosenttia.
+
+Suomen valtio ja suomalainen sijoitusfirma ostavat kiinalaisfirman osuuden tehtaasta.
+
+Näin Uudenkaupungin autotehdas palaa kokonaan suomalaisomistukseen.
+
+Suomen valtio lisää omistusta Uudenkaupungin autotehtaassa.
+
+Syy on turvallisuuspolitiikka.
+
+Uudenkaupungin autotehdas alkaa ehkä toimia puolustusteollisuudessa.
+
+Uudenkaupungin autotehdas voi ehkä valmistaa sotilasajoneuvoja ja muita korkean teknologian tuotteita sotilaskäyttöön.
+
+Autoteollisuudessa on kova kilpailu. Siksi tehtaan on hyvä uudistua.
+
+## Videopelit
+
+Lopuksi uutinen videopeleistä.
+
+Videopelit yhdistävät ihmisiä. Videopelit ovat suosittua ajanvietettä.
+
+Jotkut ihmiset ajattelevat, että videopelit vähentävät ihmissuhteita. Näin ei aina ole. Videopelit myös yhdistävät ihmisiä.
+
+**Elina Karppinen** ja **Krystian Noworyta** tutustuivat pelaajaryhmässä.
+
+He myös rakastuivat ja ovat olleet yhdessä jo monta vuotta.
+
+He pelaavat yhä yhdessä joka päivä.
+
+Karppinen ja Noworyta kertovat, että peleistä riittää paljon yhteistä puhuttavaa ja jaettavaa.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää on vaihtelevaa. Lännessä sataa.
+
+Muualla on poutaista, eli ei sada.
+
+Idässä paistaa aurinko.
+
+Lämpötila on 11-21 astetta.

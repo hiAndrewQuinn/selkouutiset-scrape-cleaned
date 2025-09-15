@@ -1,0 +1,67 @@
+# TV | Selkouutiset | maanantai 15.9.2025
+
+Kuntavero. Ajokoe. Koripallon EM-kilpailut. Sääennuste.
+
+## Kuntavero
+
+Aluksi uutinen kuntaveroista.
+
+Kuntaverojen ero kasvaa eri kuntien välillä.
+
+Pienin kuntavero on Kauniaisissa ja isoin kuntavero on Pomarkussa.
+
+Kuntaliitto kertoo, että joissakin kunnissa veroprosentti voi jopa kaksinkertaistua vuoteen 2040 mennessä.
+
+Kuntaveron ero kasvaa eri kuntien välillä.
+
+Tärkein syy on se, että monissa kunnissa asukkaiden määrä vähenee nopeasti. Siksi kunnan verotulot vähenevät.
+
+Kuntien pitää nostaa veroja, että päiväkodit ja koulut voivat toimia.
+
+Eniten tarvetta nostaa kuntaveroa on maaseudulla.
+
+Suurissa kaupungeissa tilanne on parempi.
+
+## Ajokoe
+
+Nyt uutinen ajokokeista.
+
+Ajokokeiden hylkäykset ovat lisääntyneet paljon.
+
+Viime vuonna noin 50 prosenttia ajokokeista hylättiin.
+
+10 vuotta sitten hylkäysprosentti oli 30.
+
+Ajokokeiden hylkäykset ovat lisääntyneet paljon.
+
+Syy on ehkä ajokorttilain muutos vuonna 2018. Autokoulun pakollisten ajotuntien määrää pienennettiin, ja ajokokeesta tehtiin vaikeampi kuin ennen.
+
+Liikennevirasto Traficomin asiantuntija **Marjo Immonen** sanoo, että ajotunteja kannattaa ottaa riittävästi vaikka pakollinen määrä on pienempi kuin ennen. Tarve on yksilöllistä.
+
+*”Kun aikaisemmin oli 18 ajotuntia, niin ei sekään riittänyt kaikille. Eli tämä on hirmu yksilöllistä, miten ihminen oppii ajamaan.”*
+
+## Suomi koripallon EM-kisoissa
+
+Lopuksi urheilu-uutinen.
+
+Suomi on sijoittunut neljänneksi koripallon EM-kisoissa.
+
+Suomen miesten koripallomaajoukkue hävisi sunnuntaina pronssipelin Kreikalle. Tulos oli tiukka. Suomi hävisi vain 3 pisteellä.
+
+Suomi sijoittui neljänneksi koripallon EM-kisoissa.
+
+Sijoitus on Suomelle paras koskaan.
+
+Suomen joukkueen kapteeni **Sasu Salin** kertoo, että pronssipelin häviö harmittaa, mutta pelaajat ovat iloisia, että joukkue pääsi näin pitkälle.
+
+*”Harmittaa, ja on ylpee ja on iloinen kuitenkin kaikesta, mitä on tässä saanut tehdä.”*
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Sää on lähipäivinä epävakaista eli sää voi vaihdella paljon.
+
+Tiistaina etelässä ja maan keskiosassa tulee sade- ja ukkoskuuroja.
+
+Idässä ja pohjoisessa on pääosin poutaa.

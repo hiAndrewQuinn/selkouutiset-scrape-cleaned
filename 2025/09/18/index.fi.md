@@ -1,0 +1,75 @@
+# TV | Selkouutiset | torstai 18.9.2025
+
+Talouskasvu. Jätevedenpuhdistamo. Q-teatteri. Sääennuste.
+
+## Talouskasvu
+
+Aluksi talousuutinen.
+
+Ennusteet talouden kasvusta ovat laskeneet.
+
+Keväällä monet tutkijat ennustivat, että Suomen talous kasvaa tänä vuonna enemmän kuin 1 prosentin.
+
+Uusissa ennusteissa Suomen talous kasvaa vähemmän kuin 1 prosentin.
+
+Talous kasvaa hitaasti, koska ihmiset eivät halua kuluttaa paljon rahaa.
+
+He eivät esimerkiksi osta paljon tavaroita ja palveluita.
+
+Näin sanoo Elinkeinoelämän tutkimuslaitoksen ennustepäällikkö **Päivi Puonti**.
+
+*Pääasiassa kotitalouksien kulutus on ollut heikompaa kuin miltä se aikaisemmin näytti.*
+
+Syy on huoli omasta ja maailman tilanteesta. Kun ihmiset säästävät, talous ei kasva.
+
+## Jätevedenpuhdistamo
+
+Nyt uutinen tekniikasta.
+
+Tämä on Tampereen uusi jätevedenpuhdistamo.
+
+Sen käyttö on alkanut tällä viikolla.
+
+Puhdistamo on suuri. Sen pinta-ala on 5 hehtaaria.
+
+Puhdistamo maksoi satoja miljoonia euroja.
+
+Uudessa puhdistamossa on huipputekniikkaa.
+
+Ilmastusaltaissa likaveteen pumpataan ilmaa. Altaassa on mikrobeja, jotka hajottavat jäteveden epäpuhtauksia. Tämä on biologista puhdistusta.
+
+Puhdistamoon tulee myös UV-desinfiointi.
+
+Tampereella on otettu käyttöön uusi jätevedenpuhdistamo.
+
+Puhdistamon henkilökunta kertoo, että uimavesien laatu paranee Tampereella, koska puhdistamo on tosi tehokas. Sinne johdetaan pian 5 kunnan jätevedet.
+
+## Opettaja nyt -näytelmä
+
+Lopuksi kulttuuriuutinen.
+
+Tässä harjoitellaan Q-teatterin uutta näytelmää.
+
+Pääosassa on näyttelijä **Elina Knihtilä**.
+
+Näytelmän nimi on *Opettaja nyt*.
+
+Se kertoo valtasuhteista ja kuilusta nuorten ja vanhojen välillä.
+
+Tapahtumapaikka on taideoppilaitos.
+
+Näytelmä tapahtuu kahdessa ajassa, opettajan nuoruudessa ja nykyhetkessä.
+
+Näytelmä kuvaa eri aikakausien ristiriitaa, joka on vaikeaa opettajalle.
+
+Opettaja nyt -näytelmää esitetään Q-teatterissa Helsingissä. Ensi ilta on tänään torstaina.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina aurinko paistaa lähes koko maassa.
+
+Vain aivan idässä ja etelässä sataa välillä vettä.
+
+Lämpötila on 14...18 asteen välillä, Lapissa 6...12 asteen välillä.

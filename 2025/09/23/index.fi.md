@@ -1,0 +1,57 @@
+# TV | Selkouutiset | tiistai 23.9.2025
+
+Droonihäirintä. Budjetti. Tietokoneet. Sää
+
+## Droonit häiritsivät lentoliikennettä
+
+Ensin uutinen lentokenttien häirinnästä.
+
+Tanskan ja Norjan lentokenttiä häirittiin eilen illalla drooneilla eli lennokeilla. Lentokentät jouduttiin sulkemaan.
+
+Tanskassa lentokentälle tuli drooneja useista suunnista, kertoo poliisi.
+
+Tanskan poliisi sanoo, että drooneilla haluttiin näyttää voimaa. Niistä ei ollut vaaraa ihmisille, mutta useita lentoja peruttiin.
+
+Vielä ei tiedetä, kenen droonit olivat.
+
+Tanskan ja Norjan lentokenttiä häirittiin eilen illalla drooneilla.
+
+## Budjettia käsitellään eduskunnassa
+
+Sitten uutinen valtion rahojen käytöstä eli budjetista.
+
+Eduskunta on alkanut käsitellä ensi vuoden budjettiesitystä.
+
+Budjettiesityksen on tehnyt hallitus. Esityksessä hallitus kertoo, miten valtio käyttää rahaa ensi vuonna.
+
+Hallitus on päättänyt isoista, miljardien eurojen säästöistä. Säästöjä tehdään siksi, että valtion ei tarvitse ottaa liikaa velkaa.
+
+Opposition mielestä hallitus säästää rahaa vääristä asioista.
+
+Eduskunta voi hyväksyä tai hylätä budjettiesityksen. Eduskunta keskustelee esityksestä perjantaihin saakka.
+
+## Miljoonia tietokoneita ei voi pian käyttää
+
+Lopuksi uutinen tietokoneista.
+
+Maailmassa on satoja miljoonia tietokoneita, joita ei voi pian käyttää.
+
+Tietokoneita ei voi enää käyttää, koska niihin ei saa uutta Windows 11 -käyttöjärjestelmää. Windows on järjestelmä, jolla tietokoneen erilaisia ohjelmia voi käyttää.
+
+Tietokoneet toimivat vielä Windows 10 -käyttöjärjestelmällä. Se jää kuitenkin vanhaksi 14. lokakuuta.
+
+Sen jälkeen Windows 10 ei ole enää turvallinen käyttää.
+
+Windowsin tehnyt Microsoft-yhtiö sanoo, että uudessa Windows 11:ssä ihmisten tiedot ovat paremmin turvassa. Siksi käyttöjärjestelmä halutaan vaihtaa.
+
+Maailmassa on satoja miljoonia tietokoneita, joita ei voi pian käyttää.
+
+## Sää kylmenee
+
+Vielä sääennuste.
+
+Pohjoisesta tulee kylmää ilmaa Suomeen.
+
+Sää on melko poutaista, eli ei sada.
+
+Lämpötila on etelässä noin 10 astetta. Pohjoisessa on vain 5 astetta.

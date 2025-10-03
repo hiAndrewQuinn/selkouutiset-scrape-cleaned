@@ -1,0 +1,43 @@
+# TV | Selkouutiset | perjantai 3.10.2025
+
+Työttömyys. Avustuslaivat. Kuopion Palloseura. Sää.
+
+## Työttömyys
+
+Ensimmäisen uutisen aiheena on työttömyys.
+
+Suomessa on paljon työttömiä ihmisiä. EU-maista vain Espanjan työttömyysluvut ovat huonompia kuin Suomen.
+
+Työttömyys on Suomessa lisääntynyt koko ajan vuodesta 2023 lähtien. Samaan aikaan monessa Etelä-Euroopan maassa työttömyys on koko ajan vähentynyt.
+
+Suomessa on paljon työttömiä ihmisiä. Toiminnanjohtaja Jukka Haapakoski Työttömien keskusjärjestöstä:
+
+*-Se on tosi turhauttavaa työttömille, että ei ole oikeastaan mitään. Jos olet työttömänä, et ole tavallaan missään palveluissa kiinni.*
+
+## Avustuslaivat
+
+Nyt uutinen avustuslaivoista.
+
+Israel pysäytti keskiviikkona yli 40 laivaa, jotka olivat matkalla Gazaan.
+
+Laivoissa oli yhteensä yli 500 ihmistä, jotka vastustavat Israelin hyökkäystä Gazassa. Mukana oli ainakin 5 suomalaista aktvistia. Myös ruotsalainen ilmastoaktivisti Greta Thunberg oli yhdessä laivassa. Israel pidätti aktivistit.
+
+Aktivistit sanovat, että tarkoituksena oli viedä gazalaisille ihmisille ruokaa, juomaa ja lääkkeitä. Aktivistit haluavat myös, että gazalaisten ihmisten hätä saa julkisuutta.
+
+Israel pysäytti keskiviikkona laivoja, jotka olivat matkalla Gazaan. Eri puolilla maailmaa on mielenosoituksia, joissa vastustetaan Israelia.
+
+## Kuopion Palloseura
+
+Nyt urheilua.
+
+Kuopion Palloseura pelasi 1. ottelun jalkapallon Konferenssiliigassa. KuPS pelasi kosovolaista FC Dritaa vastaan Tampereella. Ottelu päättyi tasan 1-1.
+
+KuPS pelaa Konferenssiliigassa vielä 2 peliä Tammelan stadionilla Tampereella ja 3 peliä ulkomailla.
+
+Tämä on 1. kerta, kun Kuopion Palloseura pelaa jalkapallon Konferenssiliigaa. Joukkue pääsi jatkoon liigan karsinnoista.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna lauantaina sää on tuulinen. Myös merellä tuulee kovaa. Sää on poutainen eli ei sada. Lämpötila on noin 10 astetta.

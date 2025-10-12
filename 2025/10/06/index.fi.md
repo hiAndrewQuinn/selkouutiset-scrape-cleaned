@@ -1,0 +1,57 @@
+# TV | Selkouutiset | maanantai 6.10.2025
+
+Puolustusvoimat. Vuokra-asunnot. Säilölumi. Sää.
+
+## Droonit ja miinat
+
+Aluksi uutinen Suomen puolustusvoimista eli armeijasta.
+
+Armeija alkaa kouluttaa varusmiehiä droonitoimintaa varten.
+
+Droonit eli lennokit ovat viime viikkoina häirinneet lentoliikennettä monessa Euroopan maassa. Drooneja on havaittu myös lähellä armeijan kohteita.
+
+Suomessa on varauduttu samanlaiseen häirintään.
+
+Maavoimien komentaja Pasi Välimäki kertoo, että Suomella on järjestelmiä, joilla se havaitsee ja torjuu drooneja.
+
+Varusmiehiä aletaan kouluttaa myös henkilömiinojen käyttöön.
+
+Varusmiehiä opetetaan raivaamaan ja asettamaan henkilömiinoja.
+
+Henkilömiinat ovat räjähteitä, joita voidaan laittaa maahan tai veteen. Ne räjähtävät, kun ihminen tai ajoneuvo tulee lähelle.
+
+## Vuokra-asunnot
+
+Sitten asiaa vuokra-asunnoista.
+
+Monet ihmiset etsivät nyt uutta ja halvempaa vuokra-asuntoa.
+
+Halvempaa vuokra-asuntoa etsii noin 20 prosenttia niistä vuokralaisista, jotka saavat asumistukea.
+
+Heistä osa on voinut jo muuttaa halvempaan asuntoon, kertoo OP-ryhmän kysely.
+
+Monet ihmiset joutuvat etsimään halvemman vuokra-asunnon, koska asumistukiin on tullut kiristyksiä.
+
+## Säilölumi
+
+Lopuksi aiheena on lumi.
+
+Säilölumen käyttö kasvaa Lapin matkailussa.
+
+Säilölumi tarkoittaa lunta, joka on otettu talteen edellisenä talvena. Se on säilötty eli varastoitu kesän yli seuraavaa syksyä varten.
+
+Säilölumen avulla esimerkiksi laskettelurinteet voidaan avata jo lokakuussa, vaikka talvi ei ole vielä edes alkanut.
+
+Säilölumen käyttö pidentää Lapin matkailusesonkia.
+
+Rukan ja Levin hiihtokeskukset ovat jo avanneet ensimmäiset rinteet säilölumen avulla.
+
+Säilölumesta rakennetaan myös reittejä esimerkiksi koiravaljakkoajeluita varten.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Tiistaina isossa osassa maata tulee heikkoja vesisateita.
+
+Lämpötila on +6 ja 10 asteen välillä, etelässä voi olla lämpimämpää.

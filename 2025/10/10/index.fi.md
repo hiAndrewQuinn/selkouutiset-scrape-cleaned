@@ -1,0 +1,73 @@
+# TV | Selkouutiset | 10.10.2025
+
+Jäänmurtajat. Gaza. MM-jalkapallo. Sääennuste.
+
+## Jäänmurtajatilaus
+
+Aluksi talousuutinen.
+
+USA tilaa Suomelta 11 jäänmurtajaa.
+
+Tilaus on iso kauppa Suomelle.
+
+Suomessa on paljon jäänmurtajaosaamista.
+
+Tässä suunnittelufirma Aker Arctic tekee jäänmurtokokeita Helsingin Vuosaaressa.
+
+USA tilaa Suomelta 11 jäänmurtajaa.
+
+Presidentti Aleksander Stubb ja USA:n presidentti Donald Trump sopivat asiasta torstaina.
+
+Stubb ja pääministeri Petteri Orpo vierailivat Washingotonissa.
+
+Tilauksen arvo on noin 6 miljardia euroa. Ainakin 4 murtajaa rakennetaan Suomen telakoilla.
+
+USA:n jäänmurtajatilaus tuo töitä noin 10 000 ihmiselle.
+
+Ainakin 3 murtajaa rakennetaan Rauman telakalla. Ne menevät USA:n rannikkovartiostolle.
+
+## Gazan rauhansuunnitelma
+
+Nyt uutinen Lähi-idästä.
+
+Israelin hallitus on hyväksynyt Gazan rauhansuunnitelman 1. vaiheen.
+
+1\. vaiheessa Gazassa alkaa aselepo ja terroristijärjestö Hamas vapauttaa panttivangit.
+
+USA lähettää Israeliin noin 200 sotilasta valvomaan aseleposopimusta.
+
+Sotilaat ovat osa ryhmää, jossa on myös muiden maiden edustajia.
+
+Israelin hallitus on hyväksynyt rauhansuunnitelman 1. vaiheen.
+
+Rauhansuunnitelmassa on vielä paljon asioita, jotka pitää ratkaista.
+
+Tällaisia ovat esimerkiksi, miten Hamas riisutaan aseista ja miten alueen hallinto järjestetään.
+
+## Suomen jalkapallomaajoukkue
+
+Lopuksi urheilu-uutinen.
+
+Suomen jalkapallomaajoukkue voitti torstaina Liettuan 2-1 MM-karsintapelissä. Se pelattiin Helsingin Olympiastadionilla.
+
+Ensin Liettua johti 1-0.
+
+Sitten Suomen Benjamin Källman teki tasoitusmaalin.
+
+Suomen toisen maalin teki Adam Marhievi.
+
+Suomi voitti Liettuan 2-1 jalkapallon MM-karsintapelissä.
+
+Suomen pitää voittaa 2 seuraava peliä, jos Suomi haluaa päästä jatkokarsintaan.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina idässä sataa vettä.
+
+Muualla on pääosin poutaa, eli ei sada.
+
+Aurinko paistaa paikoin etelässä ja paikoin Lapissa, mutta muuten on pilvistä.
+
+Lounaassa tuulee kovaa.

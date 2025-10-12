@@ -1,0 +1,43 @@
+# TV | Selkouutiset | torstai 9.10.2025
+
+Gazan rauhansuunnitelma. Alkoholin kotiinkuljetus. Jouko Turkka. Sää.
+
+## Gazan rauhansuunnitelma
+
+Ensin uutinen ulkomailta.
+
+Israel ja terroristijärjestö Hamas hyväksyvät rauhansuunnitelman Gazaan. Tämä on rauhansuunnitelman 1. osa.
+
+Sopimuksessa sanotaan, että Israel vetää sotilaita pois Gazasta. Hamas vapauttaa israelilaiset panttivangit. Israel vapauttaa 2000 palestiinalaista vankia.
+
+Israel ja terroristijärjestö Hamas hyväksyvät rauhansuunnitelman Gazaan.
+
+Gazan rauhansuunnitelmasta neuvoteltiin Egyptissä.
+
+Asiantuntija sanoo, että rauhaan Gazassa on vielä pitkä matka.
+
+## Alkoholin kotiinkuljetus
+
+Seuraavan uutisen aiheena on alkoholi.
+
+Alkoholia saa ehkä tulevaisuudessa tilata Suomessa kotiin. Jos hallituksen lakiesitys hyväksytään, alkoholia saa jatkossa tilata kotiin Alkosta ja ruokakaupoista. Alkoholia saa tilata myös nettikaupoista ulkomailta. Jos laki hyväksytään, lähettifirmat kuljettavat alkoholia ihmisten koteihin.
+
+Lähettifirmat sanovat, että uudessa laissa pitää olla selvät säännöt. Tarkoituksena on varmistaa, että alaikäiset nuoret eivät tilaa kotiin alkoholia.
+
+Alkoholia saa ehkä tulevaisuudessa tilata kotiin. Eduskunta on aloittanut keskustelun hallituksen lakiesityksestä.
+
+## Jouko Turkka
+
+Seuraavaksi aiheena on Jouko Turkka.
+
+Teatteriohjaaja Jouko Turkasta on kirjoitettu 3 uutta kirjaa.
+
+Yhden kirjan kirjoittaja on Hannu Harju. Hän sanoo, että Jouko Turkka oli ristiriitainen ihminen. Teatterissa Turkka sai näyttelijöistä esiin uusia puolia. Turkka myös aiheutti riitoja ihmisten välille ja kohteli näyttelijöitä huonosti. Hannu Harju sanoo, että Turkka aiheutti tahallaan erilaisia kohuja.
+
+Teatteriohjaaja Jouko Turkka kiinnostaa yhä ihmisiä. Hänestä on kirjoitettu 3 uutta kirjaa. Jouko Turkka kuoli vuonna 2016.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna perjantaina idässä sataa vettä ja lännessä paistaa aurinko. Pohjoisessa voi sataa vähän vettä. Päivä on melko lämmin.

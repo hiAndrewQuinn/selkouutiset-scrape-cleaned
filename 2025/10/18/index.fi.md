@@ -1,0 +1,87 @@
+# Radio | Uutisviikko selkosuomeksi | 18.10.2025
+
+Puolueiden velkajarrusopimus
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Velkajarrusopimus
+
+Uutisviikon aiheena on puolueiden velkajarrusopimus.
+
+Puolueet ovat sopineet yhdessä uudesta velkajarrusta.
+
+Velkajarru tarkoittaa sääntöjä siitä, miten rajoitetaan julkisen velan kasvua.
+
+Kerromme nyt lisää velkajarrusta.
+
+## Tavoitteet
+
+Velkajarru tarkoittaa, että puolueet päättävät etukäteen, kuinka paljon Suomi voi ottaa velkaa tulevina vuosina.
+
+Tavoite on pitää velan määrä hallinnassa ja varmistaa, ettei rahaa käytetä liikaa.
+
+Jatkossa puolueet sopivat jo ennen vaaleja, mikä on talouden sopeutustavoite seuraavalle vaalikaudelle.
+
+Tämä tavoite täyttää EU:n vaatimukset ja Suomen omat säännöt.
+
+![Yle Uutisten politiikan toimittajat Ari Hakahuhta ja Maria Stenroos eduskunnassa.](https://images.cdn.yle.fi/image/upload/c_crop,h_3254,w_5785,x_15,y_329/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1758613826/39-152721468d250ab035da)
+
+Avaa kuvien katselu
+
+Puolueet sitoutuvat velkajarruun riippumatta siitä, ovatko ne myöhemmin hallituksessa vai oppositiossa. Kuva: Silja Viitala / Yle
+
+## Alijäämä
+
+EU:ssa jäsenvaltion alijäämä saa olla enintään 3 prosenttia.
+
+Se tarkoittaa, että valtio saa käyttää enintään 3 prosenttia enemmän rahaa kuin saa tuloja.
+
+Suomen oma sääntö on tiukempi. Suomessa alijäämä saa olla enintään 2,5 prosenttia.
+
+Toinen tärkeä asia on velkasuhde. Se tarkoittaa, kuinka paljon valtiolla on velkaa suhteessa maan talouteen.
+
+Jos velkaa on paljon, velan määrää pitää pienentää nopeammin kuin silloin, kun velkaa on vähän.
+
+Suomen tavoite on laskea velkasuhde EU:n vaatimaan 60 prosenttiin ja myöhemmin 40 prosenttiin.
+
+Osa asiantuntijoista sanoo, että 40 prosentin tavoite on Suomelle liian tiukka ja vaikea saavuttaa.
+
+## Harvinainen päätös
+
+Päätös velkajarrusta syntyi harvinaisella tavalla.
+
+Melkein kaikki eduskuntapuolueet ovat mukana sopimuksessa. Vain vasemmistoliitto jäi ulkopuolelle.
+
+Näin laaja sopu on harvinaista. Yleensä puolueet riitelevät talouspolitiikasta.
+
+Puolueet sitoutuvat velkajarruun riippumatta siitä, ovatko ne myöhemmin hallituksessa vai oppositiossa.
+
+![Julkistalouden professori Roope Uusitalo, Helsingin yliopisto, VATT.](https://images.cdn.yle.fi/image/upload/c_crop,h_1798,w_3198,x_0,y_46/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1679328005/39-1087745641882d9d3f76)
+
+Avaa kuvien katselu
+
+Roope Uusitalo on julkistalouden professori Helsingin yliopistossa.  Kuva: Antti Eintola / Yle
+
+## Talouden vakaus
+
+Julkistalouden professori **Roope Uusitalo** sanoo, että sopu on hyvä asia. Se auttaa pitämään Suomen talouden suunnan samana useita vuosia.
+
+Velkajarru mahdollistaa talouspolitiikan pitkän suunnittelun, vaikka hallitukset vaihtuvat.
+
+Asiantuntijat arvioivat, että velkajarru voi auttaa Suomea pitkällä aikavälillä.
+
+Velan vähentäminen vaatii kuitenkin isoja säästöjä tai veronkorotuksia.
+
+Velan vähentämiseen tarvitaan myös talouskasvua.
+
+## Kertaus
+
+Uutisviikon aiheena oli puolueiden sopimus velkajarrusta.
+
+Puolueet sopivat yhdessä, miten velkaa hallitaan tulevaisuudessa.
+
+Sopimus on harvinainen ja se voi tuoda talouteen lisää vakautta.
+
+Velan vähentäminen vaatii kuitenkin suuria päätöksiä.

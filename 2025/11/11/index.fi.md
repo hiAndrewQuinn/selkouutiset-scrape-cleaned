@@ -1,0 +1,43 @@
+# TV | Selkouutiset | tiistai 11.11.2025
+
+Suomen talous. Eläkeläiset. Purot. Sää.
+
+## Suomen talous
+
+Ensin talousuutinen.
+
+Suomen talous kasvaa ensi vuonna. Näin arvioi kansainvälinen talousjärjestö IMF. IMF ennustaa, että Suomen talous kasvaa ensi vuonna 1,5 prosenttia.
+
+Talous kasvaa, koska ihmiset kuluttavat rahaa enemmän kuin aikaisemmin. Myös esimerkiksi jäänmurtajakaupat parantavat Suomen taloutta ensi vuonna.
+
+IMF sanoo, että Suomen talous on parantunut hitaasti. Järjestö sanoo myös, että Suomen valtion pitää jatkossa säästää rahaa.
+
+Suomen talous kasvaa ensi vuonna 1,5 prosenttia, arvioi IMF. IMF ennustaa, että Suomen talous kasvaa 1,5 prosenttia myös vuonna 2027.
+
+## Eläkeläiset
+
+Seuraavaksi aiheena ovat eläkeläiset.
+
+Suomessa on aikaisempaa enemmän ihmisiä, jotka ovat eläkkeellä yli 30 vuotta. Lähes 30 000 ihmistä on nyt ollut eläkkeellä yli 30 vuotta. 20 vuoden kuluttua heitä on ehkä jo melkein 100 000.
+
+Taidekerho Seniorisiveltimissä käy eläkeläisiä. **Toivo Kalliomäki** on eläkkeellä. Hänellä on nyt aikaa harrastaa:
+
+-Jo työelämän aikana ihminen voi rakentaa tulevaisuutta varten erilaisia harrastuksia. Mulla on niitä monta, mutta tämä on yksi.
+
+Suomessa on aikaisempaa enemmän ihmisiä, jotka ovat eläkkeellä yli 30 vuotta. Ihmiset elävät pitemmän aikaa kuin ennen, joten myös eläkkeellä ollaan kauemmin kuin aikaisemmin.
+
+## Purot
+
+Nyt aiheena on luonto.
+
+Vesilakia valvotaan Suomessa huonosti. Näin sanovat asiantuntijat.
+
+Vesilaki suojelee esimerkiksi monia pieniä puroja, joita on metsissä. Silti puroja tuhoutuu usein, kun metsää hakataan.
+
+Asiantuntijoiden mielestä vesilain rikkomisesta pitää tehdä tutkintapyyntö poliisille. Pienet purot ovat tärkeitä, jotta metsäluonto säilyy monipuolisena.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna keskiviikkona pohjoisessa sataa lunta. Ajokeli on erittäin huono. Etelässä on pilvistä ja sää lämpenee.

@@ -1,0 +1,59 @@
+# TV | Selkouutiset | maanantai 17.11.2025
+
+Länsirata. MS-tauti. Lasten oikeudet. Tiistain sää.
+
+## Länsirata
+
+Aluksi uutinen ratahankkeesta.
+
+Ensimmäiset kunnat äänestävät tänään länsiradan rakentamisesta.
+
+Länsirata tarkoittaa nopeaa junaa Helsingin ja Turun välillä.
+
+Ensimmäisenä äänestävät Espoon ja Turun kaupunginvaltuustot. Ne äänestävät osakassopimuksesta eli käytännössä rahasta.
+
+Radan varrella ovat myös Vihti, Lohja, Kirkkonummi ja Salo. Ne äänestävät asiasta viimeistään joulukuussa.
+
+Ensimmäiset kunnat äänestävät tänään länsiradan rakentamisesta.
+
+Kuntien rahojen lisäksi tarvitaan lainaa ja rahaa valtiolta. Länsiradan rakentamisen aloitus maksaa yli 1,3 miljardia euroa.
+
+## MS-tauti
+
+Sitten aiheena on MS-tauti.
+
+Yhä useampi suomalainen sairastuu MS-tautiin.
+
+MS-tautia sairastaa Suomessa 17 000 ihmistä. Eniten MS-tautia todetaan naisilla Länsi-Suomessa.
+
+**Virpi Pajuranta** asuu Ilmajoella, Etelä-Pohjanmaalla. Hän sairastui MS-tautiin 7 vuotta sitten.
+
+MS-tauti voi vaikeuttaa liikkumista ja arjen toimia, jos sairaus pahenee.
+
+Yhä useampi suomalainen sairastuu MS-tautiin.
+
+MS-tautia ei voi parantaa. Lääkkeillä voidaan kuitenkin hidastaa tautia ja helpottaa oireita.
+
+## Lasten oikeudet
+
+Lopuksi uutinen lasten oikeuksista.
+
+Tällä viikolla on lasten oikeuksien viikko.
+
+Viikon aikana pohditaan, miten lapsen mielipide voi kuulua paremmin.
+
+Lapset ja nuoret käsittelevät asiaa koulussa ja päiväkodissa.
+
+Torstaina vietetään kansainvälistä lapsen oikeuksien päivää. Perjantaina vanhemmat voivat ottaa lapsen mukaan työpaikalle.
+
+Tällä viikolla on lasten oikeuksien viikko.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Tiistaina tulee vähän lumisateita maan itäosassa ja länsirannikolla.
+
+Muualla on poutaa ja aurinko paistaa.
+
+Päivällä koko maassa on pakkasta. Kylmintä on Lapissa.

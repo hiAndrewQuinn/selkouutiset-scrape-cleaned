@@ -1,0 +1,43 @@
+# TV | Clear News | Friday 28.11.2025
+
+Finlandia Awards. Fur farms. Ice hockey. Weather.
+
+## Finlandia Awards
+
+First, book news.
+
+The winners of the Finlandia Literature Prize were announced yesterday, Thursday.
+
+The Finlandia Prize for Fiction goes to writer **Monika Fagerholm**. The prize goes to Fagerholm's book Eristystila / Kabinoivia naisia. The book tells the story of what it was like to grow up as a writer in the 1970s. The winner was chosen by musician **Maija Vilkkumaa**.
+
+The Finlandia Prize for Children's and Young Adult Literature goes to **Tomi Kontio**. The title of Tomi Kontio's book is A Dog Named Cat Says Goodbye to a Friend.
+
+**Paavo Teittinen** will receive the Finlandia Prize for Non-Fiction. Teittinen's book is about human trafficking in Finland.
+
+The Finlandia Prize is Finland's most important book award.
+
+## Fur farms
+
+The next topic is fur farms.
+
+Uutissuomalainen has asked Finns about their opinions on fur farms. In the survey, 56 percent of people believe that fur farms should be banned.
+
+Approximately 25 percent of Finns do not want to ban fur farms.
+
+Fur farms house minks, foxes and raccoon dogs. Animal activists have long demanded that fur farms be banned. Animal activists say that the animals suffer in cages.
+
+More than 50 percent of Finns believe that fur farms should be banned.
+
+Fur farms are banned in many countries. For example, Sweden decided to ban fur farms this summer.
+
+## Ice hockey
+
+Now some news about ice hockey.
+
+There will be changes to the Finnish Ice Hockey Championship. In 2027, there will be 14 teams playing in the league. There are currently 16 teams in the Finnish Ice Hockey Championship. Helsinki Jokerit will likely play in the Finnish Ice Hockey Championship as early as next year.
+
+## Weather
+
+Still a weather forecast.
+
+Tomorrow, Saturday, the weather will be cloudy. There will be light rain or drizzle in many places. The temperature will rise to above zero throughout the country.

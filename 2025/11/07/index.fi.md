@@ -1,0 +1,79 @@
+# TV | Selkouutiset | perjantai 7.11.2025
+
+Ilmastokokous. Vaalit. Lastensuojelu. Sääennuste.
+
+Teknisen ongelman takia perjantain 7.11. Selkouutisissa ei ole videota eikä Selkouutiset näkynyt TV:ssä. Yle pahoittelee asiaa. Korjaamme ongelmaa. Voit kuitenkin lukea perjantain Selkouutiset tästä.
+
+## YK:n ilmastokokous
+
+Aluksi uutinen ilmastokokouksesta.
+
+Presidentti **Alexander Stubb** on puhunut YK:n ilmastokokouksessa.
+
+Stubb piti Suomen puheenvuoron torstaina illalla.
+
+Stubb sanoi, että maailma on tärkeässä tilanteessa. Stubb varoitti, että 1,5 asteen ilmastotavoite ei ehkä enää toteudu.
+
+Presidentti Alexander Stubb on puhunut YK:n ilmastokokouksessa.
+
+Stubb sanoi, että kaikkien maiden pitää luopua nopeasti fossiilisista polttoaineista.
+
+Hän sanoi, että ilmastotyö tuo myös taloudellisia mahdollisuuksia.
+
+YK:n ilmastokokouksen neuvottelut alkavat ensi viikolla.
+
+## Vaalien pilvipalvelu
+
+Nyt uutinen vaaleista.
+
+Suomen vaalien tietojärjestelmiä siirretään ulkomaille.
+
+Äänestäjärekisteri ja ehdokasrekisterit siirtyvät ulkomaiseen pilvipalveluun.
+
+Myös vaalien tulostiedot siirtyvät sinne.
+
+Järjestelmä sijaitsee Ruotsissa. Sen omistaa amerikkalainen Amazon Web Services.
+
+Uudistus tulee käyttöön seuraavissa eduskuntavaaleissa vuonna 2027.
+
+Suomen vaalien tietojärjestelmiä siirretään ulkomaille.
+
+Syy on raha. Vaalijohtaja **Arto Jääskeläinen** sanoo, että pilvipalvelu säästää rahaa.
+
+Tietoturvatutkija **Harri Hursti** on huolissaan muutoksesta.
+
+Hän sanoo, että tietoja ei ole hyvä tallentaa ulkomaille.
+
+Hursti sanoo, että vaalit ei ole oikea paikka säästää rahaa.
+
+## Lastensuojelu
+
+Lopuksi uutinen lastensuojelusta.
+
+Sijaishuollon tarve kasvaa Suomessa.
+
+Näin kertoo Terveyden ja hyvinvoinnin laitos.
+
+Tutkijat ovat huomanneet, että sijaishuollossa on lapsia enemmän kuin ennen.
+
+Esimerkiksi Keski-Suomessa on 25 lasta vaativan tason lastensuojelulaitoksissa. Viime vuonna niissä oli 10 lasta.
+
+Sijaishuollon tarve kasvaa Suomessa.
+
+Sijaishuollon syitä ovat esimerkiksi lapsen mielenterveysongelmat, päihdeongelmat tai rikokset.
+
+On mahdollista, että yleinen kiire tai esimerkiksi Ukrainan sota lisäävät lasten pahoinvointia.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina melkein koko maassa on pilvistä.
+
+Aurinko paistaa vain Keski- ja Pohjois-Lapissa.
+
+Etelässä ja lännessä voi sataa vähän vettä.
+
+Pohjoisessa on pakkasta.
+
+Etelässä on yhä lämmintä.

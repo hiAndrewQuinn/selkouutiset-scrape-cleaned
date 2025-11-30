@@ -1,0 +1,91 @@
+# Radio | Uutisviikko selkosuomeksi | 30.11.2025
+
+Black Friday -alennusviikko ja ostokset verkossa
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Black Friday -alennusviikko ja ostokset verkossa
+
+Uutisviikon aiheena on Black Friday -alennusviikko ja ostokset verkossa.
+
+Black Friday on suuri alennusviikko, joka on tuonut kauppoihin ja verkkokauppoihin paljon tarjouksia.
+
+Kerromme nyt verkkokaupan uusista toimintamalleista, ja miksi ostoksilla pitää olla tarkkana.
+
+![Tietokoneen näytöllä on Black Friday -mainoksia.](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_178/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1764334939/39-15614516929974b997d2)
+
+Avaa kuvien katselu
+
+Black Fridayn alennusmyynnit lisäävät paljon verkkokauppojen myyntiä.  Kuva: Petri Aaltonen / Yle
+
+## Dropshipping
+
+Verkkokaupoihin on tullut monia uusia tapoja myydä tuotteita.
+
+Yksi näistä on dropshipping. Tässä mallissa tavaran myy verkkokauppa, joka näyttää suomalaiselta, mutta kaupan varasto ja lähetys ovat ulkomailla. Usein ne ovat Kiinassa.
+
+Ostaja luulee, että hän tilaa tuotteen Suomesta, mutta todellisuudessa tavara tulee ulkomailta.
+
+Jos tuote pitää palauttaa, palautus pitää tehdä ulkomaille. Se voi olla hidasta ja kallista.
+
+## Markkinapaikka
+
+Toinen verkkokauppojen uusi toimintatapa on markkinapaikka.
+
+Ison suomalaisen verkkokaupan sivuilla voi olla tuotteita, joita myy joku muu firma.
+
+Esimerkiksi tavaratalon sivulla voi olla tuotteita, jotka myy muu firma kuin tavaratalo.
+
+Asiakas luulee, että hän ostaa tutusta kaupasta, mutta oikeasti tuote tulee eri myyjältä.
+
+Silloin myös asiakaspalvelu ja palautus ovat muussa firmassa kuin tutussa firmassa.
+
+![Työntekijät käsittelevät paketteja Matkahuollon lajittelukeskuksessa.](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_358/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1760169434/39-1398376676437a69ab85)
+
+Avaa kuvien katselu
+
+Black Fridayn jälkeen postilla ja pakettifirmoilla on ruuhkaa, koska ihmiset tilaavat paljon tavaroita verkkokaupoista. Kuva: Markku Rantala / Yle
+
+## Valeverkkokaupat ja pakettihuijaukset
+
+Black Friday -tarjousviikko lisää huijauksia, koska ihmisiä on paljon ostoksilla.
+
+Verkossa on myös valeverkkokauppoja ja huijaussivustoja. Ne houkuttelevat ostajia isoilla alennuksilla, mutta tuotteet voivat olla huonoja tai niitä ei tule ollenkaan.
+
+Myös pakettihuijaukset lisääntyvät.
+
+Pakettihuijauksissa huijari lähettää ihmiselle viestin, että ihmiselle tulee paketti.
+
+Viestin linkki vie huijaussivulle, jossa yritetään saada esimerkiksi pankkitunnukset.
+
+Oikeat kuljetusfirmat eivät pyydä ihmisten pankkitunnuksia.
+
+## Ole tarkka verkko-ostoksilla
+
+Viranomaiset neuvovat, että verkkokaupassa pitää aina tarkistaa, kuka myy tuotteen ja mistä tuote lähetetään.
+
+Erityisesti kannattaa olla tarkka, jos myynnissä on halpoja vaatteita, käsitöitä tai elektroniikkaa.
+
+Monet kaupat mainostavat isoja alennuksia. Alennukset eivät aina ole todellisia.
+
+Tuotteiden hintoja on voitu nostaa ennen Black fridaytä. Siksi nyt voidaan antaa alennusta.
+
+![Kai Keinänen osti Sony Playstation 5-pelikonsolin Tammiston Gigantista Black Friday-päivänä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3216,w_5718,x_0,y_326/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1764326597/39-156130069297c3d7e995)
+
+Avaa kuvien katselu
+
+Pelikonsolit ovat suosittuja tuotteita alennusmyyntiviikoilla. Kuva: Tommi Pesonen / Yle
+
+## Kertaus
+
+Uutisviikon aiheena oli Black Friday ja ostokset verkossa.
+
+Verkkokaupoilla on uusia toimintamalleja, jotka tekevät vaikeaksi huomata, keneltä asiakas ostaa tuotteen.
+
+Alennusviikkojen aikana myös esimerkiksi pakettihuijaukset lisääntyvät.
+
+Tuotteiden hintoja on voitu nostaa ennen alennuskampanjaa ja siksi alennukset näyttävät isoilta.
+
+Tämä oli uutisviikko selkosuomeksi, tavataan taas. Kuulemiin!

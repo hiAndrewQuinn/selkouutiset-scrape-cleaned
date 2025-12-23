@@ -1,0 +1,65 @@
+# TV | Selkouutiset | tiistai 23.12.2025
+
+Työttömyys. Britannian suurlähettiläs ja suomen kieli. Keskiviikon sää. Selkouutisten joulutauko.
+
+## Työttömyys
+
+Aluksi uutinen työttömien määrästä.
+
+Työttömyys kasvaa edelleen.
+
+Tilastokeskus kertoo, että työttömiä oli marraskuussa 50 000 enemmän kuin vuosi sitten.
+
+Yhteensä työttömiä oli lähes 280 000.
+
+Työttömyysaste oli 10,6 prosenttia.
+
+Työttömyys kasvaa edelleen.
+
+## Britannian suurlähettiläs ja suomen kieli
+
+Nyt tapaamme Ison-Britannian Suomen suurlähettilään.
+
+Suurlähettiläs **Laura Davies** on asunut Helsingissä vasta vähän yli vuoden, mutta hän puhuu jo hyvää suomea.
+
+– En mä puhu todella hyvin suomea. Kyllä mä yritän, mutta se ei toimi aina tai edes yleensä.
+
+Suomi ei ole ainoa erikoinen kieli, jota suurlähettiläs on opiskellut.
+
+– Mun äidinkieli on englanti, mutta mä puhun myös ranskaa, koska opiskelin lapsena ranskalaisessa koulussa. Kun asuin Etiopiassa, opiskelin vähän amharinjaa ja myös sinhalaa, kun työskentelin Sri Lankassa.
+
+Suurlähettiläs Laura Davies sanoo, että suomi on kuitenkin vaikein kieli, jota hän on opiskellut.
+
+– Koska se on erilaista, se on myös vaikeampaa. Mun täytyy ajatella monta erilaista asiaa samaan aikaan.
+
+– Esimerkiksi tauko, mutta tauon, tai kerros, mutta kerroksessa. Tai Turku, Turussa, mutta Rovaniemi, Rovaniemellä. Miksi? Mun pasmat menee sekaisin!
+
+Entä mikä sana tai sanat ovat vaikeita?
+
+– Yleensä mä sanon, että se yöttömiä öitä on vaikein, mutta se ei ole totta. Se kaikkein haastavin mulle on aika nolottavaa, koska se on Yhdistynyt kuningaskunta. Todella noloa, koska se on mun oman maani nimi ja olen täällä suurlähettiläänä.
+
+Onko Teillä joku lempisana suomen kielessä?
+
+– Joo, se lämpimämpi on maailman söpöin aina. Mutta myös söpö pupu ja pilvipalvelu. Todella, todella söpö: pilvipalvelu. Ja monissa muissa maissa.
+
+Tässä vielä suurlähettilään vinkit muille suomen kielen opiskelijoille:
+
+– Suomen kielioppi on rikasta eli monimutkaista, mä suosittelen kielituntia. Ja toinen on kuunnella podcasteja helpolla suomen kielellä ja lukea selkokirjoja, se toimii todella hyvin.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Jouluaattona sää on enimmäkseen selkeää Etelä- ja Keski-Suomessa.
+
+Osassa Lappia sataa vettä, räntää tai lunta.
+
+Lämpötila on +1 ja -10 asteen välillä.
+
+## Selkouutisten joulutauko
+
+Selkouutiset jää nyt joulutauolle.
+
+Seuraavan kerran selkouutiset tulevat 7. tammikuuta.
+
+Mukavaa joulunaikaa ja näkemiin.

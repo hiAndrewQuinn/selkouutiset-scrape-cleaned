@@ -1,0 +1,53 @@
+# Selkouutiset | perjantai 23.1.2026
+
+Ukrainan rauha. Pienet lukiot. Digisuositukset. Sää
+
+## USA, Venäjä ja Ukraina neuvottelevat rauhasta
+
+Ensin uutinen Ukrainan rauhanneuvotteluista.
+
+Ukraina, Venäjä ja USA neuvottelevat ensimmäistä kertaa yhdessä sodan lopettamisesta.
+
+Maiden edustajat tapaavat Arabiemiraateissa.
+
+Ukrainan presidentti Volodymyr Zelenskyi tapasi eilen USA:n presidentin Donald Trumpin.
+
+Tapaamisen jälkeen Zelenskyi sanoi, että Ukrainan turvatakuista on neuvoteltu sopimus. Sopimus pitää vain allekirjoittaa.
+
+Zelenskyin mukaan Ukrainan alueista on yhä kiistaa.
+
+Ukraina, Venäjä ja USA neuvottelevat sodan lopettamisesta Arabiemiraateissa.
+
+## Pienissä lukioissa ilmaisia etuja
+
+Sitten uutinen pienistä lukioista.
+
+Pienten kuntien lukioissa on pulaa oppilaista. Lukiot houkuttelevat oppilaita ilmaisilla eduilla.
+
+Esimerkiksi Puolangan, Sysmän ja Heinäveden pienissä lukioissa oppilas voi saada ilmaisen ajokortin.
+
+Einokalle Laitinen meni Heinäveden lukioon hyvien etujen takia:
+
+*–* En varmaan lukioon olisi lähtenyt, jos ei tämmösiä olisi ollut. Opiskelu, kun kiinnostaa, ja sitten tulee tuommoset tarjoukset kylkeen, niin kuka jättäisi tuommoisen tarjouksen käyttämättä.
+
+Pienten kuntien lukioissa on pulaa oppilaista, ja siksi lukiot houkuttelevat oppilaita ilmaisilla eduilla.
+
+## Lasten älypuhelimet halutaan kieltää
+
+Seuraavaksi uutinen lasten puhelinten käytöstä.
+
+Suomen terveysviranomaiset haluavat kieltää älypuhelimet lapsilta.
+
+Terveyden ja hyvinvoinnin laitos suosittelee, että alle 13-vuotiaat eivät käytä älypuhelimia tai sosiaalista mediaa.
+
+Nuorisolääketieteen dosentti Silja Kosola sanoo, että Suomessa älypuhelimet annetaan liian pienille lapsille.
+
+Kosola kannattaa pääministeri Petteri Orpon ehdotusta, että some kielletään kokonaan alle 15-vuotiailta.
+
+## Sää on pilvistä
+
+Vielä sääennuste.
+
+Lauantaina sää on pilvistä. Lumisateita tulee vähän.
+
+Lämpötila on -8...-16 astetta. Tuuli on heikkoa.

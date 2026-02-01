@@ -1,0 +1,89 @@
+# Radio | Uutisviikko selkosuomeksi | sunnuntai 1.2.2026
+
+Ukraina. Minneapolis. Työttömyys. Toimeentulotuki. Sähkön hinta ja tuulivoima
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Ukraina
+
+![Ihmiset lämmittävät käsiään ulkonuotion äärellä.](https://images.cdn.yle.fi/image/upload/c_crop,h_2811,w_4999,x_0,y_485/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1769949800/39-1590086697f496bd39da)
+
+Avaa kuvien katselu
+
+Kiovan asukkaat lämmittelevät avotulen luona, sillä sähköt ja lämmitys ovat poikki Venäjän pommitusten takia. Kuva: Maxym Marusenko / Reuters
+
+Ensin uutinen Ukrainasta.
+
+Neuvottelut Ukrainan rauhasta jatkuvat keskiviikkona Abu Dhabissa. Ukrainan presidentti Volodymyr Zelenskyi kertoo, että neuvotteluihin osallistuvat Ukrainan, Venäjän ja USA:n edustajat.
+
+Venäjä on viikonlopun aikana jatkanut iskuja Ukrainaan. Tänään Venäjä on iskenyt esimerkiksi Zaporižžjan kaupunkiin ja Dniproon
+
+Venäjän hyökkäys Ukrainassa on jatkunut pian 4 vuotta.
+
+## Minneapolis
+
+![Ihmiset osoittivat Minneapolisissa mieltään maahanmuuttovirastoa vastaan.](https://images.cdn.yle.fi/image/upload/c_crop,h_3093,w_5500,x_0,y_197/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1769823347/39-1589782697d5c1b1c9b4)
+
+Avaa kuvien katselu
+
+Mielenosoittajat vaativat, että maahanmuuttovirasto ICE lopettaa ratsiat Minneapolisissa. Kuva: Stephen Maturen / AFP
+
+Sitten uutinen USA:sta.
+
+Minneapolisin kaupungissa mielenosoitukset USA:n maahanmuuttoviranomaisia vastaan ovat jatkuneet. Mieltä on osoitettu myös monissa muissa kaupungeissa.
+
+Mielenosoittajat vaativat, että maahanmuutto- ja tullivirasto ICE lopettaa ratsiat Minneapolisissa ja maahanmuuttopoliisit lähtevät pois kaupungista.
+
+Maahanmuuttopoliisit ovat etsineet ja karkottaneet maahanmuuttajia, jotka ovat USA:ssa ilman lupaa. Tammikuussa he ampuivat kuoliaaksi 2 ihmistä.
+
+## Työttömyys
+
+![Työllisyyspalvelujen ovi talvisessa Helsingissä.](https://images.cdn.yle.fi/image/upload/c_crop,h_4200,w_7483,x_0,y_156/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1769437636/39-15755956953c5b0e1a9f)
+
+Avaa kuvien katselu
+
+Suomessa on paljon työttömiä. Kuva: Henrietta Hassinen / Yle
+
+Nyt kotimaan uutinen työttömien määrästä.
+
+Suomessa työttömien ihmisten määrä kasvaa yhä. Joulukuussa työttömiä oli yli 50 000 enemmän kuin vuotta aiemmin, kertoo Tilastokeskus.
+
+Nopeimmin kasvaa alle 25-vuotiaiden nuorten työttömyys.
+
+EU:n tilastoviranomainen Eurostat kertoo, että Suomen työttömyysaste oli joulukuussa 10,3 prosenttia. Se on eniten koko EU:ssa.
+
+## Toimeentulotuki
+
+![kahdenkymmenen euron seteleitä](https://images.cdn.yle.fi/image/upload/c_crop,h_898,w_1596,x_324,y_432/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1594609795/39-4582315a62391324a83)
+
+Avaa kuvien katselu
+
+Toimeentulotukea on jatkossa entistä vaikeampi saada. Kuva: Henrietta Hassinen / Yle
+
+Sitten aiheena on toimeentulotuki.
+
+Toimeentulotuen ehdot kiristyvät. Muutokset tulevat voimaan helmikuun ja maaliskuun alussa.
+
+Jatkossa toimeentulotuki voidaan puolittaa, jos ihminen ei hae ensin muita tukia, kuten esimerkiksi opintotukea tai työttömyystukea. Ihmisen pitää myös osoittaa entistä tarkemmin, että hän tarvitsee tukea.
+
+Viime vuonna toimeentulotukea maksettiin yli miljardi euroa.
+
+Ihmiset ovat joutuneet hakemaan toimeentulotukea enemmän kuin ennen, koska muita tukia on leikattu.
+
+## Sähkön hinta ja tuulivoima
+
+![Tuulimyllyt talvisessa maisemassa.](https://images.cdn.yle.fi/image/upload/c_crop,h_2892,w_5143,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1769801341/39-1588713697b4d2c894e6)
+
+Avaa kuvien katselu
+
+Tuulivoimaloissa on ollut jäätymisongelmia. Kuva: Pasi Takkunen / Yle
+
+Lopuksi kerromme sähkön hinnasta ja tuulivoimasta.
+
+Pörssisähkö on ollut kallista tällä viikolla. Hintaa ovat nostaneet kylmä sää ja se, että tuulivoimaa on saatu vain vähän.
+
+Tuulivoiman määrä on jäänyt pieneksi, koska tuuli on ollut heikkoa. Lisäksi tuulivoimaloissa on ollut jäätymisongelmia, eli voimalan siipiin kertyy jäätä.
+
+Tässä oli Uutisviikko selkosuomeksi. Tavataan taas ensi viikolla.

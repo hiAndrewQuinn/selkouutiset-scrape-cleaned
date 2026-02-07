@@ -1,0 +1,65 @@
+# Viikon uutinen selkosuomeksi | lauantai 7.2.2026
+
+Talviolympialaiset Italiassa.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Talviolympialaiset alkoivat tällä viikolla Italiassa. Kisat järjestetään Milanossa ja Cortina d’Ampezzossa sekä muilla paikkakunnilla. Suomen tavoite olympialaisissa on 6 mitalia.
+
+Kerromme nyt lisää talviolympialaisista.
+
+## Milano-Cortinan talviolympialaiset
+
+![Torinon talviolympialaisten 2006 mitaliaukio. ](https://images.cdn.yle.fi/image/upload/c_crop,h_1576,w_2802,x_0,y_434/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1770374945/39-15932836985c6ebc9195)
+
+Avaa kuvien katselu
+
+Kuva: BARTLOMIEJ ZBORWOSKI / EPA
+
+Talviolympialaiset ovat alkaneet Italiassa. Olympialaiset kestävät yli 2 viikkoa. Talviolympialaisissa on yhteensä 116 kilpailua. Eri urheilulajeja on 16. Talviolympialaisissa kilpaillaan esimerkiksi jääkiekossa, hiihdossa, luistelussa ja kelkkailussa.
+
+Kisoissa on mukana 92 maata.
+
+## Suomen joukkue
+
+![Suomen joukkue Milano-Cortinan talviolympialaisten avajaisissa.](https://images.cdn.yle.fi/image/upload/c_crop,h_3456,w_6144,x_0,y_230/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1770410037/39-15938816986500110fea)
+
+Avaa kuvien katselu
+
+Kuva: Lehtikuva
+
+Talviolympialaisissa kilpailee yhteensä yli 100 suomalaista urheilijaa, joista lähes 50 pelaa jääkiekkoa.
+
+Suomen tavoite kisoissa on 6 mitalia. Monella suomalaisella urheilijalla on mahdollisuus saada mitali, eli sijoittua 3. parhaan joukkoon.
+
+Suvi Minkkinen tavoittelee hyviä sijoituksia ampumahiihdossa. Minkkinen on menestynyt hyvin monessa tämän talven kilpailussa. Olympialaisissa Minkkisen 1. kilpailu on keskiviikkona.
+
+Hiihdossa esimerkiksi Iivo Niskasella on mahdollisuuksia mitaliin. Niskanen on voittanut aikaisemmin 3 olympiakultaa.
+
+Anni Kärävä tavoittelee mitalia freestyle-mäenlaskussa, Ilkka Herola yhdistetyssä ja Eduard Hallberg on noussut maailman huipulle pujottelussa.
+
+Jääkiekossa sekä Suomen miehet että naiset tavoittelevat mitalia.
+
+## Jääkiekossa parhaat pelaajat mukana
+
+![Mikko Rantanen katsoo tuimasti eteenpäin.](https://images.cdn.yle.fi/image/upload/c_crop,h_2289,w_4071,x_0,y_104/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1769604510/39-1588156697a0589c148b)
+
+Avaa kuvien katselu
+
+Kuva: Icon Sportswire / Getty Images
+
+Olympialaisten miesten jääkiekossa pelaavat pitkästä aikaa myös NHL-pelaajat. Edellisen kerran Pohjois-Amerikan NHL-sarjan pelaajat olivat mukana olympialaisissa 12 vuotta sitten.
+
+Suomen joukkueessa pelaavat esimerkiksi NHL-tähdet Sebastian Aho, Mikko Rantanen ja Miro Heiskanen. Suomen 1. peli on ensi keskiviikkona Slovakiaa vastaan. Suomi pelaa alkulohkossa myös Ruotsia ja Italiaa vastaan.
+
+Suomi voitti 4. vuotta sitten jääkiekossa olympiakultaa. Silloin NHL-pelaajat eivät siis olleet mukana olympialaisissa.
+
+## Kertaus
+
+Viikon uutinen selkosuomeksi kertoi talviolympialaisista, jotka alkoivat tällä viikolla Italiassa.
+
+Olympialaiset kestävät yli 2 viikkoa ja kilpailuja on 16 lajissa. Suomen joukkueessa on yli 100 urheilijaa. Suomen tavoite on 6 mitalia.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

@@ -1,0 +1,101 @@
+# Uutisviikko selkosuomeksi | sunnuntai 22.2.2026
+
+Rauhanneuvosto. Rydmanista sosiaali- ja terveysministeri. Vanhuskuolemat. Asuntorakentaminen. Al-Holin leiri. Olympialaiset.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Trumpin rauhanneuvosto
+
+![Presidentti Donald Trump hymyilee leveästi maailman talousfoorumissa Sveitsin Davosissa 22. tammikuuta 2026 sen jälkeen, kun hän on allekirjoittanut niin sanotun rauhanneuvoston puolesta.](https://images.cdn.yle.fi/image/upload/c_crop,h_2374,w_4227,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1769189666/39-15863566973b0252758d)
+
+Avaa kuvien katselu
+
+Donald Trump esitteli Sveitsin Davosissa allekirjoitusta rauhanneuvostoon. Kuva: Harun Ozalp / AOP
+
+USA:n presidentin rauhanneuvosto on kokoontunut ensimmäistä kertaa tällä viikolla. Donad Trump on perustanut neuvoston, jonka piti koskea vain palestiinalaisalue Gazaa.
+
+Trump kertoi kokouksessa, että USA antaa Gazan jälleenrakentamiseen 10 miljardia dollaria.
+
+Ainakin 27 maata on hyväksynyt kutsun Trumpin neuvostoon. Euroopasta mukana ovat vain Bulgaria, Unkari, Albania ja Kosovo.
+
+Trump on neuvoston elinikäinen puheenjohtaja.
+
+Hän on esittänyt, että neuvosto voi korvata Yhdistyneitä kansakuntia eli YK:ta muissakin maailman konflikteissa.
+
+## Wille Rydman on uusi sosiaali- ja terveysministeri
+
+![Sosiaali- ja terveysministeriksi nimitetty Wille Rydman.](https://images.cdn.yle.fi/image/upload/c_crop,h_2214,w_3936,x_0,y_207/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1771587417/39-1600776699837a230d6e)
+
+Avaa kuvien katselu
+
+Wille Rydman on nimitetty uudeksi sosiaali- ja terveysministeriksi. Kuva: Petteri Bülow / Yle
+
+Perussuomalaisten kansanedustaja Wille Rydman on uusi sosiaali- ja terveysministeri.
+
+Rydman tuli Kaisa Juuson tilalle. Juuso halusi jättää ministerin työn.
+
+Wille Rydman sanoo, että sosiaali- ja terveysalan säästöistä pidetään kiinni.
+
+## Vanhusten kuolemat hoivakodeissa
+
+![Vanhuksen käsi puristaa käsinojaa. Rollaattori on vieressä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_424/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1740141480/39-142562567b87309a6fad)
+
+Avaa kuvien katselu
+
+Poliisi tutkii viittä vanhusten kuolemaa hoitokodeissa. Kuva: Mikko Koski / Yle
+
+Vanhustenhoidossa on tänä talvena kuollut 5 ihmistä.
+
+Hoitajat sanovat, että kuolemat eivät olleet yllätys.
+
+Yli 50 vanhustenhoidon hoitajaa kertoi Ylelle kokemuksista. Hoitajat sanoivat, että vaaratilanteet ovat lisääntyneet. Suurin osa niistä ei silti tule tietoon.
+
+Ammattiliitto Super saa lähes joka päivä ilmoituksia vaaratilanteista. Hoitajat sanovat, että syy on hoitajamitoituksen laskeminen.
+
+Laki määrää, kuinka monta hoitajaa hoivakodissa pitää olla.
+
+## Suomessa rakennetaan nyt liikaa asuntoja
+
+![Vantaan Kivistöön on rakenteilla uusi ostoskeskus.](https://images.cdn.yle.fi/image/upload/c_crop,h_3162,w_5634,x_0,y_588/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1743062063/39-144200167e5015809216)
+
+Avaa kuvien katselu
+
+Asuntopulaa ei ole näkyvissä. Monet uudet asunnot ovat pitkään tyhjiä. Kuva: Ronnie Holmberg / Yle
+
+Asuntoja rakennetaan tänä vuonna ennätysvähän. Asiantuntijat sanovat Ylelle, että asuntoja rakennetaan silti liikaa.
+
+Suurissa kaupungeissa asuntoja on jo enemmän kuin tarvitaan. Vaikka väestö kasvaa, taloustilanne on huono ja ihmiset asuvat aiempaa tiiviimmin.
+
+Monessa uudessa talossa on paljon tyhjiä asuntoja.
+
+## Al-Holin leiri on suljettu
+
+![Ihmisiä pakolaisleirillä.](https://images.cdn.yle.fi/image/upload/c_crop,h_1684,w_2994,x_0,y_119/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1763380413/39-1554961691b042364f34)
+
+Avaa kuvien katselu
+
+Suomi on aiemmin kotiuttanut 36 suomalaista Al-Holin leiristä.  Kuva: Ahmed Mardnli / EPA
+
+Al-Holin leiri Syyriassa on suljettu.
+
+Leirissä oli vielä alkuvuonna noin 10 suomalaista, joista suurin osa lapsia.
+
+Ulkoministeriön konsulipäällikkö Jussi Tanner sanoo, ettei hän voi kertoa suomalaisten tilanteesta tarkasti.
+
+Leirissä on ollut terroristijärjestö Isisin taistelijoiden vaimoja ja lapsia.
+
+## Talviolympialaisten päätöspäivä
+
+![Suomen hiihtäjien ja yhdistetyn urheilijoiden hotelli Val di Fiemmessä, Italian talviolympialaissa 2026. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_237/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1770032801/39-159040369808e622ce5c)
+
+Avaa kuvien katselu
+
+Suomalaisten mitalitavoite talviolympialaisissa toteutui. Kuva: Jelena Leppänen / Yle 
+
+Tänään sunnuntaina on ollut Milano-Cortinan talviolympialaisten päätöspäivä.
+
+Suomi sai olympialaisista yhteensä 6 mitalia. Se oli myös Suomen olympiakomitean tavoite.
+
+Tässä oli Uutisviikko selkosuomeksi. Tavataan taas ensi viikolla!

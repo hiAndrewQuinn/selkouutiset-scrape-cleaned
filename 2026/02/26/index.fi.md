@@ -1,0 +1,75 @@
+# Selkouutiset | torstai 26.2.2026
+
+Kotouttaminen. Vastaamo. Päiväreivit. Sääennuste.
+
+## Maahanmuuttajien kielenopetus
+
+Aluksi uutinen maahanmuuttajien kielenopetuksesta.
+
+Maahanmuuttajien kielenopetukseen tulee ehkä isot leikkaukset.
+
+Hallitus aikoo leikata 46 miljoonaa euroa kotouttamisrahasta.
+
+Leikkaus vähentää erityisesti suomen kielen opetusta.
+
+Jatkossa maahanmuuttajien kielikoulutus on osa kuntien työvoimakoulutusta.
+
+Esimerkiksi kansalaisopistot eivät enää saa valtion rahaa maahanmuuttajien kielikoulutukseen.
+
+Viime vuonna opistoissa opiskeli melkein 60 000 maahanmuuttajaa.
+
+Maahanmuuttajien kielenopetukseen tulee ehkä isot leikkaukset.
+
+Asiantuntijat sanovat, että leikkaukset vaikeuttavat maahanmuuttajien työllistymistä. Siksi myös työttömyys voi lisääntyä.
+
+Myös monilta opistojen opettajilta voi loppua työ.
+
+## Aleksanteri Kivimäen rangaistus
+
+Nyt uutinen Vastaamo-tietomurrosta.
+
+Helsingin hovioikeus on koventanut **Aleksanteri Kivimäen** rangaistusta.
+
+Kivimäki on tuomittu Psykoterapiakeskus Vastaamon tietomurrosta.
+
+Kivimäen tuomio on nyt 6 vuotta ja 11 kuukautta vankeutta.
+
+Tuomio piteni 8 kuukaudella käräjäoikeuden tuomiosta.
+
+Hovioikeus sanoo, että Kivimäki teki ison rikossarjan. Se koski haavoittuvia ihmisiä.
+
+Kivimäki julkaisi yli 30 000 potilaan tiedot internetissä ja vaati heiltä rahaa.
+
+Helsingin hovioikeus on koventanut Aleksanteri Kivimäen rangaistusta.
+
+Tuomion syitä ovat esimerkiksi törkeä tietomurto ja kiristys.
+
+## Päiväreivit
+
+Lopuksi kulttuuriuutinen.
+
+Helsingin Tekniikan museossa järjestetään nyt päiväreivejä.
+
+Ne ovat tapahtumia, joissa soi elektroninen tanssimusiikki.
+
+Tapahtumasarjan nimi on Lördagis. Esiintyjinä ovat esimerkiksi Jori Hulkkonen ja Rinneradio.
+
+Helsingin Tekniikan museossa järjestetään nyt päiväreivejä.
+
+Niissä musiikkia voi kuunnella iltapäivällä, eikä tarvitse juhlia yöllä.
+
+Museo saa uusia kävijöitä ja uudenlaista käyttöä.
+
+Musiikki myös kuulostaa museossa hieman erilaiselta kuin baarissa.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina Suomeen tulee lämmintä ilmaa lounaasta.
+
+Päivällä idässä ja pohjoisessa sataa vielä lunta.
+
+Etelässä ja lännessä sataa monin paikoin tihkua.
+
+Lämpötila nousee etelässä nollan yläpuolelle, pohjoisessa on pakkasta.

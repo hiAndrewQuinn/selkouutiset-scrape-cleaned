@@ -1,0 +1,69 @@
+# Selkouutiset | torstai 5.3.2026
+
+Sote. Puoluekannatus. Jääsauna. Sääennuste.
+
+## Sote-palvelut
+
+Aluksi uutinen politiikasta.
+
+Eduskunta keskusteli eilen sosiaali- ja terveyspalveluista eli sote-palveluista.
+
+Sote-palveluissa tehtiin iso muutos 3 vuotta sitten. Silloin ne siirrettiin kunnilta hyvinvointialueille.
+
+Pääministeri **Petteri Orpo** sanoo, että hallitus on vahvistanut sote-palveluita ja lisännyt soten rahoitusta 4 miljardia euroa.
+
+Oppositiopuolueet ihmettelivät Orpon puhetta.
+
+Vasemmistoliiton eduskuntaryhmän puheenjohtaja **Aino-Kaisa Pekonen** sanoi, että hallitus on vain leikannut rahoitusta.
+
+*”Pääministeri, se mitä te olette saaneet aikaan on massiiviset leikkaukset sosiaali- ja terveyspalveluiden rahoitukseen, jonka te unohditte mainita puheenvuorossanne. ”*
+
+Eduskunta on keskustellut sote-palveluista.
+
+Pääministeri Petteri Orpo kutsuu kaikki puolueet työryhmään, joka kehittää sote-palveluita.
+
+## Puoluekannatus
+
+Nyt toinen uutinen politiikasta.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Suosituin puolue on edelleen SDP. SDP:tä kannattaa 25 prosenttia suomalaisista.
+
+SDP on oppositiopuolue eli se ei ole hallituksessa.
+
+Toiseksi suosituin puolue on edelleen Kokoomus. Kokoomusta kannattaa noin 18 prosenttia suomalaisista. Kokoomuksen kannatus on laskenut helmikuusta.
+
+Kokoomus on hallituksessa ja myös pääministeri Petteri Orpo on kokoomuksesta.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Kolmanneksi suosituin puolue on hallituspuolue perussuomalaiset.
+
+Ja neljänneksi suosituin puolue on oppositiopuolue Keskusta.
+
+## Jääsaunat
+
+Lopuksi tutustumme jääsaunaan.
+
+Pohjois-Pohjanmaalle on rakennettu kaksi suurta jääsaunaa.
+
+Toinen jääsauna on Oulussa ja toinen on Oulaisissa.
+
+Saunojen seinät on rakennettu suurista jäätiilistä.
+
+Molemmissa saunoissa on hyvät löylyt.
+
+Oululainen **Samuli Keisu** kertoo, että heidän saunaan mahtuu jopa 40 ihmistä.
+
+Pohjois-Pohjanmaalle on rakennettu kaksi suurta jääsaunaa. Molemmat saunat valmistuivat viime viikolla.
+
+Jääsaunat ovat harvinaisia. Kun tulee kesä, jääsauna sulaa pois.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina Lapissa tulee lumisateita ja vesisateita.
+
+Etelässä on poutaa ja yleisesti myös aurinkoista.

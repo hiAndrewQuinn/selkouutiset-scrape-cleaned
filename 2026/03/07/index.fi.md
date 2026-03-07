@@ -1,0 +1,85 @@
+# Viikon uutinen selkosuomeksi | lauantai 7.3.2026
+
+Asuntolainojen takaisinmaksuajan pidentyminen
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Viikon aihe
+
+Tämän viikon aihe on asuntolainojen takaisinmaksuajan pidentyminen.
+
+Suomessa voi saada pidempiä asuntolainoja kuin ennen.
+
+Huhtikuussa tulee voimaan laki, joka sallii jopa 35 vuoden asuntolainat.
+
+Aiemmin lainan maksuaika on ollut yleensä korkeintaan 25 tai 30 vuotta.
+
+Kerromme nyt, mitä muutos tarkoittaa ja millaisia vaikutuksia sillä voi olla.
+
+![Henkilö katsoo esitettä jossa asuntojen pohjapiirroksia.](https://images.cdn.yle.fi/image/upload/c_crop,h_3256,w_5801,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1772440541/39-160511369a5421b5a25c)
+
+Avaa kuvien katselu
+
+Pieni kuukausierä voi helpottaa asunnon ostamista. Kuva: Henrietta Hassinen / Yle
+
+## Korkokulut
+
+Lainanmaksun kuukausierä pienenee, kun laina-aika pitenee.
+
+Se helpottaa lainan lyhentämistä, jos tulot ovat pienet.
+
+Siksi aiempaa useammilla suomalaisilla on ehkä mahdollisuus ostaa oma koti.
+
+Pitkä laina-aika nostaa kuitenkin lainan korkokuluja.
+
+Tavallinen asuntolainan määrä on Suomessa 125 000 euroa.
+
+Jos laina-aika on 35 vuotta, lainasta pitää maksaa korkoja noin 77 000 euroa. Se on 12 000 euroa enemmän kuin 30 vuoden lainassa.
+
+Suomalaiset eivät ole ottaneet paljon pitkiä lainoja.
+
+Yli 25 vuoden asuntolainan on ottanut noin 30 prosenttia suomalaisista.
+
+Kaikilla suomalaisilla on asuntolainoja yhteensä noin 100 miljardia euroa.
+
+## Omat säästöt
+
+Hallitus suunnittelee myös toista keinoa helpottaa asunnon ostoa.
+
+Tarkoitus on, että asunnon ostaminen on helpompaa myös niille, joilla ei ole säästössä paljon rahaa.
+
+Jatkossa asunnon voi ehkä ostaa pienemmillä säästöillä kuin ennen.
+
+Hallitus ehdottaa, että omaa rahaa tarvitaan vain 5 prosenttia asunnon hinnasta ja lopun voi lainata pankista.
+
+## Riskit
+
+Asiantuntijat sanovat, että pidempi laina-aika voi auttaa perheitä ja pienitulosia ostamaan oman kodin.
+
+Asiantuntijat kuitenkin varoittavat riskeistä.
+
+Pitkät lainat voivat lisätä velkaantumista ja talousongelmia, jos ihmiset ottavat liian suuria lainoja.
+
+Pitkä laina voi kasvattaa perheen velkaa.
+
+Iso velka voi olla ongelma, jos elämäntilanne muuttuu esimerkiksi työttömyyden takia.
+
+Suomen Pankki ja pankkivalvoja Finanssivalvonta sanovat, että ihmisten pitää ymmärtää, että laina tulee kalliimmaksi, jos maksuaika on tosi pitkä.
+
+![Suomen pankki- teksti seinässä. ](https://images.cdn.yle.fi/image/upload/c_crop,h_1391,w_2472,x_0,y_35/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1587998257/39-6686755ea6edfbbc689)
+
+Avaa kuvien katselu
+
+Suomen pankki ja Finanssivalvonta varoittavat pitkien lainojen riskeistä. Kuva: Matti Myller / Yle 
+
+## Kertaus
+
+Viikon uutinen selkosuomeksi kertoi asuntolainojen pidentymisestä Suomessa.
+
+Uusi laki mahdollistaa jopa 35 vuoden asuntolainat. Pitkä laina-aika tuo ihmisille uusia mahdollisuuksia ostaa koti, mutta se myös lisää talousriskejä.
+
+Asiantuntijat sanovat, että ihmisten pitää laskea tarkkaan, millainen laina sopii omaan talouteen.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

@@ -1,0 +1,73 @@
+# Selkouutiset | torstai 12.3.2026
+
+Ydinaseet. Nuorten tyytyväisyys. Jäät. Sääennuste.
+
+## Ydinaselaki
+
+Aluksi uutinen politiikasta.
+
+Hallituksella ja oppositiolla on riitaa ydinaselaista.
+
+Hallitus kertoi viime viikolla, että Suomi antaa luvan tuoda Suomeen ydinaseen, jos sitä tarvitaan puolustamiseen.
+
+Oppositio suuttui, koska hallitus ei kertonut oppositiolle lain valmistelusta.
+
+Hallituksella ja oppositiolla on riitaa ydinaselaista.
+
+Keskusta ehdottaa, että kaikki puolueet sopivat yhdessä, että ydinaseita ei tuoda Suomeen rauhan aikana.
+
+Hallitus sanoo, että näin on tarkoitus toimia. Puolustusministeri **Antti Häkkänen** sanoo, että puolueet voivat tehdä yhteisen sopimuksen.
+
+SDP:lle puolueiden sopimus ei riitä. SDP haluaa, että rajoitukset ydinaseista ovat laissa.
+
+## Nuorten tyytyväisyys
+
+Nyt uutinen nuorten tyytyväisyydestä omaan elämään.
+
+Nuorten tyytyväisyys omaan elämään on matalammalla kuin koskaan aiemmin. Näin kertoo nuorisobarometri-tutkimus.
+
+Helsinkiläinen **Samuel Klemetti** on 23-vuotias opiskelija.
+
+Hän on melko tyytyväinen omaan elämään. Klemetti antaa omalle elämälle arvosanan 8.
+
+Suuri osa nuorista antaa omalle elämälle arvosanan 7 tai vähemmän.
+
+Vain 30 prosenttia nuorista antaa arvosanan 9 tai 10 omalle tyytyväisyydelle.
+
+Nuorten tyytyväisyys omaan elämään on matalammalla kuin koskaan aiemmin.
+
+Myös nuorten usko tulevaisuuteen on laskenut matalalle.
+
+## Ulkoilujäät
+
+Lopuksi uutinen ulkoilujäistä.
+
+Jäät heikentyvät nyt nopeasti.
+
+Kevätaurinko heikentää jäätä nopeasti.
+
+Järvien ja jokien jää voi olla paksu, mutta jään rakenne on silti heikko.
+
+Jäästä ei enää tiedä, onko se turvallinen, vaikka jää on paksua.
+
+Jää on heikkoa varsinkin etelässä ja paikoin myös pohjoisessa.
+
+Jäät heikentyvät nyt nopeasti.
+
+Pelastuspäällikkö **Ville-Petteri Pulkkinen** sanoo, että jään vahvuus muuttuu nopeasti.
+
+Jää voi kestää aamulla, mutta iltapäivällä se voi olla heikko.
+
+Jäällä pitää olla varovainen.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina sää on tuulinen.
+
+Etelässä paistaa aurinko.
+
+Pohjoisessa sataa välillä ja on pilvistä.
+
+Lämpötila on 0 ja +10 asteen välillä.

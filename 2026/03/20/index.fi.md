@@ -1,0 +1,59 @@
+# Selkouutiset | perjantai 20.3.2026
+
+Kuntien työttömyys. EU-huippukokous. Kevätpäiväntasaus. Sää
+
+## Kunnille paljon sakkoja työttömistä
+
+Ensin uutinen kunnista, joissa on paljon työttömyyttä.
+
+Moni kunta on vaikeuksissa työttömyyden takia.
+
+Hallitus päätti viime vuonna, että kunta joutuu maksamaan sakkoa, jos kunnassa on paljon työttömiä.
+
+Hallitus haluaa, että kunta järjestää ihmisille töitä.
+
+Humppilan kunnanjohtaja Minna Ylikännö sanoo, että sakko on epäreilu. Ylikännön mukaan kuntien on vaikeaa järjestää ihmisille töitä, koska taloustilanne on huono. Se ei ole kuntien vika, sanoo Ylikännö.
+
+Moni kunta on vaikeuksissa työttömyyden takia.
+
+Esimerkiksi pieni Humppilan kunta joutuu maksamaan sakkoja yli 300 000 euroa, koska työttömiä on kunnassa paljon. Kunta joutuu tekemään paljon säästöjä, jotta se voi maksaa sakot.
+
+## Unkari tyrmäsi Ukrainan lainapaketin
+
+Sitten uutinen EU:n huippukokouksesta.
+
+EU:n tärkeä huippukokous Brysselissä päättyi eilen.
+
+Kokoukseen osallistui Suomen pääministeri Petteri Orpo.
+
+Orpo pettyi siihen, että kokouksessa ei sovittu 90 miljardin euron lainasta Ukrainalle.
+
+Sopua ei tullut, koska Unkarin pääministeri Viktor Orbán vastusti sitä. Orbán vaatii Ukrainaa korjaamaan ensin öljyputken, joka tuo venäläistä öljyä Ukrainan kautta Unkariin. Öljyputki meni rikki Venäjän pommituksissa.
+
+EU:n tärkeä huippukokous päättyi eilen.
+
+EU:n johtajat tuomitsivat kokouksessa myös Iranin sodan ja vaativat suojelemaan siviilejä. He sanoivat, että ihmisjoukkojen pakeneminen sota-alueelta EU:hun estetään.
+
+## Tänään on kevätpäiväntasaus
+
+Tänään on kevätpäiväntasaus.
+
+Kaikkialla maapallolla yö on suunnilleen yhtä pitkä kuin päivä.
+
+Tästä päivästä lähtien päivät pitenevät ja yöt lyhenevät pohjoisella pallonpuoliskolla eli esimerkiksi Suomessa.
+
+Päivät pitenevät kesäpäiväntasaukseen saakka. Kesäpäiväntasaus on 21. kesäkuuta.
+
+Tänään on kevätpäiväntasaus, ja yö on yhtä pitkä kuin päivä.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Huomenna on keväisen lämmintä.
+
+Lämpötila on jopa kymmenen astetta.
+
+Etelässä paistaa aurinko.
+
+Muualla Suomessa pilvisyys vaihtelee.

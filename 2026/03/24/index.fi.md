@@ -1,0 +1,43 @@
+# Selkouutiset | tiistai 24.3.2026
+
+Tekoäly. Psykologian opiskelijat. Porovahingot. Sää.
+
+## Tekoäly
+
+Ensin uutinen tekoälystä.
+
+Työpaikkoja katoaa tekoälyn takia. Joillakin aloilla tekoäly tekee tulevaisuudessa suuren osan työstä.
+
+Tekoäly etsii ja käsittelee nopeasti tietoa. Siksi tekoäly muuttaa työtä, jota ihmiset tekevät.
+
+Tekoäly on jo muuttanut esimerkiksi tietokoneohjelmoijan työtä. Tekoäly koodaa nopeammin kuin ihminen.
+
+Työpaikkoja katoaa tekoälyn takia. Tekoäly tekee tulevaisuudessa esimerkiksi kääntäjän, ohjelmoijan ja asiakaspalvelijan töitä.
+
+## Psykologian opiskelijat
+
+Seuraavaksi uutinen psykologian opiskelijoista.
+
+Psykologian opiskelijoille on liian vähän harjoittelupaikkoja. Opiskelijan pitää tehdä työharjoittelua, jotta opiskelija saa opiskelut valmiiksi.
+
+Harjoittelupaikkoja ei ole tarpeeksi, koska psykologian opiskelijoita on enemmän kuin aikaisemmin. Samaan aikaan hyvinvointialueiden talous on huono. Psykologian opiskelijan työharjoittelu on usein hyvinvointialueella.
+
+Psykologian opiskelijoille on liian vähän harjoittelupaikkoja. Tämän takia opiskelijat eivät saa opintoja valmiiksi.
+
+## Porovahingot
+
+Nyt aiheena on poro.
+
+Lapissa petoeläimet tappavat paljon poroja. Usein poron tappaa ahma.
+
+Valtio maksaa poron omistajalle korvauksen, jos petoeläin tappaa poron. Korvauksia maksetaan nyt enemmän kuin aikaisemmin. Viime vuonna korvauksia maksettiin yhteensä yli 11 miljoonaa euroa.
+
+Lapissa petoeläimet tappavat paljon poroja.
+
+Näissä kuvissa tutkitaan, onko petoeläin tappanut poron Enontekiöllä. Joskus poromies voi ilmoittaa petovahingon, vaikka peto ei tappanut poroa.
+
+## Sää
+
+Vielä sääennuste.
+
+Keskiviikkona iltapäivällä maan etelä- ja keskiosissa sataa vettä. Sää on tuulinen. Lämpötila on noin 5 astetta. Pohjoisessa sataa vettä illalla. Lapissa sataa myös lunta.

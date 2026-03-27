@@ -1,0 +1,67 @@
+# Selkouutiset | perjantai 27.3.2026
+
+Kananmunapula. Päivi Räsäsen tuomio. Yo-kirjoitukset. Vedenkorkeus. Sää.
+
+## Kananmunapula
+
+Ensin uutinen kananmunista.
+
+Suomessa on nyt pulaa kananmunista.
+
+Tuottajajärjestö MTK sanoo, että kananmunapulan syy on viennin kasvaminen.
+
+Vienti on kasvanut, koska suomalaisista kananmunista maksetaan ulkomailla parempi hinta kuin kotimaassa, MTK sanoo.
+
+Kauppojen mielestä munapula taas johtuu siitä, että suomalaiset ostavat kananmunia enemmän kuin ennen.
+
+Kaupoissa on ollut viime aikoina pulaa kananmunista.
+
+Väliaikaista pulaa voi aiheuttaa myös se, että monilla maatiloilla on menossa kananvaihto.
+
+Kun vanhojen kanojen muninta heikkenee, niiden tilalle vaihdetaan uudet linnut.
+
+## Päivi Räsäsen tuomio
+
+Sitten aiheena tuomio, jonka korkein oikeus on antanut.
+
+Kansanedustaja **Päivi Räsänen** on tuomittu kiihottamisesta kansanryhmää vastaan.
+
+Räsänen kirjoitti vuonna 2004 homoseksuaaleista.
+
+Korkein oikeus katsoi, että kirjoituksessa Räsänen solvasi homoseksuaaleja ryhmänä.
+
+Räsänen sai sakkotuomion kiihottamisesta kansanryhmää vastaan.
+
+Päivi Räsänen on kristillisdemokraattien kansanedustaja.
+
+## Yo-kirjoitukset
+
+Nyt uutinen yo-kokeista.
+
+Kevään ylioppilaskirjoitukset ovat päättyneet.
+
+Tänään kirjoitettiin kevään viimeinen koe, joka oli saamen äidinkieli ja kirjallisuus.
+
+Yo-kokeiden tulokset selviävät toukokuun puolivälissä.
+
+## Vedenkorkeus
+
+Lopuksi puhumme vedestä.
+
+Vesistöjen ja pohjavesien pinta on nyt matalalla.
+
+Vettä on tavallista vähemmän, koska viime syksy oli kuiva ja talvella lumipeite jäi ohueksi. Vain Lapissa oli paljon lunta.
+
+Tältä näyttää esimerkiksi Kyläniemen saaressa Saimaalla. Tälle mökkilaiturille ei ehkä pääse veneellä tänä kesänä.
+
+Vedenkorkeus voi kuitenkin kääntyä nousuun, jos keväällä sataa paljon.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna sää on aurinkoista idässä.
+
+Lämpötila on noin kymmenen astetta.
+
+Pohjoisessa sataa vähän lunta ja on kylmempää.

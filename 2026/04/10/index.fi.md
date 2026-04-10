@@ -1,0 +1,55 @@
+# Selkouutiset | perjantai 10.4.2026
+
+Droonien torjunta. Ukrainaan pääsiäistulitauko. Pölyttäjät. Lauantain sää.
+
+## Droonien torjunta
+
+Aluksi aiheena ovat droonit.
+
+Suomi hakee EU:lta lisää rahaa droonien torjuntaan.
+
+Suomi haluaa lisää rahaa 35 miljoonaa euroa. Rajavartiolaitos haluaa havaita ja torjua drooneja paremmin kuin nyt.
+
+Suomeen tuli maaliskuussa 3 droonia, joilla Ukraina hyökkäsi Venäjälle.
+
+Suomi hakee EU:lta lisää rahaa droonien torjuntaan.
+
+Suomen suurin vientisatama eli Haminan-Kotkan satama on lisännyt valvontaa droonien takia. Satama muistuttaa yrityksiä ja työntekijöitä turvallisuusohjeesta.
+
+## Ukrainaan pääsiäistulitauko
+
+Sitten uutinen Ukrainan sotatilanteesta.
+
+Ukraina ja Venäjä ovat ilmoittaneet tulitauosta viikonloppuna.
+
+Suuri osa maailman ortodokseista viettää pääsiäistä tänä viikonloppuna.
+
+Tulitauon on määrä alkaa huomenna iltapäivällä. Se kestää vähän yli 30 tuntia.
+
+Ukraina ja Venäjä ovat ilmoittaneet tulitauosta viikonloppuna.
+
+Maat sopivat pääsiäisen tulitauosta myös vuosi sitten. Se ei kuitenkaan pysäyttänyt taisteluita pyhien ajaksi.
+
+## Pölyttäjät
+
+Lopuksi aiheena ovat hyönteiset.
+
+Suomessa on vähemmän pölyttäjä-hyönteisiä kuin ennen.
+
+Joka 5. tärkeä pölyttäjälaji on uhanalainen. Esimerkiksi perhosia ja mesipistiäisiä on paljon vähemmän kuin ennen.
+
+Pölyttäjät ovat tärkeitä hyönteisiä, jotka kuljettavat siitepölyä. Pölyttäjiä tarvitaan, jotta marjat, hedelmät ja siemenet voivat kasvaa.
+
+Suomessa on vähemmän pölyttäjä-hyönteisiä kuin ennen.
+
+Ihminen voi auttaa pölyttäjää. Pihaan, puutarhaan tai parvekkeelle voi istuttaa kasveja, jotka sopivat pölyttäjälle.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Huomenna sää on aurinkoinen.
+
+Etelässä on vähän yli 10 astetta lämmintä. Pohjoisessa on alle 10 astetta.
+
+Tuuli on heikkoa tai kohtalaista.

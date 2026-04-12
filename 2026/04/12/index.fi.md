@@ -1,0 +1,97 @@
+# Uutisviikko selkosuomeksi | sunnuntai 12.4.2026
+
+USA:n ja Iranin neuvottelut. Ruotsinlaivat ja lentoliikenne. Työpaikkojen määrä. Sotilaslennokki Iitissä. Artemis II Kuulento.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## USA ja Iran
+
+![JD Vance puhuu puhujankorokkeella. Witkoff ja Kushner seisovat vierellä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3374,w_5999,x_0,y_180/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1775982479/39-162584569db57206612a)
+
+Avaa kuvien katselu
+
+USA:n varapresidentti J.D. Vance kertoi medialle neuvotteluista. Kuva: Jacquelyn Martin / AFP
+
+USA ja Iran neuvottelivat tällä viikolla rauhasta. Neuvottelut pidettiin Pakistanissa. Neuvotteluissa ei syntynyt sopimusta.
+
+USA:n varapresidentti **J.D. Vance** sanoo, että Iran ei hyväksynyt USA:n vaatimuksia. USA vaati, että Iran ei saa kehittää ydinasetta.
+
+Iran sanoo, että USA vaatii liikaa.
+
+USA on uhannut Irania kovilla iskuilla, jos Iran ei avaa Hormuzinsalmea öljylaivoille.
+
+## Ruotsinlaivat ja lentoliikenne
+
+![Sinivalkoinen suuri matkustajalaiva odottaa matkustajia satamassa.](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_158/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1731580768/39-13799166735d0c466e1e)
+
+Avaa kuvien katselu
+
+Ruotsinlaivat säästävät polttoainetta, kun ne hidastavat vauhtia. Kuva: Mimmi Nietula / Yle
+
+Hormuzinsalmen sulku on nostanut paljon öljyn hintaa, koska sulku on pysäyttänyt öljykuljetukset.
+
+Suomessa laivayhtiöt Viking Line ja Tallink Silja kertoivat tällä viikolla, että ne hidastavat Tukholman-laivojen vauhtia, koska polttoaineen hinta on noussut paljon.
+
+Vauhdin hidastaminen vähentää laivojen polttoaineen kulutusta. Samalla matka-aika Tukholmaan pitenee hieman.
+
+Osa lentoyhtiöistä on alkanut vähentää lentoja, koska polttoaine on kallistunut ja polttoainevarastot vähenevät.
+
+Asiantuntijat varoittavat, että pula lentopolttoaineesta voi vähentää kesän lomalentoja.
+
+## Avoimet työpaikat
+
+![Pylväs diagrammi avoimien työpaikkojen määrän kasvusta neljällä eri alalla.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1775834706/39-162546069d915ac32180)
+
+Avaa kuvien katselu
+
+Työpaikat lisääntyivät monilla aloilla. Kuva: Saara Paasikivi / Yle
+
+Tällä viikolla saatiin hyvä uutinen työpaikkojen määrästä. Avoimien työpaikkojen määrä on kasvanut.
+
+Edellisestä kasvusta on kulunut yli 3 vuotta.
+
+Työnhakupalvelu Duunitori kertoo, että maaliskuussa työpaikkoja oli auki yli 30 000.
+
+Eniten työpaikkoja avattiin asennuksen, huollon ja teollisuuden aloilla.
+
+Avoimet työpaikat vähenivät palvelualoilla, esimerkiksi ravintoloissa ja matkailussa.
+
+## Sotilaslennokit
+
+![Kartta johon merkattu iitti kouvola helsinki ja lahti.](https://images.cdn.yle.fi/image/upload/c_crop,h_607,w_1080,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1775912778/39-162571869da4720b7e40)
+
+Avaa kuvien katselu
+
+Iitti on Lahden ja Kouvolan välissä.  Kuva: Saara Paasikivi / Yle, Mapcreator, OpenStreetMap
+
+Suomesta löydettiin lauantaina taas sotilaslennokki. Se oli pudonnut metsään Päijät-Hämeessä Iitissä.
+
+Lennokissa oli mukana taistelukärki, jossa on räjähde.
+
+Taistelukärki oli irronnut lennokista, mutta se ei ollut räjähtänyt. Suomen viranomaiset räjäyttivät taistelukärjen turvallisesti.
+
+Poliisi sanoo, että Iitin sotilaslennokki on saman kaltainen kuin lennokit, joita löydettiin Kouvolasta noin 2 viikko sitten.
+
+Myös Iitin lennokki on ehkä Ukrainan lennokki.
+
+## Artemis II Kuulento
+
+![Artemis II laskeutuu mereen laskuvarjojen saattelemana.](https://images.cdn.yle.fi/image/upload/c_crop,h_2246,w_3994,x_5,y_250/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1775867627/39-162558069d99663e6c7f)
+
+Avaa kuvien katselu
+
+Orion kapseli laskeutui mereen. Lento onnistui hyvin. Kuva: Bill Ingalls / Nasa / AFP
+
+USA:n Artemis II Kuulento palasi Maahan viikonloppuna.
+
+Neljä astronauttia laskeutui Orion-kapselissa mereen Kalifornian edustalla.
+
+Lento oli vaativa, mutta se onnistui hyvin.
+
+Artemis II teki historiaa. Se lensi Kuun ympäri ja vei ihmiset kauemmas Maasta kuin koskaan ennen.
+
+Artemis II kävi yli 400 000 kilometrin päässä Maasta.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

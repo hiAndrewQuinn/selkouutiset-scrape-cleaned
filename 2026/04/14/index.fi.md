@@ -1,0 +1,57 @@
+# Selkouutiset | tiistai 14.4.2026
+
+Veden hinta. Somehuijaukset. Puutarhakaupat. Sää
+
+## Veden hinta voi nousta
+
+Ensin uutinen vedestä.
+
+Suomessa vesi on liian halpaa, sanovat korkeat viranomaiset.
+
+Maa- ja metsätalousministeriön virkamies sanoo, että ihmisten pitää maksaa enemmän vedestä. Vesilaitokset tarvitsevat lisää rahaa, jotta ne voivat korjata vesiputkia.
+
+Osa vesiputkista on tosi huonossa kunnossa. Rikkinäisistä vesiputkista voi valua likaista jätevettä luontoon. Myös juomavesi voi saastua, jos putket ovat rikki.
+
+Uusi laki määrää, että vesilaitoksilla pitää olla rahaa korjata vesiputkia.
+
+Suomessa vesi on viranomaisten mielestä liian halpaa.
+
+Uusi laki voi nostaa vesimaksuja. Ihmisten pitää maksaa vedestä enemmän, jotta vesilaitoksilla on rahaa korjata vesiputkia.
+
+## Tuttuja TV-kasvoja käytetään somehuijauksissa
+
+Seuraavaksi uutinen somehuijauksista.
+
+Sosiaalisessa mediassa käytetään TV:n uutistenlukijoiden kuvaa ja ääntä huijausvideoissa.
+
+Väärennettyjä videoita levitetään esimerkiksi Facebookissa ja Instagramissa. Niissä mainostetaan sijoituksia, joilla huijataan rahaa ihmisiltä.
+
+Uutistenlukijat sanovat, että he eivät ole antaneet lupaa videoihin.
+
+Uutistenlukijoiden kuvaa ja ääntä on käytetty huijausvideoissa sosiaalisessa mediassa.
+
+Facebookin ja Instagramin omistaja Meta-yhtiö saa paljon rahaa huijausvideoiden tekijöiltä.
+
+TV:n uutistenlukijat vaativat, että Meta poistaa huijausvideot.
+
+## Puutarhakaupoissa on nyt vilkasta
+
+Lopuksi vielä puutarhauutisia.
+
+Puutarhakaupoissa on nyt vilkasta. Ihmiset ostavat kukkia ja taimia ulos, koska kevät on ollut lämmin.
+
+Puutarhakauppias Sanna Elo pitää Paratiisin taimitarhaa Suomen länsirannikolla Porissa.
+
+– Kyllä tää vilkasta on. Heti kun aurinko pilkistää, niin rupeaa ovipumppu laulamaan.
+
+Elo sanoo, että länsirannikolla kevät tulee aikaisemmin kuin muualla Suomessa. Se näkyy myös Elon puutarhakaupassa, jossa on nyt paljon asiakkaita.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona on poutaa, eli ei sada.
+
+Idässä on vähän pilviä. Lännessä ja Lapissa on aurinkoista.
+
+Lämpötila on 5...15 astetta.

@@ -1,0 +1,41 @@
+# Selkouutiset | torstai 16.4.2026
+
+Pörssi. Nuorten terveys. Sirkus Finlandia. Sää.
+
+## Helsingin pörssi
+
+Ensin talousuutinen.
+
+Helsingin pörssillä menee nyt hyvin. Osakkeiden arvo on noussut. Helsingin pörssissä osakkeet maksavat jo yhtä paljon kuin ennen Ukrainan sotaa.
+
+Joidenkin isojen suomalaisten firmojen osakekurssi on noussut paljon. Esimerkiksi Nokian, Nesteen ja Fortumin osakkeiden hinta on noussut nopeasti.
+
+Helsingin pörssillä menee nyt hyvin. Osakkeet ovat kallistuneet vuoden aikana noin 45 prosenttia.
+
+## Nuorten terveys
+
+Nyt aiheena on nuorten terveys.
+
+Ulkomaalaistaustaiset nuoret voivat usein huonosti. Koululaisten terveyskysely kertoo, että ulkomaalaistaustaiset lapset ja nuoret voivat huonommin kuin nuoret, joiden vanhemmat ovat syntyneet Suomessa.
+
+Yli 50 prosenttia ulkomailla syntyneistä nuorista kertoo, että heitä kiusataan tai syrjitään.
+
+Ulkomaalaistaustaiset nuoret voivat usein huonosti. Moni ulkomaalaistaustainen nuori käy kuitenkin mielellään koulussa. Ulkomaalaistaustaiset nuoret myös käyttävät vähemmän alkoholia kuin nuoret, joiden vanhemmat ovat suomalaistaustaisia.
+
+## Sirkus Finlandia
+
+Seuraavaksi aiheena on sirkus.
+
+Sirkus Finlandia täyttää tänä vuonna 50 vuotta. Sirkus Finlandia on Suomen vanhin sirkus. Sirkus Finlandia järjestää esityksiä eri puolilla Suomea. Sirkuksessa on esiintyjiä monesta eri maasta.
+
+Sirkus Finlandian ohjelmassa on perinteinen hevosesitys. Sirkuksessa on myös esimerkiksi akrobatiaa, klovneja ja erilaista uutta sirkusta.
+
+Sirkus Finlandia täyttää tänä vuonna 50 vuotta. Sirkuksen juhlakiertue alkaa perjantaina. Kiertueen 1. esitys on Karjaalla. Kiertue jatkuu syyskuuhun asti.
+
+## Sää
+
+Vielä sääennuste.
+
+Perjantaina sää on aurinkoinen melkein koko maassa. Vain itärajan lähellä taivaalla on paljon pilviä. Lämpötila on monin paikoin 10 ja 15 asteen välillä.
+
+Pohjoisesta alkaen sää viilenee.

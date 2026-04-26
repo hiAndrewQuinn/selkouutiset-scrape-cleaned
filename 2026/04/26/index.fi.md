@@ -1,0 +1,75 @@
+# Uutisviikko selkosuomeksi | sunnuntai 26.4.2026
+
+Ammuskelu USA:ssa. Hallituksen rahapäätökset. Vuokko Nurmesniemi. Pyöriäinen.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Ammuskelu USA:ssa
+
+![Ihmiset juoksevat pakoon käytävällä ampumisen jälkeen. Tarjoilijoilla on isot tarjottimet käsissään.](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_625/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1777178373/39-163313569ed956ab99f8)
+
+Avaa kuvien katselu
+
+Kuva: Yuri Gripas / EPA
+
+Ensin uutinen ulkomailta.
+
+USA:n pääkaupungissa Washingtonissa on sattunut ampumistapaus.
+
+Mies yritti tunkeutua Hilton-hotellin juhlasaliin, jossa oli Valkoisen talon toimittajaillallinen. Paikalla oli USA:n presidentti Donald Trump. Presidentti vietiin nopeasti pois paikalta. Hän ei loukkaantunut.
+
+Mies ampui salaisen palvelun agenttia, joka esti miehen pääsyn juhlasaliin. Agentti ei loukkaantunut, koska hänellä oli luotiliivi. Viranomaiset ottivat miehen kiinni.
+
+Ampuja on noin 30-vuotias mies. Syytä ampumiseen ei tiedetä.
+
+## Hallituksen rahapäätökset
+
+![Valtiovarainministeri Riikka Purra.](https://images.cdn.yle.fi/image/upload/c_crop,h_1917,w_3408,x_0,y_235/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1776884806/39-163175569e91c0c9f63b)
+
+Avaa kuvien katselu
+
+Kuva: Susanna Pesonen / Yle
+
+Hallitus päätti tällä viikolla Suomen valtion rahojen käytöstä.
+
+Hallitus aikoo säästää rahaa esimerkiksi terveyspalveluista ja valtion hallinnosta.
+
+Monet terveyspalveluiden asiakasmaksut nousevat. Ihmisten pitää maksaa esimerkiksi terveyskeskuksessa enemmän rahaa kuin ennen.
+
+Hallitus päätti myös kohteista, joihin valtio laittaa lisää rahaa. Hallitus esimerkiksi nostaa kotitalousvähennystä. Kotitalousvähennystä saa, jos palkkaa kotiin vaikka siivoojan.
+
+## Vuokko Nurmesniemi
+
+![Marimekon Jokapoika-paitoja. ](https://images.cdn.yle.fi/image/upload/c_crop,h_1971,w_3504,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1776763950/39-163038569e7401cb663d)
+
+Avaa kuvien katselu
+
+Kuva: Jussi Nukari / Lehtikuva
+
+Vaatesuunnittelija Vuokko Nurmesniemi on kuollut. Hän oli 96-vuotias. Nurmesniemi tunnettiin hyvin monessa eri maassa.
+
+Vuokko Nurmesniemi suunnitteli vaatteita Marimekolle 1950-luvulla. Suomessa hänet tunnetaan parhaiten Jokapoika-paidasta. Sitä on tehty jo 60 vuotta.
+
+Nurmesniemi suunnitteli naisille vaatteita, jotka olivat erilaisia kuin ennen. Nurmesniemi halusi, että vaate tuntuu mukavalta päällä.
+
+Vuokko Nurmesniemi sai paljon palkintoja. Hän oli taiteen akateemikko.
+
+## Pyöriäinen
+
+![Pyöriäisen tumma selkäevä meressä](https://images.cdn.yle.fi/image/upload/c_crop,h_1152,w_2048,x_0,y_319/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1776860194/39-163145369e8bbd50f19e)
+
+Avaa kuvien katselu
+
+Kuva: Kaj Höglund
+
+Pohjanmaalla liikkui tällä viikolla harvinainen eläinvieras.
+
+Mustasaaressa nähtiin ainakin 1 pyöriäinen. Tämä on harvinaista. Pyöriäinen on Suomessa uhanalainen, eikä se ole ehkä ennen vieraillut Pohjanmaalla.
+
+Pyöriäinen on pieni valas. Se on Itämeren ainoa valaslaji.
+
+Pyöriäinen ui tällä viikolla Pohjanmaan rannikolla ja Kyrönjoessa. Paikalle tuli paljon ihmisiä, jotka halusivat nähdä pyöriäisen. Myös tutkijat tarkkailivat pyöriäistä.
+
+Tässä oli Uutisviikko selkosuomeksi. Kuulemiin.

@@ -1,0 +1,57 @@
+# Selkouutiset | tiistai 28.4.2026
+
+Aurinkovoima. Turun telakka. Huvipuistot. Keskiviikon sää.
+
+## Aurinkovoima
+
+Aluksi uutinen aurinkovoimasta.
+
+Suomeen rakennetaan ennätysmäärä uusia aurinkovoimaloita.
+
+Tässä rakennetaan aurinkosähköpuistoa Urjalaan, Pirkanmaalle.
+
+Tänä vuonna uutta aurinkovoimaa rakennetaan 500 megawattia. Se on lähes saman verran kuin yhden Loviisan ydinvoimalayksikön teho.
+
+Suomeen rakennetaan ennätysmäärä uusia aurinkovoimaloita.
+
+Aurinkovoimaa rakennetaan nyt ensimmäistä kertaa enemmän kuin tuulivoimaa. Uusia tuulivoimaloita ei kannata rakentaa, koska pörssisähkö on liian halpaa.
+
+## Turun telakka
+
+Sitten aiheena on suuri laivatilaus.
+
+Turun telakka rakentaa 2 uutta risteilylaivaa.
+
+Tilauksen on tehnyt Royal Caribbean -varustamo. Se on tilannut jo aiemmin Turusta 5 jättiristeilijää.
+
+Royal Caribbeanin laivat ovat maailman suurimpia risteilyaluksia.
+
+Turun telakka rakentaa 2 uutta risteilylaivaa.
+
+Uudet laivat valmistuvat vuosina 2029 ja 2030.
+
+Viime vuonna Meyer Turun telakalla oli töissä lähes 2 400 ihmistä.
+
+## Huvipuistot
+
+Lopuksi aiheena ovat huvipuistojen pääsyliput.
+
+Huvipuistojen rannekkeet maksavat lähes saman verran kuin viime kesänä.
+
+Esimerkiksi Särkänniemessä ja Linnanmäellä ranneke maksaa vähän yli 50 euroa. Myös muissa huvipuistoissa ranneke maksaa usein noin 50 euroa.
+
+Rannekkeella pääsee huvipuistoon ja laitteisiin.
+
+Huvipuistojen rannekkeet maksavat lähes saman verran kuin viime kesänä.
+
+Huvipuistoihin on hankittu uusia laitteita, vaikka taloustilanne on vaikea. Särkänniemessä ja Tykkimäessä on uusi vuoristorata.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää on poutaista eli ei sada.
+
+Sää lämpenee hieman. Etelässä lämpötila voi olla 10 astetta, muualla on viileämpää.
+
+Pilviä on jonkin verran.

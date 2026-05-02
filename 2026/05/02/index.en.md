@@ -1,0 +1,89 @@
+# News of the week in plain Finnish | Saturday 2.5.2026
+
+Tightening of home care support conditions
+
+Listen
+
+You can read the news simultaneously below.
+
+## Topic of the week
+
+This time, the topic is tightening the conditions for home care support.
+
+The government is making new rules for who can receive support for caring for a child at home.
+
+The plan has sparked debate about how families are treated in Finland.
+
+We will now tell you more about home care support and the government's new plans.
+
+![A 2-year-old child plays in a sandbox.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_284/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6835685ed4f3f4cc125/1666122508)
+
+Open image viewer
+
+A family can receive home care support if the family takes care of the child at home. In that case, the child does not use a municipal day care place. Photo: Antti Laakso / Yle
+
+## Home care support
+
+Home care allowance is money that Kela pays to a child's parents.
+
+A family can receive home care support if a child under the age of 3 is cared for at home.
+
+Support can be paid to a family that does not use a municipal daycare place.
+
+Currently, home care allowance is just under 380 euros per month.
+
+The number of beneficiaries is constantly decreasing because fewer children are being born than before.
+
+Last year, the amount of support decreased by 12 percent, or approximately 10,000 families.
+
+## Three-year rule
+
+Now the government wants to tighten the conditions for home care support.
+
+The government plans to tighten the conditions so that both parents must live in Finland or Europe for three years before they can receive support.
+
+The idea is that immigrants will learn the language and find jobs faster when their parents go to work quickly.
+
+The aim is also for children to learn the language quickly when they are in kindergarten with other children.
+
+Experts warn that the change could be costly for the state.
+
+If many families run out of home care, more places will be needed in daycare centers quickly. Daycare costs the municipality more than home care support.
+
+![The picture shows a group of children playing in a room with colorful pictures on the wall and a galaxy-patterned carpet on the floor.](https://img.img-cdn.yle.fi/crop_extract,w_4969,h_2795,x_1,y_369/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-156062569283f768cb09/1764245904)
+
+Open image viewer
+
+Children at the Säte daycare center in Kontula, Helsinki. (This private daycare center was founded by Rahmo Hassan, who is supervising the children in the photo.) Photo: Jussi Koivunoro / Yle
+
+## Problems with tightening
+
+The immigrant families' organization Familia ry criticizes the government's plan.
+
+Familia helps families where one parent is from abroad.
+
+The organization says that the new rule is also bad for Finnish citizens.
+
+If a Finn starts a family with someone who comes from outside Europe, the family may be left without support.
+
+The organization says it is scary if the state denies support because of who a person lives with.
+
+Familia says that simply removing support will not help people find jobs if there are no jobs available.
+
+![Two children photographed from above completing tasks in a kindergarten. ](https://img.img-cdn.yle.fi/crop_extract,w_5467,h_3075,x_4,y_572/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-932509623c3308c8d4d/1648116522)
+
+Open image viewer
+
+The government believes that immigrant children learn the language faster when they are in kindergarten with other children. Photo: Sakari Piippo / Yle
+
+## Repetition
+
+The topic of the week's news was the change in home care support.
+
+The government intends to tighten support for home care.
+
+The intention is that in the future, support will only be available if both parents have lived in Finland for three years.
+
+The organization Familia ry says that the new rule places families in an unequal position.
+
+This was the news of the week in plain Finnish. See you again, bye!

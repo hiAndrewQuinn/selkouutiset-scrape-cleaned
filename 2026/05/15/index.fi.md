@@ -1,0 +1,69 @@
+# Selkouutiset | perjantai 15.5.2026
+
+Droonivaroitus. Erityislapsen koulupaikka. Vaatevalmistus. Sääennuste.
+
+## Droonivaroitus perjantaina aamulla
+
+Aluksi uutinen droonivaroituksesta Suomessa.
+
+Uudellamaalla Etelä-Suomessa annettiin perjantaina aamulla droonivaroitus.
+
+Droonivaroitus annettiin noin kello 4 aamulla ja se päättyi noin kello 7.
+
+Pääministeri ja viranomaiset pitivät asiasta tiedotustilaisuuden aamupäivällä.
+
+Suomen armeija sai yöllä varoituksen, että Etelä-Suomeen voi tulla sotilasdrooneja, joissa on räjähde.
+
+Vaarallinen alue oli Helsingin ja Porvoon välillä.
+
+Siksi ihmisille annettiin ohje, että pitää pysyä sisällä. Lentoliikenne keskeytettiin. Vain armeijan hävittäjät olivat ilmassa.
+
+Uudellamaalla Etelä-Suomessa annettiin perjantaina aamulla droonivaroitus.
+
+Drooneja ei kuitenkaan tullut Suomen alueelle. Vaara meni ohi.
+
+## Erityislapsen koulupaikka
+
+Nyt uutinen erityislapsen koulupaikasta.
+
+Seitsemänvuotias erityislapsi oli ilman koulupaikkaa yli 4 kuukautta Espoossa.
+
+Äiti Marie muutti Espooseen tammikuussa kahden lapsen kanssa.
+
+Hän haki erityislapselle heti paikkaa koulusta, mutta kunta ei löytänyt sopivaa luokkaa.
+
+Lapsi sai koulupaikan vasta nyt toukokuussa, kun lukuvuosi on jo melkein loppu.
+
+Seitsemänvuotias erityislapsi oli ilman koulupaikkaa yli 4 kuukautta Espoossa.
+
+Vammaisten järjestön Kynnys ry:n toiminnanjohtaja **Veera Florica-Rajala** sanoo, että kunnan pitää antaa koulupaikka heti myös erityislapselle.
+
+Espoon kaupunki kertoo, että näin pitkät viiveet ovat harvinaisia.
+
+## Vaatevalmistus Suomessa
+
+Lopuksi uutinen vaatevalmistuksesta Suomessa.
+
+Yrittäjä **Marleena Lehtonen** valmistaa vaatteita Helsingissä.
+
+Kaikki vaatteet ommellaan Suomessa, vaikka ompelu on kalliimpaa kuin ulkomailla.
+
+Esimerkiksi mekon ompelu maksaa Suomessa 39 euroa ja Virossa 15 euroa.
+
+Lehtonen ostaa Italiasta luksusvaatemerkkien ylijäämäsilkkiä.
+
+Lehtonen sanoo, että kotimainen työ on tärkeää, vaikka tuloja jää vähän.
+
+Marleena Lehtonen haluaa näyttää, että vaatteita voi edelleen tehdä Suomessa.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina sää on vaihtelevaa.
+
+Suuressa osassa maata sataa vettä.
+
+Idässä vettä voi sataa paljon.
+
+Sateisilla alueilla lämpötila jää noin 10 asteeseen.

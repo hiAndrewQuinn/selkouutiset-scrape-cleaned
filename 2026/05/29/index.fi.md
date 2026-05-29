@@ -1,0 +1,53 @@
+# Selkouutiset | perjantai 29.5.2026
+
+Ylioppilaat ja välivuosi. Nuoret kuljettajat. MM-jääkiekko. Sää.
+
+## Ylioppilaat ja välivuosi
+
+Aluksi asiaa uusista ylioppilaista.
+
+Moni uusi ylioppilas pitää opinnoissa välivuoden lukion jälkeen.
+
+Esimerkiksi toissavuonna vain noin 30 prosenttia uusista ylioppilaista jatkoi opintoja heti lukion jälkeen, kertoo Tilastokeskus
+
+Uusista ylioppilaista melkein 25 prosenttia ei edes hae opiskelupaikkaa.
+
+Osa nuorista voi pitää opinnoissa monta välivuotta.
+
+Tämän kevään ylioppilas **Maiju Eronen** Siilinjärveltä aikoo käydä pääsykokeissa, mutta kiire opiskelemaan ei ole.
+
+– Joo, menen. Mutta minulla ei ole tällä hetkellä tavoitteena, että sinne on nyt pakko päästä. Että minulle on ihan ok, jos jään välivuodelle.
+
+## Nuoret kuljettajat
+
+Sitten uutinen nuorista kuljettajista.
+
+Nuoret kuljettajat eivät enää saa ajaa autoa yöaikaan. Kielto tuli voimaan viime yönä.
+
+Yöaikaan ajaminen on kielletty 17-vuotiailta kuljettajilta, jotka ovat saaneet ajokortin ikäpoikkeusluvalla.
+
+Kiellon tarkoitus on vähentää nuorten vakavia liikenneonnettomuuksia. Niitä on sattunut etenkin yöaikaan.
+
+Nuoret kuljettajat eivät saa ajaa autoa puolenyön ja aamuviiden välillä.
+
+Nuoren kuljettajan autossa pitää myös jatkossa olla tunnistusmerkki. Keltainen ja vihreä merkki laitetaan auton takaosaan näkyvälle paikalle.
+
+Merkki otetaan käyttöön lokakuun alussa.
+
+## MM-jääkiekko
+
+Sitten urheilua.
+
+Suomi pelaa mitaleista jääkiekon MM-kisoissa Sveitsissä.
+
+Se varmistui, kun miesten jääkiekkomaajoukkue Leijonat voitti illalla Tsekin. Leijonat voitti maalein 4-1.
+
+Huomenna välierissä Suomi kohtaa Kanadan. Ottelussa ratkeaa, pelaako Suomi sunnuntaina MM-kisojen kulta- vai pronssimitalista.
+
+Suomen ja Kanadan lisäksi välierissä pelaavat Norja ja Sveitsi.
+
+## Lauantain sää
+
+Huomenna lauantana aurinko paistaa maan etelä- ja keskiosissa. Lämpötila on siellä noin 20 astetta.
+
+Lapissa sataa vettä ja on viileämpää.

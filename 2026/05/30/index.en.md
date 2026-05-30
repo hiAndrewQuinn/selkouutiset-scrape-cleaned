@@ -1,0 +1,95 @@
+# News of the week in plain Finnish | Saturday 30.5.2026
+
+Summer hymn and school spring celebrations
+
+Listen
+
+You can read the news simultaneously below.
+
+## Topic of the week
+
+This time the topic is the Summer Anthem and school spring celebrations.
+
+In Finland, there is a long tradition of singing the Summer Anthem at school spring celebrations.
+
+Now the song has become a big argument in Espoo.
+
+We will now tell you more about this dispute and Suvivirre.
+
+![Photo from the school's spring festival, from the audience towards the stage. On the stage, a student choir sings, teachers hand out roses to the students. Photo from Lahti Lotila School.](https://img.img-cdn.yle.fi/crop_extract,w_4020,h_2258,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-965759629dcd9fd18ea/1654509217)
+
+Open image viewer
+
+The Summer Anthem is usually sung at spring celebrations in Finnish schools. Photo: Petri Niemi / Yle
+
+## Summer Hymn
+
+The summer hymn is an old song that tells of the beginning of summer.
+
+For many Finns, it is an important sign that the school summer vacation is beginning.
+
+The Finnish Parliament has decided that schools will be allowed to sing at the Summer Solstice celebration.
+
+Parliament says that one song does not make a celebration a religious occasion.
+
+However, there are students in schools who belong to different religions or who do not belong to any religion.
+
+## Complaint
+
+A big argument started over the summer holidays when a father from Espoo complained about the school party.
+
+The father does not approve of his non-religious child listening to religious songs at school.
+
+The child had to listen to the Summer Hymn at the school's spring party and the Christian Christmas carol: The Sparrow on Christmas Morning at the Christmas party.
+
+The father says this violated the child's rights.
+
+![Notice in the school's messaging system Wilma. The content of the message is related to the school's spring festival and the performance of Suvivirte there.](https://img.img-cdn.yle.fi/crop_extract,w_1549,h_871,x_110,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16513246a185517127d2/1779979740)
+
+Open image viewer
+
+Schools are now informing families that the summer hymn will be sung at school celebrations. Photo: Jere Sanaksenaho / Yle
+
+## Equality
+
+The Equality Board is the authority that investigated the father's complaint.
+
+The board decided that the City of Espoo discriminated against the student.
+
+The board imposed a fine of 10,000 euros on the City of Espoo.
+
+Many Finns wonder about the fine, because the Summer Solstice is such an important part of Finnish culture.
+
+**Tapio Luoma** also speaks on the matter. He is the archbishop, or supreme leader, of the Evangelical Lutheran Church of Finland.
+
+The Archbishop says that the Summer Song is part of common Finnish culture and tradition.
+
+The Archbishop says that one song does not make a celebration a religious occasion.
+
+![Tapio Luoma dressed as a priest.](https://img.img-cdn.yle.fi/crop_extract,w_7877,h_4430,x_0,y_95/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-14775066843e7d6604bf/1749280840)
+
+Open image viewer
+
+Archbishop Tapio Luoma says it is a richness to encounter different religions and views. Photo: Juha Metso / AOP
+
+## Information
+
+Schools have now organized spring celebrations as usual.
+
+However, schools must inform families in advance if the celebration will include religious songs, such as the summer hymn.
+
+Schools must also offer other programs for students who do not want to sing or hear religious songs.
+
+## Repetition
+
+The topic of this week's news was the Summer Anthem and school spring celebrations.
+
+Let's repeat the most important things.
+
+The authority has imposed a large fine on the city of Espoo because a non-religious child participated in a spring festival where the Summer Hymn was sung and a Christmas festival where a Christian song was heard.
+
+The father filed a complaint because the school did not inform him about the songs in advance.
+
+Many Finns are surprised by the fine, because Suvivirsi is an old tradition at spring celebrations.
+
+This was the news of the week in plain Finnish. See you again, bye!

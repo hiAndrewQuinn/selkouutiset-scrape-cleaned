@@ -1,0 +1,81 @@
+# Selkouutiset | torstai 11.6.2026
+
+Valtion talous. Metsäala. Jättiristeilijä. Sääennuste.
+
+## Valtion omaisuuden myyminen
+
+Aluksi uutinen valtion taloudesta.
+
+Valtion omaisuuden myymistä rajoitetaan jatkossa.
+
+Valtio ei saa enää hankkia rahaa niin, että se myy valtion firmoja.
+
+Näin on päättänyt eduskunnan työryhmä.
+
+Syy on se, että Suomi on EU:n tarkkailussa, koska Suomi on ottanut liikaa velkaa.
+
+Työryhmän puheenjohtaja **Ville Valkonen** sanoo, että säännöt ovat tiukat.
+
+Ennen valtio myi omaisuutta ja korjasi sillä rahalla esimerkiksi teitä.
+
+Jatkossa valtion pitää säästää muista menoista tai kerätä lisää tuloja, jos se haluaa tehdä uusia hankkeita.
+
+Valtion omaisuuden myymistä rajoitetaan jatkossa.
+
+Vasemmistoliitto vastustaa uutta päätöstä.
+
+Vasemmistoliitto sanoo, että sääntö on liian tiukka.
+
+## Metsäalan suosio
+
+Nyt uutinen koulutuksesta.
+
+Metsäalan suosio kasvaa nopeasti.
+
+Ammatillisesta koulutuksesta on valmistunut tänä vuonna noin 38 000 uutta työntekijää.
+
+Suosituimmat alat ovat edelleen terveysala ja tekniikka.
+
+Metsäalan suosio kasvaa nopeasti.
+
+Metsäalalle haki keväällä enemmän ihmisiä kuin koskaan ennen.
+
+Metsäala houkuttelee nuoria, koska sieltä saa hyvin töitä.
+
+Yksi uusista ammattilaisista on 18-vuotias **Kasper Moisio** Saarijärveltä.
+
+Hän opiskeli metsäalaa ja valmistui juuri ammattiopistosta.
+
+\[Moisio sanoo\] ”Kyllä mä luultavasti koko elämän tuun jossain määrin tekemään näitä hommia.”
+
+\[haastattelija kysyy\] ”Mikä suo tässä motivoi?”
+
+\[Moisio vastaa\] ”Kyllä se varmaan se, että tykkään näistä töistä.”
+
+## Jättiristeilijä
+
+Lopuksi uutinen jättiristeilijästä, joka on rakennettu Turussa.
+
+Turun telakka on saanut valmiiksi uuden luksusristeilijän.
+
+Laivan nimi on Legend of the Seas.
+
+Se on tosi iso. Laivan pituus on 365 metriä. Laivaan mahtuu melkein 6000 ihmistä.
+
+Laivassa on maailman suurin uima-allas, joka on rakennettu laivaan.
+
+Turussa on valmistunut uusi jättilaiva.
+
+Tällainen laiva maksaa noin kaksi miljardia euroa. Siksi se on tärkeä koko Suomen taloudelle ja viennille.
+
+Laiva lähtee Turusta Välimerelle. Talvella se siirtyy Karibialle.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina pohjoisessa ja idässä sataa vettä. Idässä voi myös ukkostaa.
+
+Lounais-Suomessa paistaa aurinko.
+
+Lämpötila on enimmäkseen 15 ja 20 asteen välillä.

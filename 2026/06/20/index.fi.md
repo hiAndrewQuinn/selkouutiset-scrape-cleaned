@@ -1,0 +1,103 @@
+# Viikon uutinen selkosuomeksi | lauantai 20.6.2026
+
+Elintarviketurvallisuus
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Viikon aihe
+
+Ohjelman aiheena on tällä kertaa elintarviketurvallisuus.
+
+Elintarviketurvallisuus tarkoittaa sitä, että kauppojen ruoka on puhdasta ja turvallista syödä.
+
+Terveystarkastajat tutkivat ruokakauppoja säännöllisesti.
+
+Yle pyysi tiedot tarkastuksista, joita terveystarkastajat tekivät vuosina 2023-2025.
+
+Kerromme nyt lisää siitä, miten S-ryhmä, K-ryhmä ja Lidl selvisivät tarkastuksista.
+
+![Lähikuva lihakauppiaan kädestä, joka mittaa lihan lämpötilaa lämpötilamittarilla. ](https://img.img-cdn.yle.fi/crop_extract,w_8256,h_4644,x_0,y_77/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16589436a2a729c83503/1781167254)
+
+Avaa kuvien katselu
+
+Viranomaiset tarkastavat ruokakauppoja säännöllisesti. Tässä mitataan lihan lämpötila myyntitiskissä. Kuva: Johanna Erjonsalo / Yle
+
+## Lidl ja S-ryhmä
+
+Lidl sai kaupparyhmistä parhaat arvosanat.
+
+Lidlin kaupoissa ei ollut melkein ollenkaan ongelmia.
+
+Lidl onnistuu hyvin, koska sen kaupoissa ei ole tuoreen kalan tai lihan myyntitiskejä.
+
+Lidlin myymälöissä ei ole myöskään salaattibaareja, joissa ruoka voi pilaantua helpommin.
+
+S-ryhmän kaupat pärjäsivät myös hyvin.
+
+Prismoissa ja S-marketeissa oli ongelmia vain 2 prosentissa tarkastuksista.
+
+## K-ryhmä
+
+Eniten ongelmia oli K-ryhmän kaupoissa.
+
+K-ryhmän kaupoissa oli virheitä tai puutteita 7 prosentissa tarkastuksista.
+
+Ongelmia oli usein ruoan lämpötiloissa ja puhtaudessa.
+
+Erityisesti suuret K-Citymarketit saivat huonoja arvosanoja.
+
+Terveystarkastusten tiedot kertovat myös, että K-ryhmän tulokset huononivat kolmen vuoden aikana.
+
+![Kalakauppiaan käsi nostelee lohifileitä kalatiskissä. ](https://img.img-cdn.yle.fi/crop_extract,w_8256,h_4644,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16589396a2a7294c32dc/1781167222)
+
+Avaa kuvien katselu
+
+Kala ja liha pilaantuvat helposti. Siksi on tärkeää, että ne pysyvät koko ajan tosi kylmässä. Kuva: Johanna Erjonsalo / Yle
+
+## Erojen syyt
+
+Asiantuntijat sanovat, että suuret erot johtuvat siitä, miten kauppaketjuja johdetaan.
+
+Lidlissä ja S-ryhmässä kaikilla kaupoilla on yhteiset ja tiukat säännöt.
+
+K-ryhmässä tilanne on erilainen.
+
+Jokainen K-kauppias on yrittäjä, joka johtaa omaa kauppaa.
+
+Siksi erot eri K-kauppojen välillä ovat suuria.
+
+## Kylmäketju
+
+Ruoan oikea säilytys ja puhtaus ovat tärkeitä ihmisten terveyden takia.
+
+Esimerkiksi maito, liha ja kala täytyy pitää aina kylmässä.
+
+Tätä kutsutaan kylmäketjuksi, että tuotteet pysyvät koko ajan kylmässä.
+
+Jos kaupan kylmähylly on liian lämmin tai tilat ovat likaiset, ruoka alkaa pilaantua.
+
+Vaaralliset bakteerit alkavat kasvaa nopeasti, jos lämpötila on yli +6 astetta.
+
+Bakteerit voivat aiheuttaa ihmiselle ruokamyrkytyksen.
+
+![Asiakkaan käsi ottaa kylmähyllystä leikkelepaketin. ](https://img.img-cdn.yle.fi/crop_extract,w_8088,h_4549,x_0,y_268/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16589416a2a7298d0ec8/1781167239)
+
+Avaa kuvien katselu
+
+Myös pakattujen leikkeleiden pitää olla koko ajan kylmässä. Tarkastuksissa löytyi kauppoja, joissa leikkeleet olivat liian lämpimässä. Kuva: Johanna Erjonsalo / Yle
+
+## Kertaus
+
+Viikon uutisen aihe oli elintarviketurvallisuus.
+
+Kerrataan vielä tärkeimmät asiat.
+
+Yle tutki tiedot ruokakauppojen terveystarkastuksista.
+
+Lidl ja S-ryhmä huolehtivat ruoan puhtaudesta ja lämmöstä hyvin. K-ryhmän kaupoissa oli eniten ongelmia.
+
+Ruoan säilytys kylmässä on tärkeää, että ihmiset eivät saa ruokamyrkytystä.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

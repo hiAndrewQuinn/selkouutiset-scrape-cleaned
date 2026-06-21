@@ -1,0 +1,99 @@
+# Uutisviikko selkosuomeksi | sunnuntai 21.6.2026
+
+Kokoomusnaiset. Sofia Virta. Palautuskeskukset. Juhannus.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Kokoomusnaiset
+
+![Kuvakollaasi kokoomusnaisista.](https://img.img-cdn.yle.fi/crop_extract,w_1237,h_695,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16622766a313392dcdfd/1781609733)
+
+Avaa kuvien katselu
+
+Yle kysyi monilta kokoomusnaisilta, miksi naisten kiinnostus kokoomukseen vähenee. Kuva: Kuvakollaasi: Maiju Hakalahti / Yle. Kuvat: Mikko Kilpinen / Yle, Seppo Ahava / Yle, Antti Lähteenmäki / Yle, Mårten Lampén / Yle, Jani Saikko / Yle.
+
+Aluksi politiikkaa.
+
+Naiset kannattavat kokoomus-puoluetta vähemmän kuin ennen. Näin kertovat kannatuskyselyt.
+
+Yle selvitti, mistä naiskannattajien väheneminen johtuu, ja haastatteli puolueen omia naisia.
+
+Kokoomuksen naiset kertoivat kaksi syytä.
+
+Ensimmäinen syy ovat hallituksen säästöt. Ne ovat vaikeuttaneet monen lapsiperheen elämää.
+
+Toinen syy on se, että naiset koko Suomessa muuttuvat enemmän vasemmistolaisiksi eli kokoomus sopii harvemmille naisille kuin ennen.
+
+Kokoomuksen naiset sanovat silti, että puolueen ei pidä muuttaa politiikkaa vain sen takia, että naisilta saadaan lisää ääniä.
+
+## Vihreiden Sofia Virta
+
+![Sofia Virta kameroiden edessä vakavana.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16625866a317ac908d1e/1781627676)
+
+Avaa kuvien katselu
+
+Vihreiden puheenjohtaja Sofia Virta palasi tällä viikolla tosi-tv-ohjelman kuvauksista. Kuva: Rinna Härkönen / Yle
+
+Nyt toinen uutinen kotimaan politiikasta.
+
+Vihreiden puheenjohtaja ja kansanedustaja **Sofia Virta** osallistui Erikoisjoukot tosi-tv-ohjelman kuvauksiin.
+
+Hän oli kuvauksien takia poissa eduskunnan työstä, mutta sai silti palkkiota eduskunnasta.
+
+Monet poliitikot ovat moittineet Virtaa.
+
+Eduskunnan puhemies **Jussi Halla-aho** sanoo, että on ongelma, jos kansanedustaja on kiinni tv-työssä eikä pääse eduskuntaan.
+
+Virta sanoo, että hän haluaa palauttaa eduskunnan palkkion kuvauspäiviltä.
+
+Palkkion palauttaminen on kuitenkin vaikeaa, koska se on poikkeuksellista.
+
+## EU:n palautuskeskukset
+
+![Euroopan parlamentin täysistunnossa äänestetään.](https://img.img-cdn.yle.fi/crop_extract,w_5250,h_2953,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1584494697058d77f948/1768970640)
+
+Avaa kuvien katselu
+
+EU-parlamentti hyväksyi uuden lain maahanmuutosta. Kuva: Alain Rolland / Euroopan unioni
+
+Nyt uutinen Euroopasta ja maahanmuutosta.
+
+EU-parlamentti hyväksyi tällä viikolla uuden lain maahanmuutosta.
+
+Uusi laki sallii sen, että EU-maat voivat perustaa palautuskeskuksia Euroopan ulkopuolelle.
+
+Keskuksiin voidaan lähettää ihmiset, jotka eivät saa turvapaikkaa EU-maista.
+
+19 EU-maata vaatii jo yhteisessä kirjeessä, että keskuksia pitää perustaa nopeasti.
+
+Suomi ei allekirjoittanut EU-maiden yhteistä kirjettä.
+
+Suomi kuitenkin harkitsee palautuskeskuksen perustamista yhdessä muiden Pohjoismaiden kanssa.
+
+## Juhannus
+
+![Yleisöä festivaaleilla, lavalla Robin ja lavan yläreunassa lukee Raumanmeren juhannus.](https://img.img-cdn.yle.fi/crop_extract,w_1145,h_644,x_16,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-153594268e7a3be28e4d/1760011258)
+
+Avaa kuvien katselu
+
+Raumanmeren juhannus järjestettiin vielä viime vuonna, mutta sitä ei järjestetty tänä vuonna. Kuva: Päivi Meritähti / Yle
+
+Loppuviikolla Suomessa on vietetty juhannusta.
+
+Juhannuksen sää on ollut kaunis ja lämmin koko maassa.
+
+Juhannuksena on tapahtunut myös vakavia onnettomuuksia.
+
+Perjantaina, juhannusaattona kuoli ainakin 7 ihmistä.
+
+Kolme ihmistä hukkui veteen, ja muut kuolivat onnettomuuksissa tai väkivallan takia.
+
+Koko juhannusajan onnettomuustiedot selviävät myöhemmin ensi viikolla.
+
+Tänä vuonna Suomessa oli historiallisen vähän juhannusfestareita. Esimerkiksi kuuluisa Raumanmeren juhannus jäi tänä vuonna kokonaan pois.
+
+Monet suuret musiikkijuhlat olivat tauolla, koska ihmisillä on huonon taloustilanteen takia vähemmän rahaa kuin ennen.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

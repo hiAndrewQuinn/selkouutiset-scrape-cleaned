@@ -1,0 +1,73 @@
+# Selkouutiset | keskiviikko 8.7.2026
+
+Nato-hankinnat. Helsingin Garden. Marjanpoimijat. Sääennuste.
+
+## Naton hankinnat
+
+Aluksi uutinen taloudesta.
+
+Suomi osallistuu moniin Naton hankintoihin.
+
+Naton hankintoja on julkistettu Naton kokouksessa Turkissa.
+
+Puolustusministeri **Antti Häkkänen** on allekirjoittanut Suomelle 14 sopimusta.
+
+Esimerkiksi suomalainen firma Patria kehittää tela-ajoneuvoa, joka muunnetaan tästä pyöräajoneuvosta. EU tukee Patrian työtä.
+
+Patria tekee myös yhteistyötä ruotsalaisen Saabin kanssa.
+
+Suomalainen räjähdefirma Forcit alkaa kehittää merimiinoja Itämeren maille.
+
+Suomi osallistuu moniin Naton hankintoihin.
+
+Nato haluaa lisätä Euroopan omaa puolustuskykyä niin, että Eurooppa ei ole liian riippuvainen USA:sta.
+
+## Helsingin Garden-hallihanke
+
+Nyt uutinen politiikasta.
+
+Helsingin Garden-hallihanke suututtaa oppositiota.
+
+Monitoimihalli on suunniteltu tälle paikalle jäähallin viereen.
+
+Yle on saanut lisää tietoja hallihankkeen valmistelusta.
+
+Tiedot kertovat, että rahaministeriö kielsi valtion tuen hankkeelle. Syynä olivat lainan riskit ja muut hallihankkeet.
+
+Silti hallitus myönsi Helsingin Gardenille 35 miljoonan euron tuen.
+
+Pääministeri **Petteri Orpo** ei sanonut eduskunnassa, että rahaministeriö kielsi valtion tuen.
+
+Helsingin Garden-hallihanke suututtaa oppositiota.
+
+SDP:n eduskuntaryhmän puheenjohtaja **Tytti Tuppurainen** haluaa, että pääministeri Orpo selittää asian eduskunnalle.
+
+Vihreiden kansanedustaja **Saara Hyrkkö** sanoo, että pääministerin pitää erota, jos hän on antanut väärää tietoa eduskunnalle.
+
+Lopuksi uutinen ulkomaalaisista marjanpoimijoista.
+
+## Marjanpoimijoiden viisumit
+
+Suomi on hylännyt suurimman osan marjanpoimijoiden viisumihakemuksista.
+
+Hylkäämisen syy ovat marjanpoiminnan monet ongelmat.
+
+Marjanpoimijoita on käytetty hyväksi. Heillä on ollut huonot olot ja huono palkka. Toiminnassa on ollut ehkä ihmiskauppaa.
+
+Ulkoministeriö arvioi, että firmat eivät noudata sääntöjä eivätkä työntekijöiden oikeuksia.
+
+Siksi Suomi on hylännyt suurimman osan ulkomaalaisten marjanpoimijoiden viisumihakemuksista.
+
+Suomi on saanut noin 2200 hakemusta. Niistä 1400 hakemusta on jo hylätty.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Torstaina sataa etelässä.
+
+Muualla sataa vain välillä.
+
+Pohjoisessa on pilvistä.
+
+Lämpötila on 15 ja 20 asteen välillä.

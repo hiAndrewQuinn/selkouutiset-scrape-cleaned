@@ -1,0 +1,57 @@
+# Selkouutiset | keskiviikko 15.7.2026
+
+Tekoäly politiikassa. Pauligin muutos. Merivartijat ensihoitajina. Sää.
+
+## Tekoäly politiikassa
+
+Aluksi tekoälystä politiikassa.
+
+Moni äänestäjä voi käyttää tekoälyä oman ehdokkaan etsimiseen.
+
+Yle selvitti, mitä Googlen tekoäly kertoo nykyisistä kansanedustajista.
+
+Kävi ilmi, että tekoäly voi pitää poliitikon omia mainoslauseita yleisinä totuuksina. Tekoäly ei välttämättä tunnista objektiivista tietoa.
+
+Tietojenkäsittelytieteen professori Teemu Roos sanoo, että tekoälyn tiivistelmiä on mahdollista ohjailla. Kun poliitikko laittaa jonkin tiedon mahdollisimman moneen paikkaan, tekoäly alkaa nostaa tätä tietoa esiin.
+
+Moni äänestäjä voi käyttää tekoälyä ehdokkaan etsimiseen. Eduskuntavaalit ovat ensi keväänä.
+
+## Ilmastonmuutos ja Pauligin kahvi
+
+Sitten kahvimarkkinoista.
+
+Ilmastonmuutoksen seuraukset yleistyvät ja haittaavat kahvipensaiden satoa. Se on ajanut kahvialan jätti Pauligin muuttamaan toimintaa.
+
+Noin 5 vuotta sitten Paulig päätti tehdä käänteen ruokateollisuuteen.
+
+Yhtiö on ostanut useita yhtiöitä muualta Euroopasta. Nyt se on Euroopan markkinajohtaja texmex-ruokatuotteissa. Liikevaihdosta suurin osa on nyt ruokaa
+
+Pauligin kahvipaahtimo perustettiin vuonna 1876 Helsingissä.
+
+Paulig tuottaa edelleen Vuosaaren paahtimossa jopa sata miljoonaa kahvipakettia vuodessa. Kahvibisnes on kuitenkin ollut arvaamatonta, koska ilmastonmuutos on haitannut kahvisatoa.
+
+## Merivartijat ensihoidossa
+
+Vielä hoitotyöstä.
+
+Merivartijat ovat toimineet ensihoitajina Saaristomerellä tänä kesänä. Merivartijat ovat auttaneet hyvinvointialuetta ensivastetehtävissä.
+
+Tehtäviä on ollut noin 30. Merivartijat ovat olleet ensimmäisenä paikalla kesämökeillä 10 tapauksessa.
+
+Yhteistyön tavoite on saada apu mahdollisimman nopeasti perille.
+
+Merivartijat ovat aiemmin antaneet vastaavaa apua Suomenlahdella.
+
+Merivartijat ovat toimineet kesällä ensihoitajina. Heidät on koulutettu jopa synnytyksiä varten.
+
+\- Sairaala voi kyl olla mukavampi paikka synnyttää kuin meijän partiovene.
+
+## Sää
+
+Lopuksi sääennuste.
+
+Torstaina sää on aurinkoista suuressa osassa Suomea.
+
+Lämpötilat nousevat lähes koko maassa 20 asteen yläpuolelle.
+
+Osassa maata voi olla hellettä.

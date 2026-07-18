@@ -1,0 +1,95 @@
+# Viikon uutinen selkosuomeksi | lauantai 18.7.2026
+
+Retkeilyn suosio kasvaa.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Kesälomakausi on nyt vilkkaassa vaiheessa.
+
+Retkeily ja telttailu Suomessa kiinnostaa ulkomaalaisia. Samaan aikaan valtion retkeilypaikoilla on paljon muutoksia.
+
+Nyt kerromme retkeilystä lisää.
+
+## Telttailu ja pakuelämä ovat suosittuja
+
+![Vanhahko mies seisoo sinivalkoisen retkeilyauton vieressä kesäisessä ympäristössä.](https://img.img-cdn.yle.fi/crop_extract,w_7008,h_3942,x_0,y_730/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16748826a523a96066cd/1783775050)
+
+Avaa kuvien katselu
+
+Sveitsiläinen Heinz Kronauer on matkaillut samalla autolla jo lähes 50 vuotta. Kuva: Jukka Lehto / Yle
+
+Retkeily on elämäntapa, jonka vapaus viehättää. Suurimmassa osassa Suomen kaupungeista on leirintäalue.
+
+Telttailu, matkailuautoilu ja ”van life” kasvattavat suosiota. Van life eli pakuelämä tarkoittaa esimerkiksi pakettiauton muuttamista liikkuvaksi kodiksi.
+
+Leirintäalueiden mökkejä varataan nyt vähemmän kuin ennen.
+
+## Suurissa kaupungeissa on usein leirintäalue
+
+![Nurmialueella useita vihreitä telttoja, keskellä puisia penkki- ja pöytäryhmiä, taustalla puita ja tie.](https://img.img-cdn.yle.fi/crop_extract,w_7008,h_3942,x_0,y_673/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16748936a523a9d56d0f/1783775134)
+
+Avaa kuvien katselu
+
+Rastilan leirintäalue Helsingissä kesällä 2026. Kuva: Jukka Lehto / Yle
+
+Suomen retkeilyalueet ja leirintäalueet houkuttelevat yhä enemmän ulkomaalaisia turisteja. Ulkomaalaisten osuus on kasvanut joka vuosi.
+
+He arvostavat sitä, että Suomen leirintä­alueille voi mennä ilman ennakko­varausta. Silloin matkaa ei tarvitse suunnitella ennakkoon.
+
+Ulkomaalaiset myös sanovat, että retkeilijä näkee paljon. Silloin voi nähdä myös luontoa, ei pelkästään kaupunkeja.
+
+## Kansallispuistot ja retkeilyalueet
+
+![Polttopuita nuotiopaikan penkillä. ](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16585806a297f829a194/1781105149)
+
+Avaa kuvien katselu
+
+Urjan taukopaikka, josta puuhuolto loppuu. Urja sijaitsee Nuuksion kansallispuistossa Espoossa. Kuva: Matti Myller / Yle
+
+Suomessa Metsähallitus hoitaa kaikkia kansallispuistoja. Metsähallitus tuottaa myös maksuttomia retkeilypalveluja.
+
+Metsähallitus on nyt vähentänyt taukopaikkojen huoltoa, koska rahaa ei ole tarpeeksi. Monessa paikassa ei enää ole esimerkiksi polttopuita.
+
+Suomen Retkeilyliitto varoittaa, että luonto kärsii. Ihmiset keräävät polttopuita metsistä ja kulkevat kävelyreittien ulkopuolella.
+
+Jotkin retkeilypaikat voivat myöhemmin siirtyä kuntien huolenpitoon.
+
+## Puskaparkit
+
+![Asuntoauto parkkipaikalla. Takana metsää.](https://img.img-cdn.yle.fi/crop_extract,w_4616,h_2596,x_0,y_58/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1294327665979948fc1b/1717140699)
+
+Avaa kuvien katselu
+
+Puskaparkki Jyväskylän Säynätsalossa.  Kuva: Jarkko Riikonen / Yle
+
+Puskaparkit ovat yhä suositumpia.
+
+Puskaparkki tarkoittaa esimerkiksi matkailuautolla leiriytymistä muualla kuin leirintäalueella. Tällaisia paikkoja ovat rannat, metsänreunat ja pysähdyspaikat.
+
+Kaikkialla ei pidetä puskaparkeista. Matkailijat aiheuttavat joskus häiriöitä ja jättävät alueelle roskia.
+
+Suomessa ovat voimassa jokaisenoikeudet. Se tarkoittaa, että tilapäinen oleskelu ja yöpyminen on sallittua siellä, missä liikkuminenkin on sallittua.
+
+Oleskelu ei saa aiheuttaa häiriötä tai haittaa toisille tai ympäristölle.
+
+Suojelualueilla liikkumista voidaan kuitenkin rajoittaa.
+
+## Kertaus
+
+![jokamiehenoikeudet](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5152205bbb5365e0946/1539003266)
+
+Avaa kuvien katselu
+
+Suomessa jokaisenoikeudet antaa paljon mahdollisuuksia nauttia luonnosta. Nimi oli aiemmin jokamiehenoikeudet.
+
+Kerrataan vielä.
+
+Telttailu, matkailuautoilu ja van life eli pakuelämä kasvattavat suosiota.
+
+Ulkomaalaiset tykkäävät retkeillä Suomessa, sillä paikkaa ei tarvitse varata ennakkoon.
+
+Suomessa ovat voimassa jokaisenoikeudet.
+
+Tässä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

@@ -1,0 +1,63 @@
+# Selkouutiset | tiistai 21.7.2026
+
+Työttömyys. Hallitus ja Garden-hanke. Britannian uusi pääministeri. Rapukausi. Keskiviikon sää.
+
+*Valitettavasti lähetyksen tekstitys puuttuu teknisen ongelman vuoksi. Pahoittelut! Voit lukea tekstin alapuolelta.*
+
+## Työttömyys
+
+Aluksi aiheena on työttömyys.
+
+Työttömien määrä kasvoi kesäkuussa.
+
+Tilastokeskus kertoo, että työttömiä oli lähes 300 000. Se on hieman enemmän kuin vuosi sitten.
+
+Työttömyysaste oli 10,5 prosenttia.
+
+Työttömien määrä kasvoi kesäkuussa. Työtilanne on heikentynyt erityisesti 25–34-vuotiailla.
+
+## Hallitus ja Garden-hanke
+
+Sitten politiikkaa.
+
+Hallitus ei tue enää Garden Helsinki -hanketta.
+
+Asiasta päättivät hallituspuolueiden puheenjohtajat yhdessä. Vielä aiemmin hallitus lupasi hankkeelle rahaa.
+
+Nyt pääministeri **Petteri Orpo** sanoo, että hallihanke on pienentynyt ja viivästynyt. Siksi hallitus ei enää tue Garden Helsinki -hanketta.
+
+Myös eduskunnassa on puhuttu tänään hallista ja hallituksen toimista. Oppositio haluaa tietää, miksi hallitus lupasi hallihankkeeseen rahaa.
+
+## Britannian uusi pääministeri
+
+Sitten uutinen Britanniasta.
+
+Britanniassa on uusi pääministeri. Työväenpuolueen johtaja **Andy Burnham** nimitettiin pääministeriksi eilen.
+
+Burnham oli aiemmin Manchesterin pormestari.
+
+Britannian pääministeri on vaihtunut usein. Burnham on jo 7. pääministeri 10 vuoden sisällä.
+
+## Rapukausi
+
+Lopuksi aiheena on rapukausi.
+
+Rapukausi on alkanut.
+
+Kalatalouden keskusliitto sanoo, että rapusaaliista odotetaan normaalia. Lämpimät vedet ovat auttaneet rapujen lisääntymistä.
+
+Suomessa pyydetään joka vuosi noin 3,5 miljoonaa rapua. Suurin osa saaliista on täplärapua.
+
+Rapukausi käynnistyi keskipäivällä. Se jatkuu lokakuun loppuun asti.
+
+Rapujen pyydystämiseen pitää olla lupa. Lisäksi pitää maksaa kalastusmaksu valtiolle.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää on vaihtelevaa.
+
+Idässä ja osin Lapissa voi sataa vähän. Muualla on poutaa.
+
+Lämpötila on osassa maata hyvin viileä.

@@ -1,0 +1,59 @@
+# Selkouutiset | perjantai 24.7.2026
+
+Nokian nousu. Museokortin vaikutukset. Kimalaistutkimus. Sää.
+
+## Nokian tulos
+
+Aluksi tulosuutinen.
+
+Tietoliikennealan yhtiö Nokia on tehnyt hyvän tuloksen. Nokian liikevoitto nousi 18 prosenttia ja oli suurempi kuin odotettiin.
+
+Myynti tekoälyasiakkaille ja pilvipalveluasiakkaille kasvoi 105 prosenttia. Tilauksia on 2,8 miljardin euron arvosta.
+
+Tekoälyn noste ja datakeskukset ovat Nokialle yhä arvokkaampia.
+
+Nokia on tehnyt hyvän tuloksen.
+
+Osakkeen arvo on vuodessa yli kaksinkertaistunut.
+
+Asiantuntijat sanovat, että Nokia on syntymässä nyt uudelleen. Nokia oli aiemmin maailman ylivoimaisesti suurin matkapuhelinvalmistaja. Myöhemmin Nokia keskittyi tietoverkkoihin.
+
+## Museokortti
+
+Nyt Museokortista.
+
+Suosittu Museokortti on lähes kaksinkertaistanut museoiden kävijämäärän. Samalla kertalippujen hinnat ovat kaksinkertaistuneet.
+
+Museokortti tuli käyttöön vuonna 2015. Museokortti on suomalaisten museoiden yhteinen pääsylippu. Vuosihinta on nyt 86 euroa.
+
+Museo saa korttikävijästä noin puolet pääsylipun hinnasta. Rahaa on tullut sitä enemmän, mitä korkeampi pääsylipun hinta on ollut. Se on nostanut lippujen hintaa.
+
+Hintoja on nostanut myös yleisen hintatason nousu.
+
+Museokortti on kaksinkertaistanut museoiden kävijämäärän ja kertalippujen hinnat.
+
+Ensi vuonna voimaan tulee hintakatto, joka on hieman alle 24 euroa. Sitä kalliimmista hinnoista museot eivät saa Museokortti-korvausta.
+
+## Kimalaistutkimus
+
+Nyt uutinen kimalaisista.
+
+Kimalaisten pörräämistä on seurattu uuden teknologian avulla.
+
+Tyrvännön Marja ja Vihannes oy halusi tehostaa mansikoiden ja vadelmien pölytystä. Tunneleihin asennettiin viime kesänä kuuntelulaitteita.
+
+Huomattiin, että pölytys on aktiivisinta kello 10 ja 15 välillä.
+
+Kimalaisia on seurattu uuden teknologian avulla.
+
+Havaintojen perusteella tilalla kimalaispesät tehtiin parempiin paikkoihin keskelle tunneleita.
+
+## Sää
+
+Vielä sääennuste.
+
+Sää on epävakainen, eli aina välillä sataa.
+
+Idässä voi paistaa aurinko. Lännessä on pilvistä.
+
+Lämpötila on 15 ja 21 asteen välillä.

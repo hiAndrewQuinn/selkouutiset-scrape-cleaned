@@ -1,0 +1,59 @@
+# Selkouutiset | tiistai 28.7.2026
+
+Ranskan ja Espanjan maastopalot. Romutuspalkkio. Älysienestys. Sää.
+
+## Ranskan ja Espanjan maastopalot
+
+Aluksi maastopaloista Euroopassa.
+
+Ranskassa riehuvat tuhoisat maastopalot.
+
+Pahimmat palot ovat Gironden alueella Lounais-Ranskassa. Liekit ovat tuhonneet jo 42 000 hehtaaria maastoa.
+
+Maastopalot jatkuvat seitsemättä päivää. Yli 200 000 ihmistä on joutunut jättämään kodin.
+
+Ranskan presidentti Emmanuel Macron piti eilen hätäkokouksen ja vieraili tuhoalueella.
+
+Sisäministeri kertoi, että palo synnytti viikonloppuna erityisen ukkospilven. Se aiheutti voimakkaita tuulia, ja palavaa ainetta lensi ympäri maastoa.
+
+Tällaista pilveä ei ole ennen havaittu Ranskassa.
+
+Ranskan lisäksi maastopalot aiheuttavat tuhoa Espanjassa, jossa helle pahenee jälleen. 100 000 ihmistä on jättänyt kodin. 77 000 hehtaaria on palanut 3 provinssin alueella.
+
+Suomen ulkoministeriö kehottaa suomalaisia välttämään paloalueita ja seuraamaan paikallisten viranomaisten ohjeita.
+
+## Romutuspalkkio
+
+Sitten romutuspalkkiosta.
+
+Pienituloiset voivat pian saada jopa 6000 euron tuen täyssähköauton hankintaan. Edellytys on vanhan bensiini - tai dieselauton romutus eli kierrättäminen.
+
+Romutuspalkkion voi käyttää uuden tai käytetyn sähköauton ostoon.
+
+Palkkiolla voi myös liisata eli vuokrata täyssähköauton pitkäaikaiseen käyttöön.
+
+Romutuspalkkion tukihaku alkaa ehkä ensi vuoden lopulla. Tuensaajan tuloraja on noin 25 000 euroa vuodessa.
+
+Asia vaatii vielä eduskunnan hyväksymisen.
+
+## Älysienestys
+
+Lopuksi sienestyksestä.
+
+Itä-Suomen yliopiston tutkijat haluavat helpottaa sienestystä teknologialla.
+
+Älylasien avulla voi ehkä tulevaisuudessa erottaa esimerkiksi herkkutatit paremmin kuin paljain silmin.
+
+Älylaseihin voi ainakin teoriassa laittaa tekniikkaa, jolla voi valita sienilajin. Tekniikka on spektrikuvantaminen.
+
+Itä-Suomen yliopiston tutkijat uskovat, että teknologia voi kolminkertaistaa sienestämisen tehokkuuden. Meneillään on vasta tutkimus, eikä rahoitusta vielä ole.
+
+## Sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää on suuressa osassa maata poutainen.
+
+Pohjoisessa kuitenkin voi vielä sataa vähän.
+
+Lämpötila koko maassa on noin 20 astetta.

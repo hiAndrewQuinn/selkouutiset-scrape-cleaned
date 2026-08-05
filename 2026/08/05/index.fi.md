@@ -1,0 +1,55 @@
+# Selkouutiset | keskiviikko 5.8.2026
+
+Rajaturistit. Alkon aukiolo. Aasipula. Sää.
+
+## Itärajan turistit
+
+Aluksi uutinen itärajasta.
+
+Suomen itäraja kiinnostaa turisteja.
+
+Turistit käyvät katsomassa rajaa, vaikka se on ollut kiinni joulukuusta 2023 lähtien.
+
+Raja suljettiin, kun Venäjä alkoi päästää sen yli turvapaikanhakijoita Suomeen.
+
+Kaakkois-Suomen rajanylitypaikoilla käy silti useita turisteja viikoittain.
+
+Amerikkalainen **Jason Blom** vieraili Vaalimaalla heinäkuussa. Hän yllättyi siitä, että raja Suomen ja Venäjän välillä todella on kokonaan kiinni.
+
+Koska tie rajalle on suljettu, turistit käyvät aitojen luona ja lähtevät sitten pois.
+
+## Alkon aukiolo
+
+Sitten uutinen Alkon myymälöistä.
+
+Alko aikoo laajentaa sunnuntain aukioloa.
+
+Alkoholilain muutos tuli voimaan heinäkuun alussa. Sen jälkeen Alkon myymälät ovat voineet olla auki myös sunnuntaina.
+
+Alkolla on yhteensä noin 360 myymälää. Niistä 35 on nyt auki myös sunnuntaisin.
+
+Alko aikoo laajentaa sunnuntain aukioloa uusiin myymälöihin.
+
+Alko kertoo, että sunnuntain aukiolosta on tullut asiakkailta hyvää palautetta.
+
+## Aasipula
+
+Lopuksi aiheena ovat aasit.
+
+Suomessa on pulaa aaseista.
+
+Uusi laki eläinten hyvinvoinnista sanoo, että aasilla pitää olla seurana oma lajitoveri eli toinen aasi.
+
+Tähän asti aasilla on usein ollut kaverina poni tai hevonen. Tutkimukset kuitenkin kertovat, että aasi ja hevonen eivät voi täysin ymmärtää toisiaan. Sen takia aasi tarvitsee aasikaverin.
+
+Kymmenet aasinomistajat haluavat nyt ostaa toisen aasin. Sen takia Suomessa on pulaa aaseista.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Torstaina sää on isossa osassa maata sateista ja voi ukkostaa.
+
+Tuuli on puuskaista maan etelä- ja keskiosassa.
+
+Lämpötilat jäävät osassa maata 20 asteen alapuolelle.

@@ -1,0 +1,93 @@
+# Viikon uutinen selkosuomeksi | lauantai 15.8.2026
+
+Talousennusteiden virheet.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+*(Viikon uutinen selkosuomeksi -ohjelmaa ei kuulla lauantaina 15.8. Radio Suomessa, koska Radio Suomi lähettää ohjelmaa yleisurheilun EM-kisoista.)*
+
+## Viikon aiheen esittely
+
+Ohjelman aihe on tällä kertaa talousennusteiden virheet.
+
+Kalevi Sorsa -säätiö julkaisi tällä viikolla raportin talousennusteista.
+
+Raportti kertoo, että asiantuntijoiden talousennusteet epäonnistuvat usein paljon.
+
+Kerromme nyt lisää siitä, miksi talousennusteet epäonnistuvat ja mitä siitä seuraa.
+
+![Henkilökuvassa Lauri Finér, toiminnanjohtaja ja Jussi Systä, talouspolitiikan asiantuntija, Kalevi Sorsa -säätiöstä.](https://img.img-cdn.yle.fi/crop_extract,w_5643,h_3174,x_0,y_200/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16888296a79a56488892/1786357278)
+
+Avaa kuvien katselu
+
+Tutkijat Lauri Finér ja Jussi Systä ovat tutkineet talousennusteita. He työskentelevät Kalevi Sorsa -säätiössä. Kuva: Esa Syväkuru / Yle
+
+## Talousennusteiden ongelma
+
+Kalevi Sorsa -säätiö tutki, miten suomalaiset asiantuntijat ennustavat talouden kasvua ja talouden käänteitä.
+
+Ennusteet toteutuvat vain harvoin.
+
+Ongelma on se, että ennustajat tekevät ennusteet tilastotiedoilla. Tilastotiedot ovat kuitenkin usein vanhoja tai epätarkkoja.
+
+Koska asiantuntijat eivät tiedä tarkasti talouden nykytilannetta, heidän on mahdotonta ennustaa hyvin tulevaa taloustilannetta.
+
+Ennusteet osuvat oikein joskus vain sattumalta.
+
+## Talousennusteet ja hallituksen päätökset
+
+![ Pääministeri Petteri Orpo ja valtiovarainministeri Riikka Purra tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_7483,h_4200,x_0,y_156/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-151673968b826f712a27/1756899200)
+
+Avaa kuvien katselu
+
+Valtiovarainministeri Riikka Purra ja pääministeri Petteri orpo päättävät hallituksessa paljon asioita talousennusteiden avulla. Kuva: Henrietta Hassinen / Yle
+
+Suomen hallitus tekee tärkeät päätökset talousennusteiden perusteella.
+
+Siksi väärät talousennusteet ovat iso ongelma yhteiskunnalle.
+
+Esimerkiksi valtiovarainministeriö tekee ennusteita, joita hallitus käyttää, kun se suunnittelee valtion budjetin.
+
+Hallitus lukee ennusteita, kun se arvioi sopeutustarpeita eli tekee päätöksiä veroista ja leikkauksista.
+
+Tutkijat varoittavat, että poliitikot voivat tehdä vääriä päätöksiä, koska ennusteet ovat epätarkkoja.
+
+Tutkijat sanovat, että poliitikkojen ei pidä luottaa liian paljon talousennusteisiin.
+
+Tutkijat suosittelevat, että poliitikot käyttävät tuoreita lukuja ja veroviranomaisten tietoja.
+
+## Talousennusteiden tekijät
+
+![Olli Rehn puhuu Suomen Pankin tilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_3795,h_2134,x_0,y_131/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-14789816848220c52267/1749557952)
+
+Avaa kuvien katselu
+
+Talousennusteita laatii esimerksi Suomen Pankki. Kuvassa on Suomen Pankin pääjohtaja on Olli Rehn. Kuva: Jussi Koivunoro / Yle
+
+Talousennusteita tekevät Suomessa monet eri laitokset.
+
+Ennusteita tekevät esimerkiksi valtiovarainministeriö, Suomen Pankki ja Pellervon taloustutkimus.
+
+Ne puolustavat talousennusteita.
+
+Ennustajat myöntävät, että tarkkoja lukuja ja talouden muutoksia on vaikea arvioida etukäteen.
+
+Ennustajat kuitenkin sanovat, että ennusteista on apua päättäjille.
+
+Ennustajat sanovat, että tärkeää on yleinen iso kuva taloudesta, ei pienet luvut.
+
+## Kertaus
+
+Viikon uutinen selkosuomeksi kertoi tällä kertaa talousennusteista.
+
+Kerrataan vielä tärkeimmät asiat.
+
+Kalevi Sorsa -säätiön uusi raportti kertoo, että asiantuntijoiden talousennusteet epäonnistuvat usein paljon, koska lähtötiedot ovat epätarkkoja.
+
+Tutkijat haluavat, että poliitikot tekevät talouspäätökset todellisen tilanteen perusteella, mutta ei ennusteiden perusteella.
+
+Ennustelaitokset puolustavat ennusteita ja sanovat, että niistä on kuitenkin apua päättäjille.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

@@ -1,0 +1,75 @@
+# Viikon uutinen selkosuomeksi | lauantai 22.8.2026
+
+Poliisin voimankäyttö.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Viikon aihe
+
+Ohjelman aihe on tällä kertaa poliisin voimankäyttö. Lyhyessä ajassa sattui monta tapausta, joissa poliisi ehkä käytti liikaa voimaa. Syyttäjä tutkii tapauksia.
+
+Kerromme nyt lisää poliisin voimankäytöstä.
+
+## Poliisin voimankäytöstä puhutaan
+
+![Poliisin virka-ase.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_56/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81755960bf496b78e64/1623152591)
+
+Avaa kuvien katselu
+
+Kuva: Petteri Sopanen / Yle
+
+Tällä viikolla on puhuttu paljon siitä, onko poliisi käyttänyt liikaa voimaa. Lyhyen ajan sisällä sattui 3 tapausta, joista nyt puhutaan.
+
+Tuusulassa poliisi ajoi autolla nuoren mopoilijan eteen. Mopo ajoi ulos tieltä ja törmäsi aitaan. Mopoilija loukkaantui.
+
+Tampereella poliisi osoitti miestä aseella, kun mies avasi poliisin pakettiauton oven.
+
+Espoossa kehitysvammainen mies kuoli, kun poliisi käytti etälamautinta.
+
+Jos epäillään, että poliisi on rikkonut lakia, asiaa tutkii syyttäjä. Kaikkien 3 tapauksen tutkinta on vielä kesken. Siksi ei vielä tiedetä, ovatko poliisit rikkoneet lakia.
+
+## Voimankäytön rajat
+
+![Poliisin käyttämä etälamautin.](https://img.img-cdn.yle.fi/crop_extract,w_2669,h_1501,x_0,y_1470/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16936496a856cb10b0f4/1787129124)
+
+Avaa kuvien katselu
+
+Kuva: Vesa Moilanen / Lehtikuva
+
+Poliisi saa käyttää voimaa, jos tilanne on vaarallinen. Poliisi voi käyttää voimaa myös silloin, jos ihminen vastustaa poliisia eikä tottele käskyjä.
+
+Poliisi voi esimerkiksi pitää ihmisestä kiinni. Voimankäyttö tarkoittaa myös käsirautojen tai etälamauttimen käyttöä.
+
+Poliisi ei saa käyttää liikaa voimaa. Poliisin pitää valita mahdollisimman kevyt keino.
+
+Poliisi saa käyttää asetta vain, jos tilanne on hyvin vakava.
+
+Poliisin pitää lopettaa voimankäyttö heti, kun tilanne on ohi.
+
+## Poliisi selvittää voimankäyttöä
+
+![Ilkka Koskimäki tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_4663,h_2617,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-142826767c063718f351/1740734975)
+
+Avaa kuvien katselu
+
+Kuva: Markku Pitkänen / Yle
+
+Poliisin johtaja **Ilkka Koskimäk**i sanoo, että poliisi on tehnyt virheitä.
+
+Poliisiylijohtaja Koskimäki sanoo, että poliisin pitää nyt selvittää, miten se käyttää voimaa.
+
+Poliisi miettii, pitääkö työtapoja tai koulutusta muuttaa.
+
+Poliisi kertoo, että väkivaltaisia tilanteita on enemmän kuin ennen. Siksi poliisi käyttää voimaa useammin kuin aikaisemmin.
+
+## Kertaus
+
+Viikon uutinen selkosuomeksi kertoi tällä kertaa poliisin voimankäytöstä.
+
+Kerrataan vielä tärkeimmät asiat.
+
+Tällä viikolla on puhuttu paljon siitä, käyttääkö poliisi joskus liikaa voimaa. Lyhyessä ajassa sattui 3 tapausta, joita syyttäjä nyt tutkii. Poliisijohtaja sanoo, että poliisi on tehnyt virheitä.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

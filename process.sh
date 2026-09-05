@@ -362,15 +362,24 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
               log_message "MD Skip Decision: Current SHA1 '$current_sha1' matches stored. Target FI MD exists. MD generation skipped. $processed_day_log_suffix, TargetMD: '$target_md_fi_file'"
             fi
           else
-            log_message "CRITICAL HASH MISMATCH! Stored SHA1: '$stored_sha1', Current SHA1: '$current_sha1'. ABORTING SCRIPT. $processed_day_log_suffix"
-            # Consider if you want to update the hash here or just abort. Current script aborts.
-            # If you wanted to update and regenerate:
-            # log_message "Hash mismatch. Will update hash and regenerate FI MD."
-            # generate_md=true
-            # reason_for_md_gen="hash mismatch, will update and regenerate; "
-            # sed -i -e "\#^${source_html_file_for_hash} \#d" "$HASH_FILE" # Remove old hash
-            # printf "%s %s\n" "$source_html_file_for_hash" "$current_sha1" >>"$HASH_FILE" # Add new hash
-            exit 2 # Current behavior is to abort on mismatch
+            # The upstream scrape repository is an actively corrected data source: it
+            # rewrites historical HTML when a bad edition is re-fetched or a wrong
+            # edition date is fixed. A changed SHA1 is therefore a normal "source
+            # content was corrected" signal, not corruption. Previously this branch
+            # ran 'exit 2', which aborted the entire run at the FIRST corrected day
+            # and starved every later (newer) day of processing. Now we update the
+            # recorded hash and regenerate the day's artifacts, which cascades into
+            # regenerating the request JSON, the cached API response and index.en.md.
+            log_message "HASH CHANGED (source corrected upstream): Stored SHA1: '$stored_sha1', Current SHA1: '$current_sha1'. Updating hash and regenerating artifacts. $processed_day_log_suffix"
+            generate_md=true
+            reason_for_md_gen="source HTML changed upstream (hash mismatch), updating hash and regenerating; "
+            # Drop the stale entry, then re-add it with the current hash. '|| true'
+            # keeps 'set -e' from killing the run when grep -v matches nothing.
+            hash_tmp_file="${HASH_FILE}.tmp.$$"
+            grep -v -F -- "$source_html_file_for_hash " "$HASH_FILE" >"$hash_tmp_file" || true
+            mv "$hash_tmp_file" "$HASH_FILE"
+            printf "%s %s\n" "$source_html_file_for_hash" "$current_sha1" >>"$HASH_FILE"
+            log_message "HASH CHANGED: Rewrote '$HASH_FILE' entry for '$source_html_file_for_hash' to '$current_sha1'."
           fi
         fi
       fi

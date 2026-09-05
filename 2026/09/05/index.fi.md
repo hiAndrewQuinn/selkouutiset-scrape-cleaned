@@ -1,0 +1,71 @@
+# Viikon uutinen selkosuomeksi | lauantai 5.9.2026
+
+Suomen valtion budjetti.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Viikon aiheen esittely
+
+Ohjelman aihe on tällä kertaa Suomen valtion budjetti. Hallitus on sopinut valtion tuloista ja menoista. Valtion menot ovat ensi vuonna suuremmat kuin tulot.
+
+Kerromme nyt lisää valtion ensi vuoden budjetista.
+
+## Valtion tulot ja menot
+
+![Petteri Orpo tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_5933,h_3337,x_0,y_308/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17008586a97262a0f1be/1788291172)
+
+Avaa kuvien katselu
+
+Kuva: Silja Viitala / Yle
+
+Hallitus sopi tällä viikolla valtion ensi vuoden budjetista. Budjetti kertoo, mihin valtio käyttää rahaa ja mistä se säästää. Tämä on pääministeri Petteri Orpon hallituksen viimeinen budjetti.
+
+Valtion budjetti on alijäämäinen. Valtiolla on siis ensi vuonna enemmän menoja kuin tuloja.
+
+Hallitus leikkaa sosiaali- ja terveysjärjestöjen rahoja. Moni kunta saa valtiolta vähemmän rahaa kuin ennen. Valtio myös tukee asuntorakentamista vähemmän kuin aikaisemmin.
+
+Lisää rahaa Suomen valtio käyttää puolustukseen. Lisärahaa annetaan myös Ukrainan tukemiseen.
+
+Tie- ja ratatöihin tulee lisää rahaa. Myös tutkimukseen ja kehittämiseen annetaan rahaa enemmän kuin aikaisemmin.
+
+## Verotus
+
+![Autoja jonottamassa tankille Ruotsin Haaparannassa.](https://img.img-cdn.yle.fi/crop_extract,w_3990,h_2245,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16721736a4b913b49f90/1783337481)
+
+Avaa kuvien katselu
+
+Kuva: Antti Ullakko / Yle
+
+Hallitus päätti ensi vuoden veroista.
+
+Verotus muuttuu niin, että yritysten maksama yhteisövero laskee 20 prosentista 18 prosenttiin. Yhteisövero on vero, jota firma maksaa voittorahoista.
+
+Pieni- ja keskituloisten palkkaverotus kevenee. Tämä voi tarkoittaa joillekin ihmisille noin 100 tai 200 euron lisärahaa vuodessa.
+
+Bensiinin ja dieselin hinta voi laskea vähän, koska polttoaineita verotetaan vähemmän kuin aikaisemmin. Alkoholin ja tupakan verot nousevat.
+
+## Opposition arvostelu
+
+![-](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_375/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17015566a986ac289435/1788374160)
+
+Avaa kuvien katselu
+
+Kuva: Mikko Koski / Yle
+
+Oppositio arvostelee budjettia. Oppositiopuolueet arvostelevat yhteisöveron laskua.
+
+Oppositio sanoo, että hallitus antaa rahaa firmoille ja leikkaa järjestöiltä.
+
+Opposition mielestä Suomen talous kärsii päätöksistä.
+
+SDP:n puheenjohtajan Antti Lindtmanin mielestä rahat pitää käyttää siihen, että työpaikkoja tulee lisää.
+
+## Kertaus
+
+Viikon uutinen selkosuomeksi kertoi tällä kertaa Suomen valtion budjetista. Kerrataan vielä tärkeimmät asiat.
+
+Hallitus on sopinut valtion ensi vuoden tuloista ja menoista. Menoja on enemmän kuin tuloja. Eniten lisärahaa menee puolustukseen. Pieni- ja keskituloiset maksavat palkasta vähemmän veroja kuin aikaisemmin. Opposition mielestä päätökset heikentävät Suomen taloutta.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

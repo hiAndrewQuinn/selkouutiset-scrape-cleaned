@@ -1,55 +1,63 @@
-# Clear News | Thursday 27.8.2026
+# Clear News | Friday 28.8.2026
 
-Social security customer fees. Nepal flood. Brain health. Friday's weather.
+The King of Norway has died. Nepal floods worsen. Housing. Weather
 
-## Social security customer fees
+## The King of Norway is dead
 
-Initially, the topic will be social and healthcare customer fees.
+First, news from Norway.
 
-There are large regional differences in customer fee discounts, according to a study by the Finnish Social Insurance Organization (Soste).
+King Harald V of Norway has died. He was 89 years old.
 
-Place of residence affects whether social security customer fee relief is possible if necessary.
+King Harald died in hospital due to a blood disease.
 
-For example, you can apply for a discount on a health center's doctor's fee in 9 welfare regions. However, the discount is not possible in 12 regions and Helsinki.
+Harald became King of Norway in 1991.
 
-There are large regional differences in discounts on social security customer fees.
+Harald loved sports. He sailed in the Olympics three times.
 
-A discount may be necessary if the customer's financial situation is very poor.
+As a child, Harald was forced to flee abroad when Germany invaded Norway in 1940. The royal family returned to Norway in 1945.
 
-## Nepal flood
+Harald married **Sonja Haraldsen** in 1968. It caused a big stir because Sonja was not of noble birth.
 
-Then the news of a natural disaster.
+King Harald V of Norway has died.
 
-A major rescue operation is underway in Nepal.
+The new king of Norway is Harald and Sonja's son, Crown Prince **Haakon**.
 
-A major flood and mudslide swept across a large area on the Nepal-Tibet border yesterday.
+## Nepal floods are getting worse
 
-At least 180 people have died. Hundreds are under house arrest.
+Next news about the floods in Nepal.
 
-Many of the missing are foreigners. There are popular hiking trails in the disaster area.
+At least 500 people have died in severe floods in Nepal. 1,500 people are missing. One Finnish tourist is also missing.
 
-A major rescue operation is underway in Nepal due to flooding and mudslides.
+There were landslides and flash floods in Nepal on Wednesday.
 
-The flood was perhaps caused by the collapse of a glacier in the Himalayan mountains.
+Authorities suspended rescue efforts today because Nepal is threatened by new floods. New floods may occur because a dam on the Nepal-Tibet border broke.
 
-## Brain health
+In Nepal, about 500 people have died and 1,500 people are missing due to floods.
 
-Finally, news about brain technology.
+Nepalese authorities are urging people to go to high places.
 
-The University of Oulu has developed a device that provides information about brain health.
+## Renting is cheaper than owning a home
 
-The device has been in development for 15 years. Here it is presented by Professor **Teemu Myllylä**.
+Finally, news about housing.
 
-The device can detect symptoms of Alzheimer's and Parkinson's disease at an early stage. The device measures the circulation of cerebrospinal fluid.
+Living in an owner-occupied home can now be much more expensive than renting.
 
-A device developed in Oulu can predict brain health.
+Living in an owner-occupied home can be expensive now because mortgage interest rates have risen.
 
-The device is being tested in various parts of the world. Researchers hope it will become a health assistant similar to a blood pressure monitor or smartwatch.
+Previously, you could pay the same amount per month on a mortgage as you would on rent.
 
-## Friday weather
+Nordea Bank found out how much it costs to live in an apartment building in the Helsinki metropolitan area.
+
+The rent for an apartment in an apartment building is now around 1,000 euros per month, with an apartment size of 50 square meters.
+
+If you buy a similar apartment with a loan, you will have to pay around 1,300 euros per month in loan payments.
+
+Living in an owner-occupied home can now be much more expensive than renting.
+
+## Saturday weather
 
 Still a weather forecast.
 
-It won't rain much tomorrow. The sun will be visible in the middle of Finland.
+The weather tomorrow will be windy. Cloudiness will increase during the day.
 
-The temperature in the south is 20 degrees. It's a little cooler in the north.
+The temperature is 18–21 degrees.

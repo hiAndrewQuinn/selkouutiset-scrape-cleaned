@@ -1,66 +1,81 @@
-# Radio | News week in plain Finnish | Sunday 27.4.2025
+# Radio | News week in plain Finnish | Saturday 26.4.2025
 
-Pope Francis
+Government tax cuts
 
-## Pope Francis
+Listen
 
-The topic of the news week this time is Pope Francis.
+You can read the news simultaneously below.
 
-Pope Francis died last Monday, April 21st.
+## Government tax cuts
 
-The Pope is a significant spiritual leader. The Catholic Church has well over a billion members.
+The topic of the news week this time is the government's tax cuts.
 
-Now let's tell you more about Pope Francis.
+The government held a mid-term meeting this week. It was a meeting where the government decided on the state's financial plan for 2026–2029.
 
-![The Pope at Easter Mass at the Vatican on Sunday, April 20. Photo: Tiziana Fabi / AFP](https://images.cdn.yle.fi/image/upload/ar_1.5010260920551157,c_fill,g_faces,h_423,w_636/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1745146963/39-14534566804ca1d687df)
+The government decided to make a lot of tax cuts. They will be financed by savings and some tax increases.
 
-## Home in Argentina
+We will now tell you more about the government's mid-term decisions.
 
-Pope Francis' real name was Jorge Mario Bergoglio.
+![The image shows the different savings in the columns for different gross salaries. In the background are 50 euro banknotes.](https://images.cdn.yle.fi/image/upload/c_crop,h_1520,w_2703,x_154,y_12/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1745501463/39-1455349680a22fd01644)
 
-He was born in 1936 in Buenos Aires, Argentina. Bergoglio's parents were immigrants. They came to Argentina from Italy.
+Open image viewer
 
-Bergoglio became pope in March 2013. He was pope for 12 years.
+This way, taxes are reduced for different salaries. For example, if a person's monthly salary is 3,000 euros, they will have 380 euros more per year than before. Photo: Ilkka Kemppinen / Yle
 
-Bergoglio chose the papal name Francis. Francis of Assisi was an Italian monk and saint who lived in the 13th century.
+## Labor tax credits
 
-## The disadvantaged and marginalized
+The government has decided on a big tax cut for employees and companies. The aim is to accelerate economic growth.
 
-Pope Francis was the first South American pope.
+Taxation on labor will be reduced by approximately one billion euros over the next year and the following year.
 
-He steered the Catholic Church in a more modern direction. For example, he spoke more positively about homosexuals than previous popes. He also somewhat improved the status of women in the Catholic Church.
+For example, if a person's salary is 3,000 euros per month, they will have about 380 euros more money per year than they have now.
 
-The disadvantaged and marginalized were important to Francis.
+The child allowance for tax deductions will be increased by 100 million euros. This will reduce the tax burden on families with children.
 
-Francis's speeches often focused on the marginalized, the poor, the sick, migrants, and prisoners. Francis also visited migrants and prisons.
+Taxation on large annual incomes of over 100,000 euros will also be significantly reduced.
 
-Pope Francis spoke cautiously about the war in Ukraine. For example, he did not condemn Russian war crimes in Ukraine. This caution has angered many people.
+## Corporate tax breaks
 
-![About 250,000 people attended Pope Francis' blessing ceremony at the Vatican. Photo: Tiziana Fabi / AFP](https://images.cdn.yle.fi/image/upload/ar_1.5001464986815118,c_fill,g_faces,h_423,w_636/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1745661417/39-1456355680c9da607a8f)
+Corporate tax for companies is being calculated.
 
-## Health problems
+The purpose is to support entrepreneurship and the operations of companies. The purpose is to attract foreign investments into companies in Finland.
 
-Pope Francis has had many health problems in recent years. He used a wheelchair due to knee problems.
+Corporate tax is a tax that companies pay on their profits.
 
-This year he was in the hospital for a long time due to pneumonia.
+Corporate income tax will decrease from 20 percent to 18 percent in 2027. The change is significant. It will reduce tax revenues by 830 million euros.
 
-The Pope's funeral was held yesterday, Saturday, at the Vatican.
+The intention is that tax revenue will increase later if investments come to Finland and the economy improves.
 
-After the funeral, the election of a new pope will begin. It will be held at a meeting of cardinals, attended by high-ranking officials of the Catholic Church and bishops from around the world. There are about 120 of them.
+The calculation of corporate income tax also attracts criticism.
 
-The meeting may last for several days. The new pope may be voted on several times.
+Economics professor **Jarkko Harju** says that the corporate tax cut may not increase investments in Finland.
 
-The Pope is a prominent spiritual leader. The Catholic Church is a religious community of approximately 1.4 billion people, or 18 percent of the world's population.
+This is what studies on Finland's previous tax reforms show.
 
-The largest number of Catholics are found in the Americas.
+![OP Group's headquarters lobby in Vallilla, Helsinki.](https://images.cdn.yle.fi/image/upload/c_crop,h_3253,w_5784,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1745575658/39-1455925680b5ebbdce2e)
+
+Open image viewer
+
+Companies like it when corporate tax is reduced. When a company's taxes are reduced, the company has more money left. Banking company OP is the largest corporate tax payer in Finland. Photo: Silja Viitala / Yle
+
+## Tax increases and savings
+
+Tax cuts for labor and companies are financed by savings and some tax increases.
+
+For example, taxes on soft drinks, nicotine pouches and e-cigarettes will be increased by 80 million euros.
+
+The right to deduct trade union membership fees from taxes will end.
+
+Development cooperation funding is being cut.
+
+Basic funding for higher education institutions will be reduced.
 
 ## Repetition
 
-The topic of the news week this time was Pope Francis.
+The topic of the week's news was the government's tax cut, which was decided on in the mid-term elections.
 
-Pope Francis died on April 21, Easter Monday. He was 88 years old.
+In particular, taxation of labor and companies will be reduced. The aim is to support economic growth and the operations of companies.
 
-Pope Francis steered the Catholic Church in a more modern direction.
+The changes to taxation are significant. They will be financed through savings and increases in some taxes.
 
 This was a news week in plain Finnish. See you again, let's hear from you!
-

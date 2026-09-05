@@ -1,66 +1,81 @@
-# Radio | Uutisviikko selkosuomeksi | sunnuntai 27.4.2025
+# Radio | Uutisviikko selkosuomeksi | lauantai 26.4.2025
 
-Paavi Franciscus
+Hallituksen veronalennukset
 
-## Paavi Franciscus
+Kuuntele
 
-Uutisviikon aihe on tällä kertaa paavi Franciscus.
+Voit lukea uutiset samanaikaisesti alta.
 
-Paavi Franciscus kuoli viime maanantaina eli 21. huhtikuuta.
+## Hallituksen veronalennukset
 
-Paavi on merkittävä hengellinen johtaja. Katoliseen kirkkoon kuuluu paljon yli miljardia ihmistä.
+Uutisviikon aihe on tällä kertaa hallituksen veronalennukset.
 
-Kerromme nyt lisää paavi Franciscuksesta.
+Hallitus piti tällä viikolla puoliväliriihen. Se oli kokous, jossa hallitus päätti valtion taloussuunnitelmasta vuosille 2026–2029.
 
-![Paavi pääsiäispäivän messussa Vatikaanissa sunnuntaina 20. huhtikuuta. Kuva: Tiziana Fabi / AFP](https://images.cdn.yle.fi/image/upload/ar_1.5010260920551157,c_fill,g_faces,h_423,w_636/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1745146963/39-14534566804ca1d687df)
+Hallitus päätti tehdä paljon veronalennuksia. Niitä rahoitetaan säästöillä ja joidenkin verojen korotuksilla.
 
-## Koti Argentiinassa
+Kerromme nyt lisää hallituksen puoliväliriihen päätöksistä.
 
-Paavi Franciscuksen oikea nimi oli Jorge Mario Bergoglio.
+![Kuvassa esitetään pylväin eri säästöt eri bruttopalkoille. Taustalla 50 euron seteleitä.](https://images.cdn.yle.fi/image/upload/c_crop,h_1520,w_2703,x_154,y_12/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1745501463/39-1455349680a22fd01644)
 
-Hän syntyi vuonna 1936 Buenos Airesissa, Argentiinassa. Bergoglion vanhemmat olivat siirtolaisia. He tulivat Argentiinaan Italiasta.
+Avaa kuvien katselu
 
-Bergogliosta tuli paavi maaliskuussa vuonna 2013. Hän oli paavi 12 vuotta.
+Näin verot pienenevät erilaisilla palkoilla. Jos esimerkiksi ihmisen kuukausipalkka on 3000 euroa, jää hänelle vuodessa 380 euroa enemän kuin ennen. Kuva: Ilkka Kemppinen / Yle
 
-Bergoglio valitsi paavi-nimeksi Franciscus. Franciscus Assisilainen oli italialainen munkki ja pyhimys, joka eli 1200-luvulla.
+## Työn veroalennukset
 
-## Vähäosaiset ja hyljeksityt
+Hallitus on päättänyt isosta veroalesta palkansaajille ja firmoille. Tarkoitus on nopeuttaa talouskasvua.
 
-Paavi Franciscus oli ensimmäinen eteläamerikkalainen paavi.
+Työn verotusta kevennetään noin miljardi euroa ensi vuoden ja seuraavan vuoden aikana.
 
-Hän ohjasi katolista kirkkoa modernimpaan suuntaan. Hän esimerkiksi puhui homoseksuaaleista myönteisemmin kuin paavit aiemmin. Hän myös paransi jonkin verran naisten asemaa katolisessa kirkossa.
+Jos ihmisen palkka on esimerkiksi 3000 euroa kuukaudessa, hänelle jää vuodessa noin 380 euroa enemmän rahaa kuin nyt.
 
-Vähäosaiset ja hyljeksityt ihmiset olivat tärkeitä Franciscukselle.
+Verovähennyksien lapsikorotusta nostetaan 100 miljoonalla eurolla. Se keventää lapsiperheiden verotusta.
 
-Franciscuksen puheiden aiheita olivat usein esimerkiksi syrjäytyneet, köyhät, sairaat, siirtolaiset ja vangit. Franciscus myös vieraili siirtolaisten luona ja vankiloissa.
+Myös suurien, yli 100 000 euron vuositulojen verotus kevenee merkittävästi.
 
-Ukrainan sodasta paavi Franciscus puhui varovasti. Hän ei esimerkiksi tuominnut Venäjän sotarikoksia Ukrainassa. Tämä varovaisuus on suututtanut monia ihmisiä.
+## Firmojen veroalennukset
 
-![Paavi Franciscuksen siunaustilaisuuteen Vatikaanissa osallistui noin 250 000 ihmistä. Kuva: Tiziana Fabi / AFP](https://images.cdn.yle.fi/image/upload/ar_1.5001464986815118,c_fill,g_faces,h_423,w_636/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1745661417/39-1456355680c9da607a8f)
+Firmojen yhteisöveroa lasketaan.
 
-## Terveysongelmat
+Tarkoitus on tukea yrittämistä ja firmojen toimintaa. Tarkoitus on houkutella ulkomailta sijoituksia firmoihin Suomessa.
 
-Paavi Franciscuksella oli viime vuosina monia terveysongelmia. Polvivaivojen takia hän käytti pyörätuolia.
+Yhteisövero on vero, jota firmat maksavat voitosta.
 
-Tänä vuonna hän oli pitkään sairaalassa keuhkokuumeen takia.
+Yhteisövero laskee 20 prosentista 18 prosenttiin vuonna 2027. Muutos on merkittävä. Se alentaa verotuloja 830 miljoonaa euroa.
 
-Paavin hautajaiset pidettiin eilen lauantaina Vatikaanissa.
+Tarkoitus on, että verotulot kasvavat myöhemmin, jos Suomeen tulee sijoituksia ja talous paranee.
 
-Hautajaisten jälkeen alkaa uuden paavin valinta. Se tehdään kardinaalien kokouksessa, johon osallistuu katolisen kirkon korkeita virkamiehiä ja piispoja eri puolilta maailmaa. Heitä on koolla noin 120.
+Yhteisöveron laskeminen herättää myös arvostelua.
 
-Kokous voi kestää montaa päivää. Uudesta paavista äänestetään ehkä monta kertaa.
+Taloustieteen professori **Jarkko Harju** sanoo, että yhteisöveron lasku ei ehkä lisää investointeja Suomeen.
 
-Paavi on merkittävä hengellinen johtaja. Katoliseen kirkkoon kuuluu noin 1,4 miljardia ihmistä eli 18 prosenttia maailman väestöstä.
+Näin kertovat tutkimukset Suomen aiemmista verouudistuksista.
 
-Eniten katolilaisia on Amerikan mantereilla.
+![OP Ryhmän pääkonttorin aula Helsingin Vallillassa.](https://images.cdn.yle.fi/image/upload/c_crop,h_3253,w_5784,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1745575658/39-1455925680b5ebbdce2e)
+
+Avaa kuvien katselu
+
+Firmat tykkäävät siitä, että yhteisöveroa alennetaan. Kun firman verot pienenevät, firmalle jää enemmän rahaa. Pankkifirma OP on Suomen suurin yhteisöveron maksaja. Kuva: Silja Viitala / Yle
+
+## Veronkorotukset ja säästöt
+
+Työn ja firmojen veroalennuksia rahoitetaan säästöillä ja joillakin veronkorotuksilla.
+
+Esimerkiksi virvoitusjuomien, nikotiinipussien ja sähkötupakan veroja nostetaan 80 miljoonalla eurolla.
+
+Ammattiliittojen jäsenmaksun verovähennysoikeus loppuu.
+
+Kehitysyhteistyön rahoitusta leikataan.
+
+Korkeakoulujen perusrahoitusta vähennetään.
 
 ## Kertaus
 
-Uutisviikon aihe oli tällä kertaa paavi Franciscus.
+Uutisviikon aihe oli hallituksen veroale, josta hallitus päätti puoliväliriihessä.
 
-Paavi Franciscus kuoli 21. huhtikuuta eli pääsiäismaanantaina. Hän oli 88-vuotias.
+Erityisesti työn ja firmojen verotusta kevennetään. Tarkoitus on tukea talouskasvua ja firmojen toimintaa.
 
-Paavi Franciscus ohjasi katolilaista kirkkoa modernimpaan suuntaan.
+Muutokset verotukseen ovat merkittäviä. Niitä rahoitetaan säästöillä ja joidenkin verojen korotuksilla.
 
 Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
-

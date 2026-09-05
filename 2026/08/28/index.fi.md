@@ -1,55 +1,63 @@
-# Selkouutiset | torstai 27.8.2026
+# Selkouutiset | perjantai 28.8.2026
 
-Sote-asiakasmaksut. Nepalin tulva. Aivoterveys. Perjantain sää.
+Norjan kuningas kuollut. Nepalin tulvat pahenevat. Asuminen. Sää
 
-## Sote-asiakasmaksut
+## Norjan kuningas on kuollut
 
-Aluksi aiheena ovat sosiaali- ja terveydenhuollon asiakasmaksut.
+Ensin uutinen Norjasta.
 
-Asiakasmaksujen alennuksissa on suuria alueellisia eroja. Näin kertoo Soste-järjestön selvitys.
+Norjan kuningas **Harald V** on kuollut. Hän oli 89-vuotias.
 
-Asuinpaikka vaikuttaa siihen, onnistuuko soten asiakasmaksun helpotus tarvittaessa.
+Kuningas Harald kuoli sairaalassa verisairauden takia.
 
-Esimerkiksi terveyskeskuksen lääkärimaksuun voi hakea alennusta 9 hyvinvointialueella. Sen sijaan 12 alueella ja Helsingissä alennus ei onnistu.
+Haraldista tuli Norjan kuningas vuonna 1991.
 
-Soten asiakasmaksujen alennuksissa on suuria alueellisia eroja.
+Harald piti urheilusta. Hän purjehti olympialaisissa kolme kertaa.
 
-Alennus voi olla tarpeellinen, jos asiakkaan rahatilanne on hyvin huono.
+Lapsena Harald joutui pakenemaan ulkomaille, kun Saksa hyökkäsi Norjaan vuonna 1940. Kuningasperhe palasi Norjaan vuonna 1945.
 
-## Nepalin tulva
+Harald meni naimisiin **Sonja Haraldsenin** kanssa vuonna 1968. Siitä tuli iso kohu, koska Sonja ei ollut aatelinen.
 
-Sitten uutinen luonnonkatastrofista.
+Norjan kuningas Harald V on kuollut.
 
-Nepalissa on käynnissä suuri pelastusoperaatio.
+Norjan uusi kuningas on Haraldin ja Sonjan poika, kruununprinssi **Haakon**.
 
-Iso tulva ja mutavyöry pyyhkäisi eilen suuren alueen yli Nepalin ja Tiibetin rajalla.
+## Nepalin tulvat pahenevat
 
-Ainakin 180 ihmistä on kuollut. Kateissa on satoja ihmisiä.
+Seuraavaksi uutinen Nepalin tulvista.
 
-Moni kateissa oleva on ulkomaalainen. Tuhoalueella on suosittuja vaellusreittejä.
+Nepalin kovissa tulvissa on kuollut ainakin 500 ihmistä. 1 500 ihmistä on kadonnut. Myös yksi suomalainen turisti on kadonnut.
 
-Nepalissa on käynnissä suuri pelastusoperaatio tulvan ja mutavyöryn vuoksi.
+Nepalissa oli keskiviikkona maanvyöryjä ja äkkitulvia.
 
-Tulva johtui ehkä jäätikön romahduksesta Himalajan vuoristossa.
+Viranomaiset keskeyttivät tänään pelastustyöt, koska Nepalia uhkaavat uudet tulvat. Uusia tulvia voi tulla, koska Nepalin ja Tiibetin rajalla murtui pato.
 
-## Aivoterveys
+Nepalissa noin 500 ihmistä on kuollut, ja 1 500 ihmistä on kadonnut tulvien takia.
 
-Lopuksi uutinen aivoteknologiasta.
+Nepalin viranomaiset kehottavat ihmisiä menemään korkeille paikoille.
 
-Oulun yliopistossa on kehitetty laite, joka kertoo aivoterveydestä.
+## Vuokra-asuminen halvempaa kuin omistusasuminen
 
-Laitetta on kehitetty 15 vuotta. Tässä sitä esittelee professori **Teemu Myllylä**.
+Lopuksi uutinen asumisesta.
 
-Laitteella voidaan havaita Alzheimerin ja Parkinsonin taudin oireita jo aikaisessa vaiheessa. Laite mittaa aivonesteiden kiertoa.
+Omistusasunnossa asuminen voi olla nyt paljon kalliimpaa kuin vuokralla asuminen.
 
-Oulussa kehitetty laite voi ennustaa aivoterveyttä.
+Omistusasunnossa asuminen voi olla nyt kallista, koska asuntolainojen korot ovat nousseet.
 
-Laite on testikäytössä eri puolilla maailmaa. Tutkijat toivovat, että siitä tulee verenpainemittarin tai älykellon kaltainen terveysapuri.
+Aikaisemmin asuntolainaa pystyi maksamaan kuukaudessa saman verran kuin vuokraa.
 
-## Perjantain sää
+Nordea-pankki selvitti, kuinka paljon kerrostalossa asuminen maksaa pääkaupunkiseudulla.
+
+Kerrostaloasunnon vuokra on nyt noin 1 000 euroa kuukaudessa, kun asunnon koko on 50 neliömetriä.
+
+Jos samanlaisen asunnon ostaa lainarahalla, lainaa joutuu maksamaan noin 1 300 euroa kuukaudessa.
+
+Omistusasunnossa asuminen voi olla nyt paljon kalliimpaa kuin vuokralla asuminen.
+
+## Lauantain sää
 
 Vielä sääennuste.
 
-Huomenna ei juurikaan sada. Aurinko näkyy keskellä Suomea.
+Huomenna sää on tuulinen. Pilvisyys lisääntyy päivän aikana.
 
-Lämpötila on etelässä 20 astetta. Pohjoisessa on vähän viileämpää.
+Lämpötila on 18–21 astetta.

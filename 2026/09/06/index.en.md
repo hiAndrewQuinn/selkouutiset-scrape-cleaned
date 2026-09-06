@@ -1,71 +1,69 @@
-# News of the week in plain Finnish | Saturday 5.9.2026
+# Newsweek in plain Finnish | Sunday 6.9.2026
 
-Finnish state budget.
+Budget. Party poll. Drone. Yle 100.
 
 Listen
 
 You can read the news simultaneously below.
 
-## Introducing the topic of the week
+## State budget
 
-The topic of the program this time is the Finnish state budget. The government has agreed on state revenue and expenditure. State expenditure will be greater than revenue next year.
-
-We will now tell you more about next year's state budget.
-
-## Government revenue and expenditure
-
-![Petteri Orpo at the press conference.](https://img.img-cdn.yle.fi/crop_extract,w_5933,h_3337,x_0,y_308/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17008586a97262a0f1be/1788291172)
+![Riikka Purra and Petteri Orpo at the press conference.](https://img.img-cdn.yle.fi/crop_extract,w_5776,h_3249,x_1,y_77/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17008506a97261ce399a/1788291114)
 
 Open image viewer
 
 Photo: Silja Viitala / Yle
 
-The government this week agreed on the state budget for next year. The budget explains where the state will spend money and where it will save. This is the last budget of Prime Minister Petteri Orpo's government.
+The government agreed on the Finnish state budget this week. State spending will be higher than revenue next year.
 
-The state budget is in deficit. This means that the state will have more spending than revenue next year.
+The state will give more money to Finnish defense and Ukraine. The government will cut support from organizations and municipalities. Low- and middle-income people will pay less tax on their salaries than before. Companies will have to pay less tax on their profits than now.
 
-The government is cutting funding for social and health organizations. Many municipalities receive less money from the state than before. The state is also supporting housing construction less than before.
+The opposition criticizes the budget. The opposition says the government is giving money to companies and cutting back on organizations.
 
-The Finnish government is spending more money on defense. Additional money is also being given to support Ukraine.
+## Party support survey
 
-More money will be spent on road and rail work. More money will also be spent on research and development than before.
-
-## Taxation
-
-![Cars queuing for gas in Haparanda, Sweden.](https://img.img-cdn.yle.fi/crop_extract,w_3990,h_2245,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16721736a4b913b49f90/1783337481)
+![The Social Democratic Party is number one in the party support survey, with 24.7, the National Coalition Party is number two with 19.1 and the Center Party is number three with 15.1 percent.](https://img.img-cdn.yle.fi/crop_extract,w_4961,h_2790,x_46,y_118/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17023196a9a65e2bd103/1788503601)
 
 Open image viewer
 
-Photo: Antti Ullakko / Yle
+Photo: Nanna Särkkä / Yle
 
-The government decided on next year's taxes.
+A new party support survey was published this week.
 
-Taxation will change so that the corporate tax paid by companies will decrease from 20 percent to 18 percent. Corporate tax is a tax that a company pays on its profits.
+A Yle poll shows that the most popular party is still the SDP. The SDP's support has decreased slightly. The SDP is an opposition party.
 
-Payroll taxes for low- and middle-income earners will be reduced. This could mean an extra 100 or 200 euros per year for some people.
+The second most popular party is the National Coalition Party and the third most popular is the Finns Party. They are the governing parties. The support for the National Coalition Party is the same as before. The support for the Finns Party has increased slightly.
 
-The price of gasoline and diesel may decrease slightly because fuels are taxed less than before. Taxes on alcohol and tobacco will increase.
+The Left Alliance has seen the biggest increase in support. The Left Alliance is the fifth most popular party. The Left Alliance is not in the government.
 
-## Opposition review
+## Drone in Porvoo
 
-![-](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_375/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17015566a986ac289435/1788374160)
+![Beach area where the Russian mapping drone was found in the Pelling archipelago.](https://img.img-cdn.yle.fi/crop_extract,w_5267,h_2962,x_0,y_82/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17026866a9ab2c44d202/1788523572)
 
 Open image viewer
 
-Photo: Mikko Koski / Yle
+Photo: Antti Kolppo / Yle
 
-The opposition criticizes the budget. Opposition parties criticize the corporate tax cut.
+A drone was found in Finland this week. The drone was found on Tuesday in Pellingi, Porvoo.
 
-The opposition says that the government is giving money to companies and cutting back on organizations.
+Authorities say the drone was made in Russia. There were no explosives on board. Therefore, it posed no danger to humans.
 
-The opposition believes that the Finnish economy will suffer from the decisions.
+Authorities are investigating how the drone came to Finland and who used it.
 
-SDP chairman Antti Lindtman believes that the money should be used to create more jobs.
+Russia told Finland even before the discovery that a mapping drone had disappeared from Russia. It is a drone used to photograph and measure an area. It is not yet known for sure whether this is the same device that was found in Porvoo.
 
-## Repetition
+## Finnish Public Broadcasting 100 years
 
-This week's news in plain Finnish reported on the Finnish state budget. Let's recap the most important things.
+![A large audience gathered in the arena to watch the event. There is a blue background and performers on the stage.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_53/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17029726a9c430f87a27/1788625863)
 
-The government has agreed on the state's revenue and expenditure for next year. Expenditure is higher than revenue. Most of the additional money will go to defense. Low- and middle-income earners will pay less tax on their salaries than before. The opposition believes that the decisions will weaken the Finnish economy.
+Open image viewer
 
-This was the news of the week in plain Finnish. See you again, bye!
+Photo: Leena Luotio / Yle
+
+Yle is celebrating its 100th anniversary this autumn. Yle was celebrated on Saturday at the Helsinki Arena. Performers included Hector, Jenni Vartiainen and Mirella.
+
+Yle CEO Marit af Björkesten says that due to savings, Yle has less money than before. The CEO believes that Yle is still doing well.
+
+Yleisradio's first broadcast was heard on September 9, 1926. Managing Director Leonard Maurits Viherjuuri gave a speech on the radio at that time.
+
+This was a news week in plain Finnish. See you again, let's hear from you!

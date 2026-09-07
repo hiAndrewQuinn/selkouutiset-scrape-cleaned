@@ -1,69 +1,67 @@
-# Newsweek in plain Finnish | Sunday 6.9.2026
+# Clear News | Monday 7.9.2026
 
-Budget. Party poll. Drone. Yle 100.
+Eastern border fence. German far right. Yle 100 celebration. Weather
 
-Listen
+## The eastern border fence is completed
 
-You can read the news simultaneously below.
+First, the news about the fence on the eastern border.
 
-## State budget
+Finland has completed the fence on its eastern border.
 
-![Riikka Purra and Petteri Orpo at the press conference.](https://img.img-cdn.yle.fi/crop_extract,w_5776,h_3249,x_1,y_77/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17008506a97261ce399a/1788291114)
+Finland built a fence so that no one can enter Finland across the border without permission.
 
-Open image viewer
+The fence is 200 kilometers long. There are fences in 17 municipalities. It cost over 350 million euros.
 
-Photo: Silja Viitala / Yle
+Finland decided to build a fence when a huge number of asylum seekers came to Finland from Russia. That happened in 2023.
 
-The government agreed on the Finnish state budget this week. State spending will be higher than revenue next year.
+Finland has completed the fence on its eastern border.
 
-The state will give more money to Finnish defense and Ukraine. The government will cut support from organizations and municipalities. Low- and middle-income people will pay less tax on their salaries than before. Companies will have to pay less tax on their profits than now.
+Many Finns now live near a fence. For example, there is a fence in Raimo Jokela's field.
 
-The opposition criticizes the budget. The opposition says the government is giving money to companies and cutting back on organizations.
+Jokela demanded in court that the fence be moved. However, he lost in court.
 
-## Party support survey
+Jokela says that the field is now smaller than before, which is why he receives less rent from the field than before.
 
-![The Social Democratic Party is number one in the party support survey, with 24.7, the National Coalition Party is number two with 19.1 and the Center Party is number three with 15.1 percent.](https://img.img-cdn.yle.fi/crop_extract,w_4961,h_2790,x_46,y_118/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17023196a9a65e2bd103/1788503601)
+## Victory for the far right in Germany
 
-Open image viewer
+Next news from Germany.
 
-Photo: Nanna Särkkä / Yle
+There were elections in one state of Germany that were won by a far-right party.
 
-A new party support survey was published this week.
+The far-right AfD party received almost 44% of the vote in the Saxony-Anhalt state elections.
 
-A Yle poll shows that the most popular party is still the SDP. The SDP's support has decreased slightly. The SDP is an opposition party.
+The AfD may not come to power in Saxony-Anhalt because other parties do not want to govern with the AfD.
 
-The second most popular party is the National Coalition Party and the third most popular is the Finns Party. They are the governing parties. The support for the National Coalition Party is the same as before. The support for the Finns Party has increased slightly.
+Support for Germany's ruling party, the Christian Democratic Union (CDU), collapsed.
 
-The Left Alliance has seen the biggest increase in support. The Left Alliance is the fifth most popular party. The Left Alliance is not in the government.
+The CDU received only around 17% of the vote in Saxony-Anhalt, down from 37% in the previous election.
 
-## Drone in Porvoo
+## Yle had its 100th anniversary celebration
 
-![Beach area where the Russian mapping drone was found in the Pelling archipelago.](https://img.img-cdn.yle.fi/crop_extract,w_5267,h_2962,x_0,y_82/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17026866a9ab2c44d202/1788523572)
+Finally, let's return to Yle's 100th anniversary.
 
-Open image viewer
+Yle's 100th anniversary was celebrated on Saturday at the Helsinki Arena.
 
-Photo: Antti Kolppo / Yle
+The evening's gala concert featured well-known singers and the Finnish Radio Symphony Orchestra.
 
-A drone was found in Finland this week. The drone was found on Tuesday in Pellingi, Porvoo.
+Many popular Yle performers were also present.
 
-Authorities say the drone was made in Russia. There were no explosives on board. Therefore, it posed no danger to humans.
+There was a children's concert during the day, featuring popular characters from the Finnish-language Pikku Kakkonen and the Swedish-language Buu-klubben.
 
-Authorities are investigating how the drone came to Finland and who used it.
+The concerts were also shown on TV and can still be watched on Yle Areena.
 
-Russia told Finland even before the discovery that a mapping drone had disappeared from Russia. It is a drone used to photograph and measure an area. It is not yet known for sure whether this is the same device that was found in Porvoo.
+Yle's 100th anniversary was celebrated on Saturday at the Helsinki Arena.
 
-## 100 years of Finnish Broadcasting
+Yle's first official radio broadcast was heard on September 9, 1926.
 
-![A large audience gathered in the arena to watch the event. There is a blue background and performers on the stage.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_53/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17029726a9c430f87a27/1788625863)
+Yle CEO Marit af Björkesten says that Yle has had to make a lot of savings. Yet Yle is doing well, Björkesten assures.
 
-Open image viewer
+## Tuesday weather
 
-Photo: Leena Luotio / Yle
+Still a weather forecast.
 
-Yle is celebrating its 100th anniversary this autumn. Yle was celebrated on Saturday at the Helsinki Arena. Performers included Hector, Jenni Vartiainen and Mirella.
+On Tuesday, it will rain almost throughout the country. The wind will strengthen.
 
-Yle CEO Marit af Björkesten says that due to savings, Yle has less money than before. The CEO believes that Yle is still doing well.
+The temperature in the south is almost 20 degrees.
 
-Yleisradio's first broadcast was heard on September 9, 1926. Managing Director Leonard Maurits Viherjuuri gave a speech on the radio at that time.
-
-This was a news week in plain Finnish. See you again, let's hear from you!
+It's cooler elsewhere.

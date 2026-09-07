@@ -52,7 +52,7 @@ Authorities are investigating how the drone came to Finland and who used it.
 
 Russia told Finland even before the discovery that a mapping drone had disappeared from Russia. It is a drone used to photograph and measure an area. It is not yet known for sure whether this is the same device that was found in Porvoo.
 
-## Finnish Public Broadcasting 100 years
+## 100 years of Finnish Broadcasting
 
 ![A large audience gathered in the arena to watch the event. There is a blue background and performers on the stage.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_53/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17029726a9c430f87a27/1788625863)
 

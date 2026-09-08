@@ -1,0 +1,81 @@
+# Selkouutiset | tiistai 8.9.2026
+
+Puolustusvoimat. Opiskelija-asunnot. Aarrelöytö. Sääennuste.
+
+## Naisten häirintä puolustusvoimissa
+
+Aluksi uutinen Puolustusvoimista.
+
+Monet naissotilaat ovat kokeneet häirintää ja kiusaamista työssä.
+
+Näin kertoo Ylen selvitys.
+
+Yle haastatteli naisia, jotka kertovat huonosta kohtelusta ja asiattomasta puheesta.
+
+Ongelmiin on vaikea puuttua, koska moni nainen pelkää syrjimistä.
+
+Puolustusministeri **Antti Häkkänen** sanoo, että häirintää ei saa hyväksyä.
+
+Häkkänen sanoo, että jokaisen miehen pitää käyttäytyä hyvin.
+
+*”Minkään näköinen sukupuolinen häirintä ei ole hyväksyttävää.”*
+
+*”Jos naisiin kohdistuu häirintää, on jokaisen miehen vastuulla käyttäytyä järkevästi”*
+
+Monet naissotilaat ovat kokenneet häirintää ja kiusaamista työssä.
+
+Puolustusvoimat sanoo, että se haluaa muuttaa työkulttuuria.
+
+## Opiskelija-asunnot
+
+Nyt uutinen opiskelijoiden asumisesta.
+
+Rovaniemellä on kova pula opiskelijoiden asunnoista.
+
+Syy on matkailu ja asuntojen lyhytvuokraus.
+
+Ihmiset vuokraavat pienet asunnot turisteille. Siksi niitä ei riitä opiskelijoille.
+
+Yli 600 opiskelijaa jonottaa Rovaniemellä asuntoa.
+
+Opiskelija **Jenna Närhi** asui ensin hätämajoituksessa kerhotilassa.
+
+Nyt hän on saanut oman vuokra-asunnon.
+
+Rovaniemellä on kova pula opiskelijoiden asunnoista.
+
+Monen opiskelijan pitää nukkua patjalla hätämajoituksessa.
+
+Ylioppilaskunnan pääsihteeri **Esa-Pekka Tuppi** kertoo, että asuntopulan takia jotkut opiskelijat peruvat opiskelupaikan.
+
+Jotkut opiskelevat vain etänä.
+
+## Viikinkiaikainen aarrelöytö
+
+Lopuksi uutinen historiallisesta aarrelöydöstä.
+
+Päijät-Hämeestä, Sysmästä on löytynyt suuri viikinkiaikainen aarre.
+
+Metallinetsijä **Kalle Lappinen** etsi esineitä metsässä, kun hän teki löydön.
+
+Maasta löytyi tuhansia vanhoja hopearahoja.
+
+Ne olivat kahdessa tuohiastiassa. Hopeaa oli yhteensä 4,5 kiloa.
+
+Sysmästä on löytynyt Suomen suurin viikinkiaikainen aarre.
+
+Löytö on yli kaksi kertaa niin suuri kuin aiemmat löydöt Suomessa.
+
+Rahojen lisäksi löytyi myös esimerkiksi hopeinen rannerengas.
+
+Alueella jatketaan edelleen vanhojen esineiden etsintää.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää on vaihtelevaa. Isossa osassa maata sataa.
+
+Pohjois-Lapissa on poutaa ja aurinko paistaa.
+
+Lämpötila on 11-18 astetta.

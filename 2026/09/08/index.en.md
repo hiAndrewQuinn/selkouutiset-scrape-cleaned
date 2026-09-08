@@ -1,67 +1,81 @@
-# Clear News | Monday 7.9.2026
+# Clear News | Tuesday 8.9.2026
 
-Eastern border fence. German far right. Yle 100 celebration. Weather
+Defence Forces. Student Housing. Treasure Hunt. Weather Forecast.
 
-## The eastern border fence is completed
+## Harassment of women in the defense forces
 
-First, the news about the fence on the eastern border.
+First, news about the Defence Forces.
 
-Finland has completed the fence on its eastern border.
+Many female soldiers have experienced harassment and bullying at work.
 
-Finland built a fence so that no one can enter Finland across the border without permission.
+This is according to a Yle report.
 
-The fence is 200 kilometers long. There are fences in 17 municipalities. It cost over 350 million euros.
+Yle interviewed women who spoke about mistreatment and inappropriate speech.
 
-Finland decided to build a fence when a huge number of asylum seekers came to Finland from Russia. That happened in 2023.
+It is difficult to address the problems because many women fear discrimination.
 
-Finland has completed the fence on its eastern border.
+Minister of Defense **Antti Häkkänen** says that harassment is unacceptable.
 
-Many Finns now live near a fence. For example, there is a fence in Raimo Jokela's field.
+Häkkänen says that every man should behave well.
 
-Jokela demanded in court that the fence be moved. However, he lost in court.
+*"Sexual harassment of any kind is unacceptable."*
 
-Jokela says that the field is now smaller than before, which is why he receives less rent from the field than before.
+*"If women are harassed, it is every man's responsibility to behave sensibly"*
 
-## Victory for the far right in Germany
+Many female soldiers have experienced harassment and bullying at work.
 
-Next news from Germany.
+The Defense Forces says it wants to change the work culture.
 
-There were elections in one state of Germany that were won by a far-right party.
+## Student housing
 
-The far-right AfD party received almost 44% of the vote in the Saxony-Anhalt state elections.
+Now news about student housing.
 
-The AfD may not come to power in Saxony-Anhalt because other parties do not want to govern with the AfD.
+There is a severe shortage of student housing in Rovaniemi.
 
-Support for Germany's ruling party, the Christian Democratic Union (CDU), collapsed.
+The reason is tourism and short-term rental of apartments.
 
-The CDU received only around 17% of the vote in Saxony-Anhalt, down from 37% in the previous election.
+People rent small apartments to tourists. That's why there aren't enough for students.
 
-## Yle had its 100th anniversary celebration
+More than 600 students are waiting in line for housing in Rovaniemi.
 
-Finally, let's return to Yle's 100th anniversary.
+Student **Jenna Närhi** first lived in emergency accommodation in the clubhouse.
 
-Yle's 100th anniversary was celebrated on Saturday at the Helsinki Arena.
+Now he has his own rental apartment.
 
-The evening's gala concert featured well-known singers and the Finnish Radio Symphony Orchestra.
+There is a severe shortage of student housing in Rovaniemi.
 
-Many popular Yle performers were also present.
+Many students have to sleep on mattresses in emergency accommodation.
 
-There was a children's concert during the day, featuring popular characters from the Finnish-language Pikku Kakkonen and the Swedish-language Buu-klubben.
+The Secretary General of the Student Union **Esa-Pekka Tuppi** says that due to the housing shortage, some students are canceling their study places.
 
-The concerts were also shown on TV and can still be watched on Yle Areena.
+Some only study remotely.
 
-Yle's 100th anniversary was celebrated on Saturday at the Helsinki Arena.
+## Viking treasure discovery
 
-Yle's first official radio broadcast was heard on September 9, 1926.
+Finally, news of a historic treasure discovery.
 
-Yle CEO Marit af Björkesten says that Yle has had to make a lot of savings. Yet Yle is doing well, Björkesten assures.
+A large Viking Age treasure has been found in Sysmä, Päijät-Häme.
 
-## Tuesday weather
+Metal detectorist **Kalle Lappinen** was searching for objects in the forest when he made the discovery.
+
+Thousands of old silver coins were found in the ground.
+
+They were in two wooden containers. There was a total of 4.5 kilograms of silver.
+
+Finland's largest Viking Age treasure has been found in Sysmä.
+
+The discovery is more than twice as large as previous discoveries in Finland.
+
+In addition to the money, a silver bracelet was also found.
+
+The search for ancient artifacts is still continuing in the area.
+
+## Wednesday's weather
 
 Still a weather forecast.
 
-On Tuesday, it will rain almost throughout the country. The wind will strengthen.
+The weather on Wednesday will be variable. It will rain in most parts of the country.
 
-The temperature in the south is almost 20 degrees.
+It's sunny and breezy in Northern Lapland.
 
-It's cooler elsewhere.
+The temperature is 11-18 degrees.

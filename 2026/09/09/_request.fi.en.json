@@ -1,6 +1,7 @@
 {
    "target" : "en",
    "format" : "text",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | tiistai 8.9.2026",
       "",
@@ -83,6 +84,5 @@
       "Pohjois-Lapissa on poutaa ja aurinko paistaa.",
       "",
       "Lämpötila on 11-18 astetta."
-   ],
-   "source" : "fi"
+   ]
 }

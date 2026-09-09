@@ -1,81 +1,47 @@
-# Selkouutiset | tiistai 8.9.2026
+# Selkouutiset | keskiviikko 9.9.2026
 
-Puolustusvoimat. Opiskelija-asunnot. Aarrelöytö. Sääennuste.
+Pisa-tutkimus. Työ. Hyönteiset. Sää.
 
-## Naisten häirintä puolustusvoimissa
+## Pisa-tutkimus
 
-Aluksi uutinen Puolustusvoimista.
+Ensin uutinen koulusta.
 
-Monet naissotilaat ovat kokeneet häirintää ja kiusaamista työssä.
+Suomalaisten nuorten koulutulokset ovat huonompia kuin aikaisemmin.
 
-Näin kertoo Ylen selvitys.
+Pisa-tutkimus kertoo, että eniten on heikentynyt nuorten lukutaito. Suomi on siinä nyt sijalla 17.
 
-Yle haastatteli naisia, jotka kertovat huonosta kohtelusta ja asiattomasta puheesta.
+Suomalaisten 15-vuotiaiden nuorten osaaminen on edelleen parempaa kuin muualla keskimäärin.
 
-Ongelmiin on vaikea puuttua, koska moni nainen pelkää syrjimistä.
+Suomalaisten nuorten koulutulokset ovat huonompia kuin aikaisemmin. Osaaminen heikkenee nyt eniten nuorilla, joiden perheellä on hyvä taloudellinen tilanne. Aiemmin he pärjäsivät parhaiten.
 
-Puolustusministeri **Antti Häkkänen** sanoo, että häirintää ei saa hyväksyä.
+## Työ
 
-Häkkänen sanoo, että jokaisen miehen pitää käyttäytyä hyvin.
+Nyt uutinen työstä.
 
-*”Minkään näköinen sukupuolinen häirintä ei ole hyväksyttävää.”*
+Nuorille työntekijöille tärkein asia työssä on palkka. Näin kertoo uusi kysely. Aikaisemmin kiinnostavat työtehtävät ja hyvä ilmapiiri olivat tärkeämpiä kuin palkka.
 
-*”Jos naisiin kohdistuu häirintää, on jokaisen miehen vastuulla käyttäytyä järkevästi”*
+Moni nuori haluaa nyt vakituisen työn, joka jatkuu kauan.
 
-Monet naissotilaat ovat kokenneet häirintää ja kiusaamista työssä.
+Asiantuntija **Jasmine Juokslahti** sanoo, että muutos alkoi korona-aikana:
 
-Puolustusvoimat sanoo, että se haluaa muuttaa työkulttuuria.
+-Nuoret ajatteli ennen koronaa, että hyville tyypeille on aina töitä. Ei pelätty pieniä taukoja. Oltiin valmiita ottaa lyhyempiä työsuhteita vastaan ja esimerkiksi mennä Balille surffaamaan ja palata sitten työelämään.
 
-## Opiskelija-asunnot
+Nuorille työntekijöille tärkein asia työssä on palkka. Nuoret toivovat myös, että palkat kerrotaan työpaikoilla avoimesti.
 
-Nyt uutinen opiskelijoiden asumisesta.
+## Hyönteiset
 
-Rovaniemellä on kova pula opiskelijoiden asunnoista.
+Seuraavaksi aiheena ovat hyönteiset.
 
-Syy on matkailu ja asuntojen lyhytvuokraus.
+Hyönteisiä oli tänä kesänä paljon. Syynä on se, että kesän sää oli hyönteisille hyvä.
 
-Ihmiset vuokraavat pienet asunnot turisteille. Siksi niitä ei riitä opiskelijoille.
+Tilastot kertovat, että esimerkiksi päiväperhosia oli tänä vuonna Suomessa paljon enemmän kuin viime vuonna. Tämä vuosi on kuitenkin poikkeus. Päiväperhosten määrä on ollut laskussa.
 
-Yli 600 opiskelijaa jonottaa Rovaniemellä asuntoa.
+Tässä tutkitaan hyönteisiä Karjalohjalla. Pihalla on paljon esimerkiksi perhosia.
 
-Opiskelija **Jenna Närhi** asui ensin hätämajoituksessa kerhotilassa.
+Hyönteisiä oli tänä kesänä paljon. Monet hyönteiset ovat tärkeitä esimerkiksi marjoille ja hedelmille.
 
-Nyt hän on saanut oman vuokra-asunnon.
-
-Rovaniemellä on kova pula opiskelijoiden asunnoista.
-
-Monen opiskelijan pitää nukkua patjalla hätämajoituksessa.
-
-Ylioppilaskunnan pääsihteeri **Esa-Pekka Tuppi** kertoo, että asuntopulan takia jotkut opiskelijat peruvat opiskelupaikan.
-
-Jotkut opiskelevat vain etänä.
-
-## Viikinkiaikainen aarrelöytö
-
-Lopuksi uutinen historiallisesta aarrelöydöstä.
-
-Päijät-Hämeestä, Sysmästä on löytynyt suuri viikinkiaikainen aarre.
-
-Metallinetsijä **Kalle Lappinen** etsi esineitä metsässä, kun hän teki löydön.
-
-Maasta löytyi tuhansia vanhoja hopearahoja.
-
-Ne olivat kahdessa tuohiastiassa. Hopeaa oli yhteensä 4,5 kiloa.
-
-Sysmästä on löytynyt Suomen suurin viikinkiaikainen aarre.
-
-Löytö on yli kaksi kertaa niin suuri kuin aiemmat löydöt Suomessa.
-
-Rahojen lisäksi löytyi myös esimerkiksi hopeinen rannerengas.
-
-Alueella jatketaan edelleen vanhojen esineiden etsintää.
-
-## Keskiviikon sää
+## Sää
 
 Vielä sääennuste.
 
-Keskiviikkona sää on vaihtelevaa. Isossa osassa maata sataa.
-
-Pohjois-Lapissa on poutaa ja aurinko paistaa.
-
-Lämpötila on 11-18 astetta.
+Huomenna torstaina sää on vaihtelevaa. Suuressa osassa maata sataa vettä. Myös ukkonen on mahdollinen. Pohjoisessa on poutaa. Lämpötila on 10 ja 16 asteen välillä.

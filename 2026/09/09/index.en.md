@@ -1,81 +1,47 @@
-# Clear News | Tuesday 8.9.2026
+# Clear News | Wednesday 9.9.2026
 
-Defence Forces. Student Housing. Treasure Hunt. Weather Forecast.
+Pisa study. Work. Insects. Weather.
 
-## Harassment of women in the defense forces
+## Pisa study
 
-First, news about the Defence Forces.
+First, news from school.
 
-Many female soldiers have experienced harassment and bullying at work.
+The educational results of Finnish youth are worse than before.
 
-This is according to a Yle report.
+The Pisa study shows that the literacy skills of young people have declined the most. Finland is now in 17th place.
 
-Yle interviewed women who spoke about mistreatment and inappropriate speech.
+The skills of Finnish 15-year-olds are still better than the average elsewhere.
 
-It is difficult to address the problems because many women fear discrimination.
+The educational results of Finnish youth are worse than before. The skills are now declining the most among young people whose families have a good financial situation. Previously, they did the best.
 
-Minister of Defense **Antti Häkkänen** says that harassment is unacceptable.
+## Work
 
-Häkkänen says that every man should behave well.
+Now, news about work.
 
-*"Sexual harassment of any kind is unacceptable."*
+For young employees, the most important thing at work is salary. This is according to a new survey. Previously, interesting work tasks and a good atmosphere were more important than salary.
 
-*"If women are harassed, it is every man's responsibility to behave sensibly"*
+Many young people now want a permanent job that will last a long time.
 
-Many female soldiers have experienced harassment and bullying at work.
+Expert **Jasmine Juokslahti** says that the change began during the corona period:
 
-The Defense Forces says it wants to change the work culture.
+-Before the coronavirus, young people thought that there would always be work for good guys. They weren't afraid of short breaks. They were ready to accept shorter employment relationships and, for example, go to Bali to surf and then return to working life.
 
-## Student housing
+For young workers, the most important thing at work is their salary. Young people also hope that salaries are disclosed openly in the workplace.
 
-Now news about student housing.
+## Insects
 
-There is a severe shortage of student housing in Rovaniemi.
+The next topic is insects.
 
-The reason is tourism and short-term rental of apartments.
+There were a lot of insects this summer. The reason is that the summer weather was good for insects.
 
-People rent small apartments to tourists. That's why there aren't enough for students.
+Statistics show that, for example, there were many more butterflies in Finland this year than last year. However, this year is an exception. The number of butterflies has been decreasing.
 
-More than 600 students are waiting in line for housing in Rovaniemi.
+This is where we study insects in Karjalohja. There are lots of butterflies in the yard, for example.
 
-Student **Jenna Närhi** first lived in emergency accommodation in the clubhouse.
+There were a lot of insects this summer. Many insects are important for berries and fruits, for example.
 
-Now he has his own rental apartment.
-
-There is a severe shortage of student housing in Rovaniemi.
-
-Many students have to sleep on mattresses in emergency accommodation.
-
-The Secretary General of the Student Union **Esa-Pekka Tuppi** says that due to the housing shortage, some students are canceling their study places.
-
-Some only study remotely.
-
-## Viking treasure discovery
-
-Finally, news of a historic treasure discovery.
-
-A large Viking Age treasure has been found in Sysmä, Päijät-Häme.
-
-Metal detectorist **Kalle Lappinen** was searching for objects in the forest when he made the discovery.
-
-Thousands of old silver coins were found in the ground.
-
-They were in two wooden containers. There was a total of 4.5 kilograms of silver.
-
-Finland's largest Viking Age treasure has been found in Sysmä.
-
-The discovery is more than twice as large as previous discoveries in Finland.
-
-In addition to the money, a silver bracelet was also found.
-
-The search for ancient artifacts is still continuing in the area.
-
-## Wednesday's weather
+## Weather
 
 Still a weather forecast.
 
-The weather on Wednesday will be variable. It will rain in most parts of the country.
-
-It's sunny and breezy in Northern Lapland.
-
-The temperature is 11-18 degrees.
+Tomorrow, Thursday, the weather will be variable. It will rain in most parts of the country. Thunderstorms are also possible. There will be light rain in the north. The temperature will be between 10 and 16 degrees.

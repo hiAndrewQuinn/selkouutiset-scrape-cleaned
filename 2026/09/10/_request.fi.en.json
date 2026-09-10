@@ -1,5 +1,4 @@
 {
-   "format" : "text",
    "q" : [
       "# Selkouutiset | keskiviikko 9.9.2026",
       "",
@@ -49,6 +48,7 @@
       "",
       "Huomenna torstaina sää on vaihtelevaa. Suuressa osassa maata sataa vettä. Myös ukkonen on mahdollinen. Pohjoisessa on poutaa. Lämpötila on 10 ja 16 asteen välillä."
    ],
-   "source" : "fi",
-   "target" : "en"
+   "format" : "text",
+   "target" : "en",
+   "source" : "fi"
 }

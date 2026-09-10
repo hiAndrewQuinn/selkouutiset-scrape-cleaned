@@ -1,47 +1,81 @@
-# Clear News | Wednesday 9.9.2026
+# Clear News | Thursday 10.9.2026
 
-Pisa study. Work. Insects. Weather.
+Google. Arapovit. Invasive species. Weather forecast.
 
-## Pisa study
+## Google's investment in Finland
 
-First, news from school.
+First, some news about the economy.
 
-The educational results of Finnish youth are worse than before.
+Technology company Google is investing 13 billion euros in Finland.
 
-The Pisa study shows that the literacy skills of young people have declined the most. Finland is now in 17th place.
+Google executives announced the news yesterday \[Wednesday\].
 
-The skills of Finnish 15-year-olds are still better than the average elsewhere.
+Google is building three new data centers in Finland.
 
-The educational results of Finnish youth are worse than before. The skills are now declining the most among young people whose families have a good financial situation. Previously, they did the best.
+They will be located in Vaala, Muhos and Kajaani. Google is also expanding its Hamina data center.
 
-## Work
+Data centers need a lot of electricity.
 
-Now, news about work.
+That is why Google buys electricity from the Loviisa nuclear power plant, for example.
 
-For young employees, the most important thing at work is salary. This is according to a new survey. Previously, interesting work tasks and a good atmosphere were more important than salary.
+Many Finns are afraid that the price of electricity will rise.
 
-Many young people now want a permanent job that will last a long time.
+Prime Minister **Petteri Orpo** says that the price of electricity will not increase. Orpo says that Finland will increase electricity production.
 
-Expert **Jasmine Juokslahti** says that the change began during the corona period:
+Google is investing 13 billion euros in Finland.
 
--Before the coronavirus, young people thought that there would always be work for good guys. They weren't afraid of short breaks. They were ready to accept shorter employment relationships and, for example, go to Bali to surf and then return to working life.
+The major investment will bring thousands of new jobs to Finland.
 
-For young workers, the most important thing at work is their salary. Young people also hope that salaries are disclosed openly in the workplace.
+## The conversion of Katya and Sergei Arapov
 
-## Insects
+Now the news about immigration.
 
-The next topic is insects.
+Finland plans to deport Russian couple **Katja** and **Sergei Arapov**.
 
-There were a lot of insects this summer. The reason is that the summer weather was good for insects.
+The Arapovs have been seeking asylum in Finland for 4 years.
 
-Statistics show that, for example, there were many more butterflies in Finland this year than last year. However, this year is an exception. The number of butterflies has been decreasing.
+They learned Finnish and got jobs.
 
-This is where we study insects in Karjalohja. There are lots of butterflies in the yard, for example.
+The Arapovs are afraid to return to Russia because they oppose the war in Ukraine.
 
-There were a lot of insects this summer. Many insects are important for berries and fruits, for example.
+However, the Finnish Immigration Service says that the Arapovs are not in danger in Russia.
 
-## Weather
+Finnish law states that an asylum seeker is not allowed to apply for a work permit.
+
+Minister of the Interior **Mari Rantanen** says that the law does not need to be changed.
+
+Finland plans to deport the Arapov couple from the country.
+
+The conversion to Russia can happen at any time.
+
+## Marine invasive species
+
+Finally, news about alien species.
+
+Scientists take samples of small marine animals in ports.
+
+Harmful alien species enter ports with ships.
+
+The Finnish Environment Institute has discovered more than 10 new species in harbors.
+
+The newest invasive species is the common hawkmoth.
+
+Senior researcher **Riikka Puntila-Dodd** says that domestic algae blooms are beneficial to bladderwrack.
+
+The new predatory beetle is harmful because it eats beneficial beetles.
+
+Many alien species arrive in ships' ballast water. The new agreement requires ships to clean their ballast water.
+
+It is still difficult to remove invasive species from the sea.
+
+## Friday weather
 
 Still a weather forecast.
 
-Tomorrow, Thursday, the weather will be variable. It will rain in most parts of the country. Thunderstorms are also possible. There will be light rain in the north. The temperature will be between 10 and 16 degrees.
+On Friday, the sun will shine in Lapland and southwestern Finland.
+
+Elsewhere it will be mostly cloudy.
+
+There may be some rain in Eastern Finland.
+
+The temperature is 10–17 degrees.

@@ -1,81 +1,80 @@
-# Clear News | Thursday 10.9.2026
+# Clear News | Friday 11.09.2026
 
-Google. Arapovit. Invasive species. Weather forecast.
+Loan interest rates. Financial skills for young people. Mining messes. Weather forecast.
 
-## Google's investment in Finland
+## Mortgage interest rates
 
 First, some news about the economy.
 
-Technology company Google is investing 13 billion euros in Finland.
+The European Central Bank (ECB) has raised its key interest rate.
 
-Google executives announced the news yesterday \[Wednesday\].
+The ECB wants to stop the rise in prices. The rise in prices is accelerating because of the war with Iran.
 
-Google is building three new data centers in Finland.
+The European Central Bank (ECB) has raised its key interest rate.
 
-They will be located in Vaala, Muhos and Kajaani. Google is also expanding its Hamina data center.
+Interest rate hikes affect Finnish housing loans.
 
-Data centers need a lot of electricity.
+Economist **Kaisa Kivipelto** says that the banks knew how to wait for the ECB's decision.
 
-That is why Google buys electricity from the Loviisa nuclear power plant, for example.
+Mortgage interest rates have already risen to over three percent.
 
-Many Finns are afraid that the price of electricity will rise.
+Therefore, the ECB's interest rate decision will not raise mortgage interest rates any further.
 
-Prime Minister **Petteri Orpo** says that the price of electricity will not increase. Orpo says that Finland will increase electricity production.
+However, the ECB may raise interest rates further this year.
 
-Google is investing 13 billion euros in Finland.
+## Financial skills for young people
 
-The major investment will bring thousands of new jobs to Finland.
+Now, news about young people's finances.
 
-## The conversion of Katya and Sergei Arapov
+There are big differences in young people's financial skills, according to a new study.
 
-Now the news about immigration.
+High school students know more about money than vocational school students. Boys know more about money than girls.
 
-Finland plans to deport Russian couple **Katja** and **Sergei Arapov**.
+17-year-old **Anni Ryti** is studying for a degree in transportation at a vocational college. She also attends evening high school.
 
-The Arapovs have been seeking asylum in Finland for 4 years.
+Ryti saves money.
 
-They learned Finnish and got jobs.
+He learned important financial skills at home because his parents talked about money.
 
-The Arapovs are afraid to return to Russia because they oppose the war in Ukraine.
+*"How do you want to handle your finances? What kind of situations do you want to be in?"
+Maybe you want to build up a buffer and avoid a terrible amount of debt.”*
 
-However, the Finnish Immigration Service says that the Arapovs are not in danger in Russia.
+There are big differences in young people's financial skills.
 
-Finnish law states that an asylum seeker is not allowed to apply for a work permit.
+Professor **Terhi-Anna Wilska** says that poor financial skills can lead to debt and poverty later on.
 
-Minister of the Interior **Mari Rantanen** says that the law does not need to be changed.
+Therefore, financial education needs to be increased, especially in vocational schools.
 
-Finland plans to deport the Arapov couple from the country.
+## Cleaning up old mines
 
-The conversion to Russia can happen at any time.
+Finally, environmental news.
 
-## Marine invasive species
+Municipalities may have to pay for the cleanup of old mines.
 
-Finally, news about alien species.
+This is the old Särkiniemi mine in Leppävirta.
 
-Scientists take samples of small marine animals in ports.
+The municipality of Leppävirta will have to pay for the mine cleanup.
 
-Harmful alien species enter ports with ships.
+The mining company went bankrupt, and the state has no money to help.
 
-The Finnish Environment Institute has discovered more than 10 new species in harbors.
+State money went to clean up another mine.
 
-The newest invasive species is the common hawkmoth.
+Municipal Mayor **Matti Raatikainen** says that the bill is out of school funds.
 
-Senior researcher **Riikka Puntila-Dodd** says that domestic algae blooms are beneficial to bladderwrack.
+Municipalities may have to pay for the cleanup of old mines because the perpetrators of environmental destruction cannot be held accountable.
 
-The new predatory beetle is harmful because it eats beneficial beetles.
+The Association of Local and Regional Authorities wants the state to pay for the cleanup of mines in the future.
 
-Many alien species arrive in ships' ballast water. The new agreement requires ships to clean their ballast water.
-
-It is still difficult to remove invasive species from the sea.
-
-## Friday weather
+## Saturday weather
 
 Still a weather forecast.
 
-On Friday, the sun will shine in Lapland and southwestern Finland.
+The sun will shine in the west on Saturday.
 
-Elsewhere it will be mostly cloudy.
+It is cloudy in the east.
 
-There may be some rain in Eastern Finland.
+It can rain a little in the south sometimes.
 
-The temperature is 10–17 degrees.
+The temperature is 10–18 degrees.
+
+It is warmest on the west coast.

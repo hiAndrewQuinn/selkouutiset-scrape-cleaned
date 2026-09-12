@@ -1,7 +1,5 @@
 {
    "target" : "en",
-   "source" : "fi",
-   "format" : "text",
    "q" : [
       "# Selkouutiset | perjantai 11.09.2026",
       "",
@@ -83,5 +81,7 @@
       "Lämpötila on 10–18 astetta.",
       "",
       "Lämpimintä on länsirannikolla."
-   ]
+   ],
+   "format" : "text",
+   "source" : "fi"
 }

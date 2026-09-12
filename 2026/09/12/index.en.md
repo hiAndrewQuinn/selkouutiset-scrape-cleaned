@@ -1,80 +1,81 @@
-# Clear News | Friday 11.09.2026
+# News of the week in plain Finnish | Saturday 12.9.2026
 
-Loan interest rates. Financial skills for young people. Mining messes. Weather forecast.
+Finland's Pisa results have deteriorated further.
 
-## Mortgage interest rates
+Listen
 
-First, some news about the economy.
+You can read the news simultaneously below.
 
-The European Central Bank (ECB) has raised its key interest rate.
+## Pisa study and Finland
 
-The ECB wants to stop the rise in prices. The rise in prices is accelerating because of the war with Iran.
+![The large screen presents the structure of the PISA 2025 study and the areas to be assessed using diagrams and texts.](https://img.img-cdn.yle.fi/crop_extract,w_5836,h_3282,x_12,y_283/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17038016a9fc872531ba/1788857175)
 
-The European Central Bank (ECB) has raised its key interest rate.
+Open image viewer
 
-Interest rate hikes affect Finnish housing loans.
+Photo: Terhi Liimu / Yle
 
-Economist **Kaisa Kivipelto** says that the banks knew how to wait for the ECB's decision.
+There has been a lot of talk this week about the Pisa results of Finnish schoolchildren.
 
-Mortgage interest rates have already risen to over three percent.
+The PISA study is an international study. It measures the skills of 15-year-olds in different countries. The study is conducted every 3 years.
 
-Therefore, the ECB's interest rate decision will not raise mortgage interest rates any further.
+Finland used to be at the forefront of research. Now the results have been deteriorating for many years.
 
-However, the ECB may raise interest rates further this year.
+Let's tell you more about Pisa now.
 
-## Financial skills for young people
+## Literacy
 
-Now, news about young people's finances.
+Skip the infographic
 
-There are big differences in young people's financial skills, according to a new study.
+The Pisa results of Finnish youth have deteriorated again. In particular, literacy has dropped significantly. Finland is now in 17th place in literacy, tied with Italy.
 
-High school students know more about money than vocational school students. Boys know more about money than girls.
+In natural sciences, Finland is still better than average and ranked 12th.
 
-17-year-old **Anni Ryti** is studying for a degree in transportation at a vocational college. She also attends evening high school.
+In mathematics, Finland is tied for 22nd place with Slovakia.
 
-Ryti saves money.
+In Finland, competence has fallen more in 10 years than in most other countries in the study.
 
-He learned important financial skills at home because his parents talked about money.
+There were a total of 91 participating countries.
 
-*"How do you want to handle your finances? What kind of situations do you want to be in?"
-Maybe you want to build up a buffer and avoid a terrible amount of debt.”*
+## Natural Sciences
 
-There are big differences in young people's financial skills.
+Skip the infographic
 
-Professor **Terhi-Anna Wilska** says that poor financial skills can lead to debt and poverty later on.
+Finland's Pisa results were at the top in 2006. For example, in science, Finland was in first place. In literacy and mathematics, Finland was in second place.
 
-Therefore, financial education needs to be increased, especially in vocational schools.
+Since then, the results have deteriorated.
 
-## Cleaning up old mines
+In Finland, the differences within schools have grown a lot. In other parts of the world, there are many differences between different schools.
 
-Finally, environmental news.
+What is new in Finland is that the skills have now declined the most among children from so-called well-off families.
 
-Municipalities may have to pay for the cleanup of old mines.
+For example, young people in Estonia performed better than in Finland. Experts estimate that education is highly valued in Estonia.
 
-This is the old Särkiniemi mine in Leppävirta.
+In Finland, many young people may not see as clearly how education affects their future life.
 
-The municipality of Leppävirta will have to pay for the mine cleanup.
+Skip the infographic
 
-The mining company went bankrupt, and the state has no money to help.
+## Reasons for poor success
 
-State money went to clean up another mine.
+![Graphic of PISA results in Finland in 2000–2022. Science, literacy and mathematics scores have decreased. Source: OECD, OKM.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-163525669f248d6860ca/1777486320)
 
-Municipal Mayor **Matti Raatikainen** says that the bill is out of school funds.
+Open image viewer
 
-Municipalities may have to pay for the cleanup of old mines because the perpetrators of environmental destruction cannot be held accountable.
+Photo: Pekka Sipilä / Yle
 
-The Association of Local and Regional Authorities wants the state to pay for the cleanup of mines in the future.
+Researchers say there are many reasons for the poor performance.
 
-## Saturday weather
+Children and young people read too little. They have difficulty concentrating. Only 41 percent of students try harder if the work seems difficult.
 
-Still a weather forecast.
+Phones and other digital devices easily distract attention. Teaching groups are often too large. People with an immigrant background do not always have sufficient knowledge of Finnish or Swedish.
 
-The sun will shine in the west on Saturday.
+The teaching profession says that teachers should be able to focus specifically on teaching.
 
-It is cloudy in the east.
+## Repetition
 
-It can rain a little in the south sometimes.
+Let's say it again.
 
-The temperature is 10–18 degrees.
+The Pisa results of Finnish youth have deteriorated again. In particular, reading skills have declined significantly.
 
-It is warmest on the west coast.
+In Finland, competence has fallen more in 10 years than in most comparison countries.
+
+Here was the News of the Week in plain Finnish. See you again, bye!

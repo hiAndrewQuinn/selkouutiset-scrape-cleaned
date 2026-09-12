@@ -1,80 +1,81 @@
-# Selkouutiset | perjantai 11.09.2026
+# Viikon uutinen selkosuomeksi | lauantai 12.9.2026
 
-Lainakorot. Nuorten taloustaidot. Kaivossotkut. Sääennuste.
+Suomen Pisa-tulokset ovat huonontuneet edelleen.
 
-## Asuntolainojen korot
+Kuuntele
 
-Aluksi uutinen taloudesta.
+Voit lukea uutiset samanaikaisesti alta.
 
-Euroopan keskuspankki EKP on nostanut ohjauskorkoa.
+## Pisa-tutkimus ja Suomi
 
-EKP haluaa pysäyttää hintojen nousun. Hintojen nousu kiihtyy Iranin sodan takia.
+![Suuri näyttö esittää PISA 2025 -tutkimuksen rakennetta ja arvioitavia alueita kaavioiden ja tekstien avulla.](https://img.img-cdn.yle.fi/crop_extract,w_5836,h_3282,x_12,y_283/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17038016a9fc872531ba/1788857175)
 
-Euroopan keskuspankki EKP on nostanut ohjauskorkoa.
+Avaa kuvien katselu
 
-Koronnostot vaikuttavat suomalaisten asuntolainoihin.
+Kuva: Terhi Liimu / Yle
 
-Ekonomisti **Kaisa Kivipelto** kertoo, että pankit osasivat odottaa EKP:n päätöstä.
+Tällä viikolla on puhuttu paljon Suomen koululaisten Pisa-tuloksista.
 
-Asuntolainojen korot ovat jo nousseet yli kolmeen prosenttiin.
+Pisa-tutkimus on kansainvälinen tutkimus. Se mittaa 15-vuotiaiden osaamista eri maissa. Tutkimus tehdään 3 vuoden välein.
 
-Siksi EKP:n korkopäätös ei nyt nosta asuntolainojen korkoja lisää.
+Suomi on aiemmin ollut tutkimuksen kärjessä. Nyt tulokset ovat huonontuneet jo monta vuotta.
 
-EKP voi kuitenkin nostaa korkoa lisää vielä tänä vuonna.
+Kerromme Pisasta nyt lisää.
 
-## Nuorten taloustaidot
+## Lukutaito
 
-Nyt uutinen nuorten raha-asioista.
+Ohita infografiikka
 
-Nuorten taloustaidoissa on isoja eroja. Näin kertoo uusi tutkimus.
+Suomalaisten nuorten Pisa-tulokset ovat taas heikentyneet. Erityisesti lukutaito on laskenut paljon. Suomi on nyt lukutaidossa sijalla 17 Italian kanssa.
 
-Lukiolaiset osaavat raha-asiat paremmin kuin ammattikoululaiset. Pojat osaavat raha-asiat paremmin kuin tytöt.
+Luonnontieteissä Suomi on edelleen keskitasoa parempi ja sijoittui sijalle 12.
 
-17-vuotias **Anni Ryti** suorittaa kuljetusalan tutkintoa ammattiopistossa. Hän käy myös iltalukiota.
+Matematiikassa Suomi on sijalla 22 Slovakian kanssa.
 
-Ryti säästää rahaa.
+Suomessa osaaminen on pudonnut 10 vuodessa enemmän kuin useimmissa muissa tutkimuksen maissa.
 
-Hän oppi tärkeät taloustaidot kotona, koska vanhemmat puhuivat rahasta.
+Osallistujamaita oli yhteensä 91.
 
-*”Miten haluu hoitaa raha-asioita. Millaisissa tilanteissa haluaa olla.  
-Haluaa ehkä kerryttää puskuria ja välttää kauheaa määrää velkaa. ”*
+## Luonnotieteet
 
-Nuorten taloustaidoissa on isoja eroja.
+Ohita infografiikka
 
-Professori **Terhi-Anna Wilska** sanoo, että huonot taloustaidot voivat johtaa myöhemmin velkoihin ja köyhyyteen.
+Suomen Pisa-tulokset olivat huipulla vuonna 2006. Esimerkiksi luonnontieteissä Suomi oli sijalla 1. Lukutaidossa ja matematiikassa Suomi oli sijalla 2.
 
-Siksi talousopetusta pitää lisätä erityisesti ammattikouluissa.
+Sen jälkeen tulokset ovat huonontuneet.
 
-## Vanhojen kaivosten siivoaminen
+Suomessa koulujen sisäiset erot ovat kasvaneet paljon. Muualla maailmassa eroja on paljon eri koulujen välillä.
 
-Lopuksi ympäristöuutinen.
+Uutta Suomessa on se, että osaaminen heikkeni nyt eniten niin sanottujen hyväosaisten perheiden lapsilla.
 
-Kunnat voivat joutua maksamaan vanhojen kaivosten siivoamisen.
+Esimerkiksi Virossa nuoret menestyivät paremmin kuin Suomessa. Asiantuntijat arvioivat, että Virossa koulutusta arvostetaan vahvasti.
 
-Tämä on Särkiniemen vanha kaivos Leppävirralla.
+Suomessa moni nuori ei ehkä näe yhtä selvästi, miten koulutus vaikuttaa tulevaan elämään.
 
-Leppävirran kunta joutuu maksamaan kaivoksen siivoamisen.
+Ohita infografiikka
 
-Kaivosfirma meni konkurssiin, eikä valtiolla ole rahaa apuun.
+## Huonon menestyksen syitä
 
-Valtion rahat menivät toisen kaivoksen siivoamiseen.
+![Grafiikka PISA-tuloksista Suomessa vuosina 2000–2022. Luonnontieteiden, lukutaidon ja matematiikan pisteet ovat laskeneet. Lähde: OECD, OKM.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-163525669f248d6860ca/1777486320)
 
-Kunnanjohtaja **Matti Raatikainen** sanoo, että lasku on pois koulujen rahoista.
+Avaa kuvien katselu
 
-Kunnat voivat joutua maksamaan vanhojen kaivosten siivoamisen, koska ympäristötuhon tekijää ei saada vastuuseen.
+Kuva: Pekka Sipilä / Yle
 
-Kuntaliitto haluaa, että valtio maksaa jatkossa kaivosten siivoamisen.
+Tutkijat sanovat, että huonoon menestykseen on monta syytä.
 
-## Lauantain sää
+Lapset ja nuoret lukevat liian vähän. Heidän on vaikea keskittyä. Vain 41 prosenttia oppilaista yrittää enemmän, jos työ tuntuu vaikealta.
 
-Vielä sääennuste.
+Puhelimet ja muut digilaitteet vievät helposti huomion. Opetusryhmät ovat usein liian suuria. Maahanmuuttajataustaisilla suomen tai ruotsin taito ei aina ole riittävä.
 
-Lauantaina lännessä paistaa aurinko.
+Opetusalan ammattijärjestö sanoo, että opettajien pitää saada keskittyä nimenomaan opettamiseen.
 
-Idässä on pilvistä.
+## Kertaus
 
-Etelässä voi välillä sataa vähän vettä.
+Kerrataan vielä.
 
-Lämpötila on 10–18 astetta.
+Suomalaisten nuorten Pisa-tulokset ovat taas heikentyneet. Erityisesti lukutaito on laskenut paljon.
 
-Lämpimintä on länsirannikolla.
+Suomessa osaaminen on pudonnut 10 vuodessa enemmän kuin useimmissa vertailumaissa.
+
+Tässä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

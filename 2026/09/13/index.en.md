@@ -1,81 +1,113 @@
-# News of the week in plain Finnish | Saturday 12.9.2026
+# Newsweek in plain Finnish | Sunday 13.9.2026
 
-Finland's Pisa results have deteriorated further.
+Eastern border fence. Security police. Foreign students. Uusikaupunki car factory. Taxi license plates. Yle 100 years.
 
 Listen
 
 You can read the news simultaneously below.
 
-## Pisa study and Finland
+## Eastern border fence
 
-![The large screen presents the structure of the PISA 2025 study and the areas to be assessed using diagrams and texts.](https://img.img-cdn.yle.fi/crop_extract,w_5836,h_3282,x_12,y_283/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17038016a9fc872531ba/1788857175)
-
-Open image viewer
-
-Photo: Terhi Liimu / Yle
-
-There has been a lot of talk this week about the Pisa results of Finnish schoolchildren.
-
-The PISA study is an international study. It measures the skills of 15-year-olds in different countries. The study is conducted every 3 years.
-
-Finland used to be at the forefront of research. Now the results have been deteriorating for many years.
-
-Let's tell you more about Pisa now.
-
-## Literacy
-
-Skip the infographic
-
-The Pisa results of Finnish youth have deteriorated again. In particular, literacy has dropped significantly. Finland is now in 17th place in literacy, tied with Italy.
-
-In natural sciences, Finland is still better than average and ranked 12th.
-
-In mathematics, Finland is tied for 22nd place with Slovakia.
-
-In Finland, competence has fallen more in 10 years than in most other countries in the study.
-
-There were a total of 91 participating countries.
-
-## Natural Sciences
-
-Skip the infographic
-
-Finland's Pisa results were at the top in 2006. For example, in science, Finland was in first place. In literacy and mathematics, Finland was in second place.
-
-Since then, the results have deteriorated.
-
-In Finland, the differences within schools have grown a lot. In other parts of the world, there are many differences between different schools.
-
-What is new in Finland is that the skills have now declined the most among children from so-called well-off families.
-
-For example, young people in Estonia performed better than in Finland. Experts estimate that education is highly valued in Estonia.
-
-In Finland, many young people may not see as clearly how education affects their future life.
-
-Skip the infographic
-
-## Reasons for poor success
-
-![Graphic of PISA results in Finland in 2000–2022. Science, literacy and mathematics scores have decreased. Source: OECD, OKM.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-163525669f248d6860ca/1777486320)
+![A border fence with barbed wire in a forested area, with surveillance cameras next to the fence.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_32/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17034476a9eb2dbce70f/1788786229)
 
 Open image viewer
 
-Photo: Pekka Sipilä / Yle
+The eastern border barrier in Nuijamaa. Photo: Mikko Savolainen / Yle
 
-Researchers say there are many reasons for the poor performance.
+First, the news about the fence on the eastern border.
 
-Children and young people read too little. They have difficulty concentrating. Only 41 percent of students try harder if the work seems difficult.
+Finland has completed a fence on its eastern border. The fence is intended to prevent people from crossing the border into Finland without permission.
 
-Phones and other digital devices easily distract attention. Teaching groups are often too large. People with an immigrant background do not always have sufficient knowledge of Finnish or Swedish.
+The fence is 200 kilometers long. There is a fence along part of the eastern border, which is over 1,300 kilometers long.
 
-The teaching profession says that teachers should be able to focus specifically on teaching.
+There are now fences in 17 municipalities.
 
-## Repetition
+## Finnish security
 
-Let's say it again.
+![The relatively new office building of the Finnish Security Intelligence Service in Helsinki.](https://img.img-cdn.yle.fi/crop_extract,w_5763,h_3241,x_0,y_220/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-160819469aadf1cd7134/1772806271)
 
-The Pisa results of Finnish youth have deteriorated again. In particular, reading skills have declined significantly.
+Open image viewer
 
-In Finland, competence has fallen more in 10 years than in most comparison countries.
+The Security Police building in the Guard Quarter in Helsinki. Photo: Silja Viitala / Yle
 
-Here was the News of the Week in plain Finnish. See you again, bye!
+Then about safety.
+
+The Security Police have assessed that more people than before are a threat to Finland's security.
+
+Last year, the security police gave the Finnish Immigration Service a statement about approximately 50 people.
+
+The number is about twice as large as in previous years.
+
+## Living expenses for foreign students
+
+![Tampere University Pinni A building.](https://img.img-cdn.yle.fi/crop_extract,w_3648,h_2052,x_0,y_1997/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16805896a620688308ed/1784809354)
+
+Open image viewer
+
+Tampere University's Pinni A building. Photo: Lenni Lehtonen / Yle
+
+Now about foreign students.
+
+The government wants to tighten the residence permit requirements for foreign students.
+
+The reason is that not all students have enough money or language skills. The student's family could only apply for a permit after the student has lived in Finland for a year.
+
+This way, the student can better see how the entire family's finances are sufficient to live in Finland.
+
+## Uusikaupunki car factory
+
+![Two men install electrical wiring in the body of a bus at a factory.](https://img.img-cdn.yle.fi/crop_extract,w_5712,h_3213,x_0,y_159/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17054896aa29bbe5345d/1789041669)
+
+Open image viewer
+
+Manufacturing of bus electrical systems at Valmet Automotive's factory. Photo: Ari Welling / Yle
+
+Now industry news
+
+The Uusikaupunki car factory has been negotiating the production of Chinese passenger cars.
+
+The company has expanded its operations into the defense industry and bus manufacturing.
+
+The factory director believes that Valmet Automotive will also start manufacturing passenger cars.
+
+The factory's last Mercedes-Benz passenger car was completed at the end of last year.
+
+## Taxi license plates
+
+![A green-based Finnish license plate with the text &quot;ABC-123&quot; and the blue FIN symbol on the left.](https://img.img-cdn.yle.fi/crop_extract,w_1851,h_1041,x_1358,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17056386aa2ae2ab17f0/1789046364)
+
+Open image viewer
+
+This is what taxi license plates will look like next year. Photo: Traficom
+
+Then taxis.
+
+Taxi license plates will turn green.
+
+The Government has issued a decree on taxi registration numbers.
+
+The changes will come into effect at the turn of the year, at the same time as the Vehicle Act changes.
+
+The registration number is in black letters on a green background.
+
+## Yle 100 years
+
+![The audience is sitting in the stands and holding their mobile phones up with the lights on in a dark hall, with blue lights visible in the background.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17032366a9e7ce2f0e7c/1788777372)
+
+Open image viewer
+
+Yle's 100th anniversary event at the Helsinki Arena on September 6, 2026 Photo: Ville Maali
+
+Finally, a little history about Yle.
+
+Yle turned 100 this week. Yle's first radio broadcast was heard on September 9, 1926.
+
+In 1958, Yle began regular television broadcasts under the name Finnish Television.
+
+Yle's funding changed in 2013. At that time, the TV fee was replaced by the Yle tax.
+
+In 2022, plain-language news on radio turned 30. Plain-language TV news turned 10 last year.
+
+The oldest type of program on Yleisradio is the church service. That is why the radio church service also celebrated its 100th anniversary.
+
+This was a news week in plain Finnish. See you again, let's hear from you!

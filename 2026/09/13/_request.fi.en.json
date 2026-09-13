@@ -1,6 +1,5 @@
 {
    "format" : "text",
-   "source" : "fi",
    "q" : [
       "# Viikon uutinen selkosuomeksi | lauantai 12.9.2026",
       "",
@@ -84,5 +83,6 @@
       "",
       "Tässä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!"
    ],
-   "target" : "en"
+   "target" : "en",
+   "source" : "fi"
 }

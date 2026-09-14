@@ -1,7 +1,4 @@
 {
-   "format" : "text",
-   "source" : "fi",
-   "target" : "en",
    "q" : [
       "# Uutisviikko selkosuomeksi | sunnuntai 13.9.2026",
       "",
@@ -116,5 +113,8 @@
       "Yleisradion vanhin ohjelmatyyppi on jumalanpalvelus. Siksi myös radiojumalanpalvelus täytti 100 vuotta.",
       "",
       "Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!"
-   ]
+   ],
+   "format" : "text",
+   "target" : "en",
+   "source" : "fi"
 }

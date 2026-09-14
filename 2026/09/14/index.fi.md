@@ -1,113 +1,67 @@
-# Uutisviikko selkosuomeksi | sunnuntai 13.9.2026
+# Selkouutiset | maanantai 14.9.2026
 
-Itärajan aita. Suojelupoliisi. Ulkomaiset opiskelijat. Uudenkaupungin autotehdas. Taksien rekisterikilvet. Yle 100 vuotta.
+Suojelupoliisi. Bensan hinta. Kesäranta. Sää
 
-Kuuntele
+## Suojelupoliisi: Vaarallisia ihmisiä aiempaa enemmän
 
-Voit lukea uutiset samanaikaisesti alta.
+Ensin uutinen ihmisistä, joita suojelupoliisi pitää vaarallisina.
 
-## Itärajan aita
+Suojelupoliisi kertoo, että vaarallisia ihmisiä on paljon enemmän kuin aikaisemmin.
 
-![Piikkilangalla varustettu raja-aita metsäisessä maastossa, aidan vieressä valvontakameroita.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_32/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17034476a9eb2dbce70f/1788786229)
+Suojelupoliisi ilmoitti viime vuonna maahanmuuttovirastolle 53 vaarallisesta ihmisestä. Se on kaksi kertaa enemmän ilmoituksia kuin vuonna 2020.
 
-Avaa kuvien katselu
+Moni ihminen ei tiedä, miksi suojelupoliisi pitää heitä vaarallisina.
 
-Itärajan esteaita Nuijamaalla. Kuva: Mikko Savolainen / Yle
+Irakilainen Omar kertoo oman tarinansa Ylelle.
 
-Aluksi uutinen aidasta itärajalla.
+Omarin mukaan suojelupoliisi halusi, että Omar vakoilee tuttuja ihmisiä.
 
-Suomi on saanut valmiiksi aidan itärajalla. Aidan on tarkoitus estää rajanylitys Suomeen ilman lupaa.
+Omar ei suostunut, koska hän pelkäsi. Sen jälkeen suojelupoliisi päätti, että Omar on vaarallinen. Hän joutuu poistumaan Suomesta.
 
-Aita on 200 kilometriä pitkä. Aitaa on osalla itärajaa, joka on yli 1300 kilometriä pitkä.
+Suojelupoliisi sanoo, että he eivät pakota ihmisiä vakoilemaan.
 
-Aitaa on nyt 17 kunnan alueella.
+Suojelupoliisi kertoo, että vaarallisia ihmisiä on paljon enemmän kuin aikaisemmin.
 
-## Suomen turvallisuus
+## Bensa on nyt tosi kallista
 
-![Suojelupoliisin uudehko toimitalo Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5763,h_3241,x_0,y_220/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-160819469aadf1cd7134/1772806271)
+Sitten uutinen bensan hinnasta.
 
-Avaa kuvien katselu
+Auton tankkaaminen on nyt tosi kallista myös Suomessa.
 
-Suojelupoliisin toimitalo Helsingissä Kaartin korttelissa. Kuva: Silja Viitala / Yle
+Bensa on kallista Lähi-idän sodan takia.
 
-Sitten turvallisuudesta.
+Bensan hinta nousee lisää, jos sota Lähi-idässä ei lopu.
 
-Suojelupoliisi on arvioinut, että aiempaa useampi ihminen on vaara Suomen turvallisuudelle.
+Myös diesel on kallista. Venäjän sota Ukrainassa nostaa dieselin hintaa.
 
-Viime vuonna suojelupoliisi antoi Maahanmuuttovirastolle lausunnon noin 50 ihmisestä.
+Ukraina tuhoaa Venäjän öljylaitoksia, ja Venäjä joutuu ostamaan dieseliä ulkomailta.
 
-Määrä on noin kaksi kertaa niin suuri kuin aiempina vuosina.
+Auton tankkaaminen on nyt kallista. Se on yhtä kallista kuin vuonna 2022, kun Venäjän sota Ukrainassa alkoi.
 
-## Ulkomaisten opiskelijoiden toimeentulo
+Bensan ja dieselin hinnat nousevat sotien vuoksi.
 
-![Tampereen yliopiston Pinni A -rakennus.](https://img.img-cdn.yle.fi/crop_extract,w_3648,h_2052,x_0,y_1997/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16805896a620688308ed/1784809354)
+## Ihmiset vierailivat pääministerin talossa
 
-Avaa kuvien katselu
+Lopuksi käymme kylässä pääministerin luona.
 
-Tampereen yliopiston Pinni A -rakennus. Kuva: Lenni Lehtonen / Yle
+Pääministerin talossa Helsingin Kesärannassa oli lauantaina avoimet ovet.
 
-Nyt ulkomaisista opiskelijoista.
+Ihmiset pääsivät katsomaan, miltä Kesärannassa näyttää.
 
-Hallitus haluaa kiristää ulkomaisten opiskelijoiden oleskelulupaa.
+Pääministerin talo Kesäranta rakennettiin 1800-luvun lopussa.
 
-Syy on se, että kaikilla opiskelijoilla ei ole tarpeeksi rahaa tai kielitaitoa. Opiskelijan perhe voisi hakea lupaa vasta, kun opiskelija on asunut Suomessa vuoden.
+Siitä tuli Suomen pääministerien virka-asunto 1950-luvulla.
 
-Näin opiskelija huomaa paremmin, kuinka koko perheen varat riittävät elämiseen Suomessa.
+Pääministerin talossa Kesärannassa oli lauantaina avoimet ovet.
 
-## Uudenkaupungin autotehdas
+Ihmiset jonottivat sisään jo aikaisin aamulla.
 
-![Kaksi miestä asentaa sähköjä linja-auton runkoon tehtaalla.](https://img.img-cdn.yle.fi/crop_extract,w_5712,h_3213,x_0,y_159/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17054896aa29bbe5345d/1789041669)
+## Tiistain sää
 
-Avaa kuvien katselu
+Vielä sääennuste.
 
-Linja-auton sähköjen valmistusta Valmet Automotiven tehtaalla. Kuva: Ari Welling / Yle
+Sää on huomenna aurinkoista ja poutaista eli ei sada.
 
-Nyt teollisuusuutinen
+Yöllä on kylmä. Pakkasta on monessa paikassa.
 
-Uudenkaupungin autotehdas on neuvotellut kiinalaisten henkilöautojen valmistuksesta.
-
-Yhtiö on laajentanut toimintaa puolustusteollisuuteen ja linja-autojen valmistukseen.
-
-Tehtaan johtaja uskoo, että Valmet Automotive alkaa valmistaa myös henkilöautoja.
-
-Tehtaan viimeinen Mercedes-Benz -merkkinen henkilöauto valmistui tehtaalta viime vuoden lopulla.
-
-## Taksien rekisterikilvet
-
-![Vihreäpohjainen suomalainen rekisterikilpi, jossa teksti &quot;ABC-123&quot; ja sininen FIN-tunnus vasemmalla.](https://img.img-cdn.yle.fi/crop_extract,w_1851,h_1041,x_1358,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17056386aa2ae2ab17f0/1789046364)
-
-Avaa kuvien katselu
-
-Taksien rekisterikilvet näyttävät tältä ensi vuonna. Kuva: Traficom
-
-Sitten takseista.
-
-Taksien rekisterikilvet vaihtuvat vihreiksi.
-
-Hallitus on antanut asetuksen taksien rekisteritunnuksista.
-
-Muutokset tulevat voimaan vuodenvaihteessa samaan aikaan, kun ajoneuvolaki muuttuu.
-
-Rekisteritunnus on mustilla kirjaimilla vihreällä pohjalla.
-
-## Yle 100 vuotta
-
-![Yleisö istuu katsomossa ja pitää matkapuhelimia ylhäällä valot päällä pimeässä salissa, taustalla näkyy sinisiä valoja.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17032366a9e7ce2f0e7c/1788777372)
-
-Avaa kuvien katselu
-
-Ylen 100-vuotisjuhalatapahtuma Helsingin areenassa 6.9.2026 Kuva: Ville Maali
-
-Lopuksi hieman historiaa Ylestä.
-
-Yle täytti tällä viikolla 100 vuotta. Yleisradion ensimmäinen radiolähetys kuultiin 9. syyskuuta vuonna 1926.
-
-Vuonna 1958 Yle aloitti säännölliset televisiolähetykset Suomen television nimellä.
-
-Ylen rahoitus muuttui vuonna 2013. Silloin tv-maksusta siirryttiin Yle-veroon.
-
-Vuonna 2022 selkouutiset radiossa täytti 30 vuotta. Selkokieliset TV-uutiset täytti viime vuonna 10 vuotta.
-
-Yleisradion vanhin ohjelmatyyppi on jumalanpalvelus. Siksi myös radiojumalanpalvelus täytti 100 vuotta.
-
-Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
+Päivällä lämpötila on 10–17 astetta. Lämpimintä on etelässä.

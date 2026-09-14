@@ -1,113 +1,67 @@
-# Newsweek in plain Finnish | Sunday 13.9.2026
+# Clear News | Monday 14.9.2026
 
-Eastern border fence. Security police. Foreign students. Uusikaupunki car factory. Taxi license plates. Yle 100 years.
+Security Police. Gasoline price. Summer beach. Weather
 
-Listen
+## Security Police: More dangerous people than before
 
-You can read the news simultaneously below.
+First, news about people the security police consider dangerous.
 
-## Eastern border fence
+The Security Police say that there are many more dangerous people than before.
 
-![A border fence with barbed wire in a forested area, with surveillance cameras next to the fence.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_32/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17034476a9eb2dbce70f/1788786229)
+The Security Police reported 53 dangerous people to the Immigration Service last year. That is twice as many reports as in 2020.
 
-Open image viewer
+Many people don't know why the security police consider them dangerous.
 
-The eastern border barrier in Nuijamaa. Photo: Mikko Savolainen / Yle
+Iraqi Omar tells his own story to Yle.
 
-First, the news about the fence on the eastern border.
+According to Omar, the security police wanted Omar to spy on people he knew.
 
-Finland has completed a fence on its eastern border. The fence is intended to prevent people from crossing the border into Finland without permission.
+Omar refused because he was afraid. After that, the security police decided that Omar was dangerous. He had to leave Finland.
 
-The fence is 200 kilometers long. There is a fence along part of the eastern border, which is over 1,300 kilometers long.
+The Security Police say they don't force people to spy.
 
-There are now fences in 17 municipalities.
+The Security Police say that there are many more dangerous people than before.
 
-## Finnish security
+## Gasoline is really expensive now
 
-![The relatively new office building of the Finnish Security Intelligence Service in Helsinki.](https://img.img-cdn.yle.fi/crop_extract,w_5763,h_3241,x_0,y_220/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-160819469aadf1cd7134/1772806271)
+Then the news about the price of gasoline.
 
-Open image viewer
+Filling up a car is now really expensive, even in Finland.
 
-The Security Police building in the Guard Quarter in Helsinki. Photo: Silja Viitala / Yle
+Gasoline is expensive because of the war in the Middle East.
 
-Then about safety.
+The price of gasoline will rise further if the war in the Middle East does not end.
 
-The Security Police have assessed that more people than before are a threat to Finland's security.
+Diesel is also expensive. Russia's war in Ukraine is driving up the price of diesel.
 
-Last year, the security police gave the Finnish Immigration Service a statement about approximately 50 people.
+Ukraine destroys Russian oil facilities, and Russia is forced to buy diesel from abroad.
 
-The number is about twice as large as in previous years.
+Filling up your car with gas is expensive now. It's as expensive as it was in 2022, when Russia's war in Ukraine began.
 
-## Living expenses for foreign students
+Gasoline and diesel prices are rising because of wars.
 
-![Tampere University Pinni A building.](https://img.img-cdn.yle.fi/crop_extract,w_3648,h_2052,x_0,y_1997/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16805896a620688308ed/1784809354)
+## People visited the Prime Minister's house
 
-Open image viewer
+Finally, we visit the Prime Minister in the village.
 
-Tampere University's Pinni A building. Photo: Lenni Lehtonen / Yle
+The Prime Minister's house in Kesäranta, Helsinki, had open doors on Saturday.
 
-Now about foreign students.
+People were able to see what Kesäranta looks like.
 
-The government wants to tighten the residence permit requirements for foreign students.
+The Prime Minister's house, Kesäranta, was built at the end of the 19th century.
 
-The reason is that not all students have enough money or language skills. The student's family could only apply for a permit after the student has lived in Finland for a year.
+It became the official residence of Finnish prime ministers in the 1950s.
 
-This way, the student can better see how the entire family's finances are sufficient to live in Finland.
+The Prime Minister's house in Kesäranta had open doors on Saturday.
 
-## Uusikaupunki car factory
+People were queuing to get in early in the morning.
 
-![Two men install electrical wiring in the body of a bus at a factory.](https://img.img-cdn.yle.fi/crop_extract,w_5712,h_3213,x_0,y_159/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17054896aa29bbe5345d/1789041669)
+## Tuesday weather
 
-Open image viewer
+Still a weather forecast.
 
-Manufacturing of bus electrical systems at Valmet Automotive's factory. Photo: Ari Welling / Yle
+The weather tomorrow will be sunny and breezy, meaning it won't rain.
 
-Now industry news
+It's cold at night. It's freezing in many places.
 
-The Uusikaupunki car factory has been negotiating the production of Chinese passenger cars.
-
-The company has expanded its operations into the defense industry and bus manufacturing.
-
-The factory director believes that Valmet Automotive will also start manufacturing passenger cars.
-
-The factory's last Mercedes-Benz passenger car was completed at the end of last year.
-
-## Taxi license plates
-
-![A green-based Finnish license plate with the text &quot;ABC-123&quot; and the blue FIN symbol on the left.](https://img.img-cdn.yle.fi/crop_extract,w_1851,h_1041,x_1358,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17056386aa2ae2ab17f0/1789046364)
-
-Open image viewer
-
-This is what taxi license plates will look like next year. Photo: Traficom
-
-Then taxis.
-
-Taxi license plates will turn green.
-
-The Government has issued a decree on taxi registration numbers.
-
-The changes will come into effect at the turn of the year, at the same time as the Vehicle Act changes.
-
-The registration number is in black letters on a green background.
-
-## Yle 100 years
-
-![The audience is sitting in the stands and holding their mobile phones up with the lights on in a dark hall, with blue lights visible in the background.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17032366a9e7ce2f0e7c/1788777372)
-
-Open image viewer
-
-Yle's 100th anniversary event at the Helsinki Arena on September 6, 2026 Photo: Ville Maali
-
-Finally, a little history about Yle.
-
-Yle turned 100 this week. Yle's first radio broadcast was heard on September 9, 1926.
-
-In 1958, Yle began regular television broadcasts under the name Finnish Television.
-
-Yle's funding changed in 2013. At that time, the TV fee was replaced by the Yle tax.
-
-In 2022, plain-language news on radio turned 30. Plain-language TV news turned 10 last year.
-
-The oldest type of program on Yleisradio is the church service. That is why the radio church service also celebrated its 100th anniversary.
-
-This was a news week in plain Finnish. See you again, let's hear from you!
+The temperature during the day is 10–17 degrees. It is warmest in the south.

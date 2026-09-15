@@ -1,67 +1,67 @@
-# Clear News | Monday 14.9.2026
+# Clear News | Tuesday 15.9.2026
 
-Security Police. Gasoline price. Summer beach. Weather
+Nuclear weapons. Finnish economy. Too much stuff. Weather
 
-## Security Police: More dangerous people than before
+## Finland for cooperation on nuclear weapons
 
-First, news about people the security police consider dangerous.
+First, the news about nuclear weapons.
 
-The Security Police say that there are many more dangerous people than before.
+Finland and France begin nuclear weapons cooperation.
 
-The Security Police reported 53 dangerous people to the Immigration Service last year. That is twice as many reports as in 2020.
+Finland joins France's nuclear deterrent. The deterrent is used to counter the Russian threat.
 
-Many people don't know why the security police consider them dangerous.
+France is the only country in the EU that has nuclear weapons.
 
-Iraqi Omar tells his own story to Yle.
+Finland and France begin to cooperate on nuclear weapons.
 
-According to Omar, the security police wanted Omar to spy on people he knew.
+The new cooperation means that Finland will receive information about France's nuclear weapons. Finland will also begin to exercise and plan defense with France.
 
-Omar refused because he was afraid. After that, the security police decided that Omar was dangerous. He had to leave Finland.
+France also cooperates in the same way with other European countries.
 
-The Security Police say they don't force people to spy.
+For example, Sweden, Denmark and Norway are involved in France's nuclear deterrent.
 
-The Security Police say that there are many more dangerous people than before.
+## Finland's economy is improving
 
-## Gasoline is really expensive now
+Then news about the Finnish economy.
 
-Then the news about the price of gasoline.
+The Finnish economy is improving, says the Bank of Finland.
 
-Filling up a car is now really expensive, even in Finland.
+The Bank of Finland predicts that the Finnish economy will grow by 1.7 percent this year. The economy will grow more than the Bank of Finland previously estimated.
 
-Gasoline is expensive because of the war in the Middle East.
+The bank says that the Finnish economy is now growing due to good exports.
 
-The price of gasoline will rise further if the war in the Middle East does not end.
+Ships and defense equipment are mainly purchased from Finland.
 
-Diesel is also expensive. Russia's war in Ukraine is driving up the price of diesel.
+The Finnish economy is improving.
 
-Ukraine destroys Russian oil facilities, and Russia is forced to buy diesel from abroad.
+A lot of money is also being invested in Finland. For example, building data centers brings money and jobs to Finland.
 
-Filling up your car with gas is expensive now. It's as expensive as it was in 2022, when Russia's war in Ukraine began.
+## Homes are filled with goods
 
-Gasoline and diesel prices are rising because of wars.
+Finally, news about collecting goods.
 
-## People visited the Prime Minister's house
+There are homes in Finland that have too much stuff.
 
-Finally, we visit the Prime Minister in the village.
+There may be so much stuff in the home that it is no longer safe.
 
-The Prime Minister's house in Kesäranta, Helsinki, had open doors on Saturday.
+Too much stuff is especially dangerous in a fire. Stuff catches fire easily and makes rescue efforts more difficult.
 
-People were able to see what Kesäranta looks like.
+The fire department receives many reports of homes with too much stuff. Reports are made by, for example, property managers and home service workers.
 
-The Prime Minister's house, Kesäranta, was built at the end of the 19th century.
+There may also be pests in your home if it is difficult to clean because of things.
 
-It became the official residence of Finnish prime ministers in the 1950s.
+There are homes in Finland that have too much stuff.
 
-The Prime Minister's house in Kesäranta had open doors on Saturday.
+People often have problems in life if they accumulate too much stuff at home. For example, the person may have mental health problems or substance abuse problems.
 
-People were queuing to get in early in the morning.
+Many elderly people also have too much stuff in their homes.
 
-## Tuesday weather
+## Wednesday's weather
 
 Still a weather forecast.
 
-The weather tomorrow will be sunny and breezy, meaning it won't rain.
+It will rain in most parts of Finland on Wednesday.
 
-It's cold at night. It's freezing in many places.
+The temperature in the south is about 15 degrees.
 
-The temperature during the day is 10–17 degrees. It is warmest in the south.
+It's below 10 degrees in the north.

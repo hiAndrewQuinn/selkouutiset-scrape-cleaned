@@ -1,5 +1,4 @@
 {
-   "target" : "en",
    "source" : "fi",
    "q" : [
       "# Selkouutiset | maanantai 14.9.2026",
@@ -70,5 +69,6 @@
       "",
       "Päivällä lämpötila on 10–17 astetta. Lämpimintä on etelässä."
    ],
-   "format" : "text"
+   "format" : "text",
+   "target" : "en"
 }

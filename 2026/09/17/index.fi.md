@@ -1,63 +1,81 @@
-# Selkouutiset | keskiviikko 16.9.2026
+# Selkouutiset | torstai 17.9.2026
 
-Suomen väestö. Palkat. Energiajuomat. Sää
+Meridroonit. Perusopetus. Tosi-tv. Säääennuste.
 
-## Kaupunkeihin muuttaa yhä enemmän väkeä
+## Meridroonit
 
-Ensin uutinen Suomen väestöstä.
+Aluksi uutinen turvallisuuspolitiikasta.
 
-Suomen suurissa kaupungeissa väestö kasvaa, mutta monissa pienissä kunnissa väestö vähenee.
+Suomi ja Ruotsi suunnittelevat Itämeren valvontaa uusilla drooneilla.
 
-Vuonna 2050 Suomessa on vain 40 kuntaa, joissa väestö kasvaa. Yli 300 kunnassa väestö pienenee.
+Droonit ovat valvontaveneitä, joissa ei ole ihmisiä.
 
-Näin ennustaa uusi tutkimus.
+Pohjoismaiden merivoimien komentajat tapasivat eilen Suomenlinnassa.
 
-Kartalla on merkitty punaisella ne kunnat, joissa väestö vähenee. Sinisellä on merkitty ne kunnat, joissa väestö kasvaa.
+Ruotsin merivoimien komentaja **Johan Norlén** sanoo, että yhteistyö tekee maista taitavampia.
 
-Suomen suurissa kaupungeissa väestö kasvaa, mutta monissa pienissä kunnissa väestö vähenee.
+Veneissä on kamerat, jotka lähettävät kuvaa merivoimille.
 
-Tutkimus ennustaa, että Suomen väestö voi kasvaa vain maahanmuutolla.
+Suomen merivoimien komentaja **Tuomas Tiilikainen** toivoo, että valvonta alkaa jo tänä vuonna.
 
-Suomen länsirannikolla Vaasassa väestö kasvaa enemmän kuin monessa muussa kunnassa. Vaasaan tulee paljon maahanmuuttajia, ja yksi heistä on **Narong Meebun**:
+Suomi ja Ruotsi haluavat yhteiset meridroonit, että ne voivat tunnistaa kaikki alukset merellä.
 
-– Silloin, kun tulin Suomeen, niin tulin opiskelemaan suomen kieltä vuodeksi. Opiskelen ammattikorkeakoulussa, ja kun valmistun, jatkan heti töihin.
+## Perusopetuksen kustannukset
 
-## Nuorten miesten palkat laskussa
+Nyt uutinen koulujen kustannuksista.
 
-Sitten uutinen palkoista.
+Perusopetus on kallistunut kaikkialla Suomessa.
 
-Nuorten miesten palkat ovat laskeneet paljon.
+Opetus on kallista varsinkin pienissä kunnissa, joissa on vähän oppilaita.
 
-Alle 35-vuotiaiden miesten palkat pienenivät keskimäärin lähes 2 500 euroa vuodessa.
+Puumalassa opetus maksaa paljon, koska Puumalan yhtenäiskoulussa on vain 70 oppilasta.
 
-Työntekijäjärjestö STTK tutki palkkoja vuosien 2019 ja 2024 välillä.
+Myös pitkät koulukuljetukset maksavat Puumalassa paljon.
 
-Silloin nuorten miesten palkat laskivat, mutta nuorten naisten palkat nousivat.
+Laihialla opetus on halpaa, koska lapsia on paljon ja koulu on säästänyt hankinnoista.
 
-Alle 35-vuotiaiden naisten palkat nousivat yli 600 euroa vuodessa.
+Pienissä kunnissa opetus on kallista, koska oppilaita on vähän.
 
-Miesten palkat ovat edelleen suuremmat kuin naisilla. Ero nuorten miesten ja nuorten naisten palkoissa on kuitenkin pienentynyt.
+Kuntaliiton koulutusasioiden johtaja **Irmeli Myllymäki** sanoo, että pienet kunnat voivat tehdä yhteistyötä.
 
-## Savitaipaleen kunta kielsi energiajuomat
+Kunnat voivat esimerkiksi käyttää yhteisiä opettajia.
 
-Lopuksi uutinen energiajuomista.
+Kuntaliitto toivoo myös, että koulut saavat lisätä etäopetusta.
 
-Etelä-Karjalassa Savitaipaleen kunta on kieltänyt energiajuomat.
+Lopuksi kulttuuriuutinen.
 
-Savitaipale on ehkä ensimmäinen kunta Suomessa, joka on kieltänyt energiajuomat.
+## Kansallisteatterin uusi näytelmä
 
-Energiajuomia ei saa juoda Savitaipaleen kunnan tiloissa.
+Kansallisteatterissa on uusi näytelmä.
 
-Kielto on esimerkiksi kirjastossa, kouluissa, nuorisotiloissa ja urheilupaikoilla.
+Näytelmän aihe on tosi-tv-ohjelmat.
 
-Kaikkien on toteltava kieltoa, myös aikuisten.
+Näytelmän nimi on ”Viidakon villit naiset”.
 
-Etelä-Karjalassa Savitaipaleen kunta on kieltänyt energiajuomat.
+Sen on ohjannut **Kristian Smeds**.
 
-## Torstain sää
+Esityksessä kuusi naista kilpailee vastakkain.
+
+Näyttelijä **Katariina Kaitueella** on kokemusta. Hän on ollut mukana tosi-tv-ohjelmissa.
+
+Näyttelijä **Hannu-Pekka Björkman** näyttelee esityksessä tuottajaa.
+
+Björkman sanoo, että tosi-tv tekee ihmisestä osan ohjelmaa.
+
+Björkman sanoo, että teatterissa voi nähdä jotain todellista.
+
+Kansallisteatterin uusi näytelmä leikkii tosi-tv-ohjelmilla.
+
+Ohjaaja Kristian Smeds sanoo, että esitys on värikäs ja kummallinen.
+
+## Perjantain sää
 
 Vielä sääennuste.
 
-Torstaina pohjoisessa sataa vettä. Myös idässä ja etelässä voi tulla sadekuuroja.
+Perjantaina iltapäivällä etelässä ja lännessä sataa paikoin vettä.
 
-Länsi- ja etelärannikolla paistaa aurinko.
+Idässä ja pohjoisessa on poutaa eli ei sada.
+
+Pohjois-Lapissa on pilvistä.
+
+Muualla aurinko voi välillä paistaa.

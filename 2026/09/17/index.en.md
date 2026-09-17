@@ -1,63 +1,81 @@
-# Clear News | Wednesday 16.9.2026
+# Clear News | Thursday 17.9.2026
 
-Finnish population. Salaries. Energy drinks. Weather
+Meridrones. Basic education. Reality TV. Weather forecast.
 
-## More and more people are moving to cities
+## Meridrones
 
-First, news about the population of Finland.
+First, news about security policy.
 
-The population is growing in Finland's large cities, but the population is decreasing in many small municipalities.
+Finland and Sweden are planning to monitor the Baltic Sea with new drones.
 
-In 2050, there will be only 40 municipalities in Finland where the population will grow. In over 300 municipalities, the population will decrease.
+Drones are surveillance boats without people on board.
 
-This is what a new study predicts.
+The commanders of the Nordic navies met yesterday at Suomenlinna.
 
-The map shows municipalities where the population is decreasing in red. Municipalities where the population is increasing in blue.
+Swedish Navy Commander **Johan Norlén** says that cooperation makes countries more capable.
 
-The population is growing in Finland's large cities, but the population is decreasing in many small municipalities.
+The boats have cameras that send images to the navy.
 
-The study predicts that Finland's population can only grow through immigration.
+Finnish Navy Commander **Tuomas Tiilikainen** hopes that surveillance will begin this year.
 
-On the west coast of Finland, Vaasa is experiencing a population growth faster than many other municipalities. Vaasa is home to many immigrants, and one of them is **Narong Meebun**:
+Finland and Sweden want joint maritime drones that can identify all ships at sea.
 
-– When I came to Finland, I came to study Finnish for a year. I'm studying at a university of applied sciences, and when I graduate, I'll go straight to work.
+## Basic education costs
 
-## Young men's wages are falling
+Now the news about school costs.
 
-Then the news about salaries.
+Basic education has become more expensive everywhere in Finland.
 
-Young men's wages have dropped a lot.
+Education is expensive, especially in small municipalities with few students.
 
-The salaries of men under 35 decreased by an average of almost 2,500 euros per year.
+Education in Puumala costs a lot because Puumala Comprehensive School has only 70 students.
 
-The employee organization STTK studied salaries between 2019 and 2024.
+Long school trips also cost a lot in Puumala.
 
-At that time, young men's wages fell, but young women's wages rose.
+In Laihia, tuition is cheap because there are many children and the school has saved on purchases.
 
-The salaries of women under 35 increased by more than 600 euros per year.
+Education in small municipalities is expensive because there are few students.
 
-Men's wages are still higher than women's. However, the gap between young men's and young women's wages has narrowed.
+**Irmeli Myllymäki**, Director of Education Affairs at the Association of Finnish Local and Regional Authorities, says that small municipalities can cooperate.
 
-## Savitaipale municipality banned energy drinks
+For example, municipalities can use shared teachers.
 
-Finally, news about energy drinks.
+The Association of Local and Regional Authorities also hopes that schools will be allowed to increase distance learning.
 
-In South Karelia, the municipality of Savitaipale has banned energy drinks.
+Finally, cultural news.
 
-Savitaipale is perhaps the first municipality in Finland to ban energy drinks.
+## A new play by the National Theatre
 
-Energy drinks are not allowed to be consumed on Savitaipale municipality premises.
+There is a new play at the National Theatre.
 
-The ban applies, for example, to libraries, schools, youth facilities and sports venues.
+The subject of the play is reality TV shows.
 
-Everyone must obey the ban, including adults.
+The play is called "Wild Women of the Jungle".
 
-In South Karelia, the municipality of Savitaipale has banned energy drinks.
+It is directed by **Kristian Smeds**.
 
-## Thursday's weather
+The show features six women competing against each other.
+
+Actress **Katariina Kaitue** has experience. She has participated in reality TV shows.
+
+Actor **Hannu-Pekka Björkman** plays the producer in the show.
+
+Björkman says that reality TV makes people part of the show.
+
+Björkman says that in theater you can see something real.
+
+The National Theatre's new play plays with reality TV shows.
+
+Director Kristian Smeds says the show is colorful and strange.
+
+## Friday weather
 
 Still a weather forecast.
 
-It will rain in the north on Thursday. Showers are also possible in the east and south.
+On Friday afternoon, there will be scattered showers in the south and west.
 
-The sun is shining on the west and south coasts.
+In the east and north there is dry weather, meaning it does not rain.
+
+It is cloudy in Northern Lapland.
+
+Elsewhere, the sun may shine occasionally.

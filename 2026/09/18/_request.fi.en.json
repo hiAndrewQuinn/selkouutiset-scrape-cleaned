@@ -1,4 +1,6 @@
 {
+   "format" : "text",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | torstai 17.9.2026",
       "",
@@ -82,7 +84,5 @@
       "",
       "Muualla aurinko voi välillä paistaa."
    ],
-   "target" : "en",
-   "format" : "text",
-   "source" : "fi"
+   "target" : "en"
 }

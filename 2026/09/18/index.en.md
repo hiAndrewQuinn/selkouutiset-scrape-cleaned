@@ -1,81 +1,83 @@
-# Clear News | Thursday 17.9.2026
+# Clear News | Friday 18.9.2026
 
-Meridrones. Basic education. Reality TV. Weather forecast.
+Immigrants. Prisons. Maritime safety. Weather forecast.
 
-## Meridrones
+## Housing for immigrants
 
-First, news about security policy.
+First, news about immigrants.
 
-Finland and Sweden are planning to monitor the Baltic Sea with new drones.
+The difficult employment situation affects immigrants' housing.
 
-Drones are surveillance boats without people on board.
+Many immigrants live in cramped conditions in the same apartment.
 
-The commanders of the Nordic navies met yesterday at Suomenlinna.
+This is an apartment building in Helsinki where many food delivery people live.
 
-Swedish Navy Commander **Johan Norlén** says that cooperation makes countries more capable.
+Food courier *Karim* says that 6 people live in a three-room apartment.
 
-The boats have cameras that send images to the navy.
+The delegates have moved from Bangladesh to Finland to study.
 
-Finnish Navy Commander **Tuomas Tiilikainen** hopes that surveillance will begin this year.
+They haven't found other jobs, and they work long hours.
 
-Finland and Sweden want joint maritime drones that can identify all ships at sea.
+The difficult employment situation affects immigrants' housing.
 
-## Basic education costs
+Many immigrants live in cramped conditions because they want to save money.
 
-Now the news about school costs.
+Karim says that the work is hard, but the residents take saunas and cook together.
 
-Basic education has become more expensive everywhere in Finland.
+Working together helps them cope with the difficult everyday life.
 
-Education is expensive, especially in small municipalities with few students.
+## Prison places
 
-Education in Puumala costs a lot because Puumala Comprehensive School has only 70 students.
+Now news about prisons.
 
-Long school trips also cost a lot in Puumala.
+Finnish prisons are full.
 
-In Laihia, tuition is cheap because there are many children and the school has saved on purchases.
+The prison occupancy rate is 110 percent, meaning there are more prisoners than places.
 
-Education in small municipalities is expensive because there are few students.
+An important reason is that the number of foreign prisoners has increased.
 
-**Irmeli Myllymäki**, Director of Education Affairs at the Association of Finnish Local and Regional Authorities, says that small municipalities can cooperate.
+Almost 25 percent of prisoners are foreign nationals.
 
-For example, municipalities can use shared teachers.
+Minister of Justice **Leena Meri** says that Finland needs more prison places.
 
-The Association of Local and Regional Authorities also hopes that schools will be allowed to increase distance learning.
+Meri suggests that Finland rent prison places from abroad.
 
-Finally, cultural news.
+Renting is not possible now because the law prohibits it.
 
-## A new play by the National Theatre
+Finnish prisons are full. That's why Finland is transferring foreign prisoners back to their homeland.
 
-There is a new play at the National Theatre.
+In addition, the government will build almost 500 new places for prisoners in Finland.
 
-The subject of the play is reality TV shows.
+## Maritime safety exercise
 
-The play is called "Wild Women of the Jungle".
+Finally, a piece of news about safety.
 
-It is directed by **Kristian Smeds**.
+This is a maritime safety exercise in the Helsinki maritime area.
 
-The show features six women competing against each other.
+Authorities are practicing how to seize a ship in the Baltic Sea.
 
-Actress **Katariina Kaitue** has experience. She has participated in reality TV shows.
+In this exercise, you will learn how to stop a ship that is dragging an anchor.
 
-Actor **Hannu-Pekka Björkman** plays the producer in the show.
+A ship can break cables and pipes with its anchor. Therefore, such a ship must be stopped.
 
-Björkman says that reality TV makes people part of the show.
+Finland is responsible for cooperation in cable safety in the Baltic Sea.
 
-Björkman says that in theater you can see something real.
+A maritime safety exercise has been held in the Helsinki maritime area.
 
-The National Theatre's new play plays with reality TV shows.
+The Border Guard, the Defence Forces and the police participated in the exercise.
 
-Director Kristian Smeds says the show is colorful and strange.
+There were also participants from Poland and France.
 
-## Friday weather
+## Saturday weather
 
 Still a weather forecast.
 
-On Friday afternoon, there will be scattered showers in the south and west.
+It will rain occasionally on Saturday.
 
-In the east and north there is dry weather, meaning it does not rain.
+It rains most in the afternoon in the north.
 
-It is cloudy in Northern Lapland.
+It is mostly cloudy.
 
-Elsewhere, the sun may shine occasionally.
+The sun only shines in places.
+
+The wind can be strong in the south.

@@ -1,83 +1,75 @@
-# Clear News | Friday 18.9.2026
+# News of the week in plain Finnish | Saturday 19.9.2026
 
-Immigrants. Prisons. Maritime safety. Weather forecast.
+Finnish prisons are overcrowded.
 
-## Housing for immigrants
+Listen
 
-First, news about immigrants.
+You can read the news simultaneously below.
 
-The difficult employment situation affects immigrants' housing.
+This week there has been news about Finnish prisons.
 
-Many immigrants live in cramped conditions in the same apartment.
+The prisons are full. The number of foreign prisoners has increased.
 
-This is an apartment building in Helsinki where many food delivery people live.
+Now let's talk more about prisons.
 
-Food courier *Karim* says that 6 people live in a three-room apartment.
+## The number of foreign prisoners has increased
 
-The delegates have moved from Bangladesh to Finland to study.
+Skip the infographic
 
-They haven't found other jobs, and they work long hours.
+Finnish prisons are now overcrowded. There are already more prisoners than places. There are approximately 3,900 prisoners in prisons.
 
-The difficult employment situation affects immigrants' housing.
+Of these, approximately 950 are foreign citizens. The number of foreigners has increased by 76 percent in 10 years.
 
-Many immigrants live in cramped conditions because they want to save money.
+Foreigners are particularly likely to commit drug crimes, sexual crimes, and homicides.
 
-Karim says that the work is hard, but the residents take saunas and cook together.
+In 2028, the total number of prisoners could reach 4,000.
 
-Working together helps them cope with the difficult everyday life.
+The number of prisoners is increasing because the laws have changed. The punishments are stricter than before.
 
-## Prison places
+Sentences have become longer, more crimes are being committed, and the police have more opportunities to investigate crimes.
 
-Now news about prisons.
+## New prisons
 
-Finnish prisons are full.
+![Three people in front of the speakers' desks. The speakers' desks have the Finnish coat of arms.](https://img.img-cdn.yle.fi/crop_extract,w_6144,h_3456,x_0,y_503/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17089546aaba8ba2d95c/1789634855)
 
-The prison occupancy rate is 110 percent, meaning there are more prisoners than places.
+Open image viewer
 
-An important reason is that the number of foreign prisoners has increased.
+From left, Antti Leinonen, Chief of Staff of the Ministry of Justice, Minister of Justice Leena Meri and Anna Arola-Järvi, Director General of the Criminal Sanctions Agency, at a press conference on September 17, 2026. Photo: Roni Rekomaa / Lehtikuva
 
-Almost 25 percent of prisoners are foreign nationals.
+Minister of Justice **Leena Meri** says that 500 new prison places will be created in Finland.
 
-Minister of Justice **Leena Meri** says that Finland needs more prison places.
+They will be placed in Helsinki, Hämeenlinna and Kylmäkoski. Later, Turku Prison will also receive more places.
 
-Meri suggests that Finland rent prison places from abroad.
+The Ministry of Justice is investigating whether Finland can rent prison places from abroad.
 
-Renting is not possible now because the law prohibits it.
+An example is the agreement between Sweden and Estonia. The countries agreed that Sweden can send prisoners to Estonia. Swedish prisons are also full.
 
-Finnish prisons are full. That's why Finland is transferring foreign prisoners back to their homeland.
+Helsingin Sanomat reports that the first prisoners were transferred to Estonia in August.
 
-In addition, the government will build almost 500 new places for prisoners in Finland.
+However, Estonia rejected half of the Swedish prisoners. For example, the prisoners had connections to organized crime. This means that several people commit crimes together.
 
-## Maritime safety exercise
+Finland is also following the agreement between Denmark and Kosovo on prisoners.
 
-Finally, a piece of news about safety.
+## Renting prison places from abroad
 
-This is a maritime safety exercise in the Helsinki maritime area.
+Skip the infographic
 
-Authorities are practicing how to seize a ship in the Baltic Sea.
+Renting out prison places is not currently possible because Finnish law prohibits it. Therefore, the matter is being investigated further.
 
-In this exercise, you will learn how to stop a ship that is dragging an anchor.
+Finland does not yet have negotiations with any country.
 
-A ship can break cables and pipes with its anchor. Therefore, such a ship must be stopped.
+Finland also transfers foreign prisoners to their home countries. Finland can also deport a foreigner who has committed a serious crime.
 
-Finland is responsible for cooperation in cable safety in the Baltic Sea.
+Now we are investigating how to transfer a foreign prisoner from Finland as quickly as possible.
 
-A maritime safety exercise has been held in the Helsinki maritime area.
+## Repetition
 
-The Border Guard, the Defence Forces and the police participated in the exercise.
+Let's say it again.
 
-There were also participants from Poland and France.
+Finnish prisons are overcrowded.
 
-## Saturday weather
+The number of foreign prisoners has increased by 76 percent in 10 years.
 
-Still a weather forecast.
+Finland is investigating whether prison places can be rented from abroad.
 
-It will rain occasionally on Saturday.
-
-It rains most in the afternoon in the north.
-
-It is mostly cloudy.
-
-The sun only shines in places.
-
-The wind can be strong in the south.
+Here was the News of the Week in plain Finnish. See you again, bye!

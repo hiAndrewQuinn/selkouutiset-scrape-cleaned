@@ -1,83 +1,75 @@
-# Selkouutiset | perjantai 18.9.2026
+# Viikon uutinen selkosuomeksi | lauantai 19.9.2026
 
-Maahanmuuttajat. Vankilat. Meriturvallisuus. Sääennuste.
+Suomen vankilat ovat liian täynnä.
 
-## Maahanmuuttajien asuminen
+Kuuntele
 
-Aluksi uutinen maahanmuuttajista.
+Voit lukea uutiset samanaikaisesti alta.
 
-Vaikea työllisyystilanne vaikuttaa maahanmuuttajien asumiseen.
+Tällä viikolla on ollut uutisia Suomen vankiloista.
 
-Monet maahanmuuttajat asuvat ahtaasti samassa asunnossa.
+Vankilat ovat täynnä. Ulkomaalaisten vankien määrä on kasvanut.
 
-Tämä on helsinkiläinen kerrostalo, jossa asuu paljon ruokalähettejä.
+Kerromme nyt vankiloista lisää.
 
-Ruokalähetti *Karim* kertoo, että kolmen huoneen asunnossa asuu 6 ihmistä.
+## Ulkomaalaisten vankien määrä on kasvanut
 
-Lähetit ovat muuttaneet Bangladeshista Suomeen opiskelemaan.
+Ohita infografiikka
 
-He eivät ole saaneet muita töitä, ja he tekevät pitkiä työpäiviä.
+Suomen vankilat ovat nyt liian täynnä. Vankeja on jo enemmän kuin paikkoja. Vankiloissa on noin 3 900 vankia.
 
-Vaikea työllisyystilanne vaikuttaa maahanmuuttajien asumiseen.
+Heistä noin 950 on ulkomaan kansalaisia. Ulkomaalaisten määrä on kasvanut 10 vuodessa 76 prosenttia.
 
-Monet maahanmuuttajat asuvat ahtaasti, koska he haluavat säästää rahaa.
+Ulkomaalaiset tekevät varsinkin huumausainerikoksia, seksuaalirikoksia ja henkirikoksia.
 
-Karim kertoo, että työ on raskasta, mutta asukkaat saunovat ja tekevät ruokaa yhdessä.
+Vuonna 2028 vankeja voi olla yhteensä jo 4 000.
 
-Yhteinen tekeminen auttaa heitä jaksamaan raskaassa arjessa.
+Vankien määrä kasvaa, koska lait ovat muuttuneet. Rangaistukset ovat tiukempia kuin ennen.
 
-## Vankilapaikat
+Tuomiot ovat pidentyneet, ja rikoksia tehdään aiempaa enemmän. Lisäksi poliisilla on enemmän mahdollisuuksia tutkia rikoksia.
 
-Nyt uutinen vankiloista.
+## Uusia vankipaikkoja
 
-Suomen vankilat ovat täynnä.
+![Kolme henkilöä puhujanpöytien edessä. Puhujanpöydissä on Suomen vaakuna.](https://img.img-cdn.yle.fi/crop_extract,w_6144,h_3456,x_0,y_503/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17089546aaba8ba2d95c/1789634855)
 
-Vankiloiden käyttöaste on 110 prosenttia, eli vankeja on enemmän kuin paikkoja.
+Avaa kuvien katselu
 
-Tärkeä syy on se, että ulkomaalaisten vankien määrä on kasvanut.
+Vasemmalta, oikeusministeriön kansliapäällikkö Antti Leinonen, oikeusministeri Leena Meri ja Rikosseuraamuslaitoksen pääjohtaja Anna Arola-Järvi tiedotustilaisuudessa 17. syyskuuta 2026 Kuva: Roni Rekomaa / Lehtikuva
 
-Melkein 25 prosenttia vangeista on ulkomaan kansalaisia.
+Oikeusministeri **Leena Meri** kertoo, että Suomeen tulee 500 uutta vankipaikkaa.
 
-Oikeusministeri **Leena Meri** sanoo, että Suomi tarvitsee lisää vankipaikkoja.
+Niitä tulee Helsinkiin, Hämeenlinnaan ja Kylmäkoskelle. Myöhemmin myös Turun vankila saa lisää paikkoja.
 
-Meri ehdottaa, että Suomi vuokraa vankilapaikkoja ulkomailta.
+Oikeusministeriö selvittää, voiko Suomi vuokrata vankipaikkoja ulkomailta.
 
-Vuokraaminen ei ole nyt mahdollista, koska laki kieltää sen.
+Esimerkkinä on Ruotsin ja Viron sopimus. Maat sopivat, että Ruotsi voi lähettää vankeja Viroon. Myös Ruotsin vankilat ovat täynnä.
 
-Suomen vankilat ovat täynnä. Siksi Suomi siirtää ulkomaalaisia vankeja takaisin kotimaahan.
+Helsingin Sanomat kertoo, että ensimmäiset vangit siirrettiin Viroon elokuussa.
 
-Lisäksi hallitus rakentaa Suomeen lähes 500 uutta paikkaa vangeille.
+Viro kuitenkin hylkäsi puolet Ruotsin vangeista. Vangeilla oli esimerkiksi suhteita järjestäytyneeseen rikollisuuteen. Se tarkoittaa, että useampi henkilö tekee rikoksia yhdessä.
 
-## Meriturvallisuusharjoitus
+Suomi seuraa myös Tanskan ja Kosovon sopimusta vangeista.
 
-Lopuksi uutinen turvallisuudesta.
+## Vankipaikkojen vuokraaminen ulkomailta
 
-Tämä on meriturvallisuusharjoitus Helsingin merialueella.
+Ohita infografiikka
 
-Viranomaiset harjoittelevat, miten laiva otetaan haltuun Itämerellä.
+Vankipaikkojen vuokraaminen ei ole nyt mahdollista, koska Suomen laki kieltää sen. Siksi asiaa selvitetään vielä lisää.
 
-Harjoituksessa opetellaan pysäyttämään laiva, joka raahaa ankkuria.
+Suomella ei ole vielä neuvotteluja minkään maan kanssa.
 
-Laiva voi rikkoa ankkurilla kaapeleita ja putkia. Siksi sellainen laiva pitää pysäyttää.
+Suomi myös siirtää ulkomaalaisia vankeja näiden kotimaihin. Suomi voi lisäksi poistaa maasta ulkomaalaisen, joka on tehnyt vakavan rikoksen.
 
-Suomi vastaa yhteistyöstä Itämeren kaapeliturvallisuudessa.
+Nyt selvitetään, miten ulkomaalainen vanki siirretään mahdollisimman nopeasti Suomesta.
 
-Helsingin merialueella on pidetty meriturvallisuusharjoitus.
+## Kertaus
 
-Harjoitukseen osallistuivat Rajavartiolaitos, Puolustusvoimat ja poliisi.
+Kerrataan vielä.
 
-Mukana oli osallistujia myös Puolasta ja Ranskasta.
+Suomen vankilat ovat liian täynnä.
 
-## Lauantain sää
+Ulkomaalaisten vankien määrä on kasvanut 10 vuodessa 76 prosenttia.
 
-Vielä sääennuste.
+Suomi selvittää, voiko vankipaikkoja vuokrata ulkomailta.
 
-Lauantaina sataa välillä.
-
-Eniten sataa iltapäivällä pohjoisessa.
-
-Enimmäkseen on pilvistä.
-
-Aurinko paistaa vain paikoin.
-
-Etelässä tuuli voi olla kovaa.
+Tässä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

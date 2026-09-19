@@ -1,4 +1,5 @@
 {
+   "target" : "en",
    "q" : [
       "# Selkouutiset | perjantai 18.9.2026",
       "",
@@ -84,7 +85,6 @@
       "",
       "Etelässä tuuli voi olla kovaa."
    ],
-   "format" : "text",
-   "target" : "en",
-   "source" : "fi"
+   "source" : "fi",
+   "format" : "text"
 }

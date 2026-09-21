@@ -1,107 +1,69 @@
-# Uutisviikko selkosuomeksi | sunnuntai 20.9.2026
+# Selkouutiset | maanantai 21.9.2026
 
-Uudet hävittäjät. Meriturvallisuus. Väestöennuste. Datakeskukset. Veitsiluodon saha. Peruskoulut.
+Hävittäjät. Vanhusten asuminen. Asuntokunnat. Yle avoinna -päivä. Sää.
 
-Kuuntele
-
-Voit lukea uutiset samanaikaisesti alta.
-
-## Suomen uudet hävittäjät
-
-![F-35-hävittäjä Rovaniemen kentällä.](https://img.img-cdn.yle.fi/crop_extract,w_3904,h_2197,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17099906aad513517813/1789743477)
-
-Avaa kuvien katselu
-
-Ensimmäise F-35-hävittäjät ovat laskeutuneet Rovaniemen lentokentälle 19. syyskuuta. Kuva: Juuso Stoor / Yle
+## Uudet hävittäjät
 
 Aluksi Suomen puolustuksesta.
 
-Suomen kaksi ensimmäistä F-35A -hävittäjälentokonetta tulivat Suomeen perjantaina. Ne laskeutuivat Rovaniemen lentokentälle.
+Suomeen saapui perjantaina 2 ensimmäistä F-35A-hävittäjälentokonetta. Ne laskeutuivat Rovaniemen lentokentälle.
 
 Rauhan aikana hävittäjät turvaavat Suomen ilmatilaa. Poikkeusoloissa ne torjuvat viholliskoneita.
 
-Suomi ostaa USA:sta yhteensä 64 hävittäjää. Ne korvaavat vanhat Hornet-hävittäjät.
+Suomi ostaa USA:sta yhteensä 64 hävittäjää.
 
-F-35:ssä on häiveominaisuus. Konetta on vaikea havaita tutkalla.
+Suomen ensimmäiset F-35-hävittäjät ovat tulleet maahan.
 
-## Meriturvallisuus
+Konetta on vaikea havaita tutkalla.
 
-![Helikopteri on laskeutunut aivan jäänmurtajan perän yläpuolella. Taustalla meri.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_203/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17093316aabfdd587ad2/1789657237)
+## Vanhusten asuminen
 
-Avaa kuvien katselu
+Sitten vanhusten asumisesta.
 
-Marsec EU26 harjoitus, jossa puolustusvoimat, rajavartiolaitos, poliisi ja pelastuslaitos harjoittelivat yhdessä merialuksen haltuunottoa ja muita tehtäviä. Kuva: Petteri Juuti / Yle
+Varkauden kaupungissa hotellin tiloja on muutettu vanhusten asumiseen.
 
-Sitten meriturvallisuudesta.
+Asukkaat maksavat kuukausivuokraa hotellille.
 
-Helsingin merialueilla on harjoiteltu meriturvallisuutta. Rajavartiolaitos johti kansainvälistä harjoitusta.
+\- Tiällä minä asustelen.
 
-Harjoituksessa opeteltiin ottamaan haltuun laiva, josta on vaaraa. Alus voi esimerkiksi raahata ankkuria meren pohjassa.
+Pohjois-Savon hyvinvointialue tuottaa hotelliin hoivapalvelut ja toimintaa. Ruoka tulee hotellin keittiöstä.
 
-Itämerellä on ollut monta tapausta, joissa kaapeleita ja putkia meren pohjassa on mennyt rikki.
+Varkaudessa hotelli Oscarista on varattu jo kokonainen kerros vanhuksille.
 
-## Väestö ja lasten määrä
+## Asuntokunnat
 
-Ohita infografiikka
+Nyt asuntokunnista.
 
-Sitten ihmisten määrästä Suomessa.
+Uusia asuntokuntia syntyy hitaammin kuin ennen. Uusi asuntokunta syntyy esimerkiksi silloin, kun nuori muuttaa omaan kotiin.
 
-Väestö kasvaa suurissa kaupungeissa ja vähenee pienissä.
+Nuoret asuvat kuitenkin vanhempien luona entistä pidempään. Nuorten määrä on myös entistä pienempi.
 
-Vuonna 2050 Suomessa on vain 40 kuntaa, joissa väestö kasvaa. Yli 300 kunnassa väestö vähenee.
+Tämä vähentää asuntojen tarvetta. Se laskee hintoja ja vuokria.
 
-Uusi tutkimus ennustaa myös, että Suomen väestö voi kasvaa vain maahanmuuton avulla.
+Uusia asuntokuntia syntyy hitaammin kuin ennen.
 
-## Datakeskukset
+Maahanmuuttajat tulevat usein perheen luo valmiiseen asuntoon.
 
-![Google investoi Suomeen 13 miljardia euroa kahden vuoden aikana. Kuvissa Muhoksen Leppiniemen datakeskustyömaa. Kuvat otettu 9.9.2026.](https://img.img-cdn.yle.fi/crop_extract,w_5278,h_2970,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17047406aa14ea110c8c/1788956813)
+## Yle avoinna -päivä
 
-Avaa kuvien katselu
+Lopuksi Ylen juhlavuodesta.
 
-Google investoi Suomeen 13 miljardia euroa kahden vuoden aikana. Kuvissa Muhoksen Leppiniemen datakeskustyömaa. Kuva: Rami Moilanen / Yle
+Yle avoinna -päivä houkutteli lauantaina paljon yleisöä.
 
-Nyt datakeskuksista.
+Lähes kaksi ja puoli tuhatta ihmistä vieraili Ylessä Helsingin Pasilassa.
 
-Kansalaisaloite datakeskuksista etenee eduskunnan käsittelyyn.
+Yleisö pääsi näkemään esimerkiksi euroviisuasuja.
 
-Datakeskukset kuriin -kansalaisaloite sai täyteen 50 000 allekirjoitusta.
+Myös Ylen rekvisiittavarasto oli avoinna yleisölle.
 
-Keskustelu kiihtyi, kun teknologiajätti Google ilmoitti uusista jättihankkeista Suomessa.
+Yle avoinna -päivä järjestettiin Ylen 100-vuotisjuhlan kunniaksi.
 
-Google on maailman suurin internetin hakukone ja digitaalisten palveluiden tarjoaja. Sen datakeskukset eli tietokonehallit kuluttavat paljon sähköä.
+## Sää
 
-Kansalaisaloitteessa vaaditaan datakeskuksille ehtoja esimerkiksi sähköverkkoon liittymiselle.
+Vielä sääennuste.
 
-## Veitsiluodon saha
+Tiistaina sää on poutainen koko maassa.
 
-![Kemin Veitsiluodon saari ja sahan aluetta ilmasta käsin kuvattuna.](https://img.img-cdn.yle.fi/crop_extract,w_4016,h_2251,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16898726a7c4ecf69e0b/1786531567)
+Pilvisyys on vaihtelevaa, mutta aurinkokin pääsee paistamaan.
 
-Avaa kuvien katselu
-
-Kemin Veitsiluodon saari ja sahan aluetta. Kuva: Risto Koskinen / Yle
-
-Nyt metsäteollisuudesta.
-
-Metsäyhtiö Stora Enso sulkee Veitsiluodon sahan Lapissa.
-
-Muutosneuvottelut ovat päättyneet, ja Kemistä katoaa 60 työpaikkaa.
-
-Stora Enso keskittää Pohjois-Suomen sahausta yhtiön muille sahoille.
-
-## Perusopetus kallistunut
-
-![Grafiikka, joka kertoo perusopetuksen hinnan kalleimmissa ja halvimmissa kunnissa vuonna 2025.](https://img.img-cdn.yle.fi/crop_extract,w_2502,h_1407,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17082496aaa4f3bb3067/1789546413)
-
-Avaa kuvien katselu
-
-Kuva: Esa Huuhko / Yle
-
-Uutinen kouluista.
-
-Koulujen perusopetus on kallistunut kaikkialla Suomessa.
-
-Opetus on kallista varsinkin pienissä kunnissa, joissa on vähän oppilaita.
-
-Kuntaliitto sanoo, että pienet kunnat voivat tehdä yhteistyötä. Kuntaliitto toivoo myös, että koulut saavat lisätä etäopetusta.
-
-Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
+Lämpötila on noin 9–16 astetta.

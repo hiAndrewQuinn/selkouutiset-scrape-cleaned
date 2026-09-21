@@ -1,4 +1,7 @@
 {
+   "target" : "en",
+   "format" : "text",
+   "source" : "fi",
    "q" : [
       "# Uutisviikko selkosuomeksi | sunnuntai 20.9.2026",
       "",
@@ -107,8 +110,5 @@
       "Kuntaliitto sanoo, että pienet kunnat voivat tehdä yhteistyötä. Kuntaliitto toivoo myös, että koulut saavat lisätä etäopetusta.",
       "",
       "Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!"
-   ],
-   "format" : "text",
-   "target" : "en",
-   "source" : "fi"
+   ]
 }

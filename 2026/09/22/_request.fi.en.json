@@ -1,4 +1,5 @@
 {
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | maanantai 21.9.2026",
       "",
@@ -71,6 +72,5 @@
       "Lämpötila on noin 9–16 astetta."
    ],
    "format" : "text",
-   "target" : "en",
-   "source" : "fi"
+   "target" : "en"
 }

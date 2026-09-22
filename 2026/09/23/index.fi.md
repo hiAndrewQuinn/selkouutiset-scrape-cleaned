@@ -1,0 +1,45 @@
+# Selkouutiset | tiistai 22.9.2026
+
+Talous. Sikarutto. Nettiriippuvuus. Sää.
+
+## Suomen talous
+
+Ensin uutinen Suomen taloudesta.
+
+Suomen taloudella menee paremmin kuin aikaisemmin. Rahaministeriö uskoo, että Suomen talous kasvaa tänä vuonna noin 1,6 prosenttia. Ensi vuonna talouskasvu on melkein 2 prosenttia.
+
+Suomen taloudessa on silti ongelmia. Valtion ja kuntien velka kasvaa edelleen. Työttömiä ihmisiä on yhä paljon.
+
+Suomen taloudella menee paremmin kuin aikaisemmin. Rahaministeriön osastopäällikkö **Mikko Spolander** sanoo, että valtio tarvitsee silti lisää verotuloja.
+
+## Afrikkalainen sikarutto
+
+Nyt aiheena on afrikkalainen sikarutto.
+
+Afrikkalaista sikaruttoa löytyi Etelä-Karjalasta. Lappeenrannasta löytyi 4 kuollutta villisikaa. Lisäksi ammuttiin yksi villisika, jolla epäillään tautia.
+
+Aiemmin tautia on todettu vain Kymenlaaksossa.
+
+Yhteensä sikaruttotapauksia on todettu Suomessa nyt yli 40.
+
+Afrikkalaista sikaruttoa löytyi Etelä-Karjalasta. Sikarutto ei tartu ihmiseen, mutta sika tai villisika kuolee tautiin.
+
+## Nettiriippuvuus
+
+Seuraavaksi aiheena on internetin liikakäyttö.
+
+Ihmisten nettiriippuvuus aiheuttaa ongelmia työpaikoilla. Moni ihminen on koukussa esimerkiksi netin rahapeleihin.
+
+Nettiriippuvuus tarkoittaa sitä, että ihminen käyttää nettiä liikaa eikä pysty lopettamaan.
+
+Työterveydessä näkyy, että nettiriippuvaisia ihmisiä on enemmän kuin aikaisemmin.
+
+Mehiläisen päihdehoitaja **Mervi Malin-Santos** sanoo, että moni ihminen ei kerro asiasta työpaikalla. Siksi työnantaja ei usein tiedä ongelmasta.
+
+Ihmisten nettiriippuvuus aiheuttaa ongelmia työpaikoilla. Riippuvuus häiritsee ihmisten työntekoa ja aiheuttaa rahahuolia.
+
+## Sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää on vaihtelevaa. Etelässä, idässä ja pohjoisessa voi sataa vähän. Isossa osassa maata on poutaa ja aurinko paistaa. Lämpötila on 9 ja 16 asteen välillä.

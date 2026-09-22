@@ -1,69 +1,45 @@
-# Clear News | Monday 21.9.2026
+# Clear News | Tuesday 22.9.2026
 
-Exterminators. Housing for the elderly. Housing associations. Yle Open Day. Weather.
+Economy. Swine fever. Internet addiction. Weather.
 
-## New fighters
+## Finnish economy
 
-First, about Finland's defense.
+First, news about the Finnish economy.
 
-The first 2 F-35A fighter jets arrived in Finland on Friday. They landed at Rovaniemi Airport.
+The Finnish economy is doing better than before. The Ministry of Finance believes that the Finnish economy will grow by about 1.6 percent this year. Next year, economic growth will be almost 2 percent.
 
-In times of peace, fighter jets secure Finnish airspace. In emergencies, they fight off enemy aircraft.
+There are still problems in the Finnish economy. The debt of the state and municipalities is still growing. There are still many unemployed people.
 
-Finland will purchase a total of 64 fighter jets from the USA.
+The Finnish economy is doing better than before. **Mikko Spolander**, head of department at the Ministry of Finance, says that the state still needs more tax revenue.
 
-Finland's first F-35 fighters have arrived in the country.
+## African swine fever
 
-The plane is difficult to detect on radar.
+Now the topic is African swine fever.
 
-## Senior living
+African swine fever was found in South Karelia. 4 dead wild boars were found in Lappeenranta. In addition, one wild boar suspected of having the disease was shot.
 
-Then about housing for the elderly.
+Previously, the disease has only been detected in Kymenlaakso.
 
-In the city of Varkaus, hotel facilities have been converted into housing for the elderly.
+A total of over 40 cases of swine fever have now been detected in Finland.
 
-Residents pay monthly rent to the hotel.
+African swine fever was found in South Karelia. Swine fever does not infect humans, but pigs or wild boars die from the disease.
 
-\- I live on the road.
+## Internet addiction
 
-The North Savo wellness area provides care services and activities for the hotel. The food comes from the hotel kitchen.
+The next topic is internet overuse.
 
-In Varkaus, an entire floor of the Oscar Hotel has already been reserved for the elderly.
+People's internet addiction causes problems in the workplace. Many people are addicted to online gambling, for example.
 
-## Housing municipalities
+Internet addiction means that a person uses the internet excessively and is unable to stop.
 
-Now about the housing units.
+Occupational health shows that there are more people addicted to the internet than before.
 
-New housing units are being created more slowly than before. A new housing unit is created, for example, when a young person moves into their own home.
+**Mervi Malin-Santos**, a substance abuse counselor at Mehiläinen, says that many people don't talk about it at work. That's why employers often don't know about the problem.
 
-However, young people are living with their parents for longer and the number of young people is also smaller.
-
-This reduces the need for housing. It lowers prices and rents.
-
-New housing communities are being created more slowly than before.
-
-Immigrants often come to live with a family in a ready-made apartment.
-
-## Yle Open Day
-
-Finally, about Yle's anniversary.
-
-Yle Open Day attracted a large audience on Saturday.
-
-Almost two and a half thousand people visited Yle in Pasila, Helsinki.
-
-The audience was able to see, for example, Eurovision costumes.
-
-Yle's prop storage was also open to the public.
-
-Yle Open Day was organized in honor of Yle's 100th anniversary.
+People's internet addiction is causing problems in the workplace. Addiction disrupts people's work and causes financial worries.
 
 ## Weather
 
 Still a weather forecast.
 
-On Tuesday, the weather will be cloudy throughout the country.
-
-Cloudiness is variable, but the sun can also shine.
-
-The temperature is around 9–16 degrees.
+The weather on Wednesday will be variable. There may be a little rain in the south, east and north. Most of the country will be dry and sunny. The temperature will be between 9 and 16 degrees.

@@ -1,7 +1,4 @@
 {
-   "source" : "fi",
-   "format" : "text",
-   "target" : "en",
    "q" : [
       "# Selkouutiset | tiistai 22.9.2026",
       "",
@@ -48,5 +45,8 @@
       "Vielä sääennuste.",
       "",
       "Keskiviikkona sää on vaihtelevaa. Etelässä, idässä ja pohjoisessa voi sataa vähän. Isossa osassa maata on poutaa ja aurinko paistaa. Lämpötila on 9 ja 16 asteen välillä."
-   ]
+   ],
+   "source" : "fi",
+   "format" : "text",
+   "target" : "en"
 }

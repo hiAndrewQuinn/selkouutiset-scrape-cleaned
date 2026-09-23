@@ -1,45 +1,83 @@
-# Clear News | Tuesday 22.9.2026
+# Clear News | Wednesday 23.9.2026
 
-Economy. Swine fever. Internet addiction. Weather.
+Alexander Stubb. Military training. Budget discussion. Weather forecast.
 
-## Finnish economy
+## President Stubb at the UN General Assembly
 
-First, news about the Finnish economy.
+First, news from the UN.
 
-The Finnish economy is doing better than before. The Ministry of Finance believes that the Finnish economy will grow by about 1.6 percent this year. Next year, economic growth will be almost 2 percent.
+Finnish President **Alexander Stubb** has delivered a speech at the UN General Assembly.
 
-There are still problems in the Finnish economy. The debt of the state and municipalities is still growing. There are still many unemployed people.
+The meeting began on Tuesday in New York.
 
-The Finnish economy is doing better than before. **Mikko Spolander**, head of department at the Ministry of Finance, says that the state still needs more tax revenue.
+Stubb says that the UN Security Council needs to be reformed.
 
-## African swine fever
+Stubb wants to remove the veto power from Security Council member states.
 
-Now the topic is African swine fever.
+The right of veto has prevented many decisions from being made.
 
-African swine fever was found in South Karelia. 4 dead wild boars were found in Lappeenranta. In addition, one wild boar suspected of having the disease was shot.
+Therefore, it also makes peace work more difficult.
 
-Previously, the disease has only been detected in Kymenlaakso.
+Stubb also said that Finland is applying to become a member of the UN Security Council.
 
-A total of over 40 cases of swine fever have now been detected in Finland.
+President Stubb says that the UN Security Council needs to be reformed.
 
-African swine fever was found in South Karelia. Swine fever does not infect humans, but pigs or wild boars die from the disease.
+Stubb hopes that all countries will follow common rules and respect each other.
 
-## Internet addiction
+## New conscript training
 
-The next topic is internet overuse.
+Now news about the Defence Forces, or the army.
 
-People's internet addiction causes problems in the workplace. Many people are addicted to online gambling, for example.
+The army is reforming the training of conscripts.
 
-Internet addiction means that a person uses the internet excessively and is unable to stop.
+Education needs to be reformed because warfare has changed.
 
-Occupational health shows that there are more people addicted to the internet than before.
+More drones are now being used in combat than before.
 
-**Mervi Malin-Santos**, a substance abuse counselor at Mehiläinen, says that many people don't talk about it at work. That's why employers often don't know about the problem.
+The new training will teach you how to protect yourself from drones.
 
-People's internet addiction is causing problems in the workplace. Addiction disrupts people's work and causes financial worries.
+Officer candidate **Jesper Taavitsainen** says that soldiers do not gather together. Making fires is avoided because drones detect heat.
 
-## Weather
+*"We are not in a cluster together. We are spread out. We avoid heat radiation. No stoves unless absolutely necessary."*
+
+The army is reforming the training of conscripts.
+
+The new training will be available to all units next summer.
+
+Drones are constantly evolving. Their power and danger are increasing. That's why training is important.
+
+## Parliamentary budget debate
+
+Finally, a news about politics.
+
+Parliament has begun discussing next year's budget.
+
+The opposition criticizes the government.
+
+SDP chairman **Antti Lindtman** blames the government for unemployment.
+
+Lindtman says that the government debt is also growing too much.
+
+Minister of Finance, Finns Party **Riikka Purra** defends the government's policy.
+
+Purra says that Finland's economy and employment are already improving.
+
+Purra criticizes the opposition's tax proposals.
+
+Parliament has begun discussing next year's budget.
+
+The discussion is important because the budget is used to agree on state funds.
+
+The discussion continues for several days.
+
+## Thursday's weather
 
 Still a weather forecast.
 
-The weather on Wednesday will be variable. There may be a little rain in the south, east and north. Most of the country will be dry and sunny. The temperature will be between 9 and 16 degrees.
+The weather will be changeable on Thursday.
+
+Rain in the east and north. Thunderstorms are also possible.
+
+The day is cloudy.
+
+Temperatures vary between 5-15 degrees.

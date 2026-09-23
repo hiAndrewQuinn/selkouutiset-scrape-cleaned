@@ -1,45 +1,83 @@
-# Selkouutiset | tiistai 22.9.2026
+# Selkouutiset | keskiviikko 23.9.2026
 
-Talous. Sikarutto. Nettiriippuvuus. Sää.
+Alexander Stubb. Sotilaskoulutus. Budjettikeskustelu. Sääennuste.
 
-## Suomen talous
+## Presidentti Stubb YK:n yleiskokouksessa
 
-Ensin uutinen Suomen taloudesta.
+Aluksi uutinen YK:sta.
 
-Suomen taloudella menee paremmin kuin aikaisemmin. Rahaministeriö uskoo, että Suomen talous kasvaa tänä vuonna noin 1,6 prosenttia. Ensi vuonna talouskasvu on melkein 2 prosenttia.
+Suomen presidentti **Alexander Stubb** on pitänyt puheen YK:n yleiskokouksessa.
 
-Suomen taloudessa on silti ongelmia. Valtion ja kuntien velka kasvaa edelleen. Työttömiä ihmisiä on yhä paljon.
+Kokous alkoi tiistaina New Yorkissa.
 
-Suomen taloudella menee paremmin kuin aikaisemmin. Rahaministeriön osastopäällikkö **Mikko Spolander** sanoo, että valtio tarvitsee silti lisää verotuloja.
+Stubb sanoo, että YK:n turvallisuusneuvostoa pitää uudistaa.
 
-## Afrikkalainen sikarutto
+Stubb haluaa poistaa turvallisuusneuvoston jäsenmailta veto-oikeuden.
 
-Nyt aiheena on afrikkalainen sikarutto.
+Veto-oikeus on estänyt monien päätösten tekemisen.
 
-Afrikkalaista sikaruttoa löytyi Etelä-Karjalasta. Lappeenrannasta löytyi 4 kuollutta villisikaa. Lisäksi ammuttiin yksi villisika, jolla epäillään tautia.
+Siksi se vaikeuttaa myös rauhantyötä.
 
-Aiemmin tautia on todettu vain Kymenlaaksossa.
+Stubb kertoi myös, että Suomi hakee YK:n turvallisuusneuvoston jäseneksi.
 
-Yhteensä sikaruttotapauksia on todettu Suomessa nyt yli 40.
+Presidentti Stubb sanoo, että YK:n turvallisuusneuvostoa pitää uudistaa.
 
-Afrikkalaista sikaruttoa löytyi Etelä-Karjalasta. Sikarutto ei tartu ihmiseen, mutta sika tai villisika kuolee tautiin.
+Stubb toivoo, että kaikki maat noudattavat yhteisiä sääntöjä ja kunnioittavat toisia.
 
-## Nettiriippuvuus
+## Uusi varusmieskoulutus
 
-Seuraavaksi aiheena on internetin liikakäyttö.
+Nyt uutinen Puolustusvoimista eli armeijasta.
 
-Ihmisten nettiriippuvuus aiheuttaa ongelmia työpaikoilla. Moni ihminen on koukussa esimerkiksi netin rahapeleihin.
+Armeija uudistaa varusmiesten koulutusta.
 
-Nettiriippuvuus tarkoittaa sitä, että ihminen käyttää nettiä liikaa eikä pysty lopettamaan.
+Koulutusta pitää uudistaa, koska sodankäynti on muuttunut.
 
-Työterveydessä näkyy, että nettiriippuvaisia ihmisiä on enemmän kuin aikaisemmin.
+Taisteluissa käytetään nyt enemmän drooneja kuin ennen.
 
-Mehiläisen päihdehoitaja **Mervi Malin-Santos** sanoo, että moni ihminen ei kerro asiasta työpaikalla. Siksi työnantaja ei usein tiedä ongelmasta.
+Uudessa koulutuksessa harjoitellaan, miten drooneilta suojaudutaan.
 
-Ihmisten nettiriippuvuus aiheuttaa ongelmia työpaikoilla. Riippuvuus häiritsee ihmisten työntekoa ja aiheuttaa rahahuolia.
+Upseerikokelas **Jesper Taavitsainen** kertoo, että sotilaat eivät kokoonnu yhteen. Tulentekoa vältetään, koska droonit tunnistavat lämmön.
 
-## Sää
+*”Emme ole yhdessä ryppäässä. Olemme hajautettuna. Vältetään lämpösäteilyä. Ei kaminaa, jos ei ole ihan pakko.”*
+
+Armeija uudistaa varusmiesten koulutusta.
+
+Uusi koulutus tulee kaikkiin joukko-osastoihin ensi kesänä.
+
+Droonit kehittyvät koko ajan. Niiden teho ja vaarallisuus kasvaa. Siksi koulutus on tärkeää.
+
+## Eduskunnan budjettikeskustelu
+
+Lopuksi uutinen politiikasta.
+
+Eduskunta on aloittanut keskustelun ensi vuoden budjetista.
+
+Oppositio arvostelee hallitusta.
+
+SDP:n puheenjohtaja **Antti Lindtman** syyttää hallitusta työttömyydestä.
+
+Lindtman sanoo, että myös valtion velka kasvaa liikaa.
+
+Valtiovarainministeri, perussuomalaisten **Riikka Purra** puolustaa hallituksen politiikkaa.
+
+Purra sanoo, että Suomen talous ja työllisyys paranevat jo.
+
+Purra arvostelee opposition veroehdotuksia.
+
+Eduskunta on aloittanut keskustelun ensi vuoden budjetista.
+
+Keskustelu on tärkeä, koska budjetissa sovitaan valtion rahoista.
+
+Keskustelu jatkuu useita päiviä.
+
+## Torstain sää
 
 Vielä sääennuste.
 
-Keskiviikkona sää on vaihtelevaa. Etelässä, idässä ja pohjoisessa voi sataa vähän. Isossa osassa maata on poutaa ja aurinko paistaa. Lämpötila on 9 ja 16 asteen välillä.
+Torstaina sää on vaihtelevaa.
+
+Idässä ja pohjoisessa sataa. Myös ukkoset ovat mahdollisia.
+
+Päivä on pilvinen.
+
+Lämpötilat vaihtelevat 5-15 asteen välillä.

@@ -38,7 +38,7 @@ The new training will teach you how to protect yourself from drones.
 
 Officer candidate **Jesper Taavitsainen** says that soldiers do not gather together. Making fires is avoided because drones detect heat.
 
-*"We are not in a cluster together. We are spread out. We avoid heat radiation. No stoves unless absolutely necessary."*
+*"We are not in a cluster. We are spread out. We avoid heat radiation. No stoves unless absolutely necessary."*
 
 The army is reforming the training of conscripts.
 

@@ -1,83 +1,55 @@
-# Selkouutiset | keskiviikko 23.9.2026
+# Selkouutiset | torstai 24.9.2026
 
-Alexander Stubb. Sotilaskoulutus. Budjettikeskustelu. Sääennuste.
+Droonisopimus. Suolan käyttö. Suliko. Sää.
 
-## Presidentti Stubb YK:n yleiskokouksessa
+## Droonisopimus
 
-Aluksi uutinen YK:sta.
+Aluksi uutinen Suomen ja Ukrainan puolustusyhteistyöstä.
 
-Suomen presidentti **Alexander Stubb** on pitänyt puheen YK:n yleiskokouksessa.
+Suomi ja Ukraina ovat tehneet droonisopimuksen. Suomen ja Ukrainan presidentit allekirjoittivat sopimuksen eilen New Yorkissa.
 
-Kokous alkoi tiistaina New Yorkissa.
+Sopimus tarkoittaa sitä, että Suomessa voidaan valmistaa drooneja tai muita aseita Ukrainan armeijalle.
 
-Stubb sanoo, että YK:n turvallisuusneuvostoa pitää uudistaa.
+Presidentti Alexander Stubb sanoi, että droonisopimus hyödyttää molempia maita. Ukraina saa aseita ja Suomi saa tietoa ja kokemusta drooneista omaa puolustusta varten.
 
-Stubb haluaa poistaa turvallisuusneuvoston jäsenmailta veto-oikeuden.
+\- Saamme nyt paljon osaamista tuotantoon ylipäätään drooneista ja toivottavasti pääsemme käyntiin tässä nopeasti.
 
-Veto-oikeus on estänyt monien päätösten tekemisen.
+## Suolan käyttö
 
-Siksi se vaikeuttaa myös rauhantyötä.
+Sitten terveysasiaa.
 
-Stubb kertoi myös, että Suomi hakee YK:n turvallisuusneuvoston jäseneksi.
+Suomalaiset syövät liian suolaista ruokaa.
 
-Presidentti Stubb sanoo, että YK:n turvallisuusneuvostoa pitää uudistaa.
+Tutkimus kertoo, että työikäiset miehet saavat suolaa keskimäärin runsaat 10 grammaa ja naiset noin 7,5 grammaa vuorokaudessa.
 
-Stubb toivoo, että kaikki maat noudattavat yhteisiä sääntöjä ja kunnioittavat toisia.
+Suositus on, että suolaa saadaan korkeintaan 5 grammaa vuorokaudessa.
 
-## Uusi varusmieskoulutus
+Liian suolainen ruoka ei ole hyväksi terveydelle. Se esimerkiksi nostaa verenpainetta ja kuormittaa munuaisia.
 
-Nyt uutinen Puolustusvoimista eli armeijasta.
+## Suliko
 
-Armeija uudistaa varusmiesten koulutusta.
+Sitten kulttuuria.
 
-Koulutusta pitää uudistaa, koska sodankäynti on muuttunut.
+Helsinkiläisessä Q-teatterissa tuli eilen ensi-iltaan näytelmä **Josif Stalinista**.
 
-Taisteluissa käytetään nyt enemmän drooneja kuin ennen.
+Näytelmän nimi on Suliko. Se perustuu kirjailija **Pirkko Saision** palkittuun romaaniin.
 
-Uudessa koulutuksessa harjoitellaan, miten drooneilta suojaudutaan.
+Stalin oli Neuvostoliiton diktaattori. Hänen aikanaan miljoonia ihmisiä surmattiin tai lähetettiin vankileireille.
 
-Upseerikokelas **Jesper Taavitsainen** kertoo, että sotilaat eivät kokoonnu yhteen. Tulentekoa vältetään, koska droonit tunnistavat lämmön.
+Näytelmä pohtii sitä, miten nuoresta ihmisestä voi kasvaa hirmuhallitsija.
 
-*”Emme ole yhdessä ryppäässä. Olemme hajautettuna. Vältetään lämpösäteilyä. Ei kaminaa, jos ei ole ihan pakko.”*
+Ohjaaja **Juho Mantere** sanoo, että nykymaailmassa demokratian vastaisuus ja vahvan johtajan kaipuu ovat voimistuneet.
 
-Armeija uudistaa varusmiesten koulutusta.
+Siksi on tarpeen näyttää, mitä vahva johtaja voi tarkoittaa.
 
-Uusi koulutus tulee kaikkiin joukko-osastoihin ensi kesänä.
+Vanhaa Stalinia näyttelee **Elina Knihtilä**. Nuorta Stalinia näyttelee **Miro Lopperi**.
 
-Droonit kehittyvät koko ajan. Niiden teho ja vaarallisuus kasvaa. Siksi koulutus on tärkeää.
-
-## Eduskunnan budjettikeskustelu
-
-Lopuksi uutinen politiikasta.
-
-Eduskunta on aloittanut keskustelun ensi vuoden budjetista.
-
-Oppositio arvostelee hallitusta.
-
-SDP:n puheenjohtaja **Antti Lindtman** syyttää hallitusta työttömyydestä.
-
-Lindtman sanoo, että myös valtion velka kasvaa liikaa.
-
-Valtiovarainministeri, perussuomalaisten **Riikka Purra** puolustaa hallituksen politiikkaa.
-
-Purra sanoo, että Suomen talous ja työllisyys paranevat jo.
-
-Purra arvostelee opposition veroehdotuksia.
-
-Eduskunta on aloittanut keskustelun ensi vuoden budjetista.
-
-Keskustelu on tärkeä, koska budjetissa sovitaan valtion rahoista.
-
-Keskustelu jatkuu useita päiviä.
-
-## Torstain sää
+## Perjantain sää
 
 Vielä sääennuste.
 
-Torstaina sää on vaihtelevaa.
+Etelässä tulee sadekuuroja.
 
-Idässä ja pohjoisessa sataa. Myös ukkoset ovat mahdollisia.
+Aurinko paistaa maan keskivaiheilla. Siellä sää on myös lämpimintä.
 
-Päivä on pilvinen.
-
-Lämpötilat vaihtelevat 5-15 asteen välillä.
+Muualla on pilvisempää.

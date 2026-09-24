@@ -1,83 +1,55 @@
-# Clear News | Wednesday 23.9.2026
+# Clear News | Thursday 24.9.2026
 
-Alexander Stubb. Military training. Budget discussion. Weather forecast.
+Drone contract. Salt use. Suliko. Weather.
 
-## President Stubb at the UN General Assembly
+## Drone Agreement
 
-First, news from the UN.
+First, news about defense cooperation between Finland and Ukraine.
 
-Finnish President **Alexander Stubb** has delivered a speech at the UN General Assembly.
+Finland and Ukraine have signed a drone agreement. The presidents of Finland and Ukraine signed the agreement yesterday in New York.
 
-The meeting began on Tuesday in New York.
+The agreement means that drones or other weapons can be manufactured in Finland for the Ukrainian army.
 
-Stubb says that the UN Security Council needs to be reformed.
+President Alexander Stubb said that the drone agreement benefits both countries. Ukraine will receive weapons and Finland will gain knowledge and experience with drones for its own defense.
 
-Stubb wants to remove the veto power from Security Council member states.
+\- We are now gaining a lot of expertise in production from drones in general and hopefully we can get started here quickly.
 
-The right of veto has prevented many decisions from being made.
+## Salt usage
 
-Therefore, it also makes peace work more difficult.
+Then there's the health issue.
 
-Stubb also said that Finland is applying to become a member of the UN Security Council.
+Finns eat too much salty food.
 
-President Stubb says that the UN Security Council needs to be reformed.
+Research shows that working-age men consume an average of just over 10 grams of salt per day and women consume around 7.5 grams per day.
 
-Stubb hopes that all countries will follow common rules and respect each other.
+The recommendation is to consume no more than 5 grams of salt per day.
 
-## New conscript training
+Too much salty food is not good for your health. For example, it raises blood pressure and puts a strain on the kidneys.
 
-Now news about the Defence Forces, or the army.
+## Suliko
 
-The army is reforming the training of conscripts.
+Then culture.
 
-Education needs to be reformed because warfare has changed.
+A play about **Josif Stalin** premiered yesterday at the Q Theatre in Helsinki.
 
-More drones are now being used in combat than before.
+The play is called Suliko. It is based on the award-winning novel by author **Pirkko Saisio**.
 
-The new training will teach you how to protect yourself from drones.
+Stalin was the dictator of the Soviet Union. During his time, millions of people were killed or sent to prison camps.
 
-Officer candidate **Jesper Taavitsainen** says that soldiers do not gather together. Making fires is avoided because drones detect heat.
+The play reflects on how a young person can grow into a tyrant.
 
-*"We are not in a cluster. We are spread out. We avoid heat radiation. No stoves unless absolutely necessary."*
+Director **Juho Mantere** says that in today's world, anti-democracy and the longing for a strong leader have intensified.
 
-The army is reforming the training of conscripts.
+Therefore, it is necessary to show what a strong leader can mean.
 
-The new training will be available to all units next summer.
+Old Stalin is played by **Elina Knihtilä**. Young Stalin is played by **Miro Lopper**.
 
-Drones are constantly evolving. Their power and danger are increasing. That's why training is important.
-
-## Parliamentary budget debate
-
-Finally, a news about politics.
-
-Parliament has begun discussing next year's budget.
-
-The opposition criticizes the government.
-
-SDP chairman **Antti Lindtman** blames the government for unemployment.
-
-Lindtman says that the government debt is also growing too much.
-
-Minister of Finance, Finns Party **Riikka Purra** defends the government's policy.
-
-Purra says that Finland's economy and employment are already improving.
-
-Purra criticizes the opposition's tax proposals.
-
-Parliament has begun discussing next year's budget.
-
-The discussion is important because the budget is used to agree on state funds.
-
-The discussion continues for several days.
-
-## Thursday's weather
+## Friday weather
 
 Still a weather forecast.
 
-The weather will be changeable on Thursday.
+There will be showers in the south.
 
-Rain in the east and north. Thunderstorms are also possible.
+The sun shines in the middle of the earth. The weather is also warmest there.
 
-The day is cloudy.
-
-Temperatures vary between 5-15 degrees.
+Elsewhere it is cloudier.

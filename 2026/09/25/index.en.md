@@ -1,55 +1,61 @@
-# Clear News | Thursday 24.9.2026
+# Clear News | Friday 25.9.2026
 
-Drone contract. Salt use. Suliko. Weather.
+Food prices. Textbooks. Finnish Tivoli. Weather.
 
-## Drone contract
+## Food price
 
-First, news about defense cooperation between Finland and Ukraine.
+Initially, the topic is the price of food.
 
-Finland and Ukraine have signed a drone agreement. The presidents of Finland and Ukraine signed the agreement yesterday in New York.
+The price of food is rising.
 
-The agreement means that drones or other weapons can be manufactured in Finland for the Ukrainian army.
+Pellervo's economic research firm PTT says that food prices will rise by 1.5 percent this year and 2.5 percent next year.
 
-President Alexander Stubb said that the drone agreement benefits both countries. Ukraine will receive weapons and Finland will gain knowledge and experience with drones for its own defense.
+This year, beef and soft drinks in particular have become more expensive.
 
-\- We are now gaining a lot of expertise in production from drones in general and hopefully we can get started here quickly.
+Next year, for example, coffee, cocoa and rice are at risk of rising prices. Their harvest prospects are uncertain due to the El Niño weather phenomenon, says PTT.
 
-## Salt usage
+El Niño causes, for example, heat and drought, heavy rains and floods.
 
-Then there's the health issue.
+Rising energy and fertilizer prices are also driving up food prices.
 
-Finns eat too much salty food.
+## Textbooks
 
-Research shows that working-age men consume an average of just over 10 grams of salt per day and women consume around 7.5 grams per day.
+Then news about school and learning.
 
-The recommendation is to consume no more than 5 grams of salt per day.
+Riihimäki middle schools have returned to using paper books. Digital materials were replaced with traditional books 2 years ago.
 
-Too much salty food is not good for your health. For example, it raises blood pressure and puts a strain on the kidneys.
+The experiences are good, say teachers, students and parents
 
-## Suliko
+Students' concentration has improved and there is more peace in the classroom. It is easier for parents to monitor their children's development when they have a paper book and notebook.
 
-Then culture.
+Riihimäki middle schools are using paper books again.
 
-The play **Josif Stalin** premiered yesterday at the Q Theatre in Helsinki.
+This is what Kara School 9th grader **Eetu Rajala** said:
 
-The play is called Suliko. It is based on the award-winning novel by author **Pirkko Saisio**.
+\- Concentration is usually a little better with paper books, so if there are those machines, then you can go there on the machine and do something completely different.
 
-Stalin was the dictator of the Soviet Union. During his time, millions of people were killed or sent to prison camps.
+## Finnish Tivoli
 
-The play reflects on how a young person can grow into a tyrant.
+Finally, the topic is the traveling amusement park Tivoli of Finland.
 
-Director **Juho Mantere** says that in today's world, anti-democracy and the longing for a strong leader have intensified.
+Tivoli Finland is closing down.
 
-Therefore, it is necessary to show what a strong leader can mean.
+Tivoli says it's out of money. It's been losing money for 7 years in a row.
 
-Old Stalin is played by **Elina Knihtilä**. Young Stalin is played by **Miro Lopper**.
+The economic difficulties are due, for example, to the coronavirus pandemic and rising costs.
 
-## Friday weather
+The Finnish Tivoli was open for its last day in Kerava at the beginning of September.
+
+The amusement park toured the country for almost 140 years.
+
+## Saturday weather
 
 Still a weather forecast.
 
-There will be showers in the south.
+Tomorrow, Saturday, there will be scattered showers in many places.
 
-The sun shines in the middle of the earth. The weather is also warmest there.
+In the east, it will still be breezy during the day, but cloudy.
 
-Elsewhere it is cloudier.
+Starting in the early evening, the rains will become more uniform.
+
+The temperature is between 10 and 15 degrees.

@@ -1,55 +1,61 @@
-# Selkouutiset | torstai 24.9.2026
+# Selkouutiset | perjantai 25.9.2026
 
-Droonisopimus. Suolan käyttö. Suliko. Sää.
+Ruoan hinta. Oppikirjat. Suomen Tivoli. Sää.
 
-## Droonisopimus
+## Ruoan hinta
 
-Aluksi uutinen Suomen ja Ukrainan puolustusyhteistyöstä.
+Aluksi aiheena on ruoan hinta.
 
-Suomi ja Ukraina ovat tehneet droonisopimuksen. Suomen ja Ukrainan presidentit allekirjoittivat sopimuksen eilen New Yorkissa.
+Ruoan hinta nousee.
 
-Sopimus tarkoittaa sitä, että Suomessa voidaan valmistaa drooneja tai muita aseita Ukrainan armeijalle.
+Pellervon taloustutkimus PTT sanoo, että ruoan hinta nousee tänä vuonna 1,5 prosenttia ja ensi vuonna 2,5 prosenttia.
 
-Presidentti Alexander Stubb sanoi, että droonisopimus hyödyttää molempia maita. Ukraina saa aseita ja Suomi saa tietoa ja kokemusta drooneista omaa puolustusta varten.
+Tänä vuonna etenkin naudanliha ja virvoitusjuomat ovat kallistuneet.
 
-\- Saamme nyt paljon osaamista tuotantoon ylipäätään drooneista ja toivottavasti pääsemme käyntiin tässä nopeasti.
+Ensi vuonna esimerkiksi kahvi, kaakao ja riisi uhkaavat kallistua. Niiden satonäkymät ovat epävarmat El Niño -sääilmiön takia, PTT sanoo.
 
-## Suolan käyttö
+El Niño aiheuttaa esimerkiksi hellettä ja kuivuutta, rankkasateita ja tulvia.
 
-Sitten terveysasiaa.
+Ruoan hintaa nostavat myös energian ja lannoitteiden kallistuminen.
 
-Suomalaiset syövät liian suolaista ruokaa.
+## Oppikirjat
 
-Tutkimus kertoo, että työikäiset miehet saavat suolaa keskimäärin runsaat 10 grammaa ja naiset noin 7,5 grammaa vuorokaudessa.
+Sitten uutinen koulusta ja oppimisesta.
 
-Suositus on, että suolaa saadaan korkeintaan 5 grammaa vuorokaudessa.
+Riihimäen yläkouluissa on palattu käyttämään paperikirjoja. Digimateriaalit vaihdetiin perinteisiin kirjoihin 2 vuotta sitten.
 
-Liian suolainen ruoka ei ole hyväksi terveydelle. Se esimerkiksi nostaa verenpainetta ja kuormittaa munuaisia.
+Kokemukset ovat hyviä, sanovat opettajat, oppilaat ja vanhemmat
 
-## Suliko
+Oppilaiden keskittyminen on parantunut ja luokissa on parempi työrauha. Vanhempien on helpompi seurata lasten kehittymistä, kun käytössä ovat paperikirja ja vihko.
 
-Sitten kulttuuria.
+Riihimäen yläkouluissa käytetään taas paperikirjoja.
 
-Helsinkiläisessä Q-teatterissa tuli eilen ensi-iltaan näytelmä **Josif Stalinista**.
+Näin Karan koulun 9-luokkalainen **Eetu Rajala**:
 
-Näytelmän nimi on Suliko. Se perustuu kirjailija **Pirkko Saision** palkittuun romaaniin.
+\- Keskittyminen on yleensä vähän ehkä parempaa paperikirjoilla, että jos on niitä koneita, niin silloin saattaa mennä siellä koneella ja tekee jotain ihan muuta.
 
-Stalin oli Neuvostoliiton diktaattori. Hänen aikanaan miljoonia ihmisiä surmattiin tai lähetettiin vankileireille.
+## Suomen Tivoli
 
-Näytelmä pohtii sitä, miten nuoresta ihmisestä voi kasvaa hirmuhallitsija.
+Lopuksi aiheena on kiertävä huvipuisto Suomen Tivoli.
 
-Ohjaaja **Juho Mantere** sanoo, että nykymaailmassa demokratian vastaisuus ja vahvan johtajan kaipuu ovat voimistuneet.
+Suomen Tivoli lopettaa toiminnan.
 
-Siksi on tarpeen näyttää, mitä vahva johtaja voi tarkoittaa.
+Tivoli kertoo, että sen rahat ovat loppu. Se on tehnyt tappiota 7 vuotta peräkkäin.
 
-Vanhaa Stalinia näyttelee **Elina Knihtilä**. Nuorta Stalinia näyttelee **Miro Lopperi**.
+Talousvaikeuksien taustalla ovat esimerkiksi koronapandemia ja kustannusten nousu.
 
-## Perjantain sää
+Suomen Tivoli oli viimeistä päivää auki syyskuun alussa Keravalla.
+
+Huvipuisto ehti kiertää ympäri maata melkein 140 vuotta.
+
+## Lauantain sää
 
 Vielä sääennuste.
 
-Etelässä tulee sadekuuroja.
+Huomenna lauantaina tulee monin paikoin hajanaisia vesisateita.
 
-Aurinko paistaa maan keskivaiheilla. Siellä sää on myös lämpimintä.
+Idässä on vielä päivällä poutaista, mutta pilvistä.
 
-Muualla on pilvisempää.
+Alkuillasta alkaen sateet muuttuvat yhtenäisemmiksi.
+
+Lämpötila on 10 ja 15 asteen välillä.

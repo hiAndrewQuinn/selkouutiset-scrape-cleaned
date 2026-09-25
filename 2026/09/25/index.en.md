@@ -2,7 +2,7 @@
 
 Drone contract. Salt use. Suliko. Weather.
 
-## Drone Agreement
+## Drone contract
 
 First, news about defense cooperation between Finland and Ukraine.
 

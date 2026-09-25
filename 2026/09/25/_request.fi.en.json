@@ -1,5 +1,5 @@
 {
-   "format" : "text",
+   "source" : "fi",
    "target" : "en",
    "q" : [
       "# Selkouutiset | torstai 24.9.2026",
@@ -58,5 +58,5 @@
       "",
       "Muualla on pilvisempää."
    ],
-   "source" : "fi"
+   "format" : "text"
 }

@@ -1,5 +1,6 @@
 {
-   "format" : "text",
+   "target" : "en",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | perjantai 25.9.2026",
       "",
@@ -63,6 +64,5 @@
       "",
       "Lämpötila on 10 ja 15 asteen välillä."
    ],
-   "target" : "en",
-   "source" : "fi"
+   "format" : "text"
 }

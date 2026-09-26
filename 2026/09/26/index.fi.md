@@ -1,61 +1,69 @@
-# Selkouutiset | perjantai 25.9.2026
+# Viikon uutinen selkosuomeksi | lauantai 26.9.2026
 
-Ruoan hinta. Oppikirjat. Suomen Tivoli. Sää.
+Kotkan akkumateriaalitehtaan työmaa ja työolot
 
-## Ruoan hinta
+Kuuntele
 
-Aluksi aiheena on ruoan hinta.
+Voit lukea uutiset samanaikaisesti alta.
 
-Ruoan hinta nousee.
+## Viikon aiheen esittely
 
-Pellervon taloustutkimus PTT sanoo, että ruoan hinta nousee tänä vuonna 1,5 prosenttia ja ensi vuonna 2,5 prosenttia.
+Ohjelman aihe on tällä kertaa Kotkan akkumateriaalitehdas ja tehtaan työolot.
 
-Tänä vuonna etenkin naudanliha ja virvoitusjuomat ovat kallistuneet.
+Kotkaan rakennetaan suurta tehdasta. Yle kertoi jo aiemmin, että tehtaan työmaalla on vakavia ongelmia.
 
-Ensi vuonna esimerkiksi kahvi, kaakao ja riisi uhkaavat kallistua. Niiden satonäkymät ovat epävarmat El Niño -sääilmiön takia, PTT sanoo.
+Nyt asiasta on valmistunut uusi selvitys. Selvitys vahvistaa, että työmaalla on rikottu Suomen lakia ja työntekijöitä on kohdeltu väärin.
 
-El Niño aiheuttaa esimerkiksi hellettä ja kuivuutta, rankkasateita ja tulvia.
+Kerromme nyt lisää Kotkan tehtaan tilanteesta.
 
-Ruoan hintaa nostavat myös energian ja lannoitteiden kallistuminen.
+![Kotkan akkumateriaalitehtaan rakennustyömää Ristinkalliolla.](https://img.img-cdn.yle.fi/crop_extract,w_6804,h_3827,x_0,y_170/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16908966a7dd24e6e74b/1786631342)
 
-## Oppikirjat
+Avaa kuvien katselu
 
-Sitten uutinen koulusta ja oppimisesta.
+Kotkan akkumateriaalitehtaan rakentaminen on iso työmaa. Kuva: Antro Valo / Yle
 
-Riihimäen yläkouluissa on palattu käyttämään paperikirjoja. Digimateriaalit vaihdetiin perinteisiin kirjoihin 2 vuotta sitten.
+## Työntekijöiden uhkailu
 
-Kokemukset ovat hyviä, sanovat opettajat, oppilaat ja vanhemmat
+Selvityksen tilasi Suomen valtion firma Finnish Minerals Group, joka omistaa osan tehtaasta.
 
-Oppilaiden keskittyminen on parantunut ja luokissa on parempi työrauha. Vanhempien on helpompi seurata lasten kehittymistä, kun käytössä ovat paperikirja ja vihko.
+Selvitysen teki asianajotoimisto. Se tutki työmaan tapahtumia.
 
-Riihimäen yläkouluissa käytetään taas paperikirjoja.
+Selvitys kertoo, että ulkomaalaisia työntekijöitä on uhattu ja painostettu. Työntekijöitä on uhattu esimerkiksi sillä, että he voivat menettää työn tai rahaa tai oleskeluluvan.
 
-Näin Karan koulun 9-luokkalainen **Eetu Rajala**:
+Joidenin työntekijöiden on pitänyt palautta osa palkasta firmalle.
 
-\- Keskittyminen on yleensä vähän ehkä parempaa paperikirjoilla, että jos on niitä koneita, niin silloin saattaa mennä siellä koneella ja tekee jotain ihan muuta.
+Lisäksi alihankkijafirma Jiangsu Installation Finland eli JSI löysi 800 työpäivää töitä, joita ei ole merkitty kirjanpitoon. Työntekijät tekivät nämä työt ilman palkkaa.
 
-## Suomen Tivoli
+Työntekijöiltä on myös peritty asumisesta kalliita maksuja.
 
-Lopuksi aiheena on kiertävä huvipuisto Suomen Tivoli.
+## Puuttuvien rahojen palauttaminen työntekijöille
 
-Suomen Tivoli lopettaa toiminnan.
+Selvitys kertoo, että pääfirmat eivät tienneet alihankkijan virheistä. Alihankkija on pienempi firma, joka tekee töitä pääfirmalle.
 
-Tivoli kertoo, että sen rahat ovat loppu. Se on tehnyt tappiota 7 vuotta peräkkäin.
+Valtionyhtiö Finnish Minerals Groupin toimitusjohtaja **Matti Hietanen** sanoo, että tilanne ei näytä hyvältä. Hietanen sanoo, että yhtiö ei hyväksy mitään epäasiallista toimintaa.
 
-Talousvaikeuksien taustalla ovat esimerkiksi koronapandemia ja kustannusten nousu.
+Alihankkija JSI lupaa maksaa työntekijöille kaikki puuttuvat rahat. Puolet rahoista on jo maksettu.
 
-Suomen Tivoli oli viimeistä päivää auki syyskuun alussa Keravalla.
+Pääfirma, eli valtionfirma Finnish Minerals Group sanoo, että työmaan valvontaa pitää tiukentaa.
 
-Huvipuisto ehti kiertää ympäri maata melkein 140 vuotta.
+![Matti Hietanen.](https://img.img-cdn.yle.fi/crop_extract,w_5304,h_2983,x_0,y_1542/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135777649c4cff4f1d3/1687965018)
 
-## Lauantain sää
+Avaa kuvien katselu
 
-Vielä sääennuste.
+ Finnish Minerals Groupin toimitusjohtaja Matti Hietanen. Kuva: Rinna Härkönen / Yle
 
-Huomenna lauantaina tulee monin paikoin hajanaisia vesisateita.
+## Ammattiliitot
 
-Idässä on vielä päivällä poutaista, mutta pilvistä.
+Työntekijöiden järjestöt eli ammattiliitot ovat seuranneet Kotkan tehtaan tilannetta tarkasti.
 
-Alkuillasta alkaen sateet muuttuvat yhtenäisemmiksi.
+Teollisuusliitto ja Rakennusliitto kiittävät uutta selvitystä. Ne sanovat, että selvitys kertoo työmaan tapahtumat. Työmaalla on tapahtunut vakavaa työvoiman hyväksikäyttöä.
 
-Lämpötila on 10 ja 15 asteen välillä.
+Liitot vaativat, että työntekijät saavat kaikki rahat, jotka työntekijöiden kuuluu saada. Ammattiliitot haluavat myös, että viranomaiset tutkivat työmaan tapahtumat tarkasti.
+
+## Kertaus
+
+Ohjelman aihe oli tällä kertaa Kotkan akkumateriaalitehtaan ongelmat. Kerrataan vielä tärkeimmät asiat.
+
+Uusi selvitys vahvisti, että työmaalla on rikottu lakia ja työntekijöitä on uhkailtu. Alihankkijafirma lupaa maksaa työntekijöille kaikki puuttuvat palkat. Ammattiliitot kiittävät selvitystä ja vaativat, että viranomaiset tutkivat tapahtumat tarkasti.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

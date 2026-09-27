@@ -22,7 +22,7 @@ Open image viewer
 
 The construction of the Kotka battery materials factory is a large construction site. Photo: Antro Valo / Yle
 
-## Employee intimidation
+## Threatening employees
 
 The study was commissioned by the Finnish state-owned company Finnish Minerals Group, which owns part of the factory.
 

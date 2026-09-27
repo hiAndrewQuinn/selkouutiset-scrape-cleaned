@@ -1,5 +1,4 @@
 {
-   "source" : "fi",
    "format" : "text",
    "target" : "en",
    "q" : [
@@ -72,5 +71,6 @@
       "Uusi selvitys vahvisti, että työmaalla on rikottu lakia ja työntekijöitä on uhkailtu. Alihankkijafirma lupaa maksaa työntekijöille kaikki puuttuvat palkat. Ammattiliitot kiittävät selvitystä ja vaativat, että viranomaiset tutkivat tapahtumat tarkasti.",
       "",
       "Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!"
-   ]
+   ],
+   "source" : "fi"
 }

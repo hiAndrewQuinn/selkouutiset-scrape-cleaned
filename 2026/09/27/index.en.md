@@ -1,69 +1,93 @@
-# News of the week in plain Finnish | Saturday 26.9.2026
+# Newsweek in plain Finnish | Sunday 27.9.2026
 
-Kotka battery material factory construction site and working conditions
+Gasoline prices. Public procurement. UN General Assembly. Finnish men's volleyball team wins bronze at the European Championship.
 
 Listen
 
 You can read the news simultaneously below.
 
-## Introducing the topic of the week
+## Fuel prices
 
-This time the topic of the program is the Kotka battery materials factory and the working conditions at the factory.
-
-A large factory is being built in Kotka. Yle previously reported that there are serious problems at the factory site.
-
-Now a new investigation has been completed into the matter. The investigation confirms that Finnish law was violated at the construction site and that the workers were treated unfairly.
-
-We will now tell you more about the situation at the Kotka factory.
-
-![Kotka battery material factory construction site in Ristinkallio.](https://img.img-cdn.yle.fi/crop_extract,w_6804,h_3827,x_0,y_170/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16908966a7dd24e6e74b/1786631342)
+![A person refuels a car with a green fuel pump at a gas station.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_472/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17133446ab672f89685e/1790342386)
 
 Open image viewer
 
-The construction of the Kotka battery materials factory is a large construction site. Photo: Antro Valo / Yle
+For example, the crisis in the Middle East is raising the price of gasoline and diesel. Photo: Ville Maali / Yle
 
-## Threatening employees
+This week, there has been a discussion in Finland about the price of fuels, namely gasoline and diesel.
 
-The study was commissioned by the Finnish state-owned company Finnish Minerals Group, which owns part of the factory.
+Prices have risen. The reasons are the rising cost of crude oil and the global crises.
 
-The investigation was conducted by a law firm. It investigated the events at the construction site.
+Many politicians want to lower the price of gasoline.
 
-The report says that foreign workers have been threatened and pressured. Workers have been threatened, for example, with the possibility of losing their jobs, money or residence permits.
+The RKP proposes that the fuel tax be reduced.
 
-Some employees have had to return part of their salary to the company.
+The Finns Party and the Christian Democrats propose that the distribution obligation be reduced.
 
-In addition, subcontractor Jiangsu Installation Finland, or JSI, found 800 working days of work that had not been recorded in the accounts. The workers carried out this work without pay.
+The distribution obligation means a rule that the fuel must also contain renewable fuel. Renewable fuel increases the price.
 
-Employees have also been charged expensive housing fees.
+The Central Chamber of Commerce says that politicians' proposals will not reduce fuel prices quickly.
 
-## Returning missing money to employees
+The tax cannot be reduced due to EU rules. Reducing the distribution obligation could make it more difficult to achieve climate goals.
 
-The investigation shows that the main companies were unaware of the subcontractor's mistakes. The subcontractor is a smaller company that does work for the main company.
+## Public procurement
 
-**Matti Hietanen**, CEO of the state-owned Finnish Minerals Group, says the situation does not look good. Hietanen says the company does not tolerate any inappropriate behavior.
-
-The subcontractor JSI promises to pay the workers all the missing money. Half of the money has already been paid.
-
-The main company, the state-owned Finnish Minerals Group, says that supervision of the construction site needs to be tightened.
-
-![Matti Hietanen.](https://img.img-cdn.yle.fi/crop_extract,w_5304,h_2983,x_0,y_1542/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135777649c4cff4f1d3/1687965018)
+![New blue tractors for sale.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_54/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17120196ab3d7ebcbd0a/1790171207)
 
 Open image viewer
 
-Finnish Minerals Group CEO Matti Hietanen. Photo: Rinna Härkönen / Yle
+Yle investigated the tenders for the machines. Photo: Marko Melto / Yle
 
-## Trade unions
+There are problems with competition in public procurement. This is according to a Yle report. There are problems with the fairness of competition.
 
-Employee organizations, or trade unions, have been closely monitoring the situation at the Kotka factory.
+Yle investigated the procurement of work equipment by municipalities and parishes. In some of the tenders, the conditions were so strict that only one machine was suitable.
 
-The Finnish Industrial Federation and the Finnish Construction Federation praise the new report. They say that the report reveals what happened on the construction site. There has been serious exploitation of labor on the site.
+Yle reviewed ten procurement notices. Six notices were such that only one manufacturer's machine met the conditions.
 
-The unions are demanding that workers receive all the money they are entitled to. The unions also want the authorities to thoroughly investigate the events at the construction site.
+The organizer of the tender perhaps wanted only one company to be able to offer the machine.
 
-## Repetition
+The expert says that such a restriction of competition may violate the law.
 
-This time the topic of the program was the problems at the Kotka battery materials factory. Let's recap the most important things.
+Public procurement is paid for with tax money. Prices can rise high if there is no genuine competition.
 
-A new investigation has confirmed that the law was broken at the construction site and workers were threatened. The subcontractor company promises to pay the workers all outstanding wages. Trade unions are praising the investigation and demanding that the authorities investigate the incidents thoroughly.
+## Important week for the UN General Assembly
 
-This was the news of the week in plain Finnish. See you again, bye!
+![Two men stand at a table holding folders and shaking hands, with the flags of Finland and Ukraine on the table.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_206/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17121026ab403343f621/1790182249)
+
+Open image viewer
+
+Presidents Stubb and Zelenskyi signed the Finnish-Ukrainian defense cooperation agreement. Photo: Ilmari Reunamäki / Yle
+
+The next topic is the United Nations, or UN, General Assembly.
+
+This week has been the high-level week of the UN General Assembly. World leaders gathered in New York, USA.
+
+At the meeting, world leaders have talked about, for example, wars and cooperation between different countries.
+
+Finnish President **Alexander Stubb** and Ukrainian President **Volodymyr Zelenskyi** signed a defense cooperation agreement.
+
+The agreement will increase cooperation between Finland and Ukraine in the production of military equipment.
+
+The agreement has been called the drone deal, but it also applies to weapons other than drones.
+
+President Stubb says that some Ukrainian drone models can be manufactured efficiently in Finland.
+
+## Finnish men's basketball team wins bronze at the European Championship
+
+![The Finnish men's national volleyball team poses in a group photo with medals around their necks.](https://img.img-cdn.yle.fi/crop_extract,w_6144,h_3456,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17136896ab847b5d9efc/1790461918)
+
+Open image viewer
+
+The Finnish men's national volleyball team won the bronze medal at the European Championship. Photo: Marco Bertorello / AFP
+
+Finally, sports news.
+
+The Finnish men's national volleyball team won bronze at the European Championships on Saturday.
+
+Finland won the Slovenian set 3–0, meaning Finland won all three sets of the match.
+
+The loss in Slovenia was a big disappointment. The country's media and players say that Finland was better and deserved to win.
+
+The bronze medal is historic for Finland. It is Finland's first medal at the men's European Championship in volleyball.
+
+This was a news week in plain Finnish. See you again, let's hear from you!

@@ -1,6 +1,5 @@
 {
    "source" : "fi",
-   "format" : "text",
    "target" : "en",
    "q" : [
       "# Selkouutiset | tiistai 29.9.2026",
@@ -62,5 +61,6 @@
       "Lämpötila on etelässä noin 15 astetta. Pohjoisessa on noin 10 astetta.",
       "",
       "Tuuli on heikkoa."
-   ]
+   ],
+   "format" : "text"
 }

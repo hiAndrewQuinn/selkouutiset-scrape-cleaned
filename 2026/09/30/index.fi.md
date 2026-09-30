@@ -1,59 +1,80 @@
-# Selkouutiset | tiistai 29.9.2026
+# Selkouutiset | keskiviikko 30.9.2026
 
-Eläkekysely. Bensan hinta. Jalkapallo ja politiikka. Keskiviikon sää.
+Harjoittelupaikat. Jauheliha. Jättikurpitsa. Sääennuste.
 
-## Eläkekysely
+## Opiskelijoiden harjoittelupaikat
 
-Aluksi aiheena on eläke.
+Aluksi uutinen opiskelijoiden harjoittelupaikoista.
 
-Suomalaiset eivät usko, että eläke riittää kaikkiin kuluihin tulevaisuudessa.
+Ammatillisten oppilaitosten opiskelijoiden on vaikea löytää työharjoittelupaikkaa.
 
-Tämä selviää Työeläkevakuuttajien kyselystä.
+Syynä on automaatio ja tekoäly.
 
-60 prosenttia vastaajista arvioi, että vuonna 2050 eläke ei riitä elämisen kuluihin.
+Ne ovat vähentäneet töitä, jotka sopivat harjoittelijalle.
 
-Etenkin nuoret ovat pessimistisiä. Näin ajattelee **Eino Köntti**:
+Ukrainalainen **Serhii Denichenko** opiskelee liiketoimintaa Omniassa.
 
-– En usko. Musta tuntuu, että siitä jää liian vähän sitten kuitenkin elämiseen. Kuitenkin ruoka, asumiset, kaikki tällaiset. En usko, että riittää.
+Hän etsi harjoittelupaikkaa Helsingin keskustassa.
 
-Osa suomalaisista ei enää luota eläkejärjestelmän maksukykyyn.
+Omnian koulutuspäällikkö **Tarja Koskinen-Nisula** sanoo, että työelämä on muuttunut. Esimerkiksi kirjanpidossa on vain vähän käsityötä.
 
-Silti moni vastaaja halusi, että nykyistä eläkejärjestelmää ei muuteta.
+Työharjoittelupaikkojen löytäminen on vaikeutunut.
 
-## Bensan hinta
+Tilanne on hankala, koska harjoittelu on tärkeä osa opiskelua.
 
-Sitten aiheena on polttoaineen hinta.
+Opiskelijajärjestö SAKKI sanoo, että tilanne on huolestuttava.  
+Nyt uutinen ruoan hinnasta.
 
-Hallitus pohtii keinoja alentaa bensan ja dieselin hintaa.
+## Jauhelihan hinta
 
-Pääministeri **Petteri Orpo** sanoo, että vaihtoehtoja on useita.
+Naudan jauheliha on kalliimpaa kuin ennen.
 
-Polttoaineet ovat nyt harvinaisen kalliita. Syitä ovat raakaöljyn kallistuminen ja maailman kriisit.
+Esimerkiksi luomujauheliha voi maksaa jo 20 euroa kilolta.
 
-Hallitus pohtii, miten bensan ja dieselin hintaa voi alentaa.
+Syy on se, että ihmiset maailmalla syövät naudanlihaa enemmän kuin ennen. Suuri kysyntä nostaa lihan hintaa myös Suomessa.
 
-Moni asiantuntija sanoo, että hintahelpotus kannattaa tehdä vain ammattiautoilijoille ja kuljetusyrityksille.
+Kokkolalainen **Kari Nissi** sanoo, että sopiva hinta 400 gramman jauhelihapaketille on korkeintaan 6 euroa.
 
-## Jalkapallo ja politiikka
+*”Jos 5-6 euroa 400 grammaa on minusta kohtuuhinta vielä.”*
 
-Lopuksi urheilua.
+Naudan jauheliha on kalliimpaa kuin ennen. Siksi moni suomalainen ostaa nyt halvempaa sekoitelihaa. Tällaista on esimerkiksi sika-nauta-jauheliha.
 
-Suomen ja Valko-Venäjän jalkapallo-ottelu herättää keskustelua.
+**Satu Kellosalo** osti sekoitejauhelihaa.
 
-Suomi ja Valko-Venäjä pelaavat illalla Helsingissä Kansojen liigan ottelussa.
+Myös hän sanoo, että naudan jauheliha on kallista.
 
-Suomen Palloliitto saa kritiikkiä pelin järjestämisestä. Syynä on se, että Valko-Venäjä tukee Venäjää Ukrainan sodassa.
+Kellosalo: ”Lapsi tykkää.”
 
-Moni arvostelee Suomen ja Valko-Venäjän jalkapallo-ottelua.
+Toimittaja kysyy: ”Oletko seurannut naudan jauhelihan hinnan kehitystä?”
 
-Palloliitto sanoo, että pelin lipputulot annetaan ukrainalaisille. Pelissä voi antaa myös raha- ja tavaralahjoituksia Ukrainaan.
+Kellosalo vastaa: ”Kyllä olen. Kallista.”
 
-## Keskiviikon sää
+## Jättikurpitsa
+
+Lopuksi uutinen jättikurpitsasta.
+
+Suomessa on taas pidetty kurpitsankasvatuksen kilpailu.
+
+Jättikurpitsan Suomen mestaruuden voitti hausjärveläinen **Krista Pennanen**.
+
+Pennasen kurpitsa painaa yli 570 kiloa.
+
+Se on Suomen historian toiseksi suurin kurpitsa.
+
+Pennanen kertoo, että hän hoiti kurpitsaa joka päivä koko kesän.
+
+Kurpitsa kasvoi jopa 22 kiloa päivässä.
+
+Hausjärveläinen Krista Pennanen on voittanut jättikurpitsan Suomen mestaruuden.
+
+Ensi vuonna hän aikoo kasvattaa vielä suuremman kurpitsan.
+
+## Torstain sää
 
 Vielä sääennuste.
 
-Huomenna paistaa aurinko.
+Torstaina aurinko paistaa suuressa osassa maata.
 
-Lämpötila on etelässä noin 15 astetta. Pohjoisessa on noin 10 astetta.
+Lännessä on pilvistä.
 
-Tuuli on heikkoa.
+Lämpötila on laajalti 10 ja 15 asteen välillä.

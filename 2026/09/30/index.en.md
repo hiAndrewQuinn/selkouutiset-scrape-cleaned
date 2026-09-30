@@ -1,59 +1,80 @@
-# Clear News | Tuesday 29.9.2026
+# Clear News | Wednesday 30.9.2026
 
-Pension survey. Gasoline prices. Football and politics. Wednesday's weather.
+Training locations. Minced meat. Giant pumpkin. Weather forecast.
 
-## Pension survey
+## Student internships
 
-Initially, the topic is pension.
+First, news about student internships.
 
-Finns do not believe that their pension will be enough to cover all their expenses in the future.
+It is difficult for students at vocational schools to find an internship.
 
-This is clear from a survey by the Finnish Pension Insurance Companies.
+The reason is automation and artificial intelligence.
 
-60 percent of respondents estimate that in 2050, the pension will not be enough to cover living expenses.
+They have reduced the number of jobs that are suitable for interns.
 
-Young people in particular are pessimistic. This is how **Eino Köntti** thinks:
+Ukrainian **Serhii Denichenko** is studying business at Omnia.
 
-– I don't think so. I feel like there's too little left to live on. But food, housing, all that. I don't think it's enough.
+He was looking for an internship in central Helsinki.
 
-Some Finns no longer trust the pension system's solvency.
+Omnia's Training Manager **Tarja Koskinen-Nisula** says that working life has changed. For example, there is little manual work in accounting.
 
-Still, many respondents wanted the current pension system not to be changed.
+Finding internships has become more difficult.
 
-## Gasoline price
+The situation is difficult because internships are an important part of studying.
 
-Then there is the issue of fuel prices.
+The student organization SAKKI says the situation is worrying.
+Now the news about the price of food.
 
-The government is considering ways to lower the price of gasoline and diesel.
+## Minced meat price
 
-Prime Minister **Petteri Orpo** says there are several options.
+Ground beef is more expensive than before.
 
-Fuels are now unusually expensive. The reasons are the rising cost of crude oil and the global crises.
+For example, organic minced meat can cost as much as 20 euros per kilo.
 
-The government is considering how to lower the price of gasoline and diesel.
+The reason is that people around the world are eating more beef than before. High demand is also driving up the price of meat in Finland.
 
-Many experts say that price relief should only be provided to professional drivers and transport companies.
+**Kari Nissi** from Kokkola says that a suitable price for a 400 gram package of minced meat is no more than 6 euros.
 
-## Football and politics
+*"If 5-6 euros for 400 grams is still a reasonable price for me."*
 
-Finally, sports.
+Ground beef is more expensive than before. That's why many Finns are now buying cheaper mixed meats. For example, ground pork and beef.
 
-The football match between Finland and Belarus is sparking debate.
+**Satu Kellosalo** bought mixed minced meat.
 
-Finland and Belarus will play in a Nations League match in Helsinki tonight.
+He also says that ground beef is expensive.
 
-The Finnish Football Association is receiving criticism for organizing the game. The reason is that Belarus supports Russia in the war in Ukraine.
+Kellosalo: “The child likes it.”
 
-Many people are criticizing the football match between Finland and Belarus.
+The reporter asks: “Have you been following the price trend of ground beef?”
 
-The Finnish Football Association says that ticket sales from the game will be donated to Ukrainians. Donations of money and goods to Ukraine can also be made at the game.
+Kellosalo replies: “Yes I am. Tilt.”
 
-## Wednesday's weather
+## Giant pumpkin
+
+Finally, news about the giant pumpkin.
+
+A pumpkin growing competition has been held in Finland again.
+
+**Krista Pennanen** from Hausjärvi won the Finnish Giant Pumpkin Championship.
+
+Pennanen's pumpkin weighs over 570 kilograms.
+
+It is the second largest pumpkin in Finnish history.
+
+Pennanen says that he took care of the pumpkin every day all summer.
+
+The pumpkin grew up to 22 kilograms per day.
+
+Krista Pennanen from Hausjärvi has won the Finnish giant pumpkin championship.
+
+Next year he plans to grow an even bigger pumpkin.
+
+## Thursday's weather
 
 Still a weather forecast.
 
-The sun will shine tomorrow.
+On Thursday, the sun will shine in much of the country.
 
-The temperature in the south is about 15 degrees. In the north it is about 10 degrees.
+It's cloudy in the west.
 
-The wind is weak.
+The temperature is widely between 10 and 15 degrees.

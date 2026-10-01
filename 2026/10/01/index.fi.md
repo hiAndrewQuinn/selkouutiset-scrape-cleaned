@@ -1,80 +1,61 @@
-# Selkouutiset | keskiviikko 30.9.2026
+# Selkouutiset | torstai 1.10.2026
 
-Harjoittelupaikat. Jauheliha. Jättikurpitsa. Sääennuste.
+Suomenlahden valvonta. Ajokorttilaki. STT. UMK27. Sää.
 
-## Opiskelijoiden harjoittelupaikat
+## Ruotsi valvoo Suomenlahtea
 
-Aluksi uutinen opiskelijoiden harjoittelupaikoista.
+Aluksi uutinen Itämeren valvonnasta.
 
-Ammatillisten oppilaitosten opiskelijoiden on vaikea löytää työharjoittelupaikkaa.
+Ruotsi tukee nyt ensimmäistä kertaa Suomea merivalvonnassa. Esimerkiksi drooniuhka aiheuttaa lisätyötä aluevalvontaan.
 
-Syynä on automaatio ja tekoäly.
+Ruotsalaisen sotalaivan miehistö tarkkailee Suomenlahden aluetta ainakin tällä viikolla.
 
-Ne ovat vähentäneet töitä, jotka sopivat harjoittelijalle.
+Ruotsi jakaa tiedon Suomen ja puolustusliitto Naton kanssa. Melkein puolet laivan miehistöstä on naisia.
 
-Ukrainalainen **Serhii Denichenko** opiskelee liiketoimintaa Omniassa.
+Suomi ja Ruotsi ovat tehneet pitkän aikaa yhteistyötä puolustuksessa. Historiallista on, että Ruotsi tukee Suomea aluevalvonnassa Suomen johdolla.
 
-Hän etsi harjoittelupaikkaa Helsingin keskustassa.
+## Alaikäisten autoilu
 
-Omnian koulutuspäällikkö **Tarja Koskinen-Nisula** sanoo, että työelämä on muuttunut. Esimerkiksi kirjanpidossa on vain vähän käsityötä.
+Sitten ajokorteista.
 
-Työharjoittelupaikkojen löytäminen on vaikeutunut.
+Uusi laki on tullut voimaan tänään.
 
-Tilanne on hankala, koska harjoittelu on tärkeä osa opiskelua.
+Alaikäisen kuljettajan pitää kiinnittää autoon vihreä-keltainen tunnus.
 
-Opiskelijajärjestö SAKKI sanoo, että tilanne on huolestuttava.  
-Nyt uutinen ruoan hinnasta.
+Se merkitään ajoneuvoon, johon vaaditaan B-luokan ajokortti. Näitä ovat henkilöauton lisäksi esimerkiksi traktorimönkijät.
 
-## Jauhelihan hinta
+## STT:n kohtalo
 
-Naudan jauheliha on kalliimpaa kuin ennen.
+Sitten uutinen mediasta.
 
-Esimerkiksi luomujauheliha voi maksaa jo 20 euroa kilolta.
+Suomen tietotoimisto STT:n uutistoiminta saattaa päättyä.
 
-Syy on se, että ihmiset maailmalla syövät naudanlihaa enemmän kuin ennen. Suuri kysyntä nostaa lihan hintaa myös Suomessa.
+Uutistoimiston talous on ollut huono jo monta vuotta. STT suunnittelee uutistoiminnan lopettamista maaliskuussa.
 
-Kokkolalainen **Kari Nissi** sanoo, että sopiva hinta 400 gramman jauhelihapaketille on korkeintaan 6 euroa.
+STT:n toimitusjohtaja **Kimmo Laaksonen** sanoo, että yhtiön on pakko aloittaa muutosneuvottelut. Niissä on 95 työntekijää eli lähes koko henkilöstö.
 
-*”Jos 5-6 euroa 400 grammaa on minusta kohtuuhinta vielä.”*
+STT:n omistavat suomalaiset mediayhtiöt. STT aloitti toiminnan vuonna 1887.
 
-Naudan jauheliha on kalliimpaa kuin ennen. Siksi moni suomalainen ostaa nyt halvempaa sekoitelihaa. Tällaista on esimerkiksi sika-nauta-jauheliha.
+STT:n uutistoiminta saattaa päättyä.
 
-**Satu Kellosalo** osti sekoitejauhelihaa.
+Mediatutkija **Heikki Hellman** sanoo, että Suomi kuitenkin tarvitsee kansallisen uutistoimiston.
 
-Myös hän sanoo, että naudan jauheliha on kallista.
+\- Mä näkisin, että STT täytyy perustaa uudelleen, jos se tähän tällaisena nykyisessä muodossaan lakkaa.
 
-Kellosalo: ”Lapsi tykkää.”
+## UMK27 myytiin loppuun minuuteissa
 
-Toimittaja kysyy: ”Oletko seurannut naudan jauhelihan hinnan kehitystä?”
+Kerrotaan vielä, että UMK27-liput tulivat myyntiin tänään kello 9. Ne myytiin loppuun ennätysajassa.
 
-Kellosalo vastaa: ”Kyllä olen. Kallista.”
+Uuden musiikin kilpailussa valitaan Suomen edustaja euroviisuihin.
 
-## Jättikurpitsa
+UMK27-show järjestetään Tampereen Nokia Arenalla ensi helmikuuussa.
 
-Lopuksi uutinen jättikurpitsasta.
+Myös viime vuonna liput myytiin loppuun muutamassa minuutissa.
 
-Suomessa on taas pidetty kurpitsankasvatuksen kilpailu.
-
-Jättikurpitsan Suomen mestaruuden voitti hausjärveläinen **Krista Pennanen**.
-
-Pennasen kurpitsa painaa yli 570 kiloa.
-
-Se on Suomen historian toiseksi suurin kurpitsa.
-
-Pennanen kertoo, että hän hoiti kurpitsaa joka päivä koko kesän.
-
-Kurpitsa kasvoi jopa 22 kiloa päivässä.
-
-Hausjärveläinen Krista Pennanen on voittanut jättikurpitsan Suomen mestaruuden.
-
-Ensi vuonna hän aikoo kasvattaa vielä suuremman kurpitsan.
-
-## Torstain sää
+## Sää
 
 Vielä sääennuste.
 
-Torstaina aurinko paistaa suuressa osassa maata.
+Sää on etelässä poutainen ja aurinkokin paistaa monin paikoin.
 
-Lännessä on pilvistä.
-
-Lämpötila on laajalti 10 ja 15 asteen välillä.
+Pohjoisessa on pilvistä ja paikoin sataa vähän tihkua.

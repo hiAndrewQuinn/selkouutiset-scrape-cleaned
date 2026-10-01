@@ -1,80 +1,61 @@
-# Clear News | Wednesday 30.9.2026
+# Clear News | Thursday 1.10.2026
 
-Training locations. Minced meat. Giant pumpkin. Weather forecast.
+Gulf of Finland surveillance. Driving License Act. STT. UMK27. Weather.
 
-## Student internships
+## Sweden controls the Gulf of Finland
 
-First, news about student internships.
+First, news about the surveillance of the Baltic Sea.
 
-It is difficult for students at vocational schools to find an internship.
+Sweden is now supporting Finland in maritime surveillance for the first time. For example, the drone threat is causing additional work in regional surveillance.
 
-The reason is automation and artificial intelligence.
+The crew of a Swedish warship will be monitoring the Gulf of Finland area for at least this week.
 
-They have reduced the number of jobs that are suitable for interns.
+Sweden shares the information with Finland and the NATO defense alliance. Almost half of the ship's crew are women.
 
-Ukrainian **Serhii Denichenko** is studying business at Omnia.
+Finland and Sweden have long cooperated in defense. Historically, Sweden supports Finland in regional surveillance under Finnish leadership.
 
-He was looking for an internship in central Helsinki.
+## Driving by minors
 
-Omnia's Training Manager **Tarja Koskinen-Nisula** says that working life has changed. For example, there is little manual work in accounting.
+Then about driving licenses.
 
-Finding internships has become more difficult.
+The new law has come into force today.
 
-The situation is difficult because internships are an important part of studying.
+A minor driver must attach a green-yellow sticker to the car.
 
-The student organization SAKKI says the situation is worrying.
-Now the news about the price of food.
+It is marked on a vehicle that requires a category B driving license. In addition to passenger cars, these include, for example, tractor-trailers.
 
-## Minced meat price
+## The fate of STT
 
-Ground beef is more expensive than before.
+Then news from the media.
 
-For example, organic minced meat can cost as much as 20 euros per kilo.
+The news operations of the Finnish news agency STT may end.
 
-The reason is that people around the world are eating more beef than before. High demand is also driving up the price of meat in Finland.
+The news agency's finances have been poor for many years. STT plans to close its news operations in March.
 
-**Kari Nissi** from Kokkola says that a suitable price for a 400 gram package of minced meat is no more than 6 euros.
+STT CEO **Kimmo Laaksonen** says the company is forced to start change negotiations. They involve 95 employees, almost the entire staff.
 
-*"If 5-6 euros for 400 grams is still a reasonable price for me."*
+STT is owned by Finnish media companies. STT began operations in 1887.
 
-Ground beef is more expensive than before. That's why many Finns are now buying cheaper mixed meats. For example, ground pork and beef.
+STT's news operations may end.
 
-**Satu Kellosalo** bought mixed minced meat.
+Media researcher **Heikki Hellman** says that Finland still needs a national news agency.
 
-He also says that ground beef is expensive.
+\- I would see that STT needs to be re-established if it ceases to exist in its current form.
 
-Kellosalo: “The child likes it.”
+## UMK27 sold out in minutes
 
-The reporter asks: “Have you been following the price trend of ground beef?”
+Let me also say that UMK27 tickets went on sale today at 9 am. They sold out in record time.
 
-Kellosalo replies: “Yes I am. Tilt.”
+The new music competition selects Finland's representative for Eurovision.
 
-## Giant pumpkin
+The UMK27 show will be held at the Nokia Arena in Tampere next February.
 
-Finally, news about the giant pumpkin.
+Last year, tickets also sold out in a few minutes.
 
-A pumpkin growing competition has been held in Finland again.
-
-**Krista Pennanen** from Hausjärvi won the Finnish Giant Pumpkin Championship.
-
-Pennanen's pumpkin weighs over 570 kilograms.
-
-It is the second largest pumpkin in Finnish history.
-
-Pennanen says that he took care of the pumpkin every day all summer.
-
-The pumpkin grew up to 22 kilograms per day.
-
-Krista Pennanen from Hausjärvi has won the Finnish giant pumpkin championship.
-
-Next year he plans to grow an even bigger pumpkin.
-
-## Thursday's weather
+## Weather
 
 Still a weather forecast.
 
-On Thursday, the sun will shine in much of the country.
+The weather in the south is breezy and the sun is shining in many places.
 
-It's cloudy in the west.
-
-The temperature is widely between 10 and 15 degrees.
+It will be cloudy in the north with a light drizzle in places.

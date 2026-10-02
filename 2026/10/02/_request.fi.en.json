@@ -1,4 +1,7 @@
 {
+   "source" : "fi",
+   "format" : "text",
+   "target" : "en",
    "q" : [
       "# Selkouutiset | torstai 1.10.2026",
       "",
@@ -61,8 +64,5 @@
       "Sää on etelässä poutainen ja aurinkokin paistaa monin paikoin.",
       "",
       "Pohjoisessa on pilvistä ja paikoin sataa vähän tihkua."
-   ],
-   "source" : "fi",
-   "target" : "en",
-   "format" : "text"
+   ]
 }

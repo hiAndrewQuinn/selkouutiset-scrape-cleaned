@@ -1,61 +1,59 @@
-# Clear News | Thursday 1.10.2026
+# TV Selkuutiset Friday 2.10.2026
 
-Gulf of Finland surveillance. Driving License Act. STT. UMK27. Weather.
+MPs. F-35 fighters. Cerebral palsy. Weather.
 
-## Sweden controls the Gulf of Finland
+## Security of MPs
 
-First, news about the surveillance of the Baltic Sea.
+First, a news about safety.
 
-Sweden is now supporting Finland in maritime surveillance for the first time. For example, the drone threat is causing additional work in regional surveillance.
+Several MPs suspect that someone has visited their apartments without permission.
 
-The crew of a Swedish warship will be monitoring the Gulf of Finland area for at least this week.
+Nothing has been stolen from the apartments, but signs of entry have been left.
 
-Sweden shares the information with Finland and the NATO defense alliance. Almost half of the ship's crew are women.
+## Helsinki police are investigating suspected break-ins.
 
-Finland and Sweden have long cooperated in defense. Historically, Sweden supports Finland in regional surveillance under Finnish leadership.
+The reason or perpetrator of the break-ins to the MPs' homes is unknown.
 
-## Driving by minors
+The researcher says that the method of breaking into apartments comes from Soviet intelligence.
 
-Then about driving licenses.
+According to him, the custom is very rare outside of Russia.
 
-The new law has come into force today.
+## F-35 fighters in Finland
 
-A minor driver must attach a green-yellow sticker to the car.
+Next news about military aircraft.
 
-It is marked on a vehicle that requires a category B driving license. In addition to passenger cars, these include, for example, tractor-trailers.
+The Finnish Air Force celebrated the arrival of F-35 fighters from the United States to Finland.
 
-## The fate of STT
+The celebration was held in Rovaniemi.
 
-Then news from the media.
+The celebration was attended by the President of Finland, Alexander Stubb.
 
-The news operations of the Finnish news agency STT may end.
+He named Finland's first F-35 fighter Sisu.
 
-The news agency's finances have been poor for many years. STT plans to close its news operations in March.
+Finland has ordered a total of 64 F-35 fighters from the United States.
 
-STT CEO **Kimmo Laaksonen** says the company is forced to start change negotiations. They involve 95 employees, almost the entire staff.
+The fighters cost a total of 10 billion euros.
 
-STT is owned by Finnish media companies. STT began operations in 1887.
+The fighter jets are the Finnish state's most expensive purchase ever.
 
-STT's news operations may end.
+## Tick-borne encephalitis at record high
 
-Media researcher **Heikki Hellman** says that Finland still needs a national news agency.
+Finally, some health news.
 
-\- I would see that STT needs to be re-established if it ceases to exist in its current form.
+There has been a record number of tick-borne encephalitis cases in Finland this year.
 
-## UMK27 sold out in minutes
+The disease is also known as TBE and tick-borne encephalitis.
 
-Let me also say that UMK27 tickets went on sale today at 9 am. They sold out in record time.
+More than 390 people have contracted the disease this year. Last year, fewer than 240 people contracted the disease.
 
-The new music competition selects Finland's representative for Eurovision.
+Tick-borne encephalitis is caused by a virus. The virus is transmitted to humans through a tick bite. The number of ticks in Finland is constantly increasing.
 
-The UMK27 show will be held at the Nokia Arena in Tampere next February.
+Tick-borne encephalitis can cause fever, severe headache, and inflammation of the brain.
 
-Last year, tickets also sold out in a few minutes.
+The only way to protect yourself from tick-borne encephalitis is with the TBE vaccine.
 
 ## Weather
 
 Still a weather forecast.
 
-The weather in the south is breezy and the sun is shining in many places.
-
-It will be cloudy in the north with a light drizzle in places.
+The weather is cloudy. There is a little rain in the west and north, otherwise it is dry, i.e. no rain. The temperature is about +15 in the south and about +10 in the north.

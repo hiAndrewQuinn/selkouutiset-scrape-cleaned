@@ -1,5 +1,4 @@
 {
-   "format" : "text",
    "target" : "en",
    "q" : [
       "# TV Selkouutiset perjantai 2.10.2026",
@@ -62,5 +61,6 @@
       "",
       "Sää on pilvistä. Lännessä ja pohjoisessa sataa vähän vettä, muutoin on poutaa eli sateetonta. Lämpötila on etelässä noin +15 ja pohjoisessa noin +10 astetta."
    ],
-   "source" : "fi"
+   "source" : "fi",
+   "format" : "text"
 }

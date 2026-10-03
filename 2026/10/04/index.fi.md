@@ -1,0 +1,79 @@
+# Viikon uutinen selkosuomeksi | lauantai 3.10.2026
+
+Viherpesulaki
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+EU-maat ottavat käyttöön uuden lain, joka auttaa ihmisiä löytämään ympäristöystävälliset tuotteet.
+
+Laki on puhekielessä viherpesulaki.
+
+Suomessa laki otetaan käyttöön ensi maaliskuussa.
+
+Nyt kerromme asiasta lisää.
+
+## Mitä on viherpesu?
+
+![Pakkaus, jossa lukee &quot;Ilmastopositiivinen valinta&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_3840,h_2160,x_0,y_353/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-156407969314068eabdc/1765266214)
+
+Avaa kuvien katselu
+
+Pakkauksen teksti antaa ymmärtää, että tuote on ympäristöystävällinen.  Kuva: Antti Haanpää / Yle
+
+EU-maat ottavat käyttöön uuden lain, jolla halutaan vähentää tuotteiden viherpesua.
+
+Viherpesu tarkoittaa viestintää tai mainontaa, joka liioittelee tai antaa väärän kuvan tuotteen ympäristöystävällisyydestä.
+
+Tuotteen pakkauksessa voidaan esimerkiksi sanoa, että tuote on ekologinen, vaikka se ei sitä oikeasti ole. Tuotetta voidaan myös mainostaa, että se säästää nyt luontoa enemmän kuin ennen, mutta oikeasti mitään muutosta ei ole tapahtunut.
+
+EU:n uusi viherpesulaki kieltää väärät väitteet.
+
+## Oikeaa tietoa asiakkaalle
+
+![Kasvatettuja vastuullisesti appelsiineja.](https://img.img-cdn.yle.fi/crop_extract,w_3815,h_2146,x_0,y_767/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-15640836931406f07dbf/1765188826)
+
+Avaa kuvien katselu
+
+Uusi laki vaatii todistamaan myös väitteet siitä, että tuote on valmistettu reilusti ja vastuullisesti. Kuva: Antti Haanpää / Yle
+
+Uusi laki koskee esimerkiksi pakkausmerkintöjä, mainontaa ja muuta markkinointia.
+
+Lain tarkoitus on, että asiakas saa tuotteesta oikeaa tietoa. Silloin tuotetta on helpompi vertailla ja ostaa.
+
+Jos tuotteesta sanotaan, että se on esimerkiksi biohajoava tai ilmastoystävällinen, valmistajan pitää pystyä osoittamaan, että väite on totta.
+
+Laki vaatii todistamaan myös väitteet siitä, että tuote on valmistettu reilusti ja vastuullisesti.
+
+## Moni pakkaus muuttuu
+
+![Joutsenmerkki konetiskiaine pakkauksen kyljessä](https://img.img-cdn.yle.fi/crop_extract,w_1570,h_883,x_10,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-9482542d01d237522/1412235830)
+
+Avaa kuvien katselu
+
+Tuttu Joutsenmerkki nähdään myös jatkossa, sillä se täyttää uuden lain vaatimukset.  Kuva: Yle/ Katja Solla
+
+Uusi laki muuttaa monien tuotteiden pakkauksia.
+
+Pakkauksissa ei saa enää olla valmistajan omia ympäristöleimoja. Sen sijaan esimerkiksi Joutsenmerkki, Luomumerkki, EU-ympäristömerkki ja Reilun kaupan merkki jäävät yhä käyttöön, sillä ne täyttävät lain vaatimukset.
+
+Uuden lain tarkoitus on auttaa asiakasta löytämään kaupasta tuotteet, jotka ovat oikeasti ympäristöystävällisiä. Ostajan pitää voida luottaa siihen, että pakkauksen merkinnät ovat totta.
+
+## Kertaus
+
+![Tuotepakkaus, jossa on MSC-sertifikaatti, &quot;I&#39;m green&quot; -merkintä, joka viittaa ympäristöystävälliseen pakkausmateriaalin valintaan.](https://img.img-cdn.yle.fi/crop_extract,w_2262,h_1272,x_0,y_574/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1564071693140625bc76/1765266848)
+
+Avaa kuvien katselu
+
+Kuva: Antti Haanpää / Yle
+
+Kerrataan vähän.
+
+EU-maat ottavat käyttöön uuden lain, joka auttaa asiakasta löytämään ympäristöystävälliset tuotteet.
+
+Tuotetta ei saa enää sanoa ympäristöystävälliseksi, jos se ei sitä oikeasti ole.
+
+Laki muuttaa monien tuotteiden pakkausmerkintöjä, mainontaa ja markkinointia.
+
+Tässä oli Viikon uutinen selkosuomeksi. Kuulemiin.

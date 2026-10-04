@@ -1,79 +1,105 @@
-# Viikon uutinen selkosuomeksi | lauantai 3.10.2026
+# Uutisviikko selkosuomeksi | sunnuntai 4.10.2026
 
-Viherpesulaki
+Kansanedustajien kotirauha. Polttoaineen hinta. STT. Nuoret kuljettajat ja vuokralaiset. Hiihtokausi. Kesän salamat.
 
 Kuuntele
 
 Voit lukea uutiset samanaikaisesti alta.
 
-EU-maat ottavat käyttöön uuden lain, joka auttaa ihmisiä löytämään ympäristöystävälliset tuotteet.
+## Kansanedustajien kotirauha
 
-Laki on puhekielessä viherpesulaki.
-
-Suomessa laki otetaan käyttöön ensi maaliskuussa.
-
-Nyt kerromme asiasta lisää.
-
-## Mitä on viherpesu?
-
-![Pakkaus, jossa lukee &quot;Ilmastopositiivinen valinta&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_3840,h_2160,x_0,y_353/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-156407969314068eabdc/1765266214)
+![Kaksi ihmistä seisoo puhujakorokkeen äärellä mikrofonien edessä, taustalla portaikkoa ja heijastavia pintoja.](https://img.img-cdn.yle.fi/crop_extract,w_6144,h_3456,x_0,y_195/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17158826abe3cbc7b54b/1790852419)
 
 Avaa kuvien katselu
 
-Pakkauksen teksti antaa ymmärtää, että tuote on ympäristöystävällinen.  Kuva: Antti Haanpää / Yle
+Eduskunnan varapuhemies Paula Risikko ja puhemies Jussi Halla-aho kertoivat torstaina, että joku on ehkä käynyt kansanedustajien kotona ilman lupaa. Kuva: Heikki Saukkomaa / Lehtikuva
 
-EU-maat ottavat käyttöön uuden lain, jolla halutaan vähentää tuotteiden viherpesua.
+Ensin uutinen kansanedustajien kotirauhasta.
 
-Viherpesu tarkoittaa viestintää tai mainontaa, joka liioittelee tai antaa väärän kuvan tuotteen ympäristöystävällisyydestä.
+Poliisi tutkii, onko kansanedustajien kotirauhaa rikottu.
 
-Tuotteen pakkauksessa voidaan esimerkiksi sanoa, että tuote on ekologinen, vaikka se ei sitä oikeasti ole. Tuotetta voidaan myös mainostaa, että se säästää nyt luontoa enemmän kuin ennen, mutta oikeasti mitään muutosta ei ole tapahtunut.
+Tällä viikolla kerrottiin epäilyistä, että joku on käynyt kansanedustajien kotona ilman lupaa.
 
-EU:n uusi viherpesulaki kieltää väärät väitteet.
+Ylen tiedot ovat, että näitä epäilyjä on useita, mutta alle 20.
 
-## Oikeaa tietoa asiakkaalle
+Asunnoissa ei ole murtojälkiä eikä mitään ole varastettu tai rikottu.
 
-![Kasvatettuja vastuullisesti appelsiineja.](https://img.img-cdn.yle.fi/crop_extract,w_3815,h_2146,x_0,y_767/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-15640836931406f07dbf/1765188826)
+Asuntoihin on kuitenkin jätetty pieniä merkkejä siitä, että joku on käynyt siellä.
 
-Avaa kuvien katselu
+## Polttoaineen hinta
 
-Uusi laki vaatii todistamaan myös väitteet siitä, että tuote on valmistettu reilusti ja vastuullisesti. Kuva: Antti Haanpää / Yle
-
-Uusi laki koskee esimerkiksi pakkausmerkintöjä, mainontaa ja muuta markkinointia.
-
-Lain tarkoitus on, että asiakas saa tuotteesta oikeaa tietoa. Silloin tuotetta on helpompi vertailla ja ostaa.
-
-Jos tuotteesta sanotaan, että se on esimerkiksi biohajoava tai ilmastoystävällinen, valmistajan pitää pystyä osoittamaan, että väite on totta.
-
-Laki vaatii todistamaan myös väitteet siitä, että tuote on valmistettu reilusti ja vastuullisesti.
-
-## Moni pakkaus muuttuu
-
-![Joutsenmerkki konetiskiaine pakkauksen kyljessä](https://img.img-cdn.yle.fi/crop_extract,w_1570,h_883,x_10,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-9482542d01d237522/1412235830)
+![Henkilö tankkaa autoa vihreällä polttoainepistoolilla huoltoasemalla.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_472/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17133446ab672f89685e/1790342386)
 
 Avaa kuvien katselu
 
-Tuttu Joutsenmerkki nähdään myös jatkossa, sillä se täyttää uuden lain vaatimukset.  Kuva: Yle/ Katja Solla
+Auton tankkaaminen on nyt kallista. Kuva: Ville Maali / Yle
 
-Uusi laki muuttaa monien tuotteiden pakkauksia.
+Polttoaineen hinnasta on puhuttu paljon jo monta viikkoa.
 
-Pakkauksissa ei saa enää olla valmistajan omia ympäristöleimoja. Sen sijaan esimerkiksi Joutsenmerkki, Luomumerkki, EU-ympäristömerkki ja Reilun kaupan merkki jäävät yhä käyttöön, sillä ne täyttävät lain vaatimukset.
+Polttoaineet ovat nyt harvinaisen kalliita. Raakaöljyn hinta on noussut esimerkiksi Iranin sodan jatkumisen takia.
 
-Uuden lain tarkoitus on auttaa asiakasta löytämään kaupasta tuotteet, jotka ovat oikeasti ympäristöystävällisiä. Ostajan pitää voida luottaa siihen, että pakkauksen merkinnät ovat totta.
+Tällä viikolla kerrottiin, että Suomen hallitus miettii keinoja alentaa bensan ja dieselin hintaa.
 
-## Kertaus
+Pääministeri Petteri Orpo sanoi eilen, että hallitus on pääsemässä asiasta sopuun ehkä jo lähipäivinä.
 
-![Tuotepakkaus, jossa on MSC-sertifikaatti, &quot;I&#39;m green&quot; -merkintä, joka viittaa ympäristöystävälliseen pakkausmateriaalin valintaan.](https://img.img-cdn.yle.fi/crop_extract,w_2262,h_1272,x_0,y_574/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1564071693140625bc76/1765266848)
+## STT
+
+![-](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_356/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17161806abe769613789/1790867769)
 
 Avaa kuvien katselu
 
-Kuva: Antti Haanpää / Yle
+Suomen tietotoimisto on toiminut melkein 140 vuotta. Kuva: Mikko Koski / Yle
 
-Kerrataan vähän.
+Sitten uutinen mediasta.
 
-EU-maat ottavat käyttöön uuden lain, joka auttaa asiakasta löytämään ympäristöystävälliset tuotteet.
+Suomen tietotoimiston STT:n uutistoiminta saattaa loppua.
 
-Tuotetta ei saa enää sanoa ympäristöystävälliseksi, jos se ei sitä oikeasti ole.
+STT suunnittelee uutistoiminnan lopettamista maaliskuussa.
 
-Laki muuttaa monien tuotteiden pakkausmerkintöjä, mainontaa ja markkinointia.
+Uutistoimiston talous on ollut huono jo monta vuotta.
 
-Tässä oli Viikon uutinen selkosuomeksi. Kuulemiin.
+## Nuoret kuljettajat ja vuokralaiset
+
+![Vanha käsi pitää palavaa savuketta valkoisen takin hihassa, taustalla vaalea seinä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_551/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17027666a9ac0a686cf8/1788527495)
+
+Avaa kuvien katselu
+
+Uusi laki kieltää tupakoinnin vuokra-asunnossa. Kuva: Pyry Sarkiola / Yle
+
+Lokakuun alussa tuli voimaan kaksi lakimuutosta, jotka vaikuttavat moniin ihmisiin.
+
+Ajokorttilaki vaatii nyt, että 17-vuotiaan kuljettajan pitää merkitä auto, jota hän ajaa. Auton takaosaan pitää kiinittää vihreäkeltainen merkki.
+
+Myös huoneenvuokralaki uudistui. Laki kieltää nyt vuokralaista tupakoimasta vuokra-asunnossa ja sen omalla pihalla tai parvekkeella.
+
+Tupakointi on sallittu vain, jos siihen on saanut luvan vuokranantajalta.
+
+## Hiihtokausi alkaa
+
+![Lumetettu laskettelurinne kulkee metsän keskellä sumuisessa säässä, rinne rajattu punaisella aidalla.](https://img.img-cdn.yle.fi/crop_extract,w_8056,h_4531,x_0,y_886/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17163876abf6433f1a40/1790928113)
+
+Avaa kuvien katselu
+
+Rukalla avattiin laskettelurinne säilölumen avulla. Kuva: Paulus Markkula / Yle
+
+Hiihtokausi on alkamassa.
+
+Ensimmäiset laskettelurinteet on avattu Rukalla Kuusamossa ja Levillä Kittilässä. Levillä avatiin myös ensimmäinen latu murtomaahiihtoa varten.
+
+Lumi on viime talven lunta. Se on ollut säilössä kesän ajan.
+
+## Vaisu ukkoskesä
+
+![Salama iskee pilvisen taivaan alta maaseutumaisemaan.](https://img.img-cdn.yle.fi/crop_extract,w_5999,h_3374,x_0,y_194/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16926846a8317692daf3/1786976333)
+
+Avaa kuvien katselu
+
+Viime kesänä ukkosti ja salamoi vähemmän kuin tavallisesti. Kuva: AOP
+
+Ukkosia on ollut tänä vuonna vähemmän kuin tavallisesti, kertoo Ilmatieteen laitos.
+
+Kesän aikana havaittiin vähän yli 30 000 maasalamaa. Tavallisesti kesällä havaitaan keskimäärin yli 80 000 salamaa.
+
+Eniten salamoi länsirannikolla Pohjanmaan maakunnissa ja Turun seudulla Varsinais-Suomessa.
+
+Tässä oli Uutisviikko selkosuomeksi. Kuulemiin ensi viikkoon.

@@ -1,0 +1,87 @@
+# Selkouutiset | maanantai 5.10.2026
+
+Leipä. Asumisoikeusasunnot. Piha. Sääennuste.
+
+## Leipä
+
+Aluksi uutinen leivästä.
+
+Suomalaiset syövät vähemmän leipää kuin ennen.
+
+Silti jotkut pienet leipomot pärjäävät hyvin.
+
+Tämä on Viipurilainen Kotileipomo Päijät-Hämeessä.
+
+Leipomo päätti alkaa tehdä palaleipää vuonna 2016.
+
+Palaleivästä tuli suosittua ja leipomo sai paljon uusia asiakkaita.
+
+**Teppo Ylä-Hemmilä** on yksi leipomon omistajista.
+
+Hän sanoo, että pieni leipomo pärjää, jos se ymmärtää asiakasta.
+
+Ihmiset haluavat leivältä hyvää laatua ja sopivaa hintaa.
+
+Suomalaiset syövät vähemmän leipää kuin ennen.
+
+Moni ostaa palaleipää, koska se on halkaistu valmiiksi.
+
+Leipä on helppo ottaa pussista ja syödä.
+
+## Asumisoikeusasunnot eli ASO-asunnot
+
+Nyt uutinen asumisesta.
+
+Asumisoikeusasuntojen eli ASO-asuntojen kysyntä laskee.
+
+Tyhjiä ASO-asuntoja on enemmän kuin ennen.
+
+Yli 10 prosenttia ASO-asunnoista on tyhjiä tai vuokrattuja.
+
+Omistaja ei saa myydä ASO-taloa tai muuttaa sitä vuokrataloksi.
+
+Siksi eduskunta käsittelee uutta lakia.
+
+Uusi laki voi antaa luvan myydä talot, joissa on paljon tyhjiä asuntoja.
+
+Asukkaat pelkäävät, että muutos heikentää asukkaiden asemaa ja nostaa asumisen hintaa.
+
+Talojen omistajat sanovat, että asukkaiden edut säilyvät.
+
+Suomessa on enemmän tyhjiä ASO-asuntoja kuin ennen.
+
+Siksi eduskunta käsittelee lakia, joka voi sallia ASO-talojen myynnin.
+
+## Piha
+
+Lopuksi uutinen luonnosta ja terveydestä.
+
+Monimuotoinen kotipiha on hyvä ihmisen terveydelle.
+
+Näin kertoo uusi suomalainen tutkimus.
+
+Villi piha muuttaa ihmisen mikrobeja ja vähentää tulehdusta.
+
+Tämä on **Kaspar Abellan** piha Lahdessa.
+
+Pihalle tuotiin lisää kasveja ja lahopuuta, ja nurmikko muutettiin niityksi.
+
+Syksyn lehdet jätettiin maahan.
+
+Tutkijat huomasivat, että luonnollinen piha parantaa ihmisen puolustuskykyä.
+
+Esimerkiksi lahopuu tekee hyvää ihon ja suun mikrobeille.
+
+Monimuotoinen kotipiha tekee hyvää terveydelle, koska luonto vahvistaa ihmisen elimistöä.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Tuuli on kovaa tiistaina.
+
+Lännessä tuuli voi puhaltaa 20 metriä sekunnissa.
+
+Idässä ja pohjoisessa sataa vähän vettä.
+
+Etelässä ja lännessä paistaa aurinko.

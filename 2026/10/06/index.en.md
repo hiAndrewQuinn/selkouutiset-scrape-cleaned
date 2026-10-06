@@ -1,87 +1,61 @@
-# Clear News | Monday 5.10.2026
+# Clear News | Tuesday 6.10.2026
 
-Bread. Right-of-occupancy apartments. Yard. Weather forecast.
+Homeschooling. The Spanish royal couple. Puppy life. Weather.
 
-## Bread
+## Homeschooling
 
-First, the news about bread.
+First, news about homeschooling.
 
-Finns eat less bread than before.
+There are more children in homeschooling than before.
 
-Still, some small bakeries are doing well.
+Ylen MOT reports that around a thousand children are homeschooled. The number has tripled in 7 years.
 
-This is a Viipuri-based Home Bakery in Päijät-Häme.
+In Finland, a guardian can teach a child at home. No permission is required. They just need to notify the municipality.
 
-The bakery decided to start making sliced bread in 2016.
+In homeschooling, a child must learn the same knowledge and skills as in school.
 
-The bread became popular and the bakery gained many new customers.
+There are more children in homeschooling than before. Homeschooling is already available in every third municipality.
 
-**Teppo Ylä-Hemmilä** is one of the owners of the bakery.
+The municipality is responsible for supervising homeschooling. However, supervision is difficult.
 
-He says that a small bakery can succeed if it understands the customer.
+Children's Ombudsman **Elina Pekkarinen** is worried.
 
-People want good quality bread at a reasonable price.
+\- I think the biggest problem is that we don't know exactly what children are learning and what their state of well-being is.
 
-Finns eat less bread than before.
+## Guests from Spain
 
-Many people buy sliced bread because it is already sliced.
+Then the topic is the state visit.
 
-The bread is easy to take out of the bag and eat.
+King Felipe of Spain and Queen Letizia have begun a state visit to Finland.
 
-## Right-of-occupancy apartments or ASO apartments
+President **Alexander Stubb** and Mrs. **Suzanne Innes-Stubb** welcomed the royal couple in front of the Presidential Palace in the morning.
 
-Now news about housing.
+The Spanish royal couple's state visit to Finland will last 2 days.
 
-The demand for right-of-occupancy housing, or ASO housing, is decreasing.
+Tomorrow the guests will go to Rovaniemi.
 
-There are more empty ASO apartments than before.
+## Puppy Live begins
 
-More than 10 percent of ASO apartments are empty or rented.
+Finally, news for puppy lovers.
 
-The owner is not allowed to sell an ASO house or convert it into a rental house.
+Yle's popular program Pentulive starts again today.
 
-That is why Parliament is considering a new law.
+The mother dog of the puppies this year is **Hilkka**. Hilkka is a Lagotto Romagnolo, or Italian Water Dog.
 
-The new law may allow the sale of houses with many empty apartments.
+Hilkka usually works as a school dog, providing emotional support to students and relieving stress.
 
-Residents fear that the change will weaken their position and increase the cost of housing.
+In her free time, Hilkka, for example, looks for truffles in the forest.
 
-The owners of the houses say that the interests of the residents will be preserved.
+Hilkka is now expecting puppies, which may be born in the next few days. This is Hilkka's second litter.
 
-There are more empty ASO apartments in Finland than before.
+Pentulive starts today at 7 pm in Yle Areena and on Yle's website. The program follows the lives of Hilka and the puppies for about 2 months.
 
-Therefore, Parliament is considering a law that could allow the sale of ASO houses.
-
-## Yard
-
-Finally, news about nature and health.
-
-A diverse home yard is good for human health.
-
-This is what a new Finnish study says.
-
-Wild garden alters human microbes and reduces inflammation.
-
-This is **Kaspar Abella**'s yard in Lahti.
-
-More plants and rotten wood were brought into the yard, and the lawn was turned into a meadow.
-
-Autumn leaves were left on the ground.
-
-Researchers discovered that a natural yard improves a person's immune system.
-
-For example, rotten wood is good for microbes on the skin and in the mouth.
-
-A diverse home yard is good for your health because nature strengthens the human body.
-
-## Tuesday weather
+## Wednesday's weather
 
 Still a weather forecast.
 
-The wind is strong on Tuesday.
+It will be mainly sunny on Wednesday.
 
-In the west, the wind can blow 20 meters per second.
+There may be some rain in the north and the wind may be strong.
 
-There is little rain in the east and north.
-
-The sun shines in the south and west.
+The temperature varies between 5-14 degrees.

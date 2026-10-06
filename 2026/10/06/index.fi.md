@@ -1,87 +1,61 @@
-# Selkouutiset | maanantai 5.10.2026
+# Selkouutiset | tiistai 6.10.2026
 
-Leipä. Asumisoikeusasunnot. Piha. Sääennuste.
+Kotikoulut. Espanjan kuningaspari. Pentulive. Sää.
 
-## Leipä
+## Kotikoulut
 
-Aluksi uutinen leivästä.
+Aluksi uutinen kotikouluista.
 
-Suomalaiset syövät vähemmän leipää kuin ennen.
+Kotikouluissa on enemmän lapsia kuin ennen.
 
-Silti jotkut pienet leipomot pärjäävät hyvin.
+Ylen MOT kertoo, että kotiopetusta saa noin tuhat lasta. Määrä on kolminkertaistunut 7 vuodessa
 
-Tämä on Viipurilainen Kotileipomo Päijät-Hämeessä.
+Suomessa huoltaja voi opettaa lasta kotona. Lupaa ei tarvita. Riittää, että hän ilmoittaa asiasta kunnalle.
 
-Leipomo päätti alkaa tehdä palaleipää vuonna 2016.
+Kotiopetuksessa lapsen pitää oppia samat tiedot ja taidot kuin koulussa.
 
-Palaleivästä tuli suosittua ja leipomo sai paljon uusia asiakkaita.
+Kotikouluissa on enemmän lapsia kuin ennen. Kotikouluja on jo joka kolmannessa kunnassa.
 
-**Teppo Ylä-Hemmilä** on yksi leipomon omistajista.
+Kunnan vastuulla on valvoa kotiopetusta. Valvonta on kuitenkin vaikeaa.
 
-Hän sanoo, että pieni leipomo pärjää, jos se ymmärtää asiakasta.
+Lapsiasiavaltuutettu **Elina Pekkarinen** on huolissaan.
 
-Ihmiset haluavat leivältä hyvää laatua ja sopivaa hintaa.
+\- Mä ajattelen, että se suurin ongelma on se, että me ei täsmällisesti tiedetä, mitä lapset oppii ja mikä heidän hyvinvointinsa tila on.
 
-Suomalaiset syövät vähemmän leipää kuin ennen.
+## Vieraita Espanjasta
 
-Moni ostaa palaleipää, koska se on halkaistu valmiiksi.
+Sitten aiheena on valtiovierailu.
 
-Leipä on helppo ottaa pussista ja syödä.
+Espanjan kuningas **Felipe** ja kuningatar **Letizia** ovat aloittaneet valtiovierailun Suomessa.
 
-## Asumisoikeusasunnot eli ASO-asunnot
+Presidentti **Alexander Stubb** ja rouva **Suzanne Innes-Stubb** ottivat kuningasparin vastaan presidentinlinnan edustalla aamupäivällä.
 
-Nyt uutinen asumisesta.
+Espanjan kuningasparin valtiovierailu Suomessa kestää 2 päivää.
 
-Asumisoikeusasuntojen eli ASO-asuntojen kysyntä laskee.
+Huomenna vieraat menevät Rovaniemelle.
 
-Tyhjiä ASO-asuntoja on enemmän kuin ennen.
+## Pentulive alkaa
 
-Yli 10 prosenttia ASO-asunnoista on tyhjiä tai vuokrattuja.
+Lopuksi uutinen koiranpentujen ystäville.
 
-Omistaja ei saa myydä ASO-taloa tai muuttaa sitä vuokrataloksi.
+Ylen suosittu ohjelma Pentulive alkaa taas tänään.
 
-Siksi eduskunta käsittelee uutta lakia.
+Pentuliven emokoira on tänä vuonna **Hilkka**. Hilkka on lagotto romagnolo eli italianvesikoira.
 
-Uusi laki voi antaa luvan myydä talot, joissa on paljon tyhjiä asuntoja.
+Hilkka tekee tavallisesti koulukoiran työtä. Se antaa oppilaille henkistä tukea ja helpottaa stressiä.
 
-Asukkaat pelkäävät, että muutos heikentää asukkaiden asemaa ja nostaa asumisen hintaa.
+Vapaa-aikana Hilkka esimerkiksi etsii tryffelisieniä metsästä.
 
-Talojen omistajat sanovat, että asukkaiden edut säilyvät.
+Hilkka odottaa nyt pentuja, jotka syntyvät ehkä jo ihan lähipäivinä. Tämä on Hilkan toinen pentue.
 
-Suomessa on enemmän tyhjiä ASO-asuntoja kuin ennen.
+Pentulive alkaa tänään kello 19 Yle Areenassa ja Ylen verkkosivuilla. Ohjelma seuraa Hilkan ja pentujen elämää noin 2 kuukauden ajan.
 
-Siksi eduskunta käsittelee lakia, joka voi sallia ASO-talojen myynnin.
-
-## Piha
-
-Lopuksi uutinen luonnosta ja terveydestä.
-
-Monimuotoinen kotipiha on hyvä ihmisen terveydelle.
-
-Näin kertoo uusi suomalainen tutkimus.
-
-Villi piha muuttaa ihmisen mikrobeja ja vähentää tulehdusta.
-
-Tämä on **Kaspar Abellan** piha Lahdessa.
-
-Pihalle tuotiin lisää kasveja ja lahopuuta, ja nurmikko muutettiin niityksi.
-
-Syksyn lehdet jätettiin maahan.
-
-Tutkijat huomasivat, että luonnollinen piha parantaa ihmisen puolustuskykyä.
-
-Esimerkiksi lahopuu tekee hyvää ihon ja suun mikrobeille.
-
-Monimuotoinen kotipiha tekee hyvää terveydelle, koska luonto vahvistaa ihmisen elimistöä.
-
-## Tiistain sää
+## Keskiviikon sää
 
 Vielä sääennuste.
 
-Tuuli on kovaa tiistaina.
+Keskiviikkona on pääosin poutaa.
 
-Lännessä tuuli voi puhaltaa 20 metriä sekunnissa.
+Pohjoisessa voi sataa vähän ja tuuli voi olla voimakasta.
 
-Idässä ja pohjoisessa sataa vähän vettä.
-
-Etelässä ja lännessä paistaa aurinko.
+Lämpötila vaihtelee 5-14 asteen välillä.

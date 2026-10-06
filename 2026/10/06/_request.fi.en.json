@@ -1,7 +1,7 @@
 {
-   "target" : "en",
-   "format" : "text",
    "source" : "fi",
+   "format" : "text",
+   "target" : "en",
    "q" : [
       "# Selkouutiset | maanantai 5.10.2026",
       "",

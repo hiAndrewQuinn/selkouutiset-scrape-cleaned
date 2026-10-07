@@ -1,7 +1,4 @@
 {
-   "target" : "en",
-   "format" : "text",
-   "source" : "fi",
    "q" : [
       "# Selkouutiset | tiistai 6.10.2026",
       "",
@@ -64,5 +61,8 @@
       "Pohjoisessa voi sataa vähän ja tuuli voi olla voimakasta.",
       "",
       "Lämpötila vaihtelee 5-14 asteen välillä."
-   ]
+   ],
+   "target" : "en",
+   "format" : "text",
+   "source" : "fi"
 }

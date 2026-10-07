@@ -1,61 +1,87 @@
-# Clear News | Tuesday 6.10.2026
+# Clear News | Wednesday 7.10.2026
 
-Homeschooling. The Spanish royal couple. Puppy life. Weather.
+Restaurants. Scrapping bonus. Hugo Simberg. Weather forecast.
 
-## Homeschooling
+## Restaurant hygiene
 
-First, news about homeschooling.
+First, some news about restaurants.
 
-There are more children in homeschooling than before.
+Many restaurants have deficiencies in hygiene.
 
-Ylen MOT reports that around a thousand children are homeschooled. The number has tripled in 7 years.
+Yle examined the information from the Finnish Food Authority's health inspections.
 
-In Finland, a guardian can teach a child at home. No permission is required. They just need to notify the municipality.
+Every third restaurant received a poor rating.
 
-In homeschooling, a child must learn the same knowledge and skills as in school.
+The restaurants have kept food too warm and the premises have been dirty. Inspectors also found pests in the restaurants.
 
-There are more children in homeschooling than before. Homeschooling is already available in every third municipality.
+There are more bad grades than before.
 
-The municipality is responsible for supervising homeschooling. However, supervision is difficult.
+Professor of Food Hygiene **Johanna Björkroth** is concerned about the results.
 
-Children's Ombudsman **Elina Pekkarinen** is worried.
+*"Yes, it was a sad read in that there has been more to fix than in previous years."*
 
-\- I think the biggest problem is that we don't know exactly what children are learning and what their state of well-being is.
+Many restaurants have deficiencies in hygiene.
 
-## Guests from Spain
+The reason for the quality problems is the poor finances of the restaurants.
 
-Then the topic is the state visit.
+In addition, not all entrepreneurs and employees have sufficient knowledge or language skills.
 
-King Felipe of Spain and Queen Letizia have begun a state visit to Finland.
+Authorities have temporarily closed some restaurants.
 
-President **Alexander Stubb** and Mrs. **Suzanne Innes-Stubb** welcomed the royal couple in front of the Presidential Palace in the morning.
+## Car scrapping bonus
 
-The Spanish royal couple's state visit to Finland will last 2 days.
+Now news about scrapping old cars.
 
-Tomorrow the guests will go to Rovaniemi.
+Here, a recycling company is looking for an old car to scrap.
 
-## Puppy Live begins
+Finns have applied for quite a few new scrapping bonuses.
 
-Finally, news for puppy lovers.
+The state can pay over 2,000 euros for scrapping an old car.
 
-Yle's popular program Pentulive starts again today.
+You get the money if you buy a new low-emission car instead.
 
-The mother dog of the puppies this year is **Hilkka**. Hilkka is a Lagotto Romagnolo, or Italian Water Dog.
+Many people will buy an electric car then.
 
-Hilkka usually works as a school dog, providing emotional support to students and relieving stress.
+The goal is to reduce traffic emissions.
 
-In her free time, Hilkka, for example, looks for truffles in the forest.
+Finns have only recently applied for scrapping bonuses.
 
-Hilkka is now expecting puppies, which may be born in the next few days. This is Hilkka's second litter.
+20 million euros have been allocated for support, but only less than 3 million euros have been spent.
 
-Pentulive starts today at 7 pm in Yle Areena and on Yle's website. The program follows the lives of Hilka and the puppies for about 2 months.
+Junk dealer **Toni Keinänen** says that people have been scrapping old cars more than last year.
 
-## Wednesday's weather
+For example, the person who scrapped this car just wanted the car out of the yard.
+
+## Hugo Simberg art exhibition
+
+Finally, cultural news.
+
+An exhibition by Hugo Simberg has opened at the Turku Art Museum.
+
+Hugo Simberg is one of the most popular artists among Finns.
+
+This painting is “Wounded Angel”.
+
+It was voted the Finns' favorite painting.
+
+Simberg often depicted death and fairy tales.
+
+Curator Selina Kiiskinen says that death was a natural part of life for Simberg.
+
+An extensive exhibition of Hugo Simberg's art has opened at the Turku Art Museum.
+
+Simberg's works are of interest to many Finns.
+
+## Thursday's weather
 
 Still a weather forecast.
 
-It will be mainly sunny on Wednesday.
+The weather will be changeable on Thursday.
 
-There may be some rain in the north and the wind may be strong.
+The sun is shining in the north.
 
-The temperature varies between 5-14 degrees.
+It is cloudy in the south.
+
+There may be showers in the west.
+
+The temperature is below 10 degrees Celsius almost throughout the country.

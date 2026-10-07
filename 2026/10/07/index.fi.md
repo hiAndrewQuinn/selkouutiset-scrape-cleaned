@@ -1,61 +1,87 @@
-# Selkouutiset | tiistai 6.10.2026
+# Selkouutiset | keskiviikko 7.10.2026
 
-Kotikoulut. Espanjan kuningaspari. Pentulive. Sää.
+Ravintolat. Romutuspalkkio. Hugo Simberg. Sääennuste.
 
-## Kotikoulut
+## Ravintoloiden hygienia
 
-Aluksi uutinen kotikouluista.
+Aluksi uutinen ravintoloista.
 
-Kotikouluissa on enemmän lapsia kuin ennen.
+Monissa ravintoloissa on puutteita hygieniassa.
 
-Ylen MOT kertoo, että kotiopetusta saa noin tuhat lasta. Määrä on kolminkertaistunut 7 vuodessa
+Yle tutki Ruokaviraston terveystarkastusten tietoja.
 
-Suomessa huoltaja voi opettaa lasta kotona. Lupaa ei tarvita. Riittää, että hän ilmoittaa asiasta kunnalle.
+Joka kolmas ravintola sai huonon arvosanan.
 
-Kotiopetuksessa lapsen pitää oppia samat tiedot ja taidot kuin koulussa.
+Ravintolat ovat säilyttäneet ruokaa liian lämpimässä ja tilat ovat olleet likaisia. Tarkastajat löysivät ravintoloista myös tuholaisia.
 
-Kotikouluissa on enemmän lapsia kuin ennen. Kotikouluja on jo joka kolmannessa kunnassa.
+Huonoja arvosanoja on enemmän kuin ennen.
 
-Kunnan vastuulla on valvoa kotiopetusta. Valvonta on kuitenkin vaikeaa.
+Elintarvikehygienian professori **Johanna Björkroth** on huolestunut tuloksista.
 
-Lapsiasiavaltuutettu **Elina Pekkarinen** on huolissaan.
+*”Kyllä se oli sillä lailla surullista luettavaa, että siellä on ollut enemmän korjattavaa kuin aikaisempina vuosina.”*
 
-\- Mä ajattelen, että se suurin ongelma on se, että me ei täsmällisesti tiedetä, mitä lapset oppii ja mikä heidän hyvinvointinsa tila on.
+Monissa ravintoloissa on puutteita hygieniassa.
 
-## Vieraita Espanjasta
+Syy laatuongelmiin on ravintoloiden huono talous.
 
-Sitten aiheena on valtiovierailu.
+Lisäksi kaikilla yrittäjillä ja työntekijöillä ei ole tarpeeksi tietoa tai kielitaitoa.
 
-Espanjan kuningas **Felipe** ja kuningatar **Letizia** ovat aloittaneet valtiovierailun Suomessa.
+Viranomaiset ovat sulkeneet joitakin ravintoloita tilapäisesti.
 
-Presidentti **Alexander Stubb** ja rouva **Suzanne Innes-Stubb** ottivat kuningasparin vastaan presidentinlinnan edustalla aamupäivällä.
+## Autojen romutuspalkkio
 
-Espanjan kuningasparin valtiovierailu Suomessa kestää 2 päivää.
+Nyt uutinen vanhojen autojen romutuksesta.
 
-Huomenna vieraat menevät Rovaniemelle.
+Tässä kierrätysfirma hakee vanhan auton romutukseen.
 
-## Pentulive alkaa
+Suomalaiset ovat hakeneet melko vähän uutta romutuspalkkiota.
 
-Lopuksi uutinen koiranpentujen ystäville.
+Valtio voi maksaa vanhan auton romutuksesta yli 2 000 euroa.
 
-Ylen suosittu ohjelma Pentulive alkaa taas tänään.
+Rahan saa, jos ihminen ostaa tilalle uuden vähäpäästöisen auton.
 
-Pentuliven emokoira on tänä vuonna **Hilkka**. Hilkka on lagotto romagnolo eli italianvesikoira.
+Monet ihmiset ostavat silloin sähköauton.
 
-Hilkka tekee tavallisesti koulukoiran työtä. Se antaa oppilaille henkistä tukea ja helpottaa stressiä.
+Tavoite on vähentää liikenteen päästöjä.
 
-Vapaa-aikana Hilkka esimerkiksi etsii tryffelisieniä metsästä.
+Suomalaiset ovat hakeneet romutuspalkkiota vasta vähän.
 
-Hilkka odottaa nyt pentuja, jotka syntyvät ehkä jo ihan lähipäivinä. Tämä on Hilkan toinen pentue.
+Tukeen on varattu 20 miljoonaa euroa, mutta rahaa on kulunut vasta alle 3 miljoonaa euroa.
 
-Pentulive alkaa tänään kello 19 Yle Areenassa ja Ylen verkkosivuilla. Ohjelma seuraa Hilkan ja pentujen elämää noin 2 kuukauden ajan.
+Romukauppias **Toni Keinänen** kertoo, että ihmiset ovat kuitenkin romuttaneet vanhoja autoja enemmän kuin viime vuonna.
 
-## Keskiviikon sää
+Esimerkiksi tämän auton romuttaja halusi vain auton pois pihalta.
+
+## Hugo Simberg -taidenäyttely
+
+Lopuksi kulttuuriuutinen.
+
+Turun taidemuseossa on avattu Hugo Simbergin näyttely.
+
+Hugo Simberg on yksi suomalaisten suosituimmista taiteilijoista.
+
+Tämä maalaus on ”Haavoittunut enkeli”.
+
+Se oli äänestyksessä suomalaisten suosikkimaalaus.
+
+Simberg kuvasi usein kuolemaa ja satumaailmaa.
+
+Kuraattori Selina Kiiskinen kertoo, että kuolema oli Simbergille luonnollinen osa elämää.
+
+Turun taidemuseossa on avattu laaja näyttely Hugo Simbergin taiteesta.
+
+Simbergin teokset kiinnostavat monia suomalaisia.
+
+## Torstain sää
 
 Vielä sääennuste.
 
-Keskiviikkona on pääosin poutaa.
+Torstaina sää on vaihtelevaa.
 
-Pohjoisessa voi sataa vähän ja tuuli voi olla voimakasta.
+Pohjoisessa paistaa aurinko.
 
-Lämpötila vaihtelee 5-14 asteen välillä.
+Etelässä on pilvistä.
+
+Lännessä voi tulla sadekuuroja.
+
+Lämpötila on melkein koko maassa alle 10 astetta.

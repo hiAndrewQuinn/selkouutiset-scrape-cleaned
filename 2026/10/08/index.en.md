@@ -1,87 +1,39 @@
-# Clear News | Wednesday 7.10.2026
+# Clear News | Thursday 8.10.2026
 
-Restaurants. Scrapping bonus. Hugo Simberg. Weather forecast.
+Party support. Retirement age. Finnish Swan. Weather.
 
-## Restaurant hygiene
+## Party support
 
-First, some news about restaurants.
+First, politics.
 
-Many restaurants have deficiencies in hygiene.
+The Social Democratic Party (SDP) is still the most popular party in Finland. A new survey by Yle shows that 22.7 percent of Finns support the Social Democratic Party. Support for the opposition party, the Social Democratic Party, has increased slightly.
 
-Yle examined the information from the Finnish Food Authority's health inspections.
+The Finns Party is now in second place. The Finns Party's popularity has overtaken the Coalition Party, which is now in third place. The Finns Party's support has increased and the Coalition Party's has decreased. Both parties decide on issues in the government.
 
-Every third restaurant received a poor rating.
+Parliamentary elections will be held in April next year.
 
-The restaurants have kept food too warm and the premises have been dirty. Inspectors also found pests in the restaurants.
+## Retirement age
 
-There are more bad grades than before.
+Next up, economic news.
 
-Professor of Food Hygiene **Johanna Björkroth** is concerned about the results.
+The Ministry of Finance says that the retirement age should be raised. Ministry officials propose that the minimum retirement age in Finland be raised to 70 years. The officials propose that the retirement age be raised gradually.
 
-*"Yes, it was a sad read in that there has been more to fix than in previous years."*
+The Ministry of Finance believes that the retirement age should be raised in Finland.
 
-Many restaurants have deficiencies in hygiene.
+Officials believe that Finland needs people to have longer working careers than it does today. The reason is that the population is aging and Finland's public spending is increasing.
 
-The reason for the quality problems is the poor finances of the restaurants.
+## Finnish Swan
 
-In addition, not all entrepreneurs and employees have sufficient knowledge or language skills.
+Next news about the sailing ship.
 
-Authorities have temporarily closed some restaurants.
+The sailing ship Suomen Joutsen is being repaired. The ship was towed from Turku to the Naantali repair yard on Wednesday. The Suomen Joutsen has been at the Naantali shipyard for over a week. For example, the ship is being painted at the shipyard.
 
-## Car scrapping bonus
+The Suomen Joutsene is undergoing a major renovation. For example, the ship's masts will be repaired. The entire renovation will take 5 years and cost 2 million euros.
 
-Now news about scrapping old cars.
+The sailing ship Suomen Joutsen is being repaired. The ship was completed in France in 1902. It was purchased for the Finnish Navy as a training ship in 1930. Today, the Suomen Joutsen is a museum ship in the Aura River in Turku.
 
-Here, a recycling company is looking for an old car to scrap.
-
-Finns have applied for quite a few new scrapping bonuses.
-
-The state can pay over 2,000 euros for scrapping an old car.
-
-You get the money if you buy a new low-emission car instead.
-
-Many people will buy an electric car then.
-
-The goal is to reduce traffic emissions.
-
-Finns have only recently applied for scrapping bonuses.
-
-20 million euros have been allocated for support, but only less than 3 million euros have been spent.
-
-Junk dealer **Toni Keinänen** says that people have been scrapping old cars more than last year.
-
-For example, the person who scrapped this car just wanted the car out of the yard.
-
-## Hugo Simberg art exhibition
-
-Finally, cultural news.
-
-An exhibition by Hugo Simberg has opened at the Turku Art Museum.
-
-Hugo Simberg is one of the most popular artists among Finns.
-
-This painting is “Wounded Angel”.
-
-It was voted the Finns' favorite painting.
-
-Simberg often depicted death and fairy tales.
-
-Curator Selina Kiiskinen says that death was a natural part of life for Simberg.
-
-An extensive exhibition of Hugo Simberg's art has opened at the Turku Art Museum.
-
-Simberg's works are of interest to many Finns.
-
-## Thursday's weather
+## Weather
 
 Still a weather forecast.
 
-The weather will be changeable on Thursday.
-
-The sun is shining in the north.
-
-It is cloudy in the south.
-
-There may be showers in the west.
-
-The temperature is below 10 degrees Celsius almost throughout the country.
+Tomorrow, Friday, it will rain in a large part of the country. It may rain sleet or snow near Kuusamo. There will be strong winds in the central part of the country. The weather will also get colder in the central part of the country.

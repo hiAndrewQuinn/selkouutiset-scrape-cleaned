@@ -1,7 +1,6 @@
 {
    "source" : "fi",
    "format" : "text",
-   "target" : "en",
    "q" : [
       "# Selkouutiset | keskiviikko 7.10.2026",
       "",
@@ -90,5 +89,6 @@
       "Lännessä voi tulla sadekuuroja.",
       "",
       "Lämpötila on melkein koko maassa alle 10 astetta."
-   ]
+   ],
+   "target" : "en"
 }

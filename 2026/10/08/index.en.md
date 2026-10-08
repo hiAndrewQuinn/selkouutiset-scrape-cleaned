@@ -18,7 +18,7 @@ There are more bad grades than before.
 
 Professor of Food Hygiene **Johanna Björkroth** is concerned about the results.
 
-*"Yes, it was sad to read that there has been more to fix than in previous years."*
+*"Yes, it was a sad read in that there has been more to fix than in previous years."*
 
 Many restaurants have deficiencies in hygiene.
 

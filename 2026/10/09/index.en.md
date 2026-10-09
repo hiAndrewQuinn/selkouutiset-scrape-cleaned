@@ -1,39 +1,43 @@
-# Clear News | Thursday 8.10.2026
+# Clear News | Friday 9.10.2026
 
-Party support. Retirement age. Finnish Swan. Weather.
+Nobel. Climate change. Roads. Weather.
 
-## Party support
+## Nobel Prizes
 
-First, politics.
+First, news about the Nobel Prizes.
 
-The Social Democratic Party (SDP) is still the most popular party in Finland. A new survey by Yle shows that 22.7 percent of Finns support the Social Democratic Party. Support for the opposition party, the Social Democratic Party, has increased slightly.
+This year's Nobel Peace Prize winner is **Navanethem Pillay**. She is an 85-year-old South African lawyer.
 
-The Finns Party is now in second place. The Finns Party's popularity has overtaken the Coalition Party, which is now in third place. The Finns Party's support has increased and the Coalition Party's has decreased. Both parties decide on issues in the government.
+Pillay has long worked for peace and human rights. She has, for example, been the UN High Commissioner for Human Rights.
 
-Parliamentary elections will be held in April next year.
+The Nobel Prize in Literature is awarded to Canadian **Anne Carson**. Carson's books include poetry, prose, and research.
 
-## Retirement age
+Anne Carson is 76 years old. She has taught ancient Greek and literature at several universities in Canada and the USA. Anne Carson lives in Iceland.
 
-Next up, economic news.
+## Global warming
 
-The Ministry of Finance says that the retirement age should be raised. Ministry officials propose that the minimum retirement age in Finland be raised to 70 years. The officials propose that the retirement age be raised gradually.
+Now, news about the climate.
 
-The Ministry of Finance believes that the retirement age should be raised in Finland.
+Finland is not well enough prepared for climate change, says Sitra. Sitra is a Finnish organization that studies the future.
 
-Officials believe that Finland needs people to have longer working careers than it does today. The reason is that the population is aging and Finland's public spending is increasing.
+A new report from Sitra shows that a warming climate is changing many things in Finland. Global warming can affect forests, food, cities and people's lives.
 
-## Finnish Swan
+Finland may experience more heat, drought and heavy rainfall in the future.
 
-Next news about the sailing ship.
+Finland has not prepared well enough for climate warming. Sitra believes that Finland needs to make changes in time.
 
-The sailing ship Suomen Joutsen is being repaired. The ship was towed from Turku to the Naantali repair yard on Wednesday. The Suomen Joutsen has been at the Naantali shipyard for over a week. For example, the ship is being painted at the shipyard.
+## Road condition
 
-The Suomen Joutsene is undergoing a major renovation. For example, the ship's masts will be repaired. The entire renovation will take 5 years and cost 2 million euros.
+The topic of the next news item is roads.
 
-The sailing ship Suomen Joutsen is being repaired. The ship was completed in France in 1902. It was purchased for the Finnish Navy as a training ship in 1930. Today, the Suomen Joutsen is a museum ship in the Aura River in Turku.
+Many small roads are in poor condition. There are 10,000 kilometers of asphalt roads in Finland that are in poor condition.
+
+This road runs through Kannonkoski, Central Finland. There are potholes and holes on the road. The driver says that it is difficult to drive along the road. The car may break down because the road is bad.
+
+Many small roads are in poor condition. The poor condition of the roads hinders rescue operations. A fire truck cannot drive on a road that is in too poor condition.
 
 ## Weather
 
 Still a weather forecast.
 
-Tomorrow, Friday, it will rain in a large part of the country. It may rain sleet or snow near Kuusamo. There will be strong winds in the central part of the country. The weather will also get colder in the central part of the country.
+On Saturday, it will rain in the east. The weather will cool down in the south. The temperature will be just over 5 degrees. The sun will shine in the north.

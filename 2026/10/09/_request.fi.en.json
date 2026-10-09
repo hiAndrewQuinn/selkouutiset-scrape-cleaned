@@ -1,4 +1,6 @@
 {
+   "format" : "text",
+   "target" : "en",
    "q" : [
       "# Selkouutiset | torstai 8.10.2026",
       "",
@@ -40,7 +42,5 @@
       "",
       "Huomenna perjantaina sataa vettä isossa osassa maata. Kuusamon lähellä voi sataa räntää tai lunta. Maan keskiosassa tuulee kovaa. Maan keskiosassa sää myös kylmenee."
    ],
-   "source" : "fi",
-   "target" : "en",
-   "format" : "text"
+   "source" : "fi"
 }

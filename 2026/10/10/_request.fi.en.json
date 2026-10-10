@@ -1,5 +1,5 @@
 {
-   "source" : "fi",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | perjantai 9.10.2026",
       "",
@@ -46,5 +46,5 @@
       "Lauantaina idässä sataa vettä. Sää kylmenee etelässä. Lämpötila on vain vähän yli 5 astetta. Pohjoisessa paistaa aurinko."
    ],
    "target" : "en",
-   "format" : "text"
+   "source" : "fi"
 }

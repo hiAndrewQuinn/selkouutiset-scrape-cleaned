@@ -1,0 +1,109 @@
+# Uutisviikko selkosuomeksi | sunnuntai 11.10.2026
+
+Datakeskukset ja sähkö. Puoluekannatus. Pyöräkauppa. Ravintolaruoka. Eläkeikä. Tyttöjen päivä.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Datakeskukset ja sähkö
+
+![Haminan Googlen palvelinkeskuksen portti ja vastaanottorakennus.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_264/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-13883586749cc8b703c8/1732889950)
+
+Avaa kuvien katselu
+
+Googlella on data- eli palvelinkeskus Haminassa. Kuva: Antro Valo / Yle
+
+Datakeskuksien eli tietokonehallien rakentamista aletaan ehkä jarruttaa.
+
+Uusi laki voi päättää, missä järjestyksessä suuret sähkönkuluttajat saavat liittymän sähköverkkoon.
+
+Laki ehkä asettaa datakeskushankkeet 3. sijalle.
+
+Monet suomalaiset ovat huolissaan, riittääkö edullista sähköä kaikille.
+
+## Puoluekannatuksen muutos
+
+![SDP jatkaa kannatusmittauksen kärjessä 22,7 prosentilla. PS nousi kakkoseksi (16,5), kokoomuksen (16,3) ohi.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1079,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17186756ac5fa98a1f49/1791360326)
+
+Avaa kuvien katselu
+
+Perussuomalaiset on sijalla kaksi ensimmäistä kertaa tällä hallituskaudella. Kuva: eduskunta, Petteri Sopanen / Yle, Silja Viitala / Yle ja Mårten Lampén / Yle, grafiikka: Nanna Särkkä / Yle
+
+Perussuomalaiset on noussut ensimmäisen kerran tällä hallituskaudella pääministeripuolue kokoomuksen ohi.
+
+Perussuomalaisten kannatus oli 16,5 prosenttia Ylen kannatusmittauksessa.
+
+Kolmantena on kokoomus, 16,3 prosenttia.
+
+Kärjessä jatkaa SDP, jonka kannatus oli 22,7 prosenttia.
+
+Keskusta on sijalla 4 ja vasemmistoliitto sijalla 5.
+
+## Helkama osti Tunturi-pyörän
+
+![Henkilö seisoo varastossa, jossa on polkupyöränrenkaita ja pitää pyörän vannetta käsissään. ](https://img.img-cdn.yle.fi/crop_extract,w_4945,h_2781,x_0,y_33/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17167826abfb1c952fcf/1790949533)
+
+Avaa kuvien katselu
+
+Helkaman hallituksen puheenjohtaja Satu Helkama polkupyörätehtaalla Hangossa. Kuva: Rinna Härkönen / Yle
+
+Sitten talousuutinen.
+
+Suomalainen polkupyörävalmistaja Helkama Velox ostaa pyörävalmistaja Tunturin. Tunturi Oy on perustettu vuonna 1922.
+
+Alun perin suomalainen Tunturi on ollut hollantilaisomistuksessa yli 20 vuotta. Tunturi-pyörät on valmistettu Unkarissa vuodesta 2006.
+
+Elokuussa yritys kaatui konkurssiin.
+
+Helkama valmistaa pyöriä Hangossa. Se on perustettu vuonna 1905.
+
+Ainakin Helkama-pyörien valmistus jatkuu Hangossa.
+
+## Ravintolaruoan turvallisuus
+
+![Kortti jossa on teksti: &quot;Kylmälevyllä tarjoillun maidon lämpötila oli +23 °C ja majoneesisalaatin +20 °C.&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_603,x_0,y_371/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17175556ac38dd21c029/1791200943)
+
+Avaa kuvien katselu
+
+Oiva-raportti tuo elintarvikealan yritysten valvontatulokset kuluttajien tietoon tarkastusten jälkeen.  Kuva: Ilkka Kemppinen / Yle
+
+Nyt ravintolaruoasta.
+
+Elintarvikeviranomaiset ovat paljastaneet vakavia puutteita ravintoloissa.
+
+Viime vuosien aikana lähes joka 3. ravintola, pikaruokala tai grilli on joutunut tehovalvontaan.
+
+Ongelma on esimerkiksi se, että ruoka ei ole ollut tarpeeksi kuumaa tai kylmää. Osassa paikkoja on ollut huono hygienia ja omavalvonta on ollut huonoa.
+
+## Eläkeikä
+
+![Mies seisoo puhujakorokkeen takana.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17191286ac63e2be64d2/1791378195)
+
+Avaa kuvien katselu
+
+Valtiovarainministeriön kansliapäällikkö Juha Majanen esitteli ehdotusta uudeksi eläkeiäksi. Kuva: Mikko Koski / Yle
+
+Seuraavaksi eläkeiästä.
+
+Valtiovarainministeriö sanoo, että eläkeikää pitää nostaa. Suomen väestö vanhenee, ja julkiset menot kasvavat.
+
+Virkamiehet ehdottavat, että alin eläkeikä nostetaan Suomessa vähitellen 70 vuoteen.
+
+Pääministeri **Petteri Orpo** sanoo, että suunnitelma on epärealistinen.
+
+## Tyttöjen päivä
+
+![Tyttö, joka on pukeutunut värikkääseen huiviin ja mekkoon. Aikuisen käsi vetää häntä kädestä.](https://img.img-cdn.yle.fi/crop_extract,w_4596,h_2585,x_0,y_487/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1415167679d101e65fb4/1738346848)
+
+Avaa kuvien katselu
+
+Yhdistyneiden kansakuntien eli YK:n tiedot kertovat, että joka vuosi yli 12 miljoonaa tyttöä joutuu lapsiavioliittoon. Yleisimpiä lapsiavioliitot ovat Afrikassa Saharan eteläpuolella. Kuva: Riccardo Lennart Niels Mayer / AOP
+
+Tänään sunnuntaina vietetään kansainvälistä tyttöjen päivää. Päivää on vietetty vuodesta 2012.
+
+Päivän tarkoitus on juhlia tyttöjä. Päivä muistuttaa syrjinnästä, jota tytöt kohtaavat iän ja sukupuolen vuoksi.
+
+Tämän vuoden tyttöjen päivän teema on lapsiavioliittojen estäminen.
+
+Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

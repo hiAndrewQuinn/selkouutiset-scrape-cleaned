@@ -1,4 +1,7 @@
 {
+   "source" : "fi",
+   "target" : "en",
+   "format" : "text",
    "q" : [
       "# Viikon uutinen selkosuomeksi | lauantai 10.10.2026",
       "",
@@ -97,8 +100,5 @@
       "Yle Teksti-TV täytti tällä viikolla 45 vuotta. Teksti-TV:llä on edelleen yli miljoona käyttäjää viikossa.",
       "",
       "Tässä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!"
-   ],
-   "format" : "text",
-   "target" : "en",
-   "source" : "fi"
+   ]
 }

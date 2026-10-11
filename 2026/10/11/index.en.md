@@ -1,97 +1,109 @@
-# News of the week in plain Finnish | Saturday 10.10.2026
+# Newsweek in plain Finnish | Sunday 11.10.2026
 
-Yle Teletext TV celebrated its 45th anniversary
+Data centers and electricity. Party support. Bicycle trade. Restaurant food. Retirement age. Girls' Day.
 
 Listen
 
 You can read the news simultaneously below.
 
-Yle Text-TV turned 45 this week.
+## Data centers and electricity
 
-Yle took its model from the British public broadcasting company BBC. The BBC introduced teletext in 1974. The invention came to Finland on October 7, 1981.
-
-## Yle Teletext turned 45 years old
-
-![The image shows a compilation of Teletext pages.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-163249869eb21fcef149/1777017646)
+![The gate and reception building of the Google data center in Hamina.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_264/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-13883586749cc8b703c8/1732889950)
 
 Open image viewer
 
-Yle Teletext currently has 1,600 pages. Initially, there were only 80 pages. Photo: Yle / Derrick Frilund / Yle
+Google has a data center in Hamina. Photo: Antro Valo / Yle
 
-Yle Text-TV was a major innovation in information dissemination in Finland.
+The construction of data centers, or computer halls, may begin to slow down.
 
-The 45-year-old Teletext service works reliably without major technical requirements. It can be browsed directly on the TV, on Yle's website or via mobile applications.
+The new law may determine the order in which large electricity consumers are connected to the electricity grid.
 
-In addition to the homepage, the most used pages are news, sports, weather and betting.
+The law may put data center projects in 3rd place.
 
-## For the hearing impaired and all of us
+Many Finns are worried about whether there is enough affordable electricity for everyone.
 
-![Teletext editor in Olympic high. Elina Alanen subtitling the August 1984 Kisastudio broadcast.](https://img.img-cdn.yle.fi/crop_extract,w_3072,h_1727,x_0,y_158/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-6395557f642fe0280f/1475756840)
+## Change in party support
 
-Open image viewer
-
-Teletext editor in the throes of the Olympics. Elina Alanen subtitling the August Kisastudio broadcast in 1984. Photo: Yle/Håkan Sandblom
-
-Yle Text-TV's primary target audience was the hundreds of thousands of hearing-impaired people in Finland.
-
-The first experiment was carried out at the 1983 World Athletics Championships. The results were shown simultaneously on the stadium scoreboard and on the TV screen.
-
-In 1991, Teletext began broadcasting 24 hours a day.
-
-Since 1996, the pages have also been online.
-
-## Teletext is also surprising
-
-![Editor Ulla Malminen tests Yle's teletext bright light page.](https://img.img-cdn.yle.fi/crop_extract,w_3994,h_2246,x_0,y_191/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-153603768e7ac6c17915/1760013590)
+![SDP continues to lead the support survey with 22.7 percent. PS rose to second place (16.5), ahead of the National Coalition Party (16.3).](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1079,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17186756ac5fa98a1f49/1791360326)
 
 Open image viewer
 
-Yle's teletext has a completely white page that brings light to the darkness of autumn. It's on page 579. Photo: Petteri Sopanen / Yle
+The Finns Party is in second place for the first time this term. Photo: Parliament, Petteri Sopanen / Yle, Silja Viitala / Yle and Mårten Lampén / Yle, graphics: Nanna Särkkä / Yle
 
-There's also something fun about teletext.
+The Finns Party has risen above the prime minister's coalition government for the first time this term.
 
-The audience wanted a page that was like a white, bright light bulb. The white box is on page 579.
+The Finns Party's support was 16.5 percent in Yle's poll.
 
-Later, some of the audience requested a warmer light. The yellow box was made on page 572.
+The National Coalition Party is in third place, with 16.3 percent.
 
-Text-TV editor Matti Rämö added a black dot to these pages. Rämö thinks it's like a meditation tool that you can use to focus your thoughts.
+The SDP continues to be in the lead, with support of 22.7 percent.
 
-Sometimes Rämö changes the position of the point.
+The Center Party is in 4th place and the Left Alliance is in 5th place.
 
-![Matti Rämö, a teletext editor at his desk.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_104/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-863803615eb0de496ee/1633595692)
+## Helkama bought a Tunturi bike
 
-Open image viewer
-
-Journalist Matti Rämö has been working on Teletext for over 20 years. Photo: Ilkka Kilpeläinen / Yle
-
-## Fan mail for Teletext
-
-![Teksti-tv logo YLE](https://img.img-cdn.yle.fi/crop_extract,w_1293,h_728,x_155,y_45/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-3851536771df70ede/1399288448)
+![A person is standing in a warehouse with bicycle tires and holding a bicycle rim in his hands. ](https://img.img-cdn.yle.fi/crop_extract,w_4945,h_2781,x_0,y_33/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17167826abfb1c952fcf/1790949533)
 
 Open image viewer
 
-Teletext still has many friends. Photo: Teletext logo YLE
+Helkama's Chairman of the Board Satu Helkama at the bicycle factory in Hanko. Photo: Rinna Härkönen / Yle
 
-Yle Text-TV immediately became a popular favorite. It still has nearly 600,000 users every day.
+Then economic news.
 
-Let's end with a quote from the audience:
+Finnish bicycle manufacturer Helkama Velox acquires bicycle manufacturer Tunturi. Tunturi Oy was founded in 1922.
 
-"I still watch the news on Teletext every morning. Although I watch it on the website version on my smartphone."
+Originally Finnish, Tunturi has been under Dutch ownership for over 20 years. Tunturi bikes have been manufactured in Hungary since 2006.
 
-It contains a concise summary of the most important news to read in the morning.
+In August, the company went bankrupt.
 
-There is nothing similar on other services, you have to browse a lot more.”
+Helkama manufactures bicycles in Hanko. It was founded in 1905.
 
-## Repetition
+At least the production of Helkama bicycles will continue in Hanko.
 
-![Teletext TV front page.](https://img.img-cdn.yle.fi/crop_extract,w_2200,h_1237,x_0,y_100/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-572175769497ab0343/1466517971)
+## Restaurant food safety
+
+![Card with the text: &quot;The temperature of the milk served on the cold plate was +23 °C and that of the mayonnaise salad was +20 °C.&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_603,x_0,y_371/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17175556ac38dd21c029/1791200943)
 
 Open image viewer
 
-Teletext lets you find the most important things quickly and easily.
+The Oiva report brings the results of food industry companies' inspections to consumers' attention after inspections. Photo: Ilkka Kemppinen / Yle
 
-Let's say it again.
+Now about restaurant food.
 
-Yle Teletext turned 45 this week. Teletext still has over a million users per week.
+Food authorities have revealed serious deficiencies in restaurants.
 
-Here was the News of the Week in plain Finnish. See you again, bye!
+In recent years, almost every third restaurant, fast food restaurant or grill has been subject to intensive supervision.
+
+The problem is, for example, that the food has not been hot or cold enough. In some places, hygiene has been poor and self-monitoring has been poor.
+
+## Retirement age
+
+![A man stands behind a podium.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17191286ac63e2be64d2/1791378195)
+
+Open image viewer
+
+Juha Majanen, the Secretary-General of the Ministry of Finance, presented the proposal for a new retirement age. Photo: Mikko Koski / Yle
+
+Next, retirement age.
+
+The Ministry of Finance says that the retirement age must be raised. Finland's population is aging, and public spending is increasing.
+
+Officials are proposing that the minimum retirement age in Finland be gradually raised to 70 years.
+
+Prime Minister **Petteri Orpo** says the plan is unrealistic.
+
+## Girls' Day
+
+![A girl wearing a colorful scarf and dress. An adult's hand is pulling her by the hand.](https://img.img-cdn.yle.fi/crop_extract,w_4596,h_2585,x_0,y_487/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1415167679d101e65fb4/1738346848)
+
+Open image viewer
+
+According to the United Nations, more than 12 million girls are forced into child marriage every year. Child marriage is most common in sub-Saharan Africa. Photo: Riccardo Lennart Niels Mayer / AOP
+
+Today, Sunday, is International Day of the Girl. The day has been celebrated since 2012.
+
+The day is intended to celebrate girls. The day is a reminder of the discrimination girls face based on age and gender.
+
+The theme for this year's International Day of the Girl is preventing child marriage.
+
+This was Uutisviikko in plain Finnish. See you again, bye!

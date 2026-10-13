@@ -1,63 +1,63 @@
-# Clear News | Monday 12.10.2026
+# Clear News | Tuesday 13.10.2026
 
-Cancer treatment. Electricity transmission. Autumn vacation. Weather
+Google logging. Security meeting. Music Hall. Weather
 
-## Cancer treatment has to wait
+## Environmental experts concerned about Google's logging
 
-First, news about cancer treatments in Finland.
+First, environmental news.
 
-Cancer is a disease that can take too long to treat.
+The large-scale deforestation of the technology company Google is worrying environmental experts, who say the government is not taking the logging seriously enough.
 
-Yle's MOT program received information about a new cancer study. The study shows that cancer is often treated faster in other Nordic countries than in Finland.
+**Minna Pappila** is the 2nd vice-chair of the Finnish Nature Panel. She says that the government needs to change the law quickly because the environment needs to be protected. Right now the law is unclear.
 
-For example, lung cancer is treated much faster in Sweden and Denmark than in Finland.
+– It allows a really fast lane past this democratic zoning process. That's one thing we should wake up to, to get it out of there.
 
-In Finland, people wait an average of 155 days for cancer treatment. That is many months longer than in Denmark, for example.
+Google was forced to halt logging in Muhos and Kajaani because important environmental assessments were pending. Google says it had a different understanding of the law.
 
-Cancer is a disease that can take too long to treat.
+The technology company Google's large-scale deforestation is worrying environmental experts.
 
-Many people become seriously ill before they receive treatment.
+Google is cutting down forests because it plans to build data centers in their place.
 
-**Heidi Rintahaka** was diagnosed with aggressive breast cancer. She had to wait six weeks for treatment. Over the weeks, the cancer grew several centimeters.
+## Security Summit in Warsaw
 
-## Big differences in electricity transmission prices
+Next, news about an important security meeting.
 
-Next news about the price of electricity.
+There is a large security conference in the Polish capital, Warsaw.
 
-There are big differences in electricity transmission prices.
+The commander of NATO's European forces spoke at the meeting yesterday. He presented a plan for how NATO will counter the Russian threat.
 
-The most expensive company is Järvi-Suomen Energia. It transmits electricity in, for example, Mikkeli, Juva and Savonlinna. The cheapest company is Turku Energia.
+NATO commander says Russia is trying to divide Europe. That's why NATO member states must act together and be assertive.
 
-In Juva, the electricity supply to a typical detached house costs over 2,000 euros per year. In Turku, the electricity supply to a detached house costs less than 1,000 euros.
+There is a large security conference in the Polish capital, Warsaw.
 
-The transmission price of electricity is lower if the electricity network has many users.
+The meeting also discussed a lot about the new oil agreement between the US and Russia. The presidents of the two countries agreed last week that Russia would be allowed to sell diesel oil to the US. At the same time, the US made many demands on Ukraine.
 
-There are big differences in electricity transmission prices.
+European countries are concerned that the US and Russia are working together. Europe hopes that the US will support Ukraine.
 
-Nearly 50 electricity companies increased their electricity transmission prices this year. Last year, nearly 60 electricity companies increased their prices.
+## A new music hall in Turku
 
-The Energy Authority says that some companies raised prices too much. They will have to refund money to customers.
+Finally, cultural news.
 
-## Autumn break has begun for many schoolchildren
+A new music hall will soon open in Turku.
 
-Finally, news about the school autumn holidays.
+The Fuuga Music Hall took five years to build and cost 90 million euros.
 
-Autumn break began today at many schools. During the break, people spend time with their families, for example.
+There is a terrace on the roof of the Music Hall, which can also be accessed without a ticket. You can go there to admire the scenery.
 
-Many families started their autumn vacation at the Heureka Science Center this weekend.
+Turku's new music hall Fuuga will open in two weeks.
 
-Heureka has an exhibition about dinosaurs. The dinosaurs in the exhibition are robots, and they are the size of real dinosaurs.
+The Turku Philharmonic Orchestra rehearses at the Music Centre.
 
-Autumn break started today in many schools.
+**Nikke Isomöttönen**, curator:
 
-## Tuesday weather
+– I'm used to how it looks, but I don't know what it sounds like here yet. The orchestra won't be here for another couple of days.
+
+## Wednesday's weather
 
 Still a weather forecast.
 
-The weather on Tuesday is sunny, meaning it won't rain.
+Wednesday will be rainy. It will also snow in the north.
 
-The sun is shining in the west. It is also sunny in places in Lapland.
+It's windy in the east.
 
-It is cloudy in the east.
-
-The temperature is 0–7 degrees.
+The temperature is 0–10 degrees.

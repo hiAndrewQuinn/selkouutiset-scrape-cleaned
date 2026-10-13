@@ -1,63 +1,63 @@
-# Selkouutiset | maanantai 12.10.2026
+# Selkouutiset | tiistai 13.10.2026
 
-Syöpähoito. Sähkönsiirto. Syysloma. Sää
+Googlen hakkuut. Turvallisuuskokous. Musiikkitalo. Sää
 
-## Syöpähoitoa joutuu odottamaan
+## Luontoasiantuntijat huolissaan Googlen hakkuista
 
-Ensin uutinen syöpähoidoista Suomessa.
+Ensin ympäristöuutinen.
 
-Syöpä on sairaus, jonka hoitoa voi joutua odottamaan liian pitkään.
+Teknologiayhtiö Googlen suuret metsähakkuut huolestuttavat luontoasiantuntijoita. He sanovat, että hallitus ei ota hakkuita tarpeeksi vakavasti.
 
-Ylen MOT-ohjelma sai tietoja uudesta syöpätutkimuksesta. Tutkimus kertoo, että muissa Pohjoismaissa syöpää hoidetaan usein nopeammin kuin Suomessa.
+**Minna Pappila** on 2. varapuheenjohtaja Suomen luontopaneelissa. Hän sanoo, että hallituksen pitää muuttaa nopeasti lakia, koska ympäristöä pitää suojella. Nyt laki on epäselvä.
 
-Esimerkiksi keuhkosyöpää hoidetaan paljon nopeammin Ruotsissa ja Tanskassa kuin Suomessa.
+– Se sallii todella nopean ohituskaistan ohi tämän demokraattisen kaavoitusmenettelyn. Se on yksi mihin pitäisi herätä, että se saadaan sieltä pois.
 
-Suomessa ihminen odottaa syövän hoitoa keskimäärin 155 vuorokautta. Se on monta kuukautta enemmän kuin esimerkiksi Tanskassa.
+Google joutui keskeyttämään metsien hakkuut Muhoksella ja Kajaanissa, koska tärkeät luontoselvitykset olivat kesken. Google sanoo, että sillä oli eri käsitys laista.
 
-Syöpä on sairaus, jonka hoitoa voi joutua odottamaan liian pitkään.
+Teknologiayhtiö Googlen suuret metsähakkuut huolestuttavat luontoasiantuntijoita.
 
-Moni ehtii sairastua vakavasti, ennen kuin saa hoitoa.
+Google hakkaa metsiä, koska se aikoo rakentaa niiden tilalle datakeskuksia.
 
-**Heidi Rintahaka** sai diagnoosin aggressiivisesta rintasyövästä. Hän joutui odottamaan hoitoa kuusi viikkoa. Viikkojen aikana syöpä kasvoi monta senttimetriä.
+## Turvallisuuskokous Varsovassa
 
-## Sähkön siirtohinnoissa isoja eroja
+Seuraavaksi uutinen tärkeästä turvallisuuskokouksesta.
 
-Seuraavaksi uutinen sähkön hinnasta.
+Puolan pääkaupungissa Varsovassa on suuri turvallisuuskokous.
 
-Sähkön siirtohinnoissa on isoja eroja.
+Kokouksessa puhui eilen sotilasliitto Naton Eurooppa-joukkojen komentaja. Hän esitteli suunnitelman siitä, miten Nato torjuu Venäjän uhkaa.
 
-Kallein yhtiö on Järvi-Suomen Energia. Se siirtää sähköä esimerkiksi Mikkelissä, Juvalla ja Savonlinnassa. Halvin yhtiö on Turku energia.
+Nato-komentaja sanoi, että Venäjä yrittää hajottaa Eurooppaa. Siksi Naton jäsenmaiden pitää toimia yhdessä ja olla itsevarmoja.
 
-Juvalla tavallisen omakotitalon sähkönsiirto maksaa yli 2 000 euroa vuodessa. Turussa omakotitalon sähkönsiirto maksaa alle 1 000 euroa.
+Puolan pääkaupungissa Varsovassa on suuri turvallisuuskokous.
 
-Sähkön siirtohinta on pienempi, jos sähköverkolla on paljon käyttäjiä.
+Kokouksessa puhuttiin paljon myös USA:n ja Venäjän uudesta öljysopimuksesta. Maiden presidentit sopivat viime viikolla, että Venäjä saa myydä USA:lle dieselöljyä. Samalla USA esitti paljon vaatimuksia Ukrainalle.
 
-Sähkön siirtohinnoissa on isoja eroja.
+Euroopan maat ovat huolissaan siitä, että USA ja Venäjä toimivat yhdessä. Eurooppa toivoo, että USA tukee Ukrainaa.
 
-Lähes 50 sähköyhtiötä korotti tänä vuonna sähkön siirtohintaa. Viime vuonna hintaa korotti lähes 60 sähköyhtiötä.
+## Turkuun uusi musiikkitalo
 
-Energiavirasto sanoo, että jotkut yhtiöt korottivat hintoja liikaa. Ne joutuvat palauttamaan rahaa takaisin asiakkaille.
+Lopuksi kulttuuriuutinen.
 
-## Syysloma alkoi monilla koululaisilla
+Turussa aukeaa pian uusi musiikkitalo.
 
-Lopuksi uutinen koulujen syyslomasta.
+Musiikkitalo Fuugaa rakennettiin viisi vuotta, ja se maksoi 90 miljoonaa euroa.
 
-Syysloma alkoi tänään monessa koulussa. Lomalla vietetään aikaa esimerkiksi perheen kanssa.
+Musiikkitalon katolla on terassi, johon pääsee myös ilman lippua. Siellä voi käydä ihailemassa maisemia.
 
-Moni perhe aloitti syysloman viikonloppuna tiedekeskus Heurekassa.
+Turun uusi musiikkitalo Fuuga aukeaa kahden viikon kuluttua.
 
-Heurekassa on näyttely dinosauruksista. Näyttelyn dinosaurukset ovat robotteja, ja ne ovat oikeiden dinosaurusten kokoisia.
+Musiikkitalossa harjoittelee Turun filharmoninen orkesteri.
 
-Syysloma alkoi tänään monessa koulussa.
+**Nikke Isomöttönen**, intendentti:
 
-## Tiistain sää
+– Oon tottunut siihen, miltä se näyttää, mutta enhän mäkään vielä tiedä, miltä täällä kuulostaa. Orkesteri tulee tänne vasta parin päivän päästä.
+
+## Keskiviikon sää
 
 Vielä sääennuste.
 
-Sää on tiistaina poutaista eli ei sada.
+Keskiviikko on sateinen. Pohjoisessa sataa myös lunta.
 
-Lännessä paistaa aurinko. Myös Lapissa on paikoin aurinkoista.
+Idässä on poutaista.
 
-Idässä on pilvistä.
-
-Lämpötila on 0–7 astetta.
+Lämpötila on 0–10 astetta.

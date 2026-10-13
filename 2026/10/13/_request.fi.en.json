@@ -1,7 +1,6 @@
 {
-   "source" : "fi",
-   "format" : "text",
    "target" : "en",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | maanantai 12.10.2026",
       "",
@@ -66,5 +65,6 @@
       "Idässä on pilvistä.",
       "",
       "Lämpötila on 0–7 astetta."
-   ]
+   ],
+   "format" : "text"
 }

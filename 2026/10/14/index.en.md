@@ -1,63 +1,65 @@
-# Clear News | Tuesday 13.10.2026
+# Clear News | Wednesday 14.10.2026
 
-Google logging. Security meeting. Music Hall. Weather
+Well-being areas. Ambulance flights. Metso Library celebrates 40 years. Weather.
 
-## Environmental experts concerned about Google's logging
+## Welfare areas are reducing employees
 
-First, environmental news.
+First, about the healthcare sector.
 
-The large-scale deforestation of the technology company Google is worrying environmental experts, who say the government is not taking the logging seriously enough.
+Welfare regions are cutting jobs in the care sector due to savings. A Yle survey shows that the regions will cut at least 2,700 person-years this year.
 
-**Minna Pappila** is the 2nd vice-chair of the Finnish Nature Panel. She says that the government needs to change the law quickly because the environment needs to be protected. Right now the law is unclear.
+Welfare areas provide social welfare and healthcare.
 
-– It allows a really fast lane past this democratic zoning process. That's one thing we should wake up to, to get it out of there.
+They also include rescue operations.
 
-Google was forced to halt logging in Muhos and Kajaani because important environmental assessments were pending. Google says it had a different understanding of the law.
+Welfare areas reduce jobs in the care sector.
 
-The technology company Google's large-scale deforestation is worrying environmental experts.
+For example, Central Finland is holding its ninth ever collective bargaining negotiations, where the employer and employees are negotiating job cuts.
 
-Google is cutting down forests because it plans to build data centers in their place.
+Shop steward **Anne Puronaho** describes the situation:
 
-## Security Summit in Warsaw
+\- The work of a shop steward has changed radically.
 
-Next, news about an important security meeting.
+There are 21 welfare regions in Finland.
 
-There is a large security conference in the Polish capital, Warsaw.
+## Ambulance flights
 
-The commander of NATO's European forces spoke at the meeting yesterday. He presented a plan for how NATO will counter the Russian threat.
+Now about ambulance flights.
 
-NATO commander says Russia is trying to divide Europe. That's why NATO member states must act together and be assertive.
+The number of air ambulance flights can reach over a thousand per year. Air ambulances quickly transport patients to a hospital where they receive advanced treatment.
 
-There is a large security conference in the Polish capital, Warsaw.
+More flights are needed if treatment is concentrated in fewer hospitals. Currently, there are only dozens of flights per year.
 
-The meeting also discussed a lot about the new oil agreement between the US and Russia. The presidents of the two countries agreed last week that Russia would be allowed to sell diesel oil to the US. At the same time, the US made many demands on Ukraine.
+The Ministry of Finance proposes that the number of welfare areas be reduced.
 
-European countries are concerned that the US and Russia are working together. Europe hopes that the US will support Ukraine.
+The number of ambulance flights can reach over a thousand per year.
 
-## A new music hall in Turku
+Air ambulances are faster and cheaper than regular ambulances over long distances.
 
-Finally, cultural news.
+## Metso celebrates 40 years
 
-A new music hall will soon open in Turku.
+Finally, famous architecture.
 
-The Fuuga Music Hall took five years to build and cost 90 million euros.
+Tampere Main Library Metso turns 40 this autumn.
 
-There is a terrace on the roof of the Music Hall, which can also be accessed without a ticket. You can go there to admire the scenery.
+Architects **Raili and Reima Pietilä** designed a new library for Tampere. It is one of the most famous buildings in Finland.
 
-Turku's new music hall Fuuga will open in two weeks.
+People come to admire Metso from all over the world.
 
-The Turku Philharmonic Orchestra rehearses at the Music Centre.
+From above, the house resembles a capercaillie, a forest grouse bird, spreading its wings and tail.
 
-**Nikke Isomöttönen**, curator:
+Tampere's main library, Metso, is celebrating its 40th anniversary. Metso was a protest against the boxy architecture of the 1980s. It was a bold choice by the city of Tampere.
 
-– I'm used to how it looks, but I don't know what it sounds like here yet. The orchestra won't be here for another couple of days.
+Metso has also taken accessibility into account.
 
-## Wednesday's weather
+## Weather
 
 Still a weather forecast.
 
-Wednesday will be rainy. It will also snow in the north.
+Thursday will be cloudy. Temperatures will vary between 2 and 12 degrees.
 
-It's windy in the east.
+The afternoon is windy.
 
-The temperature is 0–10 degrees.
+The wind is strong in the north.
+
+In parts of Lapland, it is sleet or snowing.

@@ -1,6 +1,4 @@
 {
-   "format" : "text",
-   "target" : "en",
    "source" : "fi",
    "q" : [
       "# Selkouutiset | tiistai 13.10.2026",
@@ -66,5 +64,7 @@
       "Idässä on poutaista.",
       "",
       "Lämpötila on 0–10 astetta."
-   ]
+   ],
+   "format" : "text",
+   "target" : "en"
 }

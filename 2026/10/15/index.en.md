@@ -1,65 +1,59 @@
-# Clear News | Wednesday 14.10.2026
+# Clear News | Thursday 15.10.2026
 
-Well-being areas. Ambulance flights. Metso Library celebrates 40 years. Weather.
+Vehicle tax may increase. Regional flights are at risk. Emergencies are increasing. Weather.
 
-## Welfare areas are reducing employees
+## Vehicle tax may increase
 
-First, about the healthcare sector.
+First, about cars.
 
-Welfare regions are cutting jobs in the care sector due to savings. A Yle survey shows that the regions will cut at least 2,700 person-years this year.
+The Ministry of Transport wants to reform the vehicle tax.
 
-Welfare areas provide social welfare and healthcare.
+Vehicle tax could increase by up to hundreds of euros a year, according to **Niko-Matti Ronikonmäki**, head of unit at the Ministry of Transport and Communications.
 
-They also include rescue operations.
+The amount of the tax will be determined based on road renovation. The ministry believes that existing roads and railways should be renovated before new major projects.
 
-Welfare areas reduce jobs in the care sector.
+Officials are also proposing congestion charges for large urban areas.
 
-For example, Central Finland is holding its ninth ever collective bargaining negotiations, where the employer and employees are negotiating job cuts.
+The Ministry of Transport wants to reform the vehicle tax. Currently, a large part of the tax is determined based on a car's carbon dioxide emissions.
 
-Shop steward **Anne Puronaho** describes the situation:
+Vehicle tax requires a political decision. The parties are not unanimous on the issue.
 
-\- The work of a shop steward has changed radically.
+## Regional flights may lose state support
 
-There are 21 welfare regions in Finland.
+Then about air traffic.
 
-## Ambulance flights
+The state may stop subsidizing regional flights in a couple of years.
 
-Now about ambulance flights.
+The Ministry of Transport wants municipalities and regions to pay part of the costs of flights between small towns.
 
-The number of air ambulance flights can reach over a thousand per year. Air ambulances quickly transport patients to a hospital where they receive advanced treatment.
+Now the state is buying flights to 7 airports because ticket revenue is not enough.
 
-More flights are needed if treatment is concentrated in fewer hospitals. Currently, there are only dozens of flights per year.
+The coronavirus pandemic reduced flying significantly, and government support was only intended to be temporary. Therefore, the government may stop supporting regional flights.
 
-The Ministry of Finance proposes that the number of welfare areas be reduced.
+The plan is raising concerns in many areas. For example, businesses fear that transport connections will deteriorate.
 
-The number of ambulance flights can reach over a thousand per year.
+## Evictions are increasing
 
-Air ambulances are faster and cheaper than regular ambulances over long distances.
+Finally, about the evictions.
 
-## Metso celebrates 40 years
+Evictions of residents from their homes have increased.
 
-Finally, famous architecture.
+The Enforcement Agency says that the number of evictions has increased by almost 7 percent since last year.
 
-Tampere Main Library Metso turns 40 this autumn.
+The largest increase has been in Turku, Pori and Oulu. In Turku, there were already 300 evictions by autumn. Even families with children are being evicted from their homes.
 
-Architects **Raili and Reima Pietilä** designed a new library for Tampere. It is one of the most famous buildings in Finland.
+The most common reasons for evictions are disruptive behavior and non-payment of rent.
 
-People come to admire Metso from all over the world.
+Evictions of residents have increased.
 
-From above, the house resembles a capercaillie, a forest grouse bird, spreading its wings and tail.
-
-Tampere's main library, Metso, is celebrating its 40th anniversary. Metso was a protest against the boxy architecture of the 1980s. It was a bold choice by the city of Tampere.
-
-Metso has also taken accessibility into account.
+In an eviction, the bailiff sends the tenant a notice to move out. If the tenant does not move out by the deadline, the bailiff vacates the apartment.
 
 ## Weather
 
 Still a weather forecast.
 
-Thursday will be cloudy. Temperatures will vary between 2 and 12 degrees.
+Tomorrow afternoon it will be cloudy in the southern and central parts of the country. It will also rain in places.
 
-The afternoon is windy.
+The sun is shining in the north.
 
-The wind is strong in the north.
-
-In parts of Lapland, it is sleet or snowing.
+The temperature is above 10 degrees in the south and below 10 degrees in the north.

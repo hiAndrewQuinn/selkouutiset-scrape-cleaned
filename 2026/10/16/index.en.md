@@ -1,59 +1,55 @@
-# Clear News | Thursday 15.10.2026
+# Clear News | Friday 16.10.2026
 
-Vehicle tax may increase. Regional flights are at risk. Emergencies are increasing. Weather.
+Fuel subsidy. National school exams. Night shifts. Weather.
 
-## Vehicle tax may increase
+## The government reached an agreement on fuel subsidies
 
-First, about cars.
+Now about the price of gasoline and diesel.
 
-The Ministry of Transport wants to reform the vehicle tax.
+The government wants to curb the rise in gasoline and diesel prices. The government reached an agreement on an issue it had been discussing for many weeks.
 
-Vehicle tax could increase by up to hundreds of euros a year, according to **Niko-Matti Ronikonmäki**, head of unit at the Ministry of Transport and Communications.
+Agriculture, forestry and heavy transport receive the most fuel subsidies.
 
-The amount of the tax will be determined based on road renovation. The ministry believes that existing roads and railways should be renovated before new major projects.
+Private car owners' payments will decrease because vehicle tax will decrease. There will be no significant changes in the price of gasoline.
 
-Officials are also proposing congestion charges for large urban areas.
+You can deduct more from your travel expenses in taxes, as the upper limit increases to 7,800 euros.
 
-The Ministry of Transport wants to reform the vehicle tax. Currently, a large part of the tax is determined based on a car's carbon dioxide emissions.
+The government wants to curb the rise in gasoline and diesel prices.
 
-Vehicle tax requires a political decision. The parties are not unanimous on the issue.
+It will cost the state 60 million euros. The money will be taken from road maintenance.
 
-## Regional flights may lose state support
+## National exams may be introduced in schools
 
-Then about air traffic.
+Now about the learning outcomes of schools.
 
-The state may stop subsidizing regional flights in a couple of years.
+National exams may be introduced in schools, according to a proposal by the Parliamentary Audit Committee.
 
-The Ministry of Transport wants municipalities and regions to pay part of the costs of flights between small towns.
+Finland wants to find out why the Pisa results have deteriorated. Pisa is an international study that measures the skills of schoolchildren in different countries.
 
-Now the state is buying flights to 7 airports because ticket revenue is not enough.
+Finland used to be at the forefront of research. The results have deteriorated significantly for about 20 years now.
 
-The coronavirus pandemic reduced flying significantly, and government support was only intended to be temporary. Therefore, the government may stop supporting regional flights.
+National exams may be introduced in schools. They are intended to be administered in all schools in Finland.
 
-The plan is raising concerns in many areas. For example, businesses fear that transport connections will deteriorate.
+## You have to wait on night duty
 
-## Evictions are increasing
+Now about the night shift.
 
-Finally, about the evictions.
+A Yle report shows that patients have to wait a long time in the hospital's night shift. The wait can be as long as more than 6 hours.
 
-Evictions of residents from their homes have increased.
+The wait time for night duty in many welfare areas is 5–6 hours.
 
-The Enforcement Agency says that the number of evictions has increased by almost 7 percent since last year.
+The patient has to wait a long time in the hospital's night shift.
 
-The largest increase has been in Turku, Pori and Oulu. In Turku, there were already 300 evictions by autumn. Even families with children are being evicted from their homes.
+The longest queues were in Turku, Kuopio and Espoo. The shortest queues were in Jyväskylä, where the time elapsed was just under 5 hours.
 
-The most common reasons for evictions are disruptive behavior and non-payment of rent.
-
-Evictions of residents have increased.
-
-In an eviction, the bailiff sends the tenant a notice to move out. If the tenant does not move out by the deadline, the bailiff vacates the apartment.
+Patients say the waiting time is too long.
 
 ## Weather
 
 Still a weather forecast.
 
-Tomorrow afternoon it will be cloudy in the southern and central parts of the country. It will also rain in places.
+The sun will shine in the west and north tomorrow afternoon.
 
-The sun is shining in the north.
+It is raining in the south and east.
 
-The temperature is above 10 degrees in the south and below 10 degrees in the north.
+The temperature in most parts of the country is between 5 and 10 degrees.

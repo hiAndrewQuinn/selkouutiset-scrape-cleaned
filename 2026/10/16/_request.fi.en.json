@@ -1,7 +1,6 @@
 {
-   "format" : "text",
-   "target" : "en",
    "source" : "fi",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | torstai 15.10.2026",
       "",
@@ -62,5 +61,6 @@
       "Pohjoisessa paistaa aurinko.",
       "",
       "Lämpötila on etelässä yli 10 astetta ja pohjoisessa alle 10 astetta."
-   ]
+   ],
+   "target" : "en"
 }

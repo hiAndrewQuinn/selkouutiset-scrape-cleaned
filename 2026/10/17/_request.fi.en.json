@@ -1,7 +1,6 @@
 {
-   "source" : "fi",
-   "format" : "text",
    "target" : "en",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | perjantai 16.10.2026",
       "",
@@ -58,5 +57,6 @@
       "Etelässä ja idässä sataa vettä.",
       "",
       "Lämpötila on suuressa osassa maata 5 ja 10 asteen välillä."
-   ]
+   ],
+   "format" : "text"
 }

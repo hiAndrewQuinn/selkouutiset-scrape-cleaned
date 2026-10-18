@@ -1,67 +1,95 @@
-# Viikon uutinen selkosuomeksi | lauantai 17.10.2026
+# Uutisviikko selkosuomeksi | sunnuntai 18.10.2026
 
-Syöpäpotilaiden hoito
+Google. Polttoainetuki. Vaaratiedotteet. Asunnottomat. Pentulive.
 
 Kuuntele
 
 Voit lukea uutiset samanaikaisesti alta.
 
-Tällä viikolla on puhuttu paljon syöpäpotilaiden hoidosta.
+## Googlen metsähakkuut
 
-Ylen MOT-ohjelma kertoo, että Suomessa syöpäpotilaat pääsevät hoitoon hitaammin kuin esimerkiksi Ruotsissa ja Tanskassa.
-
-Nyt kerromme asiasta lisää.
-
-## Hidas hoitoon pääsy
-
-![Kuva sairaalan opasteista opasteissa on mainittu muun muassa naistentautien, syöpätautien, kipu-, kirurgian sekä korva-, nenä- ja kurkkutautien poliklinikat.](https://img.img-cdn.yle.fi/crop_extract,w_5986,h_3368,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1556888691ef1248a58f/1763635661)
+![Laaja avattu maa-alue, jossa näkyy kaivettuja ojia, kosteita maakaistaleita ja ympäröivää metsää.](https://img.img-cdn.yle.fi/crop_extract,w_5278,h_2970,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17192046ac64410b8518/1791378780)
 
 Avaa kuvien katselu
 
-Syöpäpotilas voi joutua odottamaan pitkään lääkäriin ja tutkimuksiin pääsyä. Kuva: Ville Välimäki / Yle
+Googlen datakeskustyömaa Muhoksella. Kuva: Rami Moilanen / Yle
 
-Suomessa syöpäpotilas voi joutua odottamaan hoitoa jopa kuukausia.
+Teknologiayhtiö Googlen metsähakkuut Pohjois-Suomessa ovat olleet uutisissa myös tällä viikolla.
 
-Ylen MOT kertoo Itä-Suomen yliopiston uudesta tutkimuksesta, jossa tutkitaan hoitoviiveitä keuhkosyövän hoidossa. Hoitoviive tarkoittaa aikaa, joka kuluu sairauden ensimmäisistä oireista siihen, että potilaan hoito alkaa.
+Google on hakannut satoja hehtaareja metsää Muhoksella ja Kajaanissa. Google on hakannut metsää alueilla, jonne se haluaa rakentaa datakeskukset.
 
-Tutkimus kertoo, että keuhkosyöpäpotilas voi joutua odottamaan hoitoon pääsyä keskimäärin 155 vuorokautta eli noin 5 kuukautta.
+Laki kuitenkin sanoo, että metsää ei saa hakata, ennen kuin alueella on tehty ympäristövaikutusten arviointi. Muhoksella ja Kajaanissa arviointi on vielä kesken.
 
-Hitautta voi olla monessa vaiheessa. Potilas ei ehkä mene heti lääkäriin, vaikka on jo huomannut sairauden oireet. Lisää aikaa kuluu, kun hän odottaa lääkäriin ja tutkimuksiin pääsyä ensin terveyskeskuksessa ja sitten erikoissairaanhoidossa.
+Google sanoo, että se ei tiennyt, että se rikkoo lakia. Google myös sanoo, että viranomaiset tiesivät hakkuista.
 
-## Muut Pohjoismaat edellä
+Lupa- ja valvontavirasto on määrännyt Googlen keskeyttämään työt ja odottamaan, että luvat ovat kunnossa.
 
-Muissa Pohjoismaissa syöpähoitoon pääsee nopeammin kuin Suomessa.
+## Polttoaineiden hinta
 
-Kun meillä keuhkosyöpäpotilas odottaa hoitoa noin 5 kuukautta, Ruotsissa odotusaika on runsaat 3 kuukautta ja Tanskassa noin 2 kuukautta.
-
-Ohita infografiikka
-
-MOT kertoi viime keväänä, että myös monien syöpien hoitotulokset ovat Suomessa heikommat kuin muissa Pohjoismaissa. Syöpäpotilaita kuolee meillä aiemmin kuin muualla.
-
-Hidas hoitoon pääsy on siihen yksi syy. Syöpä ehtii levitä, kun potilas joutuu odottamaan hoitoa.
-
-## Syövän hoito etusijalle
-
-![Tippaletku Astan kädessä.](https://img.img-cdn.yle.fi/crop_extract,w_5632,h_3168,x_5,y_258/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-162098269ccca031b70a/1775029145)
+![Henkilö tankkaa autoa vihreällä polttoainepistoolilla huoltoasemalla.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_472/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17133446ab672f89685e/1790342386)
 
 Avaa kuvien katselu
 
-Syöpäpotilas saa lääkkeitä Turun yliopistollisessa keskussairaalassa.  Kuva: Silja Viitala / Yle
+Polttoaine on nyt kallista. Kuva: Ville Maali / Yle
 
-Syöpäjärjestöt sanovat, että syövän hoito pitää laittaa Suomessa etusijalle. Niin on tehty Ruotsissa ja Tanskassa, joissa syövän hoito ajaa muiden sairauksien ohi.
+Sitten uutinen polttoaineista.
 
-Muissa Pohjoismaissa on myös käytössä kansallinen syöpäsairauksien laaturekisteri. Rekisteriin kootaan tietoa siitä, miten syöpäpotilaita on hoidettu eri sairaaloissa ja miten hoito on vaikuttanut. Suomesta rekisteri puuttuu.
+Hallitus on sopinut keinoista auttaa autoilijoita, jotka kärsivät bensan ja dieselin hinnan noususta.
 
-Viime syksynä valmistui Suomen ensimmäinen kansallinen syöpästrategia, eli suunnitelma syövän ehkäisyyn ja hoitoon. Hallitus ei kuitenkaan ole antanut rahaa sen toteuttamiseen.
+Maa- ja metsätalous ja kuljetusala saavat polttoainetukea.
 
-## Kertaus
+Yksityisautoilijoita autetaan ajoneuvoveron alennuksella. Lisäksi verotuksessa voi vähentää työmatkakuluja enemmän kuin ennen.
 
-Kerrataan vähän.
+Autoilijoiden auttaminen maksaa valtiolle 60 miljoonaa euroa. Rahat otetaan tienhoidosta.
 
-Suomessa syöpäpotilaat pääsevät hoitoon hitaammin kuin muissa Pohjoismaissa.
+## Vaaratiedotteet puhelimeen
 
-Esimerkiksi keuhkosyöpäpotilas voi joutua odottamaan hoitoa 5 kuukautta.
+![Henkilö katselee puhelintaan.](https://img.img-cdn.yle.fi/crop_extract,w_4669,h_2626,x_0,y_2342/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-14830396852a1d500b33/1750246457)
 
-Myös monien syöpien hoitotulokset ovat meillä heikommat kuin muualla.
+Avaa kuvien katselu
 
-Tässä oli Viikon uutinen selkosuomeksi. Kuulemiin!
+Vaaratiedote tulee pian suoraan matkapuhelimeen. Kuva: Henrietta Hassinen / Yle
+
+Sitten kerromme vaaratiedotteista.
+
+Viranomaiset alkavat lähettää vaaratiedotteet suoraan matkapuhelimeen.
+
+Vaaratiedote lähetetään kaikkiin matkapuhelimiin, jotka ovat vaara-alueella.
+
+Uuden järjestelmän nimi on FI-Alert. Se otetaan käyttöön marraskuun alussa.
+
+## Asunnottomuus kasvaa
+
+![Nainen istuu, jalassa nuhruiset lenkkarit ja vierssä likainen laukku.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_405/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17076616aa90840d4584/1789464194)
+
+Avaa kuvien katselu
+
+Asunnottomien määrä kääntyi kasvuun 2 vuotta sitten. Kuva: Jani Aarnio / Yle
+
+Sitten aiheena ovat asunnottomat eli ihmiset, joilla ei ole omaa kotia.
+
+Asunnottomien määrä kasvaa nopeasti.
+
+Viime vuonna Suomessa oli runsaat 4500 ihmistä, joilla ei ole omaa kotia. Se on 20 prosenttia enemmän kuin vuotta aiemmin.
+
+Suurin osa asunnottomista on miehiä.
+
+Asiantuntijat sanovat, että asunnottomien määrä kasvaa esimerkiksi sen takia, että hallitus on leikannut sosiaaliturvaa ja asumistukia.
+
+## Hollantiin oma Pentulive
+
+![Ruskea lagottokoira makaa sinisellä alustalla imettämässä pentuja.](https://img.img-cdn.yle.fi/crop_extract,w_1607,h_904,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17220956ace7014132c6/1791914072)
+
+Avaa kuvien katselu
+
+Ylen Pentulive seuraa tänä syksynä Hilkan ja sen pentujen elämää. Kuva: Yle Pentulive
+
+Vielä uutinen Ylen Pentulive-ohjelmasta.
+
+Hollannissa aletaan tehdä omaa Pentulive-ohjelmaa. Yle on myynyt Pentulive-ohjelmaformaatin Hollannin yleisradioyhtiön lastenohjelmalle.
+
+Ohjelmaformaatin myynti tarkoittaa sitä, että Hollanti tekee samanlaisen, mutta oman version Ylen Pentulive-ohjelmasta.
+
+Pentulivessä seurataan koiraemoa ja sen pentuja ympäri vuorokauden noin 8 viikon ajan.
+
+Tässä oli Uutisviikko selkosuomeksi. Kuulemiin ensi viikkoon.

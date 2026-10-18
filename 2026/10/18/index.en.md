@@ -1,67 +1,95 @@
-# News of the week in plain Finnish | Saturday 17.10.2026
+# Newsweek in plain Finnish | Sunday 18.10.2026
 
-Treatment of cancer patients
+Google. Fuel subsidy. Hazard notices. Homeless. Puppy live.
 
 Listen
 
 You can read the news simultaneously below.
 
-There has been a lot of talk this week about the care of cancer patients.
+## Google deforestation
 
-Yle's MOT program reports that cancer patients in Finland receive treatment more slowly than in, for example, Sweden and Denmark.
-
-Now we will tell you more about it.
-
-## Slow access to treatment
-
-![Picture of hospital signs. The signs mention, among other things, the outpatient clinics for gynecology, cancer, pain, surgery, and ear, nose, and throat diseases.](https://img.img-cdn.yle.fi/crop_extract,w_5986,h_3368,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1556888691ef1248a58f/1763635661)
+![A large open area of land showing dug ditches, wet strips of land and surrounding forest.](https://img.img-cdn.yle.fi/crop_extract,w_5278,h_2970,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17192046ac64410b8518/1791378780)
 
 Open image viewer
 
-A cancer patient may have to wait a long time to see a doctor and undergo tests. Photo: Ville Välimäki / Yle
+Google's data center construction site in Muhos. Photo: Rami Moilanen / Yle
 
-In Finland, a cancer patient may have to wait for treatment for up to months.
+The technology company Google's deforestation in Northern Finland has also been in the news this week.
 
-Yle MOT reports on a new study by the University of Eastern Finland that examines treatment delays in lung cancer treatment. Treatment delay refers to the time that elapses between the first symptoms of the disease and the start of a patient's treatment.
+Google has cut down hundreds of hectares of forest in Muhos and Kajaani. Google has cut down forests in areas where it wants to build data centers.
 
-Research shows that a lung cancer patient may have to wait an average of 155 days, or about 5 months, to receive treatment.
+However, the law states that forests cannot be cut down until an environmental impact assessment has been carried out in the area. In Muhos and Kajaani, the assessment is still ongoing.
 
-There can be delays at many stages. The patient may not go to the doctor right away, even though they have already noticed the symptoms of the disease. More time is spent waiting to see a doctor and undergo tests, first at the health center and then in specialized medical care.
+Google says it didn't know it was breaking the law. Google also says authorities knew about the logging.
 
-## Other Nordic countries ahead
+The Licensing and Supervision Agency has ordered Google to suspend work and wait until the permits are in order.
 
-In other Nordic countries, cancer treatment is available more quickly than in Finland.
+## Fuel prices
 
-While a lung cancer patient in Finland waits for treatment for about 5 months, in Sweden the waiting time is just over 3 months and in Denmark about 2 months.
-
-Skip the infographic
-
-MOT reported last spring that treatment outcomes for many cancers are also poorer in Finland than in other Nordic countries. Cancer patients die earlier here than elsewhere.
-
-Slow access to treatment is one reason for this. The cancer has time to spread while the patient has to wait for treatment.
-
-## Cancer treatment a priority
-
-![Drip hose in Asta's hand.](https://img.img-cdn.yle.fi/crop_extract,w_5632,h_3168,x_5,y_258/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-162098269ccca031b70a/1775029145)
+![A person refuels a car with a green fuel pump at a gas station.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_472/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17133446ab672f89685e/1790342386)
 
 Open image viewer
 
-A cancer patient receives medication at Turku University Central Hospital. Photo: Silja Viitala / Yle
+Fuel is now expensive. Photo: Ville Maali / Yle
 
-Cancer organizations say that cancer treatment should be prioritized in Finland. This has been done in Sweden and Denmark, where cancer treatment overtakes other diseases.
+Then the news about fuels.
 
-The other Nordic countries also have a national cancer quality register. The register compiles information on how cancer patients have been treated in different hospitals and what the impact of the treatment has been. Finland does not have a register.
+The government has agreed on measures to help motorists who are suffering from rising gasoline and diesel prices.
 
-Finland's first national cancer strategy, a plan for cancer prevention and treatment, was completed last fall. However, the government has not provided any money for its implementation.
+Agriculture, forestry and the transport sector receive fuel subsidies.
 
-## Repetition
+Private car drivers will be helped with a reduction in vehicle tax. In addition, commuting expenses can be deducted more than before.
 
-Let's repeat a little.
+Helping motorists costs the state 60 million euros. The money is taken from road maintenance.
 
-In Finland, cancer patients receive treatment more slowly than in other Nordic countries.
+## Hazard alerts to your phone
 
-For example, a lung cancer patient may have to wait 5 months for treatment.
+![A person is looking at their phone.](https://img.img-cdn.yle.fi/crop_extract,w_4669,h_2626,x_0,y_2342/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-14830396852a1d500b33/1750246457)
 
-The treatment outcomes for many cancers are also poorer in Finland than elsewhere.
+Open image viewer
 
-Here was the News of the Week in plain Finnish. Let's hear it!
+The hazard bulletin will soon be delivered directly to your mobile phone. Photo: Henrietta Hassinen / Yle
+
+Then we will talk about the hazard announcements.
+
+Authorities are starting to send hazard alerts directly to mobile phones.
+
+The danger message is sent to all mobile phones in the danger area.
+
+The new system is called FI-Alert and will be implemented at the beginning of November.
+
+## Homelessness is increasing
+
+![A woman sits, wearing shabby sneakers and a dirty bag next to her.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_405/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17076616aa90840d4584/1789464194)
+
+Open image viewer
+
+The number of homeless people started to increase 2 years ago. Photo: Jani Aarnio / Yle
+
+Then the topic is the homeless, that is, people who do not have their own home.
+
+The number of homeless people is growing rapidly.
+
+Last year, there were just over 4,500 people in Finland who did not have their own home. That is 20 percent more than the year before.
+
+The majority of homeless people are men.
+
+Experts say that the number of homeless people is increasing, for example, because the government has cut social security and housing benefits.
+
+## My own Puppies for Holland
+
+![A brown Lagotto dog lies on a blue mat nursing puppies.](https://img.img-cdn.yle.fi/crop_extract,w_1607,h_904,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17220956ace7014132c6/1791914072)
+
+Open image viewer
+
+Yle's Puppies will follow the lives of Hilka and her puppies this autumn. Photo: Yle Puppies
+
+More news from Yle's Pentulive program.
+
+The Netherlands is starting to produce its own Pentulive program. Yle has sold the Pentulive program format to the Dutch Broadcasting Corporation's children's program.
+
+The sale of the program format means that Holland will make a similar, but its own version of Yle's Pentulive program.
+
+In the puppy farm, the mother dog and her puppies are monitored around the clock for about 8 weeks.
+
+This was Uutisviikko in plain Finnish. See you next week.

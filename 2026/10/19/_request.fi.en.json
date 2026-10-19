@@ -1,6 +1,4 @@
 {
-   "target" : "en",
-   "source" : "fi",
    "q" : [
       "# Uutisviikko selkosuomeksi | sunnuntai 18.10.2026",
       "",
@@ -98,5 +96,7 @@
       "",
       "Tässä oli Uutisviikko selkosuomeksi. Kuulemiin ensi viikkoon."
    ],
+   "source" : "fi",
+   "target" : "en",
    "format" : "text"
 }

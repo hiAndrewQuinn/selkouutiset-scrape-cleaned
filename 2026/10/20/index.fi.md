@@ -1,55 +1,61 @@
-# Selkouutiset | maanantai 19.10.2026
+# Selkouutiset | tiistai 20.10.2026
 
-YK:n luontokokous. Polttoainetuki. Bataatin viljely. Sää.
+Sähkön siirtohinta. Kotikoulut. Talvirenkaat. Sää.
 
-## YK:n luontokokous
+## Sähkön siirtohinta
 
-Aluksi uutinen luonnonsuojelusta.
+Aluksi uutinen sähkön hinnasta.
 
-YK:n luontokokous on alkanut Jerevanissa Armeniassa.
+Sähkön siirtohinta voi nousta vielä paljon, sanovat asiantuntijat.
 
-Kokouksessa arvioidaan, miten jäsenmaat ovat edenneet yhteisissä tavoitteissa suojella luontoa.
+Siirtohinta uhkaa nousta etenkin niillä alueilla, joissa sähköverkkoa on paljon, mutta asiakkaita vähän.
 
-Maat sopivat 4 vuotta sitten, että 30 prosenttia maapallon maa- ja merialueista suojellaan vuoteen 2030 mennessä.
+Asiakkaat joutuvat maksamaan enemmän, koska laki vaatii sähköfirmoja parantamaan sähköverkkoa.
 
-Suomen Luontopaneelin puheenjohtaja **Janne Kotiaho** sanoo, että Suomi on aikataulusta pahasti jäljessä.
+Sähköfirmojen pitää esimerkiksi kaivaa sähköjohdot maan alle, jotta myrsky ei katko sähköjä.
 
-\- 30 prosentin tavoitteen saavuttaminen kestää tällä vauhdilla 500 vuotta.
+Sähkön siirtohinta uhkaa nousta paljon esimerkiksi Pohjois-Karjalassa.
 
-## Polttoainetuki
+Sähköfirma PKS Sähkönsiirto sanoo, että asiakasmaksuja pitää nostaa ehkä yli 80 prosenttia, jotta sähköjohdot saadaan maan alle määräajassa.
 
-Sitten aiheena polttoaineen hinta.
+## Kotikoulut
 
-Kuljetusala sanoo, että hallituksen tuki autoilijoille on liian pieni.
+Nyt kerromme kotikouluista.
 
-Hallituksen tuki on yhteensä 60 miljoonaa euroa. Siitä puolet on polttoainetukea kuljetusalalle ja maa- ja metsätalousyrittäjille.
+Opetusministeri haluaa tiukentaa kotikoulujen valvontaa.
 
-Tukea annetaan, koska bensan ja dieselin hinta on noussut paljon.
+Opetusministeri **Anders Adlercreutz** sanoo, että tulevaisuudessa kotona opettamiseen voi tarvita viranomaisen luvan.
 
-Kuljetusala sanoo, että tuki ei riitä.
+Opetus voidaan myös keskeyttää, jos oppilas ei esimerkiksi opi tarpeeksi.
 
-Kuljetusala toivoo hallitukselta myös pysyviä keinoja alentaa dieselin hintaa. Yksi keino on polttoaineveron alennus.
+Opetusministeri haluaa tiukentaa kotikoulujen valvontaa.
 
-## Bataatin viljely
+Nykyään kotiopetukseen ei tarvita lupaa. Riittää että huoltaja ilmoittaa kotiopetuksesta kunnalle.
 
-Lopuksi uutta tietoa bataatin viljelystä.
+Kotiopetusta saa Suomessa noin 1000 lasta. Kotikouluja on jo joka kolmannessa kunnassa.
 
-Bataatin viljely onnistuu myös suomalaisella pellolla.
+## Talvirenkaat
 
-Helsingin yliopisto on tutkinut eri bataattilajikkeiden viljelyä. Osa lajikkeista tuotti hyvää satoa.
+Nyt asiaa autoilijoille.
 
-Tähän asti bataattia on viljelty Suomessa vain vähän. Kasvukausi on Suomessa lyhyt ja bataatti vaatii paljon lämpöä.
+Autoon pitää pian vaihtaa talvirenkaat.
 
-Koepellolla bataatti kasvoi muovin alla, sillä muovi pitää maan lämpimänä ja kosteana.
+Pohjois-Suomessa renkaita on vaihdettu jo paljon.
 
-Bataatti voi menestyä myös suomalaispellolla.
+Etelä-Suomessa rengasliikkeet odottavat ruuhkaa tälle ja ensi viikolle.
 
-Kokeilussa oli 8 eri lajiketta. Parhaiten menestyi lajike, joka on päältä vaaleanpunainen ja sisältä valkoinen.
+Autoon pitää pian vaihtaa talvirenkaat.
 
-## Tiistain sää
+Laki sanoo, että autossa pitää käyttää talvirenkaita marraskuun alusta lähtien.
 
-Sää on poutaista, eli sateetonta.
+Talvirenkaita pitää käyttää, jos ajokeli on huono ja tie liukas.
 
-Tiistaina aurinko paistaa etelässä ja lännessä, muutoin pilvisyys on runsasta.
+## Keskiviikon sää
 
-Etelässä lämpötila nousee yli +10 asteen, muualla päivälämpötila on +5 ja +10 asteen välillä.
+Vielä sääennuste.
+
+Keskiviikkona suuressa osassa maata paistaa aurinko.
+
+Lapissa on pilvistä.
+
+Lämpötila on etelässä 5 ja 10 asteen välillä, pohjoisessa alle 5 astetta.

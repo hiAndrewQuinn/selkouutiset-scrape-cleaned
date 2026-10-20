@@ -1,55 +1,61 @@
-# Clear News | Monday 19.10.2026
+# Clear News | Tuesday 20.10.2026
 
-UN Environment Conference. Fuel subsidy. Sweet potato cultivation. Weather.
+Electricity transmission price. Homeschooling. Winter tires. Weather.
 
-## UN Environment Conference
+## Electricity transmission price
 
-First, news about nature conservation.
+First, news about the price of electricity.
 
-The UN Environment Conference has begun in Yerevan, Armenia.
+The price of electricity transmission could rise significantly, experts say.
 
-The meeting will assess how member countries have progressed in achieving common goals to protect nature.
+The transmission price threatens to rise, especially in areas where there is a lot of electricity grid capacity but few customers.
 
-Countries agreed 4 years ago that 30 percent of the Earth's land and sea areas would be protected by 2030.
+Customers have to pay more because the law requires electricity companies to improve the electricity grid.
 
-**Janne Kotiaho**, chairman of the Finnish Nature Panel, says that Finland is far behind schedule.
+For example, electricity companies have to bury power lines underground so that a storm doesn't cut off power.
 
-\- At this rate, it will take 500 years to reach the 30 percent target.
+The price of electricity transmission threatens to increase significantly in North Karelia, for example.
 
-## Fuel subsidy
+Electricity company PKS Sähkönisiorto says that customer fees may need to be increased by more than 80 percent in order to get the electricity lines underground on time.
 
-Then there's the issue of fuel prices.
+## Homeschooling
 
-The transportation industry says the government's support for motorists is too little.
+Now we're talking about homeschooling.
 
-The government's support totals 60 million euros. Half of that is fuel support for the transport sector and agricultural and forestry entrepreneurs.
+The Minister of Education wants to tighten supervision of home schools.
 
-The support is being provided because the price of gasoline and diesel has risen significantly.
+Minister of Education **Anders Adlercreutz** says that in the future, homeschooling may require permission from the authorities.
 
-The transportation industry says the support is not enough.
+Teaching can also be interrupted if, for example, the student is not learning enough.
 
-The transport industry also hopes the government will find permanent ways to lower the price of diesel. One way is to reduce fuel taxes.
+The Minister of Education wants to tighten supervision of home schools.
 
-## Sweet potato cultivation
+Nowadays, homeschooling does not require a permit. It is sufficient for the guardian to notify the municipality of the homeschooling.
 
-Finally, new information about growing sweet potatoes.
+Approximately 1,000 children in Finland receive home education. Home schools are already available in every third municipality.
 
-Sweet potatoes can also be grown successfully in Finnish fields.
+## Winter tires
 
-The University of Helsinki has studied the cultivation of different sweet potato varieties. Some of the varieties produced good yields.
+Now for the motorists.
 
-Until now, only a small amount of sweet potatoes have been grown in Finland. The growing season in Finland is short and sweet potatoes require a lot of heat.
+I need to change winter tires on my car soon.
 
-In the experimental field, sweet potatoes grew under plastic, as plastic keeps the soil warm and moist.
+A lot of tires have already been replaced in Northern Finland.
 
-Sweet potatoes can also thrive in Finnish fields.
+In southern Finland, tire shops are expecting a rush this week and next week.
 
-There were 8 different varieties in the experiment. The variety that performed best was the one that is pink on the outside and white on the inside.
+I need to change winter tires on my car soon.
 
-## Tuesday weather
+The law says that winter tires must be used in cars from the beginning of November.
 
-The weather is dry, meaning there is no rain.
+Winter tires should be used if the driving conditions are poor and the road is slippery.
 
-On Tuesday, the sun will shine in the south and west, otherwise there will be plenty of cloud cover.
+## Wednesday's weather
 
-In the south, the temperature rises above +10 degrees, while elsewhere the daytime temperature is between +5 and +10 degrees.
+Still a weather forecast.
+
+On Wednesday, the sun will shine in much of the country.
+
+It is cloudy in Lapland.
+
+The temperature is between 5 and 10 degrees in the south, below 5 degrees in the north.

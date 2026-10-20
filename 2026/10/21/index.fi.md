@@ -1,0 +1,61 @@
+# Selkouutiset | tiistai 20.10.2026
+
+Sähkön siirtohinta. Kotikoulut. Talvirenkaat. Sää.
+
+## Sähkön siirtohinta
+
+Aluksi uutinen sähkön hinnasta.
+
+Sähkön siirtohinta voi nousta vielä paljon, sanovat asiantuntijat.
+
+Siirtohinta uhkaa nousta etenkin niillä alueilla, joissa sähköverkkoa on paljon, mutta asiakkaita vähän.
+
+Asiakkaat joutuvat maksamaan enemmän, koska laki vaatii sähköfirmoja parantamaan sähköverkkoa.
+
+Sähköfirmojen pitää esimerkiksi kaivaa sähköjohdot maan alle, jotta myrsky ei katko sähköjä.
+
+Sähkön siirtohinta uhkaa nousta paljon esimerkiksi Pohjois-Karjalassa.
+
+Sähköfirma PKS Sähkönsiirto sanoo, että asiakasmaksuja pitää nostaa ehkä yli 80 prosenttia, jotta sähköjohdot saadaan maan alle määräajassa.
+
+## Kotikoulut
+
+Nyt kerromme kotikouluista.
+
+Opetusministeri haluaa tiukentaa kotikoulujen valvontaa.
+
+Opetusministeri **Anders Adlercreutz** sanoo, että tulevaisuudessa kotona opettamiseen voi tarvita viranomaisen luvan.
+
+Opetus voidaan myös keskeyttää, jos oppilas ei esimerkiksi opi tarpeeksi.
+
+Opetusministeri haluaa tiukentaa kotikoulujen valvontaa.
+
+Nykyään kotiopetukseen ei tarvita lupaa. Riittää että huoltaja ilmoittaa kotiopetuksesta kunnalle.
+
+Kotiopetusta saa Suomessa noin 1000 lasta. Kotikouluja on jo joka kolmannessa kunnassa.
+
+## Talvirenkaat
+
+Nyt asiaa autoilijoille.
+
+Autoon pitää pian vaihtaa talvirenkaat.
+
+Pohjois-Suomessa renkaita on vaihdettu jo paljon.
+
+Etelä-Suomessa rengasliikkeet odottavat ruuhkaa tälle ja ensi viikolle.
+
+Autoon pitää pian vaihtaa talvirenkaat.
+
+Laki sanoo, että autossa pitää käyttää talvirenkaita marraskuun alusta lähtien.
+
+Talvirenkaita pitää käyttää, jos ajokeli on huono ja tie liukas.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona suuressa osassa maata paistaa aurinko.
+
+Lapissa on pilvistä.
+
+Lämpötila on etelässä 5 ja 10 asteen välillä, pohjoisessa alle 5 astetta.

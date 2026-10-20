@@ -1,5 +1,5 @@
 {
-   "format" : "text",
+   "target" : "en",
    "q" : [
       "# Selkouutiset | maanantai 19.10.2026",
       "",
@@ -57,6 +57,6 @@
       "",
       "Etelässä lämpötila nousee yli +10 asteen, muualla päivälämpötila on +5 ja +10 asteen välillä."
    ],
-   "target" : "en",
-   "source" : "fi"
+   "source" : "fi",
+   "format" : "text"
 }

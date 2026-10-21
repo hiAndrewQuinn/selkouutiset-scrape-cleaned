@@ -1,61 +1,41 @@
-# Selkouutiset | tiistai 20.10.2026
+# Selkouutiset | keskiviikko 21.10.2026
 
-Sähkön siirtohinta. Kotikoulut. Talvirenkaat. Sää.
+Ukraina. Työttömyys. Akut. Sää.
 
-## Sähkön siirtohinta
+## Ukrainan rauhankeskustelut
 
-Aluksi uutinen sähkön hinnasta.
+Ensin uutinen rauhankeskusteluista.
 
-Sähkön siirtohinta voi nousta vielä paljon, sanovat asiantuntijat.
+Oslossa neuvoteltiin tiistaina siitä, miten sota Ukrainassa loppuu. Keskusteluissa oli mukana presidentti Alexander Stubb. Ukrainaa edusti presidentti Volodymyr Zelenskyi. Paikalla oli myös USA:n edustajia.
 
-Siirtohinta uhkaa nousta etenkin niillä alueilla, joissa sähköverkkoa on paljon, mutta asiakkaita vähän.
+Presidentti Zelenskyi sanoi, että neuvottelut menivät hyvin.
 
-Asiakkaat joutuvat maksamaan enemmän, koska laki vaatii sähköfirmoja parantamaan sähköverkkoa.
+Oslossa neuvoteltiin tiistaina siitä, miten sota Ukrainassa loppuu. Tänään keskiviikkona USA:n lähettiläs Steve Witkoff tapasi Pietarissa Venäjän presidentin Vladimir Putinin.
 
-Sähköfirmojen pitää esimerkiksi kaivaa sähköjohdot maan alle, jotta myrsky ei katko sähköjä.
+## Työttömyys
 
-Sähkön siirtohinta uhkaa nousta paljon esimerkiksi Pohjois-Karjalassa.
+Nyt aiheena on työttömyys.
 
-Sähköfirma PKS Sähkönsiirto sanoo, että asiakasmaksuja pitää nostaa ehkä yli 80 prosenttia, jotta sähköjohdot saadaan maan alle määräajassa.
+Työttömiä ihmisiä on enemmän kuin aikaisemmin. Työttömiä oli syyskuussa 39 000 enemmän kuin vuotta aiemmin.
 
-## Kotikoulut
+Varsinkin miehiä on nyt töissä vähemmän kuin ennen. Syynä on se, että rakentamisella menee huonosti. Myös teollisuuden aloilla on vain vähän uusia työpaikkoja.
 
-Nyt kerromme kotikouluista.
+Työttömiä ihmisiä on enemmän kuin aikaisemmin. Asiantuntijat sanovat, että työttömyys ei ehkä helpota tämän vuoden aikana.
 
-Opetusministeri haluaa tiukentaa kotikoulujen valvontaa.
+## Akkujen tulipalot
 
-Opetusministeri **Anders Adlercreutz** sanoo, että tulevaisuudessa kotona opettamiseen voi tarvita viranomaisen luvan.
+Seuraavan uutisen aiheena on akku.
 
-Opetus voidaan myös keskeyttää, jos oppilas ei esimerkiksi opi tarpeeksi.
+Akku aiheuttaa tulipalon useammin kuin ennen. Ihmisillä on kotona paljon erilaisia akkuja. Akku on esimerkiksi puhelimessa, tietokoneessa ja sähköpyörässä.
 
-Opetusministeri haluaa tiukentaa kotikoulujen valvontaa.
+Asiantuntijat sanovat, että akku pitää ladata oikein. Akku kannattaa ladata päivällä, kun ihminen on hereillä. Kun lataat akkua, sen vieressä ei saa olla helposti syttyviä tavaroita. Tällaisia ovat esimerkiksi paperi, pahvi ja tekstiilit.
 
-Nykyään kotiopetukseen ei tarvita lupaa. Riittää että huoltaja ilmoittaa kotiopetuksesta kunnalle.
+Jos akku on tosi vanha, akkua ei saa enää ladata.
 
-Kotiopetusta saa Suomessa noin 1000 lasta. Kotikouluja on jo joka kolmannessa kunnassa.
+Akku aiheuttaa tulipalon useammin kuin ennen. Suomessa on vuodessa noin 150 sellaista tulipaloa, joka alkaa akusta tai paristosta.
 
-## Talvirenkaat
-
-Nyt asiaa autoilijoille.
-
-Autoon pitää pian vaihtaa talvirenkaat.
-
-Pohjois-Suomessa renkaita on vaihdettu jo paljon.
-
-Etelä-Suomessa rengasliikkeet odottavat ruuhkaa tälle ja ensi viikolle.
-
-Autoon pitää pian vaihtaa talvirenkaat.
-
-Laki sanoo, että autossa pitää käyttää talvirenkaita marraskuun alusta lähtien.
-
-Talvirenkaita pitää käyttää, jos ajokeli on huono ja tie liukas.
-
-## Keskiviikon sää
+## Sää
 
 Vielä sääennuste.
 
-Keskiviikkona suuressa osassa maata paistaa aurinko.
-
-Lapissa on pilvistä.
-
-Lämpötila on etelässä 5 ja 10 asteen välillä, pohjoisessa alle 5 astetta.
+Torstaina sää on pilvinen, idässä aurinkoinen. Lämpötila on 5 ja 10 asteen välillä. Pohjoisessa on kylmempää ja etelässä lämpimämpää. Lapissa voi sataa vähän vettä.

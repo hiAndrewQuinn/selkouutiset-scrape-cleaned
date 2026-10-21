@@ -1,61 +1,41 @@
-# Clear News | Tuesday 20.10.2026
+# Clear News | Wednesday 21.10.2026
 
-Electricity transmission price. Homeschooling. Winter tires. Weather.
+Ukraine. Unemployment. Batteries. Weather.
 
-## Electricity transmission price
+## Ukraine peace talks
 
-First, news about the price of electricity.
+First, news about the peace talks.
 
-The price of electricity transmission could rise significantly, experts say.
+Negotiations were held in Oslo on Tuesday on how to end the war in Ukraine. President Alexander Stubb participated in the discussions. Ukraine was represented by President Volodymyr Zelenskyi. Representatives from the United States were also present.
 
-The transmission price threatens to rise, especially in areas where there is a lot of electricity grid capacity but few customers.
+President Zelenskyi said that the negotiations went well.
 
-Customers have to pay more because the law requires electricity companies to improve the electricity grid.
+Negotiations were held in Oslo on Tuesday on how to end the war in Ukraine. Today, Wednesday, US Ambassador Steve Witkoff met with Russian President Vladimir Putin in St. Petersburg.
 
-For example, electricity companies have to bury power lines underground so that a storm doesn't cut off power.
+## Unemployment
 
-The price of electricity transmission threatens to increase significantly in North Karelia, for example.
+Now the topic is unemployment.
 
-Electricity company PKS Sähkönisiorto says that customer fees may need to be increased by more than 80 percent in order to get the electricity lines underground on time.
+There are more unemployed people than before. There were 39,000 more unemployed people in September than a year earlier.
 
-## Homeschooling
+There are fewer men in the workforce than before, especially because construction is doing poorly. There are also few new jobs in industrial sectors.
 
-Now we're talking about homeschooling.
+There are more unemployed people than before. Experts say that unemployment may not ease this year.
 
-The Minister of Education wants to tighten supervision of home schools.
+## Battery fires
 
-Minister of Education **Anders Adlercreutz** says that in the future, homeschooling may require permission from the authorities.
+The next news item is about the battery.
 
-Teaching can also be interrupted if, for example, the student is not learning enough.
+Batteries are causing fires more often than before. People have many different batteries at home. For example, batteries are in phones, computers, and electric bikes.
 
-The Minister of Education wants to tighten supervision of home schools.
+Experts say that the battery must be charged correctly. It is advisable to charge the battery during the day, when the person is awake. When charging the battery, there should be no flammable objects near it. Such items include paper, cardboard and textiles.
 
-Nowadays, homeschooling does not require a permit. It is sufficient for the guardian to notify the municipality of the homeschooling.
+If the battery is really old, it should no longer be charged.
 
-Approximately 1,000 children in Finland receive home education. Home schools are already available in every third municipality.
+Batteries are causing fires more often than before. There are approximately 150 fires in Finland each year that start with batteries.
 
-## Winter tires
-
-Now for the motorists.
-
-I need to change winter tires on my car soon.
-
-A lot of tires have already been replaced in Northern Finland.
-
-In southern Finland, tire shops are expecting a rush this week and next week.
-
-I need to change winter tires on my car soon.
-
-The law says that winter tires must be used in cars from the beginning of November.
-
-Winter tires should be used if the driving conditions are poor and the road is slippery.
-
-## Wednesday's weather
+## Weather
 
 Still a weather forecast.
 
-On Wednesday, the sun will shine in much of the country.
-
-It is cloudy in Lapland.
-
-The temperature is between 5 and 10 degrees in the south, below 5 degrees in the north.
+On Thursday the weather will be cloudy, sunny in the east. The temperature will be between 5 and 10 degrees. It will be colder in the north and warmer in the south. There may be a little rain in Lapland.

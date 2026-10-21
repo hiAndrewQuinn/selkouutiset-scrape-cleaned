@@ -1,6 +1,6 @@
 {
+   "target" : "en",
    "format" : "text",
-   "source" : "fi",
    "q" : [
       "# Selkouutiset | tiistai 20.10.2026",
       "",
@@ -64,5 +64,5 @@
       "",
       "Lämpötila on etelässä 5 ja 10 asteen välillä, pohjoisessa alle 5 astetta."
    ],
-   "target" : "en"
+   "source" : "fi"
 }

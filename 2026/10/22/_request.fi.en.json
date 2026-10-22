@@ -1,6 +1,7 @@
 {
-   "format" : "text",
+   "source" : "fi",
    "target" : "en",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | keskiviikko 21.10.2026",
       "",
@@ -43,6 +44,5 @@
       "Vielä sääennuste.",
       "",
       "Torstaina sää on pilvinen, idässä aurinkoinen. Lämpötila on 5 ja 10 asteen välillä. Pohjoisessa on kylmempää ja etelässä lämpimämpää. Lapissa voi sataa vähän vettä."
-   ],
-   "source" : "fi"
+   ]
 }

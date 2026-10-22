@@ -1,41 +1,45 @@
-# Clear News | Wednesday 21.10.2026
+# Clear News | Thursday 22.10.2026
 
-Ukraine. Unemployment. Batteries. Weather.
+Climate change. Physical education in upper secondary schools. Turku Cathedral. Weather.
 
-## Ukraine peace talks
+## Climate change
 
-First, news about the peace talks.
+First, the topic is climate change.
 
-Negotiations were held in Oslo on Tuesday on how to end the war in Ukraine. President Alexander Stubb participated in the discussions. Ukraine was represented by President Volodymyr Zelenskyi. Representatives from the United States were also present.
+The world is warming by more than 1.5 degrees. That's what a UN report says. Scientists say 1.5 degrees is an important limit. If the world warms more than that, dangerous changes will increase.
 
-President Zelenskyi said that the negotiations went well.
+Countries around the world are reducing emissions too slowly. That's why the world is warming too much. The UN says that countries need to reduce emissions immediately and a lot. We need to cut down less forests than we do now.
 
-Negotiations were held in Oslo on Tuesday on how to end the war in Ukraine. Today, Wednesday, US Ambassador Steve Witkoff met with Russian President Vladimir Putin in St. Petersburg.
+The world will warm by more than 1.5 degrees. For example, floods and wildfires will increase as the world warms.
 
-## Unemployment
+## Physical education for the matriculation exam
 
-Now the topic is unemployment.
+The next topic is physical education in high school.
 
-There are more unemployed people than before. There were 39,000 more unemployed people in September than a year earlier.
+In the future, high school students will be able to choose physical education in the matriculation exam.
 
-There are fewer men in the workforce than before, especially because construction is doing poorly. There are also few new jobs in industrial sectors.
+The Physical Education Matriculation Examination includes written assignments and physical education assignments.
 
-There are more unemployed people than before. Experts say that unemployment may not ease this year.
+In these pictures, students from the sports department at Schildt Upper Secondary School in Jyväskylä are trying out sample physical education tasks.
 
-## Battery fires
+In the future, upper secondary school students will be able to choose physical education in the matriculation examination. The matriculation examination in physical education can be taken for the first time in the autumn of 2029. This means that students who started upper secondary school this year can choose physical education in the matriculation examinations.
 
-The next news item is about the battery.
+## Turku Cathedral
 
-Batteries are causing fires more often than before. People have many different batteries at home. For example, batteries are in phones, computers, and electric bikes.
+Now news from Turku Cathedral.
 
-Experts say that the battery must be charged correctly. It is advisable to charge the battery during the day, when the person is awake. When charging the battery, there should be no flammable objects near it. Such items include paper, cardboard and textiles.
+Turku Cathedral is undergoing major renovations.
 
-If the battery is really old, it should no longer be charged.
+Workers are currently cleaning an old painting on the church ceiling.
 
-Batteries are causing fires more often than before. There are approximately 150 fires in Finland each year that start with batteries.
+The painting was made in the 1850s. It was done by Robert Wilhelm Ekman. The painting is very valuable.
+
+The work is done at height. The workers take off their helmets while working. This way, the helmets do not hit the paint and damage it.
+
+Turku Cathedral is undergoing a major renovation. The renovation will be completed in 2028. The renovation will cost 24 million euros.
 
 ## Weather
 
 Still a weather forecast.
 
-On Thursday the weather will be cloudy, sunny in the east. The temperature will be between 5 and 10 degrees. It will be colder in the north and warmer in the south. There may be a little rain in Lapland.
+The weather is blustery. There are clouds in many places in the sky. The sun may shine in places. The temperature is between 4 and 11 degrees. It is cooler in Northern Lapland.

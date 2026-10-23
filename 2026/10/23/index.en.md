@@ -1,45 +1,47 @@
-# Clear News | Thursday 22.10.2026
+# Clear News | Friday 23.10.2026
 
-Climate change. Physical education in upper secondary schools. Turku Cathedral. Weather.
+Orphan in Kiev. Kela headquarters. European Athletics Championships. Weather.
 
-## Climate change
+## Prime Minister Orphan in Kiev
 
-First, the topic is climate change.
+First, the topic is the visit.
 
-The world is warming by more than 1.5 degrees. That's what a UN report says. Scientists say 1.5 degrees is an important limit. If the world warms more than that, dangerous changes will increase.
+Prime Minister **Petteri Orpo** visited Ukraine on Thursday. Orpo met with Ukrainian President **Volodymyr Zelensky** in Kiev.
 
-Countries around the world are reducing emissions too slowly. That's why the world is warming too much. The UN says that countries need to reduce emissions immediately and a lot. We need to cut down less forests than we do now.
+Ukraine faces a difficult winter as Russia's war of aggression continues.
 
-The world will warm by more than 1.5 degrees. For example, floods and wildfires will increase as the world warms.
+Prime Minister Orpo says that Europe must support Ukraine more than before. Europe must put pressure on Russia to end the war.
 
-## Exercise for the Matriculation Examination
+Prime Minister Petteri Orpo visited Ukraine on Thursday. The last time the Prime Minister visited Ukraine was in May 2025.
 
-The next topic is physical education in high school.
+## Kela headquarters
 
-In the future, high school students will be able to choose physical education in the matriculation exam.
+Next, news from Kela's head office.
 
-The Physical Education Matriculation Examination includes written assignments and physical education assignments.
+Kela's headquarters in Helsinki needs renovation.
 
-In these pictures, students from the sports department at Schildt Upper Secondary School in Jyväskylä are trying out sample physical education tasks.
+The renovation cost is approximately 130 million euros. There is no money for the renovation. Kela hopes that the next government will provide money for the renovation.
 
-In the future, upper secondary school students will be able to choose physical education in the matriculation examination. The matriculation examination in physical education can be taken for the first time in the autumn of 2029. This means that students who started upper secondary school this year can choose physical education in the matriculation examinations.
+The headquarters of Kela was completed in 1956. The headquarters has not undergone any major renovations since then. The headquarters of Kela was designed by architects **Alvar Aalto** and **Aino Aalto**. The building has over 300 rooms.
 
-## Turku Cathedral
+Kela's headquarters in Helsinki needs renovation. Kela's headquarters is on the UNESCO list of important buildings.
 
-Now news from Turku Cathedral.
+## European Athletics Championships in Helsinki
 
-Turku Cathedral is undergoing major renovations.
+Now news from the European Athletics Championships.
 
-Workers are currently cleaning an old painting on the church ceiling.
+The European Athletics Championships will be held in Helsinki in 2030.
 
-The painting was made in the 1850s. It was done by Robert Wilhelm Ekman. The painting is very valuable.
+Helsinki competed with Brussels for the Games. The European Athletics Federation awarded the Games to Helsinki.
 
-The work is done at height. The workers take off their helmets while working. This way, the helmets do not hit the paint and damage it.
+Helsinki has hosted the European Athletics Championships 3 times before. Helsinki will become the only city to have hosted the European Athletics Championships 4 times.
 
-Turku Cathedral is undergoing a major renovation. The renovation will be completed in 2028. The renovation will cost 24 million euros.
+The European Athletics Championships will be held in Helsinki in 2030.
+
+The last European Athletics Championships were held in Helsinki in 2012.
 
 ## Weather
 
 Still a weather forecast.
 
-The weather is blustery. There are clouds in many places in the sky. The sun may shine in places. The temperature is between 4 and 11 degrees. It is cooler in Northern Lapland.
+The weather on Saturday will be variable. A little rain is possible in most parts of the country. There will be light rain in the south. The temperature will be between 2 and 12 degrees.

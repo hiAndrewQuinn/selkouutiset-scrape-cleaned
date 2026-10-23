@@ -1,45 +1,47 @@
-# Selkouutiset | torstai 22.10.2026
+# Selkouutiset | perjantai 23.10.2026
 
-Ilmastonmuutos. Liikunta lukioissa. Turun tuomiokirkko. Sää.
+Orpo Kiovassa. Kelan pääkonttori. Yleisurheilun EM-kisat. Sää.
 
-## Ilmastonmuutos
+## Pääministeri Orpo Kiovassa
 
-Ensin aiheena on ilmastonmuutos.
+Ensin aiheena on vierailu.
 
-Maapallo lämpenee yli 1,5 astetta. Näin sanoo YK:n raportti. Tutkijat sanovat, että 1,5 astetta on tärkeä raja. Jos maapallo lämpenee sitä enemmän, vaaralliset muutokset lisääntyvät.
+Pääministeri **Petteri Orpo** vieraili torstaina Ukrainassa. Orpo tapasi Kiovassa Ukrainan presidentin **Volodymyr Zelenskyin**.
 
-Maailman maat vähentävät päästöjä liian hitaasti. Siksi maapallo lämpenee liikaa. YK sanoo, että maiden pitää vähentää päästöjä heti ja paljon. Metsiä pitää hakata vähemmän kuin nyt.
+Ukrainalla on edessä vaikea talvi, kun Venäjän hyökkäyssota jatkuu.
 
-Maapallo lämpenee yli 1,5 astetta. Esimerkiksi tulvat ja maastopalot lisääntyvät, kun maapallo lämpenee.
+Pääministeri Orpo sanoo, että Euroopan pitää tukea Ukrainaa enemmän kuin aikaisemmin. Euroopan pitää painostaa Venäjää, jotta sota loppuu.
 
-## Liikunta ylioppilaskokeeseen
+Pääministeri Petteri Orpo vieraili torstaina Ukrainassa. Edellisen kerran pääministeri kävi Ukrainassa toukokuussa 2025.
 
-Seuraavaksi aiheena on liikunta lukiossa.
+## Kelan pääkonttori
 
-Lukiolainen voi tulevaisuudessa valita liikunnan ylioppilaskokeessa.
+Seuraavaksi uutinen Kelan pääkonttorista.
 
-Liikunnan ylioppilaskokeessa on kirjallisia tehtäviä ja liikuntatehtäviä.
+Kelan pääkonttori Helsingissä tarvitsee remontin.
 
-Näissä kuvissa jyväskyläläisen Schildtin lukion urheilulinjan oppilaat kokeilevat liikunnan esimerkkitehtäviä.
+Remontin hinta on noin 130 miljoonaa euroa. Rahaa remonttiin ei ole. Kela toivoo, että seuraava hallitus antaa rahaa remonttiin.
 
-Lukiolainen voi tulevaisuudessa valita liikunnan ylioppilaskokeessa. Liikunnan ylioppilaskokeen voi tehdä 1. kerran syksyllä vuonna 2029. Tänä vuonna lukion aloittaneet opiskelijat voivat siis valita liikunnan ylioppilaskokeisiin.
+Kelan pääkonttori valmistui vuonna 1956. Pääkonttoriin ei ole tehty sen jälkeen isoa remonttia. Kelan pääkonttorin suunnittelivat arkkitehdit **Alvar Aalto** ja **Aino Aalto**. Rakennuksessa on yli 300 huonetta.
 
-## Turun tuomiokirkko
+Kelan pääkonttori Helsingissä tarvitsee remontin. Kelan pääkonttori on Unescon listalla, jolla on tärkeitä rakennuksia.
 
-Nyt uutinen Turun tuomiokirkosta.
+## Yleisurheilun EM-kisat Helsinkiin
 
-Turun tuomiokirkossa on iso remontti.
+Nyt uutinen yleisurheilun EM-kisoista.
 
-Parhaillaan työntekijät puhdistavat vanhaa maalausta, joka on kirkon katossa.
+Yleisurheilun Euroopan mestaruuskilpailut järjestetään Helsingissä vuonna 2030.
 
-Maalaus on tehty 1850-luvulla. Sen teki Robert Wilhelm Ekman. Maalaus on hyvin arvokas.
+Helsinki kamppaili kisoista Brysselin kanssa. Euroopan yleisurheiluliitto antoi kisat Helsingille.
 
-Työtä tehdään korkealla. Työntekijät ottavat kypärän pois työn ajaksi. Näin kypärä ei osu maalaukseen ja riko sitä.
+Helsingissä on järjestetty yleisurheilun EM-kisat aikaisemmin 3 kertaa. Helsingistä tulee ainoa kaupunki, jossa EM-kisat on järjestetty 4 kertaa.
 
-Turun tuomiokirkossa on menossa iso remontti. Remontti on valmis vuonna 2028. Remontti maksaa 24 miljoonaa euroa.
+Yleisurheilun Euroopan mestaruuskilpailut järjestetään Helsingissä vuonna 2030.
+
+Viimeksi yleisurheilun EM-kisat olivat Helsingissä vuonna 2012.
 
 ## Sää
 
 Vielä sääennuste.
 
-Sää on poutainen. Taivaalla on monin paikoin pilviä. Paikoin voi paistaa aurinko. Lämpötila on 4 ja 11 asteen välillä. Pohjois-Lapissa on viileämpää.
+Lauantaina sää on vaihtelevaa. Isossa osassa maata voi sataa vähän vettä. Etelässä on poutaa. Lämpötila on 2 ja 12 asteen välillä.

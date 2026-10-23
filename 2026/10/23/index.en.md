@@ -12,7 +12,7 @@ Countries around the world are reducing emissions too slowly. That's why the wor
 
 The world will warm by more than 1.5 degrees. For example, floods and wildfires will increase as the world warms.
 
-## Physical education for the matriculation exam
+## Exercise for the Matriculation Examination
 
 The next topic is physical education in high school.
 

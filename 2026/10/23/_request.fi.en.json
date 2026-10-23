@@ -1,4 +1,7 @@
 {
+   "format" : "text",
+   "target" : "en",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | torstai 22.10.2026",
       "",
@@ -45,8 +48,5 @@
       "Vielä sääennuste.",
       "",
       "Sää on poutainen. Taivaalla on monin paikoin pilviä. Paikoin voi paistaa aurinko. Lämpötila on 4 ja 11 asteen välillä. Pohjois-Lapissa on viileämpää."
-   ],
-   "source" : "fi",
-   "format" : "text",
-   "target" : "en"
+   ]
 }

@@ -1,6 +1,7 @@
 {
    "source" : "fi",
    "format" : "text",
+   "target" : "en",
    "q" : [
       "# Selkouutiset | perjantai 23.10.2026",
       "",
@@ -49,6 +50,5 @@
       "Vielä sääennuste.",
       "",
       "Lauantaina sää on vaihtelevaa. Isossa osassa maata voi sataa vähän vettä. Etelässä on poutaa. Lämpötila on 2 ja 12 asteen välillä."
-   ],
-   "target" : "en"
+   ]
 }

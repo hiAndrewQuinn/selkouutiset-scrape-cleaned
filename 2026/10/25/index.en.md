@@ -74,7 +74,7 @@ There will be no major changes to taxes, which is why the increase will be refle
 
 Approximately 1.6 million Finns receive a pension.
 
-## Rewarding clarity
+## Rewarding explanations
 
 ![Selkosanomat editor-in-chief Petri Kiuttu thanks Selkosanomat for the award at the book fair on stage.](https://img.img-cdn.yle.fi/crop_extract,w_3463,h_1947,x_155,y_679/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17274896ade1366cc98b/1792939009)
 

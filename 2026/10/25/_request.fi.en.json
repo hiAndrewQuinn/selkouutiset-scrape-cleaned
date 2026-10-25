@@ -1,4 +1,7 @@
 {
+   "source" : "fi",
+   "target" : "en",
+   "format" : "text",
    "q" : [
       "# Viikon uutinen selkosuomeksi | lauantai 24.10.2026",
       "",
@@ -67,8 +70,5 @@
       "Muutosten valmistelu jatkuu opetusministeriössä, mutta uudistukset eivät valmistu vielä tällä vaalikaudella.",
       "",
       "Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!"
-   ],
-   "target" : "en",
-   "format" : "text",
-   "source" : "fi"
+   ]
 }

@@ -1,0 +1,95 @@
+# Newsweek in plain Finnish | Sunday 25.10.2026
+
+Information security breach. Domestic peace of MPs. Pensions. Rewarding whistleblowers.
+
+Listen
+
+You can read the news simultaneously below.
+
+## Security breach
+
+![A security bulletin appears on the computer screen, urging you to update PHP vulnerabilities.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_507/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17270016adb4993a8000/1792757938)
+
+Open image viewer
+
+The PHP programming language is common on websites. Photo: Jari Kovalainen / Yle
+
+A security breach caused widespread shutdowns of websites in Finland this week.
+
+For example, the websites of the National Land Survey of Finland, the oikeus.fi service, the University of Jyväskylä and the Central Finland Welfare Region were down for several days.
+
+The State Communications Technology Center closed the pages for safety reasons.
+
+The cause of the security breach was a serious security vulnerability found in the PHP programming language, which is used on websites.
+
+The vulnerability could affect up to 70 percent of the world's websites.
+
+Many organizations shut down websites around the world as a precaution.
+
+Organizations and companies need to update their website software.
+
+It may take many weeks to fix all websites.
+
+## Domestic peace of MPs
+
+![Speaker of the Parliament, Jussi Halla-aho, guest on the first morning.](https://img.img-cdn.yle.fi/crop_extract,w_6277,h_3526,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17272216adc66573176a/1792829574)
+
+Open image viewer
+
+Yle interviewed the Speaker of the Parliament, Jussi Halla-aho, on Saturday. Photo: Mohamed El Bouari / Yle
+
+Speaker of the Parliament **Jussi Halla-aho** was a guest on Yle's Ykkösaamu on Saturday.
+
+Halla-aho said that some MPs are very concerned about intrusions into MPs' homes.
+
+There have been signs in the apartments of many MPs that someone has visited the apartment.
+
+The intruder could be, for example, an agent of a foreign state who wants to intimidate Finnish decision-makers. The police are investigating the cases.
+
+Halla-aho says that MPs know that the matter must be approached calmly.
+
+Security measures for MPs have been increased.
+
+## Pensions
+
+![A person is holding a mobile phone with a pension calculator on the screen and a blue &quot;+2.6%&quot; marking on the right side.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17269816adb45260f9fd/1792755028)
+
+Open image viewer
+
+There is a calculator on Yle's website that can be used to calculate pension changes. Photo: Ilkka Kemppinen / Yle
+
+Pensions will increase next year.
+
+The Ministry of Social Affairs and Health confirmed on Friday that the earnings-related pension index will increase by 2.6 percent at the beginning of next year.
+
+The national pension will increase by 2.3 percent.
+
+The reason for the increases is inflation. This means that prices have risen faster than before. The price of fuel has risen a lot, and that affects many prices.
+
+The Finnish Taxpayers' Confederation calculates that the increase will affect pensioners equally.
+
+For example, an earnings-related pension of 2,000 euros will increase by approximately 52 euros per month.
+
+There will be no major changes to taxes, which is why the increase will be reflected in pensioners' accounts.
+
+Approximately 1.6 million Finns receive a pension.
+
+## Rewarding clarity
+
+![Selkosanomat editor-in-chief Petri Kiuttu thanks Selkosanomat for the award at the book fair on stage.](https://img.img-cdn.yle.fi/crop_extract,w_3463,h_1947,x_155,y_679/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17274896ade1366cc98b/1792939009)
+
+Open image viewer
+
+The Quality Digital Award was received by Petri Kiuttu, editor-in-chief of Selkosanomat. The recipient of the award was chosen by President Tarja Halonen. Photo: Helinä Ylisirniö
+
+Selkosanomat has won the *Quality Digital of the Year* award. It is an award given to a good online newspaper.
+
+Selkosanomat is a plain-language online newspaper published by Selkokeskus.
+
+The award recipient was chosen by President **Tarja Halonen**.
+
+Halonen says that Selkosanomat does important work because it helps all people understand the news. President Halonen says that the right to information belongs to all people.
+
+The Quality Digital Award was presented at the Helsinki Book Fair.
+
+This was Uutisviikko in plain Finnish. See you again, bye!

@@ -1,95 +1,67 @@
-# Uutisviikko selkosuomeksi | sunnuntai 25.10.2026
+# Selkouutiset | maanantai 26.10.2026
 
-Tietoturvahäiriö. Kansanedustajien kotirauha. Eläkkeet. Selkosanomien palkitseminen.
+Serbian vaalit. Pääsykokeissa huijaaminen. Punkkarit. Sää
 
-Kuuntele
+## Valta on vaihtumassa Serbiassa
 
-Voit lukea uutiset samanaikaisesti alta.
+Ensin uutinen Serbian vaaleista.
 
-## Tietoturvahäiriö
+Serbiassa opiskelijoiden puolue on voittanut parlamenttivaalit.
 
-![Tietokoneruudulla näkyy tietoturvatiedote, jossa kehotetaan päivittämään PHP-haavoittuvuudet.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_507/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17270016adb4993a8000/1792757938)
+Entisen presidentin Aleksandar Vučićin puolue hävisi vaalit. Puolue hallitsi Serbiaa 14 vuotta.
 
-Avaa kuvien katselu
+Moni serbialainen syytti Vučićin hallintoa korruptiosta. Opiskelijat järjestivät Serbiassa paljon mielenosoituksia hallintoa vastaan.
 
-PHP-ohjelmointikieli on yleinen verkkosivuilla. Kuva: Jari Kovalainen / Yle
+Venäjä kertoi ennen vaaleja, että se tukee Vučićin puoluetta.
 
-Tietoturvahäiriö sulki tällä viikolla laajasti verkkosivuja Suomessa.
+Yöllä moni serbialainen juhli vaalitulosta pääkaupungin Belgradin kaduilla.
 
-Esimerkiksi Maanmittauslaitoksen, oikeus.fi-palvelun, Jyväskylän yliopiston ja Keski-Suomen hyvinvointialueen sivut eivät toimineet useana päivänä.
+Opiskelijoiden puolue voitti Serbian parlamenttivaalit.
 
-Valtion viestintätekniikkakeskus sulki sivuja varmuuden vuoksi.
+Serbialaiset äänestivät vaaleissa vilkkaasti. Äänestyspaikoilla oli pitkiä jonoja.
 
-Tietoturvahäiriön syy oli vakava tietoturva-aukko. Se löytyi PHP-ohjelmointikielestä, jota käytetään verkkosivuilla.
+## Pääsykokeissa vaikea huijata
 
-Haavoittuvuus voi koskea jopa 70 prosenttia maailman verkkosivuista.
+Seuraavaksi uutinen pääsykokeessa huijaamisesta.
 
-Monet organisaatiot sulkivat varmuuden vuoksi verkkosivuja ympäri maailmaa.
+Korkeakoulujen pääsykokeissa on vaikea huijata tekoälyn avulla.
 
-Organisaatioiden ja firmojen pitää päivittää verkkosivujen ohjelmisto.
+Ylen toimittaja kokeili huijaamista Metropolia-ammattikorkeakoulussa. Toimittaja piilotti tietokoneeseen tekoälymallin ja meni pääsykokeeseen. Kyseessä ei ollut oikea pääsykoe vaan testi.
 
-Kaikkien verkkosivujen korjaaminen voi kestää monta viikkoa.
+Testissä selvisi, että kokeen valvojat voivat estää tehokkaasti huijausyritykset.
 
-## Kansanedustajien kotirauha
+Toimittaja ei pystynyt käyttämään tekoälyä pääsykokeessa. Tietokone meni lukkoon, kun se havaitsi epäilyttävää toimintaa.
 
-![Eduskunnan puhemies, Jussi Halla-aho vieranaana ykkösaamu.](https://img.img-cdn.yle.fi/crop_extract,w_6277,h_3526,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17272216adc66573176a/1792829574)
+Korkeakoulujen pääsykokeissa on vaikea huijata tekoälyn avulla.
 
-Avaa kuvien katselu
+Pääsykokeet tehdään korkeakoulujen omassa Vallu-järjestelmässä. Järjestelmä havaitsee huijaukset ja voi estää ne.
 
-Yle haastatteli eduskunnan puhemies Jussi Halla-ahoa lauantaina. Kuva: Mohamed El Bouari / Yle
+## Punkkarit tulivat 50 vuotta sitten
 
-Eduskunnan puhemies **Jussi Halla-aho** oli Ylen Ykkösaamun vieras lauantaina.
+Lopuksi uutinen punk-liikkeestä.
 
-Halla-aho kertoi, että osa kansanedustajista on tosi huolissaan tunkeutumisista kansanedustajien koteihin.
+Punk-liike tuli Suomeen 50 vuotta sitten.
 
-Monien kansanedustajien asunnoissa on ollut jälkiä siitä, että joku on käynyt asunnossa.
+Punk oli uutta nuorisokulttuuria. Moni vanhempi ihminen paheksui sitä.
 
-Tunkeutuja voi olla esimerkiksi vieraan valtion agentti, joka haluaa pelotella Suomen päättäjiä. Poliisi tutkii tapauksia.
+Punkin kannattajat eli punkkarit kannattivat anarkiaa ja tottelemattomuutta. Se näkyi musiikissa, vaatteissa ja esimerkiksi hiuksissa.
 
-Halla-aho sanoo, että kansanedustajat tietävät, että asiaan pitää suhtautua rauhallisesti.
+Punk-liike tuli Suomeen 50 vuotta sitten.
 
-Kansanedustajien turvatoimia on lisätty.
+Punkin historiasta on näyttely Helsingissä Hakasalmen huvilassa. Näyttelyssä on musiikkia ja videoita.
 
-## Eläkkeet
+Siinä kerrotaan myös uudesta punk-sukupolvesta Suomessa.
 
-![Henkilö pitää kännykkää, jonka näytöllä on eläkelaskuri sekä sininen &quot;+2,6 %&quot; -merkintä oikealla puolella.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17269816adb45260f9fd/1792755028)
+## Tiistain sää
 
-Avaa kuvien katselu
+Vielä sääennuste.
 
-Ylen verkkosivuilla on kone, jolla voi laskea eläkkeen muutoksen. Kuva: Ilkka Kemppinen / Yle
+Sää on tiistaina pilvistä.
 
-Eläkkeet nousevat ensi vuonna.
+Vettä sataa vähän Lapissa ja idässä.
 
-Sosiaali- ja terveysministeriö vahvisti perjantaina, että työeläkeindeksi nousee ensi vuoden alussa 2,6 prosenttia.
+Sää on tuulista.
 
-Kansaneläke nousee 2,3 prosenttia.
+Lämpötila on noin 10 astetta.
 
-Korotusten syy on inflaatio. Se tarkoittaa, että hinnat ovat nousseet nopeammin kuin ennen. Polttoaineiden hinta on noussut paljon, ja se vaikuttaa moniin hintoihin.
-
-Veronmaksajain keskusliitto laskee, että korotus koskee eläkkeensaajia tasaisesti.
-
-Esimerkiksi 2 000 euron työeläke nousee noin 52 euroa kuukaudessa.
-
-Veroihin ei tule suuria muutoksia. Siksi korotus näkyy eläkeläisten tilillä.
-
-Eläkettä saa noin 1,6 miljoonaa suomalaista.
-
-## Selkosanomien palkitseminen
-
-![Selkosanomien päätoimittaja Petri Kiuttu kiittää lavalla Selkosanomien palkinnosta kirjamessuilla.](https://img.img-cdn.yle.fi/crop_extract,w_3463,h_1947,x_155,y_679/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17274896ade1366cc98b/1792939009)
-
-Avaa kuvien katselu
-
-Laatudigi-palkinnon otti vastaan Selkosanomien päätoimittaja Petri Kiuttu. Palkinnon saajan valitsi presidentti Tarja Halonen. Kuva: Helinä Ylisirniö
-
-Selkosanomat on voittanut *Vuoden laatudigi* -palkinnon. Se on palkinto, joka annetaan hyvälle nettilehdelle.
-
-Selkosanomat on selkokielinen nettilehti, jota julkaisee Selkokeskus.
-
-Palkinnon saajan valitsi presidentti **Tarja Halonen**.
-
-Halonen sanoo, että Selkosanomat tekee tärkeää työtä, koska se auttaa kaikkia ihmisiä ymmärtämään uutisia. Presidentti Halonen sanoo, että oikeus tietoon kuuluu kaikille ihmisille.
-
-Laatudigi-palkinto jaettiin Helsingin kirjamessuilla.
-
-Tämä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
+Lapissa on vähän viileämpää.

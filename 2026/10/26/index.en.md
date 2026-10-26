@@ -1,95 +1,67 @@
-# Newsweek in plain Finnish | Sunday 25.10.2026
+# Clear News | Monday 26.10.2026
 
-Information security breach. Domestic peace of MPs. Pensions. Rewarding whistleblowers.
+Serbian elections. Cheating in entrance exams. Punks. Weather
 
-Listen
+## Power is changing in Serbia
 
-You can read the news simultaneously below.
+First, news about the Serbian elections.
 
-## Security breach
+In Serbia, the student party has won the parliamentary elections.
 
-![A security bulletin appears on the computer screen, urging you to update PHP vulnerabilities.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_507/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17270016adb4993a8000/1792757938)
+Former President Aleksandar Vučić's party lost the election. The party ruled Serbia for 14 years.
 
-Open image viewer
+Many Serbians accused Vučić's administration of corruption. Students in Serbia organized many protests against the administration.
 
-The PHP programming language is common on websites. Photo: Jari Kovalainen / Yle
+Russia said before the elections that it would support Vučić's party.
 
-A security breach caused widespread shutdowns of websites in Finland this week.
+At night, many Serbians celebrated the election results on the streets of the capital, Belgrade.
 
-For example, the websites of the National Land Survey of Finland, the oikeus.fi service, the University of Jyväskylä and the Central Finland Welfare Region were down for several days.
+The Student Party won the Serbian parliamentary elections.
 
-The State Communications Technology Center closed the pages for safety reasons.
+Serbians voted in large numbers in the elections. There were long lines at polling stations.
 
-The cause of the security breach was a serious security vulnerability found in the PHP programming language, which is used on websites.
+## It's hard to cheat on entrance exams
 
-The vulnerability could affect up to 70 percent of the world's websites.
+Next, news about cheating on the entrance exam.
 
-Many organizations shut down websites around the world as a precaution.
+It is difficult to cheat on college entrance exams with the help of artificial intelligence.
 
-Organizations and companies need to update their website software.
+A Yle journalist tried cheating at Metropolia University of Applied Sciences. The journalist hid an artificial intelligence model in his computer and took the entrance exam. It wasn't a real entrance exam, but a test.
 
-It may take many weeks to fix all websites.
+The test revealed that exam invigilators can effectively prevent cheating attempts.
 
-## Domestic peace of MPs
+The reporter was unable to use artificial intelligence during an entrance exam. The computer locked up when it detected suspicious activity.
 
-![Speaker of the Parliament, Jussi Halla-aho, guest on the first morning.](https://img.img-cdn.yle.fi/crop_extract,w_6277,h_3526,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17272216adc66573176a/1792829574)
+It is difficult to cheat on college entrance exams with the help of artificial intelligence.
 
-Open image viewer
+Entrance exams are taken in the universities' own Vallu system. The system detects cheating and can prevent it.
 
-Yle interviewed the Speaker of the Parliament, Jussi Halla-aho, on Saturday. Photo: Mohamed El Bouari / Yle
+## Punks came 50 years ago
 
-Speaker of the Parliament **Jussi Halla-aho** was a guest on Yle's Ykkösaamu on Saturday.
+Finally, news about the punk movement.
 
-Halla-aho said that some MPs are very concerned about intrusions into MPs' homes.
+The punk movement came to Finland 50 years ago.
 
-There have been signs in the apartments of many MPs that someone has visited the apartment.
+Punk was a new youth culture. Many older people frowned upon it.
 
-The intruder could be, for example, an agent of a foreign state who wants to intimidate Finnish decision-makers. The police are investigating the cases.
+Punk fans, or punks, advocated anarchy and disobedience. This was reflected in their music, clothing, and, for example, their hair.
 
-Halla-aho says that MPs know that the matter must be approached calmly.
+The punk movement came to Finland 50 years ago.
 
-Security measures for MPs have been increased.
+There is an exhibition about the history of punk in the Hakasalmi villa in Helsinki. The exhibition includes music and videos.
 
-## Pensions
+It also tells about the new punk generation in Finland.
 
-![A person is holding a mobile phone with a pension calculator on the screen and a blue &quot;+2.6%&quot; marking on the right side.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17269816adb45260f9fd/1792755028)
+## Tuesday weather
 
-Open image viewer
+Still a weather forecast.
 
-There is a calculator on Yle's website that can be used to calculate pension changes. Photo: Ilkka Kemppinen / Yle
+The weather is cloudy on Tuesday.
 
-Pensions will increase next year.
+There is little rain in Lapland and the east.
 
-The Ministry of Social Affairs and Health confirmed on Friday that the earnings-related pension index will increase by 2.6 percent at the beginning of next year.
+The weather is windy.
 
-The national pension will increase by 2.3 percent.
+The temperature is about 10 degrees.
 
-The reason for the increases is inflation. This means that prices have risen faster than before. The price of fuel has risen a lot, and that affects many prices.
-
-The Finnish Taxpayers' Confederation calculates that the increase will affect pensioners equally.
-
-For example, an earnings-related pension of 2,000 euros will increase by approximately 52 euros per month.
-
-There will be no major changes to taxes, which is why the increase will be reflected in pensioners' accounts.
-
-Approximately 1.6 million Finns receive a pension.
-
-## Rewarding clarity
-
-![Selkosanomat editor-in-chief Petri Kiuttu thanks Selkosanomat for the award at the book fair on stage.](https://img.img-cdn.yle.fi/crop_extract,w_3463,h_1947,x_155,y_679/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17274896ade1366cc98b/1792939009)
-
-Open image viewer
-
-The Quality Digital Award was received by Petri Kiuttu, editor-in-chief of Selkosanomat. The recipient of the award was chosen by President Tarja Halonen. Photo: Helinä Ylisirniö
-
-Selkosanomat has won the *Quality Digital of the Year* award. It is an award given to a good online newspaper.
-
-Selkosanomat is a plain-language online newspaper published by Selkokeskus.
-
-The award recipient was chosen by President **Tarja Halonen**.
-
-Halonen says that Selkosanomat does important work because it helps all people understand the news. President Halonen says that the right to information belongs to all people.
-
-The Quality Digital Award was presented at the Helsinki Book Fair.
-
-This was Uutisviikko in plain Finnish. See you again, bye!
+It's a little cooler in Lapland.

@@ -1,5 +1,4 @@
 {
-   "format" : "text",
    "q" : [
       "# Selkouutiset | maanantai 26.10.2026",
       "",
@@ -69,6 +68,7 @@
       "",
       "Lapissa on vähän viileämpää."
    ],
-   "target" : "en",
-   "source" : "fi"
+   "source" : "fi",
+   "format" : "text",
+   "target" : "en"
 }

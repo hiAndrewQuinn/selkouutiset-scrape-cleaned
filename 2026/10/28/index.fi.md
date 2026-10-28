@@ -1,67 +1,69 @@
-# Selkouutiset | tiistai 27.10.2026
+# Selkouutiset | keskiviikko 28.10.2026
 
-Valtion säästöt. Luodin oikeudenkäynti. Eläinlääkärit. Sää
+Stubb ja Putin. Israelin vaalit. Ilmastonmuutos. Uusi päätoimittaja. Sää
 
-## Rahaministeriö ehdottaa isoja säästöjä
+## Stubb keskusteli Putinin kanssa puhelimessa
 
-Ensin uutinen valtion säästöistä.
+Ensin uutinen ulkopolitiikasta.
 
-Rahaministeriö esitteli eilen listan, jossa se ehdottaa säästöjä seuraavalle hallitukselle.
+Suomen presidentti **Alexander Stubb** keskusteli eilen puhelimessa Venäjän presidentin **Vladimir Putinin** kanssa. Presidentit keskustelivat Ukrainan rauhasta.
 
-Ministeriö ehdottaa esimerkiksi lapsilisien ja opintorahan lopettamista. Se ehdottaa myös verojen kiristämistä.
+Puhelu oli poikkeuksellinen. Euroopan maat eivät ole suostuneet keskustelemaan Putinin kanssa, koska Venäjä sotii Ukrainassa.
 
-Säästöehdotuksia on noin 400. Ministeriö sanoo, että kaikkia säästöjä ei tarvitse toteuttaa. Säästöjen pitää olla kuitenkin riittävän isoja.
+Stubb sanoi, että nyt oli oikea aika keskustella Putinin kanssa. Hän sanoi, että Ukraina oli toivonut keskustelua rauhasta.
 
-Rahaministeriö ehdottaa isoja säästöjä, koska Suomen valtiolla on liikaa velkaa.
+Myös Norjan pääministeri oli mukana keskustelussa.
 
-Myös eduskunnassa puolueet sopivat, että Suomi tavoittelee ainakin 8 miljardin euron säästöjä seuraavalla vaalikaudella. Sopimusta kutsutaan velkajarruksi.
+Presidentti Alexander Stubb keskusteli eilen puhelimessa Venäjän presidentin kanssa.
 
-Suomessa on eduskuntavaalit ensi keväänä, ja Suomi saa uuden hallituksen. Rahaministeriö ehdotti säästöjä seuraavalle hallitukselle.
+Tanskan ja Ruotsin pääministerit sanoivat, että he eivät tienneet keskustelusta. Tanskan pääministeri **Mette Frederiksen** piti sitä huonona asiana. Hän sanoi, että Euroopan maiden pitää toimia yhdessä.
 
-## Laulaja Mira Luodin oikeudenkäynti alkoi
+## Netanjahu sai kannatusta Israelin vaaleissa
 
-Seuraavaksi uutinen oikeudenkäynnistä.
+Seuraavaksi uutinen Israelin vaaleista.
 
-Tunnettu laulaja **Mira Luoti** sanoo, että hänet pakotettiin seksuaaliseen tekoon tv-ohjelman kuvauksissa.
+Israelin pääministeri **Benjamin Netanjahu** sai paljon kannatusta parlamenttivaaleissa.
 
-Luoti syyttää pakottamisesta vapaaottelija **Makwan Amirkhania**, joka oli mukana ohjelmassa.
+Vaalit olivat kuitenkin tasaiset.
 
-Oikeudenkäynti Amirkhania vastaan alkoi eilen.
+Netanjahun Likud-puolue ja muut oikeistopuolueet saavat yli 50 parlamenttipaikkaa.
 
-Luoti sanoo, että Amirkhan makasi hänen päällään ja masturboi, kun he nukkuivat samassa teltassa ohjelman kuvauksissa.
+**Gadi Eisenkotin** oppositioryhmä saa melkein 50 paikkaa. Parlamentissa on 120 paikkaa. Loput paikat menevät arabipuolueille. Äänestys oli vilkasta.
 
-Amirkhan sanoi oikeudessa, että se ei ole totta.
+Vaalit olivat ensimmäiset sen jälkeen, kun terroristijärjestö Hamas teki iskun Israeliin kolme vuotta sitten ja Israel aloitti sodan Gazassa.
 
-Julkkisselviytyjät-ohjelmaa kuvattiin vuonna 2016.
+## Ilmastopäästöt kasvoivat viime vuonna
 
-## Maaseudun eläinlääkäreistä pian pulaa
+Sitten uutinen ilmastonmuutoksesta.
 
-Lopuksi uutinen eläinlääkäreistä.
+Ilmastopäästöjen määrä kasvoi viime vuonna.
 
-Maatiloilla voi olla pian pulaa eläinlääkäreistä.
+Maapallon ilmakehässä oli paljon enemmän haitallisia kasvihuonekaasuja kuin aikaisemmin. Se lisää ilmastonmuutosta.
 
-Eläinlääkäreitä on vaikea saada maaseudulle, koska matkat ovat pitkiä. Työ maatiloilla on myös raskasta.
+Kasvihuonekaasut nostavat maapallon lämpötilaa ja aiheuttavat sään ääri-ilmiöitä. Esimerkiksi kovat helteet ja rankkasateet lisääntyvät.
 
-Pohjois-Savossa on hanke, jossa eläinlääkäriopiskelijat pääsevät tutustumaan tuotantoeläimiin. He tutustuvat esimerkiksi nautoihin.
+Ilmastopäästöjen määrä kasvoi viime vuonna.
 
-Opiskelijat kertovat, että tuotantoeläinten hoitaminen kiinnostaa:
+Yli sata ilmastotutkijaa sanoo uudessa raportissa, että ilmastonmuutos on hätätila.
 
-– Toistaiseksi ainakin on sellainen fiilis, et kiinnostais.
+## Krista Taubert on uusi päätoimittaja
 
-– Joo, muakin kiinnostaa ja varmaan aika vaihtelevaa.
+Kerromme lopuksi Ylen uutisten uudesta päätoimittajasta.
 
-Maatiloilla voi olla pian pulaa eläinlääkäreistä, koska työ on raskasta ja matkat ovat pitkiä.
+Uutisten ja urheilun vastaavaksi päätoimittajaksi on valittu **Krista Taubert**.
 
-Pohjois-Savon hankkeessa mietitään, miten työtä voidaan helpottaa.
+Edellinen päätoimittaja **Panu Pokkinen** kuoli yllättäen sairauskohtaukseen heinäkuussa.
 
-## Keskiviikon sää
+Krista Taubert oli virkaatekevä päätoimittaja Pokkisen kuoleman jälkeen.
+
+## Torstain sää
 
 Vielä sääennuste.
 
-Keskiviikkona on pilvistä.
+Torstaina sää on melko lämmintä.
 
-Suuressa osassa maata on sateista.
+Etelässä paistaa aurinko.
 
-Lämpötila on noin 10 astetta.
+Muualla maassa on pilvistä.
 
-Pohjoisessa on vähän kylmempää.
+Idässä ja lännessä voi sataa vähän vettä.

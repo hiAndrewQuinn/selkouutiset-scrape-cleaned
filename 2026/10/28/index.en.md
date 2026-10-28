@@ -1,67 +1,69 @@
-# Clear News | Tuesday 27.10.2026
+# Clear News | Wednesday 28.10.2026
 
-Government savings. Bullet trial. Veterinarians. Weather
+Stubb and Putin. Israeli elections. Climate change. New editor-in-chief. Weather
 
-## Ministry of Finance proposes big savings
+## Stubb spoke with Putin on the phone
 
-First, news about government savings.
+First, news about foreign policy.
 
-Yesterday, the Ministry of Finance presented a list of proposed savings for the next government.
+Finnish President **Alexander Stubb** spoke by phone with Russian President **Vladimir Putin** yesterday. The presidents discussed peace in Ukraine.
 
-The ministry proposes, for example, ending child benefits and student grants. It also proposes tightening taxes.
+The call was exceptional. European countries have not agreed to talk to Putin because Russia is at war in Ukraine.
 
-There are approximately 400 savings proposals. The ministry says that not all savings need to be implemented. However, the savings must be large enough.
+Stubb said that now was the right time to talk to Putin. He said that Ukraine had hoped for a discussion about peace.
 
-The Ministry of Finance is proposing major savings because the Finnish government has too much debt.
+The Norwegian Prime Minister also participated in the discussion.
 
-The parties in Parliament also agreed that Finland will aim for savings of at least 8 billion euros in the next election period. The agreement is called the debt brake.
+President Alexander Stubb spoke by phone with the Russian President yesterday.
 
-Finland will have parliamentary elections next spring, and a new government will be elected. The Ministry of Finance proposed savings for the next government.
+The prime ministers of Denmark and Sweden said they were unaware of the discussion. Danish Prime Minister **Mette Frederiksen** considered it a bad thing. She said that European countries must act together.
 
-## Singer Mira Luodi's trial begins
+## Netanyahu wins support in Israeli elections
 
-Next news about the trial.
+Next news about the Israeli elections.
 
-Well-known singer **Mira Luoti** says she was forced to perform a sexual act on the set of a TV show.
+Israeli Prime Minister **Benjamin Netanyahu** received a lot of support in the parliamentary elections.
 
-Luoti accuses freestyle wrestler **Makwan Amirkhan**, who was on the show, of coercion.
+However, the election was close.
 
-The trial against Amirkhan began yesterday.
+Netanyahu's Likud party and other right-wing parties will receive more than 50 parliamentary seats.
 
-Luoti says that Amirkhan lay on top of her and masturbated while they slept in the same tent during the filming of the show.
+**Gadi Eisenkot**'s opposition group will get almost 50 seats. There are 120 seats in parliament. The remaining seats will go to Arab parties. The voting was lively.
 
-Amirkhan said in court that it is not true.
+The elections were the first since the terrorist organization Hamas attacked Israel three years ago and Israel began the war in Gaza.
 
-The Celebrity Survivor program was filmed in 2016.
+## Climate emissions increased last year
 
-## Rural veterinarians will soon be in short supply
+Then the news about climate change.
 
-Finally, some news about veterinarians.
+The amount of climate emissions increased last year.
 
-There may soon be a shortage of veterinarians on farms.
+There were many more harmful greenhouse gases in the Earth's atmosphere than before. This is adding to climate change.
 
-It is difficult to get veterinarians to rural areas because the journeys are long. The work on farms is also hard.
+Greenhouse gases are raising global temperatures and causing extreme weather events, such as intense heat waves and heavy rains.
 
-There is a project in North Savo where veterinary students get to learn about farm animals. They get to know cattle, for example.
+The amount of climate emissions increased last year.
 
-Students say that caring for farm animals interests them:
+More than a hundred climate scientists say in a new report that climate change is an emergency.
 
-– So far, at least I have a feeling that you're not interested.
+## Krista Taubert is the new editor-in-chief
 
-– Yes, I'm interested too and it's probably quite varied.
+Finally, we will tell you about the new editor-in-chief of Yle news.
 
-There may soon be a shortage of veterinarians on farms because the work is hard and the journeys are long.
+**Krista Taubert** has been selected as the editor-in-chief for news and sports.
 
-The North Savo project is considering how to make the work easier.
+The previous editor-in-chief **Panu Pokkinen** died suddenly of a heart attack in July.
 
-## Wednesday's weather
+Krista Taubert was acting editor-in-chief after Pokkinen's death.
+
+## Thursday's weather
 
 Still a weather forecast.
 
-It will be cloudy on Wednesday.
+The weather will be quite warm on Thursday.
 
-It is rainy in much of the country.
+The sun is shining in the south.
 
-The temperature is about 10 degrees.
+It is cloudy elsewhere in the country.
 
-It's a little colder in the north.
+There may be some rain in the east and west.

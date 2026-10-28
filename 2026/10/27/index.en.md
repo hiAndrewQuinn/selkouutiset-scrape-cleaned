@@ -1,67 +1,67 @@
-# Clear News | Monday 26.10.2026
+# Clear News | Tuesday 27.10.2026
 
-Serbian elections. Cheating in entrance exams. Punks. Weather
+Government savings. Bullet trial. Veterinarians. Weather
 
-## Power is changing in Serbia
+## Ministry of Finance proposes big savings
 
-First, news about the Serbian elections.
+First, news about government savings.
 
-In Serbia, the student party has won the parliamentary elections.
+Yesterday, the Ministry of Finance presented a list of proposed savings for the next government.
 
-Former President Aleksandar Vučić's party lost the election. The party ruled Serbia for 14 years.
+The ministry proposes, for example, ending child benefits and student grants. It also proposes tightening taxes.
 
-Many Serbians accused Vučić's administration of corruption. Students in Serbia organized many protests against the administration.
+There are approximately 400 savings proposals. The ministry says that not all savings need to be implemented. However, the savings must be large enough.
 
-Russia said before the elections that it would support Vučić's party.
+The Ministry of Finance is proposing major savings because the Finnish government has too much debt.
 
-At night, many Serbians celebrated the election results on the streets of the capital, Belgrade.
+The parties in Parliament also agreed that Finland will aim for savings of at least 8 billion euros in the next election period. The agreement is called the debt brake.
 
-The Student Party won the Serbian parliamentary elections.
+Finland will have parliamentary elections next spring, and a new government will be elected. The Ministry of Finance proposed savings for the next government.
 
-Serbians voted in large numbers in the elections. There were long lines at polling stations.
+## Singer Mira Luodi's trial begins
 
-## It's hard to cheat on entrance exams
+Next news about the trial.
 
-Next, news about cheating on the entrance exam.
+Well-known singer **Mira Luoti** says she was forced to perform a sexual act on the set of a TV show.
 
-It is difficult to cheat on college entrance exams with the help of artificial intelligence.
+Luoti accuses freestyle wrestler **Makwan Amirkhan**, who was on the show, of coercion.
 
-A Yle journalist tried cheating at Metropolia University of Applied Sciences. The journalist hid an artificial intelligence model in his computer and took the entrance exam. It wasn't a real entrance exam, but a test.
+The trial against Amirkhan began yesterday.
 
-The test revealed that exam invigilators can effectively prevent cheating attempts.
+Luoti says that Amirkhan lay on top of her and masturbated while they slept in the same tent during the filming of the show.
 
-The reporter was unable to use artificial intelligence during an entrance exam. The computer locked up when it detected suspicious activity.
+Amirkhan said in court that it is not true.
 
-It is difficult to cheat on college entrance exams with the help of artificial intelligence.
+The Celebrity Survivor program was filmed in 2016.
 
-Entrance exams are taken in the universities' own Vallu system. The system detects cheating and can prevent it.
+## Rural veterinarians will soon be in short supply
 
-## Punks came 50 years ago
+Finally, some news about veterinarians.
 
-Finally, news about the punk movement.
+There may soon be a shortage of veterinarians on farms.
 
-The punk movement came to Finland 50 years ago.
+It is difficult to get veterinarians to rural areas because the journeys are long. The work on farms is also hard.
 
-Punk was a new youth culture. Many older people frowned upon it.
+There is a project in North Savo where veterinary students get to learn about farm animals. They get to know cattle, for example.
 
-Punk fans, or punks, advocated anarchy and disobedience. This was reflected in their music, clothing, and, for example, their hair.
+Students say that caring for farm animals interests them:
 
-The punk movement came to Finland 50 years ago.
+– So far, at least I have a feeling that you're not interested.
 
-There is an exhibition about the history of punk in the Hakasalmi villa in Helsinki. The exhibition includes music and videos.
+– Yes, I'm interested too and it's probably quite varied.
 
-It also tells about the new punk generation in Finland.
+There may soon be a shortage of veterinarians on farms because the work is hard and the journeys are long.
 
-## Tuesday weather
+The North Savo project is considering how to make the work easier.
+
+## Wednesday's weather
 
 Still a weather forecast.
 
-The weather is cloudy on Tuesday.
+It will be cloudy on Wednesday.
 
-There is little rain in Lapland and the east.
-
-The weather is windy.
+It is rainy in much of the country.
 
 The temperature is about 10 degrees.
 
-It's a little cooler in Lapland.
+It's a little colder in the north.

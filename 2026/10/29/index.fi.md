@@ -1,0 +1,69 @@
+# Selkouutiset | keskiviikko 28.10.2026
+
+Stubb ja Putin. Israelin vaalit. Ilmastonmuutos. Uusi päätoimittaja. Sää
+
+## Stubb keskusteli Putinin kanssa puhelimessa
+
+Ensin uutinen ulkopolitiikasta.
+
+Suomen presidentti **Alexander Stubb** keskusteli eilen puhelimessa Venäjän presidentin **Vladimir Putinin** kanssa. Presidentit keskustelivat Ukrainan rauhasta.
+
+Puhelu oli poikkeuksellinen. Euroopan maat eivät ole suostuneet keskustelemaan Putinin kanssa, koska Venäjä sotii Ukrainassa.
+
+Stubb sanoi, että nyt oli oikea aika keskustella Putinin kanssa. Hän sanoi, että Ukraina oli toivonut keskustelua rauhasta.
+
+Myös Norjan pääministeri oli mukana keskustelussa.
+
+Presidentti Alexander Stubb keskusteli eilen puhelimessa Venäjän presidentin kanssa.
+
+Tanskan ja Ruotsin pääministerit sanoivat, että he eivät tienneet keskustelusta. Tanskan pääministeri **Mette Frederiksen** piti sitä huonona asiana. Hän sanoi, että Euroopan maiden pitää toimia yhdessä.
+
+## Netanjahu sai kannatusta Israelin vaaleissa
+
+Seuraavaksi uutinen Israelin vaaleista.
+
+Israelin pääministeri **Benjamin Netanjahu** sai paljon kannatusta parlamenttivaaleissa.
+
+Vaalit olivat kuitenkin tasaiset.
+
+Netanjahun Likud-puolue ja muut oikeistopuolueet saavat yli 50 parlamenttipaikkaa.
+
+**Gadi Eisenkotin** oppositioryhmä saa melkein 50 paikkaa. Parlamentissa on 120 paikkaa. Loput paikat menevät arabipuolueille. Äänestys oli vilkasta.
+
+Vaalit olivat ensimmäiset sen jälkeen, kun terroristijärjestö Hamas teki iskun Israeliin kolme vuotta sitten ja Israel aloitti sodan Gazassa.
+
+## Ilmastopäästöt kasvoivat viime vuonna
+
+Sitten uutinen ilmastonmuutoksesta.
+
+Ilmastopäästöjen määrä kasvoi viime vuonna.
+
+Maapallon ilmakehässä oli paljon enemmän haitallisia kasvihuonekaasuja kuin aikaisemmin. Se lisää ilmastonmuutosta.
+
+Kasvihuonekaasut nostavat maapallon lämpötilaa ja aiheuttavat sään ääri-ilmiöitä. Esimerkiksi kovat helteet ja rankkasateet lisääntyvät.
+
+Ilmastopäästöjen määrä kasvoi viime vuonna.
+
+Yli sata ilmastotutkijaa sanoo uudessa raportissa, että ilmastonmuutos on hätätila.
+
+## Krista Taubert on uusi päätoimittaja
+
+Kerromme lopuksi Ylen uutisten uudesta päätoimittajasta.
+
+Uutisten ja urheilun vastaavaksi päätoimittajaksi on valittu **Krista Taubert**.
+
+Edellinen päätoimittaja **Panu Pokkinen** kuoli yllättäen sairauskohtaukseen heinäkuussa.
+
+Krista Taubert oli virkaatekevä päätoimittaja Pokkisen kuoleman jälkeen.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Torstaina sää on melko lämmintä.
+
+Etelässä paistaa aurinko.
+
+Muualla maassa on pilvistä.
+
+Idässä ja lännessä voi sataa vähän vettä.

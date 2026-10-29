@@ -1,69 +1,61 @@
-# Clear News | Wednesday 28.10.2026
+# Clear News | Thursday 29.10.2026
 
-Stubb and Putin. Israeli elections. Climate change. New editor-in-chief. Weather
+Violence in daycare centers. Winter speeds. Saimaa ringed seals. Weather.
 
-## Stubb spoke with Putin on the phone
+## Violence in daycare centers
 
-First, news about foreign policy.
+Initially, the topic is working conditions in daycare centers.
 
-Finnish President **Alexander Stubb** spoke by phone with Russian President **Vladimir Putin** yesterday. The presidents discussed peace in Ukraine.
+Violence in daycare centers is a big problem.
 
-The call was exceptional. European countries have not agreed to talk to Putin because Russia is at war in Ukraine.
+For example, in Tampere, employees have reported over a thousand times this year that a child has behaved violently.
 
-Stubb said that now was the right time to talk to Putin. He said that Ukraine had hoped for a discussion about peace.
+The number of notifications has multiplied in recent years.
 
-The Norwegian Prime Minister also participated in the discussion.
+For example, children have kicked, hit and pulled employees' hair.
 
-President Alexander Stubb spoke by phone with the Russian President yesterday.
+Violence can cause injuries and fear for employees.
 
-The prime ministers of Denmark and Sweden said they were unaware of the discussion. Danish Prime Minister **Mette Frederiksen** considered it a bad thing. She said that European countries must act together.
+Occupational Safety and Health Commissioner **Petri Vuorio:**
 
-## Netanyahu wins support in Israeli elections
+\- There have been reports of people being beaten with a pen, scissors, or a fork. In other words, very serious violence.
 
-Next news about the Israeli elections.
+Daycare workers face violence almost daily.
 
-Israeli Prime Minister **Benjamin Netanyahu** received a lot of support in the parliamentary elections.
+Occupational Safety and Health Commissioner Petri Vuorio says that more adults are needed in children's groups.
 
-However, the election was close.
+## Winter speeds
 
-Netanyahu's Likud party and other right-wing parties will receive more than 50 parliamentary seats.
+Then information for motorists.
 
-**Gadi Eisenkot**'s opposition group will get almost 50 seats. There are 120 seats in parliament. The remaining seats will go to Arab parties. The voting was lively.
+Finnish roads will switch to winter speeds this week.
 
-The elections were the first since the terrorist organization Hamas attacked Israel three years ago and Israel began the war in Gaza.
+This means that car speed limits will be reduced during the winter months.
 
-## Climate emissions increased last year
+The speed limit on most roads is 80 kilometers per hour. On motorways, the maximum speed limit is 100 kilometers per hour.
 
-Then the news about climate change.
+Winter speeds will be implemented this week.
 
-The amount of climate emissions increased last year.
+The aim of lowering speed limits is to improve traffic safety.
 
-There were many more harmful greenhouse gases in the Earth's atmosphere than before. This is adding to climate change.
+## Saimaa ringed seals
 
-Greenhouse gases are raising global temperatures and causing extreme weather events, such as intense heat waves and heavy rains.
+Then there's good news about the Saimaa ringed seal.
 
-The amount of climate emissions increased last year.
+The number of Saimaa ringed seals has increased slightly.
 
-More than a hundred climate scientists say in a new report that climate change is an emergency.
+Metsähallitus says that there are probably around 545 Saimaa seals living in Lake Saimaa now. That is 15 more than last year.
 
-## Krista Taubert is the new editor-in-chief
+Although the number of ringed seals has increased, the Saimaa ringed seal is still an endangered species.
 
-Finally, we will tell you about the new editor-in-chief of Yle news.
+Mild winters with little snow hinder ringed seals' nesting. Ringed seals also die in fishing gear.
 
-**Krista Taubert** has been selected as the editor-in-chief for news and sports.
-
-The previous editor-in-chief **Panu Pokkinen** died suddenly of a heart attack in July.
-
-Krista Taubert was acting editor-in-chief after Pokkinen's death.
-
-## Thursday's weather
+## Friday weather
 
 Still a weather forecast.
 
-The weather will be quite warm on Thursday.
+On Friday, it will be cloudy in the north and west, meaning there will be no rain.
 
-The sun is shining in the south.
+There will be little rain or drizzle in the south and east.
 
-It is cloudy elsewhere in the country.
-
-There may be some rain in the east and west.
+The daytime temperature varies between about +5 degrees in the north and about +10 degrees in the south.

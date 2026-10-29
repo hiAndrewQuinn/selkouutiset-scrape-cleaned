@@ -1,6 +1,7 @@
 {
-   "target" : "en",
    "format" : "text",
+   "source" : "fi",
+   "target" : "en",
    "q" : [
       "# Selkouutiset | keskiviikko 28.10.2026",
       "",
@@ -71,6 +72,5 @@
       "Muualla maassa on pilvistä.",
       "",
       "Idässä ja lännessä voi sataa vähän vettä."
-   ],
-   "source" : "fi"
+   ]
 }

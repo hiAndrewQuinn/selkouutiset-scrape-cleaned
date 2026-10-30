@@ -18,7 +18,7 @@ Violence can cause injuries and fear for employees.
 
 Occupational Safety and Health Commissioner **Petri Vuorio:**
 
-\- There have been reports of people being beaten with a pen, scissors, or a fork. In other words, very serious violence.
+\- There have been reports of people being beaten with pens, scissors, and forks. In other words, very serious violence.
 
 Daycare workers face violence almost daily.
 

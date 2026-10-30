@@ -1,7 +1,7 @@
 {
-   "format" : "text",
-   "target" : "en",
    "source" : "fi",
+   "target" : "en",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | torstai 29.10.2026",
       "",

@@ -1,61 +1,67 @@
-# Clear News | Thursday 29.10.2026
+# Clear News | Friday 30.10.2026
 
-Violence in daycare centers. Winter speeds. Saimaa ringed seals. Weather.
+Google. STT. Rice pies. All Saints' Day. Weather.
 
-## Violence in daycare centers
+## Police are investigating Google
 
-Initially, the topic is working conditions in daycare centers.
+First, news about the police investigation.
 
-Violence in daycare centers is a big problem.
+The police are investigating whether the environment was damaged at the Google data center construction site in Muhos.
 
-For example, in Tampere, employees have reported over a thousand times this year that a child has behaved violently.
+The crime code for the police investigation is environmental degradation.
 
-The number of notifications has multiplied in recent years.
+The police have received several requests to investigate Google's actions in Muhos.
 
-For example, children have kicked, hit and pulled employees' hair.
+Google cut down hundreds of hectares of forest in the area where it plans to build a data center.
 
-Violence can cause injuries and fear for employees.
+However, the law states that forests cannot be cut down until an environmental impact assessment has been carried out in the area.
 
-Occupational Safety and Health Commissioner **Petri Vuorio:**
+The evaluation is still ongoing in Muhos.
 
-\- There have been reports of people being beaten with pens, scissors, and forks. In other words, very serious violence.
+## BTI
 
-Daycare workers face violence almost daily.
+Then news from the media industry.
 
-Occupational Safety and Health Commissioner Petri Vuorio says that more adults are needed in children's groups.
+The news operations of the Finnish Information Agency, or STT, are ending.
 
-## Winter speeds
+STT will cease operations in March. Almost 90 people will be left without work.
 
-Then information for motorists.
+STT's finances have been poor for a long time.
 
-Finnish roads will switch to winter speeds this week.
+When STT ceases to operate, Finland will be left without its own national news agency, which is rare in Western countries.
 
-This means that car speed limits will be reduced during the winter months.
+## Rice cakes
 
-The speed limit on most roads is 80 kilometers per hour. On motorways, the maximum speed limit is 100 kilometers per hour.
+Then we'll talk about food.
 
-Winter speeds will be implemented this week.
+Finns eat more rice pies than before.
 
-The aim of lowering speed limits is to improve traffic safety.
+Rice cakes are popular because they are easy to buy at the store for a snack or lunch.
 
-## Saimaa ringed seals
+The growing popularity of rice cakes is also visible in bakeries.
 
-Then there's good news about the Saimaa ringed seal.
+For example, Fazer's bakery in Lappeenranta produced a total of 152 million pies last year.
 
-The number of Saimaa ringed seals has increased slightly.
+The bakery says that sales of rice pies have been growing for a couple of years now, as Finns are eating more snacks than before.
 
-Metsähallitus says that there are probably around 545 Saimaa seals living in Lake Saimaa now. That is 15 more than last year.
+Rice pie was originally a festive dish that was developed in Eastern Finland in the 17th and 18th centuries.
 
-Although the number of ringed seals has increased, the Saimaa ringed seal is still an endangered species.
+## All Saints' Day
 
-Mild winters with little snow hinder ringed seals' nesting. Ringed seals also die in fishing gear.
+More news about tomorrow's holiday.
 
-## Friday weather
+Tomorrow, Saturday, All Saints' Day is celebrated in Finland.
+
+On All Saints' Day, we remember loved ones who have already died.
+
+Tradition includes taking candles to graves.
+
+## Saturday weather
 
 Still a weather forecast.
 
-On Friday, it will be cloudy in the north and west, meaning there will be no rain.
+On Saturday, the weather will be mostly sunny, meaning it won't rain. The day will be cloudy.
 
-There will be little rain or drizzle in the south and east.
+Temperatures vary between 2-9 degrees.
 
-The daytime temperature varies between about +5 degrees in the north and about +10 degrees in the south.
+The wind is weak.

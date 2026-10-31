@@ -1,0 +1,81 @@
+# News of the week in plain Finnish | Saturday 31.10.2026
+
+Call from the leaders of Finland and Norway to the President of Russia
+
+Listen
+
+You can read the news simultaneously below.
+
+## Introducing the topic of the week
+
+This time, the topic of the program is the call between the leaders of Finland and Norway to the President of Russia.
+
+Finnish President **Alexander Stubb** and Norwegian Prime Minister **Jonas Gahr Støre** called Russian President **Vladimir Putin**.
+
+Other Nordic countries have criticized the call.
+
+We will now tell you why the leaders called Putin and what was said about the call.
+
+![Photo collage featuring Vladimir Putin, Alexander Stubb and Jonas Gahr Støre. ](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1078,x_2,y_76/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17283906ae07b89eb788/1793096706)
+
+Open image viewer
+
+Pictured are Russian President Vladimir Putin, Finnish President Alexander Stubb and Norwegian Prime Minister Jonas Gahr Støre. They talked for about 1.5 hours. Photo: Gavriil Grigorov / EPA, Jukka Lehto / Yle, Lauri Karo / Yle
+
+## Purpose of the call
+
+Stubb and Støre called Putin last Tuesday, October 27. The call lasted approximately one and a half (1.5) hours.
+
+Stubb says that the call was prepared together with Ukraine and the US. The purpose was to convey Ukraine's messages to Putin.
+
+Stubb and Støre said they represented Finland and Norway on the call. They did not represent all of Europe.
+
+After the call, they reported the conversation to Ukrainian President **Volodymyr Zelensky**. Zelensky thanked them.
+
+Stubb says that he and Støre feared that the peace talks were in danger. They wanted to help the negotiations continue.
+
+Stubb reminds us that Finland and Norway are Russia's neighbors.
+
+The conversation focused on whether military actions could be limited. In particular, energy production and power plants were discussed.
+
+## Denmark review
+
+Danish Prime Minister **Mette Frederiksen** criticized the call. She questioned what the call would achieve. Frederiksen also said that the call was not planned together with other European countries.
+
+Swedish Prime Minister **Ulf Kristersson** said he was not informed of the call in advance.
+
+Stubb, on the other hand, says that all Nordic countries and key allies were informed about the call beforehand. Stubb says that they were also told afterwards what was discussed in the call.
+
+![A person is standing indoors.](https://img.img-cdn.yle.fi/crop_extract,w_1860,h_1046,x_0,y_28/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17290436ae1cbc487e7d/1793182983)
+
+Open image viewer
+
+Danish Prime Minister Mette Frederiksen doubted what the call would achieve. Photo: Tiina Jutila / Yle
+
+## Advantages or disadvantages of the call
+
+Experts assessed that the call had both benefits and risks.
+
+Professor **Markku Kangaspuro** says that it was important to open a dialogue with Russia, but Russia may still think that the phone call was a small victory for Russia.
+
+Researcher **Timo Miettinen** says that the impact of the phone call on the war and peace negotiations is still unclear. Miettinen estimates that many Europeans may not find the phone call to be of much use.
+
+History professor **Juhana Aunesluoma** estimates that we are only now beginning to gauge where the discussions will lead.
+
+![Juhana Aunesluoma, Professor of Political History at the University of Helsinki.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1569113693c3f254d616/1765556161)
+
+Open image viewer
+
+Juhana Aunesluoma, professor of political history at the University of Helsinki, estimates that the significance of the telephone conversation will be seen later. Photo: Thomas Hagström / Yle
+
+## Repetition
+
+The topic of the week's news was the phone call between the leaders of Finland and Norway to the Russian president.
+
+The leaders conveyed Ukraine's messages to Russia and wanted to help the peace talks continue.
+
+The call sparked criticism, especially in Denmark.
+
+It is not yet known how much benefit the call will have.
+
+This was the news of the week in plain Finnish. See you again, bye!

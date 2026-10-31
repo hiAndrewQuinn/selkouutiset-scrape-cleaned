@@ -1,67 +1,81 @@
-# Clear News | Friday 30.10.2026
+# News of the week in plain Finnish | Saturday 31.10.2026
 
-Google. STT. Rice pies. All Saints' Day. Weather.
+Call from the leaders of Finland and Norway to the President of Russia
 
-## Police are investigating Google
+Listen
 
-First, news about the police investigation.
+You can read the news simultaneously below.
 
-The police are investigating whether the environment was damaged at the Google data center construction site in Muhos.
+## Introducing the topic of the week
 
-The crime code for the police investigation is environmental degradation.
+This time, the topic of the program is the call between the leaders of Finland and Norway to the President of Russia.
 
-The police have received several requests to investigate Google's actions in Muhos.
+Finnish President **Alexander Stubb** and Norwegian Prime Minister **Jonas Gahr Støre** called Russian President **Vladimir Putin**.
 
-Google cut down hundreds of hectares of forest in the area where it plans to build a data center.
+Other Nordic countries have criticized the call.
 
-However, the law states that forests cannot be cut down until an environmental impact assessment has been carried out in the area.
+We will now tell you why the leaders called Putin and what was said about the call.
 
-The evaluation is still ongoing in Muhos.
+![Photo collage featuring Vladimir Putin, Alexander Stubb and Jonas Gahr Støre. ](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1078,x_2,y_76/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17283906ae07b89eb788/1793096706)
 
-## BTI
+Open image viewer
 
-Then news from the media industry.
+Pictured are Russian President Vladimir Putin, Finnish President Alexander Stubb and Norwegian Prime Minister Jonas Gahr Støre. They talked for about 1.5 hours. Photo: Gavriil Grigorov / EPA, Jukka Lehto / Yle, Lauri Karo / Yle
 
-The news operations of the Finnish Information Agency, or STT, are ending.
+## Purpose of the call
 
-STT will cease operations in March. Almost 90 people will be left without work.
+Stubb and Støre called Putin last Tuesday, October 27. The call lasted approximately one and a half (1.5) hours.
 
-STT's finances have been poor for a long time.
+Stubb says that the call was prepared together with Ukraine and the US. The purpose was to convey Ukraine's messages to Putin.
 
-When STT ceases to operate, Finland will be left without its own national news agency, which is rare in Western countries.
+Stubb and Støre said they represented Finland and Norway on the call. They did not represent all of Europe.
 
-## Rice cakes
+After the call, they reported the conversation to Ukrainian President **Volodymyr Zelensky**. Zelensky thanked them.
 
-Then we'll talk about food.
+Stubb says that he and Støre feared that the peace talks were in danger. They wanted to help the negotiations continue.
 
-Finns eat more rice pies than before.
+Stubb reminds us that Finland and Norway are Russia's neighbors.
 
-Rice cakes are popular because they are easy to buy at the store for a snack or lunch.
+The conversation focused on whether military actions could be limited. In particular, energy production and power plants were discussed.
 
-The growing popularity of rice cakes is also visible in bakeries.
+## Denmark review
 
-For example, Fazer's bakery in Lappeenranta produced a total of 152 million pies last year.
+Danish Prime Minister **Mette Frederiksen** criticized the call. She questioned what the call would achieve. Frederiksen also said that the call was not planned together with other European countries.
 
-The bakery says that sales of rice pies have been growing for a couple of years now, as Finns are eating more snacks than before.
+Swedish Prime Minister **Ulf Kristersson** said he was not informed of the call in advance.
 
-Rice pie was originally a festive dish that was developed in Eastern Finland in the 17th and 18th centuries.
+Stubb, on the other hand, says that all Nordic countries and key allies were informed about the call beforehand. Stubb says that they were also told afterwards what was discussed in the call.
 
-## All Saints' Day
+![A person is standing indoors.](https://img.img-cdn.yle.fi/crop_extract,w_1860,h_1046,x_0,y_28/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17290436ae1cbc487e7d/1793182983)
 
-More news about tomorrow's holiday.
+Open image viewer
 
-Tomorrow, Saturday, All Saints' Day is celebrated in Finland.
+Danish Prime Minister Mette Frederiksen doubted what the call would achieve. Photo: Tiina Jutila / Yle
 
-On All Saints' Day, we remember loved ones who have already died.
+## Advantages or disadvantages of the call
 
-Tradition includes taking candles to graves.
+Experts assessed that the call had both benefits and risks.
 
-## Saturday weather
+Professor **Markku Kangaspuro** says that it was important to open a dialogue with Russia, but Russia may still think that the phone call was a small victory for Russia.
 
-Still a weather forecast.
+Researcher **Timo Miettinen** says that the impact of the phone call on the war and peace negotiations is still unclear. Miettinen estimates that many Europeans may not find the phone call to be of much use.
 
-On Saturday, the weather will be mostly sunny, meaning it won't rain. The day will be cloudy.
+History professor **Juhana Aunesluoma** estimates that we are only now beginning to gauge where the discussions will lead.
 
-Temperatures vary between 2-9 degrees.
+![Juhana Aunesluoma, Professor of Political History at the University of Helsinki.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1569113693c3f254d616/1765556161)
 
-The wind is weak.
+Open image viewer
+
+Juhana Aunesluoma, professor of political history at the University of Helsinki, estimates that the significance of the telephone conversation will be seen later. Photo: Thomas Hagström / Yle
+
+## Repetition
+
+The topic of the week's news was the phone call between the leaders of Finland and Norway to the Russian president.
+
+The leaders conveyed Ukraine's messages to Russia and wanted to help the peace talks continue.
+
+The call sparked criticism, especially in Denmark.
+
+It is not yet known how much benefit the call will have.
+
+This was the news of the week in plain Finnish. See you again, bye!

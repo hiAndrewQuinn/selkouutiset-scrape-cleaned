@@ -1,67 +1,81 @@
-# Selkouutiset | perjantai 30.10.2026
+# Viikon uutinen selkosuomeksi | lauantai 31.10.2026
 
-Google. STT. Riisipiirakat. Pyhäinpäivä. Sää.
+Suomen ja Norjan johtajien puhelu Venäjän presidentille
 
-## Poliisi tutkii Googlea
+Kuuntele
 
-Aluksi uutinen poliisitutkinnasta.
+Voit lukea uutiset samanaikaisesti alta.
 
-Poliisi tutkii, onko Googlen datakeskustyömaalla Muhoksella vahingoitettu ympäristöä.
+## Viikon aiheen esittely
 
-Poliisitutkinnan rikosnimike on ympäristön turmeleminen.
+Ohjelman aihe on tällä kertaa Suomen ja Norjan johtajien puhelu Venäjän presidentille.
 
-Poliisi on saanut useita tutkintapyyntöjä Googlen toimista Muhoksella.
+Suomen presidentti **Alexander Stubb** ja Norjan pääministeri **Jonas Gahr Støre** soittivat Venäjän presidentille **Vladimir Putinille**.
 
-Google hakkasi satoja hehtaareja metsää alueella, jonne se aikoo rakentaa datakeskuksen.
+Muut Pohjoismaat ovat arvostelleet puhelua.
 
-Laki kuitenkin sanoo, että metsää ei saa hakata, ennen kuin alueella on tehty ympäristövaikutusten arviointi.
+Kerromme nyt, miksi johtajat soittivat Putinille ja mitä puhelusta on sanottu.
 
-Arviointi on Muhoksella vielä kesken.
+![Kuvakooste, jossa on Vladimir Putin, Alexander Stubb ja Jonas Gahr Støre. ](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1078,x_2,y_76/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17283906ae07b89eb788/1793096706)
 
-## STT
+Avaa kuvien katselu
 
-Sitten uutinen media-alalta.
+ Kuvassa ovat Venäjän presidentti Vladimir Putin, Suomen presidentti Alexander Stubb ja Norjan pääministeri Jonas Gahr Støre. He keskustelivat noin 1,5 tuntia. Kuva: Gavriil Grigorov / EPA, Jukka Lehto / Yle, Lauri Karo / Yle
 
-Suomen Tietotoimiston eli STT:n uutistoiminta loppuu.
+## Puhelun tarkoitus
 
-STT:n toiminta loppuu maaliskuussa. Ilman työtä jää melkein 90 ihmistä.
+Stubb ja Støre soittivat Putinille viime tiistaina 27. lokakuuta. Puhelu kesti noin puolitoista (1,5) tuntia.
 
-STT:n talous on ollut huono jo pitkään.
+Stubb kertoo, että puhelua valmisteltiin yhdessä Ukrainan ja USA:n kanssa. Tarkoitus oli välittää Putinille Ukrainan viestejä.
 
-Kun STT:n toiminta loppuu, Suomi jää ilman omaa kansallista uutistoimistoa. Se on länsimaissa harvinaista.
+Stubb ja Støre sanoivat, että he edustivat puhelussa Suomea ja Norjaa. He eivät edustaneet koko Eurooppaa.
 
-## Riisipiirakat
+Puhelun jälkeen he kertoivat keskustelusta Ukrainan presidentille **Volodymyr Zelenskyille**. Zelenskyi kiitti heitä.
 
-Sitten puhumme ruoasta.
+Stubb kertoo, että hän ja Støre pelkäsivät, että rauhanneuvottelut olivat vaarassa. He halusivat auttaa neuvotteluja jatkumaan.
 
-Suomalaiset syövät riisipiirakoita enemmän kuin ennen.
+Stubb muistuttaa, että Suomi ja Norja ovat Venäjän rajanaapureita.
 
-Riisipiirakat ovat suosittuja, koska niitä on helppo ostaa kaupasta välipalaksi tai lounaaksi.
+Puhelussa puhuttiin siitä, voiko sotatoimia rajoittaa. Erityisesti puhuttiin energiantuotannosta ja voimalaitoksista.
 
-Riisipiirakoiden suosion kasvu näkyy myös leipomoissa.
+## Tanskan arvostelu
 
-Esimerkiksi Fazerin leipomossa Lappeenrannassa valmistettiin viime vuonna yhteensä 152 miljoonaa piirakkaa.
+Tanskan pääministeri **Mette Frederiksen** arvosteli puhelua. Hän epäili, mitä puhelulla saavutetaan. Frederiksen sanoi myös, ettei puhelua suunniteltu yhdessä muiden Euroopan maiden kanssa.
 
-Leipomo kertoo, että riisipiirakoiden myynti on kasvanut jo pari vuotta, sillä suomalaiset syövät välipaloja enemmän kuin ennen.
+Ruotsin pääministeri **Ulf Kristersson** kertoi, ettei hän saanut tietoa puhelusta etukäteen.
 
-Riisipiirakka oli alun perin juhlaruoka, joka kehitettiin Itä-Suomessa 1600-1700-luvuilla.
+Stubb taas sanoo, että kaikille Pohjoismaille ja tärkeimmille liittolaisille kerrottiin puhelusta ennen sitä. Stubb sanoo, että heille kerrottiin myös jälkeenpäin, mitä puhelussa puhuttiin.
 
-## Pyhäinpäivä
+![Henkilö seisoo sisätilassa.](https://img.img-cdn.yle.fi/crop_extract,w_1860,h_1046,x_0,y_28/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17290436ae1cbc487e7d/1793182983)
 
-Vielä uutinen huomisesta pyhäpäivästä.
+Avaa kuvien katselu
 
-Suomessa vietetään huomenna lauantaina pyhäinpäivää.
+Tanskan pääministeri Mette Frederiksen epäili, mitä puhelulla saavutetaan. Kuva: Tiina Jutila / Yle
 
-Pyhäinpäivänä muistetaan läheisiä, jotka ovat jo kuolleet.
+## Puhelun hyödyt tai haitat
 
-Perinteisiin kuuluu viedä kynttilöitä haudoille.
+Asiantuntijat arvioivat, että puhelussa oli sekä hyötyjä että riskejä.
 
-## Lauantain sää
+Professori **Markku Kangaspuro** sanoo, että oli tärkeää avata keskusteluyhteys Venäjään, mutta Venäjä voi kuitenkin ajatella, että puhelu oli Venäjälle pieni voitto.
 
-Vielä sääennuste.
+Tutkija **Timo Miettinen** sanoo, että puhelun vaikutus sotaan ja rauhanneuvotteluihin on vielä epäselvä. Miettinen arvioi, että monien eurooppalaisten mielestä puhelusta ei ehkä ole paljon hyötyä.
 
-Lauantaina sää on enimmäkseen poutaista, eli ei sada. Päivä on pilvinen.
+Historian professori **Juhana Aunesluoma** arvioi, että nyt vasta tunnustellaan, mihin keskustelut johtavat.
 
-Lämpötilat vaihtelevat 2-9 asteen välillä.
+![Juhana Aunesluoma, Helsingin yliopiston poliittisen historian professori.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1569113693c3f254d616/1765556161)
 
-Tuuli on heikkoa.
+Avaa kuvien katselu
+
+Helsingin yliopiston poliittisen historian professori Juhana Aunesluoma arvioi, että puhelinkeskustelun merkitys nähdään myöhemmin.  Kuva: Thomas Hagström / Yle
+
+## Kertaus
+
+Viikon uutisen aihe oli Suomen ja Norjan johtajien puhelu Venäjän presidentille.
+
+Johtajat välittivät Ukrainan viestejä Venäjälle ja halusivat auttaa rauhanneuvotteluja jatkumaan.
+
+Puhelu herätti arvostelua etenkin Tanskassa.
+
+Vielä ei tiedetä, miten paljon puhelusta on hyötyä.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

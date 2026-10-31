@@ -1,4 +1,6 @@
 {
+   "source" : "fi",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | perjantai 30.10.2026",
       "",
@@ -68,7 +70,5 @@
       "",
       "Tuuli on heikkoa."
    ],
-   "source" : "fi",
-   "target" : "en",
-   "format" : "text"
+   "target" : "en"
 }

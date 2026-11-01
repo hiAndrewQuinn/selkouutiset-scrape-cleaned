@@ -1,81 +1,87 @@
-# News of the week in plain Finnish | Saturday 31.10.2026
+# Newsweek in plain Finnish | Sunday 1.11.2026
 
-Call from the leaders of Finland and Norway to the President of Russia
+A call to Putin. Sex crime trial. STT's news operations. Brain injuries and insurance disputes. The popularity of Halloween.
 
 Listen
 
 You can read the news simultaneously below.
 
-## Introducing the topic of the week
+## Stubb's call to Putin
 
-This time, the topic of the program is the call between the leaders of Finland and Norway to the President of Russia.
-
-Finnish President **Alexander Stubb** and Norwegian Prime Minister **Jonas Gahr Støre** called Russian President **Vladimir Putin**.
-
-Other Nordic countries have criticized the call.
-
-We will now tell you why the leaders called Putin and what was said about the call.
-
-![Photo collage featuring Vladimir Putin, Alexander Stubb and Jonas Gahr Støre. ](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1078,x_2,y_76/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17283906ae07b89eb788/1793096706)
+![ Jonas Gahr Støre and Alexander Stubb at the table.](https://img.img-cdn.yle.fi/crop_extract,w_3091,h_1738,x_0,y_801/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17287716ae0da63e0b88/1793120931)
 
 Open image viewer
 
-Pictured are Russian President Vladimir Putin, Finnish President Alexander Stubb and Norwegian Prime Minister Jonas Gahr Støre. They talked for about 1.5 hours. Photo: Gavriil Grigorov / EPA, Jukka Lehto / Yle, Lauri Karo / Yle
+President Alexander Stubb and Norwegian Prime Minister Jonas Gahr Støre called Russian President Vladimir Putin. Photo: Emmi Syrjäniemi / Office of the President of the Republic
 
-## Purpose of the call
+The big topic of the week has been the phone call between Finnish President **Alexander Stubb** and Norwegian Prime Minister **Jonas Gahr Støren** to Russian President **Vladimir Putin**.
 
-Stubb and Støre called Putin last Tuesday, October 27. The call lasted approximately one and a half (1.5) hours.
+Stubb and Støre called Putin on Tuesday. They talked about the war in Ukraine and the peace talks, and conveyed messages from Ukraine to Putin. Ukraine and the US participated in the preparation of the call.
 
-Stubb says that the call was prepared together with Ukraine and the US. The purpose was to convey Ukraine's messages to Putin.
+The call drew criticism from other Nordic countries. The Danish prime minister criticized the call for not being planned together with other European countries. The Swedish prime minister said he was not informed of the call in advance.
 
-Stubb and Støre said they represented Finland and Norway on the call. They did not represent all of Europe.
+The impact of the call on the peace negotiations is still unclear.
 
-After the call, they reported the conversation to Ukrainian President **Volodymyr Zelensky**. Zelensky thanked them.
+## Sexual Offense Trial
 
-Stubb says that he and Støre feared that the peace talks were in danger. They wanted to help the negotiations continue.
-
-Stubb reminds us that Finland and Norway are Russia's neighbors.
-
-The conversation focused on whether military actions could be limited. In particular, energy production and power plants were discussed.
-
-## Denmark review
-
-Danish Prime Minister **Mette Frederiksen** criticized the call. She questioned what the call would achieve. Frederiksen also said that the call was not planned together with other European countries.
-
-Swedish Prime Minister **Ulf Kristersson** said he was not informed of the call in advance.
-
-Stubb, on the other hand, says that all Nordic countries and key allies were informed about the call beforehand. Stubb says that they were also told afterwards what was discussed in the call.
-
-![A person is standing indoors.](https://img.img-cdn.yle.fi/crop_extract,w_1860,h_1046,x_0,y_28/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17290436ae1cbc487e7d/1793182983)
+![Ett Collage av two images. Till vänster Mira Luoti i en svart kavaj och svart blus. Till höger Makwan Amirkhani i mörkblå costume.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_45/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17291886ae1e30cc6c6c/1793188664)
 
 Open image viewer
 
-Danish Prime Minister Mette Frederiksen doubted what the call would achieve. Photo: Tiina Jutila / Yle
+Mira Luoti and Makwan Amirkhanin are public figures. The trial has been widely followed in the media. Usually, sexual crime trials are not public. Photo: Silja Viitala / Yle
 
-## Advantages or disadvantages of the call
+The sexual assault trial of freestyle wrestler **Makwan Amirkhan** began on Monday in Espoo.
 
-Experts assessed that the call had both benefits and risks.
+The prosecutor says Amirkhani forced musician **Mira Luodi** to perform a sexual act on the set of a television show in 2016.
 
-Professor **Markku Kangaspuro** says that it was important to open a dialogue with Russia, but Russia may still think that the phone call was a small victory for Russia.
+The court heard from Luoti, Amirkhan and witnesses this week.
 
-Researcher **Timo Miettinen** says that the impact of the phone call on the war and peace negotiations is still unclear. Miettinen estimates that many Europeans may not find the phone call to be of much use.
+Amirkhani denies the charges. He says no crime has been committed.
 
-History professor **Juhana Aunesluoma** estimates that we are only now beginning to gauge where the discussions will lead.
+The case will continue in December, and the court will issue a ruling later.
 
-![Juhana Aunesluoma, Professor of Political History at the University of Helsinki.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1569113693c3f254d616/1765556161)
+## STT's news activities
+
+![-](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_356/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17161806abe769613789/1790867769)
 
 Open image viewer
 
-Juhana Aunesluoma, professor of political history at the University of Helsinki, estimates that the significance of the telephone conversation will be seen later. Photo: Thomas Hagström / Yle
+The STT news agency provides news and images to newspapers, television and radio. Yle is also a customer of STT. Photo: Mikko Koski / Yle
 
-## Repetition
+The Finnish News Agency, or STT, will cease its news and image operations at the end of March.
 
-The topic of the week's news was the phone call between the leaders of Finland and Norway to the Russian president.
+STT provides news and images to many media outlets. STT has been operating for almost 140 years.
 
-The leaders conveyed Ukraine's messages to Russia and wanted to help the peace talks continue.
+STT's finances have been poor for a long time, and the difficulties increased when its largest customer, Sanoma, stopped using STT's services.
 
-The call sparked criticism, especially in Denmark.
+Experts say that STT is important for reliable information and small newspapers. About 90 people will lose their jobs when STT ceases operations.
 
-It is not yet known how much benefit the call will have.
+## Brain injuries and insurance disputes
 
-This was the news of the week in plain Finnish. See you again, bye!
+![Animated profile picture of a woman showing a brain and a skeleton. ](https://img.img-cdn.yle.fi/crop_extract,w_3838,h_2159,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-12865276646fcfe0bf56/1724325063)
+
+Open image viewer
+
+Brain injury can cause fatigue and difficulty with memory and concentration. Photo: Cinefootage Visuals / Alamy/All Over Press
+
+Yle has investigated nearly 100 insurance disputes regarding brain injuries. In these cases, there were often shortcomings in the initial examinations of the brain injury and patient information. Therefore, the brain injury may appear to be milder than it is.
+
+A brain injury can cause long-term fatigue and memory and concentration difficulties, even if the doctor initially assesses the injury as mild.
+
+Incomplete information can lead to lengthy disputes over insurance claims for brain injuries.
+
+## The popularity of Halloween
+
+![A house decorated according to the Halloween theme of the Poijärvi family living in Kulosaari.](https://img.img-cdn.yle.fi/crop_extract,w_3024,h_1701,x_0,y_1335/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1027372635fb4aa8b7e0/1667216633)
+
+Open image viewer
+
+Halloween is growing in popularity in Finland. That's why sales of Halloween decorations are also growing. The yard of this house is decorated in a Halloween theme. Photo: Rosa Lehtokari / Yle
+
+Halloween was celebrated over the weekend. It has become a big decoration festival in Finland.
+
+Stores say they are already selling more Halloween products than Easter decorations. Halloween products include decorations, costumes and candy.
+
+In the S Group, sales of Halloween products have increased by more than 50 percent in three years. The stores estimate that the popularity of Halloween products will also increase in the coming years.
+
+This was Uutisviikko in plain Finnish. See you again, bye!

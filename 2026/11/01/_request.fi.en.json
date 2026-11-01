@@ -1,4 +1,7 @@
 {
+   "format" : "text",
+   "source" : "fi",
+   "target" : "en",
    "q" : [
       "# Viikon uutinen selkosuomeksi | lauantai 31.10.2026",
       "",
@@ -81,8 +84,5 @@
       "Vielä ei tiedetä, miten paljon puhelusta on hyötyä.",
       "",
       "Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!"
-   ],
-   "source" : "fi",
-   "format" : "text",
-   "target" : "en"
+   ]
 }

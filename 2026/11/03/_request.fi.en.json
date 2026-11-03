@@ -1,5 +1,5 @@
 {
-   "target" : "en",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | maanantai 2.11.2026",
       "",
@@ -43,6 +43,6 @@
       "",
       "Tiistaina on aurinkoista. Idässä on pilvistä ja voi sataa vähän vettä. Pohjoisessa on pakkasta. Etelässä lämpötila on melkein 10 astetta. Iltapäivä on myös tuulinen."
    ],
-   "format" : "text",
+   "target" : "en",
    "source" : "fi"
 }

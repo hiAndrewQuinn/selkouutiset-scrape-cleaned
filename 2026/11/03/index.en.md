@@ -4,7 +4,7 @@ Unemployment. Russia. Trade data collection. Weather.
 
 ## Unemployment
 
-The first topic is unemployment.
+First, the topic is unemployment.
 
 Finland has the highest number of unemployed people in Europe. The next highest number of unemployed people are Spain and Sweden. Finland's unemployment rate is 11. The figure for the entire EU is 6.2.
 

@@ -1,41 +1,43 @@
-# Clear News | Monday 2.11.2026
+# Clear News | Tuesday 3.11.2026
 
-Unemployment. Russia. Trade data collection. Weather.
+Security. Bankruptcies. Zen Cafe. Weather.
 
-## Unemployment
+## Threats to Finland
 
-First, the topic is unemployment.
+First, news about Finnish security.
 
-Finland has the highest number of unemployed people in Europe. The next highest number of unemployed people are Spain and Sweden. Finland's unemployment rate is 11. The figure for the entire EU is 6.2.
+The Ministry of the Interior has published a list of the threats facing Finland. The list includes 24 threats.
 
-Companies are not hiring people because of the uncertainty in the global economy. There are few new jobs in industry.
+For example, electricity, water or internet may be cut off.
 
-Finland has the highest number of unemployed people in Europe. Experts believe that unemployment will ease slightly in Finland next year.
+The Finnish Security Intelligence Service says that Russia is trying to break into Finnish computers and networks. Attacks using artificial intelligence may also increase.
 
-## Russia at the Ice Hockey World Championship
+The new threat is that people are not informed or the information is incorrect.
 
-Now news about ice hockey and Russia.
+The Ministry of the Interior has published a list of threats that Finland must prepare for. The Ministry of the Interior says that there is no major threat of war.
 
-Russia will be allowed to participate in the Ice Hockey World Championship next year, the International Court of Justice has ruled. Russia has been banned from many sporting events because of its invasion of Ukraine.
+## Bankruptcies
 
-The Finnish Ice Hockey Association says the sports court's decision is bad. President **Alexander Stubb** also criticizes the decision.
+The topic of the next news is bankruptcy.
 
-Russia will be able to participate in the World Ice Hockey Championships next year. Sports Minister **Mika Poutala** is surprised by the decision:
+More companies are going bankrupt than before. A company goes bankrupt when the company's money is not enough to pay its debts. The company ceases to operate.
 
--Yes, this was undoubtedly a surprising move. It does make me a little sad.
+The furniture company Basta went bankrupt in 2024. Basta's employees founded a new company. The company's name is Ikimakee. These pictures are of Ikimakee's premises. Ikimakee's employees don't take big risks. They want the company to continue making furniture for many years to come.
 
-## Store data collection
+More companies are going bankrupt than before. At the same time, new companies are being founded in Finland all the time.
 
-Next, news about grocery stores.
+## Zen Cafe
 
-Grocery stores collect a lot of information about their customers. The store receives information when a customer uses their loyalty card in the store. The grocery store infers from the customer's purchases what their life situation is.
+Now news about the band Zen Cafe.
 
-The store uses the information when it makes advertisements. The information is also used, for example, when sending people various offers.
+Zen Cafe is returning to the stage. Zen Cafe is a popular band that last played music 20 years ago. The band will be performing at many festivals across Finland next summer.
 
-Grocery stores collect a lot of information about their customers. S Group and Kesko keep a customer's purchase history for about 10 years.
+Zen Cafe's singer and guitarist is **Samuli Putro**. He explains why Zen Cafe is returning to the stage:
+
+-This is the right time for reconciliation. Some kind of reconciliation also with the listeners and fans that we left behind 20 years ago. We didn't even announce that we were quitting.
 
 ## Weather
 
 Still a weather forecast.
 
-Tuesday will be sunny. In the east it will be cloudy and there may be a little rain. In the north it will be freezing. In the south the temperature will be almost 10 degrees. The afternoon will also be windy.
+It is raining and snowing in the east. In Lapland and the west, the sun is shining in places. The temperature is between 5 and 10 degrees. In the east and northern Lapland, it is colder in places.

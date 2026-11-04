@@ -1,4 +1,5 @@
 {
+   "format" : "text",
    "q" : [
       "# Selkouutiset | tiistai 3.11.2026",
       "",
@@ -44,7 +45,6 @@
       "",
       "Idässä sataa vettä ja lunta. Lapissa ja lännessä paistaa paikoin aurinko. Lämpötila on 5 ja 10 asteen välillä. Idässä ja Pohjois-Lapissa on paikoin kylmempää."
    ],
-   "format" : "text",
-   "source" : "fi",
-   "target" : "en"
+   "target" : "en",
+   "source" : "fi"
 }

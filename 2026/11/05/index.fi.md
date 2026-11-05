@@ -1,43 +1,57 @@
-# Selkouutiset | tiistai 3.11.2026
+# Selkouutiset | torstai 5.11.2026
 
-Turvallisuus. Konkurssit. Zen Cafe. Sää.
+Puoluekannatus. Armeijan erikoisjoukot. Maakuntalennot. Sää.
 
-## Suomen uhat
+## Ylen puoluekannatus
 
-Ensin uutinen Suomen turvallisuudesta.
+Aluksi kotimaan politiikkaa.
 
-Sisäministeriö on julkaissut listan siitä, millaisia uhkia Suomella on. Listalla on 24 uhkaa.
+Päähallituspuolue kokoomuksen kannatus on nyt alempi kuin yli 30 vuoteen. Kokoomusta kannatti Ylen kannatusmittauksessa 15,4 prosenttia.
 
-Esimerkiksi sähkö, vesi tai netti voivat katketa.
+Hallituspuolue perussuomalaiset säilytti 16,7 prosentin kannatuksen.
 
-Suojelupoliisi sanoo, että Venäjä yrittää murtautua Suomen tietokoneisiin ja tietoverkkoihin. Myös tekoälyn avulla tehdyt hyökkäykset voivat lisääntyä.
+Pääoppositiopuolue SDP jatkaa mittauksen kärjessä, kannatus oli 22,9 prosenttia.
 
-Uusi uhka on se, että ihmiset eivät saa tietoa tai tieto on väärää.
+Vasemmistoliiton uusi ennätys on 12,6 prosenttia. Se ohitti ensimmäistä kertaa keskustan, jonka kannatus oli 12,2 prosenttia.
 
-Sisäministeriö on julkaissut listan uhista, joihin Suomen pitää varautua. Sisäministeriö sanoo, että isoa sodan uhkaa ei ole.
+## Erikoisjoukot
 
-## Konkurssit
+Sitten Suomen armeijasta.
 
-Seuraavan uutisen aihe on konkurssi.
+Puolustusvoimat lisää erikoisjoukkojen koulutusta. Määrä ehkä kolminkertaistuu verrattuna aikaan ennen Nato-jäsenyyttä.
 
-Yrityksiä menee konkurssiin enemmän kuin aikaisemmin. Yritys menee konkurssiin, kun yrityksen rahat eivät riitä velkoihin. Yrityksen toiminta loppuu.
+Ennätysmäärä varusmiehiä on hakenut laskuvarjojääkäriksi sen jälkeen, kun Venäjä hyökkäsi Ukrainaan vuonna 2022.
 
-Huonekaluyritys Basta meni konkurssiin vuonna 2024. Bastan työntekijät perustivat uuden yrityksen. Yrityksen nimi on Ikimakee. Nämä kuvat ovat Ikimakeen tiloista. Ikimakeen työntekijät eivät ota isoja riskejä. He haluavat, että yritys tekee huonekaluja vielä monen vuoden kuluttua.
+Myös erikoisjoukkokurssille riittää tulijoita. Siinä koulutetaan ammattisotilaita.
 
-Yrityksiä menee konkurssiin enemmän kuin aikaisemmin. Samaan aikaan Suomeen perustetaan koko ajan uusia yrityksiä.
+Erikoisjääkärit ovat niitä, jotka kriisin hetkellä lähtevät ensimmäisenä liikkeelle.
 
-## Zen Cafe
+Puolustusvoimat lisää erikoisjoukkojen koulutusta.
 
-Nyt uutinen Zen Cafe -yhtyeestä.
+Naisia erikoisjoukoissa on vasta vähän, eikä maahanmuuttajataustaisia vielä ole. Komentaja toivoo myös heitä erikoisjoukkoihin.
 
-Zen Cafe palaa keikkalavoille. Zen Cafe on suosittu yhtye, joka soitti musiikkia viimeksi 20 vuotta sitten. Yhtye esiintyy ensi kesänä monella festivaalilla eri puolilla Suomea.
+\- Se, että me saadaan monipuolista taustaa, se ruokkii erilaista ajattelua, joka tekee meistä parempia.
 
-Zen Cafen laulaja ja kitaristi on **Samuli Putro**. Hän kertoo, miksi Zen Cafe palaa keikkalavoille:
+## Maakuntalennot
 
--Tämä on sopiva aika sovinnolle. Jonkinlainen sovinto myös kuuntelijoiden ja fanien kanssa, jotka me jätimme tyhjän päälle silloin 20 vuotta sitten. Emme edes ilmoittaneet, että lopetamme.
+Nyt kotimaan lentoliikenteestä.
+
+Lentoyhtiö Finnair aloittaa kaupalliset lennot 5 maakuntakentälle. Valtion tukiostoliikenne pienille kentille loppuu helmikuussa 2028.
+
+Finnair alkaa lentää Kajaaniin, Kemiin, Kokkolaan, Joensuuhun ja Jyväskylään.
+
+Jyväskylän kaupunginjohtaja Timo Koivisto on tyytyväinen. Uutinen on tärkeä erityisesti yrityksille, jotka tekevät alueella kansainvälistä kauppaa.
+
+Lentojen jatkuminen maakuntakentille helpottaa liikematkoja maailmalle.
 
 ## Sää
 
 Vielä sääennuste.
 
-Idässä sataa vettä ja lunta. Lapissa ja lännessä paistaa paikoin aurinko. Lämpötila on 5 ja 10 asteen välillä. Idässä ja Pohjois-Lapissa on paikoin kylmempää.
+Perjantai on enimmäkseen poutainen.
+
+Aurinko paistaa varsinkin etelässä. Lapissa pilvisyys on vaihtelevaa.
+
+Lämpötila jää pohjoisessa nollan vaiheille ja etelässäkin +5 asteeseen.
+
+Yöllä on pakkasta lähes koko maassa.

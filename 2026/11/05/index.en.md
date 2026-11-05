@@ -1,43 +1,57 @@
-# Clear News | Tuesday 3.11.2026
+# Clear News | Thursday 5.11.2026
 
-Security. Bankruptcies. Zen Cafe. Weather.
+Party support. Army special forces. Regional flights. Weather.
 
-## Threats to Finland
+## Yle's party support
 
-First, news about Finnish security.
+First, domestic politics.
 
-The Ministry of the Interior has published a list of the threats facing Finland. The list includes 24 threats.
+Support for the main governing party, the National Coalition Party, is now lower than it has been in over 30 years. The Coalition received 15.4 percent support in a Yle poll.
 
-For example, electricity, water or internet may be cut off.
+The governing Finns Party maintained 16.7 percent support.
 
-The Finnish Security Intelligence Service says that Russia is trying to break into Finnish computers and networks. Attacks using artificial intelligence may also increase.
+The main opposition party, the Social Democratic Party (SDP), continues to lead the survey, with support of 22.9 percent.
 
-The new threat is that people are not informed or the information is incorrect.
+The Left Alliance's new record is 12.6 percent. It surpassed the Center Party for the first time, whose support was 12.2 percent.
 
-The Ministry of the Interior has published a list of threats that Finland must prepare for. The Ministry of the Interior says that there is no major threat of war.
+## Special Forces
 
-## Bankruptcies
+Then from the Finnish army.
 
-The topic of the next news is bankruptcy.
+The Defence Forces will increase special forces training. The number will perhaps triple compared to the time before NATO membership.
 
-More companies are going bankrupt than before. A company goes bankrupt when the company's money is not enough to pay its debts. The company ceases to operate.
+A record number of conscripts have applied to become paratroopers since Russia invaded Ukraine in 2022.
 
-The furniture company Basta went bankrupt in 2024. Basta's employees founded a new company. The company's name is Ikimakee. These pictures are of Ikimakee's premises. Ikimakee's employees don't take big risks. They want the company to continue making furniture for many years to come.
+There are also plenty of applicants for the special forces course, which trains professional soldiers.
 
-More companies are going bankrupt than before. At the same time, new companies are being founded in Finland all the time.
+Special forces are the ones who are the first to move in times of crisis.
 
-## Zen Cafe
+The Defence Forces will increase special forces training.
 
-Now news about the band Zen Cafe.
+There are only a few women in the special forces, and there are no women with immigrant backgrounds yet. The commander also hopes to have them in the special forces.
 
-Zen Cafe is returning to the stage. Zen Cafe is a popular band that last played music 20 years ago. The band will be performing at many festivals across Finland next summer.
+\- The fact that we come from diverse backgrounds fuels different thinking that makes us better.
 
-Zen Cafe's singer and guitarist is **Samuli Putro**. He explains why Zen Cafe is returning to the stage:
+## Regional flights
 
--This is the right time for reconciliation. Some kind of reconciliation also with the listeners and fans that we left behind 20 years ago. We didn't even announce that we were quitting.
+Now about domestic air traffic.
+
+Finnair will start commercial flights to 5 regional airports. State-subsidized traffic to small airports will end in February 2028.
+
+Finnair will start flying to Kajaani, Kemi, Kokkola, Joensuu and Jyväskylä.
+
+Jyväskylä Mayor Timo Koivisto is pleased. The news is especially important for companies that do international trade in the area.
+
+The continuation of flights to regional airports will facilitate business trips around the world.
 
 ## Weather
 
 Still a weather forecast.
 
-It is raining and snowing in the east. In Lapland and the west, the sun is shining in places. The temperature is between 5 and 10 degrees. In the east and northern Lapland, it is colder in places.
+Friday will be mostly cloudy.
+
+The sun is shining, especially in the south. In Lapland, cloudiness is variable.
+
+The temperature will be around zero in the north and +5 degrees in the south.
+
+It is freezing at night in almost the entire country.

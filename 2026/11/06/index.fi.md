@@ -1,0 +1,57 @@
+# Selkouutiset | torstai 5.11.2026
+
+Puoluekannatus. Armeijan erikoisjoukot. Maakuntalennot. Sää.
+
+## Ylen puoluekannatus
+
+Aluksi kotimaan politiikkaa.
+
+Päähallituspuolue kokoomuksen kannatus on nyt alempi kuin yli 30 vuoteen. Kokoomusta kannatti Ylen kannatusmittauksessa 15,4 prosenttia.
+
+Hallituspuolue perussuomalaiset säilytti 16,7 prosentin kannatuksen.
+
+Pääoppositiopuolue SDP jatkaa mittauksen kärjessä, kannatus oli 22,9 prosenttia.
+
+Vasemmistoliiton uusi ennätys on 12,6 prosenttia. Se ohitti ensimmäistä kertaa keskustan, jonka kannatus oli 12,2 prosenttia.
+
+## Erikoisjoukot
+
+Sitten Suomen armeijasta.
+
+Puolustusvoimat lisää erikoisjoukkojen koulutusta. Määrä ehkä kolminkertaistuu verrattuna aikaan ennen Nato-jäsenyyttä.
+
+Ennätysmäärä varusmiehiä on hakenut laskuvarjojääkäriksi sen jälkeen, kun Venäjä hyökkäsi Ukrainaan vuonna 2022.
+
+Myös erikoisjoukkokurssille riittää tulijoita. Siinä koulutetaan ammattisotilaita.
+
+Erikoisjääkärit ovat niitä, jotka kriisin hetkellä lähtevät ensimmäisenä liikkeelle.
+
+Puolustusvoimat lisää erikoisjoukkojen koulutusta.
+
+Naisia erikoisjoukoissa on vasta vähän, eikä maahanmuuttajataustaisia vielä ole. Komentaja toivoo myös heitä erikoisjoukkoihin.
+
+\- Se, että me saadaan monipuolista taustaa, se ruokkii erilaista ajattelua, joka tekee meistä parempia.
+
+## Maakuntalennot
+
+Nyt kotimaan lentoliikenteestä.
+
+Lentoyhtiö Finnair aloittaa kaupalliset lennot 5 maakuntakentälle. Valtion tukiostoliikenne pienille kentille loppuu helmikuussa 2028.
+
+Finnair alkaa lentää Kajaaniin, Kemiin, Kokkolaan, Joensuuhun ja Jyväskylään.
+
+Jyväskylän kaupunginjohtaja Timo Koivisto on tyytyväinen. Uutinen on tärkeä erityisesti yrityksille, jotka tekevät alueella kansainvälistä kauppaa.
+
+Lentojen jatkuminen maakuntakentille helpottaa liikematkoja maailmalle.
+
+## Sää
+
+Vielä sääennuste.
+
+Perjantai on enimmäkseen poutainen.
+
+Aurinko paistaa varsinkin etelässä. Lapissa pilvisyys on vaihtelevaa.
+
+Lämpötila jää pohjoisessa nollan vaiheille ja etelässäkin +5 asteeseen.
+
+Yöllä on pakkasta lähes koko maassa.

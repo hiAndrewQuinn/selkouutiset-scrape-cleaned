@@ -1,4 +1,7 @@
 {
+   "format" : "text",
+   "target" : "en",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | torstai 5.11.2026",
       "",
@@ -57,8 +60,5 @@
       "Lämpötila jää pohjoisessa nollan vaiheille ja etelässäkin +5 asteeseen.",
       "",
       "Yöllä on pakkasta lähes koko maassa."
-   ],
-   "format" : "text",
-   "source" : "fi",
-   "target" : "en"
+   ]
 }

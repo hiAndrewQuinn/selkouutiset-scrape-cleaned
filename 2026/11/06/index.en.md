@@ -1,57 +1,75 @@
-# Clear News | Thursday 5.11.2026
+# Clear News | Friday 6.11.2026
 
-Party support. Army special forces. Regional flights. Weather.
+Security police. Bomb threats. Cable failure. Memory disorders. Weather
 
-## Yle's party support
+## Supo's trial began
 
-First, domestic politics.
+First, news about the security police trial.
 
-Support for the main governing party, the National Coalition Party, is now lower than it has been in over 30 years. The Coalition received 15.4 percent support in a Yle poll.
+A major trial against the leaders of the Security Police, or Supo, began in Helsinki.
 
-The governing Finns Party maintained 16.7 percent support.
+Seven former or current leaders of the Supo are charged.
 
-The main opposition party, the Social Democratic Party (SDP), continues to lead the survey, with support of 22.9 percent.
+Former head of the Finnish National Security Agency, Antti Pelttari, is also accused. Pelttari is accused of revealing a security secret. He denies the charges.
 
-The Left Alliance's new record is 12.6 percent. It surpassed the Center Party for the first time, whose support was 12.2 percent.
+Not all charges are known because the lawsuit is partially secret.
 
-## Special Forces
+A major trial against the leaders of the security police began in Helsinki.
 
-Then from the Finnish army.
+Yle is aware that the trial is related to the use of retired Supo employees in counterintelligence.
 
-The Defence Forces will increase special forces training. The number will perhaps triple compared to the time before NATO membership.
+## Multiple bomb threats against airplanes
 
-A record number of conscripts have applied to become paratroopers since Russia invaded Ukraine in 2022.
+Next news about bomb threats.
 
-There are also plenty of applicants for the special forces course, which trains professional soldiers.
+Several aircraft in Europe have been targeted by bomb threats this week.
 
-Special forces are the ones who are the first to move in times of crisis.
+Bomb threats have also been made against two Finnish Finnair aircraft.
 
-The Defence Forces will increase special forces training.
+There were no bombs on the planes, but they were forced to make an emergency landing due to threats.
 
-There are only a few women in the special forces, and there are no women with immigrant backgrounds yet. The commander also hopes to have them in the special forces.
+Several aircraft in Europe have been targeted by bomb threats this week.
 
-\- The fact that we come from diverse backgrounds fuels different thinking that makes us better.
+The investigator estimates that the bomb threats were planned by a state.
 
-## Regional flights
+The researcher says the state is likely Russia.
 
-Now about domestic air traffic.
+## Prison sentences for cable crimes
 
-Finnair will start commercial flights to 5 regional airports. State-subsidized traffic to small airports will end in February 2028.
+Next news about the cable crime.
 
-Finnair will start flying to Kajaani, Kemi, Kokkola, Joensuu and Jyväskylä.
+The captain and boatswain of the Fitburg ship were sentenced to prison for breaking telecommunications cables in the Gulf of Finland.
 
-Jyväskylä Mayor Timo Koivisto is pleased. The news is especially important for companies that do international trade in the area.
+Two important cables broke last winter when the anchor chain of the Fitburg ship hit the cables. The ship had been dragging the anchor for a long distance.
 
-The continuation of flights to regional airports will facilitate business trips around the world.
+The district court found that the ship's captain and boatswain were responsible for breaking the cables.
 
-## Weather
+The captain received more than three years in prison and the boatswain almost three years in prison.
+
+They can appeal the verdicts to the Court of Appeal.
+
+## A new treatment for memory disorders
+
+Finally, news about the treatment of memory disorders.
+
+Researchers in Finland have discovered a treatment that can prevent memory disorders.
+
+The treatment uses vibration and heart medication simultaneously.
+
+The researchers noticed that harmful proteins were removed from the brain during the treatment.
+
+Harmful proteins in the brain can cause, for example, dementia and Alzheimer's.
+
+Researchers discovered a treatment that removed harmful proteins from the brain.
+
+The researcher says that the treatment does not yet prevent or cure memory loss. More research is needed on the matter.
+
+## Saturday weather
 
 Still a weather forecast.
 
-Friday will be mostly cloudy.
+It's foggy on Saturday morning.
 
-The sun is shining, especially in the south. In Lapland, cloudiness is variable.
+In the afternoon it will be sunny in the west and cloudy in the east.
 
-The temperature will be around zero in the north and +5 degrees in the south.
-
-It is freezing at night in almost the entire country.
+There may be a little snow or sleet in Northern Lapland.

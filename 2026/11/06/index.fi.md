@@ -1,57 +1,75 @@
-# Selkouutiset | torstai 5.11.2026
+# Selkouutiset | perjantai 6.11.2026
 
-Puoluekannatus. Armeijan erikoisjoukot. Maakuntalennot. Sää.
+Suojelupoliisi. Pommiuhkaukset. Kaapelirikko. Muistisairaudet. Sää
 
-## Ylen puoluekannatus
+## Supon oikeudenkäynti alkoi
 
-Aluksi kotimaan politiikkaa.
+Ensin uutinen suojelupoliisin oikeudenkäynnistä.
 
-Päähallituspuolue kokoomuksen kannatus on nyt alempi kuin yli 30 vuoteen. Kokoomusta kannatti Ylen kannatusmittauksessa 15,4 prosenttia.
+Helsingissä alkoi iso oikeudenkäynti suojelupoliisin eli supon johtajia vastaan.
 
-Hallituspuolue perussuomalaiset säilytti 16,7 prosentin kannatuksen.
+Syytettynä on seitsemän entistä tai nykyistä supon johtajaa.
 
-Pääoppositiopuolue SDP jatkaa mittauksen kärjessä, kannatus oli 22,9 prosenttia.
+Syytettynä on myös supon entinen päällikkö Antti Pelttari. Pelttaria syytetään turvallisuussalaisuuden paljastamisesta. Hän kiistää syytteet.
 
-Vasemmistoliiton uusi ennätys on 12,6 prosenttia. Se ohitti ensimmäistä kertaa keskustan, jonka kannatus oli 12,2 prosenttia.
+Kaikkia syytteitä ei tiedetä, koska oikeusjuttu on osittain salainen.
 
-## Erikoisjoukot
+Helsingissä alkoi iso oikeudenkäynti suojelupoliisin johtajia vastaan.
 
-Sitten Suomen armeijasta.
+Ylen tiedossa on, että oikeudenkäynti liittyy supon eläkkeellä olevien työntekijöiden käyttämiseen vastavakoilussa.
 
-Puolustusvoimat lisää erikoisjoukkojen koulutusta. Määrä ehkä kolminkertaistuu verrattuna aikaan ennen Nato-jäsenyyttä.
+## Lentokoneisiin useita pommiuhkauksia
 
-Ennätysmäärä varusmiehiä on hakenut laskuvarjojääkäriksi sen jälkeen, kun Venäjä hyökkäsi Ukrainaan vuonna 2022.
+Seuraavaksi uutinen pommiuhkauksista.
 
-Myös erikoisjoukkokurssille riittää tulijoita. Siinä koulutetaan ammattisotilaita.
+Euroopassa useille lentokoneille on tehty pommiuhkauksia tällä viikolla.
 
-Erikoisjääkärit ovat niitä, jotka kriisin hetkellä lähtevät ensimmäisenä liikkeelle.
+Pommiuhkauksia on tehty myös kahdelle suomalaiselle Finnairin lentokoneelle.
 
-Puolustusvoimat lisää erikoisjoukkojen koulutusta.
+Lentokoneissa ei ollut pommeja. Ne joutuivat kuitenkin tekemään hätälaskun uhkausten takia.
 
-Naisia erikoisjoukoissa on vasta vähän, eikä maahanmuuttajataustaisia vielä ole. Komentaja toivoo myös heitä erikoisjoukkoihin.
+Euroopassa useille lentokoneille on tehty pommiuhkauksia tällä viikolla.
 
-\- Se, että me saadaan monipuolista taustaa, se ruokkii erilaista ajattelua, joka tekee meistä parempia.
+Tutkija arvioi, että pommiuhkaukset on suunnitellut jokin valtio.
 
-## Maakuntalennot
+Tutkija sanoo, että valtio on todennäköisesti Venäjä.
 
-Nyt kotimaan lentoliikenteestä.
+## Kaapelirikoista vankeustuomiot
 
-Lentoyhtiö Finnair aloittaa kaupalliset lennot 5 maakuntakentälle. Valtion tukiostoliikenne pienille kentille loppuu helmikuussa 2028.
+Seuraavaksi uutinen kaapelirikosta.
 
-Finnair alkaa lentää Kajaaniin, Kemiin, Kokkolaan, Joensuuhun ja Jyväskylään.
+Fitburg-laivan kapteeni ja pursimies tuomittiin vankilaan tietoliikennekaapeleiden rikkomisesta Suomenlahdella.
 
-Jyväskylän kaupunginjohtaja Timo Koivisto on tyytyväinen. Uutinen on tärkeä erityisesti yrityksille, jotka tekevät alueella kansainvälistä kauppaa.
+Kaksi tärkeää kaapelia meni rikki viime talvena, kun Fitburg-laivan ankkuriketju osui kaapeleihin. Laiva oli vetänyt ankkuria perässä pitkän matkan.
 
-Lentojen jatkuminen maakuntakentille helpottaa liikematkoja maailmalle.
+Käräjäoikeus totesi, että laivan kapteeni ja pursimies olivat vastuussa kaapeleiden rikkomisesta.
 
-## Sää
+Kapteeni sai yli kolme vuotta vankeutta ja pursimies melkein kolme vuotta vankeutta.
+
+He voivat valittaa tuomioista hovioikeuteen.
+
+## Muistisairauksiin uusi hoitokeino
+
+Lopuksi uutinen muistisairauksien hoidosta.
+
+Suomessa tutkijat löysivät hoitokeinon, joka voi estää muistisairauksia.
+
+Hoidossa käytetään yhtä aikaa värähtelyä ja sydänlääkettä.
+
+Tutkijat huomasivat, että hoidon aikana haitallisia proteiineja poistui aivoista.
+
+Haitalliset proteiinit voivat aiheuttaa aivoissa esimerkiksi dementiaa ja Alzheimeria.
+
+Tutkijat löysivät hoitokeinon, jolla haitallisia proteiineja saatiin pois aivoista.
+
+Tutkija sanoo, että hoito ei vielä estä muistisairautta tai paranna sitä. Asiaa täytyy tutkia lisää.
+
+## Lauantain sää
 
 Vielä sääennuste.
 
-Perjantai on enimmäkseen poutainen.
+Lauantaiaamuna on sumua.
 
-Aurinko paistaa varsinkin etelässä. Lapissa pilvisyys on vaihtelevaa.
+Iltapäivällä on lännessä aurinkoista ja idässä pilvistä.
 
-Lämpötila jää pohjoisessa nollan vaiheille ja etelässäkin +5 asteeseen.
-
-Yöllä on pakkasta lähes koko maassa.
+Pohjois-Lapissa voi sataa vähän lunta tai räntää.

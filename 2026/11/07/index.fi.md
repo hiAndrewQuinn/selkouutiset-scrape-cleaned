@@ -1,0 +1,75 @@
+# Selkouutiset | perjantai 6.11.2026
+
+Suojelupoliisi. Pommiuhkaukset. Kaapelirikko. Muistisairaudet. Sää
+
+## Supon oikeudenkäynti alkoi
+
+Ensin uutinen suojelupoliisin oikeudenkäynnistä.
+
+Helsingissä alkoi iso oikeudenkäynti suojelupoliisin eli supon johtajia vastaan.
+
+Syytettynä on seitsemän entistä tai nykyistä supon johtajaa.
+
+Syytettynä on myös supon entinen päällikkö Antti Pelttari. Pelttaria syytetään turvallisuussalaisuuden paljastamisesta. Hän kiistää syytteet.
+
+Kaikkia syytteitä ei tiedetä, koska oikeusjuttu on osittain salainen.
+
+Helsingissä alkoi iso oikeudenkäynti suojelupoliisin johtajia vastaan.
+
+Ylen tiedossa on, että oikeudenkäynti liittyy supon eläkkeellä olevien työntekijöiden käyttämiseen vastavakoilussa.
+
+## Lentokoneisiin useita pommiuhkauksia
+
+Seuraavaksi uutinen pommiuhkauksista.
+
+Euroopassa useille lentokoneille on tehty pommiuhkauksia tällä viikolla.
+
+Pommiuhkauksia on tehty myös kahdelle suomalaiselle Finnairin lentokoneelle.
+
+Lentokoneissa ei ollut pommeja. Ne joutuivat kuitenkin tekemään hätälaskun uhkausten takia.
+
+Euroopassa useille lentokoneille on tehty pommiuhkauksia tällä viikolla.
+
+Tutkija arvioi, että pommiuhkaukset on suunnitellut jokin valtio.
+
+Tutkija sanoo, että valtio on todennäköisesti Venäjä.
+
+## Kaapelirikoista vankeustuomiot
+
+Seuraavaksi uutinen kaapelirikosta.
+
+Fitburg-laivan kapteeni ja pursimies tuomittiin vankilaan tietoliikennekaapeleiden rikkomisesta Suomenlahdella.
+
+Kaksi tärkeää kaapelia meni rikki viime talvena, kun Fitburg-laivan ankkuriketju osui kaapeleihin. Laiva oli vetänyt ankkuria perässä pitkän matkan.
+
+Käräjäoikeus totesi, että laivan kapteeni ja pursimies olivat vastuussa kaapeleiden rikkomisesta.
+
+Kapteeni sai yli kolme vuotta vankeutta ja pursimies melkein kolme vuotta vankeutta.
+
+He voivat valittaa tuomioista hovioikeuteen.
+
+## Muistisairauksiin uusi hoitokeino
+
+Lopuksi uutinen muistisairauksien hoidosta.
+
+Suomessa tutkijat löysivät hoitokeinon, joka voi estää muistisairauksia.
+
+Hoidossa käytetään yhtä aikaa värähtelyä ja sydänlääkettä.
+
+Tutkijat huomasivat, että hoidon aikana haitallisia proteiineja poistui aivoista.
+
+Haitalliset proteiinit voivat aiheuttaa aivoissa esimerkiksi dementiaa ja Alzheimeria.
+
+Tutkijat löysivät hoitokeinon, jolla haitallisia proteiineja saatiin pois aivoista.
+
+Tutkija sanoo, että hoito ei vielä estä muistisairautta tai paranna sitä. Asiaa täytyy tutkia lisää.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaiaamuna on sumua.
+
+Iltapäivällä on lännessä aurinkoista ja idässä pilvistä.
+
+Pohjois-Lapissa voi sataa vähän lunta tai räntää.

@@ -1,75 +1,65 @@
-# Clear News | Friday 6.11.2026
+# News of the week in plain Finnish | Saturday 7.11.2026
 
-Security police. Bomb threats. Cable failure. Memory disorders. Weather
+Protests in Europe.
 
-## Supo's trial began
+Listen
 
-First, news about the security police trial.
+You can read the news simultaneously below.
 
-A major trial against the leaders of the Security Police, or Supo, began in Helsinki.
+## Introducing the topic of the week
 
-Seven former or current leaders of the Supo are charged.
+This time the topic of the program is protests in Europe. There have been large protests in different parts of Europe. People have demonstrated in France and Germany, for example.
 
-Former head of the Finnish National Security Agency, Antti Pelttari, is also accused. Pelttari is accused of revealing a security secret. He denies the charges.
+We will now tell you more about the protests and why people protest.
 
-Not all charges are known because the lawsuit is partially secret.
+## Big protests in Europe
 
-A major trial against the leaders of the security police began in Helsinki.
+![Several people wearing hoods and face masks are throwing objects on the street.](https://img.img-cdn.yle.fi/crop_extract,w_7728,h_4347,x_0,y_805/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17249076ad7453e3fabf/1792492930)
 
-Yle is aware that the trial is related to the use of retired Supo employees in counterintelligence.
+Open image viewer
 
-## Multiple bomb threats against airplanes
+Photo: Georgios Kostomitsopoulos / AOP
 
-Next news about bomb threats.
+There have been many large protests in Europe. The protests have been going on for many weeks.
 
-Several aircraft in Europe have been targeted by bomb threats this week.
+Hundreds of thousands of people have taken part in demonstrations in France. There has also been violence in the demonstrations. Some demonstrators have clashed with the police. Shops have been looted. The police have used tear gas and water cannons against the demonstrators.
 
-Bomb threats have also been made against two Finnish Finnair aircraft.
+There were violent protests in Germany last weekend. There was violence at least in Frankfurt, Berlin, Hamburg and Cologne.
 
-There were no bombs on the planes, but they were forced to make an emergency landing due to threats.
+There have also been demonstrations and riots in countries such as Italy, Portugal and Spain. There have been demonstrations in Albania for a long time.
 
-Several aircraft in Europe have been targeted by bomb threats this week.
+## Reasons for the protests
 
-The investigator estimates that the bomb threats were planned by a state.
+![A large group of protesters walk down a night street. Many are holding signs.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_700/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16716026a4981e91b015/1783202525)
 
-The researcher says the state is likely Russia.
+Open image viewer
 
-## Prison sentences for cable crimes
+Photo: Malton Dibra/EPA
 
-Next news about the cable crime.
+There are many different reasons for the protests in Europe.
 
-The captain and boatswain of the Fitburg ship were sentenced to prison for breaking telecommunications cables in the Gulf of Finland.
+The protesters want better wages. People are protesting that the government is spending too little money on schools. The protesters are also protesting high prices and police violence.
 
-Two important cables broke last winter when the anchor chain of the Fitburg ship hit the cables. The ship had been dragging the anchor for a long distance.
+In Spain, pensioners want to keep their pensions the same. In Portugal, people are demanding apartments where the rent is not too expensive.
 
-The district court found that the ship's captain and boatswain were responsible for breaking the cables.
+In Albania, young people want jobs and better schools. Protesters are also protesting corruption and the business dealings of US President **Donald Trump**'s family in Albania.
 
-The captain received more than three years in prison and the boatswain almost three years in prison.
+## Protest against data centers
 
-They can appeal the verdicts to the Court of Appeal.
+![Three people are holding a white sheet with the text &quot;STOP DATA CENTERS&quot; in the market square. ](https://img.img-cdn.yle.fi/crop_extract,w_5999,h_3374,x_0,y_191/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17346646aef100a4ab4f/1794052144)
 
-## A new treatment for memory disorders
+Open image viewer
 
-Finally, news about the treatment of memory disorders.
+Photo: Jari Kovalainen / Yle
 
-Researchers in Finland have discovered a treatment that can prevent memory disorders.
+Today, Saturday, there were demonstrations against data centers in Europe. There were also demonstrations in Finland.
 
-The treatment uses vibration and heart medication simultaneously.
+Protesters believe that data centers are poorly monitored. Protesters demand that new data centers not be built.
 
-The researchers noticed that harmful proteins were removed from the brain during the treatment.
+## Repetition
 
-Harmful proteins in the brain can cause, for example, dementia and Alzheimer's.
+The topic of the week's news was protests across Europe.
 
-Researchers discovered a treatment that removed harmful proteins from the brain.
+There have been protests for several weeks now. First there were big protests in France. Since then, people have demonstrated in countries such as Germany, Italy and Portugal. Protesters are demanding, for example, higher wages and better education.
 
-The researcher says that the treatment does not yet prevent or cure memory loss. More research is needed on the matter.
-
-## Saturday weather
-
-Still a weather forecast.
-
-It's foggy on Saturday morning.
-
-In the afternoon it will be sunny in the west and cloudy in the east.
-
-There may be a little snow or sleet in Northern Lapland.
+This was the news of the week in plain Finnish. See you again, bye!

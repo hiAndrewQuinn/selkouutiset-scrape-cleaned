@@ -1,7 +1,6 @@
 {
    "source" : "fi",
    "format" : "text",
-   "target" : "en",
    "q" : [
       "# Selkouutiset | perjantai 6.11.2026",
       "",
@@ -78,5 +77,6 @@
       "Iltapäivällä on lännessä aurinkoista ja idässä pilvistä.",
       "",
       "Pohjois-Lapissa voi sataa vähän lunta tai räntää."
-   ]
+   ],
+   "target" : "en"
 }

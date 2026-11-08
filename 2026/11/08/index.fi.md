@@ -1,65 +1,79 @@
-# Viikon uutinen selkosuomeksi | lauantai 7.11.2026
+# Uutisviikko selkosuomeksi | sunnuntai 8.11.2026
 
-Mielenosoitukset Euroopassa.
+USA:n vaalit. Puoluekannatus. Pommiuhkaukset. Venäjä jääkiekossa. Isänpäivä.
 
 Kuuntele
 
 Voit lukea uutiset samanaikaisesti alta.
 
-## Viikon aiheen esittely
+## USA:n vaalit
 
-Ohjelman aiheena ovat tällä kertaa mielenosoitukset Euroopassa. Eri puolilla Eurooppaa on ollut isoja mielenosoituksia. Ihmiset ovat osoittaneet mieltä esimerkiksi Ranskassa ja Saksassa.
-
-Kerromme nyt lisää mielenosoituksista ja siitä, miksi ihmiset osoittavat mieltä.
-
-## Isoja mielenosoituksia Euroopassa
-
-![Useita hupullisia ja kasvosuojain päällä olevia ihmisiä heittää esineitä kadulla.](https://img.img-cdn.yle.fi/crop_extract,w_7728,h_4347,x_0,y_805/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17249076ad7453e3fabf/1792492930)
+![Kartta välivaalien senaatin tuloksesta 2026.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17329456aeb326d7cae2/1793798841)
 
 Avaa kuvien katselu
 
-Kuva: Georgios Kostomitsopoulos / AOP
+Kuva: Juha Rissanen / Yle
 
-Euroopassa on ollut paljon isoja mielenosoituksia. Mielenosoitukset ovat jatkuneet jo monta viikkoa.
+Tällä viikolla on puhuttu paljon USA:n vaaleista. Vaaleissa demokraatit voittivat ja republikaanit hävisivät. Vaaleissa valittiin edustajia kongressiin eli USA:n eduskuntaan.
 
-Ranskassa mielenosoituksiin on osallistunut satojatuhansia ihmisiä. Mielenosoituksissa on ollut myös väkivaltaa. Jotkut mielenosoittajat ovat ottaneet yhteen poliisin kanssa. Kauppoja on ryöstetty. Poliisi on käyttänyt mielenosoittajia vastaan kyynelkaasua ja vesitykkiä.
+USA:n presidentti **Donald Trump** on republikaani. Trump ei ollut vaaleissa ehdokkaana, mutta vaalitulos oli vastalause Trumpin politiikalle. Näin sanovat asiantuntijat.
 
-Saksassa oli viime viikonloppuna väkivaltaisia mielenosoituksia. Väkivaltaa oli ainakin Frankfurtissa, Berliinissä, Hampurissa ja Kölnissä.
+Vaalitulos tarkoittaa, että Trumpin on vaikeampi saada läpi uusia lakeja kuin nyt. Trumpilla on yhä paljon valtaa USA:n ulkopolitiikassa.
 
-Mielenosoituksia ja mellakoita on ollut myös esimerkiksi Italiassa, Portugalissa ja Espanjassa. Albaniassa mielenosoituksia on ollut jo kauan.
+## Puoluekannatus
 
-## Mielenosoitusten syyt
-
-![Suuri joukko mielenosoittajia kulkee öisellä kadulla. Monilla on kädessään kylttejä.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_700/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16716026a4981e91b015/1783202525)
+![SDP jatkaa kannatuskyselyn kärjessä 22,9 prosentilla ja PS toisena 16,7:lla. Kokoomuksen lasku jatkuu (15,4 %). Vasemmistoliitto ohitti 12,6 %:n kannatuksella jo keskustan. ](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17326826aeaf471ed13f/1793783274)
 
 Avaa kuvien katselu
 
-Kuva: Malton Dibra / EPA
+Kuva: eduskunta, Petteri Sopanen / Yle, Silja Viitala / Yle ja Mårten Lampén / Yle, grafiikka: Nanna Särkkä / Yle
 
-Euroopan mielenosoituksiin on monia eri syitä.
+Yle julkaisi tällä viikolla puolueiden kannatuskyselyn.
 
-Mielenosoittajat haluavat parempaa palkkaa. Ihmiset vastustavat sitä, että valtio käyttää liian vähän rahaa kouluihin. Mielenosoittajat protestoivat myös korkeita hintoja ja poliisin väkivaltaa.
+Kysely kertoo, että Suomen suosituin puolue on edelleen SDP. SDP:n kannatus on 22,9 prosenttia. SDP on oppositiopuolue.
 
-Espanjassa eläkeläiset haluavat pitää eläkkeet ennallaan. Portugalissa ihmiset vaativat asuntoja, joiden vuokra ei ole liian kallis.
+Sijalla 2 kyselyssä on hallituspuolue perussuomalaiset. Perussuomalaisten kannatus on 16,7 prosenttia. Kolmantena on kokoomus, jonka kannatus on 15,4 prosenttia. Kokoomuksen kannatus on nyt alempi kuin yli 30 vuoteen. Kokoomus on pääministeri **Petteri Orpon** puolue.
 
-Albaniassa nuoret haluavat työtä ja parempia kouluja. Mielenosoittajat vastustavat myös korruptiota ja USA:n presidentin **Donald Trumpin** perheen liiketoimia Albaniassa.
+Seuraavina kyselyssä ovat vasemmistoliitto ja keskusta.
 
-## Protesti datakeskuksia vastaan
+## Pommiuhkaukset
 
-![Kolme henkilöä pitää torilla valkoista lakanaa, jossa on teksti &quot;STOP DATAKESKUKSILLE&quot;. ](https://img.img-cdn.yle.fi/crop_extract,w_5999,h_3374,x_0,y_191/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17346646aef100a4ab4f/1794052144)
+![Viisi poliisia seisoo lentokentän edustalla lentoaseman sisäänkäynnin lähellä matkatavaravaunujen vieressä.](https://img.img-cdn.yle.fi/crop_extract,w_4135,h_2325,x_0,y_316/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17342496aedbb7902a6c/1793965008)
 
 Avaa kuvien katselu
 
-Kuva: Jari Kovalainen / Yle
+Kuva: Liselotta Sabroe / AFP
 
-Tänään lauantaina Euroopassa osoitettiin mieltä datakeskuksia vastaan. Mielenosoituksia oli myös Suomessa.
+Useille lentokoneille lähetettiin tällä viikolla pommiuhkauksia. Pommiuhkauksia lähetettiin lentokoneille eri puolilla Eurooppaa.
 
-Mielenosoittajat ovat sitä mieltä, että datakeskuksia valvotaan huonosti. Mielenosoittajat vaativat, että uusia datakeskuksia ei saa rakentaa.
+Myös 2 Finnairin lentokonetta sai pommiuhkauksen.
 
-## Kertaus
+Lentokoneissa ei ollut pommeja. Koneet joutuivat tekemään hätälaskun uhkausten takia.
 
-Viikon uutisen aiheena olivat mielenosoitukset eri puolilla Eurooppaa.
+Moni asiantuntija uskoo, että pommiuhkausten lähettäjä on Venäjä.
 
-Mielenosoituksia on ollut jo monta viikkoa. Isoja mielenosoituksia oli ensin Ranskassa. Sen jälkeen ihmiset ovat osoittaneet mieltä esimerkiksi Saksassa, Italiassa ja Portugalissa. Mielenosoittajat vaativat esimerkiksi lisää palkkaa ja parempaa koulutusta.
+Pääministeri Petteri Orpo sanoo, että viranomaiset selvittävät tapahtumia.
 
-Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!
+## Venäjä jääkiekossa
+
+![Jääkiekkojoukkue seisoo jäällä riveissä punaisissa pelipaidoissa, paidoissa on Venäjän vaakuna ja teksti &quot;Россия&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_4872,h_2740,x_0,y_300/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17313166ae76bdd5a37e/1793551386)
+
+Avaa kuvien katselu
+
+Kuva: Ondrej Deml / AOP
+
+Keskustelu Venäjästä ja jääkiekosta jatkui tällä viikolla. Viime viikolla kansainvälinen urheiluoikeus päätti, että Venäjä saa pelata jääkiekon MM-kisoissa ensi vuonna.
+
+Nyt moni maa on ilmoittanut, että Venäjää vastaan ei pelata. Myös Suomen jääkiekkoliitto ilmoitti, että Suomi ei pelaa Venäjän kanssa. Saman päätöksen tekivät esimerkiksi Ruotsi ja Tsekki.
+
+## Isänpäivä
+
+Tänään sunnuntaina on isänpäivä.
+
+Isänpäivää vietetään samaan aikaan myös Ruotsissa, Norjassa, Islannissa ja Virossa. Monissa muissa maissa isänpäivää vietetään kesällä.
+
+Isänpäivänä juhlitaan isiä ja isoisiä. Isänpäivä on liputuspäivä.
+
+Suomessa on yhteensä yli 1,3 miljoonaa isää.
+
+Tämä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

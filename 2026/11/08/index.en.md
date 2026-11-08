@@ -1,65 +1,79 @@
-# News of the week in plain Finnish | Saturday 7.11.2026
+# Newsweek in plain Finnish | Sunday 8.11.2026
 
-Protests in Europe.
+US elections. Party support. Bomb threats. Russia in hockey. Father's Day.
 
 Listen
 
 You can read the news simultaneously below.
 
-## Introducing the topic of the week
+## US elections
 
-This time the topic of the program is protests in Europe. There have been large protests in different parts of Europe. People have demonstrated in France and Germany, for example.
-
-We will now tell you more about the protests and why people protest.
-
-## Big protests in Europe
-
-![Several people wearing hoods and face masks are throwing objects on the street.](https://img.img-cdn.yle.fi/crop_extract,w_7728,h_4347,x_0,y_805/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17249076ad7453e3fabf/1792492930)
+![Map of the Senate by-election results 2026.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17329456aeb326d7cae2/1793798841)
 
 Open image viewer
 
-Photo: Georgios Kostomitsopoulos / AOP
+Photo: Juha Rissanen / Yle
 
-There have been many large protests in Europe. The protests have been going on for many weeks.
+There has been a lot of talk this week about the US elections. The Democrats won and the Republicans lost. The elections elected representatives to Congress, the US parliament.
 
-Hundreds of thousands of people have taken part in demonstrations in France. There has also been violence in the demonstrations. Some demonstrators have clashed with the police. Shops have been looted. The police have used tear gas and water cannons against the demonstrators.
+US President **Donald Trump** is a Republican. Trump was not a candidate in the election, but the election result was a protest against Trump's policies. That's what experts say.
 
-There were violent protests in Germany last weekend. There was violence at least in Frankfurt, Berlin, Hamburg and Cologne.
+The election result means that it will be harder for Trump to pass new laws than it is now. Trump still has a lot of power in US foreign policy.
 
-There have also been demonstrations and riots in countries such as Italy, Portugal and Spain. There have been demonstrations in Albania for a long time.
+## Party support
 
-## Reasons for the protests
-
-![A large group of protesters walk down a night street. Many are holding signs.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_700/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16716026a4981e91b015/1783202525)
+![The SDP continues to lead the poll with 22.9 percent and the PS in second place with 16.7. The National Coalition Party continues to decline (15.4%). The Left Alliance has already overtaken the Center Party with 12.6 percent support. ](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17326826aeaf471ed13f/1793783274)
 
 Open image viewer
 
-Photo: Malton Dibra/EPA
+Photo: Parliament, Petteri Sopanen / Yle, Silja Viitala / Yle and Mårten Lampén / Yle, graphics: Nanna Särkkä / Yle
 
-There are many different reasons for the protests in Europe.
+Yle published a party support survey this week.
 
-The protesters want better wages. People are protesting that the government is spending too little money on schools. The protesters are also protesting high prices and police violence.
+The survey shows that the most popular party in Finland is still the Social Democratic Party (SDP). The SDP's support is 22.9 percent. The SDP is an opposition party.
 
-In Spain, pensioners want to keep their pensions the same. In Portugal, people are demanding apartments where the rent is not too expensive.
+In second place in the survey is the governing party, the Finns Party. The Finns Party has 16.7 percent support. In third place is the Coalition Party, which has 15.4 percent support. The Coalition Party's support is now lower than it has been in over 30 years. The Coalition Party is the party of Prime Minister **Petteri Orpo**.
 
-In Albania, young people want jobs and better schools. Protesters are also protesting corruption and the business dealings of US President **Donald Trump**'s family in Albania.
+The Left Alliance and the Center Party are next in the poll.
 
-## Protest against data centers
+## Bomb threats
 
-![Three people are holding a white sheet with the text &quot;STOP DATA CENTERS&quot; in the market square. ](https://img.img-cdn.yle.fi/crop_extract,w_5999,h_3374,x_0,y_191/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17346646aef100a4ab4f/1794052144)
+![Five police officers stand in front of the airport near the airport entrance next to the baggage carts.](https://img.img-cdn.yle.fi/crop_extract,w_4135,h_2325,x_0,y_316/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17342496aedbb7902a6c/1793965008)
 
 Open image viewer
 
-Photo: Jari Kovalainen / Yle
+Photo: Liselotta Sabroe / AFP
 
-Today, Saturday, there were demonstrations against data centers in Europe. There were also demonstrations in Finland.
+Bomb threats were sent to several aircraft this week. Bomb threats were sent to aircraft across Europe.
 
-Protesters believe that data centers are poorly monitored. Protesters demand that new data centers not be built.
+Two Finnair aircraft also received a bomb threat.
 
-## Repetition
+There were no bombs on the planes. The planes had to make an emergency landing due to threats.
 
-The topic of the week's news was protests across Europe.
+Many experts believe that the bomb threats were sent by Russia.
 
-There have been protests for several weeks now. First there were big protests in France. Since then, people have demonstrated in countries such as Germany, Italy and Portugal. Protesters are demanding, for example, higher wages and better education.
+Prime Minister Petteri Orpo says that the authorities are investigating the events.
 
-This was the news of the week in plain Finnish. See you again, bye!
+## Russia in hockey
+
+![The ice hockey team stands in rows on the ice in red jerseys, the jerseys have the Russian coat of arms and the text &quot;Россия&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_4872,h_2740,x_0,y_300/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17313166ae76bdd5a37e/1793551386)
+
+Open image viewer
+
+Photo: Ondrej Deml / AOP
+
+The debate about Russia and ice hockey continued this week. Last week, the International Court of Justice ruled that Russia will be allowed to play in the Ice Hockey World Championship next year.
+
+Now many countries have announced that they will not play against Russia. The Finnish Ice Hockey Association also announced that Finland will not play with Russia. Sweden and the Czech Republic, for example, made the same decision.
+
+## Father's Day
+
+Today, Sunday, is Father's Day.
+
+Father's Day is also celebrated at the same time in Sweden, Norway, Iceland and Estonia. In many other countries, Father's Day is celebrated in the summer.
+
+Father's Day is a day to celebrate fathers and grandfathers. Father's Day is a day to raise the flag.
+
+There are a total of over 1.3 million fathers in Finland.
+
+This was Uutisviikko in plain Finnish. See you again, bye!

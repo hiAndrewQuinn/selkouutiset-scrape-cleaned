@@ -1,7 +1,5 @@
 {
-   "format" : "text",
    "target" : "en",
-   "source" : "fi",
    "q" : [
       "# Viikon uutinen selkosuomeksi | lauantai 7.11.2026",
       "",
@@ -68,5 +66,7 @@
       "Mielenosoituksia on ollut jo monta viikkoa. Isoja mielenosoituksia oli ensin Ranskassa. Sen jälkeen ihmiset ovat osoittaneet mieltä esimerkiksi Saksassa, Italiassa ja Portugalissa. Mielenosoittajat vaativat esimerkiksi lisää palkkaa ja parempaa koulutusta.",
       "",
       "Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!"
-   ]
+   ],
+   "source" : "fi",
+   "format" : "text"
 }

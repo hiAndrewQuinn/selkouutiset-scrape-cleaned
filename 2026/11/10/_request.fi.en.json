@@ -1,5 +1,7 @@
 {
    "format" : "text",
+   "target" : "en",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | maanantai 9.11.2026",
       "",
@@ -56,7 +58,5 @@
       "Maan keskivaiheilla sataa vettä ja lunta.",
       "",
       "Etelämpänä on lämpimämpää ja pilvistä."
-   ],
-   "source" : "fi",
-   "target" : "en"
+   ]
 }

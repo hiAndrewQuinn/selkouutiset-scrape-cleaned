@@ -1,55 +1,39 @@
-# Selkouutiset | maanantai 9.11.2026
+# Selkouutiset | tiistai 10.11.2026
 
-YK:n ilmastokokous. Passit. Kruunusiltojen raitiotie. Postia joulupukille. Sää
+Etätyö. Lenita Airisto. Miljoonasade. Sää.
 
-## Ilmastokokous
+## Etätyön valvonta
 
-Aluksi ilmastoasiaa.
+Aluksi uutinen etätyöstä.
 
-YK:n kansainvälinen ilmastokokous on alkanut Turkin Antalyassa.
+Valtion virastot valvovat tarkasti työntekijöitä, jotka tekevät etätöitä. Ylen MOT-toimituksen selvitys koskee Kelaa ja Verohallintoa. Virastot seuraavat esimerkiksi sitä, paljonko työntekijät tekevät töitä. Myös työnteon nopeutta mitataan.
 
-Kokouksen pääteemaksi nousee ehkä tällä kertaa maailman sähköistyminen.
+Kela on tehnyt työntekijöistä raportteja. Joskus työntekijä on irtisanottu, tai työntekijä on saanut varoituksen. Kela sai tänä vuonna oikeuden tuomion siitä, että työntekijän irtisanominen oli laiton.
 
-Se tarkoittaa, että puhtaan sähkön käyttöä lisätään esimerkiksi energiantuotannossa, teollisuudessa ja liikenteessä. Silloin myös ilmastopäästöt vähenevät.
+Valtion virastot valvovat tarkasti työntekijöitä, jotka tekevät etätöitä. Työntekijän on joskus vaikea täyttää virastojen vaatimukset.
 
-## Passit
+## Lenita Airisto
 
-Sitten uutinen passeista.
+Seuraavan uutisen aihe on **Lenita Airisto**.
 
-Poliisi varoittaa, että passin uusimisessa voi olla ruuhkaa ensi vuonna.
+Lenita Airisto on kuollut. Hän oli televisiotoimittaja ja yrittäjä. Suomalaiset tutustuivat Lenita Airistoon jo vuonna 1954. Silloin 17-vuotias Airisto valittiin Suomen Neidoksi.
 
-Ruuhkaa odotetaan, koska yli miljoonan suomalaisen passi vanhenee vuonna 2027.
+Hän työskenteli televisiotoimittajana ja juontajana Yleisradiossa ja MTV:n ohjelmissa. Hän oli myös tietokirjailija ja puhuja.
 
-Poliisi sanoo, että passi kannattaa uusia jo talvella ennen kesän lomakautta.
+Lenita Airisto on kuollut. Hän oli 89-vuotias.
 
-## Kruunusiltojen raitiotie
+## Miljoonasade
 
-Sitten kerromme raitiovaunuliikenteestä.
+Nyt aiheena on musiikki. Suosittu Miljoonasade-yhtye täyttää 40 vuotta. Yhtyeen laulaja on muusikko **Heikki Salo**. Hän on kirjoittanut valtavan määrän kappaleita Miljoonasateelle ja muille artisteille. Heikki Salo myös opettaa ihmisille, miten laulun sanoja kirjoitetaan.
 
-Helsingissä juhlittiin viikonloppuna uutta raitiovaunureittiä. Reitti yhdistää Laajasalon kaupunginosan kantakaupunkiin.
+Hän sanoo, että Miljoonasateen pitkän uran salaisuus ovat laulut, jotka kestävät aikaa:
 
-Reitti kulkee uusia Kruunusiltoja pitkin. Yksi niistä on Kruunuvuoren silta, joka on Suomen pisin silta. Se on yli kilometrin pituinen.
+\- Olen alusta lähtien ajatellut, että täytyy tehdä semmoisia kestäviä biisejä. Se tarkoittaa käytännössä sitä, että puhutaan oikeasta elämästä.
 
-Uudesta reitistä on sanottu, että se on ehkä maailman kaunein raitiovaunureitti.
+Miljoonasade-yhtye täyttää 40 vuotta. Miljoonasade tekee juhlavuonna paljon keikkoja eri puolilla Suomea.
 
-## Postia joulupukille
-
-Sitten aiheena on joulupukin posti.
-
-Suomen posti on vienyt joulupukin postilaatikon Lontooseen. Postilaatikko on joulutorilla Leicester Squarella. Siihen voi jättää kirjeen ja lahjatoiveet joulupukille.
-
-**Isabella** toivoi pukilta tänä vuonna puista jäätelökauppalelua. **Talia** toivoi rahaa. **Sam** toivoi onnellisuutta ja Lego-lahjakorttia.
-
-Suomen posti toi joulupukin postilaatikon Lontooseen, koska pukki saa joka vuosi paljon kirjeitä Britanniasta.
-
-Kaikki eivät kuitenkaan tiedä oikeaa osoitetta. Moni lähettää postia pohjoisnavalle, vaikka Joulupukki asuu Korvatunturilla.
-
-## Tiistain sää
+## Sää
 
 Vielä sääennuste.
 
-Pohjoisessa on aurinkoista ja lämpötila jää selvästi pakkasen puolelle.
-
-Maan keskivaiheilla sataa vettä ja lunta.
-
-Etelämpänä on lämpimämpää ja pilvistä.
+Keskiviikkona etelässä sataa paikoin vettä. Pohjoisessa paistaa aurinko. Lämpötila on +6 ja -10 asteen välillä.

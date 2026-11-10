@@ -1,55 +1,39 @@
-# Clear News | Monday 9.11.2026
+# Clear News | Tuesday 10.11.2026
 
-UN Climate Conference. Passports. Kruunusiltoden tramway. Mail for Santa Claus. Weather
+Remote work. Lenita Airisto. Million Rain. Weather.
 
-## Climate Summit
+## Remote work monitoring
 
-First, the climate issue.
+First, news about remote work.
 
-The UN international climate conference has begun in Antalya, Turkey.
+Government agencies closely monitor employees who work remotely. The investigation by Yle's MOT editorial team concerns Kela and the Tax Administration. For example, the agencies monitor how much work employees do. The speed of work is also measured.
 
-The main theme of the meeting this time may be the electrification of the world.
+Kela has made reports on employees. Sometimes the employee has been dismissed, or the employee has been given a warning. This year, Kela received a court ruling that the employee's dismissal was illegal.
 
-This means that the use of clean electricity will be increased in, for example, energy production, industry and transport. This will also reduce climate emissions.
+Government agencies closely monitor employees who work remotely. It is sometimes difficult for an employee to meet agency requirements.
 
-## Passports
+## Lenita Airisto
 
-Then the news about passports.
+The topic of the next news is **Lenita Airisto**.
 
-Police warn that there may be a backlog in passport renewals next year.
+Lenita Airisto has died. She was a television journalist and entrepreneur. Finns became acquainted with Lenita Airisto in 1954. At that time, 17-year-old Airisto was chosen as the Miss Finland.
 
-A backlog is expected because the passports of over a million Finns will expire in 2027.
+He worked as a television journalist and presenter for Yleisradio and MTV programs. He was also a non-fiction writer and speaker.
 
-The police say it is a good idea to renew your passport in the winter before the summer holiday season.
+Lenita Airisto has died. She was 89 years old.
 
-## Kruunusiltoden tramway
+## Million Rain
 
-Then we'll talk about tram traffic.
+Now the topic is music. The popular band Miljoonasade is celebrating its 40th anniversary. The band's singer is musician **Heikki Salo**. He has written a huge number of songs for Miljoonasade and other artists. Heikki Salo also teaches people how to write song lyrics.
 
-Helsinki celebrated the launch of a new tram route over the weekend. The route connects the Laajasalo district to the city center.
+He says that the secret to Miljoonasate's long career is songs that last:
 
-The route runs along the new Kruunusilto bridges. One of them is the Kruunuvuori bridge, which is the longest bridge in Finland. It is over a kilometer long.
+\- I've thought from the beginning that we need to make songs that last. In practice, that means talking about real life.
 
-The new route has been said to be perhaps the most beautiful tram route in the world.
+The Miljoonasade band is celebrating its 40th anniversary. Miljoonasade will be performing many gigs across Finland during the anniversary year.
 
-## Mail for Santa Claus
-
-Then the topic is Santa's mail.
-
-Finnish Post has brought Santa Claus' mailbox to London. The mailbox is located at the Christmas market in Leicester Square. You can leave a letter and gift wishes for Santa Claus in it.
-
-**Isabella** wished for a wooden ice cream shop toy from Santa this year. **Talia** wished for money. **Sam** wished for happiness and a Lego gift card.
-
-Finnish Post brought Santa Claus' mailbox to London because Santa receives a lot of letters from Britain every year.
-
-However, not everyone knows the correct address. Many people send mail to the North Pole, even though Santa Claus lives in Korvatunturi.
-
-## Tuesday weather
+## Weather
 
 Still a weather forecast.
 
-It is sunny in the north and the temperature is clearly below freezing.
-
-It rains and snows in the central parts of the country.
-
-Further south it is warmer and cloudier.
+On Wednesday, it will rain in places in the south. The sun will shine in the north. The temperature will be between +6 and -10 degrees.

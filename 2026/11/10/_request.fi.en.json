@@ -1,5 +1,5 @@
 {
-   "source" : "fi",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | maanantai 9.11.2026",
       "",
@@ -57,6 +57,6 @@
       "",
       "Etelämpänä on lämpimämpää ja pilvistä."
    ],
-   "target" : "en",
-   "format" : "text"
+   "source" : "fi",
+   "target" : "en"
 }

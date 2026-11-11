@@ -1,4 +1,6 @@
 {
+   "target" : "en",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | tiistai 10.11.2026",
       "",
@@ -40,7 +42,5 @@
       "",
       "Keskiviikkona etelässä sataa paikoin vettä. Pohjoisessa paistaa aurinko. Lämpötila on +6 ja -10 asteen välillä."
    ],
-   "format" : "text",
-   "target" : "en",
    "source" : "fi"
 }

@@ -1,39 +1,53 @@
-# Selkouutiset | tiistai 10.11.2026
+# Selkouutiset | keskiviikko 11.11.2026
 
-Etätyö. Lenita Airisto. Miljoonasade. Sää.
+Tuloerot. Teleoperaattorit. Lepakot. Sää.
 
-## Etätyön valvonta
+## Tuloerot
 
-Aluksi uutinen etätyöstä.
+Aluksi uutinen tuloeroista.
 
-Valtion virastot valvovat tarkasti työntekijöitä, jotka tekevät etätöitä. Ylen MOT-toimituksen selvitys koskee Kelaa ja Verohallintoa. Virastot seuraavat esimerkiksi sitä, paljonko työntekijät tekevät töitä. Myös työnteon nopeutta mitataan.
+Hallituksen päätökset sosiaaliturvasta ja verotuksesta kasvattavat tuloeroja. Näin kertoo Terveyden ja hyvinvoinnin laitoksen selvitys.
 
-Kela on tehnyt työntekijöistä raportteja. Joskus työntekijä on irtisanottu, tai työntekijä on saanut varoituksen. Kela sai tänä vuonna oikeuden tuomion siitä, että työntekijän irtisanominen oli laiton.
+Se kertoo, että kaikkein pienituloisimpien tulot ovat laskeneet keskimäärin 80 euroa kuukaudessa.
 
-Valtion virastot valvovat tarkasti työntekijöitä, jotka tekevät etätöitä. Työntekijän on joskus vaikea täyttää virastojen vaatimukset.
+Kaikkein suurituloisimpien tulot ovat nousseet noin 50 euroa kuussa.
 
-## Lenita Airisto
+Opiskelijoiden tulot ovat laskeneet suhteellisesti eniten.
 
-Seuraavan uutisen aihe on **Lenita Airisto**.
+Hallituksen päätökset kasvattavat tuloeroja. Tulot tarkoittavat esimerkiksi palkkaa ja toimeentulotukea.
 
-Lenita Airisto on kuollut. Hän oli televisiotoimittaja ja yrittäjä. Suomalaiset tutustuivat Lenita Airistoon jo vuonna 1954. Silloin 17-vuotias Airisto valittiin Suomen Neidoksi.
+## Teleoperaattorit
 
-Hän työskenteli televisiotoimittajana ja juontajana Yleisradiossa ja MTV:n ohjelmissa. Hän oli myös tietokirjailija ja puhuja.
+Nyt asiaa puhelinliittymien myynnistä.
 
-Lenita Airisto on kuollut. Hän oli 89-vuotias.
+Entiset liittymien myyjät sanovat, että asiakkaalle myydään turhia palveluja.
 
-## Miljoonasade
+Teleoperaattoreiden myyjät ovat huijanneet erityisesti vanhoja ihmisiä. Teleoperaattori on yritys, joka myy puhelin- ja nettiliittymiä.
 
-Nyt aiheena on musiikki. Suosittu Miljoonasade-yhtye täyttää 40 vuotta. Yhtyeen laulaja on muusikko **Heikki Salo**. Hän on kirjoittanut valtavan määrän kappaleita Miljoonasateelle ja muille artisteille. Heikki Salo myös opettaa ihmisille, miten laulun sanoja kirjoitetaan.
+Entiset myyjät kertovat, että huijaamalla asiakkaita voi parantaa omaa palkkiota.
 
-Hän sanoo, että Miljoonasateen pitkän uran salaisuus ovat laulut, jotka kestävät aikaa:
+Teleoperaattorit sanovat, että turhia palveluja ei myydä.
 
-\- Olen alusta lähtien ajatellut, että täytyy tehdä semmoisia kestäviä biisejä. Se tarkoittaa käytännössä sitä, että puhutaan oikeasta elämästä.
+Entiset myyjät kuitenkin sanovat, että asiakkaalle myydään turhia palveluja.
 
-Miljoonasade-yhtye täyttää 40 vuotta. Miljoonasade tekee juhlavuonna paljon keikkoja eri puolilla Suomea.
+Asiakkaat ottavat nykyään paljon yhteyttä kuluttajaviranomaiseen teleoperaattorin takia.
+
+## Lepakot
+
+Sitten kerromme lepakoista.
+
+Taloa ei saa purkaa, jos siinä asuu lepakko. Talon purkamiseen tarvitaan silloin poikkeuslupa.
+
+Lepakkoja on vähän. Niitä ei saa hävittää ilman poikkeuslupaa.
+
+Nokian seurakunta aikoi purkaa vanhan seurakuntatalon. Talosta löytyi lepakon jälkiä, joten purkaminen piti keskeyttää.
+
+Taloa ei saa purkaa, jos siinä asuu lepakko. Laki kieltää talon purkamisen, jos se on lepakon lisääntymis- tai levähdyspaikka.
 
 ## Sää
 
 Vielä sääennuste.
 
-Keskiviikkona etelässä sataa paikoin vettä. Pohjoisessa paistaa aurinko. Lämpötila on +6 ja -10 asteen välillä.
+Pohjoisessa päivä on poutainen ja päivällä on pakkasta.
+
+Muualla maassa sataa vettä tai lunta ja lämpötila on 0–7 astetta.

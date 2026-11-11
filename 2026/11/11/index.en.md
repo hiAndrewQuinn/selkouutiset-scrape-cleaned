@@ -1,39 +1,53 @@
-# Clear News | Tuesday 10.11.2026
+# Clear News | Wednesday 11.11.2026
 
-Remote work. Lenita Airisto. Million Rain. Weather.
+Income inequality. Telecom operators. Bats. Weather.
 
-## Remote work monitoring
+## Income differences
 
-First, news about remote work.
+First, the news about income inequality.
 
-Government agencies closely monitor employees who work remotely. The investigation by Yle's MOT editorial team concerns Kela and the Tax Administration. For example, the agencies monitor how much work employees do. The speed of work is also measured.
+The government's decisions on social security and taxation are increasing income inequality, according to a report by the Finnish Institute for Health and Welfare.
 
-Kela has made reports on employees. Sometimes the employee has been dismissed, or the employee has been given a warning. This year, Kela received a court ruling that the employee's dismissal was illegal.
+It shows that the income of the lowest income earners has decreased by an average of 80 euros per month.
 
-Government agencies closely monitor employees who work remotely. It is sometimes difficult for an employee to meet agency requirements.
+The income of the highest earners has increased by about 50 euros per month.
 
-## Lenita Airisto
+Students' incomes have decreased the most in relative terms.
 
-The topic of the next news is **Lenita Airisto**.
+Government decisions increase income inequality. Income refers to, for example, wages and social assistance.
 
-Lenita Airisto has died. She was a television journalist and entrepreneur. Finns became acquainted with Lenita Airisto in 1954. At that time, 17-year-old Airisto was chosen as the Miss Finland.
+## Telecom operators
 
-He worked as a television journalist and presenter for Yleisradio and MTV programs. He was also a non-fiction writer and speaker.
+Now about the sale of telephone subscriptions.
 
-Lenita Airisto has died. She was 89 years old.
+Former subscription salespeople say that customers are being sold useless services.
 
-## Million Rain
+Salespeople from telecom operators have been particularly swindling older people. A telecom operator is a company that sells telephone and internet subscriptions.
 
-Now the topic is music. The popular band Miljoonasade is celebrating its 40th anniversary. The band's singer is musician **Heikki Salo**. He has written a huge number of songs for Miljoonasade and other artists. Heikki Salo also teaches people how to write song lyrics.
+Former salespeople say that by cheating customers, you can improve your own commission.
 
-He says that the secret to Miljoonasate's long career is songs that last:
+Telecom operators say they don't sell unnecessary services.
 
-\- I've thought from the beginning that we need to make songs that last. In practice, that means talking about real life.
+However, former salespeople say that the customer is being sold useless services.
 
-The Miljoonasade band is celebrating its 40th anniversary. Miljoonasade will be performing many gigs across Finland during the anniversary year.
+Nowadays, customers often contact the Consumer Authority because of their telecom operator.
+
+## Bats
+
+Then we'll talk about bats.
+
+A house may not be demolished if there is a bat living in it. In that case, an exemption permit is required to demolish the house.
+
+There are few bats. They cannot be destroyed without an exemption.
+
+The Nokia parish was planning to demolish the old parish building. Bat tracks were found in the building, so the demolition had to be suspended.
+
+A house may not be demolished if a bat lives in it. The law prohibits the demolition of a house if it is a breeding or resting place for bats.
 
 ## Weather
 
 Still a weather forecast.
 
-On Wednesday, it will rain in places in the south. The sun will shine in the north. The temperature will be between +6 and -10 degrees.
+In the north, the day is blustery and it is freezing during the day.
+
+Elsewhere in the country, it is raining or snowing and the temperature is 0–7 degrees.

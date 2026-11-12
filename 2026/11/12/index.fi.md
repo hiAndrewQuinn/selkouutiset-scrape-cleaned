@@ -1,53 +1,49 @@
-# Selkouutiset | keskiviikko 11.11.2026
+# Selkouutiset | torstai 12.11.2026
 
-Tuloerot. Teleoperaattorit. Lepakot. Sää.
+Tuloverot. Kryptovaluutta. Tekoäly lukio-opiskelun apuna.
 
-## Tuloerot
+## Suuri verotietopäivä
 
-Aluksi uutinen tuloeroista.
+Aluksi veroista ja tuloista Suomessa.
 
-Hallituksen päätökset sosiaaliturvasta ja verotuksesta kasvattavat tuloeroja. Näin kertoo Terveyden ja hyvinvoinnin laitoksen selvitys.
+Verohallinto julkaisi aamulla tietoja viime vuoden tuloverotuksesta. Tuloveroja maksetaan esimerkiksi palkasta ja omaisuuden myynnistä.
 
-Se kertoo, että kaikkein pienituloisimpien tulot ovat laskeneet keskimäärin 80 euroa kuukaudessa.
+Ruokalähettipalvelu Woltin perustaja **Miki** **Kuusi** ansaitsi jälleen eniten. Kuusen tulot olivat 132 miljoonaa euroa. Hän myös maksoi eniten veroja.
 
-Kaikkein suurituloisimpien tulot ovat nousseet noin 50 euroa kuussa.
+Toiseksi eniten tuloja sai WithSecuren ja F-Securen perustaja **Risto** **Siilasmaa**, yhteensä 64 miljoonaa.
 
-Opiskelijoiden tulot ovat laskeneet suhteellisesti eniten.
+Kolmantena oli iranilainen yrittäjä **Saber** **Kordestanchi**. Hän kuuluu ohjelmistoyhtiö Hostawayn perustajiin. Kordestanchi ansaitsi 43 miljoonaa euroa.
 
-Hallituksen päätökset kasvattavat tuloeroja. Tulot tarkoittavat esimerkiksi palkkaa ja toimeentulotukea.
+## Kryptovaluutta
 
-## Teleoperaattorit
+Seuraava uutinen on kryptovaluutasta.
 
-Nyt asiaa puhelinliittymien myynnistä.
+Moni suomalainen ei kerro verottajalle, että on myynyt kryptovaluuttaa.
 
-Entiset liittymien myyjät sanovat, että asiakkaalle myydään turhia palveluja.
+Viime vuonna ainakin 100 000 suomalaista osti tai myi kryptovaluuttaa. Vain noin 16 000 ihmistä ilmoitti kaupoista.
 
-Teleoperaattoreiden myyjät ovat huijanneet erityisesti vanhoja ihmisiä. Teleoperaattori on yritys, joka myy puhelin- ja nettiliittymiä.
+Kryptovaluutta on rahaa, joka on vain verkossa. Sitä voi ostaa ja myydä. Bitcoin on yksi kryptovaluutta.
 
-Entiset myyjät kertovat, että huijaamalla asiakkaita voi parantaa omaa palkkiota.
+Moni suomalainen ei kerro verottajalle, että on myynyt kryptovaluuttaa. Verottaja saa ensi vuonna tietoja kaupoista ilman, että se pyytää tietoja erikseen.
 
-Teleoperaattorit sanovat, että turhia palveluja ei myydä.
+## Tekoäly lukioissa
 
-Entiset myyjät kuitenkin sanovat, että asiakkaalle myydään turhia palveluja.
+Seuraavaksi kerromme tekoälystä lukiossa.
 
-Asiakkaat ottavat nykyään paljon yhteyttä kuluttajaviranomaiseen teleoperaattorin takia.
+Lukiolaiset tekevät lähes kaikki kirjoitustehtävät koulussa. Opettaja valvoo, että tehtäviä ei tee tekoäly.
 
-## Lepakot
+Tekoäly on tietokoneohjelma, joka osaa tehdä tekstiä. Jos nuori antaa tekoälyn tehdä koko tehtävän, hän rikkoo koulun sääntöjä.
 
-Sitten kerromme lepakoista.
+Jyväskylän lukiolaiset sanovat, että valvonta on reilua.
 
-Taloa ei saa purkaa, jos siinä asuu lepakko. Talon purkamiseen tarvitaan silloin poikkeuslupa.
-
-Lepakkoja on vähän. Niitä ei saa hävittää ilman poikkeuslupaa.
-
-Nokian seurakunta aikoi purkaa vanhan seurakuntatalon. Talosta löytyi lepakon jälkiä, joten purkaminen piti keskeyttää.
-
-Taloa ei saa purkaa, jos siinä asuu lepakko. Laki kieltää talon purkamisen, jos se on lepakon lisääntymis- tai levähdyspaikka.
+Lukiolaiset tekevät lähes kaikki kirjoitustehtävät koulussa, jotta tekoäly ei tee tehtäviä kokonaan.
 
 ## Sää
 
 Vielä sääennuste.
 
-Pohjoisessa päivä on poutainen ja päivällä on pakkasta.
+Huomenna maan keskiosassa sataa paljon lunta.
 
-Muualla maassa sataa vettä tai lunta ja lämpötila on 0–7 astetta.
+Etelässä sataa vettä ja räntää.
+
+Lapissa on enimmäkseen poutaa ja pakkasta.

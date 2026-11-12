@@ -1,53 +1,49 @@
-# Clear News | Wednesday 11.11.2026
+# Clear News | Thursday 12.11.2026
 
-Income inequality. Telecom operators. Bats. Weather.
+Income taxes. Cryptocurrency. Artificial intelligence as an aid to high school studies.
 
-## Income differences
+## Big Tax Information Day
 
-First, the news about income inequality.
+First, about taxes and income in Finland.
 
-The government's decisions on social security and taxation are increasing income inequality, according to a report by the Finnish Institute for Health and Welfare.
+This morning, the Tax Administration published information on last year's income taxation. Income taxes are paid on, for example, wages and the sale of property.
 
-It shows that the income of the lowest income earners has decreased by an average of 80 euros per month.
+**Miki** **Kuusi**, the founder of the food delivery service Wolt, was once again the highest earner. Kuusi's income was 132 million euros. He also paid the most taxes.
 
-The income of the highest earners has increased by about 50 euros per month.
+The second highest income was received by **Risto** **Siilasmaa**, founder of WithSecure and F-Secure, with a total of 64 million.
 
-Students' incomes have decreased the most in relative terms.
+In third place was Iranian entrepreneur **Saber** **Kordestanchi**. He is one of the founders of the software company Hostaway. Kordestanchi earned 43 million euros.
 
-Government decisions increase income inequality. Income refers to, for example, wages and social assistance.
+## Cryptocurrency
 
-## Telecom operators
+The next news is about cryptocurrency.
 
-Now about the sale of telephone subscriptions.
+Many Finns do not tell the tax authorities that they have sold cryptocurrency.
 
-Former subscription salespeople say that customers are being sold useless services.
+Last year, at least 100,000 Finns bought or sold cryptocurrency. Only about 16,000 people reported the trades.
 
-Salespeople from telecom operators have been particularly swindling older people. A telecom operator is a company that sells telephone and internet subscriptions.
+Cryptocurrency is money that only exists online. It can be bought and sold. Bitcoin is one cryptocurrency.
 
-Former salespeople say that by cheating customers, you can improve your own commission.
+Many Finns do not tell the tax authorities that they have sold cryptocurrency. Next year, the tax authorities will receive information about the transactions without requesting the information separately.
 
-Telecom operators say they don't sell unnecessary services.
+## Artificial intelligence in high schools
 
-However, former salespeople say that the customer is being sold useless services.
+Next, we will talk about artificial intelligence in high school.
 
-Nowadays, customers often contact the Consumer Authority because of their telecom operator.
+High school students do almost all their writing assignments at school. The teacher ensures that the assignments are not done by artificial intelligence.
 
-## Bats
+Artificial intelligence is a computer program that can generate text. If a young person lets an AI do the entire assignment, they are breaking school rules.
 
-Then we'll talk about bats.
+Jyväskylä high school students say that supervision is fair.
 
-A house may not be demolished if there is a bat living in it. In that case, an exemption permit is required to demolish the house.
-
-There are few bats. They cannot be destroyed without an exemption.
-
-The Nokia parish was planning to demolish the old parish building. Bat tracks were found in the building, so the demolition had to be suspended.
-
-A house may not be demolished if a bat lives in it. The law prohibits the demolition of a house if it is a breeding or resting place for bats.
+High school students do almost all of their writing assignments at school, so that artificial intelligence doesn't do the assignments entirely.
 
 ## Weather
 
 Still a weather forecast.
 
-In the north, the day is blustery and it is freezing during the day.
+It will snow heavily in the central part of the country tomorrow.
 
-Elsewhere in the country, it is raining or snowing and the temperature is 0–7 degrees.
+It is raining and sleet in the south.
+
+Lapland is mostly dry and frosty.

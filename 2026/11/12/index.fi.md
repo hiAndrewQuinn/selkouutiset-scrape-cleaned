@@ -1,0 +1,53 @@
+# Selkouutiset | keskiviikko 11.11.2026
+
+Tuloerot. Teleoperaattorit. Lepakot. Sää.
+
+## Tuloerot
+
+Aluksi uutinen tuloeroista.
+
+Hallituksen päätökset sosiaaliturvasta ja verotuksesta kasvattavat tuloeroja. Näin kertoo Terveyden ja hyvinvoinnin laitoksen selvitys.
+
+Se kertoo, että kaikkein pienituloisimpien tulot ovat laskeneet keskimäärin 80 euroa kuukaudessa.
+
+Kaikkein suurituloisimpien tulot ovat nousseet noin 50 euroa kuussa.
+
+Opiskelijoiden tulot ovat laskeneet suhteellisesti eniten.
+
+Hallituksen päätökset kasvattavat tuloeroja. Tulot tarkoittavat esimerkiksi palkkaa ja toimeentulotukea.
+
+## Teleoperaattorit
+
+Nyt asiaa puhelinliittymien myynnistä.
+
+Entiset liittymien myyjät sanovat, että asiakkaalle myydään turhia palveluja.
+
+Teleoperaattoreiden myyjät ovat huijanneet erityisesti vanhoja ihmisiä. Teleoperaattori on yritys, joka myy puhelin- ja nettiliittymiä.
+
+Entiset myyjät kertovat, että huijaamalla asiakkaita voi parantaa omaa palkkiota.
+
+Teleoperaattorit sanovat, että turhia palveluja ei myydä.
+
+Entiset myyjät kuitenkin sanovat, että asiakkaalle myydään turhia palveluja.
+
+Asiakkaat ottavat nykyään paljon yhteyttä kuluttajaviranomaiseen teleoperaattorin takia.
+
+## Lepakot
+
+Sitten kerromme lepakoista.
+
+Taloa ei saa purkaa, jos siinä asuu lepakko. Talon purkamiseen tarvitaan silloin poikkeuslupa.
+
+Lepakkoja on vähän. Niitä ei saa hävittää ilman poikkeuslupaa.
+
+Nokian seurakunta aikoi purkaa vanhan seurakuntatalon. Talosta löytyi lepakon jälkiä, joten purkaminen piti keskeyttää.
+
+Taloa ei saa purkaa, jos siinä asuu lepakko. Laki kieltää talon purkamisen, jos se on lepakon lisääntymis- tai levähdyspaikka.
+
+## Sää
+
+Vielä sääennuste.
+
+Pohjoisessa päivä on poutainen ja päivällä on pakkasta.
+
+Muualla maassa sataa vettä tai lunta ja lämpötila on 0–7 astetta.

@@ -1,5 +1,4 @@
 {
-   "source" : "fi",
    "q" : [
       "# Selkouutiset | keskiviikko 11.11.2026",
       "",
@@ -55,6 +54,7 @@
       "",
       "Muualla maassa sataa vettä tai lunta ja lämpötila on 0–7 astetta."
    ],
-   "target" : "en",
-   "format" : "text"
+   "format" : "text",
+   "source" : "fi",
+   "target" : "en"
 }

@@ -1,4 +1,5 @@
 {
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | torstai 12.11.2026",
       "",
@@ -50,7 +51,6 @@
       "",
       "Lapissa on enimmäkseen poutaa ja pakkasta."
    ],
-   "target" : "en",
    "format" : "text",
-   "source" : "fi"
+   "target" : "en"
 }

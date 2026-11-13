@@ -1,49 +1,63 @@
-# Selkouutiset | torstai 12.11.2026
+# Selkouutiset | perjantai 13.11.2026
 
-Tuloverot. Kryptovaluutta. Tekoäly lukio-opiskelun apuna.
+Viisumit. Uudet ylioppilaat. Nykytaide. Sää.
 
-## Suuri verotietopäivä
+## Venäläisten viisumit
 
-Aluksi veroista ja tuloista Suomessa.
+Aluksi uutinen viisumeista.
 
-Verohallinto julkaisi aamulla tietoja viime vuoden tuloverotuksesta. Tuloveroja maksetaan esimerkiksi palkasta ja omaisuuden myynnistä.
+Hallitus rajoittaa venäläisten urheilijoiden mahdollisuutta saada viisumi.
 
-Ruokalähettipalvelu Woltin perustaja **Miki** **Kuusi** ansaitsi jälleen eniten. Kuusen tulot olivat 132 miljoonaa euroa. Hän myös maksoi eniten veroja.
+Aiemmin venäläiset urheilijat ovat saaneet viisumin työmatkan perusteella.
 
-Toiseksi eniten tuloja sai WithSecuren ja F-Securen perustaja **Risto** **Siilasmaa**, yhteensä 64 miljoonaa.
+Ensi maanantaista alkaen viisumin saa vain, jos työ on Suomen kansallisen edun kannalta välttämätöntä.
 
-Kolmantena oli iranilainen yrittäjä **Saber** **Kordestanchi**. Hän kuuluu ohjelmistoyhtiö Hostawayn perustajiin. Kordestanchi ansaitsi 43 miljoonaa euroa.
+Hallitus rajoittaa venäläisten urheilijoiden mahdollisuutta saada viisumi.
 
-## Kryptovaluutta
+Sama rajoitus koskee myös muita venäläisiä, jotka hakevat viisumia työn takia.
 
-Seuraava uutinen on kryptovaluutasta.
+Ulkoministeri **Elina** **Valtonen** sanoo, että Venäjän sotaa tukevan viestin leviäminen halutaan estää.
 
-Moni suomalainen ei kerro verottajalle, että on myynyt kryptovaluuttaa.
+– Venäjä käyttää esimerkiksi urheilua hyökkäyssodan tavoitteita ajavan propagandansa välineenä.
 
-Viime vuonna ainakin 100 000 suomalaista osti tai myi kryptovaluuttaa. Vain noin 16 000 ihmistä ilmoitti kaupoista.
+## Uudet ylioppilaat
 
-Kryptovaluutta on rahaa, joka on vain verkossa. Sitä voi ostaa ja myydä. Bitcoin on yksi kryptovaluutta.
+Sitten uutinen ylioppilaista.
 
-Moni suomalainen ei kerro verottajalle, että on myynyt kryptovaluuttaa. Verottaja saa ensi vuonna tietoja kaupoista ilman, että se pyytää tietoja erikseen.
+Uusia ylioppilaita valmistuu tänä syksynä 4800.
 
-## Tekoäly lukioissa
+Määrä on noin 200 pienempi kuin viime syksynä.
 
-Seuraavaksi kerromme tekoälystä lukiossa.
+Ylioppilastutkintolautakunta sanoo, että joka viidennestä lukiosta ei valmistu syksyllä ketään. Uusia ylioppilaita valmistuu tänä syksynä 4800.
 
-Lukiolaiset tekevät lähes kaikki kirjoitustehtävät koulussa. Opettaja valvoo, että tehtäviä ei tee tekoäly.
+Parkanon lukiosta valmistuu tänä syksynä 5 ylioppilasta.
 
-Tekoäly on tietokoneohjelma, joka osaa tehdä tekstiä. Jos nuori antaa tekoälyn tehdä koko tehtävän, hän rikkoo koulun sääntöjä.
+**Noora** **Juusenaho** on yksi heistä.
 
-Jyväskylän lukiolaiset sanovat, että valvonta on reilua.
+Voit katsoa uudet ylioppilaat osoitteesta yle.fi.
 
-Lukiolaiset tekevät lähes kaikki kirjoitustehtävät koulussa, jotta tekoäly ei tee tehtäviä kokonaan.
+## Nykytaide
+
+Nyt kerromme nykytaiteesta.
+
+Helsingissä voi nähdä poikkeuksellista taidetta.
+
+Nykytaiteen museossa Kiasmassa esitetään videoinstallaatio. Videoinstallaatio on taideteos, jossa taiteilija yhdistää esimerkiksi videokuvaa ja arkkitehtuuria.
+
+Helsingissä voi nähdä poikkeuksellista taidetta.
+
+Britti­taiteilija **Oliver Beer** sai laulaa ja kuvata esi­historiallisessa luolassa.
+
+Luolassa saa käydä vain erikoisluvalla.
 
 ## Sää
 
 Vielä sääennuste.
 
-Huomenna maan keskiosassa sataa paljon lunta.
+Lauantaina sää on pilvinen.
 
-Etelässä sataa vettä ja räntää.
+Lapissa sataa lunta. Tie voi olla pohjoisessa liukas.
 
-Lapissa on enimmäkseen poutaa ja pakkasta.
+Lähes koko maassa on pakkasta.
+
+Etelässä lämpötila on hieman yli nolla astetta.

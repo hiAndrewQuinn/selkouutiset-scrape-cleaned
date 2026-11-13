@@ -1,49 +1,63 @@
-# Clear News | Thursday 12.11.2026
+# Clear News | Friday 13.11.2026
 
-Income taxes. Cryptocurrency. Artificial intelligence as an aid to high school studies.
+Visas. New graduates. Contemporary art. Weather.
 
-## Big Tax Information Day
+## Visas for Russians
 
-First, about taxes and income in Finland.
+First, news about visas.
 
-This morning, the Tax Administration published information on last year's income taxation. Income taxes are paid on, for example, wages and the sale of property.
+The government is restricting the ability of Russian athletes to obtain visas.
 
-**Miki** **Kuusi**, the founder of the food delivery service Wolt, was once again the highest earner. Kuusi's income was 132 million euros. He also paid the most taxes.
+Previously, Russian athletes have received visas based on a business trip.
 
-The second highest income was received by **Risto** **Siilasmaa**, founder of WithSecure and F-Secure, with a total of 64 million.
+Starting next Monday, you can only get a visa if the work is essential to Finland's national interest.
 
-In third place was Iranian entrepreneur **Saber** **Kordestanchi**. He is one of the founders of the software company Hostaway. Kordestanchi earned 43 million euros.
+The government is restricting the ability of Russian athletes to obtain visas.
 
-## Cryptocurrency
+The same restriction also applies to other Russians who apply for a visa for work.
 
-The next news is about cryptocurrency.
+Foreign Minister **Elina** **Valtonen** says that the aim is to prevent the spread of a message supporting Russia's war.
 
-Many Finns do not tell the tax authorities that they have sold cryptocurrency.
+– For example, Russia uses sports as a propaganda tool to promote the goals of its war of aggression.
 
-Last year, at least 100,000 Finns bought or sold cryptocurrency. Only about 16,000 people reported the trades.
+## New graduates
 
-Cryptocurrency is money that only exists online. It can be bought and sold. Bitcoin is one cryptocurrency.
+Then news about the graduates.
 
-Many Finns do not tell the tax authorities that they have sold cryptocurrency. Next year, the tax authorities will receive information about the transactions without requesting the information separately.
+4,800 new high school graduates will graduate this fall.
 
-## Artificial intelligence in high schools
+The number is about 200 fewer than last autumn.
 
-Next, we will talk about artificial intelligence in high school.
+The Finnish Matriculation Examination Board says that one in five upper secondary schools will not graduate this fall. 4,800 new Matriculants will graduate this fall.
 
-High school students do almost all their writing assignments at school. The teacher ensures that the assignments are not done by artificial intelligence.
+Five students will graduate from Parkano Upper Secondary School this fall.
 
-Artificial intelligence is a computer program that can generate text. If a young person lets an AI do the entire assignment, they are breaking school rules.
+**Noora** **Juusenaho** is one of them.
 
-Jyväskylä high school students say that supervision is fair.
+You can view the new graduates at yle.fi.
 
-High school students do almost all of their writing assignments at school, so that artificial intelligence doesn't do the assignments entirely.
+## Contemporary art
+
+Now we're talking about contemporary art.
+
+You can see exceptional art in Helsinki.
+
+A video installation is being presented at the Museum of Contemporary Art in Kiasma. A video installation is a work of art in which the artist combines, for example, video images and architecture.
+
+You can see exceptional art in Helsinki.
+
+British artist **Oliver Beer** was allowed to sing and film in a prehistoric cave.
+
+You can only visit the cave with special permission.
 
 ## Weather
 
 Still a weather forecast.
 
-It will snow heavily in the central part of the country tomorrow.
+The weather will be cloudy on Saturday.
 
-It is raining and sleet in the south.
+It is snowing in Lapland. The road may be slippery in the north.
 
-Lapland is mostly dry and frosty.
+It is freezing almost all over the country.
+
+In the south, the temperature is just above zero degrees.

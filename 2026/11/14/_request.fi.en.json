@@ -1,4 +1,7 @@
 {
+   "source" : "fi",
+   "target" : "en",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | perjantai 13.11.2026",
       "",
@@ -63,8 +66,5 @@
       "Lähes koko maassa on pakkasta.",
       "",
       "Etelässä lämpötila on hieman yli nolla astetta."
-   ],
-   "source" : "fi",
-   "format" : "text",
-   "target" : "en"
+   ]
 }

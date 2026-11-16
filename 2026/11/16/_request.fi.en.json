@@ -1,7 +1,6 @@
 {
    "source" : "fi",
    "format" : "text",
-   "target" : "en",
    "q" : [
       "# Uutisviikko selkosuomeksi | sunnuntai 15.11.2026",
       "",
@@ -86,5 +85,6 @@
       "Syksyn ylioppilaiden lakkiaispäivä on perjantaina 4. joulukuuta.",
       "",
       "Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!"
-   ]
+   ],
+   "target" : "en"
 }

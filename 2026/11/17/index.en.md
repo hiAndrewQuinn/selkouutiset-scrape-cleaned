@@ -30,7 +30,7 @@ Local transport ticket prices vary greatly between cities.
 
 Ticket prices may still increase in some cities.
 
-## Voting in the parish elections
+## Voting in parish elections
 
 More about the Evangelical Lutheran Church elections.
 

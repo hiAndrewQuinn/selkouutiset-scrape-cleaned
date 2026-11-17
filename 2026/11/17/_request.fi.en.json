@@ -1,5 +1,4 @@
 {
-   "target" : "en",
    "source" : "fi",
    "q" : [
       "# Selkouutiset | maanantai 16.11.2026",
@@ -54,5 +53,6 @@
       "",
       "Lämpötilat vaihtelevat -10 ja +7 asteen välillä."
    ],
+   "target" : "en",
    "format" : "text"
 }

@@ -1,0 +1,59 @@
+# Selkouutiset | keskiviikko 18.11.2026
+
+Työttömyys vähenee. Ulkomaiset yritykset suojelevat Suomen luontoa. Vaaratiedote.
+
+## Työttömyys vähenee
+
+Aluksi uutinen työttömyydestä.
+
+Työ- ja elinkeinoministeriö ennustaa, että työllisyys paranee jo loppuvuoden aikana.
+
+Ensi vuonna ilman työtä on kuitenkin yhä 340  000 suomalaista.
+
+Vuonna 2028 työttömiä on hieman vähemmän, 328  000.
+
+Ministeriö ennustaa, että työllisyys paranee jo loppuvuoden aikana.
+
+Suomen talouden kasvu vaikuttaa siihen, kuinka paljon eri aloilla on työpaikkoja.
+
+## Suomen luonnon suojelu
+
+Nyt luonnonsuojelusta.
+
+Ulkomaiset yritykset haluavat antaa rahaa Suomen luonnon suojeluun.
+
+Luonnonsuojeluun keskittyvät säätiöt ovat huomanneet, että tällaisia yrityksiä on yhä enemmän.
+
+Yleensä nämä yritykset toimivat Suomessa. Ne haluavat korvata vahinkoja, joita ne ovat aiheuttaneet.
+
+Esimerkiksi Hartolassa on suo, jonka suojeluun espanjalainen matkatoimisto antoi rahaa.
+
+Ulkomaiset yritykset haluavat antaa rahaa Suomen luonnon suojeluun.
+
+**Perttu** **Saarinen** työskentelee biologina Paremman luonnon puolesta -säätiössä.
+
+Hän sanoo, että suolla elää harvinaisia lintuja. Säätiö suojelee luontoa rahalla, jonka yritykset antavat.
+
+## Uusi vaaratiedote
+
+Nyt vaaratiedotteista.
+
+Suomessa testattiin eilen vaaratiedotteen lähettämistä suoraan puhelimeen.
+
+Uusi FI-Alert -vaaratiedote ei kuitenkaan tullut kaikkiin puhelimiin. Joillekin viesti tuli ensin saamen kielellä.
+
+Sisäministeriö myöntää, että se ei antanut tarpeeksi ohjeita ennen testiä.
+
+Suomessa testattiin eilen vaaratiedotteiden lähettämistä suoraan puhelimeen.
+
+Järjestelmää testataan seuraavan kerran ensi tiistaina.
+
+## Sää
+
+Vielä sääennuste.
+
+Torstaina sää on vaihtelevaa.
+
+Monin paikoin voi sataa vähän. Pohjoisessa sataa lunta.
+
+Lämpötilat vaihtelevat -4 asteesta +5 asteeseen.

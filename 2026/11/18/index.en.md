@@ -30,7 +30,7 @@ A prescription for obesity medication has been received from a chat clinic witho
 
 Chat clinics are no longer allowed to write prescriptions for obesity medication.
 
-Previously, bariatric surgery required a patient to lose 5 percent of their weight. This will no longer be necessary.
+Previously, admission to bariatric surgery required a patient to have lost 5 percent of their weight. In the future, this will no longer be necessary.
 
 ## Vantaa aircraft noise
 

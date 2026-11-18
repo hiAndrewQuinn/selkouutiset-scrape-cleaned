@@ -1,5 +1,7 @@
 {
+   "source" : "fi",
    "target" : "en",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | tiistai 16.11.2026",
       "",
@@ -58,7 +60,5 @@
       "Etelässä sataa vettä.",
       "",
       "Pohjoisessa on vähän pakkasta, etelässä alle +5 astetta."
-   ],
-   "format" : "text",
-   "source" : "fi"
+   ]
 }

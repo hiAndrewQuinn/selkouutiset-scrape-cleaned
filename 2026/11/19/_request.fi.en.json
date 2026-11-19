@@ -1,4 +1,6 @@
 {
+   "target" : "en",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | keskiviikko 18.11.2026",
       "",
@@ -60,7 +62,5 @@
       "",
       "Lämpötilat vaihtelevat -4 asteesta +5 asteeseen."
    ],
-   "source" : "fi",
-   "target" : "en",
-   "format" : "text"
+   "source" : "fi"
 }

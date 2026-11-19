@@ -1,6 +1,7 @@
 {
    "target" : "en",
    "format" : "text",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | keskiviikko 18.11.2026",
       "",
@@ -61,6 +62,5 @@
       "Monin paikoin voi sataa vähän. Pohjoisessa sataa lunta.",
       "",
       "Lämpötilat vaihtelevat -4 asteesta +5 asteeseen."
-   ],
-   "source" : "fi"
+   ]
 }

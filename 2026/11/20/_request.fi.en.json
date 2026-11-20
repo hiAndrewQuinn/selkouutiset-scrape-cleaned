@@ -1,5 +1,7 @@
 {
+   "target" : "en",
    "source" : "fi",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | torstai 19.11.2026",
       "",
@@ -62,7 +64,5 @@
       "Keski- ja Pohjois-Suomessa voi sataa lunta.",
       "",
       "Lapissa on pakkasta. Muualla on plusasteita."
-   ],
-   "target" : "en",
-   "format" : "text"
+   ]
 }

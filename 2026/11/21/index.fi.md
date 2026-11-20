@@ -1,0 +1,67 @@
+# Selkouutiset | perjantai 20.11.2026
+
+Ukraina. Puolustusvoimat. Kela. Sääennuste.
+
+## Ukrainan tukikokous
+
+Aluksi uutinen kansainvälisestä turvallisuuspolitiikasta.
+
+Presidentti **Alexander Stubb** on osallistunut Ukrainan tukimaiden kokoukseen Saksassa. Mukana oli paljon eri maiden johtajia.
+
+Kokouksen ajankohta eli torstai oli tärkeä. Samaan aikaan Kiinassa oli kokous, jossa tapasivat USA:n, Kiinan ja Venäjän presidentit.
+
+Sen jälkeen USA:n presidentti **Donald Trump** soitti Ukrainan tukimaiden kokoukseen.
+
+Presidentti Alexander Stubb on osallistunut Ukrainan tukimaiden kokoukseen Saksassa.
+
+Stubb kertoo, että Trump kehotti Euroopan maita puhumaan Venäjän presidentin **Vladimir Putinin** kanssa.
+
+## Puolustusvoimat
+
+Nyt uutinen Puolustusvoimista eli armeijasta.
+
+Puolustusvoimat hankkii uusia lennokkeja. Uudet lennokit ovat isompia kuin vanhat lennokit.
+
+Ne sopivat moniin eri tehtäviin.
+
+Maavoimien komentaja **Pasi Välimäki** kertoo, että armeijan on tärkeää harjoitella uusia toimintatapoja. Siksi armeija tarvitsee uusia välineitä.
+
+”Me haetaan monitoimijärjestelmiä, joita voidaan käyttää useampaan eri tehtävään.”
+
+Tässä testataan lennokkeja sotaharjoituksessa Rovajärvellä.
+
+Testissä tutkitaan, miten lennokit toimivat kylmässä talvella.
+
+Puolustusvoimat hankkii uusia lennokkeja.
+
+Puolustusvoimat on kouluttanut jo noin 1 000 sotilasta lennättämään lennokkeja.
+
+## Kelan tuet
+
+Lopuksi uutinen Kelan tuista.
+
+Kelan tukien määrissä on suuria eroja eri kunnissa.
+
+Kelan tukia ovat esimerkiksi asumistuki, peruseläke ja työttömyysturva.
+
+Viime vuonna Kela maksoi vähiten tukia Inkoossa ja Siuntiossa. Tukisumma oli vähän alle 2 000 euroa asukasta kohti.
+
+Eniten tukia Kela maksoi Rautavaarassa Pohjois-Savossa. Tukisumma oli vähän alle 4 000 euroa asukasta kohti.
+
+Helsingissä tukisumma oli noin 3 000 euroa asukasta kohti.
+
+Kelan tukien määrissä on suuria eroja eri kunnissa.
+
+Syitä tukisummien eroihin ovat asukkaiden ikä ja työttömien määrä eri kunnissa.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina sataa lunta, ja tiet voivat olla liukkaita.
+
+Pohjoisessa on vähän pakkasta.
+
+Etelässä lämpötila on 0 ja +3 asteen välillä.
+
+Taivas on pilvinen, mutta etelässä aurinko voi näkyä välillä.

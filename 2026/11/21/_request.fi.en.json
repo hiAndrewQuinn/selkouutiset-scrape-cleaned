@@ -1,6 +1,7 @@
 {
-   "source" : "fi",
    "target" : "en",
+   "format" : "text",
+   "source" : "fi",
    "q" : [
       "# Selkouutiset | perjantai 20.11.2026",
       "",
@@ -69,6 +70,5 @@
       "Etelässä lämpötila on 0 ja +3 asteen välillä.",
       "",
       "Taivas on pilvinen, mutta etelässä aurinko voi näkyä välillä."
-   ],
-   "format" : "text"
+   ]
 }

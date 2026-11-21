@@ -1,6 +1,6 @@
 {
-   "format" : "text",
    "source" : "fi",
+   "target" : "en",
    "q" : [
       "# Selkouutiset | perjantai 20.11.2026",
       "",
@@ -70,5 +70,5 @@
       "",
       "Taivas on pilvinen, mutta etelässä aurinko voi näkyä välillä."
    ],
-   "target" : "en"
+   "format" : "text"
 }

@@ -1,83 +1,97 @@
-# Viikon uutinen selkosuomeksi | lauantai 21.11.2026
+# Uutisviikko selkosuomeksi | sunnuntai 22.11.2026
 
-Vaaratiedotetesti puhelimiin.
+Rajalaki. Venäläisalus. Sabotaasit. Työttömyys. Vaaratiedotus.
 
 Kuuntele
 
 Voit lukea uutiset samanaikaisesti alta.
 
-Suomessa testattiin tiistaina, miten vaarasta varoitetaan suoraan puhelimiin. Testiviestin piti tulla kello 12, mutta kaikki eivät saaneet sitä.
+## Rajalaki
 
-Osa suomalaisista sai viestin myöhemmin, kun sisäministeriö lähetti sen uudelleen. Monien piti ensin sallia testiviestit puhelimen asetuksista.
-
-Kerromme vaaratiedotetestistä nyt lisää.
-
-## Testiviesti vaarasta ei tullut kaikkiin puhelimiin
-
-![Älypuhelimen näytöllä useita FI-Alert-viranomaistiedotteita suomeksi, saameksi ja ruotsiksi sekä kello 12.14.](https://img.img-cdn.yle.fi/crop_extract,w_1170,h_658,x_0,y_1549/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17394946afc2c8270fd5/1794911485)
+![Vaalimaan suljettu rajanylityspaikka Virolahdella.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_288/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-14010276773b87d5b93f/1735639571)
 
 Avaa kuvien katselu
 
-Uutta vaaratiedotejärjestelmä FI-Alertia testattiin 17.11.2026. Kuva: Laura Tolonen / Yle
+Suomen Vaalimaan raja-asema Venäjälle on suljettu, samoin kaikki muut Suomen raja-asemat. Kuva: Antro Valo / Yle
 
-Sisäministeriö lähetti tiistaina puhelimiin testiviestin. Se kokeili uutta tapaa varoittaa ihmisiä vaarasta nopeasti.
+Ensin aiheena on rajalaki.
 
-Monien piti sallia testiviestit puhelimen asetuksista. Osa sai viestin ensin kolmella saamen kielellä ja vasta sitten suomeksi ja ruotsiksi.
+Suomi jatkaa rajalakia 2 vuotta. Se tarkoittaa, että Suomen rajat Venäjälle pysyvät kiinni.
 
-Uuden tavan nimi on FI-Alert.
+Eduskunta hyväksyi väliaikaisen rajalain vuonna 2024. Silloin Suomen itärajalle tuli nopeasti suuri joukko turvapaikanhakijoita.
 
-Suomessa alettiin pohtia varoitusten lähettämistä puhelimiin jo ainakin vuonna 2005. Silloin Aasiassa tapahtui tuhoisa hyökyaalto eli tsunami.
+Suomi epäili, että Venäjän valtio järjesti turvapaikanhakijat rajalle.
 
-Vaaratiedotteesta tuli ajankohtainen tänä vuonna, kun Suomeen eksyi ukrainalaisia drooneja. Droonit liittyivät Venäjän hyökkäyssotaan Ukrainassa.
+## Venäläisalus tulessa Suomenlahdella
 
-## Viestissä oli yllättäviä ongelmia
-
-![Kaksi henkilöä seisoo puhujakorokkeiden takana virallisessa tilaisuudessa sinisellä taustalla.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_314/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17290776ae1d54927ae6/1793185717)
+![Merellä kaksi punavalkoista pelastusalusta suihkuttaa vettä savua tuottavaan rahtilaivaan.](https://img.img-cdn.yle.fi/crop_extract,w_1081,h_610,x_114,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17420706b02ef34a2943/1795354581)
 
 Avaa kuvien katselu
 
-Pelastusylijohtaja Kimmo Kohvakka ja sisäministeri Mari Rantanen. Testin ongelmat tulivat heille yllätyksenä. Kuva: Petteri Sopanen / Yle
+Venäläisalusta (kuvassa keskellä) saatetaan kohti Venäjän talousvesialuetta Suomenlahdella. Kuva: Rajavartiolaitos
 
-Tiistain vaaratiedotekokeilu aiheutti sisäministeriölle ikävän yllätyksen. Doro-puhelimiin tuli häiriöitä testin jälkeen.
+Sitten Venäjän hyökkäyssodan vaikutuksia.
 
-Doroja on varsinkin ikäihmisillä ja jonkin verran terveydenhuollossa.
+Venäläiseen rahtilaivaan iskettiin lauantaiaamuna Suomenlahdella. Droonit olivat ehkä ukrainalaisia.
 
-Ongelmia aiheuttivat ehkä saamen kielten erikoismerkit. Kaikki puhelimet eivät tunnistaneet niitä.
+Laiva syttyi tuleen, ja sitä yritettiin sammuttaa ja jäähdyttää vielä sunnuntaina.
 
-Yllätys oli myös, että hälytysjärjestelmä ei toimi lasten kellopuhelimissa.
+Suomen Rajavartiolaitos johtaa pelastustoimia, koska laiva ajelehti Suomen aluevesille. Miehistö on siirretty venäläiseen pelastusalukseen.
 
-Järjestelmän toimittaja, teleoperaattorit ja hätäkeskuslaitos selvittävät häiriön syytä. Testi kuitenkin osoitti, mitä vaaratiedotteissa puhelimiin pitää parantaa.
+Rahtilaivan hinaaminen alkoi sunnuntai-iltana kohti Venäjän talousvesiä.
 
-## Testi uusitaan tiistaina
+Laiva on USA:n pakotelistalla ja kuuluu Venäjän puolustusministeriön alaisuuteen.
 
-![Vanhalla ihmisellä on kädessään Doro-puhelin.](https://img.img-cdn.yle.fi/crop_extract,w_3858,h_2170,x_0,y_113/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17404056afdd0a45fc32/1795018971)
+Lastin sisällöstä ei tällä hetkellä ole tietoa.
 
-Avaa kuvien katselu
+## Suojelupoliisi sabotaaseista
 
-Testi tuotti yllätyksen Doro-puhelimiin. Kuva: Ritva Siltalahti / Lehtikuva
-
-Ensi tiistaina 24. marraskuuta vaaratiedotetta testataan uudelleen.
-
-Tiedote lähetetään kello 12 tasolla, joka ohittaa puhelimen asetukset. Puhelin pitää myös 10 sekunnin hälytysäänen.
-
-Ääni kuuluu, vaikka puhelin olisi laitettu äänettömälle.
-
-Sisäministeriö miettii, jätetäänkö saamen kielet tiistain testiin.
-
-## Kertaus
-
-![kellopuhelin lähikuvassa.](https://img.img-cdn.yle.fi/crop_extract,w_2913,h_1627,x_0,y_364/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-132527666a8b0d46eed3/1722332033)
+![Suojelupoliisin päällikkö Juha Martelius, Ylen ykkösaamun ohjelma.](https://img.img-cdn.yle.fi/crop_extract,w_6991,h_3932,x_0,y_15/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17417916b015ef456b7a/1795252617)
 
 Avaa kuvien katselu
 
-Sisäministeriölle oli yllätys, että testiviesti ei tullut lasten kellopuhelimiin. Kuva: Jaani Lampinen / Yle
+Suojelupoliisin päällikkö Juha Martelius. Kuva: Mohamed El Bouari / Yle
 
-Kerrataan vielä.
+Sitten Suomen turvallisuudesta.
 
-Suomessa testattiin tiistaina vaaratiedotetta suoraan puhelimiin. Vaaratiedotteen piti tulla kello 12.
+Suojelupoliisi on havainnut Suomessa henkilöitä, jotka ovat valmistelleet sabotaasi-iskuja. Niitä on valmisteltu erityisesti puolustusalan yrityksiin.
 
-Kaikki eivät saaneet ilmoitusta ainakaan ajoissa.
+Suojelupoliisin päällikkö Juha Martelius muistuttaa, että esimerkiksi Viron kaltaiset iskut ovat mahdollisia. Virossa puolustusalan yritys yritettiin polttaa.
 
-Ensi tiistaina testi tehdään uudelleen. FI-Alert -tiedotteesta tulee ilmoitusääni, eikä sitä pysty estämään puhelimen asetuksista.
+Viro sanoo, että iskun takana oli Venäjä.
 
-Tässä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!
+## Työttömyys
+
+![Lasisen ulko-oven kyltissä lukee ”Tampereen seudun työllisyysalue&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_5524,h_3107,x_0,y_283/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16860616a71ca43ddc06/1785845153)
+
+Avaa kuvien katselu
+
+Kuva: Miikka Varila / Yle
+
+Nyt uutinen työttömyydestä.
+
+Työ- ja elinkeinoministeriö ennustaa, että työllisyys paranee jo loppuvuoden aikana.
+
+Ensi vuonna ilman työtä on kuitenkin yhä 340 000 suomalaista.
+
+Vuonna 2028 työttömiä on ehkä hieman vähemmän, 328 000.
+
+Suomen talouden kasvu vaikuttaa siihen, kuinka paljon eri aloilla on työpaikkoja.
+
+## Vaaratiedote
+
+![ FI-Alert -testi-ilmoitus kännykän ruudulla.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_1149/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17395636afc4014c5d7c/1794916770)
+
+Avaa kuvien katselu
+
+Kuva: Jari Kovalainen / Yle
+
+Vielä vaaratiedottamisesta.
+
+Suomessa testattiin tiistaina, miten vaarasta varoitetaan suoraan puhelimiin.
+
+Testiviestin piti tulla kello 12, mutta kaikki eivät saaneet sitä. Osa sai viestin myöhemmin. Osa sai viestin ensin kolmella saamen kielellä ja vasta sitten suomeksi ja ruotsiksi.
+
+Tiistaina 24. marraskuuta testi tehdään uudelleen. FI-Alert-tiedotteesta tulee kello 12 ilmoitusääni, eikä sitä pysty puhelimen asetuksista estämään.
+
+Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

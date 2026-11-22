@@ -1,7 +1,6 @@
 {
-   "target" : "en",
-   "source" : "fi",
    "format" : "text",
+   "source" : "fi",
    "q" : [
       "# Viikon uutinen selkosuomeksi | lauantai 21.11.2026",
       "",
@@ -86,5 +85,6 @@
       "Ensi tiistaina testi tehdään uudelleen. FI-Alert -tiedotteesta tulee ilmoitusääni, eikä sitä pysty estämään puhelimen asetuksista.",
       "",
       "Tässä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!"
-   ]
+   ],
+   "target" : "en"
 }

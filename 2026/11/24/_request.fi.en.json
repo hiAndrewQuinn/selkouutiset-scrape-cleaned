@@ -1,5 +1,5 @@
 {
-   "source" : "fi",
+   "target" : "en",
    "q" : [
       "# Selkouutiset | maanantai 23.11.2026",
       "",
@@ -63,6 +63,6 @@
       "",
       "Pohjoisessa on selkeää ja kylmempää."
    ],
-   "format" : "text",
-   "target" : "en"
+   "source" : "fi",
+   "format" : "text"
 }

@@ -1,6 +1,4 @@
 {
-   "target" : "en",
-   "format" : "text",
    "source" : "fi",
    "q" : [
       "# Selkouutiset | maanantai 23.11.2026",
@@ -64,5 +62,7 @@
       "Etelässä on pilvistä ja nolla astetta lämmintä.",
       "",
       "Pohjoisessa on selkeää ja kylmempää."
-   ]
+   ],
+   "format" : "text",
+   "target" : "en"
 }

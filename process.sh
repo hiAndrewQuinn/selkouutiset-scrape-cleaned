@@ -39,6 +39,21 @@ log_message() {
   done
 }
 
+# --- One run at a time ---
+# cron starts this every hour; a run that has a lot to do (e.g. thousands of
+# backfilled days on the Raspberry Pi) can take longer than that. A second run
+# would race the first on the same files and on git, so it just exits.
+LOCK_FILE="${TMPDIR:-/tmp}/selkouutiset-process.lock"
+if ! command -v flock >/dev/null 2>&1; then
+  log_message "CRITICAL ERROR: 'flock' not found; cannot guarantee a single run. Exiting."
+  exit 1
+fi
+exec 9>"$LOCK_FILE"
+if ! flock -n 9; then
+  log_message "Another process.sh run still holds '$LOCK_FILE'; exiting without doing anything."
+  exit 0
+fi
+
 # --- ADDED: Handle --force argument ---
 force_regeneration=false
 if [ "$1" = "--force" ]; then

@@ -1,0 +1,84 @@
+# Tiistai 27.7.2021
+
+Työllisyys. Luottamus talouteen. Koronatartunnat. Ahvenanmaa. Sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Työllisyys paranee
+
+![Perhe ravintolan pöydässä. Tarjoilija asettaa ruoka-annosta pöydälle.](https://img.img-cdn.yle.fi/crop_extract,w_3072,h_1728,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83550660fea5cdd9b72/1627301402)
+
+Avaa kuvien katselu
+
+Työpaikkoja on esimerkiksi ravintola-alalla. Kuva: Daniel Dal Zennaro / EPA
+
+Työllisyys on parantunut. Työllisyys kertoo, kuinka monilla ihmisillä on työpaikka.
+
+Kesäkuussa työllisiä oli yli 120 000 enemmän kuin vuosi sitten. Erityisesti naisia oli työelämässä enemmän.
+
+Monet suomalaiset ovat siis löytäneet työpaikan vaikean koronavuoden jälkeen.
+
+Yhtä hyvin ei ole kuitenkaan käynyt monille pitkäaikaistyöttömille eli niille, jotka ovat olleet ilman työtä ainakin vuoden ajan.
+
+Kesäkuussa pitkäaikaistyöttömiä oli yli 110 000. Se on melkein 40 000 enemmän kuin vuosi sitten.
+
+Tiedot ovat Tilastokeskukselta.
+
+## Talouteen luotetaan
+
+![Myytäviä televisioita näytteillä kodinkoneliikkeessä.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_258/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83417360f81d07e07e1/1626886496)
+
+Avaa kuvien katselu
+
+Monet aikovat käyttää rahaa ostoksiin, koska oma taloustilanne on hyvä. Kuva: Henrietta Hassinen / Yle
+
+Suomalaiset luottavat talouteen.
+
+Suomalaiset arvioivat, että heidän oma taloustilanne on nyt hyvä. Monet aikovat ostaa erilaisia tavaroita, esimerkiksi kodinkoneita. Näin kertoo Tilastokeskus.
+
+Myös suomalaiset firmat uskovat, että taloustilanne kehittyy hyvin. Elinkeinoelämän keskusliitto kertoo, että teollisuus on saanut paljon uusia tilauksia. Myös palvelualojen taloustilanne paranee, kun koronarajoituksia poistetaan.
+
+## Koronatartunnat lisääntyvät
+
+![Nuoria aikuisia Tikkurila festivaaleilla.](https://img.img-cdn.yle.fi/crop_extract,w_4272,h_2403,x_0,y_661/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83525960fd585126bb7/1627219557)
+
+Avaa kuvien katselu
+
+Koronatartuntoja on tullut esimerkiksi erilaisissa tapahtumissa. Kuva: Jussi Koivunoro / Yle
+
+Koronataruntojen määrä kasvaa Suomessa. Tiistaina ilmoitettiin 612 uutta koronatartuntaa.
+
+Sairaalahoidossa on vähän yli 50 koronapotilasta.
+
+Suomessa on kuollut koronan takia yhteensä 982 ihmistä.
+
+## Lomalaisten Ahvenanmaa
+
+![Pyöräilijöitä Järsössä](https://img.img-cdn.yle.fi/crop_extract,w_3754,h_2112,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83506060fb1176962c3/1628603711)
+
+Avaa kuvien katselu
+
+Ahvenanmaalla voi tehdä esimerkiksi pyöräretkiä. Kuva: Lassi Lähteenmäki / Yle
+
+Suomalaisten suosikkilomapaikka on nyt Ahvenanmaa. Koronan takia suomalaiset lomailevat nyt enemmän Suomessa kuin ulkomailla.
+
+Ahvenanmaa on ruotsinkielinen saariryhmä, joka kuuluu Suomeen. Ahvenanmaalla on autonomia, eli ahvenanmaalaiset päättävät itse Ahvenanmaan asioista.
+
+Ahvenanmaan saaristoluonto houkuttelee turisteja. Turistit tekevät Ahvenanmaalla esimerkiksi pyöräretkiä.
+
+Myös laivojen reitit tuovat nyt Ahvenanmaalle lisää turisteja muualta Suomesta. Osa Helsingin laivoista pysähtyy päiväksi Ahvenanmaalle eikä jatka Tukholmaan asti. Suomen ja Ruotsin välinen matkailu on vähentynyt koronan takia.
+
+## Sateinen sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12037071)
+
+Avaa kuvien katselu
+
+Sateet saapuvat Etelä-Suomeen keskiviikkona.
+
+Sää muuttuu lähipäivinä.
+
+Keskiviikkona sateita ja ukkosia tulee etelään. Vettä voi sataa paljon.
+
+Loppuviikon aikana sateet ja ukkoset leviävät koko Suomeen. Helteet loppuvat, ja sää viilenee.

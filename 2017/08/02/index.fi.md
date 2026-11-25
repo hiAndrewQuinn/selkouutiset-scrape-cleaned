@@ -1,0 +1,67 @@
+# Keskiviikko 2.8.2017 (radio)
+
+Monilla suomalaisilla on velkaongelmia. Britannian prinssi Philip on jäänyt eläkkeelle. Suomessa saadaan nyt paljon vesisateita. Suomi-koulujen opettajat ovat olleet koulutuspäivillä Helsingissä.
+
+## Velkaongelmat ovat tavallisia
+
+![taskulaskin, kädet ja rahapino](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9603548)
+
+Avaa kuvien katselu
+
+Mistä rahat kaikkiin laskuihin? Kuva: Yle
+
+Monilla suomalaisilla on velkaa. Monet ottavat velkaa niin paljon, että he eivät pysty maksamaan kaikkia laskuja.
+
+Jos ihminen ei maksa laskuja, hänelle voi tulla maksuhäiriömerkintä. Nyt jo 375.000 suomalaisella on maksuhäiriömerkintä.
+
+Maksuhäiriömerkintä tekee elämästä hankalaa. Ihmisen on vaikea esimerkiksi vuokrata asuntoa merkinnän takia.
+
+Monet maksavat vanhan lainan pois uudella lainalla. Usein se kuitenkin tarkoittaa sitä, että lainan määrä vain kasvaa.
+
+## Prinssi Philip jäi eläkkeelle
+
+![Kuningatar Elisabet ja prinssi Philip](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9753976)
+
+Avaa kuvien katselu
+
+Britannian kuningatar Elisabet ja prinssi Philip. Kuva: Will Oliver/Epa
+
+Uutinen Britanniasta: Prinssi Philip on jäänyt eläkkeelle. Hän on 96-vuotias.
+
+Prinssi Philipin viimeinen virallinen tehtävä oli keskiviikkona, kun hän otti vastaan sotilasparaatin Lontoossa. Paraati oli Buckinghamin palatsin edessä.
+
+Prinssi Philip on kuningatar Elisabetin aviomies. Kuningatar Elisabet on 91-vuotias, mutta hän jatkaa työtä.
+
+Kuningatar Elisabet ja prinssi Philip ovat jo siirtäneet monia tehtäviä Britannian nuoremmille kuninkaallisille.
+
+## Vettä sataa paljon
+
+![Vesisade.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9751762)
+
+Avaa kuvien katselu
+
+Sää on sateista eri puolilla Suomea. Kuva: Uula Kuvaja / Yle
+
+Suomessa sataa nyt paljon vettä. Ilmatieteen laitos varoittaa kovista sateista.
+
+Vettä sataa eniten Itä-Suomessa. 5 päivässä Itä-Suomessa voi sataa yhtä paljon kuin tavallisesti koko elokuun aikana.
+
+Myös muualla Suomessa vettä voi sataa paljon.
+
+## Suomi-koulujen opettajat saivat koulutusta
+
+![Baselin suomikoulun oppilaita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9662755)
+
+Avaa kuvien katselu
+
+Baselin Suomi-koulun oppilaita. Kuva: Yle
+
+Suomi-koulujen opettajat ovat olleet koulutuspäivillä Helsingissä. Koulutuksessa he saivat ideoita suomen kielen opettamiseen.
+
+Suomi-koulut opettavat suomen kieltä ulkosuomalaisille eli suomalaisille, jotka asuvat ulkomailla.
+
+Suomi-koulut antavat opetusta viikonloppuina. Arkipäivinä ulkosuomalaisten perheiden lapset käyvät tavallista koulua, jossa opetetaan eri oppiaineita asuinmaan kielellä.
+
+Opettaja Maila Eichhorn on ollut pitkään mukana Suomi-koulujen työssä. Eichhorn sanoo, että ulkosuomalaisen lapsen suomen kielen taito on vanhempien vastuulla. Tärkeintä on, että kotona puhutaan suomea. Suomi-koulujen tehtävä on tukea kielikasvatusta, jota vanhemmat antavat, Eichhorn sanoo.
+
+Tänä vuonna Suomi-kouluissa tehdään myös videotervehdyksiä 100-vuotiaalle Suomelle. Tervehdykset löytyvät selkouutisten internet-sivuilta ja Facebook-sivulta.

@@ -1,0 +1,67 @@
+# Radio Selkouutiset lauantai 15.7.2023
+
+Eduskunnan puhemies. RKP. Karhut. Lintuinfluenssa. Sää.
+
+## Eduskunnan puhemies Jussi Halla-aho
+
+![Jussi Halla-Aho kuvattuna 10.7. 2023 Pikku Parlamentin edustalla.](https://img.img-cdn.yle.fi/crop_extract,w_5137,h_2889,x_0,y_301/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114089064ad25164eb87/1689068867)
+
+Avaa kuvien katselu
+
+Jussi Halla-aho kuvattuna 10.7. 2023 Pikku Parlamentin edustalla. Kuva: Sasha Silvala / Yle
+
+Eduskunnan puhemies Jussi Halla-aho ei keskeytä eduskunnan kesälomaa. Halla-aho perustelee päätöstä muun muassa sillä, että eduskunnan kesäloman keskeyttäminen on hyvin harvinaista. Halla-ahon mielestä eduskunnan kokoontumisella ei ole kova kiire.
+
+Oppositiopuolueet vaativat aikaisemmin, että eduskunnan pitää lopettaa kesäloma kesken. Oppositio haluaa, että eduskunta käsittelee pian hallituksen toimintakykyä ja ministereiden vanhoja, rasistisia nettikirjoituksia.
+
+## RKP
+
+![SFP:s ordförande Anna-Maja Henriksson.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_93/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114304864b19e581c253/1689362079)
+
+Avaa kuvien katselu
+
+RKP:n puheenjohtaja Anna-Maja Henriksson. Kuva: Lehtikuva
+
+Hallituspuolue RKP on huolissaan siitä, onko Suomen hallitus toimintakykyinen. RKP:n eduskuntaryhmä keskusteli perjantai-iltana pitkään hallituksen vaikeuksista ja perussuomalaisen valtiovarainministeri Riikka Purran vanhoista nettikirjoituksista. RKP vaatii, että kaikki puolueet ja hallituksen ministerit tuomitsevat rasismin.
+
+## Lintuinfluenssa
+
+![Lintuinfluenssaan kuolleen naurulokin syöty raato Lahden sataman aallonmurtajalla heinäkuussa 2023. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_245/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114077664ad01b7769f8/1689920018)
+
+Avaa kuvien katselu
+
+Lintuinfluenssaan kuollut naurulokki Lahden sataman aallonmurtajalla heinäkuussa 2023. Kuva: Markku Tuhkanen / Yle
+
+Lintujen virustauti lintuinfluenssa tappaa lokkeja Suomessa. Lintuja on kesän aikana kuollut paljon lintuinfluenssaan esimerkiksi Salossa, Lahdessa ja Hämeenlinnan Hauholla.
+
+Ruokavirasto kertoo, että luonnon linnuissa on nyt paljon lintuinfluenssaa. Myös muilla eläimillä on enemmän lintuinfluenssaa kuin aikaisemmin. Lintuinfluenssaa on esimerkiksi turkistarhojen eläimissä.
+
+Viranomainen kertoo, että lintuinfluenssa voi tarttua ihmiseen. Tähän ei kuitenkaan tällä hetkellä ole Suomessa suurta vaaraa.
+
+## Karhut
+
+![Ruskea karhu kävelee vihreällä niityllä.](https://img.img-cdn.yle.fi/crop_extract,w_4525,h_2545,x_1,y_336/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114311664b26af865c2d/1689414540)
+
+Avaa kuvien katselu
+
+Karhu kuvattuna Itä-Suomessa 4.7.2023 Kuva: Olivier Morin / Lehtikuva
+
+Suomessa on paljon enemmän karhuja kuin vielä noin 20 vuotta sitten. Siksi ihminen ja karhu kohtaavat luonnossa useammin kuin aikaisemmin.
+
+Luonnonvarakeskus kertoo, että nyt 2000-luvulla ihmisen ja karhun kohtaamisia on enemmän kuin ennen. Silti ihminen näkee karhun Suomessa vain harvoin. Karhu ei ole tappanut Suomessa yhtään ihmistä 2000-luvulla.
+
+Suomessa on ehkä vähän alle 2000 karhua.
+
+## Sää
+
+![Marjanpoimijoita pellolla. Kesäinen poutapäivä.](https://img.img-cdn.yle.fi/crop_extract,w_5389,h_3031,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135154649ad5061c9b1/1687869675)
+
+Avaa kuvien katselu
+
+Sää on poutainen. Kuvituskuva. Kuva: Jani Saikko / Yle
+
+Sää on sunnuntaina koko maassa poutainen. Pilvisyys vaihtelee selkeän ja puolipilvisen välillä.
+
+Yölämpötila on 10 ja 16 asteen välillä. Päivälämpötila vaihtelee 18 ja 27 asteen välillä. Sateessa voi olla viileämpää.
+
+Tuuli on enimmäkseen heikkoa tai kohtalaista.

@@ -1,0 +1,73 @@
+# Torstai 17.1.2019 (radio)
+
+Eläkeyhtiöt haluavat lisää maahanmuuttoa. Monen suomalaisfirman tulevaisuus on epävarman Britannian EU-eron takia. Norjassa on löydetty 3 lumivyöryn uhria. Hämeenlinnassa tokaluokkalaset opettelevät vähän englantia, rutosia ja saksaa. Puupää-hattu Tiina Pajulle ja Sari Luhtaselle.
+
+## Eläkeyhtiöt toivovat lisää maahanmuuttoa
+
+![vauvalla nimikyltti ranteessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10575219)
+
+Avaa kuvien katselu
+
+Eläkeyhtiöt toivovat lisää vauvoja tai maahanmuuttoa. Kuva: AOP
+
+Eläkeyhtiöt haluavat, että Suomen maahanmuutto kaksinkertaistuu.
+
+Eläkeyhtiöiden johtajat sanovat, että maahanmuuttoa täytyy lisätä, koska Suomessa syntyy niin vähän lapsia. Kun maahanmuuttajia tulee lisää, Suomessa on enemmän ihmisiä, jotka tekevät töitä ja maksavat eläkemaksuja.
+
+Suomeen muuttaa vuodessa noin 17 000 ihmistä enemmän kuin täältä muuttaa pois.
+
+## Britannian EU-ero nostaa ehkä hintoja Suomessa
+
+![Mielenosoitus parlamenttitalon edustalla Lontoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10545726)
+
+Avaa kuvien katselu
+
+Osa briteistä vastustaa eroa EU:sta. Kuva: Ben Stansall / AFP
+
+Monen suomalaisen firman tulevaisuus on epävarma, jos Britannia eroaa EU:sta ilman sopimusta.
+
+Tuhannet suomalaiset firmat myyvät Britanniaan tavaraa tai tuovat sitä Britanniasta Suomeen. Jos tavaroista täytyy alkaa maksaa tullimaksuja, tavaroiden hinnat nousevat. Esimerkiksi Britanniassa tehdyn auton hinta nousee ehkä 10 prosenttia. Myös brittiläisistä nettikaupoista tilattujen tavaroiden hinnat nousevat.
+
+Britannia eroaa EU:sta 29. päivä maaliskuuta.
+
+## Lumivyöryn uhreista yksi vielä kateissa
+
+![Helikopteri taivaalla Tamokdalenin päällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10601086)
+
+Avaa kuvien katselu
+
+Helikopteri etsi kadonneita tunturista. Kuva: Gustaf Antell / Yle
+
+Norjassa on löydetty kolme niistä ihmisistä, jotka jäivät lumivyöryn alle 2 viikkoa sitten.
+
+Tänään tunturista tuotiin pois kahden uhrin ruumiit. Yksi uhri on vielä kateissa. Ruotsalainen nainen ja kolme suomalaista miestä jäivät lumivyöryn alle, kun he olivat hiihtämässä tunturissa.
+
+Etsinnät ovat kestäneet kaksi viikkoa, koska alueella on ollut huono sää. Alueella oli myös vaara, että etsijät jäävät uusien lumivyöryjen alle.
+
+## Tokaluokkalaiset opettelevat kieliä
+
+![Ruununmyllyn koululla saksankilene kielisuihkutustunnilla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10599664)
+
+Avaa kuvien katselu
+
+Hämeenlinnan tokaluokkalaisia saksan tunnilla. Kuva: Kati Turtola / Yle
+
+Hämeenlinnassa kaikille toisen luokan oppilaille opetetaan vieraita kieliä tänä keväänä.
+
+Lapsille opetetaan vähän ainakin saksaa, ruotsia ja englantia. Yhdessä koulussa lapset kokeilevat myös viroa, espanjaa ja venäjää. Opettajat sanovat, että toisella luokalla lapset oppivat kaikkea helposti.
+
+Ensi syksynä lapset alkavat opiskella vierasta kieltä jo ensimmäisellä luokalla kaikissa Suomen kouluissa.
+
+## Sarjakuva keski-ikäisista naisista voitti palkinnon
+
+![Sarjakuvan vuotuinen kotimainen pääpalkinto, Puupäähattu, myönnettiin elämäntyöstä kuvittaja Tiina Pajulle (oik.) ja kuvittaja Sari Luhtaselle Puupäähattu-palkinnon jakotilaisuudessa Helsingissä 17. tammikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10600943)
+
+Avaa kuvien katselu
+
+Sari Luhtanen (vas.) ja Tiina Paju.  Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Sarjakuvien palkinnon Puupää-hatun saavat tänä vuonna Tiina Paju ja Sari Luhtanen.
+
+Paju ja Luhtanen tekivät Maisa ja Kaarina -nimistä sarjakuvaa melkein 30 vuotta. Sarjakuva julkaistiin Anna-lehdessä. Maisa ja Kaarina -sarjakuva kertoi keski-ikäisistä naisista. Maisa oli rento taiteilijaluonne ja Kaarina oli kiireinen koti-äiti.
+
+Tiina Paju ja Sari Luhtanen tekivät sarjakuvaa vuoteen 2016 asti.

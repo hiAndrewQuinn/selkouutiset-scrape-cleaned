@@ -1,0 +1,83 @@
+# Keskiviikko 11.1.2023 (radio)
+
+Ukraina. Alkon myynti. Armeijan keskeyttäminen. Kalifornian myrskyt. Suomen sää.
+
+## Ukraina
+
+![Leopard-panssarivaunu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11091818)
+
+Avaa kuvien katselu
+
+Ukraina haluaa taistelupanssarivaunuja. Kuva: Ahti Kaario / Yle
+
+Ukraina toivoo lisää moderneja aseita. 
+
+Ukrainan presidentti Volodymyr Zelenskyi sanoo, että Venäjä suunnittelee isoa hyökkäystä Ukrainaan. Siksi Ukraina tarvitsee uusia aseita.
+
+Monet maat miettivät nyt, antavatko ne Ukrainalle taistelupanssarivaunuja. Myös Suomessa on puhuttu taistelupanssarivaunujen antamisesta Ukrainalle.
+
+Suomi haluaa kuitenkin ensin nähdä, mitä suuret maat tekevät. Ukraina on toivonut taistelupanssarivaunuja esimerkiksi Saksalta.
+
+Sota Ukrainassa alkoi viime vuoden helmikuussa, kun Venäjä hyökkäsi Ukrainaan.
+
+## Alkon myynti
+
+![Viinapulloja Alkon hyllyssä.](https://img.img-cdn.yle.fi/crop_extract,w_5192,h_2921,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-77707060339bceaf2e8/1613995644)
+
+Avaa kuvien katselu
+
+Alkoholijuomien myynti väheni Alkossa viime vuonna. Kuva: Tiina Jutila / Yle
+
+Alkon myynnissä on tapahtunut muutos. Alkoholijuomien myynti väheni viime vuonna.
+
+Vuonna 2022 Alko myi 80 miljoonaa litraa alkoholijuomia. Se on 10 prosenttia vähemmän kuin vuonna 2021.
+
+Myös viinien myynnissä tapahtui muutos viime vuonna. Alko myi pitkästä aikaa enemmän valkoviinejä kuin punaviinejä.
+
+## Armeijan keskeyttäminen
+
+![Varusmiehiä rivissä harjoittelemassa Rissalan varuskunnassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10931139)
+
+Avaa kuvien katselu
+
+Osa nuorista keskeyttää armeijan terveyssyiden takia. Kuva: Sami Takkinen / Yle
+
+Osa nuorista keskeyttää palveluksen armeijassa. Keskeyttäjiä on noin 15 prosenttia nuorista, jotka menevät armeijaan.
+
+Syy keskeyttämiseen on usein vanha loukkaantuminen tai rasitusvamma. Syy voi olla myös psyykkinen, esimerkiksi ahdistus tai masennus.
+
+Usein keskeyttäminen tapahtuu armeija-ajan alussa. Siksi armeija on keventänyt koulutuksen alkua.
+
+Armeija-aika on noin puoli vuotta. Armeija on Suomessa pakollinen miehille ja vapaaehtoinen naisille.
+
+Jos nuori ei halua mennä armeijaan, hän voi mennä siviilipalvelukseen. Siviilipalveluksen voi suorittaa esimerkiksi sairaalassa.
+
+## Kalifornian myrskyt
+
+![Autotie, joka on sortunut.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687695)
+
+Avaa kuvien katselu
+
+Myrskysateet ovat rikkoneet myös autoteitä. Kuva: STELLA Pictures/ddp/abaca press
+
+USA:ssa, Kaliforniassa on pahoja myrskyjä. Myrskyissä on kuollut yli 10 ihmistä.
+
+Myrsky on tuonut kovia sateita. Vesi on noussut kaduille.
+
+Myrskytuulet ovat myös kaataneet puita. Puita on joutunut maanteille, ja ne haittaavat liikennettä.
+
+Kaliforniassa odotetaan jo uutta myrskyä. Vuoristossa lunta sataa ehkä yli metri.
+
+Asiantuntijat sanovat, että myrsky on merkki ilmastonmuutoksesta. Ilmastonmuutoksen takia Kaliforniassa on talvella myrskyjä, mutta kesällä kuivaa ja kuumaa.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687696)
+
+Avaa kuvien katselu
+
+Suomessa sää on hyvin sateinen, tuulinen ja lämmin. 
+
+Sadealue liikkuu Suomen yli ja torstaina lunta sataa vielä idässä, muuten sateita tulee torstaina päivällä vain vähän. Perjantaina Itä-Suomeen voi tulla uusia lumisateita.
+
+Lämpötila nousee lähes koko maassa nollan yläpuolelle ja tiet ovat liukkaita.

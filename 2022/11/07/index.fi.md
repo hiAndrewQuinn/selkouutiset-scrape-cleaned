@@ -1,0 +1,79 @@
+# Maanantai 7.11.2022 (radio)
+
+Suomen velkaantuminen. Ilmastonmuutos. Etniset vähemmistöt korkeakouluissa. Karhujen talviuni. Sää.
+
+## Suomen velka
+
+![Valtionvelka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5807206)
+
+Avaa kuvien katselu
+
+Suomen velkaantuminen huolestuttaa EU:ta. Kuva: YLE, lähde: Arja Lento / YLE
+
+Suomen velkaantuminen ylittää ensimmäistä kertaa Euroopan unionin raja-arvot. Suomi on velkaantunut koronapandemian alusta asti niin nopeasti, että EU saattaa puuttua kehitykseen.
+
+Komissio esittelee tällä viikolla uudet säännöt velkaantumisen hillintään.
+
+Jäsenmaat voidaan jakaa eri luokkiin velan mukaan. Suomi ei ehkä enää kuulu kärkijoukkoon ja voi joutua nykyistä tiiviimpään tarkkailuun. 
+
+Uudet säännöt voivat olla voimassa jo vuonna 2024.
+
+## Ilmastonmuutos
+
+![Kuivuuden kärsimä järvi Australia, rannalla kuolleita puita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10713367)
+
+Avaa kuvien katselu
+
+Ilmaston lämpeneminen lisää sään ääri-ilmiöitä, esimerkiksi kuivuutta. Kuva: Dean Lewins / EPA
+
+Ilmasto lämpenee edelleen. 8 viime vuotta ovat olleet kuumimmat vuodet tilastohistoriassa. Näin kertoo Yhdistyneiden kansakuntien eli YK:n raportti. 
+
+Tutkijat arvioivat, että maailman keskimääräinen lämpötila on noussut jo 1,15 astetta verrattuna aikaan ennen teollisuutta.
+
+Maailman maat ovat sopineet, että ilmasto ei saa lämmetä enempää kuin 1,5 astetta. Tutkijat sanovat, että tavoite ei enää vaikuta todennäköiseltä.
+
+1,5 asteen rajan ylittäminen aiheuttaa paljon suurempia riskejä ihmisille, eliökunnalle ja ekosysteemeille. Raportti varoittaa, että jäätiköitä sulaa, merenpinta kohoaa ja helleaallot ovat ennätyksellisiä.
+
+YK:n kansainväliset ilmastoneuvottelut ovat alkaneet Egyptissä.
+
+## Etninen syrjintä
+
+![Porthania-rakennus Helsingin yliopiston keskustakampuksella.](https://img.img-cdn.yle.fi/crop_extract,w_5020,h_2824,x_0,y_526/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7369115f9e78615578d/1733994379)
+
+Avaa kuvien katselu
+
+Porthania-rakennus Helsingin yliopiston keskustakampuksella. Kuva: Tiina Jutila / Yle
+
+Etniset vähemmistöt kokevat syrjintää Suomen korkeakouluissa. Opetusministeriön selvitys koski korkeakoulujen opettajia ja tutkijoita. 
+
+Selvitys kertoo, että etniset vähemmistöt kokevat syrjintää lähes 2 kertaa useammin kuin etniset suomalaiset. Samoin urakehitys on heikompaa kuin valtaväestöllä. 
+
+Korkeakoulujen ylimmissä tehtävissä on suhteellisesti vähän naisia ja etnisiä vähemmistöjä. Lisäksi rekrytointi eli työntekijöiden valitseminen työhön ei ole läpinäkyvää.
+
+## Karhujen talviuni
+
+![Korkeasaaren ruskeakarhu, Ursus arctos arctos.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6927386)
+
+Avaa kuvien katselu
+
+Karhu Korkeasaaressa Helsingissä. Kuva: Korkeasaaren arkisto / Mari Lehmonen 
+
+Helsingin Korkeasaaren eläintarhan karhut ovat nyt talviunilla. Karhut ovat keränneet rasvavarastoja syksyn aikana.
+
+Karhut voivat nukkua monta kuukautta, eläintarhasta kerrotaan.
+
+Eläintarhan karhulinnassa asuu 2 naaraskarhua. Ne ovat olleet viime viikot enimmäkseen talvipesässä.
+
+Karhujen talviunet keskeytyivät viime vuonna jo jouluna, koska vesiputki eläintarhassa meni rikki.
+
+## Sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12673993)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on pilvinen, ja sateita liikkuu Suomen yli. Päivällä vettä tai räntää sataa idässä. Lännessä ja pohjoisessa on poutaa eli ei sada. 
+
+Lämpötila on maan eteläosassa ja keskiosassa 6–10 astetta, pohjoisosassa 0–-3 astetta.

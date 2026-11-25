@@ -1,0 +1,69 @@
+# Perjantai 17.5.2019 (radio)
+
+Hallitusneuvottelut jatkuvat. Helsingin yliopisto tutkii, kuinka hyvin yli 50-vuotiaat venäjäkieliset voivat Suomessa. Euroopan parlamentin vaalit ovat viikon kuluttua. Utsjoella on alkanut yötön yö.
+
+## Hallitusneuvottelut
+
+![Hallitusneuvotteluiden vetäjä, SDP:n puheenjohtaja Antti Rinne antoi kommenttinsa medialle hallitusneuvotteluiden jatkuessa Säätytalossa Helsingissä 17. toukokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10789230)
+
+Avaa kuvien katselu
+
+Antti Rinne johtaa hallitusneuvotteluja. Kuva: Martti Kainulainen / Lehtikuva
+
+Puolueet ovat jatkaneet hallitusneuvotteluja. SDP:n puoluejohtaja Antti Rinne johtaa neuvotteluja.
+
+Rinne sanoo, että neuvottelut sujuvat hyvin. Rinteen mielestä puolueet ovat jo lähellä toisiaan myös talousasioissa.
+
+Keskustan puoluejohtaja Juha Sipilä on eri mieltä. Sipilä sanoo, että puolueiden ajatukset taloudesta ovat hyvin erilaisia.
+
+Hallitusneuvotteluissa on mukana yhteensä 5 puoluetta. Ne yrittävät muodostaa Suomen seuraavan hallituksen.
+
+## Tutkimus venäjänkielisistä
+
+![Vanhempi nainen juo kahvia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10776484)
+
+Avaa kuvien katselu
+
+Suomessa asuu myös venäjänkielisiä eläkeläisiä. Kuva: E. M. Welch / AOP
+
+Helsingin yliopisto aloittaa tutkimuksen Suomen venäjänkielisistä. Yliopisto tutkii, kuinka hyvin yli 50-vuotiaat venäjäkieliset voivat Suomessa.
+
+Tämä on ensimmäinen tutkimus maahanmuuttajista, jotka ovat eläkkeellä tai pääsevät pian eläkkeelle.
+
+Yliopisto lähettää kysymyksiä 3000 venäjänkieliselle Suomessa. Tutkijat haluavat tietää, mitä vastaajat ajattelevat esimerkiksi omasta terveydestä ja taloustilanteesta.
+
+Venäjänkieliset ovat Suomen suurin vieraskielinen ryhmä. Tutkijoiden mielestä on tärkeää tietää, miten he voivat.
+
+## Euroopan parlamentti
+
+![Euroopan parlamentti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10662785)
+
+Avaa kuvien katselu
+
+Euroopan parlamentissa on yli 750 jäsentä. Kuva: Patrick Seeger / EPA
+
+Viikon kuluttua sunnuntaina järjestetään eurovaalit.
+
+Eurovaaleissa EU-maiden kansalaiset valitsevat jäsenet Euroopan parlamenttiin. Vaalit ovat kaikissa EU-maissa samaan aikaan. Euroopan unionissa on 28 jäsenmaata.
+
+Euroopan parlamentti säätää lakeja, jotka koskevat kaikkia unionin jäsenmaita. Parlamentti päättää myös esimerkiksi EU:n budjetista.
+
+Euroopan parlamentissa on yli 750 jäsentä. Suomalaisia jäseniä parlamentissa on 13.
+
+Vaalien jälkeen parlamentin jäsenet menevät poliittisiin ryhmiin. Jokaisessa ryhmässä on jäseniä monista eri maista. He ajattelevat kuitenkin asioista samalla tavalla.
+
+Euroopan parlamentti toimii Brysselissä.
+
+Euroopan parlamentissa on 24 virallista kieltä. Parlamentin keskustelut tulkataan eri kielille.
+
+## Yötön yö
+
+![Čuvges ijat nohket Sámis](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10325076)
+
+Avaa kuvien katselu
+
+Pohjoisen kesäyö on valoisa. Kuva: Maiju Saijets / Yle
+
+Utsjoella on alkanut yötön yö. Se tarkoittaa, että aurinko on nyt Utsjoen taivaalla koko ajan, myös yöllä.
+
+Utsjoki on Suomen pohjoisin kunta. Aurinko laskee Utsjoella seuraavan kerran heinäkuun 28. päivä.

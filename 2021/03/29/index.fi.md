@@ -1,0 +1,71 @@
+# Maanantai 29.3.2021 (radio)
+
+Valiokunnat käsittelevät liikkumisrajoituslakia. Kuntosalit ehkä kiinni Uudellamaalla. Kieltenopiskelu vähenee. Huumekuskien määrä kasvaa. Yhdyskuntapalvelun paikoista on pulaa.
+
+## Liikkumisrajoitukset käsittelyssä
+
+![Keskustan Mikko Savola puhui eduskunnan täysistunnossa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_136/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-78927960605c251810b/1616928329)
+
+Avaa kuvien katselu
+
+Eduskunnan istuntosali. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Eduskunnan valiokunnat ovat aloittaneet liikkumisrajoituslain käsittelyn. Lakia käsittelee esimerkiksi perustuslakivaliokunta.
+
+Perustuslakivaliokunnan jäsenet pohtivat esimerkiksi liikkumisrajoitusten tarpeellisuutta ja ajoitusta. Perustuslakivaliokunta kysyy myös asiantuntijoiden mielipidettä.
+
+Koko eduskunta käsittelee liikkumisrajoituslakia aikaisintaan ensi viikon tiistaina. Siksi liikkumisrajoitukset eivät tule voimaan ainakaan ennen pääsiäistä.
+
+## Kuntosaleja ehkä kiinni
+
+![Yleiskuva](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_34/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5076485b8facf696abc/1536142691)
+
+Avaa kuvien katselu
+
+Kuntosaleja ehkä suljetaan Uudellamaalla ja Helsingissä. Kuva: Mikko Koski / Yle
+
+Yksityiset kuntosalit ja liikuntapaikat menevät ehkä kiinni torstaina Helsingin ja Uudenmaan alueella. Etelä-Suomen aluehallintovirasto valmistelee päätöstä, että kuntosalit voidaan sulkea koronatilanteen takia.
+
+Eduskunta päätti sunnuntaina lakimuutoksesta, joka mahdollistaa, että myös yksityisiä kuntosaleja voidaan sulkea koronatilanteen takia.
+
+## Kieltenopiskelu vähenee
+
+![Lähikuva italiankielen oppikirjasta, jossa ruoka-aiheista sanastoa.](https://img.img-cdn.yle.fi/crop_extract,w_1890,h_1063,x_0,y_177/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6030555daf204096760/1660819060)
+
+Avaa kuvien katselu
+
+Muiden kuin englanninkielen suosio on vähentynyt. Kuva: Yle/Lone Videstam
+
+Suomalaiset opiskelevat aiempaa vähemmän kieliä. Suomalaiset opiskelevat paljon englantia, mutta muiden kielien opiskelu on vähentynyt.
+
+Firmoilla on esimerkiksi pulaa suomalaisista, jotka osaavat saksaa. Saksa on Suomelle tärkeä vientimaa.
+
+Asiantuntijat sanovat, että suomalaisilta firmoilta voi mennä ohi tilauksia, jos firmassa ei osata saksaa.
+
+## Huumeiden vaikutuksessa ajetaan enemmän
+
+![Poliisi valvoo liikennettä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10909003)
+
+Avaa kuvien katselu
+
+Poliisi valvoo liikennettä. Kuva: Tiina Jutila / Yle
+
+Yhä useampi kuljettaja ajaa Suomessa autoa huumeiden vaikutuksessa. Viime vuonna poliisin valvonnassa jäi kiinni noin 12 000 kuljettajaa huumeiden vaikutuksessa.
+
+Huumeiden vaikutuksessa ajoi yhtä monta kuljettajaa kuin alkoholin vaikutuksessa.
+
+Kuljettajia, jotka ajavat huumeiden vaikutuksessa, on aiempaa enemmän ja kuljettajia, jotka ajavat alkoholin vaikutuksessa, on aiempaa vähemmän.
+
+## Yhdyskuntapalvelun paikoista pulaa
+
+![Päijät-Hämeen käräjäoikeuden kirjaston lakikirjat istuntosalissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10087322)
+
+Avaa kuvien katselu
+
+Lakikirja oikeussalissa. Kuva: Emilia Malin / Yle
+
+Yhdyskuntapalvelun paikoista on Suomessa pulaa. Ihmisiä on tuomittu yhdyskuntapalveluun aiempaa enemmän nyt korona-aikana. Viime vuonna yhdyskuntapalveluun tuomittiin noin 1300 ihmistä.
+
+Yhdyskuntapalvelu on rangaistus rikoksesta. Yhdyskuntapalvelussa ihminen tekee työtä esimerkiksi valtiolle, kunnalle tai seurakunnalle.
+
+Koronatilanteen takia monet yhdyskuntapalvelupaikat on suljettu. Rikosseuraamusvirasto etsii uusia paikkoja yhdyskuntapalveluun. Paikoista on pulaa.

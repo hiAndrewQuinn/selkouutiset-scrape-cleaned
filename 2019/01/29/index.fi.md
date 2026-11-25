@@ -1,0 +1,63 @@
+# Tiistai 29.1.2019 (radio)
+
+Vanhusten hoidosta löytyy koko ajan lisää epäkohtia. Posti aloittaa yt-neuvottelut. Syntyvyys jatkaa laskua. Darude on Suomen euroviisuedustaja.
+
+## Monissa hoivafirmoissa on laiminlyöntejä
+
+![Attendon lähihoitaja ulkoiluttaa Hopehelmen asiakasta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10404374)
+
+Avaa kuvien katselu
+
+Attendon lähihoitaja ulkoiluttaa asukasta. Kuva: Mikko Savolainen / Yle
+
+Ylen selvitys kertoo, että hoivafirma Attendolla on ongelmia ympäri Suomea. Attendo on Suomen suurin hoivafirma. Esimerkiksi Espoon Laaksolahdessa asukkaille ei ole annettu tarpeeksi ruokaa. Lisäksi lääkkeitä on annettu ilman lääkärin määräystä.
+
+Aluehallintovirasto on tehnyt monta päätöstä Attendon hoivakodeista. Päätöksissä on vaadittu korjauksia hoivakotien toimintaan. Osassa hoivakodeista ongelmat ovat jatkuneet monia vuosia.
+
+Ylen selvitys kertoo, että myös Mehiläisen hoivakodeissa on laiminlyöntejä. Esimerkiksi Kouvolassa asukas oli letkuruokinnassa ilman ravintoa 18 tuntia.
+
+Eilen kerrottiin ongelmista Esperi Caren hoivakodeissa eri puolilla Suomea. Esperin toimitusjohtaja Marja Aarnio-Isohanni erosi työstä. Firma kertoi erosta tiistaiaamuna.
+
+Kaikki oppositiopuolueet ovat lähdössä mukaan mahdolliseen välikysymykseen. SDP on ehdottanut välikysymystä vanhustenhoidosta. Välikysymys mittaa sitä, onko hallituksella eduskunnan luottamus.
+
+## Posti irtisanoo työntekijöitä
+
+![Postinkantaja](https://img.img-cdn.yle.fi/crop_extract,w_4214,h_2370,x_0,y_270/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-413991595e03bf6df55/1571807253)
+
+Avaa kuvien katselu
+
+Kuva: Henrietta Hassinen / Yle
+
+Posti aloittaa yhteistoimintaneuvottelut. Ne koskevat hallintoa ja postipalveluita. Posti kertoo, että syy on postimäärän raju väheneminen.
+
+Ehkä enintään 236 vakituista työntekijää menettää työn. Lisäksi tulee lomautuksia, ja myös osa-aikatyötä lisätään. Posti hakee kasvua verkkokaupasta ja logistiikkapalveluista.
+
+Työntekijät sanovat, että irtisanomisten takia postipalvelun laatu heikkenee entistä enemmän.
+
+## Syntyvyys laskee edelleen
+
+![vauva haukottelee](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10618673)
+
+Avaa kuvien katselu
+
+Suomen väkiluku kasvaa vain maahanmuuton avulla. Kuva: AOP
+
+Syntyvyys jatkoi laskua viime vuonna. Tilastokeskus kertoo, että viime vuonna syntyi yhteensä noin 47 300 lasta. Se on yli 3 000 vähemmän kuin vuonna 2017.
+
+Suomessa asuvat naiset saavat elämän aikana keskimäärin 1,4 lasta. Luku on mittaushistorian alhaisin.
+
+Suomen väkiluku oli vuoden lopussa runsaat 5 521 000. Väkiluvun kasvu oli viime vuonna runsaat 8 600. Kasvu johtui maahanmuutosta.
+
+## Darude menee Euroviisuihin
+
+![Sebastian Rejman ja Darude](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5393395c502456cbbd4/1549012170)
+
+Avaa kuvien katselu
+
+Sebastian Rejman (vas.) ja Darude eli Ville Virtanen. Kuva: Yle / Anton Sucksdorff
+
+Suomen edustaja kevään Euroviisuissa on Darude. Edustuskappale valitaan Uuden Musiikin Kilpailussa 2. maaliskuuta.
+
+Darude eli muusikko Ville Virtanen on kansainvälisesti tunnettu artisti. Daruden maailmanlaajuinen hitti oli single Sandstorm.
+
+Darude esiintyy kilpailussa yhdessä vierailevan solistin Sebastian Rejmanin kanssa. Euroviisut järjestetään Tel Avivissa Israelissa toukokuussa.

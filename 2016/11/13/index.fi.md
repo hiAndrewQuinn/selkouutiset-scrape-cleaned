@@ -1,0 +1,65 @@
+# Sunnuntai 13.11.2016 (radio)
+
+Ranskassa on muistettu ihmisiä, jotka kuolivat terrori-iskuissa vuosi sitten. Uudessa-Seelannissa on ollut maanjäristys. Taiteilija Niillas Holmberg on Vuoden saamelainen. Suomalainen Rokka-koira taistelee norsujen puolesta.
+
+## Ranskan muistojuhla
+
+![Bataclan konserttisali.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9289768)
+
+Avaa kuvien katselu
+
+Bataclan-konserttitalo on korjattu ja siellä oli muistokonsertti lauantaina. Kuva: Juha Nurminen / Yle
+
+Ranskassa on muistettu ihmisiä, jotka kuolivat terrori-iskuissa vuosi sitten. Silloin terroristit hyökkäsivät eri puolille Ranskan pääkaupunkia Pariisia. He tappoivat 130 ihmistä.
+
+Lauantai-iltana Bataclan-konserttitalossa oli muistokonsertti. Konserttitalo oli yksi niistä paikoista, joihin terroristit hyökkäsivät. Muistokonsertissa esiintyi poplaulaja Sting.
+
+Sunnuntaina Ranskan presidentti François Hollande on paljastanut muistokylttejä. Muistokylttejä on paikoissa, joihin terroristit hyökkäsivät. Muistokylteissä kerrotaan, mitä paikalla tapahtui marraskuussa 2015.
+
+## Uuden-Seelannin maanjäristys
+
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9290139)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Uudessa-Seelannissa on ollut maanjäristys. Maanjäristyksen keskus oli noin 100 kilometrin päässä Christchurchin kaupungista. Vahingoista ei ole tietoa.
+
+Uuden-Seelannin viranomaiset ovat antaneet tsunamivaroituksen, koska maanjäristys voi nostaa merellä korkeita aaltoja. Viranomaiset ovat neuvoneet rannikon asukkaita lähtemään kauemmas merestä.
+
+## Vuoden saamelainen
+
+![Niillas Holmberg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9033471)
+
+Avaa kuvien katselu
+
+Niillas Holmberg. Kuva: Mira Rauhala / Yle
+
+Taiteilija Niillas Holmberg on Vuoden saamelainen 2016. Holmberg on tehnyt työtä saamelaisen kulttuurin ja saamelaisten oikeuksien puolesta.
+
+Holmberg tekee musiikkia ja kirjoittaa kirjoja saamen kielellä. Holmbergin kirjoja on käännetty monille kielille, ja ne tekevät saamelaisuutta tutuksi myös muille.
+
+Saamelaiset ovat ainoa alkuperäiskansa koko Euroopan unionin alueella. He ovat asuneet Lapissa kauemmin kuin muut.
+
+Saamelaisia asuu Lapissa Norjan, Ruotsin, Suomen ja Venäjän alueella. Suomessa asuu noin 10 000 saamelaista. Saamen kieli on sukua suomen kielelle.
+
+## Norsuuluukoira Rokka
+
+![Toni Lahtinen ja Rokka tutkimassa kiinalaisfirman konttia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9287123)
+
+Avaa kuvien katselu
+
+Rokka etsii laitonta norsuuluuta. Vieressä sen omistaja, rikostutkija Toni Lahtinen. Kuva: Yle Kuvapalvelu
+
+Suomalaisesta Rokka-koirasta on tullut filmitähti Afrikassa.
+
+Rokka on norsunluukoira. Se osaa haistaa norsunluun. Siksi se on voinut auttaa Tansanian poliisia.
+
+Tansanian poliisi etsii rikollisia, jotka tappavat norsuja ja myyvät norsunluuta. Tässä työssä Rokan tarkka nenä on ollut iso apu. Rokka haistaa norsunluun paikoista, joista poliisi ei ole löytänyt mitään.
+
+Rokka-koira on nyt kuuluisa. Se on jopa päässyt filmitähti Leonardo DiCaprion dokumenttielokuvaan.
+
+Suomalaiset voivat seurata Rokan ja sen omistajan Toni Lahtisen työtä televisiosta. Tv-sarja "Norsuunluukoira" tulee TV1:stä tiistai-iltana, ja sarjan jaksot voi katsoa myös Yle Areenasta.
+
+**Norsuuluukoira Yle Areenassa**

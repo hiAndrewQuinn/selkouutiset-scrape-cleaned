@@ -1,0 +1,61 @@
+# Keskiviikko 1.5.2019 (radio)
+
+Keskiviikkona on vietetty vappua. Vappu on sujunut rauhallisesti. Puolueet ovat järjestäneet vappujuhlia. Ravintola-alalla on pulaa opiskelijoista.
+
+## Perinteinen vappu
+
+![Vapun juhlintaa Helsingin Ullanlinnanmäellä Kaivopuistossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10762640)
+
+Avaa kuvien katselu
+
+Vapunviettoa Helsingin Kaivopuistossa. Kuva: Jussi Nukari / Lehtikuva
+
+Tänään on vietetty vappua. Vappu on opiskelijoiden, työväen ja kevään juhla. Vappujuhlia on ollut joka puolella Suomea.
+
+Helsingissä monet viettivät vappua Kaivopuistossa. Ihmiset söivät vappuruokia ulkona ja kuuntelivat kuorolaulua. Kuorolauluja esittivät Ylioppilaskunnan laulajat.
+
+Presidentti Sauli Niinistö ja rouva Jenni Haukio saivat vapputervehdyksiä Presidentinlinnan pihalla. Presidenttipari sai vappukukan, ja presidenttiparille esitettiin musiikkia.
+
+## Rauhallinen vappu
+
+![Opiskelijat juhlivat Havis Amandan patsaalla vappuaattona.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10762589)
+
+Avaa kuvien katselu
+
+Nuoret osaavat pitää hauskaa myös ilman alkoholia.
+
+Suomalaiset ovat juhlineet vappua melko rauhallisesti. Humalaiset ja väkivaltaiset ihmiset ovat aiheuttaneet jonkin verran häiriötä.
+
+Poliisi kuitenkin kertoo, että nuoret eivät juo nykyään yhtä paljon alkoholia kuin ennen. Siksi vappu on sujunut rauhallisesti.
+
+## Vappupuheet
+
+![Antti Rinne osallistuu Helsingin Työväen vappujuhlan marssiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10762676)
+
+Avaa kuvien katselu
+
+Antti Rinne osallistui vappujuhlaan Helsingissä. Kuva: Jussi Nukari / Lehtikuva
+
+Myös poliittiset puolueet ovat järjestäneet vappujuhlia. Puoluejohtajat ovat pitäneet juhlissa puheita. Yksi puheiden teema oli eduskuntavaalit.
+
+SDP:n puheenjohtaja Antti Rinne sanoi, että äänestäjät kyllästyivät oikeistohallitukseen. SDP on vasemmistopuolue, ja se voitti eduskuntavaalit pari viikkoa sitten. Rinne lupasi parantaa työntekijöiden ja köyhien eläkeläisten asemaa.
+
+Myös ilmastonmuutos oli esillä puoluejohtajien puheissa. Perussuomalaisten puheenjohtajan Jussi Halla-ahon mielestä liian ankara ilmastopolitiikka huonontaa suomalaisten firmojen kilpailukykyä. Vihreiden puheenjohtaja Pekka Haavisto sanoi, että ilmastonmuutosta vastaan taisteleminen on vihreille tosi tärkeää.
+
+## Ravintola-ala
+
+![Kokiksi valmistunut savonlinnalainen Pia Takaoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10761009)
+
+Avaa kuvien katselu
+
+Ravintola-ala tarvitsee työntekijöitä. Kuva: Kalle Purhonen / Yle
+
+Ravintola-alalla on pulaa opiskelijoista. Opiskelupaikkoja on enemmän kuin hakijoita.
+
+Ravintola-ala ei kiinnosta nuoria, vaikka alalla on paljon töitä.
+
+On monta syytä, miksi ravintola-ala ei kiinnosta nuoria. Alan palkat ovat pieniä, ja työ on usein vuorotyötä.
+
+Monet ravintolat eivät myöskään pysty tarjoamaan kokoaikatyötä. Ne tarvitsevat työntekijöitä eniten viikonloppuina ja kesällä.
+
+Ravintolat toivovat, että ravintolapalvelujen veroja lasketaan. Silloin ravintoloilla on ehkä varaa nostaa työntekijöiden palkkoja.

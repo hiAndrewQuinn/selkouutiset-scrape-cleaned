@@ -1,0 +1,91 @@
+# Perjantai 10.3.2023 (radio)
+
+Pääministeri Marin ja ympäristöministseri Ohisalo kävivät Kiovassa. Suomelta lisää apua Ukrainaan. Junaliikennettä uhkaa lakko. Farmaseuteista on kova pula. Huono myyrävuosi ajaa pöllöjä kaupunkeihin. Sää.
+
+## Marin ja Ohisalo Ukrainassa
+
+![Suomen pääministeri Sanna Marin ja Ukrainan presidentti Volodymyr Zelenskyi Kiovassa 10. maaliskuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_3491,h_1960,x_0,y_364/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1083671640b3dd8ab065/1678458390)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin ja presidentti Volodymyr Zelenskyi tapasivat perjantaina Kiovassa. Kuva: Ukrainan presidentin kanslia / AFP
+
+Pääministeri Sanna Marin on vierallut tänään Ukrainassa. 
+
+Marin on tavannut Ukrainan presidentin Volodymyr Zelenskyin Kiovassa. Marin ja Zelenskyi osallistuivat ukrainalaissotilaan muistotilaisuuteen. Sotilas oli saanut surmansa Bahmutin taisteluissa Itä-Ukrainassa.
+
+Marin vieraili myös sotilassairaalassa ja koulussa.
+
+Valtioneuvoston kanslia kertoo, että vierailulla on mukana myös ympäristöministeri Maria Ohisalo.
+
+## Lisää apua Ukrainaan
+
+![Vapaaehtoiset jakavat humanitaarista apua asukkaille Harkovan laitamilla Ukrainassa.](https://img.img-cdn.yle.fi/crop_extract,w_4493,h_2525,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1049728639d608f4a8c3/1671260829)
+
+Avaa kuvien katselu
+
+Vapaaehtoiset jakoivat joulukuussa humanitaarista apua ihmisille Harkovan kaupungin laitamilla. Kuva: Sergey Kozlov / EPA
+
+Suomi lähettää lisää apua Ukrainaan.
+
+Suomi antaa Ukrainalle humanitaarista apua ja kehitysyhteistyötukea yhteensä 29 miljoonan euron edestä. Tukea suunnataan esimerkiksi ruokaturvaan, terveydenhuoltoon ja opetukseen.
+
+Lisäksi Ukrainan tukemiseen kehitysyhteistyön kautta on varattu tänä vuonna 37 miljoonaa euroa. Ukrainasta on tulossa Suomen suurin kehitysyhteistyön kumppanimaa.
+
+## Junaliikenteen lakonuhka
+
+![R-juna Helsinkiin Tampereelta.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10471626398189fb4392/1670912583)
+
+Avaa kuvien katselu
+
+Veturinkuljettajat uhkaavat lakolla. Kuva: Jani Aarnio / Yle
+
+Junaliikennettä uhkaa lakko 10 päivän kuluttua. 
+
+Lakko alkaa 20. maaliskuuta, jos veturinkuljettajien työriitaan ei sitä ennen löydy ratkaisua.
+
+Työriitaan annettiin sovintoehdotus tiistaina. Työntekijöiden järjestö Rautatiealan Unioni kuitenkin hylkäsi ehdotuksen.
+
+Kiista koskee palkankorotuksia ja perhevapaita.
+
+## Sähkönkulutus
+
+![Sähkölinja lumisen kallion päällä, puun oksilla lunta, lila taivas.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_121/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107779363f8f2c99283a/1700654949)
+
+Avaa kuvien katselu
+
+Sähkönkulutuksen talven ennätys syntyi torstaiaamuna. Kuva: Terhi Liimu / Yle
+
+Sähkönkulutus Suomessa nousi eilen talven ennätystasolle. 
+
+Sähkönkulutus oli talven ennätyslukemissa torstaiaamuna kello 8:sta 9:ään. Tuolloin sähköä kulutettiin yli 12 000 megawattia, kertoo kantaverkkoyhtiö Fingrid.
+
+Vaikka kulutus oli huippulukemissa, sähkön riittävyys ei ollut vaarassa.
+
+Fingrid sanoo, että on hyvin poikkeuksellista, että sähkönkulutuksen talven huippu saavutetaan vasta maaliskuussa.
+
+## Pöllöt
+
+![Lapinpöllö istuu oksalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6533934)
+
+Avaa kuvien katselu
+
+Tältä näyttää lapinpöllö. Kuva: Raine Martikainen 
+
+Kaakkois-Suomen kaupunkeihin on ilmestynyt paljon pöllöjä. 
+
+Pöllöjä on havaittu esimerkiksi Kouvolassa, Haminassa, Luumäellä, Porvoossa ja Kotkassa. Esimerkiksi Kotkassa on havaittu 3 pöllöä: 2 lapinpöllöä ja yksi viirupöllö.
+
+Pöllöt ovat tulleet kaupunkeihin etsimään ruokaa. Myyrävuosi on ollut huono, joten pöllöt ovat joutuneet lähtemään pois alueilta, joissa ne normaalisti asuvat.
+
+## Lauantain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689795)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Lauantaina lumikuuroja tulee paikoin pohjoisessa ja etelässä. Pääosin on kuitenkin poutaa. 
+
+Lämpötila on päivällä viiden pakkasasteen tienoilla. Pohjoisessa on kylmempää.

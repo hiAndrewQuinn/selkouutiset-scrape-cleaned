@@ -1,0 +1,67 @@
+# Maanantai 7.9.2020 (radio)
+
+Vienti vähenee. Käsidesistä kysytään aiempaa enemmän. Rengasturvallisuusviikko alkoi. Suomessa 1 uusi koronakuolema. Sääennuste.
+
+## Vienti vähenee
+
+![Paperirullia tehtaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10494290)
+
+Avaa kuvien katselu
+
+Paperirullia paperitehtaalla. Kuva: Helena Rosenblad / Yle
+
+Suomen vienti on vähentynyt koronatilanteen takia.
+
+Tavaravientie pieneni heinäkuussa noin 14 prosenttia viime vuoden heinäkuusta. Öljytuotteiden, paperin ja kuljetusvälineiden kauppa Suomesta ulkomaille on vähentynyt.
+
+Monet vientifirmat ovat vähentäneet henkilökuntaa, koska vienti vähenee ja firmoilla menee aiempaa huonommin. Tänä vuonna teknologiateollisuudesta vähenee ehkä noin 10 000 työpaikkaa.
+
+## Käsidesistä kysytään aiempaa enemmän
+
+![Käsidesi Kalevan Prismassa.](https://img.img-cdn.yle.fi/crop_extract,w_5149,h_2896,x_0,y_265/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7034435f2158e306135/1596021455)
+
+Avaa kuvien katselu
+
+Käsidesiä on nyt joka paikassa, esimerkiksi kaupan ovella. Kuva: Antti Eintola / Yle
+
+Käsidesistä tulee aiempaa enemmän soittoja Myrkytystietokeskukseen. Soittajat kysyvät usein alle 6-vuotiaista lapsista. Lapsi on esimerkiksi pannut käsidesiä vähän suuhun. Se ei ole yleensä vaarallista. Jotkut aikuiset ovat juoneet käsidesiä tahallaan. Se on vaarallista.
+
+Suomalaiset käyttävät käsidesiä paljon aiempaa enemmän. Siksi kyselyitä tulee Myrkytystietokeskukseen aiempaa enemmän.
+
+Kyselyitä on tullut yli kaksi kertaa niin paljon kuin viime vuonna.
+
+## Nyt on rengasturvallisuusviikko
+
+![Renkaiden urien syvyyttä mitataan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6280321)
+
+Avaa kuvien katselu
+
+Renkassa pitää olla hyvä pinta. Kuluneilla renkailla ei saa ajaa. Kuva: Paula Hiljanen / Yle
+
+Tällä viikolla vietetään rengasturvallisuusviikkoa. Rengasturvallisuusviikolla muistutetaan autoilijoita, että autossa pitää olla hyvät renkaat.
+
+Kuluneet renkaat ovat liukkaat ja siksi vaaralliset. Kuluneet autonrenkaat voivat aiheuttaa onnettomuuksia ja kuolemia.
+
+Koronatilanteen takia tänä vuonna ei järjestetä perinteisiä rengasratsioita, joissa neuvotaan autoilijoita. Poliisi kuitenkin valvoo liikennettä ja autojen renkaita.
+
+## Yksi uusi koronakuolema
+
+![Kuvassa on koronavirustestestausasema Helsingissä elokuun lopulla vuonna 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_294/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7138925f4dee2ca0f6c/1605705321)
+
+Avaa kuvien katselu
+
+Koronavirustestin näyteputkia. Kuva: Silja Viitala / Yle
+
+Suomessa on raportoitu 1 uusi koronaviruskuolema. Tautiin, jonka koronavirus aiheuttaa, on kuollut Suomessa yhteensä 336 ihmistä.
+
+Uusia koronavirustartuntoja on raportoitu maanantaina 36. Päijät-Hämeessä tartuntoja on raportoitu 11, mikä on siellä paljon.
+
+## Tiistaina sataa koko maassa
+
+![ihmisiä kävelemässä rankkasateessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8962394)
+
+Avaa kuvien katselu
+
+Tiistaina tarvitaan sateenvarjoa ja kumisaappaita, jos menee ulos. Kuva: Yle
+
+Vielä sääennuste. Tiistaina sataa paljon. Aluksi sataa lännessä. Illalla sadealue saavuttaa maan itäosan ja lännestä selkenee. Päivän ylin lämpötila on 9 ja 16 asteen välillä.

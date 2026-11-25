@@ -1,0 +1,75 @@
+# Keskiviikko 13.1.2021 (radio)
+
+Suomessä pelätään uudenlaista muuttunutta koronavirusta. Suomessa on 8 uutta koronakuolemaa ja 324 uutta koronatartuntaa. Monet haluavat lopettaa tupakoinnin nikotiinituotteiden avulla. Suomen paksuin lumikerros mitattiin keskiviikkona Helsinki-Vantaan lentokentällä. Loppuviikolla pakkanen on kireää.
+
+## Muuntunut koronavirus
+
+![Laboratotiotekniikan opiskelija Sanni Ouni tutkii koronanäytteitä Fimlabin laboratoriossa Tampereella.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7543245fd8a0221d3e1/1608032591)
+
+Avaa kuvien katselu
+
+Tukijat selvittävät, kuinka paljon Suomesta löytyy muuntunutta koronavirusta. Kuva: Antti Eintola / Yle
+
+Tutkijat pelkäävät, että uudenlainen muuntunut koronavirus alkaa levitä myös Suomessa.
+
+Suomesta on tähän mennessä löydetty noin 60 tautitapausta, joiden syy on muuntunut koronavirus.
+
+Muuntunut koronavirus tarttuu helposti. Esimerkiksi Britanniassa muuntunut koronavirus on levinnyt nopeasti.
+
+Jos muuntunut koronavirus alkaa levitä myös Suomessa, koronatartuntoja tulee lisää.
+
+Hyvä uutinen kuitenkin on, että koronarokote antaa suojaa myös muuntunutta koronavirusta vastaan.
+
+## Suomen koronaluvut
+
+![hoitaja ottaa koronatestiä mieheltä](https://img.img-cdn.yle.fi/crop_extract,w_3641,h_2048,x_0,y_188/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7500835fc9123c66ed8/1607012957)
+
+Avaa kuvien katselu
+
+Uusia koronatartuntoja löytyy koronatesteissä. Kuva: AOP
+
+Suomessa on raportoitu 8 uutta koronakuolemaa. Suomessa on tähän mennessä kuollut 610 ihmistä koronan takia.
+
+Keskiviikkona raportoitiin myös 324 uutta koronatartuntaa. Suomesta on löydetty tähän mennessä melkein 40 000 koronatartuntaa.
+
+## Nikotiinituotteet suosittuja
+
+![Vekaranjärven sotilaskodin linjasto, jossa tarjolla verhon takana tupakkatuotteita.](https://img.img-cdn.yle.fi/crop_extract,w_3840,h_2160,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6026655daeaa4d6ee4b/1571728252)
+
+Avaa kuvien katselu
+
+Nikotiinituotteet auttavat lopettamaan tupakoinnin. Kuva: Kari Saastamoinen/Yle
+
+Nikotiinituotteiden myynti on kasvanut. Nikotiinipurukumien ja muiden nikotiinituoteiden myynti on kasvanut korona-aikana jopa 10 prosenttia.
+
+Nikotiinituotteet auttavat lopettamaan tupakoinnin. Monet haluavat lopettaa tupakoinnin nyt, koska koronataudista voi tulla vakava tupakoinnin takia.
+
+Kansanterveysjärjestö Suomen ASH teki asiasta kyselyn. Kyselyn tulokset kertovat, että noin 10 000 suomalaista on lopettanut tupakoinnin koronavaaran takia.
+
+Kansanterveysjärjestö toivoo, että nikotiinituotteista voi tulevaisuudessa saada kelakorvauksen. Järjestön mielestä ihmisiä pitää tukea, kun he haluavat lopettaa tupakoinnin.
+
+## Etelä-Suomen lumitilanne
+
+![nainen siirtää lumikolalla lunta lumikasaan](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7620485fff052569f17/1610548904)
+
+Avaa kuvien katselu
+
+Lunta on satanut paljon. Kuva: Tuija Veirto/ Yle
+
+Etelä-Suomessa on satanut alkuviikon aikana paljon lunta. Keskiviikkona koko Suomen paksuin lumikerros mitattiin Helsinki-Vantaan lentokentällä. Siellä lunta oli 58 senttimetriä.
+
+Lumisade on haitannut liikennettä, ja Helsingin seudulla monet bussit ovat olleet myöhässä.
+
+Lumi on tehnyt vahinkoa myös rakennuksille. Esimerkiksi Helsingissä ja Espoossa romahti kuplahallin katto, jolle satoi paksu lumikerros. Kukaan ei kuitenkaan loukkaantunut, koska kuplahalleissa ei ollut ihmisiä tapahtuma-aikana.
+
+## Pakkanen kiristyy
+
+![Lapsia pulkkamäessä aurinkoisessa pakkassäässä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11730583)
+
+Avaa kuvien katselu
+
+Loppuviikolla luimisade loppuu ja pakkanen kiristyy. Kuva: Markku Ulander / Lehtikuva
+
+Lumisade loppuu vähitellen. Torstaina sää on suurimmassa osassa maata poutaista.
+
+Loppuviikolla lunta sataa vain vähän, mutta pakkanen on kireää. Etelässä pakkasta on 10 ja 20 asteen välillä, pohjoisessa jopa 30 ja 40 asteen välillä.

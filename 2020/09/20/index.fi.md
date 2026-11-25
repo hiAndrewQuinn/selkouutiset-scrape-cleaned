@@ -1,0 +1,67 @@
+# Sunnuntai 20.9.2020 (radio)
+
+Matkustajalaiva Amorella ajoi karille sunnuntaina. Koronavirus leviää nopeasti Britanniassa. Juna ja karhu törmäsivät toisiinsa Lieksassa. Maanantaina etelässä on lämmintä, pohjoisessa sataa vettä.
+
+## Amorella-laiva joutui onnettomuuteen
+
+![Amorella Ahvenanmaalla karilla.](https://img.img-cdn.yle.fi/crop_extract,w_1042,h_586,x_42,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7211215f6732b43242f/1600598811)
+
+Avaa kuvien katselu
+
+Viking Linen laiva Amorella joutui onnettomuuteen Ahvenanmaan saaristossa. Kuva: Länsi-Suomen merivartiosto
+
+Sunnuntaina on tapahtunut laivaonnettomuus.
+
+Matkustajalaiva Amorella ajoi karille. Laivan pohja kosketti kalliota Ahvenanmaan saaristossa.
+
+Laivassa oli noin 200 matkustajaa. Matkustajat eivät loukkaantuneet, ja he eivät olleet suuressa vaarassa.
+
+Amorella ajoi tapauksen jälkeen saaren rantaan. Paikalle tuli apua, ja matkustajat päätettiin siirtää turvaan Ahvenanmaalle.
+
+Onnettomuus tapahtui sunnuntaina iltapäivällä. Viking Linen Amorella oli matkalla Turusta Tukholmaan.
+
+## Koronatartunnat lisääntyvät
+
+![Matt Hancock](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11554293)
+
+Avaa kuvien katselu
+
+Britannian terveysministeri Matt Hancock. Kuva: Tolga Akmen / AFP
+
+Koronaviruksen leviäminen Suomessa ja maailmalla jatkuu.
+
+Suomessa kerrottiin sunnuntaina, että uusia koronatartuntoja on 58. Yhteensä Suomessa on löydetty noin 9000 koronatartuntaa.
+
+Koronavirus leviää myös muualla Euroopassa. Erityisen nopeasti koronavirus leviää nyt Britanniassa. Britanniassa on löydetty viime aikoina yli 4000 uutta koronatapausta päivässä.
+
+Britannian terveysministeri sanoo, että Britannia on lähellä koronasulkua. Jos koronasulku alkaa, Britannian kaupat, ravintolat ja baarit voidaan sulkea.
+
+Britanniassa tulee pian voimaan laki, jolla yritetään estää koronaviruksen leviämistä. Laki määrää, että ihmisen pitää pysyä erossa muista ihmisistä, jos hänellä on koronatartunta. Jos ihminen rikkoo lakia, hän voi saada jopa 10 000 punnan sakot.
+
+## Juna ja karhu törmäsivät
+
+![Putket saapuvat Mussalon satama-alueelle raiteita pitkin Venäjältä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9579039)
+
+Avaa kuvien katselu
+
+Karhu käveli junaradalle Lieksassa. Kuva: Antti Ojala / Yle
+
+Itä-Suomessa Lieksassa on tapahtunut epätavallinen onnettomuus. Juna ja karhu törmäsivät toisiinsa lauantaina illalla.
+
+Poliisi kertoo, että karhu juoksi päin tavarajunan veturia. Törmäyksen voimasta karhu pyöri ojaan. Karhua ei enää löydetty.
+
+Viranomaiset sanovat, että karhu ei loukkaantunut onnettomuudessa pahasti. Karhu ei aiheuta vaaraa ihmisille.
+
+## Sää
+
+![Puut syksynä](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_608,x_0,y_850/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7196085f620aa0bd39f/1600260826)
+
+Avaa kuvien katselu
+
+Etelässä jatkuu kaunis syyssää. Kuva: Antti Eintola / Yle
+
+Viikko alkaa Etelä-Suomessa lämpimässä säässä. Lämpötila on maanantaina yli 15 astetta. Etelässä on myös poutaa, eli vettä ei sada.
+
+Pohjois-Suomessa sataa maanantaina vettä. Sää on pohjoisessa myös kylmä. Maanantain ja tiistain välisenä yönä osassa Lappia voi sataa jopa lunta.
+
+Tiistai on tuulinen päivä koko Suomessa. Erityisen kovaa tuulee pohjoisessa.

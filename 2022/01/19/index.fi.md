@@ -1,0 +1,85 @@
+# Keskiviikko 19.1.2022 (radio)
+
+Aluevaalien ennakkoäänestys. Sairauspoissaolot. Kantelut oikeusasiamiehelle. Europarlamentti. Sää.
+
+## Aluevaalien ennakkoäänestys
+
+![Henkilö tutkii aluevaalimainoksia lumisessa maisemassa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_180/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90246361e43844d2d21/1642346701)
+
+Avaa kuvien katselu
+
+Aluevaalien vaalimainoksia. Kuva: Emmi Korhonen / Lehtikuva
+
+Aluevaalien ennakkoäänestys päättyi eilen. Ennakkoon äänesti vähän yli miljoona ihmistä eli noin 26 prosenttia äänioikeutetuista.
+
+Vilkkaimmin äänestettiin Etelä-Savon hyvinvointialueella, jossa yli 30 prosenttia äänioikeutetuista kävi äänestämässä. Laiskimmin äänestettiin Vantaan ja Keravan hyvinvointialueella, jossa äänestysprosentti jäi alle 20.
+
+Ulkomailla ennakkoon äänesti noin 3000 ihmistä, kertoo ulkoministeriö. Äänistä yli puolet annettiin Espanjassa. Ennakkoäänestys järjestettiin noin 70 eri maassa.
+
+Aluevaalien varsinainen vaalipäivä on sunnuntaina.
+
+## Korona työpaikoilla
+
+![Espoon Laaksolahden päiväkotissa, pehmolelunorsu makaa sohvalla.](https://img.img-cdn.yle.fi/crop_extract,w_5334,h_3000,x_0,y_222/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-880877619519c3135fd/1638376197)
+
+Avaa kuvien katselu
+
+Päiväkodeissa varaudutaan sairauspoissaolojen kasvuun. Kuva: Janne Lindroos / Yle
+
+Monilla työpaikoilla varaudutaan sairauspoissaolojen kasvuun.
+
+Koronaepidemian tartunta-aaltoon varaudutaan esimerkiksi kouluissa ja päiväkodeissa. Esimerkiksi Kuopiossa ja Joensuussa on laadittu suunnitelmia siitä, miten toimitaan, jos henkilökuntaa ei ole enää tarpeeksi.
+
+Lasten ja henkilökunnan poissaolot ovat jo kasvaneet ja aiheuttaneet lisätyötä monissa kunnissa.
+
+Myös poliisi ja pelastuslaitokset varautuvat koronapoissaoloihin.
+
+Palokunnat ja poliisilaitokset paikkaavat runsaita sairauspoissaoloja esimerkiksi ylitöillä ja siirtämällä henkilöstä asemalta toiselle. Myös esihenkilöitä siirretään työvuoroihin.
+
+## Kanteluita oikeusasiamiehelle
+
+![Eduskunnan oikeusasiamies Petri Jääskeläinen.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_262/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6679065ea2bfe65181e/1593744451)
+
+Avaa kuvien katselu
+
+Eduskunnan oikeusasiamies Petri Jääskeläinen.  Kuva: Petteri Bülow / Yle
+
+Eduskunnan oikeusasiamiehelle tehtiin ennätysmäärä kanteluita viime vuonna.
+
+Yhteensä kanteluita tehtiin yli 7700. Se on noin 700 enemmän kuin toissa vuonna.
+
+Eniten kanneltiin terveydenhuollosta, sosiaalihuollosta ja poliisista. Yli tuhat kantelua tehtiin asioista, jotka jotenkin liittyivät koronaepidemiaan.
+
+## Europarlamentin puhemiehet
+
+![Heidi Hautala.](https://img.img-cdn.yle.fi/crop_extract,w_5551,h_3122,x_0,y_32/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90354861e78d27de508/1642564950)
+
+Avaa kuvien katselu
+
+Heidi Hautala. Kuva: AOP
+
+Vihreiden europarlamentaarikko Heidi Hautala on valittu uudelleen Euroopan parlamentin varapuhemieheksi.
+
+![Roberta Metsola.](https://img.img-cdn.yle.fi/crop_extract,w_4784,h_2691,x_0,y_497/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90317261e69544b3956/1642501551)
+
+Avaa kuvien katselu
+
+Roberta Metsola. Kuva: Patrick Hertzog / AFP
+
+Hautala on ollut EU-parlamentin varapuhemies vuodesta 2017 lähtien. Yhteensä parlamentissa on 14 varapuhemiestä.
+
+Parlamentin puhemieheksi valittiin eilen maltalainen Roberta Metsola. 43-vuotias Metsola on EU-parlamentin historian nuorin puhemies. Hänen puolisonsa on suomalainen.
+
+## Torstain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12277921)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Torstaina etelässä ja idässä sataa runsaasti lunta.
+
+Lännessä ja pohjoisessa sää kylmenee ja selkenee hieman.
+
+Lämpötila on etelässä ja idässä +1 ja -3 asteen välillä, muualla -2...-7 astetta.

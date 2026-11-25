@@ -1,0 +1,82 @@
+# Sunnuntai 8.8.2021
+
+Koronatartunnat. Mekka. Sähköpotkulaudat. Olympialaiset. Sää.
+
+TV:n selkouutisilla on kesätauko 20.8. asti.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Suomen koronaluvut
+
+![Kuvassa on potilas tehohoidossa Ranskassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11558692)
+
+Avaa kuvien katselu
+
+Osa sairaaloiden koronapotilaista saa tehohoitoa. Kuva: Caroline Blumberg / EPA
+
+Koronatartuntojen määrä kasvaa.
+
+Terveyden ja hyvinvoinnin laitos kertoi sunnuntaina, että uusia koronatartuntoja on yli 1300. Luvussa on mukana tartuntoja koko viikonlopun ajalta.
+
+Uusia koronakuolemia on 5. Suomessa on nyt kuollut yhteensä 991 ihmistä koronan takia.
+
+Sairaalahoidossa on 100 koronapotilasta.
+
+## Mekan pyhiinvaeltajat
+
+![Kuvassa on valkokaapuisia miehiä kumartumassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11877762)
+
+Avaa kuvien katselu
+
+Mekassa on noudatettu turvavälejä korona-aikana. Kuva: AOP
+
+Saudi-Arabia päästää taas pyhiinvaeltajia ulkomailta Mekkaan. Koronan takia Saudi-Arabian rajat ovat olleet kiinni yli vuoden.
+
+Pyhiinvaeltajat saavat taas mennä Mekkaan, jos heidät on rokotettu koronaa vastaan. Pyhiinvaeltajien pitää myös olla ensin karanteenissa, eli he eivät voi mennä ihmisten joukkoon matkan alussa.
+
+Mekka on muslimien pyhä kaupunki, ja siellä vieraili paljon pyhiinvaeltajia ennen koronaa.
+
+## Sähköpotkulautojen onnettomuudet
+
+![Kaksi punaista sähköpotkulautaa. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_95/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5751875d1ca7123a17f/1562158973)
+
+Avaa kuvien katselu
+
+Sähköpotkulaudan kuljettajan pitää noudattaa pyöräilijän liikennesääntöjä.  Kuva: Jasmine Nedergård/Yle
+
+Suomessa puhutaan taas sähköpotkulaudoista.
+
+Helsingin ja Uudenmaan alueen lääkärit toivovat, että sähköpotkulaudat kielletään liikenteessä viikonloppuna yöaikaan.
+
+Suurin osa sähköpotkulautojen onnettomuuksista tapahtuu yöllä. Lisäksi kuljettaja loukkaa itsensä usein pahasti, jos hän on humalassa. Siksi lääkärit toivovat, että sähköpotkulautoja ei käytetä viikonloppuöinä.
+
+Poliisi muistuttaa, että sähköpotkulaudalla ei saa ajaa jalkakäytävällä. Myös humalassa ajaminen on kielletty.
+
+Lisäksi sähköpotkulaudan kuljettajan on hyvä käyttää kypärää. Kuljettaja ei saa ottaa ketään kyytiin, sähköpotkulaudalla ajetaan yksin, poliisi muistuttaa.
+
+## Olympialaisten päättäjäiset
+
+![Mira Potkonen hymyilee kehässä.](https://img.img-cdn.yle.fi/crop_extract,w_3457,h_1945,x_0,y_108/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8381316109059914c54/1627981272)
+
+Avaa kuvien katselu
+
+Nyrkkeilijä Mira Potkonen menestyi Tokion olympialaisissa. Kuva: Lehtikuva
+
+Tokion olympialaiset ovat loppuneet.
+
+Olympialaisten päättäjäisiä vietettiin sunnuntaina. Nyrkkeilijä Mira Potkonen kantoi päättäjäisissä Suomen lippua.
+
+Potkonen sai Tokiossa pronssimitalin naisten nyrkkeilyssä. 40-vuotias Potkonen lopetti urheilu-uran Tokion olympiakisoihin.
+
+Suomi sai Tokiossa yhteensä 2 mitalia. Myös uimari Matti Mattsson sai pronssimitalin. Mattsson oli 3. miesten 200 metrin rintauinnissa.
+
+## Alkuviikon sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12051554)
+
+Avaa kuvien katselu
+
+Alkuviikko on sateinen. Sadekuuroja ja ukkoskuuroja tulee etenkin lännessä.
+
+Sää ei paljon muutu loppuviikon aikana. Sateita ja ukkosia tulee eri puolilla maata.
+
+Lämpötila on alkuviikon aikana noin 20 astetta koko maassa.

@@ -1,0 +1,87 @@
+Sotaharjoitukset
+
+# Torstai 14.9.2017 (radio)
+
+Suomalaisnainen vapautettiin Afganistanissa. Venäjän suuri sotaharjoitus alkoi. Länsimetrossa taas ongelmia. Suomalaiset syövät enemmän kasviksia.
+
+![pastaa ja salaattia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9811908)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+- 
+
+  
+
+  Jan Fredriksson
+
+  
+
+  
+
+14.9.2017 18:04
+
+## Kaapattu suomalainen vapautettiin Afganistanissa
+
+![Kabul](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9629278)
+
+Avaa kuvien katselu
+
+Nainen kaapattiin tästä talosta.  Kuva: Jawad Jalali / EPA
+
+Suomalainen avustustyöntekijä on vapautettu Afganistanissa. 37-vuotias nainen kaapattiin Kabulissa toukokuussa.
+
+Hyökkääjät sieppasivat naisen asunnosta, jossa asui myös saksalainen avustustyöntekijä. Saksalainen nainen ja asunnon vartija tapettiin iskussa.
+
+Kaappaajista ei ole saatu vielä tarkempia tietoja.
+
+## Suomi ei maksanut lunnaita naisesta
+
+![Ulkoministeri Timo Soini ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9813435)
+
+Avaa kuvien katselu
+
+Ulkoministeri Timo Soini Kuva: Emmi Korhonen / Lehtikuva
+
+Ulkoministeri Timo Soini sanoo, että Suomi ei maksanut rahaa kaappaajille. Soinin mielestä rahan maksaminen vain kannustaa uusiin sieppauksiin. Suomalaiset viranomaiset auttoivat naisen vapauttamisessa, mutta tarkemmin toiminnasta ei kerrota. Naisen sieppauksesta on käynnissä kansainvälinen rikostutkinta.
+
+Soini on keskustellut naisen kanssa puhelimessa ja nainen on turvassa. Hän voi hyvin, mutta vielä ei tiedetä, milloin nainen pääsee takaisin Suomeen.
+
+## Suuri sotaharjoitus alkoi Venäjällä ja Valkovenäjällä
+
+![helikopteri ja sotilaita rannalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8995723)
+
+Avaa kuvien katselu
+
+Zapad-harjoituksessa on paljon sotilaita.  Kuva: Aleksei Druginyn / Ria Novosti / EPA 
+
+Venäjän ja Valkovenäjän yhteinen sotaharjoitus on alkanut. Sotaharjoituksen nimi on Zapad ja se kestää viikon ajan. Venäjä sanoo, että harjoitukseen osallistuu 13 000 sotilasta, mutta oikeasti määrä on paljon suurempi. Sotilaita voi olla yli 100 000.
+
+Venäjän naapurimaat,  esimerkiksi Liettua ja Puola eivät pidä siitä, että niiden rajoilla pidetään suuri sotaharjoitus. Sotaharjoitus kiristää Venäjän ja EU-maiden välejä, jotka ovat jo nyt huonot.
+
+## Länsimetron koeajo epäonnistui
+
+![Kaapeleita Länsimetron Aalto-yliopiston metroasemalla Espoon Otaniemessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9485230)
+
+Avaa kuvien katselu
+
+Länsimetron koeajossa sähköt pettivät.  Kuva: Heikki Saukkomaa / Lehtikuva
+
+Länsimetro on taas vaikeuksissa. Metrojunia testattiin torstaina, mutta koeajo jouduttiin keskeyttämään. Sähköt eivät kestäneet koeajossa. Koeajo vaikeutti myös muuta metroliikennettä ja liikenne jouduttiin keskeyttämään.
+
+Liikennöinti Helsingin ja Espoon välillä piti alkaa jo kauan aikaa sitten, mutta metrolinjan rakentamisessa on ollut paljon ongelmia.
+
+Nyt matkustajaliikenne alkaa ehkä lokakuussa.
+
+## Suomalaiset syövät enemmän kasviksia ja hedelmiä
+
+![Ruokaa otetaan buffet-linjastolta lautaselle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9770776)
+
+Avaa kuvien katselu
+
+Suomalaiset ottavat lautaselle enemmän kasviksia.  Kuva: Wasim Khuzam / Yle
+
+Suomalaiset syövät nyt aikaisempaa terveellisemmin. Yle sai suurilta kauppafirmoilta ja tutkijoilta listan ruokatavaroista, joiden kulutus on laskenut tai noussut.
+
+Suomalaiset syövät nyt enemmän kasviksia, hedelmiä ja pähkinöitä kuin 5 vuotta sitten. Lihaa ja rasvaisia makkaroita syödään vähemmän. Myös sokerin syönti vähenee, mutta irtokarkkeja myydään enemmän.

@@ -1,0 +1,81 @@
+# Radio Selkouutiset Keskiviikko 31.5.
+
+Yksityisen sosiaalipalvelualan lakko. Lasten ja nuorten harrastukset. Kansainväliset sotaharjoitukset. Huumaavia lääkkeitä Turun seudulla. Varhaisperuna. Sää.
+
+## Palveluasumisen lakot
+
+![Leena Pulkkinen syö hyvinvointialueen ateriapalveluiden ruokaa omassa keittiössä.](https://img.img-cdn.yle.fi/crop_extract,w_5486,h_3085,x_0,y_334/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11100646458ac7ba683a/1683555485)
+
+Avaa kuvien katselu
+
+Yksityisissä vanhusten hoivakodeissa Turun ja Helsingin seudulla alkaa lakko torstaina. Kuva: Elias Harinen / Yle
+
+Yksityisellä sosiaalipalvelualalla alkaa huomenna lakko.
+
+Lakko koskee vanhusten ja vammaisten palveluasumista Turun ja Helsingin seudulla. Lakossa ovat hoitajaliitot Super ja Tehy sekä toimihenkilöliitto Erto. Lakko kestää 3 päivää.
+
+Monissa yksityisissä päiväkodeissa ja lastensuojelussa lakko alkoi tänään.
+
+Lakoilla halutaan vauhdittaa neuvotteluja yksityisen sosiaalialan työehtosopimuksesta. .
+
+## Lasten ja nuorten harrastukset
+
+![Sofia Sistonen seisos koulun pihalla.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_149/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11216796475a949ccbe2/1685433475)
+
+Avaa kuvien katselu
+
+Sofia Sistonen kertoo, että korona-aikana hän kävi usein metsässä kävelemässä perheen kanssa. Kuva: Katja Halinen / Yle
+
+Koronapandemia ei vähentänyt suomalaislasten ja nuorten harrastuksia.
+
+Lasten ja nuorten vapaa-aikatutkimus kertoo, että lapsilla ja nuorilla on nyt yhtä paljon harrastuksia kuin ennen pandemiaa. Melkein kaikilla on joku harrastus ja isolla osalla harrastuksia on monta.
+
+Korona-aikana moni joutui luopumaan jostakin harrastuksesta, mutta myös uusia harrastuksia aloitettiin. Kun harrastuspaikat olivat koronarajoitusten takia kiinni, moni alkoi esimerkiksi liikkua enemmän luonnossa.
+
+## Kansainväliset sotaharjoitukset
+
+![Lentokentän kiitoradalla on rivissä kolme erimerkkistä hävittäjälentokonetta.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112233764770626ea904/1685522006)
+
+Avaa kuvien katselu
+
+Suomessa on parhaillaan käynnissä kansainvälinen ilmasotaharjoitus. Kuva: Marjut Suomi / Yle
+
+Suomessa on ollut paljon kansainvälisiä sotaharjoituksia vuoden aikana. Harjoitusten määrä lisääntyi viime kevään jälkeen, kun Suomi päätti hakea Nato-jäsenyyttä.
+
+Tällä hetkellä Suomessa on käynnissä 4 isoa sotaharjoitusta. joihin osallistuu kansainvälisiä joukkoja. Suomi isännöi esimerkiksi ilmasotaharjoitusta, jossa on mukana 3000 sotilasta ja noin 150 ilma-alusta yhteensä 14 eri maan asevoimista.
+
+## Huumaavia lääkkeitä katukaupassa
+
+![Katri Valan puistosta Helsingin Kalliosta löytyy jälkiä suonensisäisten huumeiden käytöstä. Kuvassa Ksalol -pakkaus.](https://img.img-cdn.yle.fi/crop_extract,w_3332,h_1874,x_0,y_1436/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1006458631ee0721ea0a/1662969017)
+
+Avaa kuvien katselu
+
+Turun seudulla katukaupassa liikkuu Ksalol-nimistä lääkettä. Kuva: Silja Viitala / Yle
+
+Poliisi varoittaa huumaavista lääkkeistä, jotka leviävät Turun seudulla. Katukaupassa liikkuu esimerkiksi Ksalol-nimistä lääkettä.
+
+Turun seudulla on ollut lyhyen ajan kuluessa useita myrkytystapauksia, joissa on käytetty Ksalolia. Alkoholin kanssa lääke voi olla hengenvaarallinen.
+
+Poliisi kertoo, että nuorimmat lääkkeiden käyttäjät ovat olleet vain 13-vuotiaita.
+
+## Varhaisperunaa nostetaan
+
+![Varhaisperunoita ja naatteja pahvilaatikossa](https://img.img-cdn.yle.fi/crop_extract,w_3199,h_1800,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-963000629627832c28d/1654007752)
+
+Avaa kuvien katselu
+
+Varhaisperunaa.  Kuva: Lassi Lähteenmäki / Yle
+
+Kotimaisen varhaisperunan nosto on alkanut. Varhaisperunaa nostetaan avomaalta Lounais-Suomen saaristossa.
+
+Perunaa on kohtalaisen hyvin tarjolla, vaikka sää on ollut kylmää ja kuivaa
+
+## Torstain sää
+
+![Torstain sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11226506477664e4960c/1685546674)
+
+Avaa kuvien katselu
+
+Huomenna Lapissa sataa vettä, räntää tai lunta. Maan keskiosissa tulee vesi- tai räntäkuuroja. Etelässä voi tulla sadekuuroja, mutta pääosin on poutaa.
+
+Päivällä lämpötila on 5-13 astetta.

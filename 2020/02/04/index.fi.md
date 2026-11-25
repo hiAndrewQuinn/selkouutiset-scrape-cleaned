@@ -1,0 +1,81 @@
+# Tiistai 4.2.2020 (radio)
+
+Kunnat varoittavat irtisanomisista ja lomautuksista. Eduskunta palasi joululomalta töihin. Vesirokkorokotuksia on otettu odotettua enemmän. Suomalaiset käyvät autokaupoilla Ruotsissa. Moni lintu jäi talvehtimaan Suomeen.
+
+## Kuntien irtisanomiset
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5367630"
+
+Avaa kuvien katselu
+
+Monet kunnat joutuvat etsimään säästöjä. 
+
+Kunnat joutuvat tänä vuonna irtisanomaan ja lomauttamaan työntekijöitä enemmän kuin tavallisesti.
+
+Kuntien järjestö Kuntatyönantajat sanoo, että kunnat ja kuntayhtymät joutuvat tänä vuonna irtisanomaan ehkä yli 750 työntekijää. Lisäksi ehkä yli 8000 ihmistä lomautetaan.
+
+Kuntatyöantajat sanoo, että tätä suurempia irtisanomisia kunnissa tehtiin viimeksi 1990-luvun lamavuosina.
+
+Irtisanomiset ja lomautukset johtuvat kuntien huonosta taloustilanteesta.
+
+Kuntatyönantajien arvio perustuu kyselyyn, jonka se teki kunnille joulukuussa.
+
+## Eduskunta aloitti työt
+
+![ Toinen varapuhemies Juho Eerola (ps.), eduskunnan puhemies Matti Vanhanen ( kesk.) ja varapuhemies Antti Rinne (sdp) vaalin jälkeen eduskunnassa 4. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11191891)
+
+Avaa kuvien katselu
+
+Eduskunnan puhemiehinä jatkavat perussuomalaisten Juho Eerola, keskustan Matti Vanhanen ja SDP:n Antti Rinne. Kuva: Markku Ulander / Lehtikuva
+
+Eduskunta on palannut joululomalta takaisin töihin.
+
+Kevään ensimmäisessä täysistunnossa eduskunnan puhemieheksi valittiin keskustapuolueen Matti Vanhanen. Varapuhemiehiksi valittiin SDP:n Antti Rinne ja perussuomalaisten Juho Eerola.
+
+Kevätistuntokauden varsinainen avaus eli valtiopäivien avajaiset ovat huomenna. Valtiopäivät avaa presidentti Sauli Niinistö.
+
+## Vesirokkorokotusten suosio
+
+![tyttöä rokotetaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9663096)
+
+Avaa kuvien katselu
+
+Tyttöä rokotetaan. Kuva: AOP
+
+Koululaiset ovat ottaneet rokotuksia vesirokkoa vastaan enemmän kuin odotettiin.
+
+Vesirokkorokotus tuli kansalliseen rokotusohjelmaan syyskuussa 2017. Sen jälkeen rokotusta on tarjottu ilmaiseksi alle 12-vuotiaille lapsille.
+
+Terveyden ja hyvinvoinnin laitos kertoo, että melkein kaikilla alakouluikäisillä lapsilla on nyt suoja vesirokkoa vastaan.
+
+On tärkeää saada suoja vesirokkoa vastaan jo lapsena. Jos vesirokkoon sairastuu aikuisena, tauti on usein vakavampi.
+
+## Käytettyjä autoja Ruotsista
+
+![auto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10921547)
+
+Avaa kuvien katselu
+
+Suomalaiset käyvät autokaupoilla Ruotsissa.  Kuva: Marko Väänänen / Yle
+
+Suomalaiset ostivat viime vuonna ennätysmäärän käytettyjä autoja Ruotsista.
+
+Suomeen tuotiin viime vuonna noin 26 000 käytettyä autoa Ruotsista. Autoja käyvät ostamassa etenkin suomalaiset autokauppiaat.
+
+Auton voi saada Ruotsista halvemmalla kuin Suomesta, koska Ruotsin valuutan kruunun kurssi on alhaalla.
+
+## Lintujen talvehtiminen
+
+![Mustarastas](https://img.img-cdn.yle.fi/crop_extract,w_2100,h_1181,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-1829754d0a5fab8d61/1422960159)
+
+Avaa kuvien katselu
+
+Espoossa mustarastas on jo aloittanut pesinnän. Kuva: Yle/Risto Salovaara
+
+Tavallista enemmän lintuja on jäänyt talveksi Suomeen, kertoo lintujärjestö Birdlife Suomi.
+
+Tänä vuonna on havaittu jo 165 lintulajia. Erityisesti vesilintuja on jäänyt tänne talvehtimaan tavallista enemmän.
+
+Linnut ovat jääneet tänne, koska talvi on ollut suuressa osassa maata tavallista lämpimämpi.
+
+Birdlife Suomi kertoo, että Espoossa mustarastas on jo aloittanut pesinnän.

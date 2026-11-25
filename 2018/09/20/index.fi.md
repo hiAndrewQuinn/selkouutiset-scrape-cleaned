@@ -1,0 +1,67 @@
+# Torstai 20.9.2018 (radio)
+
+Työntekijöistä on pulaa monella alalla. Tulivuori Katla on heräämässä Islannissa. Kauppakeskus Redi on avattu Helsingin Kalasatamassa. Nälkäpäivä-keräys on alkanut.
+
+## Pula työntekijöistä
+
+![Mies työskentelee rakennustyömaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10291772)
+
+Avaa kuvien katselu
+
+Rakennustyömailla tarvitaan tekijöitä. Kuva: Tiina Jutila / Yle
+
+Työntekijöistä on pulaa monella alalla.
+
+Esimerkiksi rakennusalalla tarvitaan lisää työntekijöitä. Eniten rakennusalalla tarvitaan työnjohtajia ja rakennusinsinöörejä.
+
+Myös hoitoalalla on pulaa työntekijöistä. Hoitoalalla tarvitaan lisää hoitajia ja lääkäreitä. Suurin pula on puheterapeuteista.
+
+Tiedot ovat Suomen työ- ja elinkeinoministeriöltä.
+
+## Katla-tulivuori
+
+![Katla-tulivuori.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10414250)
+
+Avaa kuvien katselu
+
+Katla purkautui viimeksi vuonna 1918. Kuva: AOP
+
+Tulivuori Katla on heräämässä Islannissa.
+
+Tulivuoritutkijat kertovat, että Katla päästää ilmaan hiilidioksidia. Se on merkki siitä, että Katla voi purkautua.
+
+Tutkijat sanovat, että Katlan purkauksesta tulee iso. Katlan päällä on jopa 600 metriä jäätä. Kun purkaus sulattaa jäätä, vesi osuu tulivuoren kuumaan laavaan. Silloin syntyy räjähdys, ja esimerkiksi tuhkaa leviää kauas.
+
+Tutkijat eivät osaa sanoa, milloin Katla purkautuu. Edellisen kerran Katla purkautui 100 vuotta sitten.
+
+## Kauppakeskus Redi
+
+![Pia Svensk, kauppakeskusjohtaja, Redi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10413014)
+
+Avaa kuvien katselu
+
+Pia Svenska on kauppakeskus Redin johtaja. Kuva: Ronnie Holmberg / Yle
+
+Helsingissä on avattu uusi kauppakeskus. Kauppakeskus Redi on Kalasatamassa.
+
+Rediin pääsee helposti metrolla. Kalasataman metroasema on kauppakeskuksen 3. kerroksessa.
+
+Redistä löytyy ravintoloita ja elokuvateattereita. Yksi Redin erikoisuus on puisto. Se on kauppakeskuksen katolla.
+
+Redistä löytyy myös Suomen ensimmäinen hävikkiruokakauppa WeFood. Hävikkiruokakauppa myy esimerkiksi kauppojen ylimääräistä ruokaa. Niin ruoka tulee käyttöön eikä joudu roskiin. WeFoodin voitto menee avustustyöhön.
+
+Kalasatama on uusi kaupunginosa Helsingissä. Kalasatamaa rakennetaan kovaa vauhtia. Alueelle tulee myös korkeita tornitaloja, joissa on satoja asuntoja.
+
+## Nälkäpäivä-keräys
+
+![Toimittaja Minna Rinta-Tassi lipaskerääjänä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9833470)
+
+Avaa kuvien katselu
+
+Nälkäpäivä-keräys näkyy kaduilla. Kuva: Mårten Lampén / Yle
+
+Nälkäpäivä-keräys on alkanut. Keräyksen rahat menevät avustustyöhön.
+
+Tänä vuonna rahaa tarvitaan Bangladeshissa. Siellä on iso pakolaisleiri, ja leirillä on Suomen Punaisen Ristin sairaala. Leirin asukkaat ovat rohingya-muslimeja, jotka ovat paenneet Myanmarista.
+
+Suomen Punainen Risti järjestää Nälkäpäivä-keräyksen joka vuosi syyskuussa. Nälkäpäivä-keräys näkyy kaduilla, kun vapaaehtoiset keräävät rahaa punaisiin keräyslippaisiin.

@@ -1,0 +1,87 @@
+# Maanantai 23.1.2023 (radio)
+
+Uusi turvallisuuspolitiikan neuvonantaja. Naisten haku armeijaan. Estoniasta uutta tietoa. Kielen elämä -kirja. Sää.
+
+## Turvallisuuspolitiikan neuvonantaja
+
+![Suomen lippu ja sotilasliitto Naton lippu vierekkäin.](https://img.img-cdn.yle.fi/crop_extract,w_4660,h_2621,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9411726255440fc42e4/1649839941)
+
+Avaa kuvien katselu
+
+Turvallisuuspolitiikan merkitys kasvaa, kun Suomi liittyy Natoon. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomen pääministeri saa ehkä uuden turvallisuuspolitiikan neuvonantajan. 
+
+Pääministerin avuksi halutaan saada Suomen paras turvallisuuspolitiikan osaaja. Ylen tiedot kertovat, että osaajaa aletaan etsiä mahdollisimman pian.
+
+Turvallisuuspolitiikan merkitys kasvaa, kun Suomesta tulee puolustusliitto Naton jäsen. Myös Venäjän sota Ukrainassa on tehnyt turvallisuuspolitiikasta erityisen tärkeää.
+
+## Naisten haku armeijaan
+
+![Alikersantti Kaisa Mäki Kuopiossa, paikallispuolustusharjoituksessa Savon ammattiopiston edustalla.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_224/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1004146631828d2aa28c/1677153183)
+
+Avaa kuvien katselu
+
+Suomessa naiset voivat hakea armeijaan, jos haluavat. Kuva: Sami Takkinen / Yle
+
+Yli 1200 naista on hakenut armeijaan. Hakuaika loppui tammikuun puolivälissä eli noin 6 viikkoa aikaisemmin kuin edellisinä vuosina.
+
+Armeija on Suomessa naisille vapaaehtoinen, mutta miehille pakollinen. Palvelus armeijassa kestää vähintään noin puoli vuotta.
+
+Jos nuori ei halua mennä armeijaan, hän voi mennä siviilipalvelukseen. Siviilipalveluksen voi suorittaa esimerkiksi sairaalassa.
+
+## Estonia
+
+![kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688210)
+
+Avaa kuvien katselu
+
+Estonia upposi Suomen rannikolla lähellä Utön saarta, kun se oli matkalla Tallinnasta Tukholmaan vuonna 1994. Kuva: Kalevi Rytkölä / Yle
+
+Matkustajalaiva Estonian uppoamisesta on saatu uutta tietoa. 
+
+Estonia upposi vuonna 1994. Nyt sen uppoamisesta on tehty uusi selvitys.
+
+Selvitys kertoo, että onnettomuuden aikaan Estonia ei ollut merikelpoinen. Estonia ei siis ollut tarpeeksi hyvässä kunnossa merimatkaa varten.
+
+Selvityksessä ei löytynyt merkkejä räjähdyksestä tai törmäyksestä.
+
+Estonia-laiva upposi, kun se oli matkalla Tallinnasta Tukholmaan. Onnettomuudessa kuoli 852 ihmistä.
+
+## Kielen elämä
+
+![Nainen, jonka kädessä on kirja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688118)
+
+Avaa kuvien katselu
+
+Suomen kielen opettaja Hanna Männikkölahti. Kuva: Jukka Lehto / Yle
+
+Suomen kielen vaiheisiin voi nyt tutustua myös selkokielellä. 
+
+Suomen opettaja Hanna Männikkölahti on kirjoittanut selkokirjan Kielen elämä. Se on selkoversio Lari Kotilaisen kirjasta. Kotilainen on suomen kielen tutkija.
+
+![Mies, jolla on kirja kädessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688119)
+
+Avaa kuvien katselu
+
+Suomen kielen tutkija Lari Kotilainen. Kuva: Jukka Lehto / Yle
+
+Kielen elämä -kirja kertoo suomen kielen synnystä ja kehityksestä. Kirja kertoo myös, millainen asema suomen kielellä on ollut eri aikoina.
+
+Hanna Männikkölahden mielestä on tärkeää, että mahdollisimman moni voi tutustua suomen kielen vaiheisiin. Siksi hän kirjoitti aiheesta selkokirjan.
+
+Männikkölahden selkokirja Kielen elämä löytyy esimerkiksi kirjastosta.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688209)
+
+Avaa kuvien katselu
+
+Tiistaina aurinko paistaa Lapissa ja länsirannikolla. Muualla on pilvistä. Lunta voi sataa vähän kaakossa. 
+
+Lämpötila on etelässä ja lännessä vähän plussan puolella, muualla maassa on tiistaina pakkasta.
+
+Keskiviikkona sää lämpenee. Lännestä puhaltaa föhn-tuuli, joka lämmittää ilmaa.
+
+Länsi-Suomessa lämpötila on keskiviikkona jopa +5 astetta. Pakkasta on vain Lapissa.

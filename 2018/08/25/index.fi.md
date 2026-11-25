@@ -1,0 +1,71 @@
+# Lauantai 25.8.2018 (radio)
+
+Kuopion onnettomuusbussi ajoi ehkä kovaa. Presidentti Niinistö on tyytyväinen puolustussopimuksiin. Ajo-opetuslupa on nyt suosittu. Rap-laulaja Cheek pitää viimeiset konsertit. Lauantaina on juhlittu Suomen luontoa.
+
+## Bussionnettomuuden syytä tutkitaan
+
+![Kuopion bussiturman onnettomuusbussi teknisessä tutkinnassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10370631)
+
+Avaa kuvien katselu
+
+Onnettomuusbussi tutkitaan tarkkaan. Kuva: Antti Karhunen / Yle
+
+Kuopion bussionnettomuudessa loukkaantuneita on vielä sairaalassa. Lauantaina päivällä viisi heistä oli teho-osastolla.
+
+Onnettomuudessa kuoli 4 ihmistä. Bussissa oli 21 ihmistä, jotka asuvat Pohjois-Ruotsissa Kalixissa. He kuuluvat laulukerhoon ja he olivat matkalla kylpylään Kuopioon. Bussi putosi sillalta junaradalle perjantaina iltapäivällä.
+
+Onnettomuuden syytä ei tiedetä. Tutkijat sanovat, että bussi on ehkä ajanut kovaa vauhtia. Bussin kuljettaja sanoi poliisille, että bussin jarrut eivät toimineet.
+
+## Presidentti tyytyväinen puolustussopimuksiin
+
+![Sauli Niinistö Yle Radio 1:n presidentin kyselytunnilla Helsingissä lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10370717)
+
+Avaa kuvien katselu
+
+Presidentti radion studiossa lauantaina. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Presidentti Sauli Niinistö on tyytyväinen puolustussopimuksiin, joita Suomi on tehnyt esimerkiksi Ruotsin, Britannian ja USA:n kanssa. Suomi on kiinnostunut lisäämään puolustusyhteistyötä myös Ranskan kanssa.
+
+Presidentti Niinistö vastasi yleisön ja toimittajien kysymyksiin Yle radio yhdessä. Niinistö sanoi, että on hyvä jos Eurooppa parantaa omaa puolustusta.
+
+## Ajo-opetuslupia haetaan paljon
+
+![Sakari Päivinen auton ratissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10368489)
+
+Avaa kuvien katselu
+
+16-vuotias Sakari Päivinen opettelee ajamaan autoa. Kuva: Heikki Haapalainen / Yle
+
+Ajokorttilaki muuttui heinäkuussa. Nyt on helpompi saada opetuslupa, jolla voi opettaa esimerkiksi oman lapsen ajamaan autoa.
+
+Opettajan ei tarvitse enää käydä testissä. Ajo-opetuksen saa aloittaa, kun nuori on 16-vuotias. Autoon täytyy laittaa toinen jarrupoljin opettajaa varten. Jarrupolkimia halutaan nyt ostaa niin paljon, että ne ovat loppuneet kaupasta. Heinä- ja elokuussa on haettu jo 10 000 opetuslupaa.
+
+Nuoren täytyy olla 18-vuotias, ennen kuin hän saa ajokortin.
+
+## Cheekin viimeiset konsertit
+
+![Cheek keikalla Lahdessa 24. elokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10370395)
+
+Avaa kuvien katselu
+
+Rap-muusikko Cheek. Kuva: Jarno Kuusinen / AOP
+
+Suomen suosituin rap-muusikko Cheek pitää viimeiset konsertit perjantaina ja lauantaina Lahdessa.
+
+Perjantain konsertissa oli 30 000 ihmistä. Katsomossa oli kaikenikäisiä ihmisiä, myös lapsia ja eläkeläisiä. Konsertissa oli iso lava, värikäs valoshow, tulta ja ilotulitusta. Lavalla esiintyi myös vieraita kuten Kaija Koo, Elastinen ja JVG.
+
+37-vuotias Cheek lopettaa esiintymisen, mutta hän pysyy musiikkialalla. Hänellä on esimerkiksi levy-yhtiö.
+
+## Luonnon juhlapäivä
+
+![Haahkat keräävät ison määrän eri pesueiden poikasia &quot;päivähoitoon&quot; suojatakseen niitä pedoilta. Taktiikka ei silti toimi, jos petoja on paljon liikkeellä. Kuva on Utöstä vuodelta 2011.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9728309)
+
+Avaa kuvien katselu
+
+Haahkoja saaristossa. Kuva: Tuomo Björksten/Yle
+
+Lauantaina on juhlittu Suomen luonnon päivää.
+
+Ympäri Suomea on ollut tapahtumia, esimerkiksi on kunnostettu jokea ja tehty retkiä luontoon. Samalla Suomen luonnonsuojeluliitto täyttää 80 vuotta.
+
+Tämä on toinen kerta, kun Suomessa on liputuspäivä luonnon kunniaksi.

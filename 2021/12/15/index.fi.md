@@ -1,0 +1,71 @@
+# Keskiviikko 15.12.2021 (radio)
+
+Lasten kunto. Koronatilanne. Ravintoloiden koronapassi. Metsien monimuotoisuus. Venäjän ja Kiinan presidentit keskustelivat. Sääennuste
+
+## Lasten kunto
+
+Lasten ja nuorten kunto huononee. Lasten kuntoa seurataan vuosittain mittauksilla kouluissa. Mittauksista on saatu nyt uudet tämän syksyn tulokset.
+
+Erityisesti 8-luokkalaisten kestävyys on laskenut viimeisen 2 vuoden aikana. Monilla lapsilla keskivartalon lihaskunto on heikentynyt aiempien vuosien tuloksista.
+
+Asiantuntijat sanovat, että huono kunto voi haitata monien lasten terveyttä ja jaksamista.
+
+## Koronatilanne
+
+Uusia koronatartuntoja on taas paljon. Keskiviikkona on raportoitu yli 2200 uutta koronatartuntaa. Luvussa on mukana myös keskiviikkoaamun tiedot.
+
+2 viikon aikana uusia koronatartuntoja on tullut noin 20 000 eli noin 4 400 tartuntaa enemmän kuin 2 edellisen viikon aikana.
+
+Sairaalahoidossa on 314 koronapotilasta eli 25 enemmän kuin maanantaina. Tehohoidossa on 46 koronapotilasta.
+
+## Koronapassi ravintoloissa
+
+![Personal förbereder middag på restaurang med mörka trämöbler och bardisk.](https://img.img-cdn.yle.fi/crop_extract,w_3681,h_2070,x_190,y_265/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-879259618e778760d3d/1636726726)
+
+Avaa kuvien katselu
+
+Mara suosittelee koronapassin käyttöä ravintoloissa. Kuva: Carl Fahllund/Yle
+
+Hotellien ja ravintoloiden järjestö Mara suosittelee, että kaikki ravintolat ja tapahtumat ottavat käyttöön koronapassin. Syy on omikron virusmuunnos, joka leviää nopeasti.
+
+Mara suosittelee, että sen ravintolat ja tapahtumat ottavat koronapassin käyttöön myös niillä alueilla, joilla ei ole nyt koronarajoituksia.
+
+Hotellien ja ravintoloiden järjestö Mara toivoo, että ravintoloille ei ehkä tule niin paljon rajoituksia, jos ravintolat vaativat asiakkailta koronapassia.
+
+## Monimuotoisten metsien hakkuut
+
+![Hakkuukone kulkee lumisessä metsässä](https://img.img-cdn.yle.fi/crop_extract,w_2000,h_1125,x_0,y_103/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-775145602d1aa45c9d8/1708593301)
+
+Avaa kuvien katselu
+
+Metsäkone töissä. (Arkistokuva) Kuva: Pasi Takkunen / Yle
+
+Suomessa hakataan paljon metsiä, jotka ovat tärkeitä luonnon monimuotoisuudelle. Asia selviää Ylen selvityksestä.
+
+Joissakin maakunnissa yli 40 prosenttia avohakkuista tehdään metsissä, jotka ovat tärkeitä luonnon monimuotoisuudelle. Monimuotoisissa metsissä elää paljon erilaisia kasveja ja eläimiä.
+
+Suomen luontopaneelin puheenjohtaja Janne Kotiaho sanoo, että metsien suojelua pitää lisätä, että metsiä ei tuhota liikaa.
+
+## Venäjä ja Kiinan presidentit keskustelivat
+
+![Vladimir Putin kokoustaa videon välityksellä Xi Jinpingin kanssa.](https://img.img-cdn.yle.fi/crop_extract,w_3356,h_1887,x_0,y_105/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89232961b9bfbbe5cc0/1639563286)
+
+Avaa kuvien katselu
+
+Venäjän presidentti Vladimir Putinin ja Kiinan presidentin Xi Jinpingin keskustelivat videopuhelussa. Kuva: Mikhail Metzel / AFP
+
+Venäjän presidentti Vladimir Putinin ja Kiinan presidentin Xi Jinpingin ovat keskustelleet videopuhelussa.
+
+Venäjän ja Kiinan presidentit keskustelivat maailman asioista, esimerkiksi jännitteistä Euroopassa, USA:sta ja sotilasliitto Natosta.
+
+Venäjä toivoo, että Nato ei laajene itään.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12232400)
+
+Avaa kuvien katselu
+
+Torstaina on enimmäkseen poutaa eli ei sada.
+
+Torstaina on enimmäkseen pilvistä ja poutaa eli ei sada. Myös aurinko pääsee välillä paistamaan. Etelässä on muutama lämpöaste. Pohjoisessa on pakkasta.

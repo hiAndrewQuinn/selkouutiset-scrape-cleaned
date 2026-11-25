@@ -1,0 +1,7 @@
+# Keskiviikko 30.5.2018 (tv)
+
+Maahanmuuttajaopiskelijoiden määrä kasvaa nopeasti Helsingin ammatillisessa koulutuksessa. Maksaminen muuttuu lähivuosina. Houtskarin bussipysäkit ovat kauniita ja värikkäitä. Varhaisperuna tulee kauppoihin. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Maahanmuuttajaopiskelijoiden määrä kasvaa nopeasti Helsingin ammatillisessa koulutuksessa. Maksaminen muuttuu lähivuosina. Houtskarin bussipysäkit ovat kauniita ja värikkäitä. Varhaisperuna tulee kauppoihin. Säätiedot.

@@ -1,0 +1,81 @@
+# Torstai 7.10.2021 (radio)
+
+Kirjallisuuden Nobel-palkinto. Pakistanin maanjäristys. Puolueiden kannatus. Teksti-TV. Sää.
+
+## Kirjallisuuden Nobel-palkinto
+
+![Kirjallisuuden Nobel-palkinnon voittaja Abdulrazak Gurnah.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12132919)
+
+Avaa kuvien katselu
+
+Nobel-voittaja Abdulrazak Gurnah. Kuva: Brigitte Friedrich / AOP
+
+Kirjallisuuden Nobel-palkinnon saa tänä vuonna Abdulrazak Gurnah.
+
+Gurnah on 72-vuotias. Hän on syntynyt Afrikassa, Tansaniassa.
+
+Gurnah tuli Britanniaan pakolaisena yli 50 vuotta sitten. Gurnah on myös kirjoittanut paljon pakolaisten elämästä.
+
+Gurnah on ollut kirjallisuuden professori brittiläisessä yliopistossa. Hän kirjoittaa englanniksi.
+
+## Pakistanin maanjäristys
+
+Pakistanissa on tapahtunut maanjäristys. Pakistan on Intian naapurimaa.
+
+Maanjäristyksessä kuoli ainakin 20 ihmistä. Yli 200 ihmistä loukkaantui. Maanjäristys myös rikkoi taloja.
+
+Pelastustyöt ovat vaikeita, koska liikenneyhteydet ja puhelinyhteydet maanjäristysalueelle ovat huonot.
+
+## Puolueiden kannatus
+
+![Syyskuun 2021 puoluekannatusgrafiikka. Kokoomus on kärjessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12130473)
+
+Avaa kuvien katselu
+
+Kuva: Ilkka Kemppinen / Yle
+
+Suomessa puolueiden kannatuksessa ei ole tapahtunut isoja muutoksia.
+
+Näin kertoo Ylen uusi kannatusmittaus. Kannatusmittauksessa ihmisiltä kysyttiin, mitä puoluetta he kannattavat.
+
+Mittauksen suurin puolue on kokoomus. Sen kannatus on noin 21 prosenttia.
+
+Mittauksen toiseksi suurin puolue on SDP ja kolmanneksi suurin puolue on perussuomalaiset.
+
+SDP:n kannatus on vähän yli 19 prosenttia, ja perussuomalaisten kannatus on vähän alle 18 prosenttia.
+
+Kokoomus ja perussuomalaiset ovat oppositiopuolueita, eli ne eivät ole hallituksessa. SDP on pääministeri Sanna Marinin puolue.
+
+Hallituspuolueista vihreiden kannatus on laskenut, mutta vasemmistoliiton kannatus on noussut.
+
+Kaikkien puolueiden kannatusluvut löytyvät ylen nettisivuilta.
+
+## Teksti-TV
+
+![Teksti-tv:n sivu 840. 40-vuotis juhlasivu.](https://img.img-cdn.yle.fi/crop_extract,w_897,h_504,x_0,y_21/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-863799615eaf1227de5/1633595498)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Ylen Teksti-TV täyttää 40 vuotta. Teksti-TV:n toiminta alkoi lokakuun 7. päivä vuonna 1981.
+
+Ihmiset voivat lukea Teksti-TV:n sivuilta esimerkiksi uutisia ja urheilutuloksia.
+
+Suomalaisilla on nykyään monenlaisia älylaitteita, mutta Teksti-TV on edelleen suosittu. Joka viikko yli miljoona suomalaista lukee Teksti-TV:n sivuja.
+
+## Perjantain sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12134030)
+
+Avaa kuvien katselu
+
+Sää on tuulista ja sateista.
+
+Perjantaina sadealue liikkuu maan pohjoisosan yli lännestä itään.
+
+Pohjois-Lapissa lämpötila on lähellä nollaa ja sade on räntää tai lunta. Ajokeli voi siksi olla huono.
+
+Maan eteläosassa sää on poutaista ja lämmintä. Lämpötila on lähellä 15 astetta.
+
+Länsirannikolla voi paistaa vähän aurinko.

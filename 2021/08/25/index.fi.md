@@ -1,0 +1,69 @@
+# Keskiviikko 25.8.2021 (radio)
+
+Suomi evakuoi Afganistanin lähetystön turvamiehet. Uusia koronatartuntoja on 574. Suomeen on julistettu koulurauha. Sää on sateinen.
+
+## Evakuointi
+
+![Afghaner på väg att evakueras på flygplatsen i Kabul den 24 augusti 2021. Ett litet barn sitter på en resväska och blickar mot ett av flygplanen.](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8457146125165187662/1629866357)
+
+Avaa kuvien katselu
+
+Kymmeniätuhansia ihmisiä on evakuoitu pois Afganistanista viime päivinä. Kuva: AFP / Lehtikuva
+
+Suomi lopettaa ihmisten hakemisen Afganistanista viimeistään perjantaina. Afganistanissa on yhä noin 170 ihmistä, jotka odottavat pääsyä Suomeen. Suomeen on tuotu Afganistanista noin 250 ihmistä.
+
+Suomi hakee Afganistanista myös turvamiehet, jotka tekivät töitä Afganistanin lähetystössä. Hallitus päätti asiasta myöhään tiistaina.
+
+Ulkoministeri Pekka Haavisto sanoo, että kaikkia ihmisiä ei ehkä ehditä hakea Suomeen.
+
+## Koronaluvut
+
+![Rovaniemen kaupungintalon rokotuspiste sisältä.](https://img.img-cdn.yle.fi/crop_extract,w_2016,h_1134,x_0,y_189/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-844124611e702a78628/1629384816)
+
+Avaa kuvien katselu
+
+Rovaniemen kaupungintalon rokotuspiste sisältä. Kuva: mia.sivula@yle.fi
+
+Suomessa on 574 uutta koronatartuntaa. 2 viikon aikana on yli 9 500 tartuntaa. Tämä on vähän vähemmän kuin 2 viikkoa aikaisemmin.
+
+Koronaviruksen takia on sairaalahoidossa 98 ihmistä. Heistä tehohoidossa on 23 ihmistä. Molemmat koronarokotteet on nyt saanut noin 47 prosenttia kaikista Suomen ihmisistä.
+
+## YIT:n yt-neuvottelut
+
+![Kaksi kappaletta Rakennusyhtiö YIT:n nostureita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11908720)
+
+Avaa kuvien katselu
+
+Kaksi kappaletta Rakennusyhtiö YIT:n nostureita. Kuva: AOP
+
+Iso rakennusfirma YIT aloittaa yt-neuvottelut. Tarkoituksena on vähentää Suomessa enintään 200 työntekijää. Yt-neuvottelut koskevat toimihenkilöitä.
+
+YIT:llä on Suomessa yhteensä noin 4 400 työntekijää.
+
+## Koulurauha
+
+![MLL:n ohjelmajohtaja Marie Rautava ja muusikko Ailu Valle Sodankylässä koulurauhan julistuksessa keskiviikkona 25.8.2021. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8458896125ee1b62b04/1629878295)
+
+Avaa kuvien katselu
+
+Mannerheimin lastensuojeluliiton ohjelmajohtaja Marie Rautava ja muusikko Ailu Valle yhteiskuvassa ennen koulurauhan julistamista. Kuva: Inger-Elle Suoninen / Yle
+
+Sodankylässä on julistettu koulurauha koko Suomeen.
+
+Tänä vuonna teemana on turvallinen koulu. Tällä halutaan muistuttaa ihmisiä, että lapsilla pitää olla koulussa turvallista. Ketään ei saa kiusata koulussa, eikä kukaan saa jäädä yksin.
+
+Tämä oli 31. kerta, kun koulurauha julistettiin.
+
+## Rankkasade
+
+![Ihmisiä kuvattuna sadesäällä Kalliossa 18.8. ](https://img.img-cdn.yle.fi/crop_extract,w_5420,h_3049,x_0,y_466/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-843802611e200ad7523/1629370507)
+
+Avaa kuvien katselu
+
+Paikoin voi kertyä vettä jopa 50 millimetriä. Kuva Helsingin Kalliosta 18. elokuuta. Kuva: Hilma Toivonen / Yle
+
+Sää on sateinen. Lännessä ja etelässä vettä sataa kymmeniä millejä. Paikoin sataa jopa 50 milliä vettä.
+
+Ilmatieteen laitos varoittaa, että vettä sataa paljon varsinkin Uudellamaalla, Kanta-Hämeessä ja Päijät-Hämeessä. Sade aiheuttaa ehkä tulvia. Autolla pitää ajaa varovasti, koska märällä tiellä auto voi lähteä luisumaan.
+
+Keskiviikkona myös tuulee kovaa. Torstaina vettä sataa vähemmän. Pohjoisessa on poutaa ja myös aurinko paistaa välillä.

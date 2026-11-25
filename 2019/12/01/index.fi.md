@@ -1,0 +1,73 @@
+# Sunnuntai 1.12.2019 (radio)
+
+Uusi EU-komissio aloitti työt. Suomalaisvauvoja tulee adoptioon vain vähän. Monessa kodissa on palovaroitin, joka ei toimi. Pikkujoulujuhlat lisäävät poliisin työtä. Adventtiaika alkoi.
+
+## Uusi komissio aloitti
+
+![Ursula von der Leyen uusien kommissaarien kanssa yhteiskuvassa Strasbourgissa 27. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11090127)
+
+Avaa kuvien katselu
+
+Uusi EU-komissio. Kuva: Patrick Seeger / EPA
+
+Uusi EU-komissio on aloittanut työt.
+
+Uutta komissiota johtaa saksalainen Ursula von der Leyen. Suomen komissaari uudessa komissiossa on Jutta Urpilainen.
+
+Myös Eurooppa-neuvoston puheenjohtaja on vaihtunut. Belgialainen Charles Michel johtaa EU-johtajien huippukokouksia lähivuodet.
+
+## Suomalaisvauvoja adoptoidaan harvoin
+
+![vauvan varpaat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11007709)
+
+Avaa kuvien katselu
+
+Vauvan varpaat. Kuva: Martin Bennett / AOP
+
+Suomalaisia vauvoja annetaan adoptioon vain hyvin harvoin. Jos haluaa adoptoida suomalaisen vauvan, pitää odottaa ehkä 4 tai 5 vuotta, sanoo Pelastakaa Lapset -järjestö.
+
+Pelastakaa Lapset hoitaa noin 70 prosenttia adoptioneuvonnasta Suomessa. Järjestö sanoo, että sen kautta adoptoidaan noin 13 suomalaisvauvaa vuodessa.
+
+Järjestö kertoo, että adoptioneuvontaan tulee paljon perheitä, jotka toivovat lasta ulkomailta. Kansainvälisten adoptioiden määrä on kuitenkin vähentynyt 2000-luvun alun jälkeen.
+
+## Palovaroitin voi mennä rikki
+
+![Palovaroitin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5840230)
+
+Avaa kuvien katselu
+
+Palovaroitin kiinnitetään kattoon. Kuva: Nilla Nuto / YLE
+
+Monissa kodeissa on palovaroitin, joka ei toimi.
+
+Moni palovaroitin ei toimi, koska sen paristot ovat tyhjät. Palovaroitin voi myös olla liian vanha, varoittaa Suomen pelastusalan keskusjärjestö SPEK.
+
+Palovaroitin ei toimi ikuisesti. Se likaantuu ja voi ruostua sisältä. Silloin varoitin ei enää huomaa savua yhtä herkästi kuin ennen. Myös varoittimen hälytysääni voi muuttua entistä heikommaksi.
+
+SPEK sanoo, että palovaroitin kannattaa uusia 5-10 vuoden välein.
+
+## Pikkujoulut työllistävät poliisia
+
+![Poliisi ja poliisiauto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10843965)
+
+Avaa kuvien katselu
+
+Poliisilla on ollut paljon työtä viikonloppuna. Kuva: Tiina Jutila / Yle
+
+Poliisilla on ollut kiireinen viikonloppu. Liikenteessä on ollut paljon rattijuoppoja. Lisäksi on ollut paljon tappeluita ja pahoinpitelyjä.
+
+Esimerkiksi Tampereen seudulla poliisilla oli yön aikana noin 150 tehtävää. Keski-Suomessa tehtäviä oli yli sata. Poliisilla on ollut kiirettä myös Turun seudulla ja Kaakkois-Suomessa.
+
+Monet ihmiset ovat viikonlopun aikana juhlineet pikkujouluja. Kun juhlissa juodaan liikaa alkoholia, se lisää tappeluiden ja rattijuoppojen määrää.
+
+## Adventtikynttilät syttyivät
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5731962"
+
+Avaa kuvien katselu
+
+Adventtikynttilä. Kuva: Touko Yrttimaa / YLE
+
+Tänään on ensimmäinen adventtisunnuntai. Ensimmäisestä adventtisunnuntaista alkaa adventtiaika. Kristinuskossa se tarkoittaa joulun odotusta.
+
+Suomen kirkoissa on tänään laulettu Hoosianna-virttä ja sytytetty adventtikynttilä palamaan. Myös monissa kodeissa sytytetään adventtikynttilä.

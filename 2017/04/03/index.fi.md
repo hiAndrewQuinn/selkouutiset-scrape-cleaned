@@ -1,0 +1,7 @@
+# Maanantai 3.4.2017 (tv)
+
+Suomen ilmasto lämpenee. Finnair kouluttaa lentäjiä uudella lentosimulaattorilla. Tänään otetaan käyttöön Pasilan väliaikainen asemarakennus. Kansallismuseo tuo vanhan maailman tähän päivään uudella tekniikalla. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Suomen ilmasto lämpenee. Finnair kouluttaa lentäjiä uudella lentosimulaattorilla. Tänään otetaan käyttöön Pasilan väliaikainen asemarakennus. Kansallismuseo tuo vanhan maailman tähän päivään uudella tekniikalla. Säätiedot.

@@ -1,0 +1,69 @@
+# Keskiviikko 27.10.2021 (radio)
+
+Seksuaalinen häirintä pelastusalalla. Pääministeri Marin vieraili Saksassa. Postipakettien määrä. Laivamatkoihin polttoainelisämaksu. Sääennuste.
+
+## Seksuaalinen häirintä pelastusalalla
+
+![Hälytysajoneuvon sisällä, toinen paloauto tulee vastaan.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-769951601baa0277304/1612425831)
+
+Avaa kuvien katselu
+
+Häirintä voi olla puhetta, joka ei tunnu mukavalta. Kuva: Risto Koskinen / Yle
+
+Naiset kohtaavat töissä häirintää pelastuslaitoksilla ja ensihoidossa eli ambulanssityössä.
+
+Yle on haastatellut naisia, jotka ovat olleet töissä pelastusalalla. He kertovat että häirintä on ollut esimerkiksi puhetta, joka ei tunnu mukavalta. Häirintä on ollut esimerkiksi puhetta seksistä, seksuaalista koskettelua tai naisten vähättelyä.
+
+Suomen pelastusalan johto ja pelastusalan järjestöt ovat huolestuneet asiasta. Ne sanovat, että naisten häirintään pelastusalalla pitää puuttua.
+
+## Marin vieraili Saksassa
+
+![Sanna Marin ja ANgela Merkel.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12161917)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin ja liittokanslerin Angela Merkel. Kuva: Filip Singer / EPA
+
+Pääministeri Sanna Marin on tavannut Saksan pääministerin eli liittokanslerin Angela Merkelin Berliinissä.
+
+Tapaamisessa puhuttiin esimeriksi EU:n suhteista muihin maihin, ilmastonmuutoksesta ja Puolan oikeusvaltiotilanteesta.
+
+Suomen pääministeri Marin ja Saksan liittokansleri Merkel puhuivat myös energia-asioista ja koronatilanteesta ja taloudesta.
+
+## Postipakettien määrä kasvaa
+
+![posti lajittelukeskus vantaa](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_325/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82980760e6af6e63707/1625730990)
+
+Avaa kuvien katselu
+
+Paketteja Postin lajittelukeskuksessa Vantaalla. Kuva: Markku Rantala / Yle
+
+Postipakettien määrä kasvaa edelleen nopeasti. Posti kuljetti heinä-syyskuussa 17 miljoonaa pakettia Suomessa ja Baltiassa. Paketteja oli 2 miljoonaa enemmän kuin vuosi sitten.
+
+Paketteja lähetetään tosi paljon. Postilla on kuitenkin pulaa työntekijöistä. Verkkokauppa kasvaa ja siksi postipakettien määrä kasvaa.
+
+Sen sijaan kirjeiden määrä vähenee. Kirjeitä lähetettiin heinä-syyskuussa 8 prosenttia vähemmän kuin vuosi sitten.
+
+## Laivamatkaan polttoainelisämaksu
+
+![Autolautta Viking Gabriella merellä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-85587461484dd0b954d/1722436751)
+
+Avaa kuvien katselu
+
+M/S Gabriella kulkee Helsingin ja Tukholman väliä.  Kuva: Petteri Bülow / Yle
+
+Laivafirma Viking Line ottaa käyttöön polttoainelisämaksun. Syy on se, että öljyn hinta on noussut paljon. Siksi laivojen ajaminen on aiempaa kalliimpaa. Myös koronatilanne on huonontanut laivafirmojen taloutta, koska matkustus on vähentynyt paljon.
+
+Polttoainelisämaksu on Helsingin ja Tallinnan välillä 90 senttiä yhteen suuntaan. Suomen ja Ruotsin välisillä laivamatkoilla polttoainelisämaksu on vajaa 2 euroa yhteen suuntaan.
+
+Viking Line alkaa periä matkustajilta polttoainelisämaksua marraskuussa.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12163120)
+
+Avaa kuvien katselu
+
+Lapissa on pakkasta ja sataa lunta.
+
+Torstaina sataa lunta Lapissa, Koillismaalla ja Kainuussa. Lännessä sataa vähän vettä tai tihkusadetta. Muualla pilvisyys voi rakoilla eli välillä voi paistaa aurinko. Lämpötila on 4 ja 11 asteen välillä, pohjoisessa -5 ja +4 asteen välillä.

@@ -1,0 +1,59 @@
+# Tiistai 19.6.2018 (radio)
+
+Helsingin huumepoliisin entinen päällikkö Jari Aarnio on vapautettu vankilasta. Ikäihmiset joutuvat yhä useammin petoksen uhreiksi. Poliisi on tutkinut rikosten sarjaa, jossa on ollut mukana valepoliiseja. Ranska kieltää kännykät kouluissa.
+
+## Jari Aarnio pääsi pois vankilasta
+
+![Jari Aarnio](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10264154)
+
+Avaa kuvien katselu
+
+Jari Aarnio Kuva: Yle
+
+Helsingin huumepoliisin entinen päällikkö Jari Aarnio on vapautettu vankilasta.Helsingin hovioikeus päätti, että Aarnio saa odottaa hovioikeuden ratkaisua vapaana. 
+
+Aarnio tuomittiin vuonna 2016 kymmenen vuoden vankeuteen huumerikoksista. Aarnio valitti tuomiosta hovioikeuteen. 
+
+Hovioikeus antaa oman tuomion vasta ensi vuonna. Aarnio on ollut tutkintavankeudessa yhteensä 3 ja puoli vuotta.  
+
+## Monia ikäihmisiä voidaan huijata netissä
+
+![Hanna Laaksonen ja Maija Frantsila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10257722)
+
+Avaa kuvien katselu
+
+Hanna Laaksonen (vas.) ja Maija Frantsi ovat innokkaita netin käyttäjiä. He eivät ole kohdanneet digimaailmassa suurempia ongelmia ja rohkaisevat muitakin ikäihmisiä verkkoon. Kuva: Jaani Lampinen / Yle
+
+Ikäihmiset joutuvat yhä useammin petoksen uhreiksi. Palvelut menevät verkkoon, ja monet petokset tehdään verkossa. Huijarit käyttävät hyväksi sitä, että monet ikäihmiset ovat kokemattomia internetissä. 
+
+Yli 65-vuotiaita petoksen uhreja on nyt 3 kertaa enemmän kuin 7 vuotta sitten. Petosten määrä on kasvanut kaikissa ikäryhmissä. 
+
+Lieveilmiöistä huolimatta poliisi rohkaisee ikäihmisiä internetiin. Riski on pieni, kun ihminen tunnistaa vaaran paikat. Poliisi sanoo, että netissä on paljon hyvää ja että internet on nykyaikaa.  
+
+## Valepoliisit ovat tehneet monta petosta
+
+![Poliisiauto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10147165)
+
+Avaa kuvien katselu
+
+Rikolliset esiintyivät poliiseina ja utelivat vanhuksilta pankkitunnuksia. Kuva: Henrietta Hassinen / Yle
+
+Poliisi on tutkinut rikosten sarjaa, jossa on tehty petoksia ja ollut mukana valepoliiseja. Juttu siirtyy syyteharkintaan. Kyseessä on yhteensä yli 120 rikosta. Rikokset on tehty tänä ja viime vuonna. Uhrit ovat iäkkäitä ihmisiä eri puolilta Suomea.
+
+Valepoliisit ovat esimerkiksi udelleet puhelimessa uhrien pankkitietoja. Poliisi sanoo, että rikokset ovat suunnitelmallisia ja ammattimaisia.Tutkinnassa on muutama pääepäilty ja kymmeniä muita epäiltyjä.  Rikoksella saatu hyöty on ollut yli 800 000 euroa. Poliisi ja pankit ovat voineet palauttaa uhreille noin 430 000 euroa.
+
+Poliisi muistuttaa, että poliisit eivät koskaan kysy ihmisiltä pankkitilien käyttäjätunnuksia tai salasanoja. Myös sosiaalitoimi, vakuutusyhtiöt tai pankit eivät kysele tällaisia tietoja. Pankkitilien käyttäjätunnukset ja salasanat pitää säilyttää huolellisesti, eikä niitä saa antaa sivullisten tietoon. 
+
+## Ranska kieltää kännykät kouluissa
+
+![Presidentti Emmanuel Macron kumartuneena puhumaan pulpeteissa istuville pienille koululaisille.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10261630)
+
+Avaa kuvien katselu
+
+Kännykkäkielto oli yksi presidentti Emmanuel Macronin vaalilupauksia. Kuva: Philippe Wojazer / EPA
+
+Ranska kieltää kännykän käytön kouluissa kokonaan.
+
+Laki tulee voimaan virallisesti syksyllä. Monessa koulussa kieltoa on jo kokeiltu.Syyskuussa kännykän saa yhä tuoda kouluun, mutta sitä ei saa käyttää edes tauolla.
+
+Koulujen kännykkäkielto oli presidentti Emmanuel Macronin vaalilupaus. Suurimmalla osalla yläkoululaisista Ranskassa on kännykkä.

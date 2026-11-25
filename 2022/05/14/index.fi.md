@@ -1,0 +1,99 @@
+# Lauantai 14.5.2022 (radio)
+
+Suomi, Nato ja Putin. SDP:n Nato-kanta. Nuorisotalot. Euroviisut. Sää.
+
+## Niinistö ja Putin
+
+![Presidentti Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_extract,w_3995,h_2247,x_5,y_167/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-954998627f59f1cfd4c/1652513526)
+
+Avaa kuvien katselu
+
+Tasavallan presidentti Sauli Niinistö Ykkösaamussa. Kuva: Petteri Sopanen / Yle
+
+Tasavallan presidentti Sauli Niinistö on puhunut puhelimessa Venäjän presidentin Vladimir Putinin kanssa.
+
+Presidentti Niinistö sanoi, että Venäjän vaatimukset ja suurhyökkäys Ukrainaan ovat muuttaneet Suomen turvallisuusympäristön.
+
+Presidentti Niinistö ilmoitti Putinille, että Suomi päättää hakea puolustusliitto Naton jäsenyyttä lähipäivien aikana.
+
+Niinistö kertoo, että keskustelu oli suora ja selväpiirteinen. Jännitteiden välttämistä pidettiin puhelussa tärkeänä.
+
+Puhelu käytiin Suomen aloitteesta.
+
+## Putin varoittaa
+
+![Venäjän presidentti Vladimir Putin osallistui kokoukseen Moskovassa torstaina.](https://img.img-cdn.yle.fi/crop_extract,w_5233,h_2943,x_0,y_225/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-95101262740625ee885/1651771008)
+
+Avaa kuvien katselu
+
+Venäjän presidentti Vladimir Putin. Kuva: Mikhail Klimentyev / AOP
+
+Venäjän presidentti Vladimir Putin varoitti presidentti Sauli Niinistöä puhelinkeskustelussa, kertoo venäläinen uutistoimisto Ria.
+
+Putin sanoi, että Suomen ulkopoliittisen linjan muuttaminen voi heikentää maiden suhteita.
+
+Puolueettomuuspolitiikasta luopuminen voi olla virhe, Putin totesi.
+
+Putin myös painotti Niinistölle, ettei Suomeen kohdistu turvallisuusuhkaa.
+
+## SDP:n puoluevaltuusto
+
+![Pääministeri, SDP:n puheenjohtaja Sanna Marin puhuu SDP:n vapputapahtumassa Turun Vähätorilla vappupäivänä.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_273/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948736626e6947d2a7c/1651405958)
+
+Avaa kuvien katselu
+
+SDP:n puheenjohtaja Sanna Marin. Kuva: Roni Lehti / Lehtikuva
+
+Suurin puolue SDP kannattaa Suomen jäsenyyttä puolustusliitto Natossa. SDP:n puoluevaltuusto äänesti asiasta ylimääräisessä kokouksessa.
+
+Valtuusto sanoo, että Suomen ja Euroopan turvallisuusympäristö on muuttunut merkittävästi. Siksi SDP antaa tuen valtiojohdolle, jotta neuvottelut jäsenyydestä voidaan aloittaa.
+
+## Nuorisotalot
+
+![Biljardia Perniön nuorisotalossa.](https://img.img-cdn.yle.fi/crop_extract,w_3093,h_1739,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90393461e8348fc77b8/1642607853)
+
+Avaa kuvien katselu
+
+Biljardia Perniön nuorisotalossa. Kuva: Lassi Lähteenmäki / Yle
+
+Suomessa on hiukan vähemmän nuorisotiloja kuin ennen. Vuonna 2015 nuorisotiloja oli noin 960, viime vuonna enää noin 790.
+
+Monet vanhat nuorisotilat ovat jääneet alueille, joilla ei ole enää yhtä paljon nuoria.
+
+Nuorisotilat ovat tärkeitä nuorille. Ne ovat tasa-arvoisia paikkoja viettää vapaa-aikaa.
+
+Niissä on aina läsnä myös turvallisia aikuisia.
+
+## Euroviisut
+
+![The Rasmus euroviisujen harjoituksissa.](https://img.img-cdn.yle.fi/crop_extract,w_1279,h_719,x_0,y_53/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-953742627cb3a5e373e/1652339677)
+
+Avaa kuvien katselu
+
+The Rasmuksen laulu on Jezebel. Yhtye esiintyy finaalissa neljäntenä. Kuva: Nathan Reinds / EBU
+
+Euroviisujen finaali kisataan tänä iltana Italian Torinossa.
+
+Suomen edustaja on The Rasmus.
+
+Finaali alkaa Suomen aikaa kello 22. Suoraa lähetystä voi seurata Ylen kanavilla.
+
+Viisufinaalissa kilpailee 25 maata. Niistä 20 valittiin tiistain ja torstain semifinaaleissa.
+
+Niiden lisäksi finaalissa on suoraan mukana 5 suurinta rahoittajamaata: kisaisäntä Italia, Espanja, Saksa, Ranska ja Britannia.
+
+Tänä vuonna Ukraina on Euroviisujen suuri voittajasuosikki.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12446240)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää viilenee vähitellen sunnuntaista alkaen.
+
+Lämpötilat ovat 10 asteen tienoilla, ja sadekuuroja tulee hyvin laajalti.
+
+Viileä sää jatkuu ehkä ainakin keskiviikkoon saakka.

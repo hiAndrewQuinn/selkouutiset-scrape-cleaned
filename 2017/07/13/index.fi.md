@@ -1,0 +1,81 @@
+# Torstai 13.7.2017 (radio)
+
+Sisäministeri Paula Risikko ei odota Suomeen suurta määrää turvapaikanhakijoita. Kiinan tunnetuin ihmisoikeusaktivisti kuoli. Presidentti Trump vierailee taas Euroopassa. Viikonlopuksi on luvassa lämmintä poutasäätä. Terveiset Cambridgen Suomi-koulusta.
+
+## Entistä harvempi hakee turvaa Suomesta
+
+![Siirtolaisia Aquarius-aluksen kyydissä satamassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9712479)
+
+Avaa kuvien katselu
+
+Italiaan on alkuvuoden aikana tullut ennätysmäärä pakolaisia ja siirtolaisia. Kuva: Carlo Hermann / AFP
+
+Sisäministeri Paula Risikko ei usko uuteen turvapaikanhakijakriisiin Suomessa.
+
+Risikko sanoi Ylen Ykkösaamussa, että Suomeen tulee tänä vuonna korkeintaan noin 8000 turvapaikanhakijaa. Ennätysvuonna 2015 heitä tuli yli 30 000.
+
+Risikko sanoo, että Suomen pitää kuitenkin varautua siihen, että turvapaikanhakijoiden määrä voi kasvaa. 
+
+Välimeren yli Eurooppaan on alkuvuoden aikana tullut jo 100 000 siirtolaista ja pakolaista. Heistä suurin osa on tullut Italiaan.
+
+Risikko sanoo, että muiden EU-maiden pitää miettiä, miten ne voivat auttaa Italiaa.
+
+## Nobel-palkittu Liu Xiabo on kuollut
+
+![Liu Xiaobo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9722169)
+
+Avaa kuvien katselu
+
+Liu Xiabo taisteli demokratian ja ihmisoikeuksien puolesta. Kuva: EPA
+
+Kiinan tunnetuin ihmisoikeusaktivisti Liu Xiaobo on kuollut. Liu kuoli 61-vuotiaana maksasyöpään. 
+
+Liun sairaus todettiin, kun hän kärsi vankilassa 11 vuoden vankeustuomiota. Kesäkuun lopussa hänet siirrettiin vankilasta sairaalaan.
+
+Liu kamppaili demokratian ja ihmisoikeuksien parantamiseksi Kiinassa. Hän sai Nobelin rauhanpalkinnon vuonna 2010.
+
+## Trump aloitti Ranskan vierailun
+
+![Trump ja Macron puolisoineen tapaavat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9722261)
+
+Avaa kuvien katselu
+
+Ranskan presidentti Emmanuel Macron ja hänen vaimonsa Brigitte tervehtivät Donald ja Melania Trumpia. Kuva: Michel Euler / EPA
+
+Yhdysvaltain presidentti Donald Trump on saapunut vierailulle Ranskaan.
+
+Presidentti Trump ja rouva Melania Trump osallistuvat Ranskan kansallispäivän juhlallisuuksiiin huomenna perjantaina.
+
+Ranskan matka on Trumpille jo toinen Euroopan vierailu viikon kuluessa.
+
+## Viikonlopun sää on lämmin
+
+![viikonlopun sääkartat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9720854)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Viikonlopuksi on luvassa lämmintä poutasäätä.
+
+Ylen meteorologi Seija Paasonen kertoo, että jo perjantaina Etelä- ja Länsi-Suomessa on poutaa. Idässä ja pohjoisessa voi tulla sade- ja ukkoskuuroja, mutta lämpötila voi nousta yli 20 asteen.
+
+Lauantaina ja sunnuntaina poutaa on melkein koko maassa. Myös lämpötila nousee melkein koko maassa yli 20 asteen.
+
+Viikonlopun hyvästä säästä kannattaa nauttia. Alkuviikon sää on taas epävakaista, kun lännestä tulee uusia sateita.
+
+## Terveisiä Cambridgesta!
+
+![suomikoulun lapsia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9720847)
+
+Avaa kuvien katselu
+
+Suomessa on monta asiaa, jota Cambridgen suomikoululaiset kaipaavat. Kuva: Yle
+
+Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa.
+
+Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
+
+Uusimmat terveiset tulevat Britanniasta Cambridgen Suomi-koulusta. Terveiset voi käydä katsomassa Selkouutisten nettisivuilla tai Selkouutisten Facebook-sivulla.
+
+**Katso Cambridgen Suomi-koulun terveiset**

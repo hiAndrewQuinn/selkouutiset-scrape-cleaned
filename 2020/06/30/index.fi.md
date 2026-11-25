@@ -1,0 +1,68 @@
+# Tiistai 30.6.2020 (radio)
+
+Suomalaiset ostavat jo etelänmatkoja. Muhoksella sammutetaan isoa metsäpaloa. Helsinki lisää varoituskylttejä uimarannoille. Päivö-myrsky tuo rankkasateita ja kovaa tuulta.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Etelänlomat
+
+![Stalis Beach, Kreeta, Kreikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9565400)
+
+Avaa kuvien katselu
+
+Kreikka on suomalaisten suosikkikohde. Kuva: AOP
+
+Etelänmatkat käyvät taas kaupaksi. Tuhannet suomalaiset aikovat lähteä lomalle ulkomaille, kun matkustusrajoituksia helpotetaan koronakevään jälkeen.
+
+Esimerkiksi Aurinkomatkat aloittaa valmismatkat Kreikkaan ja Kroatiaan elokuun alussa. Kysyntä on ollut vilkasta. Kuukausitasolla puhutaan tuhansista matkustajista, Aurinkomatkat kertoo.
+
+Toinen iso matkanjärjestäjä TUI Finland kertoo, että syysloman matkakohteita myydään nyt paljon. Nyt kysytään matkoja esimerkiksi Kanariansaarille.
+
+Tällä hetkellä Suomen hallitus ei suosittele matkustamista muualle kuin Baltian maihin, Norjaan, Tanskaan ja Islantiin. Matkanjärjestäjät kuitenkin uskovat, että suosituksia helpotetaan lisää jo heinäkuun alkupuolella.
+
+## Muhoksen metsäpalo
+
+![Metsäpalo Muhoksella](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6946105efa29a0e1635/1593453018)
+
+Avaa kuvien katselu
+
+Muhoksen metsäpalosta nousi sankka savu. Kuva: Timo Nykyri / Yle 
+
+Pohjois-Pohjanmaalla on sammutettu isoa metsäpaloa. Palo syttyi maanantaina Muhoksella, lähellä Oulua.
+
+Tuli levisi noin 250 hehtaarin alueelle, ennen kuin se saatiin rajattua. Palo levisi nopeasti, koska maasto oli rutikuivaa.
+
+Muhoksen metsäpalo on harvinaisen iso. Metsäkeskus kertoo, että isoimmat metsäpalot Suomessa ovat tavallisesti alle 100 hehtaaria.
+
+Palon jälkisammutus jatkuu ehkä huomiseen asti.
+
+## Varoituskylttejä uimarannoille
+
+![Pelastusrengas uimarannalla.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6436745e4ab5697c27d/1581955335)
+
+Avaa kuvien katselu
+
+Pelastusrengas uimarannalla. Kuva: Petteri Bülow / Yle
+
+Helsinki haluaa parantaa uimarantojen turvallisuutta.
+
+Turvallisuutta halutaan parantaa, koska uimarannoilla on tänä kesänä sattunut useita hukkumisonnettomuuksia. Esimerkiksi Helsingin Hietaniemessä on parin viime viikon aikana hukkunut 3 ihmistä.
+
+Helsingin uimarannoille tuodaan tällä viikolla uusia kylttejä, joissa uimareita varoitetaan vaaranpaikoista. Kyltit varoittavat esimerkiksi voimakkaista virtauksista ja paikoista, joissa on äkkisyvä eli vesi syvenee yllättäen.
+
+Kylteissä on kuva vaaranpaikasta ja varoitusteksti suomen, ruotsin, englannin, somalian ja arabian kielillä.
+
+## Kesämyrsky
+
+![Mies on sateenvarjon alla kaatosateessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7385297)
+
+Avaa kuvien katselu
+
+Tänään on satanut paljon vettä. Kuva: Paula Koskinen / Yle
+
+Kesämyrsky on kulkenut tänään Suomen yli. Päivö-myrsky on tuonut voimakkaita sateita ja tuulia maan etelä, keski- ja itäosiin.
+
+Esimerkiksi itäisellä Uudellamaalla on vettä on paikoin satanut yhtä paljon kuin tavallisesti koko kesäkuussa.
+
+Etelä- ja Pohjois-Savossa sekä Pohjois-Karjalassa tuuli voi olla vaarallisen voimakasta illan ja yön aikana. Pelastuslaitos varoittaa, että nyt ei kannata lähteä vesille.

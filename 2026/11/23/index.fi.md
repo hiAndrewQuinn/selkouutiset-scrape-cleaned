@@ -1,97 +1,61 @@
-# Uutisviikko selkosuomeksi | sunnuntai 22.11.2026
+# Selkouutiset | maanantai 23.11.2026
 
-Rajalaki. Venäläisalus. Sabotaasit. Työttömyys. Vaaratiedotus.
+Venäläinen rahtialus paloi Suomenlahdella. Lasten lihavuus ei ole vähentynyt. Suomalaisia tauluja kunnostetaan Ateneumissa.
 
-Kuuntele
+## Drooni-isku merellä
 
-Voit lukea uutiset samanaikaisesti alta.
+Aluksi meriliikenteestä.
 
-## Rajalaki
+Venäläinen rahtialus paloi Suomen merialueella viikonloppuna. Siihen osui Ukrainan drooni.
 
-![Vaalimaan suljettu rajanylityspaikka Virolahdella.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_288/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-14010276773b87d5b93f/1735639571)
+Rahtialuksen omistaa yhtiö, joka on Venäjän hallinnon alaisuudessa.
 
-Avaa kuvien katselu
+Alus vaurioitui Venäjän merialueella. Se ajautui Suomen alueelle, koska sitä ei enää voinut ohjata.
 
-Suomen Vaalimaan raja-asema Venäjälle on suljettu, samoin kaikki muut Suomen raja-asemat. Kuva: Antro Valo / Yle
+Venäläinen rahtialus paloi Suomen merialueella viikonloppuna.
 
-Ensin aiheena on rajalaki.
+Alus hinattiin pois Suomen alueelta.
 
-Suomi jatkaa rajalakia 2 vuotta. Se tarkoittaa, että Suomen rajat Venäjälle pysyvät kiinni.
+Asiantuntijat sanovat, että Suomenlahdella voi yhä matkustaa turvallisesti.
 
-Eduskunta hyväksyi väliaikaisen rajalain vuonna 2024. Silloin Suomen itärajalle tuli nopeasti suuri joukko turvapaikanhakijoita.
+## Lasten lihavuus ei ole vähentynyt
 
-Suomi epäili, että Venäjän valtio järjesti turvapaikanhakijat rajalle.
+Sitten lasten lihavuudesta.
 
-## Venäläisalus tulessa Suomenlahdella
+Lihavuus ja ylipaino ovat yhä yleisiä suomalaisilla lapsilla.
 
-![Merellä kaksi punavalkoista pelastusalusta suihkuttaa vettä savua tuottavaan rahtilaivaan.](https://img.img-cdn.yle.fi/crop_extract,w_1081,h_610,x_114,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17420706b02ef34a2943/1795354581)
+25 prosenttia pojista ja 20 prosenttia tytöistä on ylipainoisia tai lihavia.
 
-Avaa kuvien katselu
+Näin kertovat Terveyden ja hyvinvoinnin laitoksen tuoreet tilastot.
 
-Venäläisalusta (kuvassa keskellä) saatetaan kohti Venäjän talousvesialuetta Suomenlahdella. Kuva: Rajavartiolaitos
+Tilastoissa on mukana 2–16 -vuotiaita lapsia.
 
-Sitten Venäjän hyökkäyssodan vaikutuksia.
+Lihavuus ja ylipaino ovat yhä yleisiä suomalaisilla lapsilla.
 
-Venäläiseen rahtilaivaan iskettiin lauantaiaamuna Suomenlahdella. Droonit olivat ehkä ukrainalaisia.
+THL sanoo, että alueelliset erot ovat merkittäviä.
 
-Laiva syttyi tuleen, ja sitä yritettiin sammuttaa ja jäähdyttää vielä sunnuntaina.
+Ylipaino ja lihavuus on yleisintä Etelä-Pohjanmaan ja Satakunnan hyvinvointialueilla ja harvinaisinta Helsingissä.
 
-Suomen Rajavartiolaitos johtaa pelastustoimia, koska laiva ajelehti Suomen aluevesille. Miehistö on siirretty venäläiseen pelastusalukseen.
+## Arvokkaiden taulujen kunnostaminen
 
-Rahtilaivan hinaaminen alkoi sunnuntai-iltana kohti Venäjän talousvesiä.
+Sitten taiteesta.
 
-Laiva on USA:n pakotelistalla ja kuuluu Venäjän puolustusministeriön alaisuuteen.
+Suomen arvokasta taidetta konservoidaan keräyslahjoitusten avulla. Konservointi tarkoittaa taideteoksen kunnostustyötä.
 
-Lastin sisällöstä ei tällä hetkellä ole tietoa.
+Yksi tauluista on suomalaisille todella rakas. Taulun nimi on kuva teoksesta Taistelevat metsot. Sen on maalannut **Ferdinand** **von** **Wright**.
 
-## Suojelupoliisi sabotaaseista
+Taulua kunnostetaan Ateneumin taidemuseossa Helsingissä.
 
-![Suojelupoliisin päällikkö Juha Martelius, Ylen ykkösaamun ohjelma.](https://img.img-cdn.yle.fi/crop_extract,w_6991,h_3932,x_0,y_15/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17417916b015ef456b7a/1795252617)
+Suomen arvokasta taidetta konservoidaan keräyslahjoitusten avulla. Ihmiset voivat siis antaa rahaa taideteosten kunnostamiseen.
 
-Avaa kuvien katselu
+Kuuluisan taulun kangas on vaurioitunut ja siinä on reikiä. Konservaattori korjaa reiät ja myös maalia.
 
-Suojelupoliisin päällikkö Juha Martelius. Kuva: Mohamed El Bouari / Yle
+## Sää
 
-Sitten Suomen turvallisuudesta.
+Vielä sääennuste.
 
-Suojelupoliisi on havainnut Suomessa henkilöitä, jotka ovat valmistelleet sabotaasi-iskuja. Niitä on valmisteltu erityisesti puolustusalan yrityksiin.
+Huomenna on poutaa eli ei sada.
 
-Suojelupoliisin päällikkö Juha Martelius muistuttaa, että esimerkiksi Viron kaltaiset iskut ovat mahdollisia. Virossa puolustusalan yritys yritettiin polttaa.
+Etelässä on pilvistä ja nolla astetta lämmintä.
 
-Viro sanoo, että iskun takana oli Venäjä.
-
-## Työttömyys
-
-![Lasisen ulko-oven kyltissä lukee ”Tampereen seudun työllisyysalue&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_5524,h_3107,x_0,y_283/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16860616a71ca43ddc06/1785845153)
-
-Avaa kuvien katselu
-
-Kuva: Miikka Varila / Yle
-
-Nyt uutinen työttömyydestä.
-
-Työ- ja elinkeinoministeriö ennustaa, että työllisyys paranee jo loppuvuoden aikana.
-
-Ensi vuonna ilman työtä on kuitenkin yhä 340 000 suomalaista.
-
-Vuonna 2028 työttömiä on ehkä hieman vähemmän, 328 000.
-
-Suomen talouden kasvu vaikuttaa siihen, kuinka paljon eri aloilla on työpaikkoja.
-
-## Vaaratiedote
-
-![ FI-Alert -testi-ilmoitus kännykän ruudulla.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_1149/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17395636afc4014c5d7c/1794916770)
-
-Avaa kuvien katselu
-
-Kuva: Jari Kovalainen / Yle
-
-Vielä vaaratiedottamisesta.
-
-Suomessa testattiin tiistaina, miten vaarasta varoitetaan suoraan puhelimiin.
-
-Testiviestin piti tulla kello 12, mutta kaikki eivät saaneet sitä. Osa sai viestin myöhemmin. Osa sai viestin ensin kolmella saamen kielellä ja vasta sitten suomeksi ja ruotsiksi.
-
-Tiistaina 24. marraskuuta testi tehdään uudelleen. FI-Alert-tiedotteesta tulee kello 12 ilmoitusääni, eikä sitä pysty puhelimen asetuksista estämään.
-
-Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
+Pohjoisessa on selkeää ja kylmempää.

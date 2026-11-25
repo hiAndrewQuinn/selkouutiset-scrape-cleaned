@@ -1,0 +1,85 @@
+# Perjantai 01.05.2020 (radio)
+
+Vapun juhlinta on sujunut Suomessa pääosin rauhallisesti. Poliittiset puheet on pidetty verkossa. Vapun liputus on omistettu koronaviruksen vastaiselle työlle. Terveys on suomalaisille ykkösasia. Italian rannikolta löydettiin valtava määrä mikromuovia.
+
+## Poikkeusolojen vappu on ollut rauhallinen
+
+![Aleksi vappuaattoiltana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11332295)
+
+Avaa kuvien katselu
+
+Vapun katukuva on ollut poikkeuksillisen hiljainen. Kuva: Petteri Sopanen / Yle
+
+Vapun juhliminen on sujunut Suomessa pääosin rauhallisesti.
+
+Viranomaisten ohje oli viettää vappua kodeissa ja etänä. Poliisi kertoo, että tätä on aika hyvin noudatettu. Kaduilla on ollut hiljaisempaa kuin tavallisesti viikonloppuna.
+
+Perinteinen Ylioppilaiden vapun vastaanotto on yleensä Helsingin Ullanlinnanmäellä. Nyt se pidettiin aamulla Ylen pihassa Helsingin Pasilassa.
+
+## Poliittiset puheet pidettiin verkossa
+
+![Värikkäällä aidalla eristetty Havis Amanda.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11331937)
+
+Avaa kuvien katselu
+
+Helsingissä Havis Amanda -patsaan lakituskin oli tänä vuonna virtuaalinen ja patsas aidan takana. Kuva: Petteri Bülow / Yle
+
+Vapun poliittiset puheet on pidetty verkossa.
+
+Pääministeripuolue SDP:n puheenjohtaja Antti Rinne kiitti vappupuheessa terveydenhuollon eturintamaa.
+
+Vasemmistoliiton puheenjohtaja Li Andersson ehdotti vappusatasta eli sataa euroa kaikille kulttuurialojen ja palvelualojen tukemiseen.
+
+Vihreiden puheenjohtaja Maria Ohisalo haluaa käyttää elvytystoimia ilmastokriisin torjumiseen.
+
+RKP:n puheenjohtaja Anna-Maija Henriksson toivoo ikäihmisille turvallisia ratkaisuja muiden ihmisten tapaamiseen.
+
+Oppositiosta perussuomalaisten puheenjohtaja Jussi Halla-aho moitti vappupuheessa ulkomaisen työvoiman käyttöä maataloudessa.
+
+Keskustan ja kokoomuksen puheenjohtajat julkistivat vappuviestit jo vappuaattona ja puhuivat muun muassa taloudesta.
+
+## Nyt liputetaan koronan vastaisen työn puolesta
+
+![Suomen lippu liehuu tangossa eduskuntavaalien varsinaisena äänestyspäivänä 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7938320)
+
+Avaa kuvien katselu
+
+Vappu on virallinen liputuspäivä. Kuva: Pekka Autio / Yle 
+
+Vapunpäivän liputus on omistettu tänä vuonna niille, jotka toimivat koronaviruksen vastaisessa työssä.
+
+Liputusasioista vastaa sisäministeriö. Se painottaa, että esimerkiksi terveydenhuollon henkilöstö työskentelee joka päivä viruksen torjunnan etulinjassa.
+
+Myös esimerkiksi poliisit, opettajat, siivoojat ja kassatyöntekijät tekevät työtä oloissa, joita koronavirus on vaikeuttanut.
+
+## Terveys on ihmisille tärkeä asia
+
+![Jalankulkija, pyöräilijä ja linja-auto Pasilassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11327319)
+
+Avaa kuvien katselu
+
+Korona-aikana ihmiset arvostavat tavallisia, arkisia asioita. Kuva: Tiina Jutila / Yle
+
+Terveys on suomalaisille ykkösasia. Näin kertoo kysely, jonka Yle teki koronakriisin keskellä.
+
+Melkein puolet vastaajista mainitsi terveyden. Toiseksi eniten toivottiin, että on työtä.
+
+Seuraavaksi mainittiin ihmissuhteet, ja neljäntenä listalla oli toimeentulo.
+
+## Italian merialueella on paljon mikromuovia
+
+![Mikromuovia huuhtoutuneen Cosenzan lähettyvillä Italiassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11332206)
+
+Avaa kuvien katselu
+
+Myrskyn rannikolle heittämää muovijätettä Italiassa. Kuva: Alfonso Di Vincenzo / AOP
+
+Italian rannikolta on löydetty paljon mikromuovia. Mikromuovi on esimerkiksi muovia, joka on hajonnut mikroskooppisen pieniksi kappaleiksi.
+
+Italian löytö suurin kerääntymä, joka tiedetään. 1 neliömetrin alueella oli noin 1,9 miljoonaa mikromuovihiukkasta.
+
+Tutkimuksessa selvisi, että pohjavirtaukset voivat kuljettaa muovijätettä merten pohjalla.
+
+Mikromuovi on haitallinen meriluonnolle.
+
+Maailman meriin päätyy joka vuosi miljoonia tonneja muovijätettä. Se on peräisin asumisesta, teollisuudesta, laivoista ja kalastuksesta.

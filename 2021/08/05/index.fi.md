@@ -1,0 +1,82 @@
+# Torstai 5.8.2021
+
+Koronarokotukset ja ravintolarajoitukset. Koulut.. Pronssimitali. Puolueiden kannatus. Säätiedot.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Hallitus teki koronapäätöksiä
+
+![Kasarmitorin jättiterassilla vietettiin kesäpäivää 14. kesäkuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82097060c848f55ca9e/1624348674)
+
+Avaa kuvien katselu
+
+Ravintoloiden rajoitukset tiukkentuvat koronan leviämisvaiheen alueilla. Kuva: Silja Viitala / Yle
+
+Koronarokotukset laajenevat Suomessa.
+
+Koronarokotuksia laajennetaan 12-15-vuotiaisiin lapsiin ja nuoriin. Rokotukset alkavat ensi viikolla.
+
+Hallitus päätti asiasta tänään torstaina.
+
+Hallitus päätti myös, että ravintolarajoituksia kiristetään pahentuneen koronatilanteen takia. Koronan leviämisalueilla ravintoloiden pitää mennä kiinni kello 23 ja asiakkaiden määrää pitää rajoittaa sisätilojen lisäksi myös terasseilla. Lisäksi sisätiloissa ei saa enää tanssia eikä laulaa karaokea.
+
+Rajoitukset koskevat ravintoloita Helsingin seudulla, Varsinais-Suomessa, Pirkanmaalla ja Kymenlaaksossa. Rajoitukset tulevat voimaan sunnuntaina.
+
+Kiihtymisalueilla ravintolat saavat olla auki kello yhteen yöllä.
+
+Tänään Suomessa todettiin 752 uutta koronatartuntaa. Uusien koronatapausten määrä on kasvanut lähes 60 prosenttia viikon aikana.
+
+## Koulut alkavat lähiopetuksessa
+
+![Käsidesiä ja kasvomaskeja preliminäärikoetilan ovella.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-777519603501363981d/1614095372)
+
+Avaa kuvien katselu
+
+Kouluissa torjutaan koronaa myös tänä syksynä esimerkiksi käsidesillä ja turvaväleillä.  Kuva: Silja Viitala / Yle
+
+Kouluvuosi alkaa tänä syksynä lähiopetuksessa.
+
+Opetus- ja kulttuuriministeriö ja Terveyden ja hyvinvoinnin laitos suosittelevat, että peruskouluissa, lukioissa ja ammattikouluissa koulu aloitetaan lähiopetuksessa. Koronatartuntojen leviämistä kouluissa torjutaan tutuilla keinoilla eli hyvällä hygienialla, ilmanvaihdolla ja turvaväleillä.
+
+Korkeakoulut päättävät itse, miten ne järjestävät opetuksen. Myös korkeakoulut aikovat lisätä lähiopetusta.
+
+## Mira Potkonen sai pronssia
+
+![Mira Potkonen gråter.](https://img.img-cdn.yle.fi/crop_extract,w_4141,h_2329,x_70,y_113/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-838826610b7a785ebe8/1628142237)
+
+Avaa kuvien katselu
+
+Nyrkkeilijä Mira Potkonen oli pettynyt pronssimitaliin. Kuva: Lehtikuva
+
+Suomi on saanut toisen mitalin Tokion olympialaisissa. Nyrkkeilijä Mira Potkonen sai pronssia.
+
+Tämä on Potkoselle toinen olympiapronssi. Hän sai pronssia myös Rion olympialaisissa vuonna 2016.
+
+Mira Potkonen aikoo lopettaa nyrkkeilyn näihin olympialaisiin.
+
+## Kokoomus on suosituin
+
+![Heinäkuun 2021 puoluekannatusmittaus. Kokoomus on suurin puolue, SDP ja perussuomalaiset seuraavina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12046299)
+
+Avaa kuvien katselu
+
+Kuva: Illusia Sarvas / Yle
+
+Yle on tehnyt uuden kyselyn puolueiden kannatuksesta. Kyselyn tulos on melko samanlainen kuin viime kuussa.
+
+Kokoomus on suosituin puolue. Sitä kannattaa noin 20 prosenttia suomalaisista.
+
+Toiseksi suosituin on SDP 19 prosentin kannatuksella.
+
+Kolmantena on perussuomalaiset, jota kannattaa noin 18 prosenttia suomalaisista.
+
+## Perjantain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12048694)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on huomenna melko aurinkoista. Pohjois-Lapissa voi tulla sadekuuroja. Lämpötila on 18 ja 23 asteen välillä.

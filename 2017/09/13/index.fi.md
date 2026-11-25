@@ -1,0 +1,75 @@
+# Keskiviikko 13.9.2017 (radio)
+
+Hätäkeskukset saavat paljon turhia puheluja. Lähiruuan suosiminen on kunnille hankalaa hankintalain takia. Maahanmuuttovirasto vähentää vastaanottokeskuksia. Espoo ottaa englannin asiointikieleksi. Kesän allergia-aika on pian ohi.
+
+## Hätäkeskuksiin soitetaan usein turhaan
+
+![Keski-Suomen hätäkeskus lopetti toimintansa marraskuussa 2014.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7636688)
+
+Avaa kuvien katselu
+
+Etenkin Turun puukkoiskun jälkeen hätäkeskukset ovat saaneet paljon turhia soittoja.  Kuva: Jani Ilola / Yle
+
+Hätäkeskuksiin tulee paljon turhia soittoja. Soittoja on tullut etenkin Turun puukotusiskun jälkeen.
+
+Ihmiset soittavat hätäkeskuksiin, kun he esimerkiksi kuulevat meteliä. Jotkut soittavat, jos he näkevät ihmisiä, jotka näyttävät epäilyttäviltä.
+
+Hätäkeskukset kertovat, että monet ihmiset ylireagoivat eli huolestuvat ja soittavat turhan takia.
+
+## Hankintalaki voi olla hankala
+
+![Kouluruokailua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9826866)
+
+Avaa kuvien katselu
+
+Kouluruoka ei aina ole lähiruokaa. Kuva: Hanna Othman / Yle
+
+Monet kunnat haluavat tarjota lähiruokaa kouluissa ja päiväkodeissa. Se on kuitenkin vaikeaa hankintalain takia.
+
+Hankintalain takia kunnat eivät voi ostaa esimerkiksi lihaa ja perunoita suoraan oman kunnan maanviljelijöiltä, vaan ostot täytyy kilpailuttaa.
+
+Kilpailuttamisessa pyydetään tarjouksia ja kunnan täytyy ottaa niistä halvin. Kilpailuttamisessa ei saa sanoa, että vain oman kunnan tuotteet kelpaavat.
+
+Kunta voi kuitenkin sanoa, että se haluaa ostaa esimerkiksi niin tuoretta leipää, että se on vielä lämmintä. Silloin lähileipomolla on hyvä mahdollisuus voittaa tarjouskilpailu.
+
+## Turvapaikanhakijat eivät halua lähteä Evitskogista
+
+![Evitskogin vastaanottokeskuksen asukkaita osoittamassa mieltään vokin lopettamista vastaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9829195)
+
+Avaa kuvien katselu
+
+Evitskogin vastaanottokeskuksen asukkaat eivät halua lähteä pois Kirkkonummelta. Kuva: Antti Kolppo / Yle
+
+Evitskogin vastaanottokeskus Kirkkonummella suljetaan. Maahanmuuttovirasto vähentää vastaanottokeskuksia, koska niiden tarve on vähentynyt.
+
+Evitskog on yksi Suomen suurimmista vastaanottokeskuksista. Siellä on asunut yli 300 turvapaikanhakijaa.
+
+Asukkaita on ollut tarkoitus siirtää Espooseen ja Kauhavalle Etelä-Pohjanmaalle. Suurin osa turvapaikanhakijoista ei kuitenkaan halua lähteä pois Kirkkonummelta.
+
+## Englannista tulee Espoon asiointikieli
+
+![Espoon vaakuna](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5540904)
+
+Avaa kuvien katselu
+
+Espoossa voi tulevaisuudessa asioida suomeksi, ruotsiksi tai englanniksi. Kuva: YLE Helsinki
+
+Espoon kaupunki aikoo tehdä englannin kielestä kaupungin virallisen asiointikielen.  Englannin kielestä tulee Espoon 3. asiointikieli suomen ja ruotsin kielen rinnalle.
+
+Tulevaisuudessa kaikki kaupungin palvelut ja lomakkeet saa suomeksi, ruotsiksi tai englanniksi.
+
+Espoon asukkaista yli 14 prosenttia puhuu äidinkielenä jotain muuta kieltä kuin suomea tai ruotsia.
+
+## Allergikkojen oireet helpottavat
+
+![Allerginen niistää.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9566186)
+
+Avaa kuvien katselu
+
+Allergiset ihmiset saavat kasvien siitepölystä esimerkiksi nuhaa. Kuva: AOP
+
+Kesän allergia-aika loppuu.
+
+Kesän lopussa ilmassa on ollut vielä heinien siitepölyä, mutta nyt heinien kukinta loppuu. Siksi myös allergisten ihmisten oireet loppuvat. Allergiset ihmiset saavat kasvien siitepölystä esimerkiksi nuhaa.
+
+Allergiaoireita voivat kuitenkin saada vielä ihmiset, joilla on homeallergia. Turun yliopisto kertoo, että ilmassa on pieniä määriä homesienten itiöitä.

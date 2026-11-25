@@ -1,61 +1,67 @@
-# Selkouutiset | torstai 19.11.2026
+# Selkouutiset | perjantai 20.11.2026
 
-Rajalaki. Slush-tapahtuma. GTA-videopeli. Sää
+Ukraina. Puolustusvoimat. Kela. Sääennuste.
 
-## Suomi jatkoi rajalakia
+## Ukrainan tukikokous
 
-Ensin aiheena on rajalaki.
+Aluksi uutinen kansainvälisestä turvallisuuspolitiikasta.
 
-Suomi jatkaa rajalakia kaksi vuotta.
+Presidentti **Alexander Stubb** on osallistunut Ukrainan tukimaiden kokoukseen Saksassa. Mukana oli paljon eri maiden johtajia.
 
-Rajalailla voidaan estää turvapaikanhakijoiden tuleminen Suomeen, jos Suomen turvallisuus on uhattuna.
+Kokouksen ajankohta eli torstai oli tärkeä. Samaan aikaan Kiinassa oli kokous, jossa tapasivat USA:n, Kiinan ja Venäjän presidentit.
 
-Eduskunta hyväksyi väliaikaisen rajalain vuonna 2024. Syynä oli se, että Suomen itärajalle tuli nopeasti iso joukko turvapaikanhakijoita. Suomi epäili, että Venäjän valtio järjesti turvapaikanhakijat rajalle.
+Sen jälkeen USA:n presidentti **Donald Trump** soitti Ukrainan tukimaiden kokoukseen.
 
-Suomi jatkaa rajalakia kaksi vuotta.
+Presidentti Alexander Stubb on osallistunut Ukrainan tukimaiden kokoukseen Saksassa.
 
-Eduskunnassa kaksi puoluetta eli vasemmistoliitto ja vihreät äänestivät lakia vastaan. Puolueet sanovat, että rajalaki rikkoo perustuslakia.
+Stubb kertoo, että Trump kehotti Euroopan maita puhumaan Venäjän presidentin **Vladimir Putinin** kanssa.
 
-Muut puolueet äänestivät rajalain puolesta.
+## Puolustusvoimat
 
-## Slush-tapahtuma Helsingissä
+Nyt uutinen Puolustusvoimista eli armeijasta.
 
-Seuraavaksi uutinen isosta yritystapahtumasta Suomessa.
+Puolustusvoimat hankkii uusia lennokkeja. Uudet lennokit ovat isompia kuin vanhat lennokit.
 
-Slush-yritystapahtuma on nyt Helsingissä.
+Ne sopivat moniin eri tehtäviin.
 
-Slush-tapahtumassa sijoittajat tapaavat uusia yrittäjiä. Sijoittajat etsivät kasvuyrityksiä eli start-upeja, joille ne voivat antaa rahaa.
+Maavoimien komentaja **Pasi Välimäki** kertoo, että armeijan on tärkeää harjoitella uusia toimintatapoja. Siksi armeija tarvitsee uusia välineitä.
 
-Slushissa sijoittajilla on rahaa yli 4 000 miljardia euroa.
+”Me haetaan monitoimijärjestelmiä, joita voidaan käyttää useampaan eri tehtävään.”
 
-Slush-tapahtuma on nyt Helsingissä. Se alkoi eilen ja päättyy tänään.
+Tässä testataan lennokkeja sotaharjoituksessa Rovajärvellä.
 
-Slushissa on noin 12 000 osallistujaa. Toimitusjohtaja **Noora Saksa** kertoo, että Slushia on rakentanut 2 000 nuorta.
+Testissä tutkitaan, miten lennokit toimivat kylmässä talvella.
 
-– Tää on semmonen valonpilkahdus, joka saa koko Suomen ja meidän yhteiskunnan uskaltamaan olla rohkeampia.
+Puolustusvoimat hankkii uusia lennokkeja.
 
-## Suosittu GTA-peli julkaistiin
+Puolustusvoimat on kouluttanut jo noin 1 000 sotilasta lennättämään lennokkeja.
 
-Lopuksi uutinen valtavan suositusta videopelistä GTA VI:sta.
+## Kelan tuet
 
-Videopeli Grand Theft Auton kuudes osa julkaistiin eilen. Peli on niin suosittu, että moni pelaaja otti lomaa uuden julkaisun vuoksi.
+Lopuksi uutinen Kelan tuista.
 
-Esimerkiksi **Jasper Kautiainen** pitää kaksi päivää lomaa, koska hän haluaa vain pelata uutta peliä. Kautiainen sanoo, että peli näytti tosi hienolta.
+Kelan tukien määrissä on suuria eroja eri kunnissa.
 
-Videopeli Grand Theft Auton kuudes osa julkaistiin eilen.
+Kelan tukia ovat esimerkiksi asumistuki, peruseläke ja työttömyysturva.
 
-GTA VI -peliä on myyty ennakkoon arviolta 17 miljoonaa kappaletta.
+Viime vuonna Kela maksoi vähiten tukia Inkoossa ja Siuntiossa. Tukisumma oli vähän alle 2 000 euroa asukasta kohti.
 
-Peliä tehtiin kahdeksan vuotta. Sen tekeminen maksoi noin miljardi dollaria. GTA VI on saanut paljon kehuja kriitikoilta.
+Eniten tukia Kela maksoi Rautavaarassa Pohjois-Savossa. Tukisumma oli vähän alle 4 000 euroa asukasta kohti.
 
-## Perjantain sää
+Helsingissä tukisumma oli noin 3 000 euroa asukasta kohti.
+
+Kelan tukien määrissä on suuria eroja eri kunnissa.
+
+Syitä tukisummien eroihin ovat asukkaiden ikä ja työttömien määrä eri kunnissa.
+
+## Lauantain sää
 
 Vielä sääennuste.
 
-Huomenna etelässä sataa vettä.
+Lauantaina sataa lunta, ja tiet voivat olla liukkaita.
 
-Lounais-Suomessa voi sataa myös räntää tai lunta.
+Pohjoisessa on vähän pakkasta.
 
-Keski- ja Pohjois-Suomessa voi sataa lunta.
+Etelässä lämpötila on 0 ja +3 asteen välillä.
 
-Lapissa on pakkasta. Muualla on plusasteita.
+Taivas on pilvinen, mutta etelässä aurinko voi näkyä välillä.

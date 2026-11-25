@@ -1,0 +1,79 @@
+# Radio Selkouutiset perjantai 28.7.2023
+
+Ministeri Rydman. Lasten uimataito. Yötön yö. Kalevan kisat. Sää.
+
+## Ministeri Rydman
+
+![Perussuomalaisten Vilhelm Junnila, Riikka Purra ja Wille Rydman.](https://img.img-cdn.yle.fi/crop_extract,w_1599,h_899,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114897064c3c108c777b/1690558149)
+
+Avaa kuvien katselu
+
+Perussuomalaiset poliitikot Vilhelm Junnila, Riikka Purra ja Wille Rydman ovat herättäneet huomiota vanhoilla rasistisilla kirjoituksilla. Kuva: Lehtikuva, Yle
+
+Keskustelu perussuomalaisten ministerien rasistisista kirjoituksista jatkuu. Nyt Suomessa puhutaan ministeri Wille Rydmanista.
+
+Helsingin Sanomat on julkaissut Rydmanin vanhoja viestejä entiselle tyttöystävälle. Rydmanin viestit ovat rasistisia. Viestit loukkaavat esimerkiksi somaleja ja arabeja.
+
+Kokoomuksen puoluejohtaja ja hallituksen pääministeri Petteri Orpo sanoo, että Rydmanin viestit eivät ole asiallisia. Orpo on kuitenkin tyytyväinen, että Rydman lupaa olla mukana hallituksen rasisminvastaisessa työssä.
+
+Helsingin Sanomat julkaisi Rydmanin yksityisviestejä, koska ministeri Rydmanilla on valtaa ja tärkeä asema Suomessa. Siksi ihmisten pitää saada tietää, mitä Rydman ajattelee.
+
+Rydmanista tuli ministeri perussuomalaisten Vilhelm Junnilan jälkeen. Junnilan piti erota, koska Junnilan vanhat natsipuheet järkyttivät monia.
+
+Eniten julkisuudessa on puhuttu perussuomalaisten puoluejohtajan, ministeri Riikka Purran vanhoista rasistisista kirjoituksista.
+
+## Lasten uimataito
+
+![Uimakoululaisia uimastadionin altaassa, mukana opettaja Tanja Kautiainen.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_12/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96830862a323cd21a1c/1654860315)
+
+Avaa kuvien katselu
+
+Uimaopetus on lapsille tärkeää. Kuva: Mårten Lampén
+
+Suomalaisten lasten uimataito on nyt huonompi kuin ennen. Näin kertoo Suomen Uimaopetus- ja Hengenpelastusliitto.
+
+Lasten uimataito heikkeni korona-aikana. Silloin monilla uimakouluilla oli tauko.
+
+Vielä vuonna 2016 noin 75 prosenttia kuudesluokkalaisista osasi uida. Vuonna 2022 enää 55 prosenttia kuudesluokkalaisista oli uimataitoisia.
+
+Uimaopettajat muistuttavat, että kaikki perheet eivät käy uimahallissa. Siksi koulujen uimaopetus on tärkeää.
+
+## Yötön yö
+
+![Maisema, jossa aurinko paistaa liki horisonttia joenlahdella kesäyönä. Puissa on lehdet ja ruoho on vihreää.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_169/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6955465efd6c4f93d27/1684138947)
+
+Avaa kuvien katselu
+
+Lapissa paistaa aurinko myös kesäyössä. Kuva: Vesa Vaarama / Yle
+
+Yötön yö on loppunut Utsjoella. Utsjoki on Suomen pohjoisin kunta.
+
+Yöttömän yön aikana aurinko ei laske ollenkaan. Aurinko pysyy taivaalla koko ajan.
+
+Perjantaina aurinko laski Utsjoella ensimmäisen kerran yöttömän yön jälkeen. Yötön yö alkoi Utsjoella toukokuussa, eli se kesti yli 2 kuukautta.
+
+## Kalevan kisat
+
+![Kalevan kisat.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_351/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114907564c3df8655e4a/1690558369)
+
+Avaa kuvien katselu
+
+Kalevan kisoissa on paljon yleisöä. Kuva: Tomi Hänninen
+
+Kalevan kisat järjestetään tänä viikonloppuna. Kalevan kisat ovat yleisurheilun Suomen mestaruuskilpailut.
+
+Ensimmäiset Kalevan kisat järjestetiin vuonna 1907. Tänä vuonna urheilijat kilpailevat Lahdessa.
+
+Kalevan kisoja voi katsoa Yle Areenasta ja TV2:sta.
+
+## Sää
+
+![Sääkartat lauantaista maanantaihin.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114907764c3dfeae5847/1690558471)
+
+Avaa kuvien katselu
+
+Lauantain jälkeen sateet vähenevät. Kuva: Aleksi Lohtander / Yle
+
+Lauantaina vettä sataa maan keskiosassa ja pohjoisessa. Eniten sataa idässä.
+
+Lämpötila on 16-21 astetta. Sateisilla alueilla on vähän viileämpää.

@@ -1,0 +1,74 @@
+# Perjantai 26.6.2020 (radio)
+
+Kansanedustaja Juha Mäenpää ei joudu oikeuteen rasistisen puheen takia. Suomessa on 19 uutta koronatartuntaa. Lasten koronakuolemia on vähän. Mansikat kypsyvät nopeasti. Viikonloppuna sää vähän viilenee.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Eduskunta äänesti Mäenpäästä
+
+![Kansanedustaja Juha Mäenpää (ps.) eduskunnan täysistunnossa Helsingissä 24. kesäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11416232)
+
+Avaa kuvien katselu
+
+Kansanedustaja Juha Mäenpää eduskunnassa. Kuva: Vesa Moilanen / Lehtikuva
+
+Eduskunnassa eli Suomen parlamentissa on ollut epätavallinen äänestys. Kansanedustajat äänestivät siitä, voidaanko yhtä kansanedustajista syyttää oikeudessa.
+
+Äänestys koski kansanedustaja Juha Mäenpäätä. Mäenpää käytti monien mielestä rasistista kieltä eduskunnassa, kun hän vertasi turvapaikanhakijoita vieraslajeihin. Vieraslaji on kasvi tai eläin, joka ei kuulu Suomeen.
+
+Eduskunnan äänestyksessä päätettiin, että Mäenpäätä ei syytetä oikeudessa rasistisen puheen takia. Kansanedustajaa voidaan syyttää oikeudessa vain, jos suurin osa kansanedustajista antaa siihen luvan. Esimerkiksi perussuomalaisten kansanedustajat äänestivät lupaa vastaan. Myös Juha Mäenpää itse on perussuomalainen.
+
+## Uudet koronatartunnat
+
+![Hengityssuojainta käyttävä nainen matkustaa bussilla Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11420914)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat varoneet koronatartuntaa. Kuva: Emmi Korhonen / Lehtikuva
+
+Suomessa on 19 uutta koronatartuntaa. Terveyden ja hyvinvoinnin laitos eli THL on raportoinut yhteensä noin 7200 koronatartuntaa.
+
+THL kertoi perjantaina myös 1 uudesta koronakuolemasta. Suomessa on nyt kuollut yhteensä 328 ihmistä koronaviruksen takia.
+
+## Lapsilla vähän koronakuolemia
+
+![lapsia koulun pihalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11419301)
+
+Avaa kuvien katselu
+
+Lapsia korona-aikana Roomassa, Italiassa. Kuva: Alberto Pizzoli / AFP
+
+Lapset eivät usein kuole koronaviruksen takia. Uusi eurooppalainen tutkimus kertoo, että lasten koronakuolemia on tosi vähän.
+
+Tutkimuksessa oli mukana 600 lasta, joilla oli koronatartunta. Vain 4 lapsista kuoli tautiin, jonka syy oli koronavirus.
+
+Suurin osa lapsista sai koronaviruksesta vain lieviä oireita. 10 prosenttia lapsista tarvitsi tehohoitoa koronaviruksen takia.
+
+## Mansikat kypsyvät
+
+![Ukranalaiset mansikanpoimijat Holopaisen Tilalla Lemillä 2019](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10862632)
+
+Avaa kuvien katselu
+
+Mansikanpoimijoilla on nyt paljon työtä. Kuva: Kari Saastamoinen/ Yle
+
+Mansikat kypsyvät nyt nopeasti. Syynä on kuuma sää.
+
+Mansikanviljelijät pelkäävät, että mansikat kypsyvät jopa liian nopeasti. Kaikkia mansikoita ei ehkä ehditä poimia ajoissa. Mansikat ovat hyviä, jos ne poimitaan heti, kun ne ovat kypsiä.
+
+Monilla mansikkatiloilla on liian vähän poimijoita. Monet poimijat tulevat ulkomailta, mutta koronarajoitusten takia poimijoita on tullut tänä kesänä vähemmän kuin tavallisesti.
+
+## Sää viilenee vähän
+
+![Sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11419917)
+
+Avaa kuvien katselu
+
+Lämpötila laskee, mutta viikonloppu on vielä lämmin. Kuva: Anniina Valtonen
+
+Viikonloppuna sää vähän viilenee.
+
+Pohjois-Suomessa lämpötila laskee jo lauantaina, mutta Etelä-Suomessa voi olla lauantaina vielä jopa 30 astetta lämmintä.
+
+Sunnuntaina sää viilenee vähän myös etelässä, ja lämpötila on 20 ja 25 asteen välillä.

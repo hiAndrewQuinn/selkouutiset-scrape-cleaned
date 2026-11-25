@@ -1,0 +1,61 @@
+# Tiistai 22.8.2017 (radio)
+
+Puukotusten epäiltyjä vangittiin. Lakia laittomasta maassaoleskelusta aiotaan muuttaa. Torniossa mielenilmaus. Moni huolehti huonosti terveydestä, koska rahat eivät riitä. Hyttysilllä oli ankea kesä.
+
+## Epäiltyjä vangittiin
+
+![Turun puukottajan vangitsemisoikeudenkäynti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9790606)
+
+Avaa kuvien katselu
+
+Pääepäiltyä kuultiin videoyhteydellä, koska hän on vielä sairaalassa. Kuva: Eino Kossila / Yle
+
+Turun puukotuksista pääepäiltynä oleva mies on vangittu. Häntä epäillään kahdesta murhasta, jotka on tehty terroristisessa tarkoituksessa.
+
+Lisäksi häntä epäillään kahdeksasta murhan yrityksestä. Pääepäilty myöntää, että hän on aiheuttanut kuolemaan johtaneet teot, mutta ei sitä, että ne ovat murhia. Poliisi selvittää vielä sitä, onko pääepäilty kertonut oikean nimen ja iän.
+
+Pääepäillyn lisäksi kolme muuta miestä on vangittu. Yksi mies vapautettiin eikä häntä enää epäillä osallisuudesta puukotuksiin.
+
+## Lakia aiotaan muuttaa
+
+![Miehiä varvastossut jalassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8665568)
+
+Avaa kuvien katselu
+
+Jotkut turvapaikanhakijat oleskelevat laittomasti Suomessa sen jälkeen, kun ovat saaneet kielteisen turvapaikkapäätöksen. Kuva: Toni Määttä / Yle
+
+Hallitus suunnittelee lakiin muutoksia, jotka vaikeuttavat laitonta oleskelua Suomessa. Rangaistuksia aiotaan koventaa.
+
+Tällä hetkellä laittomasta maassaoleskelusta saa sakkorangaistuksen. Jos laki muuttuu, laittomasti Suomessa oleva voi saada jopa 6 kuukauden vankeusrangaistuksen. Laki voi myös muuttua niin, että poliisi voi paikantaa ihmisen matkapuhelimen perusteella.
+
+## Mielenilmaus Torniossa
+
+![Turvapaikanhakijoita Tornion järjestelykeskuksen edessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8384356)
+
+Avaa kuvien katselu
+
+Turvapaikanhakijoita Tornion järjestelykeskuksessa Kuva: Kati Teirikko / Yle
+
+Turvapaikanhakijat aikovat järjestää rauhanomaisen mielenilmauksen Torniossa. He haluavat esittää vastalauseen Suomen turvapaikkapolitiikkaa vastaan. Mielenilmaus järjestetään 5. syyskuuta.
+
+## Rahat eivät riitä terveydenhoitoon
+
+![Lääkäri kuuntelee miehen sydäntä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9403436)
+
+Avaa kuvien katselu
+
+Terveydenhoidosta tingitään, jos rahat eivät riitä. Kuva: Ismo Pekkarinen / AOP
+
+Moni suomalainen huolehtii huonosti omasta terveydestä, koska rahat eivät riitä. Joka viides sanoo, että ei ole ottanut lääkkeitä tai ei ole mennyt lääkäriin tai hoitoon. Erityisesti pienituloiset tinkivät terveydenhoidosta. 
+
+Kela maksaa korvausta lääkekuluista, mutta asiakkaan pitää ensin maksaa itse omavastuuosuus. Se on 50 euroa.
+
+## Viileä kesä haittasi hyttysiä
+
+![Hyttynen pistää](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9714790)
+
+Avaa kuvien katselu
+
+Viileä kesä oli hyttysille ankea. Kuva: Tarja Porkkala
+
+Viileä kesä on ollut huono hyttysille ja pikkulinnuille. Hyttysiä on ollut vähemmän, koska ankeassa säässä hyttysparvet eivät kasva. Ja pikkulintujen pesintä meni pieleen, koska alkukesä oli niin kylmä.

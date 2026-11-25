@@ -1,0 +1,87 @@
+# Lauantai 18.4.2020 (radio)
+
+Suomen koronakuolemat. Koronaviruksen leviäminen. Peliautomaatit kiinni. Suuri hyväntekeväisyystapahtuma. Säätietoja.
+
+## Koronakuolemat Suomessa
+
+![Vanhus pitää toista kädestä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11192424)
+
+Avaa kuvien katselu
+
+Hoivakodeissa on ollut paljon koronavirustartuntoja. Kuva: Antti Kolppo / Yle
+
+Terveysviranomaiset sanovat, että on hieman epäselvää, kuinka monta ihmistä Suomessa on kuollut koronaviruksen takia.
+
+Terveysviranomaiset sanovat, että virallinen luku on 90.
+
+Nyt on saatu selville, että tästä luvusta puuttuu monta kuolemantapausta.
+
+Terveysviranomaiset eivät ole saaneet tietää kuolemista, joita on tapahtunut vanhusten hoitokodeissa.
+
+Kyse on siitä, että tieto kuolemista ei ole tullut terveysviranomaisille.
+
+Terveysviranomaisten luku kertoo, kuinka monta ihmistä on kuollut sairaalassa koronan takia.
+
+Tehohoidossa sairaalassa on nyt 70 koronapotilasta.
+
+## Koronavirus leviää väkijoukossa
+
+![Valtava ihmisjoukko osavaltioparlamentin edessä.](https://img.img-cdn.yle.fi/crop_extract,w_5169,h_2908,x_0,y_178/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6331955e25e406b85ae/1579541628)
+
+Avaa kuvien katselu
+
+Koronavirus leviää nopeasti tällaisessa isossa väkijoukossa. Kuva: Shawn Thew / EPA
+
+Terveysviranomaiset sanovat, että Suomessa koronavirus on levinnyt isoissa tapahtumissa ja juhlissa.
+
+Tällaisia ovat esimerkiksi konsertit, perhejuhlat ja tapahtumat, joissa on ollut paljon muita ihmisiä.
+
+Asiantuntijat sanovat, että suurin riski saada koronavirustartunta on paikassa, jossa on paljon muita ihmisiä.
+
+## Rahapeliautomaatit ovat kiinni
+
+![Suljetut peliautomaatit Espoon Isossa Omenassa markettikerroksessa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11312346)
+
+Avaa kuvien katselu
+
+Rahapeliautomaatit ovat nyt kiinni. Se voi tehdä elämästä helpompaa. Kuva: Henrietta Hassinen / Yle
+
+Rahapeliautomaatit ovat olleet kiinni koronaviruksen takia. Peliautomaatit, joita on esimerkiksi ruokakaupoissa ovat olleet kiinni, jotta koronavirus ei leviä.
+
+Tämä on ollut hyvä asia niille ihmisille, joille peliautomaatit ovat ongelma.
+
+Peluuri-palvelu auttaa ihmisiä, joilla on peliongelma.
+
+Peluurista kerrotaan, että monet ihmiset ovat soittaneet ja sanoneet, että elämä on nyt helpompaa, kun peliautomaatit ovat kiinni.
+
+## Iso hyväntekeväisyystapahtuma verkossa
+
+![Tapahtuman logo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11312579)
+
+Avaa kuvien katselu
+
+Voit seurata tapahtumaa Yle Areenassa tai YouTubessa. Kuva: Minna Uusi-Eskola / Yle
+
+Ensi yönä järjestetään iso kansainvälinen hyväntekeväisyystapahtuma koronaviruspandemian takia.
+
+Se järjestetään verkossa ja siinä on mukana paljon esiintyjiä eri maista.
+
+Tapahtuman nimi on Maailma yhdessä kotona. Idean on keksinyt amerikkalainen muusikko Lady Gaga.
+
+Yle näyttää tapahtuman Areenassa. Ohjelma alkaa Areenassa kello 21.
+
+Ensin on etkot eli alkujuhlat. Varsinainen konsertti alkaa yöllä kello 3.
+
+## Huomenna on poutainen sää
+
+![Sääkartat sunnuntai-tiistai.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11312514)
+
+Avaa kuvien katselu
+
+Sää lämpenee lähipäivinä. Kuva: Yle
+
+Huomenna sunnuntaina on lähes koko maassa poutainen sää.
+
+Huomenna on lämpimämpää kuin tänään ja tuuli tyyntyy.
+
+Lähipäivinä sää lämpenee vielä lisää.

@@ -1,0 +1,7 @@
+# Torstai 30.11.2017 (tv)
+
+Sauli Niinistö on suosituin presidenttiehdokas. Helsingin kaupunki on päättänyt parantaa paperittomien terveyspalveluja. Britannian prinssi William on vierailulla Suomessa. Ateenan Suomi-koulun terveiset. Sää on sateista.
+
+Yle Uutiset selkosuomeksi
+
+Sauli Niinistö on suosituin presidenttiehdokas. Helsingin kaupunki on päättänyt parantaa paperittomien terveyspalveluja. Britannian prinssi William on vierailulla Suomessa. Ateenan Suomi-koulun terveiset. Sää on sateista.

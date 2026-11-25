@@ -1,0 +1,69 @@
+# Perjantai 6.11.2020 (radio)
+
+USA:ssa jännitetään vaalitulosta. Kasvomaskit tukkivat viemäreitä. Koroanartunnat Suomessa. Svenska Dagen. Sää on harvinaisen lämmintä.
+
+## USA:n vaalit
+
+![Kuvapari Trump – Biden](https://img.img-cdn.yle.fi/crop_extract,w_3200,h_1800,x_0,y_75/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7373775fa0d549ee9d9/1604399078)
+
+Avaa kuvien katselu
+
+Donald Trump ja Joe Biden. Kuva: AFP / Lehtikuva
+
+USA:ssa on jatkettu presidentinvaalien ääntenlaskentaa. Tunnelma USA:ssa on ollut jännittynyt, koska tilanne vaaleissa on ollut hyvin tasaväkinen.
+
+Presidentti **Donald Trump** on taas haukkunut vaaleja vilpillisiksi. Trump sanoi, että **Joe Bidenin** kannattajat yrittävät varastaa vaalivoiton.
+
+Trumpin puheita vaalivilpistä pidetään valeina. Vaalivilppiä ei ole tullut ilmi USA:ssa.
+
+## Kasvomaskit tukkivat viemäreitä
+
+![Vessanpönttö. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8954546)
+
+Avaa kuvien katselu
+
+WC-pönttöön ei saa heittää kasvomaskeja tai puhdistusliinoja. Kuva: Julia Sieppi / Yle
+
+Kasvomaskien käyttö aiheuttaa ympäristöongelmia. Ihmiset ovat heittäneet kasvomaskeja esimerkiksi wc-pönttöön ja viemäreitä on mennyt tukkoon.
+
+Tukoksia viemäreihin ovat aiheuttaneet myös desinfioivat puhdistusliinat, koska niitä on heitetty wc-pönttöön. Esimerkiksi Kouvolassa huoltomies on joutunut avaamaan terveysaseman viemäriputket jo 3 kertaa, koska kasvomaskit ovat tukkineet putket.
+
+Kasvomaskeja tai puhdistusliinoja ei saa heittää viemäriin.
+
+## Suomen koronatartunnat
+
+![Kuvassa on testausvälineitä Helsingin Messukeskuksen drive-in-testauspisteellä lokakuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_3712,h_2088,x_0,y_661/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7274425f7da70564124/1602485444)
+
+Avaa kuvien katselu
+
+Koronatestin koeputkia. Kuva: Silja Viitala / Yle
+
+Suomessa on raportoitu perjantaina 266 uutta koronavirustartuntaa. Koronatartuntoja on ollut 2 viikon aikana 17 enemmän kuin edellisen 2 viikon aikana.
+
+Uusia kuolemantapauksia on raportoitu perjantaina 1.
+
+## Svenska Dagen
+
+![Peppi Pitkätossu -pehmolelu Lahden kaupunginkirjastossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10114413)
+
+Avaa kuvien katselu
+
+Kirjastossa ruotsalaisuuden päivä huomioitiin esimerkiksi Peppi-Pitkätossu -kirjoilla. Kuva: Emilia Malin / Yle
+
+Perjantaina on vietetty Ruotsalaisuuden päivää eli Svenska dagenia. Koronatilanteen takia perinteisiä tapahtumia ei tänä vuonna järjestetty.
+
+Ruotsalaisuuden päivä eli Svenska dagen juhlistaa sitä, että suomenruotsalaiset saavat käyttää Suomessa ruotsin kieltä, joka on heille äidinkieli.
+
+## Sää
+
+![Viinkoloppu on aurinkoinen lähes koko maassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11635458)
+
+Avaa kuvien katselu
+
+Sää on viikonloppuna melko lämmintä ja monilla alueilla aurinkoista. Kuva: Yle
+
+Suomessa on ollut perjantaina tosi lämmintä. Ahvenanmaalla lämpötila oli melkein 17 astetta. Lounais-Suomessa lämpötila oli noin 13 astetta. Tavallisesti marraskuussa on paljon kylmempää.
+
+Lauantaina on enimmäkseen poutaa eli ei sada ja myös aurinko paistaa.
+
+Lämpötila on noin 10 astetta. Lapissa on viileämpää ja sataa lunta ja räntää.

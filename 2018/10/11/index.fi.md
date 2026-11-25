@@ -1,0 +1,71 @@
+# Torstai 11.10.2018 (radio)
+
+Pääministeri Sipilä aikoo kysyä eduskunnalta, luottaako se hallituksen työllisyyspolitiikkaan. Avaruusraketin lähtö epäonnistui Kazakstanissa. Hirmumyrsky on tehnyt vahinkoja USA:ssa. Suomalaiset eivät juo alkoholia kovin usein. Sää lämpenee.
+
+## Hallituksen työllisyyspolitiikka
+
+![Pääministeri Juha Sipilä, työministeri Jari Lindström ja kokoomuksen eduskuntaryhmän puheenjohtaja Kalle Jokinen saapuivat tapaamaan mediaa eduskunnan Valtiosaliin ennen eduskunnan kyselytuntia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10452820)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä.
+
+Hallitus ei peru ehdotusta irtisanomislaista. Uudella lailla hallitus haluaa helpottaa työntekijöiden irtisanomista pienissä firmoissa. Työntekijöiden ammattiliitot vastustavat lakiehdotusta.
+
+Pääministeri Juha Sipilä aikoo nyt kysyä eduskunnalta, luottaako se hallituksen työllisyyspolitiikkaan. Irtisanomisten helpottaminen on osa työllisyyspolitiikkaa, Sipilä sanoo. Eduskunta äänestää hallituksen luottamuksesta ensi viikolla.
+
+Hallitus toivoo, että ammattiliittojen protestit vähenevät, jos eduskunta on hallituksen tukena. Ammattiliitot ovat esimerkiksi järjestäneet lakkoja irtisanomisten helpottamista vastaan.
+
+## Avaruusraketin lähtö epäonnistui
+
+![Sojuz-raketin laukaisu 11. lokakuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10451675)
+
+Avaa kuvien katselu
+
+Sojuz-raketti laukaistiin torstaina. Kuva: Bill Ingalls / NASA
+
+Avaruusraketin lähtö on epäonnistunut Kazakstanissa. Kazakstan on Venäjän ja Kiinan välissä.
+
+Kazakstanista laukaistiin Sojuz-raketti kohti avaruutta. Pian laukaisun jälkeen huomattiin moottorivika. Siksi raketin miehistön piti tehdä hätälasku.
+
+Raketissa oli 2 miehistön jäsentä. He eivät kuolleet. He pelastuivat käyttämällä kapselia, jossa oli laskuvarjo.
+
+Toinen miehistön jäsen oli amerikkalainen ja toinen venäläinen. He olivat matkalla kansainväliselle avaruusasemalle.
+
+## Hirmumyrsky USA:ssa
+
+![Kuvassa rakennuksen edustalla kylttejä, lautoja ja muuta romahtanutta rojua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10451241)
+
+Avaa kuvien katselu
+
+Michael-myrsky rikkoi taloja. Kuva: Dan Anderson / EPA
+
+Hirmumyrsky on tehnyt vahinkoja USA:ssa. Hirmumyrsky Michael iski esimerkiksi Floridaan. Myrskyn tuulet puhalsivat melkein 70 metriä sekunnissa.
+
+Michael-myrsky rikkoi taloja, kaatoi puita ja peitti katuja veden alle. Ainakin 2 ihmistä kuoli. Yli 700 000 ihmistä on ollut ilman sähköä.
+
+Myrskyvahinkojen korjaaminen kestää monta kuukautta.
+
+## Alkoholin juonti eri maissa
+
+![Koskenkorva-pulloja Alkossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763523)
+
+Avaa kuvien katselu
+
+Suomalaiset eivät juo alkoholia joka päivä. Kuva: Ismo Pekkarinen / AOP
+
+Suomalaiset eivät juo alkoholia kovin usein. Uusi tutkimus vertaa alkoholin käyttöä 8:ssa Euroopan maassa.
+
+Tutkimus kertoo, että 13 prosenttia espanjalaisista juo alkoholia joka päivä. Italiassa ja Ranskassa noin 10 prosenttia aikuisista juo alkoholia joka päivä.
+
+Pohjoismaissa ei juoda alkoholia yhtä usein. Vain 2 prosenttia suomalaisista, ruotsalaisista ja norjalaisista juo alkoholia joka päivä.
+
+## Viikonlopusta tulee kaunis
+
+![Syysaurinko paistaa kellastuvien koivujen reunustaman järven rannalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6880058)
+
+Avaa kuvien katselu
+
+Viikonloppuna on kaunis syyssää. Kuva: Mikko Tuomikoski / Yle
+
+Sää lämpenee. Perjantaina etelässä paistaa aurinko ja sää on lämmintä. Pohjoisessa on viileää ja pilvistä. Viikonloppu on lämmin suuressa osassa Suomea.

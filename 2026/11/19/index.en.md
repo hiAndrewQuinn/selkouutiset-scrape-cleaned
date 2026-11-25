@@ -1,59 +1,61 @@
-# Clear News | Wednesday 18.11.2026
+# Clear News | Thursday 19.11.2026
 
-Unemployment is decreasing. Foreign companies are protecting Finnish nature. Hazard information.
+Border law. Slush event. GTA video game. Weather
 
-## Unemployment is decreasing
+## Finland continued the border law
 
-First, the news about unemployment.
+First, the topic is border law.
 
-The Ministry of Employment and the Economy predicts that employment will improve by the end of the year.
+Finland extends border law for two years.
 
-However, there will still be 340,000 Finns without work next year.
+The Border Act can prevent asylum seekers from entering Finland if Finland's security is threatened.
 
-In 2028, there will be slightly fewer unemployed people, 328,000.
+The Parliament passed a temporary border law in 2024. The reason was that a large number of asylum seekers quickly arrived at Finland's eastern border. Finland suspected that the Russian state was organizing the asylum seekers at the border.
 
-The ministry predicts that employment will improve by the end of the year.
+Finland extends border law for two years.
 
-The growth of the Finnish economy affects the number of jobs in different sectors.
+Two parties in Parliament, the Left Alliance and the Greens, voted against the law. The parties say that the border law violates the constitution.
 
-## Finnish nature conservation
+Other parties voted in favor of the border law.
 
-Now about nature conservation.
+## Slush event in Helsinki
 
-Foreign companies want to donate money to protect Finnish nature.
+Next, news about a big corporate event in Finland.
 
-Foundations focused on nature conservation have noticed that there are an increasing number of such companies.
+The Slush corporate event is now in Helsinki.
 
-These companies usually operate in Finland. They want to compensate for the damage they have caused.
+At the Slush event, investors meet new entrepreneurs. Investors are looking for growth companies, or start-ups, to which they can give money.
 
-For example, there is a bog in Hartola, for the protection of which a Spanish travel agency donated money.
+Investors in Slush have over 4,000 billion euros in money.
 
-Foreign companies want to donate money to protect Finnish nature.
+The Slush event is now in Helsinki. It started yesterday and ends today.
 
-**Perttu** **Saarinen** works as a biologist at the For a Better Nature Foundation.
+Slush has approximately 12,000 participants. CEO **Noora Saksa** says that Slush has been built by 2,000 young people.
 
-He says that rare birds live in the swamp. The foundation protects nature with money donated by companies.
+– This is a glimmer of light that makes all of Finland and our society dare to be braver.
 
-## New hazard notice
+## The popular GTA game was released
 
-Now about the hazard announcements.
+Finally, news about the hugely popular video game GTA VI.
 
-Yesterday, Finland tested sending hazard information directly to a phone.
+The sixth installment of the video game Grand Theft Auto was released yesterday. The game is so popular that many players took time off for the new release.
 
-However, the new FI-Alert warning did not reach all phones. For some, the message first arrived in the Sámi language.
+For example, **Jasper Kautiainen** is taking two days off because he just wants to play a new game. Kautiainen says the game looked really cool.
 
-The Home Office admits it did not provide enough guidance before the test.
+The sixth installment of the video game Grand Theft Auto was released yesterday.
 
-Yesterday, Finland tested sending hazard alerts directly to phones.
+An estimated 17 million copies of GTA VI have been pre-sold.
 
-The system will be tested next Tuesday.
+The game took eight years to make. It cost around a billion dollars to make. GTA VI has received much praise from critics.
 
-## Weather
+## Friday weather
 
 Still a weather forecast.
 
-The weather will be changeable on Thursday.
+It will rain in the south tomorrow.
 
-There may be light rain in many places. Snow will fall in the north.
+In southwestern Finland, it may also rain sleet or snow.
 
-Temperatures vary from -4 degrees to +5 degrees.
+It may snow in central and northern Finland.
+
+It's freezing in Lapland. Elsewhere it's above zero.

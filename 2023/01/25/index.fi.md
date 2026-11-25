@@ -1,0 +1,89 @@
+# Keskiviikko 25.1.2023 (radio)
+
+Leopard-panssarivaunut. Vapaa media. Posti. Lastensuojelu. Sää.
+
+## Leopard-panssarivaunut
+
+![Leopard-panssarivaunu ajaa lumisessa maisemassa.](https://img.img-cdn.yle.fi/crop_extract,w_3641,h_2047,x_0,y_226/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106340163d01a10a99b1/1674620806)
+
+Avaa kuvien katselu
+
+Saksalta on on pitkään odotettu päätöstä Leopard-panssarivaunujen lähettämiseksi Ukrainaan. Kuva: Kimmo Mäntylä / Lehtikuva
+
+Saksa on antanut luvan Leopard-panssarivaunujen toimittamiselle Ukrainaan.
+
+Nyt kaikki maat, joilla on Leopard-panssarivaunuja, voivat lähettää niitä Ukrainaan. Monet maat ovat odottaneet lupaa Saksalta, joka on Leopardien valmistaja.
+
+Ainakin Puola, Espanja, Portugali, Norja ja Hollanti ovat jo ilmoittaneet, että ne aikovat lähettää Leopardeja Ukrainaan. 
+
+Saksa lähettää Ukrainaan itse 14 panssarivaunua. Ukrainalaissotilaiden kouluttaminen Saksassa alkaa pian.
+
+Panssarivaunut on tarkoitettu auttamaan Ukrainaa Venäjän hyökkäyssodassa.
+
+## Suomen apu Ukrainalle
+
+![Mikko Savola.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1048963639b28d59ee5d/1671113181)
+
+Avaa kuvien katselu
+
+Puolustusministeri Mikko Savola (kesk.) Kuva: Sakari Piippo / Yle
+
+Puolustusministeri Mikko Savola kertoo, että myös Suomi osallistuu Leopard-hankkeeseen. 
+
+Vielä ei ole varmaa, lähettääkö Suomi panssareita vai onko Suomi muuten mukana. Savola kertoo, että valtiojohto valmistelee asiaa yhdessä puolustusvoimien kanssa. 
+
+Suomi ei voi lähettää suurta määrää sotilastarvikkeita, koska Suomen pitää huolehtia oman maan puolustuksesta. 
+
+## Vapaa media
+
+![Lehtiä (Länsiväylä) linjastolla Tuusulan painotalossa 17.9.2019.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_384/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5926655d8496b412f98/1569850883)
+
+Avaa kuvien katselu
+
+Lehtiä linjastolla Tuusulan painotalossa. Kuva: Katriina Laine / Yle
+
+Lähes kaikki suomalaiset ovat sitä mieltä, että vapaa media on tärkeä toimivan demokratian kannalta. Medialiiton mielipidetutkimus kertoo, että tätä mieltä on 93 prosenttia vastaajista.
+
+Lähes yhtä moni sanoo, että luotettava tieto on tärkeää tai erittäin tärkeää henkiselle huoltovarmuudelle. Huoltovarmuus tarkoittaa varautumista mahdollisiin kriiseihin ja häiriötilanteisiin.
+
+## Posti
+
+![Postin kuljettajia suojatiellä.](https://img.img-cdn.yle.fi/crop_extract,w_2877,h_1619,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9454736264d7b5430db/1650776051)
+
+Avaa kuvien katselu
+
+Vuoropäiväjakelu tarkoittaa sitä, että posti jaettaisiin yhdellä viikolla maanantaina, keskiviikkona ja perjantaina ja seuraavalla viikolla tiistaina ja torstaina. Kuva: Jussi Nukari / Lehtikuva
+
+Kirjepostin jakelu on muuttumassa koko maassa kolmipäiväiseksi. Eduskunta on hyväksynyt postilain muutoksen.
+
+Muutoksen peruste on se, että perinteistä paperipostia lähetetään yhä vähemmän. 
+
+Lakimuutoksen jälkeen koko maassa postia jaetaan vuoropäivinä. Muutos on tulossa voimaan lokakuun alusta. Posti on jo kokeillut vuoropäiväjakelua useilla alueilla.
+
+Sanomalehtien jakeluun tulee määräaikainen valtiontuki.
+
+## Lastensuojelu
+
+![Lapsi keinuu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11654231)
+
+Avaa kuvien katselu
+
+Lastensuojelussa sosiaalityötekijöillä voi olla liikaa asiakkaita. Kuva: Silja Viitala / Yle
+
+Monella lastensuojelun sosiaalityöntekijällä on liikaa asiakkaita. 
+
+14 prosentilla on enemmän asiakkaita kuin laki sallii. Laissa sanotaan, että yhdellä sosiaalityöntekijällä saa olla enintään 35 asiakasta. 
+
+Lastensuojelun sosiaalityössä työskentelee kokoaikaisesti yli 1 200 sosiaalityöntekijää.
+
+Tiedot ovat THL:n eli Terveyden ja hyvinvoinnin laitoksen kuntakyselystä.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688318)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on laajalti aurinkoinen. Etelässä ja idässä on pilvistä ja paikoin sataa vähän vettä tai räntää. Lämpötila on 0 ja -6 asteen välillä. Etelässä on 1 -2 lämpöastetta.

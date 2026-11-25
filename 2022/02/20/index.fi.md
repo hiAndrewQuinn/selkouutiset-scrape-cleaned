@@ -1,0 +1,79 @@
+# Sunnuntai 20.2.2022 (radio)
+
+Suomen olympiamitalit. Nuorten naisten tulevaisuus. Työkokemus. Saimaannorppa. Sää
+
+## Suomelle jääkiekon olympiakulta
+
+![Leijonien kultajoukkueen joukkuekuva.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_32/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9178246211e7ac6deba/1645340631)
+
+Avaa kuvien katselu
+
+Olympiakulta jääkiekossa oli Suomelle ensimmäinen. Maailmanmestaruuskisoissa Suomi on voittanut kultaa 3 kertaa. Kuva: Getty Images
+
+Suomen jääkiekkojoukkue on voittanut kultaa Pekingin talviolympialaisissa. Venäjän olympiakomitean joukkue kaatui loppuottelussa maalein 2-1.
+
+Yle Puheessa riemuitsi selostaja Simo Leinonen. Kultamitali oli Suomen ensimmäinen jääkiekon olympiakulta. Maalit tekivät Ville Pokka ja Hannes Björninen.
+
+Pääministeri Sanna Marin ja kulttuuriministeri Antti Kurvinen ovat onnitelleet Suomen joukkuetta eli Leijonia.
+
+Myös tasavallan presidentti Sauli Niinistö kirjoitti onnittelut twitterissä: "Leijona kesytti karhun. Onnea, vakaa ja vahva Joukkue!" Niinistö sanoi.
+
+Suomi sai tänään myös toisen mitalin. Kerttu Niskanen hiihti aamulla pronssille 30 kilometrillä.
+
+Suomi saavutti kisoista yhteensä 2 kultaa, 2 hopeaa ja 4 pronssia.
+
+## Nuorten naisten huolet
+
+![Nainen asettaa luottokorttia maksupäätteeseen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10748534)
+
+Avaa kuvien katselu
+
+Eniten tulevaisuuten luottavat naiset, joilla oli työsuhde, hyvä taloustilanne ja korkeampi koulutus. Kuva: AOP
+
+Joka viides nuori nainen on huolissaan tulevaisuuden uranäkymistä. Jyväskylän yliopiston tutkimus kertoo, että huoli vaikuttaa myös päätöksiin lasten hankkimisesta.
+
+Eniten tulevaisuuteen luottavat naiset, joilla oli työsuhde, hyvä taloustilanne ja korkeampi koulutus. Myös asuinpaikka pääkaupunkiseudulla vaikutti.
+
+Muilla huoli oli suurempi, ja moni oli valmis lykkäämään perhehaaveita työsyiden takia.
+
+Yksi muutos voi olla perhevapaauudistus. Siinä vanhempainvapaat voidaan jakaa tasaisemmin puolisoiden välillä.
+
+## Työkokemus
+
+![Työntekijä kävelee työpaikkansa varastossa.](https://img.img-cdn.yle.fi/crop_extract,w_5387,h_3030,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7472395fc0d0ffde0d6/1699343871)
+
+Avaa kuvien katselu
+
+Työpaikkaa on vaikea saada, jos aiempaa työkokemusta on vain vähän. Myös heikko koulutus haittaa työpaikan saamista. Kuva: Tiina Jutila / Yle
+
+Suomalaisfirmoilla on vaikeuksia palkata uusia työntekijöitä. Yleisin syy on se, että hakijoilla on liian vähän työkokemusta.
+
+Näin kertoo Elinkeinoelämän keskusliiton kysely.
+
+Palkkaamista vaikeuttavat myös huono erityisosaaminen ja vähäinen koulutus.
+
+## Saimaannorpan talvi
+
+![Saimaannorpan poikanen, kuutti, huhtikuussa 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10744965)
+
+Avaa kuvien katselu
+
+Lumettomat talvet ovat vaarallisia saimaannorpalle. Kuva: Ismo Marttinen
+
+Saimaannorpan pesinnälle on tänä vuonna hyvät olosuhteet. Talvella on satanut paljon lunta ja tuulet ovat tehneet hyviä kinoksia.
+
+Saimaannorppa synnyttää poikasen pesään, jonka se on kaivanut lumikinokseen. Lumipesä suojaa kuutteja petoeläimiltä ja kylmältä.
+
+Saimaannorppia elää vain Saimaa-järvessä Suomessa.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12326655)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Maanantaina etelään saapuu lumipyry. Lumisade on illalla ja tiistaiyönä sakeaa. Lunta voi sataa paikoin jopa 30 cm. Etelässä on vähän pakkasta, pohjoisessa 10 - 13 astetta.
+
+Pohjoisessa kylmenee alkuviikolla ja sää on melko aurinkoista.

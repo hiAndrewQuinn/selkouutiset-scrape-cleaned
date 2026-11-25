@@ -1,0 +1,75 @@
+# Perjantai 25.11.2016 (radio)
+
+Suomessa puhutaan pääministeri Juha Sipilän sukulaisten firmasta. Salossa suljetaan tehdas, joka valmistaa led-valoja. Monissa kaupoissa on ollut Black Friday eli Musta perjantai. Pian on aika lähettää jouluposti. Kaamos on alkanut Pohjois-Lapissa.
+
+## Pääministeri
+
+![Pääministeri Juha Sipilä Terrafamen tehtaalla 14.11.2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9316551)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä. Kuva: Jonna Karjalainen / Yle
+
+Suomessa puhutaan pääministeri Juha Sipilän sukulaisten firmasta. Se sai ison tilauksen Terrafamelta, joka on valtion firma.
+
+Terrafame tunnettiin ennen nimellä Talvivaaran kaivos. Kaivoksella on ollut isoja ongelmia, ja se on saanut rahaa valtiolta. Viimeksi 2 viikkoa sitten hallitus päätti antaa Terrafamelle 100 miljoonaa euroa.
+
+Jotkut kysyvät nyt, onko oikein, että pääministerin sukulaiset tekevät bisnestä firman kanssa, joka on saanut valtiolta rahaa.
+
+Pääministeri Sipilä sanoo, että hänellä ei ole ollut mitään tietoa sukulaisten toimista.
+
+## Led-tehdas
+
+![Oululaisen Valopaa Oy:n ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7146397)
+
+Avaa kuvien katselu
+
+Led-valoja. Kuva: Pekka Loukkola / Yle Oulu
+
+Salossa suljetaan tehdas, joka valmistaa led-valoja. Tehtaan omistaja on Hella Lightning Finland. Se sulkee Salon tehtaan Suomessa ja alkaa valmistaa led-valoja Romaniassa.
+
+Tehtaan työntekijät ovat surullisia. Tehtaan sulkemisen takia 165 ihmistä menettää työpaikan. Tehdas suljetaan vähitellen vuoden 2018 loppuun mennessä.
+
+## Black Friday
+
+![Jonoa XXL-liikkeessä perjantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9317051)
+
+Avaa kuvien katselu
+
+Black Friday toi kauppoihin paljon asiakkaita. Kuva: Yle
+
+Monissa kaupoissa on ollut Musta perjantai eli Black Friday. Kaupat ovat myyneet tavaroita paljon halvemmalla kuin tavallisesti.
+
+Halvat hinnat ovat tuoneet kauppoihin tosi paljon asiakkaita. Verkkokaupoissa Black Friday alkoi jo yöllä. Black Friday kiinnostaa eniten nuoria, alle 35-vuotiaita.
+
+Black Friday tulee USA:sta. Suomessa monissa kaupoissa on halvat hinnat koko viikonlopun. Niillä on Black Weekend.
+
+## Jouluposti
+
+![Joulupostikuori ja kirjeitä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7722970)
+
+Avaa kuvien katselu
+
+Joulukortit Euroopan ja Pohjois-Amerikan ulkopuolelle pitää lähettää jo 1.12. Kuva: Mari Siltanen / Yle
+
+Joulu lähestyy, ja pian on aika lähettää jouluposti.
+
+Jos haluaa lähettää joulukortin Suomeen tai Pohjoismaihin, se pitää lähettää viimeistään joulukuun 14. päivä. Eurooppaan, Kanadaan ja USA:han kortti pitää lähettää vähän aikaisemmin.
+
+Muihin maihin eli Euroopan ja Pohjois-Amerikan ulkopuolelle kortit pitää lähettää jo joulukuun 1. päivä. Silloin ne ehtivät perille ennen joulua.
+
+Jos haluaa lähettää joulupaketin Suomeen, se pitää lähettää jouluviikon alkupuolella. Kauas Suomesta paketti pitää lähettää jo 7. joulukuuta.
+
+## Kaamos
+
+![Kaamos](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5817435)
+
+Avaa kuvien katselu
+
+Kaamosaikana myös päivällä on melko pimeää. Kuva: YLE
+
+Talven kaamos on alkanut Pohjois-Lapissa.
+
+Kaamos tarkoittaa sitä, että aurinko ei nouse. Kaamosaikana myös päivällä on pimeää tai hämärää.
+
+Kaamos tulee Pohjois-Suomeen joka talvi. Aivan pohjoisessa, Utsjoella, aurinko nousee seuraavan kerran vasta tammikuun 16. päivä.

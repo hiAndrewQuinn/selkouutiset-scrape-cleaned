@@ -1,0 +1,75 @@
+# Torstai 31.1.2019 (radio)
+
+Hallituspuolueet eri mieltä vanhustenhoidosta. Huijarit esittivät poliisia. Lapset ja nuoret liikkuvat liian vähän. Suomalaiset pelaavat digipelejä. Sää kylmenee.
+
+## Hallituspuolueet eri mieltä
+
+![Hoitaja pitää vanhusta kädestä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10623774)
+
+Avaa kuvien katselu
+
+Hoivakodeilla on suositus, että hoitajia pitää olla tietty määrä. Suositusta ei ole pakko noudattaa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Suomessa on viime päivinä puhuttu paljon vanhusten huonosta hoitamisesta. Vanhuksia on hoidettu huonosti hoivakodeissa, koska hoitajia on liian vähän.
+
+Suomen hallituspuolueet ovat eri mieltä siitä, miten vanhustenhoitoa yritetään parantaa. Keskusta ja Siniset sanovat, että pitää tehdä laki, joka määrää kuinka paljon hoitajia pitää olla. Kokoomuksen mielestä lakia ei tarvita.
+
+Nyt hoivakodeilla on vain suositus siitä, että hoitajia pitää olla tietty määrä.
+
+## Huijarit joutuvat vankilaan
+
+![Poliisin varoitustarra.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10034545)
+
+Avaa kuvien katselu
+
+Poliisi muistuttaa, että pankkitunnuksia ei tarvitse kertoa kenellekään. Kuva: Petri Lassheikki / Yle
+
+4 miestä joutuu vankilaan, koska he esiintyivät poliiseina.
+
+Miehet etsivät numerotiedustelusta puhelinnumeroita ihmisille, joiden etunimi kuulosti vanhalta. Sitten he soittivat ihmisille ja sanoivat, että poliisi soittaa. Miehet saivat vanhoilta ihmisiltä pankkitunnukset ja tunnusluvut. He veivät rahaa vanhusten pankkitileiltä.
+
+Miehet saivat rahaa yli 800 000 euroa.
+
+Poliisi muistuttaa, että oikea poliisi ei koskaan soita ja kysy pankkitunnuksia.
+
+## Lasten ja nuorten pitää liikkua enemmän
+
+![FC Kuusysin P9-joukkueen harjoitukset Lahdessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10620988)
+
+Avaa kuvien katselu
+
+Pienet lapset liikkuvat paljon. Teini-ikäiset eivät enää liiku niin paljon. Kuva: Lauri Rautavuori / Yle
+
+Lapset ja nuoret liikkuvat liian vähän, selviää tutkimuksesta.
+
+Tutkimuksessa 3000 lapsella oli mittari, joka mittasi, kuinka paljon he liikkuvat. Vain kolmasosa lapsista ja nuorista liikkui reippaasti vähintään tunnin joka päivä.
+
+Tutkimuksen tuloksista selvisi myös, että liikunta ei enää ole lapsille ja nuorille niin tärkeää. Asiantuntijat sanovat, että se on huolestuttavaa.
+
+Lasten ja nuorten pitää liikkua joka päivä reippaasti ainakin yksi tunti.
+
+## Suomalaiset pelaavat kännykällä
+
+![Mies ja nainen räpläävät kännyköitä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10598277)
+
+Avaa kuvien katselu
+
+Kaikenikäiset suomalaiset pelaavat kännykällä. Kuva: Petri Aaltonen / Yle
+
+Suomalaiset pelaavat melko paljon digitaalisia pelejä, esimerkiksi kännykällä.
+
+40 prosenttia suomalaisista pelaa ainakin joskus.
+
+Teini-ikäiset pojat pelaavat kaikkein eniten. Aikuisista miehistä puolet pelaa pelejä ja naisista kolmasosa.
+
+## Sää kylmenee
+
+![Talviaamu talvi pakkanen aurinko kuura sää](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10621996)
+
+Avaa kuvien katselu
+
+Lunta sataa vielä lisää Etelä- ja Länsi-Suomeen. Kuva: Jani Aarnio / Yle
+
+Sää kylmenee taas. Huomenna perjantaina Etelä- ja Länsi-Suomessa sataa lunta.
+
+Pakkasta on koko maassa. Etelä-Suomessa pakkasta on noin 10 astetta ja Pohjois-Suomessa yli 20 astetta.

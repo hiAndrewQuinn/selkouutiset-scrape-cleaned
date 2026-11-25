@@ -1,0 +1,7 @@
+# Maanantai 25.6.2018 (tv)
+
+Recep Tayyip Erdoğan voitti Turkin presidentinvaalit. Mökin vuokraaminen on nykyään tavallista. Helsingin kaupunki suunnittelee Herttoniemeen paikkaa asuntoveneille. Taiteilijat maalavat rakennuksia, jotka pian puretaan. Sää lämpenee.
+
+Yle Uutiset selkosuomeksi
+
+Recep Tayyip Erdoğan voitti Turkin presidentinvaalit. Mökin vuokraaminen on nykyään tavallista. Helsingin kaupunki suunnittelee Herttoniemeen paikkaa asuntoveneille. Taiteilijat maalavat rakennuksia, jotka pian puretaan. Sää lämpenee.

@@ -1,0 +1,57 @@
+# Torstai 26.4.2018 (radio)
+
+Yhä harvempi sosiaali- ja terveysalan johtaja uskoo hallituksen sote-uudistukseen. Yhä useampi suomalainen antaa omaisuuden kuoleman jälkeen hyväntekeväisyyteen tai jollekin järjestölle. Suomen väkiluvun kasvu on hidastunut vuoden alussa. Kevätväsymys on todellinen ilmiö.
+
+## Terveysalan usko sote-uudistukseen hiipuu
+
+![Pohjois-Karjalan keskussairaalan sisäänkäynti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9891106)
+
+Avaa kuvien katselu
+
+Kuva: Ismo Pekkarinen / AOP
+
+Sosiaali- ja terveysalan johtajien usko hallituksen sote-uudistukseen vähenee, kertoo tämän vuoden Sosiaalibarometri.
+
+Alan johtajista 45 prosenttia sanoo, että sote-uudistus on huono. Viime vuonna tätä mieltä oli 36 prosenttia. 32 prosenttia sote-johtajista sanoo, että uudistus on hyvä tai erittäin hyvä. 97 prosenttia uskoo, että suurten yritysten asema paranee sote-uudistuksessa. 73 prosenttia uskoo, että julkiset palveluntuottajat heikentyvät.
+
+Tiedot ovat Suomen sosiaali ja terveys ry:n sosiaalibarometrin ennakkotuloksia. Kyselyyn vastasi 154 sote-johtajaa. Sote-uudistus siirtää sosiaali- ja terveydenhuollon palvelut kunnilta maakunnille. Jokainen kansalainen saa myös itse valita, mistä hän hakee hoitoa.
+
+## Testamentit hyväntekeväisyyteen yleistyvät
+
+![Testamentin allekirjoitus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9269408)
+
+Avaa kuvien katselu
+
+Kuva: Tiina Kokko / Yle
+
+Yhä useampi suomalainen antaa omaisuuden kuoleman jälkeen hyväntekeväisyyteen tai jollekin järjestölle.
+
+Yksityishenkilöiden lahjoitukset ovat noin puolet yleishyödyllisten järjestöjen rahoista. Monet haluavat myös tukea lasten ja naisten hyvinvointia Suomessa ja kehitysmaissa Järjestöt uskovat, että testamentteja tulee lisää, koska yhä useampi suomalainen kuolee ilman perillisiä.
+
+Jos ihmisellä ei ole perillisiä eikä testamenttia, omaisuus menee kuoleman jälkeen valtiolle. Valtio sai viime vuonna melkein 26 miljoonaa euroa tällaisia varoja.
+
+## Suomessa syntyvyys oli alkuvuonna alempi kuin kuolleisuus
+
+![Vauva.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10143765)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+Suomen väkiluvun kasvu on vähän hidastunut vuoden alussa. Tilastokeskus kertoo, että väkiluku kasvoi tammi - maaliskuun aikana noin 580 hengellä. Se on yli 1100 vähemmän kuin viime vuoden alussa.
+
+Syy väestönlisäykseen oli muutto ulkomailta. Lapsia syntyi noin 2700 vähemmän kuin ihmisiä kuoli.
+
+## Kevätväsymys ei ole kuvittelua
+
+![Väsynyt nainen kahvikuppi kädessä jumppapalloon nojaten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10177258)
+
+Avaa kuvien katselu
+
+Kuva: Rui Santos / AOP
+
+Monet kärsivät kevätväsymyksestä. Olo voi olla väsynyt heti aamulla.
+
+Tutkimusprofessori Timo Partonen sanoo, että kevätväsymys on todellinen ilmiö. Kevätväsymys voi olla yleisempää kuin kaamosmasennus, joka on noin 30 prosentilla suomalaisista.
+
+Partonen sanoo, että valon lisääntyminen venyttää monella nukkumaan menoa. Valo voi myös tehdä unesta katkonaisen tai liian lyhyen. Silloin on hyvä miettiä, miten voi nukkua paremmin. Myös säännöllinen ruokarytmi auttaa. Partonen muistuttaa, että kuntoliikunnan lisääminen auttaa kevätväsymykseen.

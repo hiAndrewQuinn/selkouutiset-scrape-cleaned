@@ -1,0 +1,69 @@
+# Lauantai 18.5.2019 (radio)
+
+Terveydenhuolto on kallistunut enemmän kuin hinnat keskimäärin. Suomessa on otettu käyttöön koulurobotteja. Sri Lankassa on sisällissodan päättymisen vuosipäivä. Euroviisut kisataan illalla.
+
+## Terveydenhuolto on kallistunut
+
+![Lääkäri kuuntelee potilaan keuhkoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8103185)
+
+Avaa kuvien katselu
+
+Terveydenhuolto on nyt jopa 30 prosenttia kallimpaa kuin vuonna 2015. Kuva: Milla Takala / Lehtikuva
+
+Terveydenhuolto on kallistunut enemmän kuin hinnat keskimäärin.
+
+Terveydenhuolto on nyt 17 - 30 prosenttia kalliimpaa kuin vuonna 2015. Yleisesti kuluttajahinnat ovat nousseet noin 3 prosenttia vuodesta 2015.
+
+Suurin hinnannousu on terveyspalveluissa, joihin valtio ja kunnat voivat hallinnolla vaikuttaa. Vuonna 2016 Kela-korvauksia leikattiin ja maksuihin tuli 50 euron omavastuu. Viime vuonna sairaalamaksut nousivat.
+
+Tilastot kertovat, että reseptilääkkeiden hinnat ovat laskeneet melkein 20 prosenttia vuodesta 2015. Alennus ei kuitenkaan näy asiakkaalla. Syy on se, että samaan aikaan Kela-korvaukset laskivat.
+
+## Robotti auttaa sairasta lasta koulunkäynnissä
+
+![Tablettitietokone.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7857273)
+
+Avaa kuvien katselu
+
+Oppilas voi esimerkiksi sairaalassa tai kotona käydä koulua robotin ja tabletin avulla. Kuva: Mikko Kuusisalo / Yle
+
+Suomessa on otettu käyttöön koulurobotteja.
+
+Pitkäaikaissairaat lapset voivat osallistua oman luokan opetukseen robotin avulla. Robotti on luokassa ja välittää videokuvaa lapselle, joka on kotona tai sairaalassa. Kuva näkyy oppilaan tablettitietokoneella.
+
+Oppilas voi viitata ja puhua robotin kautta tabletin avulla. Hän voi myös kääntää robotin päätä, jossa on kamera.
+
+Robotin avulla voi myös keskustella luokkakavereiden ja opettajan kanssa. Myös ryhmätöiden tekeminen on mahdollista robotin avulla.
+
+Robotteja on käytössä noin 10 kunnassa.
+
+## Sri Lankassa on vietetty muistopäivää
+
+![Kaksi srilankalaista lukevat sanomalehteä kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10750374)
+
+Avaa kuvien katselu
+
+Sri Lankassa sisällissodan päättymisen muistopäivää varjostaa terrorismin uhka. Kuva: M.A. Pushpa Kumara / AOP
+
+Sri Lankassa on sisällissodan päättymisen vuosipäivä. Sisällissota päättyi 10 vuotta sitten.
+
+Viikonloppuna on muistettu sodan uhreja. Turvatoimet ovat tiukat, koska maassa on ollut levotonta pääsiäisen terrori-iskujen jälkeen.
+
+Sota Sri Lankan hallituksen ja tamilikapinallisten välillä kesti melkein 40 vuotta. Sodassa kuoli ainakin 100 000 ihmistä ja yli 20 000 ihmistä katosi.
+
+Sodan jälkeen Sri Lankan talous lähti kasvuun. Maasta tuli suosittu turistikohde. Pääsiäisen terrori-iskut kuitenkin katkaisivat rauhallisen ajanjakson. Melkein 260 ihmistä kuoli, kun ääri-islamistit iskivät kirkkoihin ja hotelleihin.
+
+## Euroviisujen finaali on lauantai-iltana
+
+![Yleisnäkymä lavalla jossa euroviisujuontajat Assi Azar, Lucy Ayoub, Bar Refaeli ja Erez Tal.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10783092)
+
+Avaa kuvien katselu
+
+Kuva: Abir Sultan / EPA
+
+Eurovision laulukilpailun finaali on tänään. Finaalissa Israelissa Tel Avivissa on 26 maata.
+
+Suomen euroviisuedustaja Darude eli Ville Virtanen karsiutui kilpailusta jo ensimmäisessä semifinaalissa.
+
+Israelin yleisradioyhtiö kertoo, että myös popin supertähti Madonna esittää viisufinaalissa 2 kappaletta.
+
+Lähetys euroviisuista alkaa Radio Suomessa kello 22.05 ja TV1:ssä kello 21.25.

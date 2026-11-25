@@ -1,0 +1,67 @@
+# Keskiviikko 7.3.2018 (radio)
+
+Euroopan unioni ja USA riitelevät tullimaksuista. Poliisi on paljastanut rikollisryhmän, joka on tuonut huumausaineita Suomeen. Australialainen perhe on löytänyt maailman vanhimman pullopostin. Selkokirjailija Satu Leisko on kirjoittanut uuden selkokirjan maahanmuuttajista.
+
+## Riita tullimaksuista
+
+![Yhdysvaltain presidentti Donald Trump.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10103361)
+
+Avaa kuvien katselu
+
+Presidentti Trump suunnittelee tullimaksuja. Kuva: Olivier Douliery / EPA
+
+Euroopan unioni ja USA riitelevät talousasioista. Riidan aihe on tullimaksut. Euroopan unioni aikoo ottaa tullimaksut käyttöön, jos myös USA tekee niin.
+
+USA aikoo määrätä tullimaksut esimerkiksi teräkselle. Tullimaksut nostavat eurooppalaisen teräksen hintaa USA:ssa. Presidentti Donald Trump toivoo, että amerikkalaiset tehtaat käyttävät sen jälkeen enemmän amerikkalaista terästä.
+
+Jos USA määrää eurooppalaiselle teräkselle tullimaksut, EU aikoo määrätä tullimaksut joillekin amerikkalaisille tavaroille. Sen jälkeen niiden hinta nousee Euroopassa.
+
+Firmat kärsivät tullimaksuista, koska ne vähentävät kauppaa maiden välillä.
+
+## Huumausaineiden kuljetus
+
+![Huumausaineita paketissa poliisin hallussa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10105375)
+
+Avaa kuvien katselu
+
+Poliisi löysi Tampereen alueelta huumausaineita. Kuva: Poliisi
+
+Poliisi on paljastanut rikollisryhmän, joka on tuonut huumausaineita Suomeen. Ryhmä toimi Tampereen alueella.
+
+Ryhmä toi Suomeen paljon vaarallisia huumausaineita. Se toi Suomeen amfetamiinia, ekstaasia ja kokaiinia.
+
+Suomalaiset rikolliset kuljettivat huumausaineita yhdessä hollantilaisten rikollisten kanssa.
+
+Suomen poliisi on saanut apua ulkomailta, kun se on tutkinut asiaa.
+
+## Vanha pulloposti
+
+![132 vuotta vanha pullo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10105217)
+
+Avaa kuvien katselu
+
+Tämä pullo ja viesti heitettiin mereen 132 vuotta sitten. Kuva: Kym Illman / AFP
+
+Sitten uutinen kaukaa Australiasta.
+
+Australialainen perhe on löytänyt maailman vanhimman pullopostin. Perhe löysi vanhan pullon hiekkarannalta. Pullon sisällä oli viesti, joka on kirjoitettu 132 vuotta sitten.
+
+Pulloposti heitettiin mereen saksalaiselta laivalta vuonna 1886. Laiva tutki merireittejä.
+
+Perhe on lainannut pullopostin australialaiselle museolle 2 vuodeksi. Niin myös muilla on mahdollisuus nähdä harvinainen vanha viesti.
+
+## Uusi selkokirja
+
+![Kaksi naista istuu lähekkäin ja hymyilee](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10105177)
+
+Avaa kuvien katselu
+
+Vasemmalla istuu selkokirjailija Satu Leisko ja oikealla Olga Karatasiou. Kuva: Minna Uusi-Eskola / YLE
+
+Selkokirjailija Satu Leisko on kirjoittanut uuden selkokirjan maahanmuuttajista. Kirjan nimi on Tulin Suomeen. Kirjassa 9 maahanmuuttajaa kertoo, miten he tulivat Suomeen. He kertovat vanhasta kotimaasta ja uudesta kodista Suomessa.
+
+Kirjan haastateltavat ovat Venäjältä, Turkista, Thaimaasta, Kreikasta, Unkarista, Vietnamista, Norsunluurannikolta, Irakista ja Jordaniasta. Kirjassa maahanmuuttajat saavat itse kertoa, mitä he ovat kokeneet.
+
+Selkouutisten nettisivulla voi katsoa Satu Leiskon ja Olga Karatasioun haastattelun. Karatasiou on yksi kirjan henkilöistä. Haastattelu löytyy osoitteesta yle.fi/selkouutiset.
+
+**Leiskon ja Karatasioun haastattelu**

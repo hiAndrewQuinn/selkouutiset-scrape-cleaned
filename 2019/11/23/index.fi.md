@@ -1,0 +1,75 @@
+# Lauantai 23.11.2019 (radio)
+
+Postin työriidan selvittely jatkuu. Suomi palauttaa turvapaikanhakijoita Venezuelaan. Suomalaisten mielestä äänestysikärajaa ei pidä laskea. Pöytällä on ammuttu merikotkaa. Monet kaupungit avaavat joulukauden.
+
+## Postin työriitaan ratkaisuehdotus
+
+![PAUn puheenjohtaja Heidi Nieminen kommentoi neuvottelutilannetta saavuttuaan valtakunnansovittelijan toimistolle lauantaina](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11083577)
+
+Avaa kuvien katselu
+
+PAU:n puheenjohtaja Heidi Nieminen. Kuva: Vesa Moilanen / Lehtikuva
+
+Postin työriitaan on tehty ratkaisuehdotus.
+
+Työryhmä, joka postin kiistaa selvittelee, on tehnyt ehdotuksen siitä, miten riita ratkaistaan. Ehdotuksen sisällöstä ei kerrota.
+
+Kiistan osapuolten eli työntekjäjärjestö PAU:n ja työantajajärjestö Paltan pitää antaa vastaus ehdotukseen huomenna iltapäivällä kello 15.
+
+Postin työriita koskee 700 ihmistä, jotka lajittelevat paketteja. Posti siirsi heidät halvempaan työehtosopimukseen ja PAU ei sitä hyväksy.
+
+Postilakko on jatkunut pian 2 viikkoa. Maanantaina on määrä alkaa myös useita muita lakkoja, joilla tuetaan postin työntekijöitä.
+
+## Suomi käännyttää Venezuelaan
+
+![Finlands ambassadör i Venezuela 2006-2013 Mikko Pyhälä](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5597495cc9e0436ab02/1556734284)
+
+Avaa kuvien katselu
+
+Suomen entinen Venezuelan-suurlähettiläs Mikko Pyhälä. Kuva: Yle
+
+Suomi on käännyttänyt turvapaikanhakijoita Venezuelaan.
+
+Suomen entinen Venezuelan-suurlähettiläs Mikko Pyhälä kertoo, että Suomi tehnyt käännytyksiä Venezuelaan, vaikka YK:n pakolaisjärjestö UNHCR on vedonnut kaikkiin maihin palautusten lopettamiseksi. UNHCR sanoo, että Venezuelan humanitaarinen tilanne on tosi huono. Sen takia ketään ei pidä palauttaa, ennen kuin olot Venezuelassa paranevat.
+
+Eteläamerikkalaisessa Venezuelassa on pulaa ruuasta ja lääkkeistä, puhtaasta vedestä ja sähköstä. Maan poliittinen tilanne on sekava ja rikollisuus ja väkivalta ovat lisääntyneet.
+
+## Äänestysikärajaa ei haluta alentaa
+
+![Mies kirjoittaa numeroa äänestyslappuun.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10746346)
+
+Avaa kuvien katselu
+
+Viime eduskuntavaalien äänestyslippu. Kuva: Kalle Mäkelä / Yle
+
+Suomalaisten mielestä nykyinen äänestysikäraja, 18 vuotta, on hyvä. Suurin osa suomalaisista on sitä mieltä, että äänestysikärajaa ei pidä laskea.
+
+Kunnallisalan kehittämissäätiö kysyi suomalaisilta, pitääkö äänestysikärajaa laskea 16 vuoteen. Vain runsaat 25 prosenttia vastaajista kannatti ikärajan laskemista. Melkein 60 prosenttia vastusti sitä.
+
+## Poliisi tutkii merikotkan ampumista
+
+![Merikotka lentää pilvettömällä taivaalla.](https://img.img-cdn.yle.fi/crop_extract,w_2100,h_1182,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-29871357a0defab9f2a/1683879934)
+
+Avaa kuvien katselu
+
+Merikotka on rauhoitettu lintu. Kuva: Yle, Risto Salovaara
+
+Poliisi epäilee luonnonsuojelurikosta Varsinais-Suomessa Pöytyällä.
+
+Pöytyältä löytyi tämän kuun puolivälissä merikotka, joka oli loukkaantunut ja huonokuntoinen. Merikotkan siivestä löytyi haulikon hauli eli lintua oli ammuttu. Linnun siipi oli myös murtunut, kun lintu oli pudonnut maahan.
+
+Poliisi muistuttaa, että merikotka on Suomessa rauhoitetettu lintu. Rauhoitettua lintua ei saa tappaa eikä vahingoittaa eikä edes tahallaan häiritä.
+
+## Joulukausi alkaa
+
+![Aleksanterinkatu jouluvalaistuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7646058)
+
+Avaa kuvien katselu
+
+Jouluvaloja Helsingin Aleksanterinkadulla muutama vuosi sitten.  Kuva: Yle
+
+Tänä viikonloppuna monissa kaupungeissa avataan joulukausi.
+
+Tänään joulunavausta on vietetty esimerkiksi Jyväskylässä, Riihimäellä, Kuopiossa ja Mikkelissä.
+
+Helsingissä Aleksin joulukatu avataan huomenna sunnuntaina.

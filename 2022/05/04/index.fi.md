@@ -1,0 +1,77 @@
+# Keskiviikko 4.5.2022 (radio)
+
+EU valmistelee uusia pakotteita Venäjälle. Britannia lupaa apua Suomelle ja Ruotsille. Suomalaisten maanpuolustustahto on korkealla. 30 äitiä saa kunniamerkin äitienpäivänä. Säätiedot.
+
+## Venäjä-pakotteet
+
+![Ursula von der Leyen.](https://img.img-cdn.yle.fi/crop_extract,w_3835,h_2157,x_0,y_18/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5750905d1c8494cac72/1562150155)
+
+Avaa kuvien katselu
+
+EU-komission puheenjohtaja Ursula von der Leyen kertoi uusista Venäjä-pakotteista. Kuva: Clemens Bilan / EPA
+
+EU-komissio esittää uusia pakotteita Venäjälle.
+
+Komissio esittää, että venäläisen raakaöljyn tuonti lopetetaan puolen vuoden kuluessa ja öljyjalosteiden tuonti vuoden loppuun mennessä. Komissio haluaa myös lisäpakotteita venäläispankeille.
+
+Myös henkilöpakotteita laajennetaan. Pakotelistalle lisätään esimerkiksi Venäjän armeijan upseereita ja ihmisiä, joita epäillään sotarikoksista Ukrainassa. Uutistoimisto AFP kertoo, että pakotelistalle lisätään myös Venäjän ortodoksikirkon johtaja, patriarkka Kirill.
+
+Pakotteet tulevat voimaan, jos EU-maat hyväksyvät ne yksimielisesti.
+
+## Britannian tuki
+
+![ Ison-Britannian puolustusministeri Ben Wallace ja puolustusministeri Antti Kaikkonen tapasivat mediaa Arrow 22 -harjoituksen mediapäivässä Niinisalossa.](https://img.img-cdn.yle.fi/crop_extract,w_4393,h_2471,x_0,y_50/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-95036762727c8a944e0/1651670184)
+
+Avaa kuvien katselu
+
+Britannian puolustusministeri Ben Wallace ja Suomen puolustusministeri Antti Kaikkonen. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Britannian puolustusministeri lupaa Britannian tukea Suomelle ja Ruotsille, jos ne päättävät hakea sotilasliitto Naton jäseneksi.
+
+Puolustusministeri Ben Wallace sanoo, että Britannia auttaa Suomea ja Ruotsia, jos ne joutuvat Venäjän toimien kohteeksi Nato-prosessin aikana.
+
+Wallace on vieraillut tänään Suomessa. Hän ja puolustusministeri Antti Kaikkonen kävivät yhdessä Satakunnassa katsomassa maavoimien isoa kansainvälistä sotaharjoitusta. Harjoitukseen osallistuu joukkoja myös Isosta-Britanniasta, Latviasta, Yhdysvalloista ja Virosta.
+
+## Maanpuolustustahto
+
+![Reserviläisryhmä kouluttajan ohjauksessa.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_387/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922127621e1f89efe30/1646141573)
+
+Avaa kuvien katselu
+
+Reserviläiset harjoittelevat paikallispuolustusta. Kuva: Ari Haimakainen / Yle
+
+Suomalaisten maanpuolustustahto on nyt korkealla.
+
+Elinkeinoelämän valtuuskunnan Evan tutkimuksessa 85 prosenttia suomalaisista sanoo, että on valmis auttamaan Suomen puolustusta miten parhaiten pystyy.
+
+36 prosenttia naisista ja 76 prosenttia miehistä on myös valmis puolustamaan Suomea ase kädessä.
+
+Venäjän hyökkäys Ukrainaan on lisännyt suomalaisten maanpuolustustahtoa.
+
+Vapaaehtoiseen maanpuolustuskoulutukseen on nyt paljon tulijoita, ja Reserviläisliittoon on alkuvuoden aikana liittynyt tuhansia uusia jäseniä.
+
+## Kunniamerkkejä äideille
+
+![Äitienpäivänä annettavia Suomen Valkoisen Ruusun I luokan mitaleita.](https://img.img-cdn.yle.fi/crop_extract,w_1346,h_757,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6729155eb55579ebfe8/1588942289)
+
+Avaa kuvien katselu
+
+Ansioituneet äidit saavat Suomen Valkoisen Ruusun ensimmäisen luokan mitalin kultaristein. Kuva: Samuli Miettinen / MLL
+
+30 äitiä saa tänä vuonna kunniamerkin äitienpäivänä.
+
+Äidit saavat Suomen Valkoisen Ruusun ensimmäisen luokan mitalin kultaristein. He saavat mitalit, koska ovat ansioituneet kasvattajina.
+
+Presidentti Sauli Niinistö luovuttaa kunniamerkit sunnuntaina äitienpäiväjuhlassa Helsingissä.
+
+## Torstain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12430807)
+
+Avaa kuvien katselu
+
+Kuva: Yle.
+
+Sää on huomenna pilvistä. Pohjoisessa voi sataa lunta tai räntää, muualla vettä.
+
+Lännessä lämpötila kohoaa yli 10 asteen, muualla on viileämpää.

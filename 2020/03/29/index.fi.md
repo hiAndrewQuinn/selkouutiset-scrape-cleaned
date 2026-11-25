@@ -1,0 +1,73 @@
+# Sunnuntai 29.3.2020 (radio)
+
+Uudenmaan eristäminen jatkuu. Koulutodistukset saa ehkä postissa. Koronavirus heikentää kirkon taloutta. Espanja keskeyttää kaiken toiminnan. Jäät ovat heikkoja.
+
+## Poliisi on tarkastanut paljon autoja Uudenmaan rajalla
+
+![Poliisi tarkastaa autoilijat Kasvihuoneilmiön viereisellä pysäytyspaikalla Lohjalla Vanhan Turuntien varrella lauantaina aamupäivällä 28. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11281097)
+
+Avaa kuvien katselu
+
+Poliisi pysäytti auton Uudenmaan rajalla. Tarkastuksia tehdään myös junissa. Kuva: Vesa Moilanen / Lehtikuva
+
+Uudenmaan eristäminen muusta Suomesta jatkuu.
+
+Lauantai oli eristyksen ensimmäinen päivä. Poliisi tarkasti lauantaina noin 17 000 autoa, jotka olivat matkalla pois Uudeltamaalta tai tulossa Uudellemaalle.
+
+Poliisi kertoo, että ihmiset ovat rauhallisia ja ymmärtävät, miksi Uudenmaan raja on suljettu. Rajan saa ylittää vain, jos siihen on välttämätön syy.
+
+## Kokoontumisrajoitus voi estää koulujen kevätjuhlat
+
+![Ylioppilaat laittavat ylioppilaslakin päähänsä lukion lakkiaisjuhlassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5257834)
+
+Avaa kuvien katselu
+
+Lakkiaiset ja muut koulujen valmistujaisjuhlat pitää ehkä viettää etäyhteyden kautta, jos kokoontumiskielto jatkuu. Kuva: YLE
+
+Monet koulut valmistautuvat siihen, että kevään valmistujaisjuhlat pitää ehkä järjestää uudella tavalla. Opiskelijat, jotka valmistuvat esimerkiksi ylioppilaiksi tai ammattikoulusta, saavat ehkä todistuksen postissa.
+
+Kouluilla ei voi järjestää kevätjuhlaa, jos kokoontumisrajoitus jatkuu.
+
+Kokoontumisrajoitus on nyt voimassa 13. huhtikuuta asti. Kouluissa odotetaan tietoa, pitääkö kokoontumisrajoitusta jatkaa.
+
+## Kirkon talous heikkenee
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5008374"
+
+Avaa kuvien katselu
+
+Jumalanpalvelus Ristinkirkossa Lahdessa.
+
+Koronavirus heikentää myös kirkon taloutta. Suomen evankelis-luterilaiset seurakunnat laskevat, että ne saavat tänä vuonna vähemmän rahaa, koska taloudessa menee koronaviruksen takia huonosti.
+
+Seurakunnat laskevat, että ne saavat kirkollisveroa ja valtion rahaa 40–50 miljoonaa euroa vähemmän kuin aikaisemmin.
+
+Seurakuntien pitää ehkä vähentää toimintaa. Joissakin seurakunnissa pitää ehkä lomauttaa työntekijöitä.
+
+## Espanjassa kaikkien pitää pysyä kotona
+
+![Työntekijöitä saapuu messukeskuksen sairaalaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11270065)
+
+Avaa kuvien katselu
+
+Hätäsairaala koronapotilaille Espanjassa pääkaupunki Madridissa. Kuva: Madridin aluehallinnon välittämä kuva / EPA
+
+Espanja keskeyttää kaiken toiminnan kahdeksi viikoksi. Kaikkien ihmisten pitää pysyä Espanjassa kotona 2 viikkoa, että koronavirus ei leviä.
+
+Kotoa saavat Espanjassa poistua vain ihmiset, jotka tekevät yhteiskunnan toiminnalle välttämätöntä työtä. Koronavirukseen on kuollut Espanjassa melkein 6000 ihmistä.
+
+Pahin koronavirustilanne (Euroopassa) on Italiassa. Italiassa koronavirukseen on kuollut 10 000 ihmistä.
+
+## Älä mene heikoille jäille
+
+![Kaksi ihmistä seisoo jäällä.](https://img.img-cdn.yle.fi/crop_extract,w_4128,h_2322,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5134605bb1c8d9a42a4/1538378099)
+
+Avaa kuvien katselu
+
+Jäälle ei pidä mennä. Jää voi murtua. Kuva: Linus Hoffman / Yle
+
+Poliisi varoittaa heikoista jäistä.
+
+Järvien jäät ovat heikkoja, koska aurinko lämmittää ja jäät ovat ohuita. Itä-Suomessa on uponnut jäihin kaksi autoa viikonloppuna. Myös ihmisiä on pudonnut jäihin.
+
+Poliisi sanoo, että jäälle ei pidä mennä. Jäät ovat nyt heikkoja ja voivat murtua.

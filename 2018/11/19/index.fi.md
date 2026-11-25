@@ -1,0 +1,67 @@
+# Sunnuntai 18.11.2018 (radio)
+
+Presidentti Donald Trumpin mielestä suomalaiset hoitavat hyvin metsiä. Sunnuntaina järjestettiin seurakuntavaalit. Latvia on viettänyt itsenäistymisen 100-vuotisjuhlaa. Arabiankielinen Kriisipuhelin on saanut paljon asiakkaita.
+
+## Trump
+
+![Lippalakkipäinen mies ja virkapukuinen mies kävelevät, takana palanut auto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10513700)
+
+Avaa kuvien katselu
+
+Presidentti Trump tutustui Kalifornian paloalueeseen. Kuva: Genaro Molina / EPA
+
+Presidentti Donald Trumpin mielestä suomalaiset hoitavat metsiä hyvin. Siksi Suomessa ei ole metsäpaloja, Trump sanoo.
+
+Trump puhui asiasta, kun hän tutustui Kalifornian metsäpaloihin. Trumpin mielestä huono metsänhoito on Kalifornian tulipalojen syy.
+
+Trump sanoi, että Kalifornian kannattaa ottaa esimerkkiä Suomesta. Suomalaiset siivoavat ja haravoivat metsiä, niin että tulipaloja ei syty.
+
+Trump kertoi, että hän on puhunut asiasta Suomen presidentin kanssa.
+
+Presidentti Niinistö sanoo, että hän on kertonut Trumpille, miten Suomen metsiä valvotaan. Haravoinnista emme puhuneet, Niinistö sanoo.
+
+Sosiaalisessa mediassa asiasta on tehty huumoria.
+
+## Seurakuntavaalit
+
+![-](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10494260)
+
+Avaa kuvien katselu
+
+Vaaleissa valitaan seurakuntien päättäjät. Kuva: Anne Elhaimer / Yle
+
+Suomessa oli sunnuntaina seurakuntavaalit.
+
+Vaaleissa valittiin päättäjät Suomen luterilaisen kirkon seurakuntiin. He päättävät esimerkiksi siitä, miten seurakunta auttaa ihmisiä ja minkälaisia kerhoja seurakunta järjestää.
+
+Suomen luterilaisessa kirkossa on 400 seurakuntaa. Kirkon jäsen kuuluu siihen seurakuntaan, jonka alueella hän asuu.
+
+## Latvia
+
+![latvia 100 um valo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10513795)
+
+Avaa kuvien katselu
+
+Suomen ulkoministeriö Helsingissä valaistiin Latvian väreillä Latvian juhlan kunniaksi. Kuva: Maxim Fedorov/Yle
+
+Latviassa on ollut sunnuntaina juhlapäivä. Latvia on viettänyt itsenäistymisen 100-vuotisjuhlaa. Latviasta tuli itsenäinen maa vuonna 1918.
+
+Myös Suomen presidentti Sauli Niinistö osallistui juhlaan Latvian pääkaupungissa Riiassa. Niinistö vei kukkia Vapauden muistomerkille ja seurasi sotilasparaatia.
+
+Latvia kuuluu Baltian maihin. Viro ja Liettua ovat sen naapureita.
+
+## Kriisipuhelin
+
+![Arabiankielisen kriisipuhelimen verkkosivu puhelimen näytöllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10510716)
+
+Avaa kuvien katselu
+
+Arabiankieliseen Kriisipuhelimeen voi soittaa maanantaina, tiistaina, torstaina ja perjantaina kello 11-15 sekä keskiviikkona kello 17-21. Numero on 040 195 8202. Kuva: Tiina Jutila / Yle
+
+Arabiankielinen Kriisipuhelin on saanut paljon asiakkaita. Suomen Mielenterveysseura avasi arabiankielisen Kriisipuhelimen viime maaliskuussa. Sen jälkeen soittoja on tullut noin 400.
+
+Monet soittavat arabiankieliseen Kriisipuhelimeen ahdistuksen tai masennuksen takia. Kriisipuhelintoiminnan päällikkö Susanna Winter sanoo, että monet haluavat puhua myös turvapaikka-asioista.
+
+Syy on se, että turvapaikanhakija on usein yksin ongelmien kanssa. Turvapaikanhakija ei halua kertoa ongelmista sukulaisille omassa kotimaassa. Hän ei halua, että sukulaiset huolestuvat.
+
+Myös nuoret soittavat paljon arabiankieliseen Kriisipuhelimeen. Nuoret haluavat puhua esimerkiksi vanhempien kotimaan ja Suomen eroista.

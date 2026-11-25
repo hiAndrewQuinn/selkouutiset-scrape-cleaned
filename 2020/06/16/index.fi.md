@@ -1,0 +1,89 @@
+# Tiistai 16.6.2020 (radio)
+
+Suomen talous heikkenee tänä vuonna. Työttömyysturvahakemuksia on tehty paljon koronakevään aikana. Terrorismilakeihin voi tulla lisäys. Susia on viime vuotta enemmän. Oscar-gaala viivästyy.
+
+## Talousennuste on synkentynyt koronan takia
+
+![Autio kauppakeskus Helsingin Pasilassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11264977)
+
+Avaa kuvien katselu
+
+Koronaviruksen takia kauppakeskuksissa on ollut vain vähän asiakkaita Kuva: Tiina Jutila / Yle
+
+Suomen talous heikkenee merkittävästi tänä vuonna, kertoo valtiovarainministeriö. Syynä ovat rajoitustoimet, joilla yritetään hillitä koronaepidemiaa.
+
+Valtiovarainministeriö arvioi, että bruttokansantuote heikkenee tänä vuonna 6 prosenttia. Bruttokansantuote on kotimaisen tuotannon mitta kansantaloudessa.
+
+Rajoitusten purkaminen kuitenkin piristää taloutta, varsinkin palvelualoilla. Ennuste kertoo, että talous alkaa toipua hitaasti loppuvuonna.
+
+Ennusteen tekee epävarmaksi koronaviruksen mahdollinen toinen aalto.
+
+## Työttömyysturvahakemuksia on tehty paljon
+
+![Kelan lippu liehuu tuulessa](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6781115ec2889f7f941/1589807430)
+
+Avaa kuvien katselu
+
+Kuva: Marko Väänänen / Yle
+
+Työttömyysturvahakemuksia on tehty paljon koronakevään aikana.
+
+Kelaan on tullut keväällä 186 000 uutta työttömyysturvahakemusta. Se on melkein 100 000 enemmän kuin viime vuonna samaan aikaan.
+
+Hakemusten määrä oli suuri huhtikuun alussa. Määrä kääntyi uudelleen nousuun toukokuun lopussa.
+
+Kela sanoo, että hakemusten määrään vaikutti koronan lisäksi uusien opiskelijoiden valmistuminen.
+
+## Terrorismilakeihin voi tulla lisäys
+
+![Naisia ja lapsia kuorma-auton luona.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_90/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6856185ed8fcd63d51a/1621400064)
+
+Avaa kuvien katselu
+
+Al-holin leiri Syyriassa. Kuva: Ahmed Mardnli / EPA
+
+Suomen lakeihin voi tulla uusi rikosnimike julkisesta kehottamisesta terrorismirikoksiin. Asiaa ehdottaa oikeusministeriön työryhmä.
+
+Terroristiryhmään värväytymisestä eli liittymisestä voi tulevaisuudessa saada rangaistuksen. Työryhmä ehdottaa, että rangaistus on enintään 2 vuotta vankeutta.
+
+Terrorismirikoslakien arviointi liittyy siihen, että hallitus on päättänyt kotiuttaa suomalaisia al-Holin leiriltä Syyriasta.
+
+## Susia on enemmän kuin viime vuonna
+
+![susi](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-33626158f7569366d16/1696250501)
+
+Avaa kuvien katselu
+
+Pohjoisista petoeläimistä susi on kaikkein sosiaalisin eläin. Se elää mieluiten laumassa. Kuva: Juha Laaksonen / Yle
+
+Susia on Suomessa nyt viime vuotta enemmän. Asiasta kertoo Luonnonvarakeskus Luke.
+
+Arvio kertoo, että Suomessa oli maaliskuussa 30 susilaumaa. Niistä 24 laumaa oli kokonaan Suomen puolella. Suomen itärajan molemmin puolin liikkui 6 laumaa.
+
+Laumojen kokonaismäärä kasvoi viime vuodesta noin 25 prosenttia.
+
+Arvio kertoo, että susien yksilömäärä oli maaliskuussa korkeintaan runsaat 240.
+
+Laumoja oli aiempaa enemmän erityisesti läntisessä Suomessa. Siellä oli todennäköisimmin 18 laumaa.
+
+![Susien reviirit kartalla maaliskuussa 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11402266)
+
+Avaa kuvien katselu
+
+Viime vuoteen verrattuna reviireillä elää enemmän laumoja ja vähemmän pareja. Kuva: Lasse Isokangas / Yle
+
+## Oscar-gaala viivästyy
+
+![Media valmistautuu Oscar-gaalan alkuun punaisella matolla.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_36/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6899425ee820db32b8b/1592271195)
+
+Avaa kuvien katselu
+
+Media valmistautuu Oscar-gaalaan punaisella matolla. Kuva: AFP
+
+Elokuva-alan Oscar-gaalaa lykätään 2 kuukaudella koronapandemian vuoksi. Myös ehdokkaiden julkaisuaika viivästyy.
+
+Oscar-palkinnot jaetaan huhtikuun lopulla - 8 viikkoa myöhemmin kuin tavallisesti.
+
+Kyseessä on 4. kerta Yhdysvaltain elokuva-akatemian historiassa, kun gaalaa joudutaan siirtämään.
+
+Ensi vuonna järjestetään 93. Oscar-gaala.

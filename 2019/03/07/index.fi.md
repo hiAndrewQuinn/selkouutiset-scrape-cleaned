@@ -1,0 +1,7 @@
+# Keskiviikko 6.3.2019 (tv)
+
+Laittomia siirtolaisia tulee USA:han aiempaa enemmän. Kotityöt aiheuttavat riitoja. Miehet rakentavat miesluolia. Roomassa on ihailtu revontulivideoita. Sää.
+
+Yle Uutiset selkosuomeksi 
+
+Laittomia siirtolaisia tulee USA:han aiempaa enemmän. Kotityöt aiheuttavat riitoja. Miehet rakentavat miesluolia. Roomassa on ihailtu revontulivideoita. Sää.

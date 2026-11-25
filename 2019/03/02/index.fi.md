@@ -1,0 +1,71 @@
+# Lauantai 2.3.2019 (radio)
+
+Nuorten ilmastokokous. Matti Nykäsen hautajaiset. Turvapaikanhakijoiden uusintahakemukset. Hiihdon MM-kilpailut. Sää.
+
+## Nuoret tekivät ilmasto-ohjelman
+
+![Meidän ilmasto 2030 lukee esitteen kannessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10670424)
+
+Avaa kuvien katselu
+
+Nuorten ilmasto-ohjelma löytyy verkkosivulta nuortenagenda.fi.
+
+Nuoret pitivät tänään ilmastokokouksen Helsingissä. Kokouksessa oli 500 nuorta ympäri Suomea.
+
+Nuoret pitivät kokouksen, koska he vaativat poliitikoilta enemmän tekoja ilmaston hyväksi. Nuoret julkistivat ohjelman, jossa on asioita, jotka pitää tehdä.
+
+Nuoret sanovat, että Suomen pitää suosia kasveja ruoan tuottamisessa. Lisäksi pitää säilyttää ja kasvattaa hiilinieluja, joita ovat esimerkiksi metsät.
+
+## Matti Nykänen haudattiin
+
+![Matti Nykäsen arkku kannetaan autoon ennen hautajaissaattueen lähtöä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10670322)
+
+Avaa kuvien katselu
+
+Mäkihyppääjä Matti Nykänen haudattiin tänään. Kuva: Jussi Nukari / Lehtikuva
+
+Kuuluisa suomalainen mäkihyppääjä Matti Nykänen haudattiin tänään. Hänet haudattiin kotikaupunkiin Jyväskylään.
+
+Monet suomalaiset halusivat muistaa Matti Nykästä. Paljon ihmisiä oli katsomassa hautajaissaattoa. Hautajaisissa oli myös mäkihyppääjiä, jotka kilpailivat Matin kanssa.
+
+Matti Nykänen on suomalainen urheilulegenda.
+
+Hän voitti olympialaisissa 4 kultamitalia mäkihypyssä. Hän kuoli yllättäen kuukausi sitten.
+
+## Turvapaikanhakijoiden uusintahakemukset
+
+![Mies käden takana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10245663)
+
+Avaa kuvien katselu
+
+Uusintahakemuksessa pitää olla hyvät perustelut turvapaikan hakemiselle. Kuva: Yle
+
+Suomen sisäministeriö uskoo, että osa turvapaikanhakijoista jättää uuden turvapaikkahakemuksen ilman mitään syytä. He yrittävät viivyttää lähtöä Suomesta sillä, että jättävät uuden hakemuksen, vaikka se on turhaa.
+
+Maahanmuuttovirasto käsitteli viime vuonna 1500 uusintahakemusta. 175 ihmistä sai myönteisen päätöksen uusintahakemukseen.
+
+Suomessa on voimassa uusi laki. Sen mukaan uusintahakemuksessa pitää olla hyvät perustelut turvapaikan hakemiselle.
+
+## Norjan Therese Johaug voitti taas
+
+![Naishiihtäjä pitää Norjan lippua kädessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10670397)
+
+Avaa kuvien katselu
+
+Norjan Therese Johaug voitti 3 kultamitalia hiihdon MM-kisoissa. Kuva: EPA-EFE
+
+Hiihdon maailmanmestaruuskilpailuissa oli tänään toiseksi viimeinen päivä. Naishiihtäjät hiihtivät 30 kilometrin kilpailun. Suomen hiihtäjistä kukaan ei onnistunut kovin hyvin.
+
+Kilpailun voitti norjalainen Therese Johaug. Hän voitti MM-kisoissa yhteensä 3 kilpailua.
+
+## Huomenna on aurinkoista
+
+![Nainen hiihtämässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10653089)
+
+Avaa kuvien katselu
+
+Sunnuntaina on aurinkoinen sää. Kuva: Ismo Pekkarinen / AOP
+
+Huomenna sunnuntaina on pakkaspäivä. Pohjoisessa pakkasta voi olla melkein 20 astetta. Etelässä pakkasta on vain muutama aste.
+
+Aurinko paistaa. Huomenna on siis hyvä ulkoilusää.

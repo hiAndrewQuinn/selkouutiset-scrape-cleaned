@@ -1,0 +1,81 @@
+# Radio | Selkouutiset | perjantai 20.10.2023
+
+Suomalaisten elinikä. Ukrainan talvi. Alkoholi. Uusi taidenäyttely. Sää.
+
+## Suomalaisten elinikä
+
+![Keskosena syntynyt neljä päivää vanha poikavauva Naistenklinikalla 20. lokakuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5926,h_3333,x_0,y_627/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1189260653274af892fa/1709120310)
+
+Avaa kuvien katselu
+
+Vastasyntynyt vauva. Kuva: Silja Viitala / Yle
+
+Suomalaisten elinikä kääntyi viime vuonna laskuun. Tutkijoiden mukaan suomalaisten elinikä lyheni viime vuonna puoli vuotta.
+
+Niin paljon ihmisten elinikä ei ole lyhentynyt Suomessa pitkään aikaan.
+
+Tutkijat sanovat, että on vaikea tietää, miksi elinikä lyheni. Syy voivat olla sydän- ja verisuonitaudit. Syy voi myös olla yksinäisyys.
+
+Asiasta saadaan tulevaisuudessa enemmän tietoa.
+
+## Ukrainan talvi
+
+![Nainen Kiovassa valmistaa ruokaa pimeässä keittiössä.](https://img.img-cdn.yle.fi/crop_extract,w_4955,h_2787,x_0,y_130/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1030195636771a03c924/1697800468)
+
+Avaa kuvien katselu
+
+Kiovalainen koti lokakuussa 2022. Ukrainassa on paljon sähkökatkoja.  Kuva: EPA-EFE/All Over Press
+
+Ukrainassa tämä talvi on vaikea. Se on ehkä vaikeampi kuin viime talvi. Venäjä on tuhonnut Ukrainaa niin, että monen kaupungin lämmitys ja sähköt eivät toimi hyvin.
+
+Ukrainalaiset ovat korjanneet osan lämmityksestä ja sähköistä mutta eivät kaikkea.
+
+YK eli Yhdistyneet kansakunnat -järjestö sanoo, että sähkölaitokset toimivat paljon huonommin kuin ennen sotaa.
+
+Tutkijat sanovat, että Venäjä yrittää tuhota kaupunkien sähkölaitokset ja lämmityslaitokset. Venäjä toivoo, että pian ukrainalaiset eivät jaksa enää taistella.
+
+## Alkoholi
+
+![Alkoholijomia nostetaan koriin.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_468/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117046764ff0544dad8c/1694434689)
+
+Avaa kuvien katselu
+
+Alkoholia voi ensi vuonna ehkä tilata kaupasta kotiin. Kuva: Isto Matias Janhunen / Yle
+
+Suomalaiset voivat pian tilata alkoholia kotiin, jos hallituksen suunnitelma toteutuu.
+
+Ihmiset saavat tulevaisuudessa tilata alkoholia kotiin esimerkiksi kaupasta, ravintolasta tai Alkon myymälästä.
+
+Kotiin saa tilata alkoholijuomia, joissa on alkoholia enintään 8 prosenttia.
+
+Nykyään alkoholia saa tilata ulkomailta mutta Suomesta.
+
+Hallitus miettii myös, saako viiniä tulevaisuudessa myydä ruokakaupassa. Nykyään viiniä saa myydä vain Alkon myymälässä.
+
+## Uusi taidenäyttely
+
+![Henkilöitä katsoo Claude Monetin teosta taidemuseossa.](https://img.img-cdn.yle.fi/crop_extract,w_5987,h_3367,x_0,y_161/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1187665652e918078eea/1706189686)
+
+Avaa kuvien katselu
+
+Kuva Ateneumin uudesta taidenäyttelystä. Kuva: Henrietta Hassinen / Yle
+
+Ateneumin taidemuseossa Helsingissä avataan tänään perjantaina uusi taidenäyttely.
+
+Näyttelyssä on impressionistien 1800-luvun ja 1900-luvun alun taidetta
+
+Impressionismi on taidesuunta, joka syntyi Ranskassa. Impressionistit maalasivat paljon ulkoilmassa.
+
+Impressionismi vaikutti myös joihinkin suomalaisiin taiteilijoihin. Suomalaiset alkoivat tehdä värikkäämpiä tauluja.
+
+Näyttelyssä on kuuluisien ulkomaalaisten taiteilijoiden tauluja ja suomalaisten taiteilijoiden tauluja.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-118929465327a235415e/1697806919)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Lauantaina ei sada. Lämpötila on -3:n ja +5 asteen välillä. Kylmintä on pohjoisessa.

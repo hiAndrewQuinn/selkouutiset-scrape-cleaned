@@ -1,0 +1,115 @@
+Kalastajat
+
+# Maanantai 3.10.2016 (radio)
+
+Poliisi puolustaa aseenkäyttöä Orimattilassa. Viro sai uuden presidentin. Kolumbian rauhansopimus kariutui. Lasten vanhemmilla on monia pelkoja. Silakkamarkkinat kiinnostavat, mutta kalastajat kaipaavat parempia tuloja. Lääketieteen Nobel-palkinto japanilaistutkijalle.
+
+![Kartta, jossa ampumispaikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9205624)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+- 
+
+  
+
+  Monna Tervo
+
+  
+
+  
+
+3.10.2016 17:59•Päivitetty 3.10.2016 18:16
+
+## Poliisi: aseenkäyttö esti vakavan väkivallanteon
+
+![Kartta, jossa ampumispaikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9205624)
+
+Avaa kuvien katselu
+
+Mies pahoinpiteli naista, kun poliisi ampui hänet sunnuntaina päivällä valtatie 4:llä Orimattilassa. Kuva: Yle Uutisgrafiikka
+
+Poliisi on kertonut lisää tietoja viikonlopun ampumistapauksesta.
+
+Poliisi ampui miehen valtatie 4:llä Orimattilassa, koska poliisi halusi pelastaa ihmishengen.
+
+Miehellä oli auton kyydissä nainen, joka sai tilanteessa vakavia vammoja. Miehen epäillään aiheuttaneen naisen vammat.
+
+Nainen on yhä sairaalassa. Syyttäjä tutkii poliisin aseenkäyttöä.
+
+## Viro sai vihdoin presidentin
+
+![Kersti Kaljulaid.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9207146)
+
+Avaa kuvien katselu
+
+Kersti Kaljulaid valittiin presidentiksi. Kuva: Valda Kalnina / EPA
+
+Suomen eteläinen naapurimaa Viro on saanut vihdoin uuden presidentin.
+
+Parlamentti äänesti 46-vuotiaan Kersti Kaljulaidin presidentiksi. Hän oli ainoa ehdokas.
+
+Presidentinvaalit epäonnistuivat kaksi kertaa aiemmin. Kukaan ehdokkaista ei saanut aiemmissa äänestyksissä riittävästi ääniä.
+
+## Kolumbialaiset torjuivat rauhansopimuksen
+
+![Ihmisiä istuu valkoisilla muovituoleilla suuressa huoneessa, jossa näkyy pahvisia äänestyskoppeja. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9205600)
+
+Avaa kuvien katselu
+
+Kolumbian kansanäänestys torjui rauhansopimuksen hyvin niukasti.  Kuva: Leonardo Munoz / EPA 
+
+Kolumbia ei saanut rauhansopimusta. Hallitus ja Farc-sissijärjestö neuvottelivat rauhansopimuksen, mutta Kolumbian kansa ei hyväksynyt sitä.
+
+Kolumbiassa oli eilen kansanäänestys, ja 50,2 prosenttia äänesti rauhansopimusta vastaan.
+
+Heidän mielestään rauhansopimus on huono, koska Farc-sissijärjestön taistelijat eivät saa rangaistusta julmuuksista.
+
+Kolumbian hallitus ja Farc-sissijärjestö ovat taistelleet yli 50 vuotta.
+
+## Lasten vanhemmilla monia pelkoja
+
+![Lapsi ja aikuinen katsovat joelle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9205794)
+
+Avaa kuvien katselu
+
+Moni vanhempi pelkää lapsensa puolesta. Kuva: Tiia Hemminki / Yle
+
+Täällä kotimaassa, lasten kasvatukseen liittyy monia pelkoja.
+
+Yle kysyi lasten vanhemmilta, mitä he pelkäävät.
+
+Vanhemmat pelkäävät eniten sitä, että joku tekee pahaa lapselle.
+
+Vanhemmat pelkäävät myös, että lasta kiusataan tai lapsi sairastuu vakavasti.
+
+## Kalastajat vähenevät - myös silakkamarkkinoilla
+
+![Silakka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6682868)
+
+Avaa kuvien katselu
+
+Silakkaa kalastetaan merestä. Kuva: Antti Haavisto / Yle
+
+Kalastajia on Suomessa aiempaa vähemmän.
+
+Se näkyy myös Helsingin Kauppatorin silakkamarkkinoilla, jossa kalastajat myyvät eri tavoin maustettua ja valmistettua silakkaa.
+
+Tänä vuonna silakkamarkkinoilla on alle 20 kalastajavenettä, kun viisi vuotta sitten kalastajaveneitä oli noin 40.
+
+Pyhtääläinen kalastaja Hannu Hellsten sanoo, että kalastajaveneet ovat vähentyneet, koska kalastamisesta ei saa riittävästi rahaa.
+
+## Nobel-palkintojen jako alkoi
+
+![Yoshinori Ohsumi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9206819)
+
+Avaa kuvien katselu
+
+Yoshinori Ohsumi tutkii, miten solut tuhoavat ja kierrättävät turhaa ainesta.  Kuva: Kimimasa Mayama / EPA
+
+Lääketieteen Nobel-palkinnon on saanut japanilainen Yoshinori Ohsumi.
+
+Nobelin palkinto on miljoona Ruotsin kruunua eli noin 830 000 euroa.
+
+Perjantaina selviää, kuka saa Nobelin rauhanpalkinnon.

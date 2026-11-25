@@ -1,0 +1,107 @@
+# Torstai 30.4.2020 (radio)
+
+Suomen koronatartunnat. Peruskoulut avataan. Firma alkaa tehdä maskeja. Mansikanpoimijoista on pula. Sää pysyy viileänä.
+
+## Korona leviää liian hitaasti Suomessa
+
+![Koronaviruksen takia suljettu ravintola kauppakeskus Isossa Omenassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11328196)
+
+Avaa kuvien katselu
+
+Ravintolat ovat olleet kiinni monta viikkoa. Kuva: Vesa Moilanen / Lehtikuva
+
+Terveysviranomaiset sanovat, että koronavirus leviää Suomessa liian hitaasti.
+
+Jos virus leviää näin hitaasti, voi käydä niin, että syksyllä tulee yhtäkkiä todella paljon tartuntoja.
+
+Se ei ole hyvä asia, sanovat terveysviranomaiset.
+
+Suomessa on nyt virallisesti lähes 5 000 koronavirustartuntaa. Koronavirukseen on Suomessa kuollut 211 ihmistä.
+
+## Peruskoulut avataan
+
+![tyhjä luokka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11328822)
+
+Avaa kuvien katselu
+
+Peruskoululaiset palaavat kouluun 14.5. Kuva: Marja Väänänen / Yle
+
+Peruskoulut avataan 14. toukokuuta.
+
+Etäopetus loppuu ja koululaiset menevät taas kouluun.
+
+Koulujen pitää huolehtia oppilaiden ja opettajien turvallisuudesta.
+
+Koulujen pitää jakaa oppilaat pieniin ryhmiin. Voi olla esimerkiksi niin, että pienet lapset ovat koulussa aamupäivällä ja isot lapset iltapäivällä.
+
+Kevätjuhlia ei järjestetä.
+
+Lukiot, ammattioppilaitokset ja korkeakoulut jatkavat etäopetusta.
+
+## Firma alkaa tehdä maskeja
+
+![hengityssuojain](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6518545e679fb629c76/1583849524)
+
+Avaa kuvien katselu
+
+Oululainen firma alkaa tehdä tällaisia hengityssuojaimia. Kuva: Timo Nykyri / Yle
+
+Oululainen firma alkaa tehdä hengityssuojaimia ja maskeja.
+
+Niistä on Suomessa kova pula. Sairaalat tarvitsevat paljon suojavarusteita koronapotilaiden takia.
+
+Firma tekee isoille sairaaloille yhteensä noin 6 miljoonaa suojainta ja maskia.
+
+## Mansikanpoimijoita tarvitaan
+
+![mansikan poimintaa tilalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11305920)
+
+Avaa kuvien katselu
+
+Nopea kerääjä kerää 10 kiloa mansikoita tunnissa. Kuva: Kimmo Mäntylä / Lehtikuva
+
+Mansikanviljelijät ovat huolissaan siitä, kuka kerää mansikat kesällä.
+
+Monet marjatilat palkkaavat työntekijöitä ulkomailta, esimerkiksi Ukrainasta. Ukrainalaiset eivät nyt koronan takia pääse Suomeen töihin.
+
+Mansikanviljelijät eivät mielellään palkkaa suomalaisia.
+
+Mansikanviljelijät sanovat, että suomalaiset ovat hitaampia kerääjiä kuin ulkomaalaiset.
+
+Viljelijät sanovat, että suomalaisia pitää palkata enemmän.
+
+Marjatiloilla tarvitaan monta tuhatta työntekijää kesän aikana.
+
+## Vappua juhlitaan virtuaalisesti
+
+![JVG, virtuaalinen vappu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11330469)
+
+Avaa kuvien katselu
+
+Virtuaalikeikalla näyttää siltä kuin JVG olisi esiintymässä Helsingin Senaatintorilla. Kuva: Jussi Mankkinen / Yle 
+
+Tänään juhlitaan vappuaattoa.
+
+Koronarajoitusten takia ihmiset eivät voi kokoontua yhteen.
+
+Erilaisia vappujuhlia järjestetään virtuaalisesti eli verkossa.
+
+Suosikkiyhtye JVG esiintyy virtuaalisesti.
+
+Näyttää kuin yhtye olisi Helsingin Senaatintorilla, missä yleensä juhlitaan vappua.
+
+Keikkaa voit katsoa verkkosivulla helsinkikanava.fi.
+
+## Vappupäivänä on viileää
+
+![Vappuruokaa piknikpöydällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10773184)
+
+Avaa kuvien katselu
+
+Huomenna vappupiknik pitää ehkä syödä sisällä. Ulkona on viileä sää. Kuva: Mari Kahila / Yle
+
+Huomenna vappupäivänä Länsi-Suomessa sataa vettä ja Lapissa tulee paikoin lumikuuroja.
+
+Muualla on poutaista.
+
+Etelä-Suomessa on noin 10 astetta lämmintä ja Pohjois-Suomessa noin 5 astetta.

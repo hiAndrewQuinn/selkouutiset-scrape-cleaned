@@ -1,0 +1,87 @@
+# Torstai 17.3.2022 (radio)
+
+Zelenskyi on puhut Saksan liittopäiville. Korona-aika lisäsi opintojen keskeytyksiä. Microsoft rakentaa Suomeen suuren datakeskuksen. Talvi on ollut hyvä hiihtokeskuksille. Ensimmäiset veroilmoitukset Omaveroon. Sääennuste.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Ukraina
+
+![Volodymyr Zelenskyi.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_153/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-92803462300ac4bc6cc/1647316772)
+
+Avaa kuvien katselu
+
+Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Ukrainan presidentin kanslia / AFP
+
+Ukrainan presidentti Volodymyr Zelenskyi on puhut Saksan liittopäiville videoyhteydellä. Presidentti Zelenskyi pyysi, että Saksa pysäyttää sodan Ukrainassa.
+
+Zelensky sanoi, että Euroopassa on uusi muuri, joka jakaa ihmiset vapaisiin ihmisiin ja ihmisiin, jotka eivät ole vapaita. Zelenskyi toivoi, että Saksa auttaa Ukrainaa.
+
+Zelenskyi sanoi, että sodassa on kuollut yli sata lasta.
+
+## Opiskelijat ja korona-aika
+
+![Opiskelijoita auditoriossa](https://img.img-cdn.yle.fi/crop_extract,w_3348,h_1876,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-915916620cd8d1df1f0/1645009592)
+
+Avaa kuvien katselu
+
+Opiskelijoita luentosalissa. Kuva: Anna Wikman / Yle
+
+Aiempaa useampi nuori on keskeyttänyt opinnot korona-aikana.
+
+Lukuvuonna 2019–2020 noin 7 prosenttia opiskelijoista keskeytti opinnot. Opintojen keskeytyksiä oli eniten ammatillisessa perustutkintokoulutuksessa. Melkein 15 prosenttia opiskelijoista keskeytti opintonnot ammatillisessa perustutkintokoulutuksessa.
+
+Korona-aika on vaikuttanut erityisesti toisen asteen opiskelijoihin. Monilla opiskelijoilla opinnot ovat hidastuneet ja työssä käynti on vähentynyt.
+
+## Datakeskus
+
+![Keilalahden siluetti heijastuu peilityyneen merenpintaan.](https://img.img-cdn.yle.fi/crop_extract,w_5185,h_2917,x_0,y_130/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-877708618a8f59c9444/1647513349)
+
+Avaa kuvien katselu
+
+Toinen datakeskusrakennus tulee tänne Espoon Keilaniemeen. Toinen rakennus tulee Kirkkonummelle. Kuva: Petteri Bülow / Yle
+
+Maailman suurin ohjelmistofirma Microsoft rakentaa Suomeen suuren datakeskuksen. Microsoftin datakeskuselle tulee tiloja Espooseen ja Kirkkonumelle.
+
+Uusi datakeskus voi tuoda Suomeen jopa 11 000 työpaikkaa.
+
+Datakeskuksista saadaan paljon lämpöä. Energiafirma Fortum kierrättää Microsoftin uuden datakeskuksen hukkalämpöä talojen lämmitykseen Espoossa, Kauniaisissa ja Kirkkonummella.
+
+## Hiihtokeskukset
+
+![Ihmisiä hiihtohississä menossa ylös rinnettä Messilässä.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_366/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90685261f135552af7e/1643197924)
+
+Avaa kuvien katselu
+
+Hiihtokeskus Messilä Hollolassa. Kuva: Esa Syväkuru / Yle
+
+Talvi on ollut hyvä hiihtokeskuksille. Lunta on ollut paljon kaikkialla Suomessa. Myös lämpötilat ovat pysyneet pitkään pakkasella. Hiihtokeskusten kausi jatkuu hyvänä ehkä pitkälle kevääseen.
+
+Viime talvena hiihtokeskukset myivät hissilippuja Suomessa lähes 80 miljoonalla eurolla. Myös tästä talvesta tulee hiihtokeskuksille ainakin yhtä hyvä.
+
+Suomen Hiihtokeskusyhdistys odottaa, että hiihtokeskukset pärjäävät Suomessa hyvin lähivuosina.
+
+## Veroilmoitus
+
+![OmaVero-sivusto puhelimen ruudulta.](https://img.img-cdn.yle.fi/crop_extract,w_4784,h_2691,x_0,y_60/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7368115f9d3694f05ae/1666765133)
+
+Avaa kuvien katselu
+
+Omavero-palvelua voi käyttää matkapuhelimella tai tietokoneella. Kuva: Tiina Jutila / Yle
+
+Tämän vuoden ensimmäiset veroilmoitukset ovat tulleet sähköiseen Omavero-palveluun torstaina.
+
+Verohallinto kertoo, että noin 800 000 suomalaista on tilannut veroilmoituksen sähköisessä muodossa. Heille veroilmoitus lähetetään vain Omavero-palveluun.
+
+Muut suomalaiset saavat veroilmoituksen paperilla kotiin maalis-huhtikuussa.
+
+## Sää
+
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12364519)
+
+Avaa kuvien katselu
+
+Perjantaina on enimmäkseen pilvistä.
+
+Perjantaina on enimmäkseen pilvistä. Monin paikoin sataa vettä, räntää tai lunta. Idässä paistaa vielä aurinko. Lämpötila on 0 ja +5 asteen välillä.

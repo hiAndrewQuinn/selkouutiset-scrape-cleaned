@@ -1,0 +1,69 @@
+# Maanantai 20.9.2021 (radio)
+
+Venäjän vaalit. Talouskasvu. Lasten koronarokote. Kuurojen viikko. Sääennuste.
+
+## Venäjän vaalit
+
+![Vladimir Putin videokokouksessa.](https://img.img-cdn.yle.fi/crop_extract,w_5010,h_2818,x_0,y_407/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-856256614898780f979/1632147685)
+
+Avaa kuvien katselu
+
+Venäjän presidentti Vladimir Putin puhuu videokokouksessa keskusvaalilautakunnan puheenjohtajan kanssa.  Kuva: AOP
+
+Venäjällä presidentti **Vladimir Putinin** puolue Yhtenäinen Venäjä on julistautunut vaalien voittajaksi. Puolue sanoo, että se on saanut 2/3 enemmistön parlamenttivaaleissa.
+
+Yhtenäinen Venäjä -puolue sai noin 50 prosenttia äänistä. Toiseksi eniten ääniä sai Kommunistipuolue.
+
+Vaalitarkkailijat sanovat, että Venäjän vaaleissa oli paljon vaalivilppiä. Opposition oli esimerkkisi vaikea saada ehdokkaita vaaleihin.
+
+## Talouskasvu
+
+![Rekkoja ja kontteja Vuosaaren satamassa Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_536/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82099160c857698e1bf/1623742367)
+
+Avaa kuvien katselu
+
+Rekkoja ja kontteja satamassa. Suomen vienti kasvaa. Kuva: Vesa Moilanen / Lehtikuva
+
+Elinkeinoelämän tutkimuslaitos Etla on tehnyt ennusteen Suomen talouskasvusta. Etla ennustaa, että Suomen kokonaistuotanto kasvaa tänä vuonna 3,5 prosenttia. Ensi vuonna kokonaistuotanto kasvaa ehkä 3 prosenttia.
+
+Talous kasvaa nyt nopeasti koronakriisin jälkeen. Syy on se, että yksityinen kulutus kasvaa.
+
+Etla ennustaa, että Suomen vienti kasvaa tänä vuonna 4 prosenttia ja ensi vuonna 9 prosenttia. Vientiä kasvattaa se, että palveluiden vienti kasvaa jopa yli 20 prosenttia.
+
+## Lasten koronarokote
+
+![Moderna rokotetta otetaan rokoteruiskuun ampullista.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-84061461138f31b243d/1642751923)
+
+Avaa kuvien katselu
+
+Koronarokote oli tutkimuksessa turvallinen 5-11 -vuotiailla lapsilla. Kuva: Kristiina Lehto / Yle
+
+Tutkimukset lasten koronarokotteesta ovat edenneet hyvin. Lääkefirmat Pfizer ja Biontech kertovat, että niiden koronarokote on tutkittu nyt lapsilla.
+
+Tutkimus kertoo, että Pfizerin ja Biontechin rokote on turvallinen 5-11-vuotiailla lapsilla. Tutkimuksessa rokote antoi lapsille vahvan suojan koronavirusta vastaan.
+
+Lääkefirmat Pfizer ja Biontech hakevat nyt lupaa, että rokotetta saa antaa lapsille Euroopassa ja USA:ssa.
+
+## Kuurojen viikko
+
+![Marko Vuoriheimo, joka tunnetaan myös artistinimellä Signmark.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_313/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5728425d10d8d61280d/1561385310)
+
+Avaa kuvien katselu
+
+Signmark eli Marko Vuoriheimo räppää viittomakielellä. Kuva: Jarl Hanhikoski / Yle
+
+Tällä viikolla vietetään kansainvälistä kuurojen viikkoa. Torstaina juhlitaan YK:n kansainvälistä viittomakielten päivää.
+
+Suomessa kuurojen viikon juhlapäivä on perjantaina. Silloin vietetään kuurojen viikon juhlia Kuurojen Liiton verkkosivuilla.
+
+Kuurojen viikon tarkoitus on vahvistaa kuurojen yhteisöllisyyttä. Tarkoitus on myös tukea työtä, jolla kuurojen asemaa parannetaan kaikkialla maailmassa.
+
+## Sää
+
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12107996)
+
+Avaa kuvien katselu
+
+Tiistaina on melko pilvistä. Välillä aurinko voi paistaa.
+
+Sää jatkuu tiistaina viileänä. Enimmäkseen on puolipilvistä tai pilvistä ja poutaa eli ei sada. Rannikolla voi tulla sadekuuroja. Lämpötila on 7 ja 11 asteen välillä, maan pohjoisosassa 4 ja 8 asteen välillä.

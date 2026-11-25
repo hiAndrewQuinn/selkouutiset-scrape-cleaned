@@ -1,0 +1,69 @@
+# Lauantai 29.8.2020 (radio)
+
+Lauantaina juhlittiin ylioppilaita. Uudet hävittäjät maksavat paljon. Suomen Luonnon -päivä. Venetsialaiset-juhla päättää kesämökkikauden. Sunnuntaina tulee sadekuuroja.
+
+## Kevään ylioppilaita juhlittiin
+
+![ylioppilaslakki](https://img.img-cdn.yle.fi/crop_extract,w_3822,h_2150,x_0,y_836/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6727655eb5404130e7a/1588942773)
+
+Avaa kuvien katselu
+
+Ylioppilasjuhlat siirtyivät keväältä elokuun loppuun. Kuva: Jani Aarnio / Yle
+
+Suomessa on tänään lauantaina juhlittu kevään ylioppilaita. Ylioppilasjuhlia ei voitu järjestää keväällä koronatilanteen takia. Monet lukiot siirsivät ylioppilasjuhlat syksyyn.
+
+Ylioppilasjuhlissa on ollut erityisjärjestelyitä. Esimerkiksi osallistujamäärää rajoitettiin monilla kouluilla, että ihmiset voivat pitää turvavälit.
+
+Kaikilla paikkakunnilla ylioppilasjuhlia ei järjestetty, koska koronatartunnat ovat taas lisääntyneet.
+
+## Hävittäjät maksavat paljon
+
+![Suomen HX-hävittäjähankeen ehdokkaat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10984492)
+
+Avaa kuvien katselu
+
+Ehdokkaat Suomen uudeksi hävittäjäksi. Kuva: AOP, kuvankäsittely Juha Rissanen / Yle
+
+Uudet hävittäjät maksavat Suomelle ehkä enemmän, kuin mitä Suomi on varannut hävittäjiin rahaa. Suomi on pyytänyt tarjouksen 64 hävittäjästä 5 eri firmalta.
+
+Tarjouskierroksia on ollut kaksi. Kaikkien firmojen hinta on molemmilla tarjouskierroksilla ollut enemmän kuin 10 miljardia euroa, jonka Suomi on asettanut rajaksi.
+
+Kolmas ja viimeinen tarjouskierros on ensi vuonna. Silloin Suomi päättää, mitä hävittäjiä Suomi ostaa, kuinka monta ja paljonko Suomi niistä maksaa.
+
+## Suomen Luonnon -päivä
+
+![Suppilovahvero](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9832903)
+
+Avaa kuvien katselu
+
+Suppilovahvero on hyvä ruokasieni. Kuva: Tommi Parkkinen / Yle
+
+Tänään lauantaina vietetään Suomen luonnon päivää. Suomen luonnon päivänä on erilaisia tapahtumia.
+
+Esimerkiksi Nuku yö ulkona -kampanja kannustaa ihmisiä nukkumaan yön ulkona, esimerkiksi teltassa. Suomen luonnon päivänä suositellaan myös liputusta.
+
+Tänään on myös valtakunnallinen sienipäivä. Marttaliitto kannustaa suomalaisia keräämään ja syömään sieniä.
+
+## Venetsialaiset päättää kesän
+
+![Kuvassa valoesityksen tulihahmoja veden äärellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10943055)
+
+Avaa kuvien katselu
+
+Venetsialaisten valoesityksiä veden äärellä. Kuva: Markku Saari / Yle
+
+Tänä viikonloppuna juhlitaan kesämökkikauden ja veneilykauden päättymisen juhlaa. Juhlia sanotaan venetsialaisiksi. Nyt on elokuun viimeinen viikonloppu ja kesä päättyy.
+
+Monet ihmiset sytyttävät rantaan nuotioita ja lyhtyjä. Ne näyttävät kauniilta, kun ilta hämärtyy. Joillakin paikkakunnilla on ilotulitus.
+
+## Sää
+
+![Sininen taivas aurinko ja pilviä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10786511)
+
+Avaa kuvien katselu
+
+Sunnuntaina voi olla myös paljon pilviä. Voi myös olla puolipilvistä, jolloin aurinko välillä näkyy. Kuva: Esko Jämsä / AOP
+
+Sunnuntaina sää on puolipilvinen tai pilvinen. Lähinnä maan etelä- ja kaakkoisosassa sekä pohjoisessa tulee sadekuuroja.
+
+Lämpötila on sunnuntaina 15 ja 20 asteen välillä, aivan pohjoisessa 10 ja 15 asteen välillä

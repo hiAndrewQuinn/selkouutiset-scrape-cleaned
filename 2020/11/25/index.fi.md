@@ -1,0 +1,69 @@
+# Keskiviikko 25.11.2020 (radio)
+
+Koronatilanne. Pakettikuljetukset. Viking Amorella. Tallink Silja. Kaamos.
+
+## Koronatilanne
+
+![Suomessa on raportoitu 353 uutta koronavirustartuntaa, Terveyden ja hyvinvoinnin laitos THL kertoi tiistaina. Koronatestin näytteenottopiste Helsingin ja Uudenmaan sairaanhoitopiirin HUS:in Meilahden sairaala-alueella Helsingissä 24. marraskuuta 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11664345)
+
+Avaa kuvien katselu
+
+Eniten koronatartuntoja on Helsingin ja Uudenmaan alueella. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomessa on raportoitu 4 uutta koronaviruspotilaan kuolemaa.
+
+Uusia koronatartuntoja on raportoitu 363. Eniten uusia koronatartuntoja on Helsingin ja Uudenmaan alueella, jossa niitä on noin 230.
+
+Potilaiden määrä sairaalassa on lisääntynyt. Sairaaloissa on nyt 134 koronapotilasta, eli 14 enemmän kuin maanantaina.
+
+Suomen hallitus on pitänyt kokouksen koronatilanteesta. Hallitus keskusteli siitä, tarvitaanko uusia rajoituksia.
+
+## Pakettikuljetukset lisääntyvät
+
+![Postin pakettiautomaatti Kuopion Pitkälahden ACB -asemalla](https://img.img-cdn.yle.fi/crop_extract,w_3861,h_2172,x_0,y_404/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7324315f8ff09035d48/1603269640)
+
+Avaa kuvien katselu
+
+Paketteja voi lähettä ja noutaa pakettiautomaateista. Kuva: Sami Takkinen / Yle
+
+Suomessa kuljetetaan pian paketteja tosi paljon. Verkkokaupoilla on nyt suuri alennusmyyntiviikko Black Friday.
+
+Monet suomalaiset tilaavat verkkokaupoista tavaroita tai vaatteita. Myös joululahjoja ostetaan paljon verkkokaupoista.
+
+Posti ja kuljetusfirmat sanovat, että pakettiautomaateissa voi olla ruuhkaa. Uusia pakettiautomaatteja on tuotu moneen paikkaan esimerkiksi kauppakeskuksiin, koska pakettien määrä kasvaa.
+
+## Amorellan potkurissa oli vika
+
+![M/S Amorellan siirto Järsön saaren edustalla 23.9.2020.](https://img.img-cdn.yle.fi/crop_extract,w_6108,h_3436,x_0,y_153/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7221485f6af4aa07135/1600845012)
+
+Avaa kuvien katselu
+
+Vikinig Amorella ajoi karille Ahvenanmaan saaristossa. Kuva: Kimmo Gustafsson / Yle
+
+Onnettomuustutkintakeskus on julkaissut raportin Viking Amorella -laivan karilleajosta. Viking Amorella ajoi karille Ahvenanmaalla syyskuussa. Laivan pohja otti kiinni merenpohjan kallioon.
+
+Onnettomuustutkintakeskus sanoo, että Viking Amorella ajoi karille, koska laivan potkuriin tuli vika. Potkuri ohjasi laivaa väärin ja laiva ajoi ulos väylältä.
+
+## Tallink Silja vähentää työntekijöitä
+
+![Tallink Siljan matkustajalaiva Silja Serenade](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_328/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5907975d7a3ef175f9e/1568292698)
+
+Avaa kuvien katselu
+
+Silja Serenade kulkee normaalisti Helsingin ja Tukholman välillä. Nyt liikennettä ei ole. Kuva: Peter Sjöholm/Yle
+
+Laivafirma Tallink Silja vähentää työntekijöitä. Tallink Siljalla on ollut yt-neuvottelut, koska laivamatkustus on melkein loppunut.
+
+Noin 100 henkilön työ Tallink Siljalla loppuu. Lisäksi melkein kaikki Tallink Siljan työntekijät ovat välillä lomautettuna.
+
+## Pohjoisessa alkoi kaamos
+
+![Näkymä Utsjoelta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11165199)
+
+Avaa kuvien katselu
+
+Utsjoen kirkkotuvat talvi-iltana.  Kuva: Esko Jämsä / AOP
+
+Pohjois-Suomessa on alkanut kaamos. Kaamos tarkoittaa, että aurinko pysyy horisontin alapuolella. Esimerkiksi Utsjoella aurinko nousee seuraavan kerran 16. tammikuuta.
+
+Pohjois-Suomessa ei kuitenkaan ole kaamoksen aikaan ihan pimeää. Siellä on vähän valoa, eli on hämärää.

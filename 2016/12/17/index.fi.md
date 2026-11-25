@@ -1,0 +1,73 @@
+# Lauantai 17.12.2016 (radio)
+
+MV-verkkolehden perustaja Ilja Janitskin saadaan todennäköisesti Suomeen oikeudenkäyntiä varten. 13 ihmistä on kuollut pommi-iskussa Turkissa. Pekingin ilma on taas tosi likaista. Operaatio Lumihiutale auttaa autoilijoita, joilla on ongelmia joululiikenteessä. Joulutunnelma on suomalaisille tärkeä asia.
+
+## Janitskin oikeuteen Suomessa
+
+![Ilja Janitskin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9194906)
+
+Avaa kuvien katselu
+
+Ilja Janitskin. Kuva: Yle
+
+MV-verkkolehden perustaja Ilja Janitskin saadaan todennäköisesti Suomeen oikeudenkäyntiä varten. Espanjalainen oikeus päätti, että Janitskin luovutetaan Suomeen. Janitskin on asunut viime vuodet Espanjassa.
+
+Epäillään, että Janitskin on tehnyt monia rikoksia. Janitskin on esimerkiksi ehkä kiihottanut kansanryhmää vastaan eli puhunut pahaa jostakin ryhmästä.
+
+MV-lehti tunnetaan siitä, että se vastustaa maahanmuuttoa ja haukkuu maahanmuuttajia.
+
+## Turkin pommi-isku
+
+![Pommi-iskussa tuhoutunut bussi Kayserissa Turkissa 17. joulukuuta 2016. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9359139)
+
+Avaa kuvien katselu
+
+Pommi-iskussa tuhotui bussi, jonka kyydissä oli sotilaita. Kuva: EPA
+
+Turkissa on tehty pommi-isku. Isku tehtiin bussia vastaan, joka kuljetti sotilaita. 13 ihmistä kuoli, ja noin 50 ihmistä loukkaantui.
+
+Pommi-isku tehtiin Turkin keskiosassa, Kayserissa. Bussissa oli sotilaita, joilla oli vapaapäivä. He olivat matkalla torille.
+
+Turkissa tapahtui pommi-isku edellisen kerran vain viikko sitten.
+
+## Pekingin ilma
+
+![Peking savusumussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9298536)
+
+Avaa kuvien katselu
+
+Pekingin ilma on usein likaista. Kuva: Mika Mäkeläinen / Yle
+
+Kiinan pääkaupungissa Pekingissä ilma on tosi likaista. Ilmassa on niin paljon saasteita, että sen hengittäminen on epäterveellistä.
+
+Pekingin viranomaiset ovat antaneet hälytyksen ilmansaasteiden takia. Se tarkoittaa, että tehtaiden pitää lopettaa työt joksikin aikaa tai ainakin saastuttaa vähemmän. Myös rakennustöitä ja liikennettä vähennetään. Määräykset ovat voimassa keskiviikkoon asti.
+
+Likainen ilma häiritsee usein Pekingin asukkaita.
+
+## Operaatio Lumihiutale
+
+![Operaatio Lumihiutale Tampereella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9359449)
+
+Avaa kuvien katselu
+
+Operaatio Lumihiutale Tampereella. Kuva: Kai Pohjanen / Yle
+
+Suomen autoteillä on alkanut Operaatio Lumihiutale. Se auttaa autoilijoita, joilla on ongelmia joululiikenteessä. Joulunaikaan liikennettä on paljon enemmän kuin tavallisesti.
+
+Autoilijat tarvitsevat apua, kun heiltä esimerkiksi loppuu bensa tai rengas menee rikki. Jos joulunaikaan on kylmä, autot voivat myös jäätyä.
+
+Operaatio Lumihiutaleen auttajat ovat vapaaehtoisia. Operaation järjestäjä on Autoliitto.
+
+## Joulutunnelma
+
+![Joulukynttilä Joensuun taitokorttelin pihassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5689222)
+
+Avaa kuvien katselu
+
+Mikä tuo joulutunnelman? Kuva: YLE / Janne Ahjopalo
+
+Joulutunnelma on suomalaisille tärkeä asia. Mutta mitä joulutunnelma oikeastaan on?
+
+Psykologi Kirsi Salonen sanoo, että monet rakentavat joulutunnelmaa esimerkiksi kynttilöillä, väreillä ja tuoksuilla. Joulutunnelmaa ei kuitenkaan kannata hakea vain kaupan hyllyltä, Salonen sanoo.
+
+Joulutunnelman tekemisestä voi tulla stressiä ja riitoja. Kannattaa ottaa välillä rennosti ja lähteä vaikka ulos luontoon, psykologi Salonen sanoo. Tärkeä osa joulutunnelmaa on rauhoittuminen.

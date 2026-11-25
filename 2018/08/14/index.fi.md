@@ -1,0 +1,69 @@
+# Tiistai 14.8.2018 (radio)
+
+Genovassa romahti moottoritiesilta. Suomen rikoshistorian laajin poliisirikosoikeudenkäynti alkoi. Vantaa jatkaa nimettömän työnhaun kokeilua. Wien on maailman viihtyisin kaupunki.
+
+## Siltaromahdus Italiassa
+
+![Romahtanut silta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10352479)
+
+Avaa kuvien katselu
+
+Moottoritien sillasta romahti noin 100 metrin pituinen pala. Kuva: Luza Zennaro / EPA-EFE
+
+Italiassa Genovan kaupungin lähellä on romahtanut moottoritien silta. Romahduksessa on kuollut ainakin 30, kertoo Italian sisäministeri.
+
+Sillasta putosi alas 100 metrin pituinen osuus. Sillalla oli romahdushetkellä ehkä noin 20 autoa.
+
+Silta oli rakennettu 1960-luvulla. Sitä korjattiin toissavuonna.
+
+Viranomaiset epäilevät, että sillassa oli rakennevikoja.
+
+## Poliisijohtajat oikeudessa
+
+![Helsingin poliisilaitoksen poliisipäällikkö Lasse Aapio median haastateltavana valmisteluistunnon yhteydessä Helsingin käräjäoikeudessa 14. elokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10351861)
+
+Avaa kuvien katselu
+
+Toimittajat ympäröivät Helsingin poliisilaitoksen nykyisen päällikön Lasse Aapion, kun hän saapui käräjäoikeuteen. Kuva: Markku Ulander / Lehtikuva
+
+Helsingin käräjäoikeudessa on alkanut harvinainen oikeudenkäynti. Useita entisiä ja nykyisiä poliisijohtajia syytetään virkarikoksista.
+
+Syytettyinä ovat esimerkiksi entinen poliisiylijohtaja Mikko Paatero, Helsingin poliisilaitoksen entinen päällikkö Jukka Riikonen ja nykyinen päällikkö Lasse Aapio. Syytettynä on myös Helsingin huumepoliisin entinen päällikkö Jari Aarnio.
+
+Syytteet liittyvät tietolähteiden rekisteröintiin Helsingin poliisilaitoksella. Syyttäjä sanoo, että poliisijohtajat eivät ole valvoneet tarpeeksi sitä, miten poliisi käyttää tietolähteitä. Syyttäjä vaatii poliisijohtajille ehdollisia vankeusrangaistuksia tai ankaria sakkoja.
+
+Poliisijohtajat sanovat, että he eivät ole tehneet virkarikoksia.
+
+## Nimetöntä työnhakua
+
+![Työnhakija selaa te palveluita verkossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10029607)
+
+Avaa kuvien katselu
+
+Nimettömän työnhaun tarkoitus on antaa erilaisille hakijoille samanlainen mahdollisuus saada työpaikka. Kuva: Mikko Savolainen / Yle
+
+Vantaa aikoo jatkaa nimettömän rekrytoinnin kokeilua.
+
+Nimetön rekrytointi tarkoittaa sitä, että työhakemuksista poistetaan esimerkiksi hakijan nimi, ikä, sukupuoli ja etninen tausta. Jäljelle jää vain tiedot hakijan osaamisesta eli tiedot koulutuksesta ja työkokemuksesta.
+
+Nimettömän haun tarkoitus on, että erilaisilla hakijoilla on samanlainen mahdollisuus saada työpaikka.
+
+Vantaalla kokeiltiin nimetöntä työnhakua jo viime keväänä.
+
+## Wien on viihtyisin
+
+![Raitiovaunu sillalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7662647)
+
+Avaa kuvien katselu
+
+Wienin perinteinen raitiovaunu Schwedenbrücke-sillalla. Kuva: Gaetan Bally / EPA
+
+Itävallan pääkaupunki Wien on maailman viihtyisin kaupunki.
+
+Australian Melbourne on voittanut kansainvälisen vertailun jo 7 vuotta peräkkäin, mutta nyt se hävisi Wienille ja putosi toiseksi. Kolmanneksi viihtyisin kaupunki on Japanin Osaka.
+
+Brittiläinen tutkimuslaitos vertaili 140 suurkaupunkia. Kaupunkeja vertailtiin esimerkiksi terveydenhoidon, kulttuurielämän, koulutuksen ja ympäristöasioiden suhteen.
+
+Kymmenen kärkeen pääsi Pohjoismaista vain yksi kaupunki: Tanskan Kööpenhamina.
+
+Vertailun häntäpäässä olivat Syyrian pääkaupunki Damaskos, Bangladeshin Dhaka ja Nigerian Lagos.

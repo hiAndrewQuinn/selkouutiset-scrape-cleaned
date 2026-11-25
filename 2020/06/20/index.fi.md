@@ -1,0 +1,81 @@
+# Lauantai 20.6.2020 (radio)
+
+Juhannus on ollut poliisille kiireistä aikaa. Suomessa on löydetty 9 uutta koronatartuntaa. Maailmalla koronavirus leviää nopeasti. Nobel-voittaja Malala Yousafzai on valmistunut yliopistosta. Lämmin sää jatkuu.
+
+(TV:n selkouutisilla on kesätauko. Radion selkouutiset tehdään joka päivä myös kesällä.)
+
+## Juhannuksen vietto
+
+![Kuvassa on poliiseja Hietaniemen uimarannalla Helsingissä juhannusyönä 20. kesäkuuta 2020](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11410854)
+
+Avaa kuvien katselu
+
+Poliiseja Hietaniemen rannalla. Kuva: Leevi Soikkeli / Lehtikuva
+
+Suomalaiset ovat viettäneet tänä viikonloppuna juhannusta. Perjantain ja lauantain välinen yö eli juhannusyö oli kiireinen poliisille.
+
+Esimerkiksi Helsingissä Hietaniemen rannalla oli nuorten joukkotappelu. Nuoret myös heittivät kiviä, pulloja ja ilotulitusraketteja kohti poliisia, kun poliisi meni paikalle.
+
+Poliisi otti kiinni 5 nuorta. Kaikki ovat alle 18-vuotiaita miehiä. Hietaniemen rannalla oli yhteensä monta sataa nuorta.
+
+Juhannuksena on tapahtunut myös hukkumiskuolemia. Ainakin 4 ihmistä on hukkunut juhannuksen aikana.
+
+## Koronatartunnat Suomessa
+
+![THL:n kyltti Mannerheimintiellä Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5172,h_2909,x_0,y_259/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6782355ec3516e816dd/1616069887)
+
+Avaa kuvien katselu
+
+THL eli Terveyden ja hyvinvoinnin laitos laskee Suomen koronatapaukset. Kuva: Tiina Jutila / Yle
+
+Suomessa on löydetty 9 uutta koronatartuntaa. Yhteensä vähän yli 7100 suomalaista on saanut koronatartunnan.
+
+Suomessa on tähän mennessä kuollut 326 ihmistä koronan takia.
+
+## Koronatartunnat maailmalla
+
+![Koronauhrien hautausmaa Manausissa, Brasiliassa kuvattuna 2. kesäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11383959)
+
+Avaa kuvien katselu
+
+Brasiliassa on haudattu paljon ihmisiä, jotka ovat kuolleet koronaan. Kuva: Michael Dantas / AFP
+
+Suomessa koronatilanne on hyvä, mutta maailmalla koronavirus leviää edelleen.
+
+Maailman terveysjärjestö eli WHO varoittaa, että tilanne on vaarallinen. Koronavirus leviää nopeasti, mutta ihmiset eivät jaksa enää pysyä kotona.
+
+Uusia koronatartuntoja on nyt löydetty yhden päivän aikana enemmän kuin koskaan ennen. Uusi ennätys on yli 150 000 koronatartuntaa yhdessä päivässä.
+
+Eniten uusia koronatartuntoja on Amerikassa. USA ja Brasilia ovat ne maat, joissa koronaa on eniten.
+
+Koronavirus on tappanut maailmalla jo yli 450 000 ihmistä.
+
+## Malala Yousafzai
+
+![Malala Yousafzai](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10141080)
+
+Avaa kuvien katselu
+
+Malala Yousafzain mielestä pitää päästä kouluun. Kuva: Sashenka Gutierrez / EPA
+
+Nobel-voittaja Malala Yousafzai on valmistunut yliopistosta. Hän suoritti tutkinnon Oxfordin yliopistossa Britanniassa.
+
+Pakistanilainen Yousafzai on nuorin Nobelin rauhanpalkinnon saaja. Yousafzai sai rauhanpalkinnon vuonna 2014. Hän oli silloin 17-vuotias.
+
+Yousafzai tunnetaan siitä, että hän puolustaa tyttöjen oikeutta koulutukseen. Ääriliike Taleban ampui Malala Yousafzaita vuonna 2012, mutta hän selvisi hengissä.
+
+## Lähipäivien sää
+
+![Kuvassa on Hietaniemen uimaranta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11410477)
+
+Avaa kuvien katselu
+
+Juhannus Helsingissä. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Juhannusaatto eli perjantai oli lämmin. Lämpimin paikka oli Salo, jossa mitattiin 28,7 astetta.
+
+Lämmin sää Suomessa myös jatkuu. Aurinko paistaa koko maassa.
+
+Etelä-Suomessa on monena päivänä hellettä, eli lämpötila on 25 astetta tai enemmän. Ensi viikon alussa lämpötila on melkein 30 astetta.
+
+Sää lämpenee myös Lapissa. Lapin lämpötila voi sunnuntaina olla lähellä 25 astetta.

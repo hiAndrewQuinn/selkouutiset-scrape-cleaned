@@ -1,0 +1,57 @@
+# Torstai 19.8.2021
+
+Afganistan. Kulttuuri ja turvavälit. Kehyskunnat.
+
+TV:n selkouutisilla on kesätauko. Selkouutiset nähdään TV:ssä taas maanantaina 23.8.Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Evakuointi Afganistanista
+
+![pekka haavisto](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_112/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-844038611e5943245cb/1629379218)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto. Kuva: Lehtikuva
+
+Afganistanista on haettu Suomeen nyt yhteensä 34 suomalaista, kertoo ulkoministeri Pekka Haavisto.
+
+Lisäksi Afganistanista on haettu Suomeen joitakin afganistanilaisia, jotka ovat tehneet töitä Suomelle. Afganistanissa on yhä joitakin kymmeniä suomalaisia.
+
+Ihmiset pakenevat Afganistanista, koska tiukan islamistinen Taliban on ottanut vallan.
+
+## Kiintiöpakolaiset
+
+![Sisäministeri Maria Ohisalo vieraili Ylen Aamussa 19. elokuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_227/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-843608611ddcb9d1acd/1630497864)
+
+Avaa kuvien katselu
+
+Sisäministeri Maria Ohisalo vieraili Ylen Aamussa 19. elokuuta. Kuva: Silja Viitala / Yle
+
+Sisäministeri, vihreiden Maria Ohisalo on sitä mieltä, että Suomen pitää ottaa lisää pakolaisia. Suomi valmistautuu siihen, että Afganistanista pakenee ihmisiä.
+
+Suomi on luvannut aikaisemmin ottaa eri maista 1050 niin sanottua kiintiöpakolaista. Sisäministeriön uusi ehdotus on, että Suomi ottaa 2000 pakolaista.
+
+Hallituspuolue vasemmistoliitto kannattaa sisäministeriön ehdotusta. Oppositiopuolueet kokoomus ja perussuomalaiset vastustavat pakolaiskiintiön nostoa. Perussuomalaisten mielestä afganistanilaisia pitää auttaa Afganistanin lähellä.
+
+## Kulttuuritapahtumat
+
+Teattereissa ja konserteissa luovutaan 2 metrin turvaväleistä. Näin sanoo kulttuuriministeri Antti Kurvinen.
+
+Tällä hetkellä teatterin ja konsertin katsomossa pitää olla 2 metrin turvaväli. Tarkoitus on, että korona ei leviä. Esitysten järjestäminen on vaikeaa muun muassa siksi, että katsomoissa pitää olla turvavälit.
+
+## Kehyskunnat
+
+![Ilmakuvassa on Helsingin Kalasatama toukokuussa 2021.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81317360b3385405bc0/1671099260)
+
+Avaa kuvien katselu
+
+Helsingin Kalasatamassa sekä palvelut että julkinen liikenne ovat lähellä. Kuva viime toukokuulta. Kuva: Silja Viitala / Yle
+
+Korona-aikana moni ihminen on muuttanut kehyskuntaan. Kehyskunta on kunta, jonka vieressä on iso kaupunki.
+
+Muun muassa Helsingistä, Tampereelta ja Oulusta muutetaan pienempään kuntaan.
+
+Kehyskunnat ovat nyt kasvaneet paljon nopeammin kuin ennen koronaa.
+
+Ihmiset muuttavat eniten Tuusulaan, Järvenpäähän ja Sipooseen. Nämä kaikki ovat Helsingin lähistöllä. Asukkaiden määrä kasvaa nopeasti myös Kaarinassa. Kaarina on Turun lähellä.
+
+Ihmiset muuttavat kehyskuntiin esimerkiksi siksi, että asunnot ovat halvempia kuin isoissa kaupungeissa.

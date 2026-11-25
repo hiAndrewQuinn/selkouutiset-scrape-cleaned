@@ -1,0 +1,69 @@
+# Sunnuntai 29.11.2020 (radio)
+
+Pääministeri Sanna Marin toivoo, että ihmiset viettävät joulua pienessä joukossa. Suomessa on 322 uutta koronatartuntaa. Koronatilanne on pahentunut Pirkanmaalla. Suomessa on vietetty ensimmäistä adventtisunnuntaita. Viikko alkaa sateisessa säässä.
+
+## Pääministeri kommentoi koronatilannetta
+
+![Pääministeri Sanna Marin saapuu hallituksen neuvotteluihin Säätytalolle 25. marraskuuta 2020 Helsingissä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11665888)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin. Kuva: Emmi Korhonen / Lehtikuva
+
+Pääministeri Sanna Marin on kommentoinut Suomen koronatilannetta.
+
+Marinin mielestä on hyvä, että Suomessa on huomattu, kuinka vakava koronatilanne nyt on. Koronarajoituksia on otettu käyttöön eri puolilla Suomea. Marin sanoo, että koronatilanne voi vielä jopa huonontua.
+
+Pääministeri toivoo, että ihmiset viettävät joulua vain muutaman perheenjäsenen tai ystävän kanssa, eivät suuressa joukossa. Kaikkien pitää myös muistaa turvaväli ja kasvomaski, jos he tapaavat jouluna vanhuksia, Marin sanoo.
+
+Toimittajat haastattelivat Marinia sunnuntaina radio-ohjelmassa Pääministerin haastattelutunti.
+
+## Suomen koronatartunnat
+
+Suomessa on 322 uutta koronatartuntaa. Eniten tartuntoja löydettiin sunnuntaina Helsingin ja Uudenmaan alueelta.
+
+Suomen kaikkien koronatartuntojen määrä on melkein 25 000.
+
+## Pirkanmaan koronarajoitukset
+
+![Työmiehiä asentamassa aitausta Koskikeskuksen yleisöpenkeille.](https://img.img-cdn.yle.fi/crop_extract,w_5486,h_3086,x_0,y_103/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7467135fbf9a8c61eeb/1606393451)
+
+Avaa kuvien katselu
+
+Tamperelaisessa kauppakeskuksessa suljetaan oleskelutiloja koronasuositusten takia. Kuva: Antti Eintola / Yle
+
+Koronatilanne on pahentunut Tampereen seudulla eli Pirkanmaalla.
+
+Uusia koronatartuntoja on löydetty paljon. Esimerkiksi perjantaina löydettiin 39 uutta koronatartuntaa. Se on enemmän kuin koskaan ennen yhdessä päivässä.
+
+Nyt Tampereen seudulle tulee uusia koronasuosituksia. Yli 10 hengen tilaisuuksia ei ole hyvä järjestää, ja esimerkiksi sisäliikuntatilat ja uimahallit on syytä panna kiinni.
+
+Tampereen seudun eli Pirkanmaan uudet koronasuositukset alkavat joulukuun 2. päivä ja loppuvat joulukuun 22. päivä.
+
+## Ensimmäinen adventtisunnuntai
+
+![Kynttila+adventti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6602913)
+
+Avaa kuvien katselu
+
+Sunnuntaina sytytettiin ensimmäinen adventtikynttilä. Kuva: Yle
+
+Suomessa on vietetty ensimmäistä adventtisunnuntaita.
+
+Ensimmäinen adventtisunnuntai aloittaa adventtiajan eli joulunodotuksen. Ensimmäisenä adventtisunnuntaina monessa kodissa sytytetään ensimmäinen adventtikynttilä.
+
+Ennen joulua on 4 adventtisunnuntaita. Siksi myös adventtikynttilöitä on yhteensä 4.
+
+Monet suomalaiset käyvät kirkossa ensimmäisenä adventtisunnuntaina. Tänä vuonna monet ovat seuranneet adventtijuhlaa netin kautta, koska kirkoissa ei saa olla isoja ihmisjoukkoja koronan takia.
+
+## Alkuviikon sää
+
+![ Lapsi liikkeellä sateessa Espoon Suvelassa 19. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11655646)
+
+Avaa kuvien katselu
+
+Sateinen sää jatkuu. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Viikko alkaa sateisessa säässä. Etelässä sataa vettä, ja pohjoisessa sataa lunta.
+
+Lämpötila on nollan tienoilla. Etelässä on vähän lämpöasteita, pohjoisessa on vähän pakkasta. Yöllä pakkasta voi olla koko maassa.

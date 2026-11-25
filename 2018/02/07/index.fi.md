@@ -1,0 +1,7 @@
+# Keskiviikko 7.2.2018 (tv)
+
+Turun joukkopuukotus. Uudet ministerit. Hiihtolomamatkat. Kantoraketti avaruteen. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Turun joukkopuukotus. Uudet ministerit. Hiihtolomamatkat. Kantoraketti avaruteen. Säätiedot.

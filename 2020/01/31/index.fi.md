@@ -1,0 +1,67 @@
+# Perjantai 31.1.2020 (radio)
+
+Finnair peruu kaikki lennot Kiinaan. Britannian ero EU:sta tulee voimaan lauantaina. Siitepölyaika on alkanut Etelä-Suomessa. Lumitilanne on ollut tammikuussa epätavallinen.
+
+## Finnair peruu lennot Kiinaan
+
+![Finnairplan landar på Stockholm Arlanda flygplats](https://img.img-cdn.yle.fi/crop_extract,w_3895,h_2191,x_0,y_207/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-43915859f70104170f0/1509371759)
+
+Avaa kuvien katselu
+
+Finnair ei lennä Kiinaan helmikuussa. Kuva: Mostphotos.com / Stefan Holm
+
+Finnair peruu kaikki lennot Kiinaan. Finnairin lennot Kiinaan loppuvat ensi viikolla.
+
+Lennot on peruttu helmikuun loppuun asti. Lennot Guangzhouhun, Nanjingiin ja Pekingin Daxing-lentokentälle on peruttu maaliskuun loppuun asti.
+
+Finnairin lennot Hongkongiin jatkuvat normaalisti.
+
+Finnair lopettaa lennot Kiinaan koronaviruksen takia. Koronavirus leviää nopeasti. Virus löydettiin joulukuussa Kiinan Wuhanista, sen jälkeen virus on tappanut yli 200 kiinalaista.
+
+Koronavirus aiheuttaa samanlaisia oireita kuin influenssa. Oireita ovat esimerkiksi kuume ja yskä.
+
+## Brexit tulee voimaan
+
+![Mies nostaa lippuja salkoon](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11184886)
+
+Avaa kuvien katselu
+
+Helmikuussa Britannia ei ole enää EU-maa. Kuva: Neil Hall / EPA
+
+Brexit eli Britannian ero Euroopan unionista on viimein totta. Britannia eroaa Euroopan unionista lauantaiyönä, eli heti kun helmikuun 1. päivä alkaa.
+
+Aluksi isoja muutoksia ei tapahdu, koska Britannia noudattaa EU:n sääntöjä tämän vuoden loppuun asti. Siksi ihmiset voivat matkustaa Britanniaan kuten ennenkin, ja kauppa jatkuu normaalisti.
+
+Ensi vuonna kaupalle voi tulla esteitä, jos EU ja Britannia eivät saa uutta kauppasopimusta valmiiksi vuoden loppuun mennessä. Neuvottelut uudesta sopimuksesta voivat olla vaikeita.
+
+Britit äänestivät EU-eron puolesta jo vuonna 2016. Britit haluavat esimerkiksi vähentää maahanmuuttoa EU-maista Britanniaan.
+
+Siitepölyä on jo ilmassa
+
+## Siitepölyaika on alkanut.
+
+![Pähkinäpensaan norkkoja. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11185899)
+
+Avaa kuvien katselu
+
+Pähkinäpensasa kukkii jo Etelä-Suomessa. Kuva: Anna-Mari Pessi / Turun yliopisto 
+
+Turun yliopisto antoi siitepölytiedotteen perjantaina eli tammikuun viimeisenä päivänä. Yleensä kevään ensimmäinen siitepölytiedote annetaan paljon myöhemmin, vasta maaliskuussa tai huhtikuussa.
+
+Tämän kevään ensimmäinen tiedote varoittaa allergisia ihmisiä pähkinäpensaan siitepölystä. Pähkinäpensas on jo alkanut kukkia Etelä-Suomessa, koska sää on lämmin.
+
+Pohjois-Suomessa on kunnon talvi, eli siellä on lunta ja pakkasta. Siksi siitepölyaika ei ole vielä alkanut pohjoisessa.
+
+## Lunta on vähän ja paljon
+
+![Lumityövälineet ovat hautautuneet lumeen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10616390)
+
+Avaa kuvien katselu
+
+Lumilapiota tarvitaan nyt pohjoisessa, etelässä ei. Kuva: Ismo Pekkarinen / AOP
+
+Lumitilanne on ollut tammikuussa epätavallinen.
+
+Helsinki ei ole ollut yhtään päivää lumen peitossa. Tämä on ensimmäinen kerta mittaushistoriassa, että Helsingissä ei ollut lunta yhtenäkään tammikuun päivänä.
+
+Samaan aikaan Lapissa on paljon lunta. Tämän viikon torstaina Lapin Kittilässä oli 111 senttimetriä lunta. Se on tammikuun lumiennätys Kittilässä.

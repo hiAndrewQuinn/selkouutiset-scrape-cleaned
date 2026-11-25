@@ -1,0 +1,84 @@
+# Tiistai 22.6.2021
+
+Ukkossateet. Koronarokotustodistus. Vuoden pakolaiset. Jalkapallon EM.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Ukkossateet
+
+![Kaatunut kuusi Oulun Pikisaaressa](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82421360d1c34450b98/1624359876)
+
+Avaa kuvien katselu
+
+Kova tuuli kaatoi puita Pohjanmaalla. Kuva: Timo Nykyri / Yle
+
+Suomessa on ollut kovia ukkossateita. Pohjanmaalla on satanut myös isoja rakeita.
+
+Myös tuuli on ollut kovaa. Tuuli on kaatanut puita ja katkaissut sähköt monilta kodeilta.
+
+Maanantaina yksi ihminen kuoli Oulussa myrskyn takia. Hän jäi puun alle, joka kaatui myrskyssä.
+
+## Koronarokotustodistus
+
+![Koronarokotustodistus puhelimessa.](https://img.img-cdn.yle.fi/crop_extract,w_4034,h_2269,x_0,y_6/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82413560d1b27c91dea/1624357404)
+
+Avaa kuvien katselu
+
+Koronarokotustodistus löytyy osoitteesta kanta.fi. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomessa on otettu käyttöön Euroopan unionin koronarokotustodistus.
+
+Suomalaiset löytävät oman koronarokotustodistuksen netistä, Omakanta-palvelusta. Osoite on kanta.fi.
+
+Tieto koronarokotuksesta tulee Omakanta-palveluun viimeistään 5 päivää rokotuksen jälkeen.
+
+Ihmiset tarvitsevat koronarokotustodistusta esimerkiksi ulkomaanmatkojen aikana.
+
+## Vuoden pakolaiset
+
+![Sara Al Husaini ja Ahmed Mesaedy.](https://img.img-cdn.yle.fi/crop_extract,w_4692,h_2639,x_0,y_1642/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82400360d1755e4f12a/1624340230)
+
+Avaa kuvien katselu
+
+Sara Al Husaini ja Ahmed Mesaedy valittiin Vuoden pakolaisiksi. Kuva: Julius Töyrylä 
+
+Suomen Pakolaisapu on valinnut Vuoden pakolaiset.
+
+Vuoden pakolaisnainen on espoolainen Sara Al Husaini. Al Husainin perhe on Irakista. Hän on syntynyt pakolaisleirillä Saudi-Arabiassa.
+
+Sara Al Husaini vietti lapsuusajan Kuopiossa, Itä-Suomessa. Nyt hän haluaa tuoda esiin pakolaistaustaisten lasten ja naisten asioita.
+
+Vuoden pakolaismies on Ahmed Mesaedy. Hän pakeni Irakista ja tuli Suomeen vuonna 2015. Hän on tehnyt työtä maahanmuuttajien neuvonnassa ja ollut esimerkiksi kehittämässä Tampereen kaupungin palveluja.
+
+## Jalkapallon EM
+
+![Lukas Hradecky heittäytyy pallon eteen. ](https://img.img-cdn.yle.fi/crop_extract,w_3795,h_2135,x_0,y_47/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82185060ca099a6b265/1623853526)
+
+Avaa kuvien katselu
+
+Suomen maalivahti Lukas Hradecky on pelannut tosi hyvin Suomen maalilla. Maanantaina hänellä oli kuitenkin myös epäonnea. Kuva: Anton Vaganov / EPA
+
+Suomi on hävinnyt Belgialle jalkapallon EM-kilpailuissa. Belgia voitti maanantaina Suomen 2 - 0.
+
+Peli oli jännittävä. Tilanne oli pitkään tasan 0 - 0. Suomi tarvitsi ainakin tasapelin jatkopaikkaa varten.
+
+Kun peliaikaa oli jäljellä noin 15 minuuttia, Belgia teki maalin. Suomella oli tilanteessa epäonnea. Pallo pomppasi Suomen maalivahti Lukas Hradeckyn kautta Suomen omaan maaliin.
+
+Vähän myöhemmin Romelu Lukaku teki Belgian toisen maalin. Suomi siis hävisi, mutta pelasi hienosti. Belgia oli vaikea vastustaja, koska se on yksi parhaista jalkapallomaista.
+
+Suomen tilanne jalkapallon Euroopan mestaruuskilpailuissa on nyt huono. Suomi ei ehkä saa jatkopaikkaa. Asia varmistuu keskiviikkona.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11994285)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sade ja ukkonen jatkuvat keskiviikkona.
+
+Etelässä sää on kuuma, lämpötila on noin 30 astetta.
+
+Pohjoisessa keskiviikko on viileä päivä, lämpötila on 15 ja 20 asteen välillä.

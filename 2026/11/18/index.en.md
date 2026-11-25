@@ -1,57 +1,59 @@
-# Clear News | Tuesday 16.11.2026
+# Clear News | Wednesday 18.11.2026
 
-Training agreement. New treatment recommendations for obesity. Aircraft noise.
+Unemployment is decreasing. Foreign companies are protecting Finnish nature. Hazard information.
 
-## Studying with a training contract
+## Unemployment is decreasing
 
-First, news about the training agreement.
+First, the news about unemployment.
 
-Student **Ramona Nurminen** has worked in the library for one and a half years without pay.
+The Ministry of Employment and the Economy predicts that employment will improve by the end of the year.
 
-She is studying to become a librarian at Keuda. Her studies include working in a library.
+However, there will still be 340,000 Finns without work next year.
 
-Nurminen feels that he is doing the work of a salaried employee.
+In 2028, there will be slightly fewer unemployed people, 328,000.
 
-Student Ramona Nurminen has worked at the library for a year and a half without pay.
+The ministry predicts that employment will improve by the end of the year.
 
-Vantaa Library and Nurminen School say that students do not replace paid employees.
+The growth of the Finnish economy affects the number of jobs in different sectors.
 
-**Petri Lempinen**, Director of the Ministry of Education and Culture, says that a year and a half is too long to work without pay.
+## Finnish nature conservation
 
-## New obesity treatment recommendations
+Now about nature conservation.
 
-Now news about obesity treatment.
+Foreign companies want to donate money to protect Finnish nature.
 
-Chat clinics are no longer allowed to write prescriptions for obesity drugs. This is according to the new current treatment recommendation.
+Foundations focused on nature conservation have noticed that there are an increasing number of such companies.
 
-Current treatment is a recommendation made by doctors based on research.
+These companies usually operate in Finland. They want to compensate for the damage they have caused.
 
-A prescription for obesity medication has been received from a chat clinic without the doctor having checked the patient's information.
+For example, there is a bog in Hartola, for the protection of which a Spanish travel agency donated money.
 
-Chat clinics are no longer allowed to write prescriptions for obesity medication.
+Foreign companies want to donate money to protect Finnish nature.
 
-Previously, admission to bariatric surgery required a patient to have lost 5 percent of their weight. In the future, this will no longer be necessary.
+**Perttu** **Saarinen** works as a biologist at the For a Better Nature Foundation.
 
-## Vantaa aircraft noise
+He says that rare birds live in the swamp. The foundation protects nature with money donated by companies.
 
-Now news about aircraft noise.
+## New hazard notice
 
-Vantaa allows new houses to be built in an area with a lot of aircraft noise.
+Now about the hazard announcements.
 
-In the future, thousands more people will live in Vantaa in an area that is harmful to health.
+Yesterday, Finland tested sending hazard information directly to a phone.
 
-Vantaa allows new houses to be built in an area with a lot of aircraft noise.
+However, the new FI-Alert warning did not reach all phones. For some, the message first arrived in the Sámi language.
 
-The authority says that new houses must be built elsewhere.
+The Home Office admits it did not provide enough guidance before the test.
 
-The City of Vantaa says that sufficient soundproofing protects residents from noise.
+Yesterday, Finland tested sending hazard alerts directly to phones.
+
+The system will be tested next Tuesday.
 
 ## Weather
 
 Still a weather forecast.
 
-On Wednesday, it will snow in the north and the road may be slippery.
+The weather will be changeable on Thursday.
 
-It's raining in the south.
+There may be light rain in many places. Snow will fall in the north.
 
-It's a little frosty in the north, below +5 degrees in the south.
+Temperatures vary from -4 degrees to +5 degrees.

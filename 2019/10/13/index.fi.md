@@ -1,0 +1,65 @@
+# Sunnuntai 13.10.2019 (radio)
+
+Isis-taistelijoiden perheenjäseniä on karannut Ain Issan leiriltä. Taifuuni aiheutti kuolonuhreja Japanissa. Puolassa on parlamenttivaalit. Kalifornia kieltää turkisten tuotannon ja myynnin.
+
+## Kurdit pakenevat Turkin hyökkäystä
+
+![Kurdiperhe pakenee Turkin hyökkäsytä Pohjois-Syyriassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11015309)
+
+Avaa kuvien katselu
+
+Kurdiperheet pakenevat Ras al-Ainin kaupungista torstaina. Kuva: EPA 
+
+Turkin hyökkäys Koillis-Syyriaan on jatkunut.
+
+YK kertoo, että 130 000 ihmistä on joutunut lähtemään pakoon kodistaan. YK arvioi, että yhtensä jopa 400 000 ihmistä joutuu ehkä lähtemään kotoa.
+
+Kurdiviranomaiset kertovat, että Pohjois-Syyriassa Ain Issan leiriltä on päässyt pakoon satoja Isis-taistelijoiden perheenjäseniä. Leirillä ei tällä hetkellä ole vartijoita. Leiri sijaitsee lähellä sitä aluetta, jossa Turkki sotii kurdijoukkoja vastaan.
+
+Kurdien vartioimissa vankiloissa Syyriassa on yhteensä ehkä 12 000 Isis-taistelijaa. Pakolaisleireillä on yhtä paljon ulkomailta tulleita naisia ja lapsia.
+
+## Japanin taifuunissa kuolonuhreja
+
+![Tulvia Naganossa.](https://img.img-cdn.yle.fi/crop_extract,w_5261,h_2959,x_0,y_271/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5996095da2a9724f586/1570941367)
+
+Avaa kuvien katselu
+
+Tulvia Naganossa Japanissa.
+
+Japanissa ainakin 26 ihmistä on kuollut ja 8 on kateissa taifuuni Hagibisin takia. Uutistoimistot kertovat, että ainakin 150 ihmistä on loukkaantunut.
+
+Hagibis rantautui Japanin pääsaaren Honshun rannikolle lauantaina illalla. Monta tuntia jatkunut kaatosade aiheutti paljon tulvia ja maanvyöryjä.
+
+Tokion liikenne meni sekaisin myrskyn takia. Kaikki lennot Tokion alueella peruttiin, samoin suurin osa junavuoroista.
+
+Naganossa padon pettäminen sai veden tulvimaan asuinalueelle. Vesi nousi taloissa jopa toiseen kerrokseen asti.
+
+Nyt myrsky on jo heikompi.
+
+## Puolan parlamenttivaalit
+
+![Jaroslaw Kaczynski.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8961014)
+
+Avaa kuvien katselu
+
+Puolan Laki ja oikeus -puolueen puheenjohtaja Jaroslaw Kaczynski. Kuva: Radek Pietruszka / EPA
+
+Puolassa on sunnuntaina parlamenttivaalit. Vaalien ennakkosuosikki on Laki ja oikeus -puolue.
+
+Mielipidekyselyt ovat kertoneet, että kansallismielinen Laki ja oikeus -puolue saa yli 40 prosenttia äänistä. Puolueella on jo nyt yli puolet parlamentin alahuoneen paikoista.
+
+Oppositio on arvostellut puoluetta siitä, että se heikentää Puolan demokratiaa ja oikeusjärjestelmää. Myös Euroopan unioni on moittinut Puolaa.
+
+## Kalifornia kieltää turkikset
+
+![Naisen kasvot näkyvät kettu- ja minkkiturkiksen keskeltä.](https://img.img-cdn.yle.fi/crop_extract,w_3500,h_1969,x_0,y_180/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5996245da2e08052a99/1570955564)
+
+Avaa kuvien katselu
+
+Aiemmin turkismyynti on kielletty jo monissa Kalifornian kaupungeissa, muun muassa Los Angelesissa ja San Franciscossa. Arkistokuvassa malli esittelee kettu- ja minkkiturkista Saksan Frankfurtissa olleilla messuilla. Kuva: Frank May / EPA
+
+USA:ssa Kalifornian osavaltio kieltää turkisten tuotannon ja myynnin. Kielto tulee voimaan vuonna 2023. Kalifornia on 1. USA:n osavaltio, joka kieltää turkisbisneksen koko osavaltiossa.
+
+Käytettyjä turkiksia saa myydä jatkossakin. Laki ei koske myöskään esimerkiksi nahkaa tai täytettyjä eläimiä.
+
+Jos lain rikkomisesta jää kiinni, pitää maksaa sakot..

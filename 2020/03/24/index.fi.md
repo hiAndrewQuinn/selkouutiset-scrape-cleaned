@@ -1,0 +1,91 @@
+# Tiistai 24.3.2020 (radio)
+
+Hallitus aikoo sulkea ravintoloita ja eristää Uudenmaan. Presidentti ja rouva Ahtisaarella on koronavirus. Perussuomalaiset perui välikysymyksen. Olympialaisia siirretään vuodella. WWF vei kameran sääksen pesälle. Egenland pyytää matkavinkkejä.
+
+## Lisää liikkumisrajoituksia
+
+![Pääministeri Sanna Marin menossa eduskuntapuolueiden koronavirusta käsittelevään kokoukseen Säätytalolle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11273196)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Hallitus aikoo kiristää suomalaisten liikkumisrajoituksia. Rajoituksilla halutaan estää koronaviruksen leviäminen.
+
+Uudenmaan alue aiotaan eristää. Uusimaa eristetään, koska siellä on eniten koronavirustartuntoja.
+
+Hallitus haluaa myös sulkea kahvilat, ravintolat ja yökerhot.
+
+Eduskunnan pitää käsitellä vielä uudet rajoitukset. Kaikki puolueet sanovat, että ne tukevat uusia rajoituksia.
+
+## Koronavirustartunta
+
+![Martti Ahtisaari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11272533)
+
+Avaa kuvien katselu
+
+Presidentti Martti Ahtisaari. Kuva: Roni Rekomaa / Lehtikuva
+
+Presidentti Martti Ahtisaarella on todettu koronavirustartunta. Asiasta kertoo tasavallan presidentin kanslia. Tartunta varmistui eilen.
+
+Viikonloppuna kerrottiin, että myös rouva Eeva Ahtisaarella on koronavirustartunta.
+
+Suomessa on nyt todettu melkein 800 koronavirustartuntaa. .
+
+## Välikysymys
+
+![Ville Tavio ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11272658)
+
+Avaa kuvien katselu
+
+Perussuomalaisten eduskuntaryhmän puheenjohtaja Ville Tavio. Kuva: Markku Ulander / Lehtikuva
+
+Perussuomalaiset vetää pois välikysymyksen, jonka se jätti hallitukselle 2 viikkoa sitten. Välikysymys vedetään pois koronavirustilanteen takia.
+
+Välikysymys koski hallituksen linjauksia turvapaikkapolitiikasta ja siirtolaistilanteesta Kreikan ja Turkin rajalla. Hallituksen oli määrä vastata välikysymykseen huomenna.
+
+## Tokion olympialaiset
+
+![Japanin Tokiossa osoitettiin tiistaina mieltä olympialaisia vastaan. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11273417)
+
+Avaa kuvien katselu
+
+Tokiossa osoitettiin mieltä olympialaisia vastaan. Kuva: Kazuhiro Nogi / AFP
+
+Olympialaisia siirretään koronaviruksen takia.
+
+Tämän vuoden kesäolympialaiset siirtyvät vuodella. Ne pidetään siis kesällä vuonna 2021.
+
+Olympialaiset piti alun perin pitää tänä kesänä Japanin pääkaupungissa Tokiossa. Niiden piti alkaa 24. heinäkuuta.
+
+## Sääksen pesällä
+
+![Sääksipariskunta pesäpaikallaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10746112)
+
+Avaa kuvien katselu
+
+WWF:n kamera seurasi sääksien pesintää myös viime keväänä. Kuva: WWF Luontolive
+
+Luonnonsuojelujärjestö WWF on aloittanut verkkolähetyksen sääksen pesällä.
+
+Sääksi on iso petolintu. Se elää järvialueilla ja merenrannikolla.
+
+Sääksen pesä on vielä tyhjä, mutta WWF odottaa siihen asukkaita ihan lähiaikoina.
+
+Sääksen pesää voit katsoa tästä.
+
+## Matkavinkki Egenlandille
+
+![Egenlandin juontajat Hannamari Hoikkala ja Nicke Aldén seurassaan suolentisjoukkue Kivenlahden Kireet suolentopallon MM-kisoissa Haukivuorella.](https://img.img-cdn.yle.fi/crop_extract,w_3200,h_1800,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6298515e1877c131a1b/1578661942)
+
+Avaa kuvien katselu
+
+Egenland ja suolentisjoukkue Kivenlahden Kireet suolentopallon MM-kisoissa Haukivuorella. Kuva: Yle/Eva Pursiainen
+
+Nyt kun koronaviruksen takia meidän kaikkien pitää pysyä kotona mahdollisimman paljon, voi ajan kuluksi vaikka muistella vanhoja matkoja ja kivoja paikkoja, joissa joskus on käynyt.
+
+Jos mieleen tulee jokin oikein hauska paikka tai tapahtuma täällä Suomessa, Ylen matkaohjelma Egenland haluaa kuulla siitä. Egenland haluaa kuulla etenkin sellaisista paikoista, joista kaikki ihmiset eivät ehkä vielä tiedä.
+
+Voit kertoa oman matkavinkkisi lomakkeella, jonka löydät Egenlandin nettisivulta osoitteessa yle.fi/egenland.
+
+Egenland selkosuomeksi.

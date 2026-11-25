@@ -1,0 +1,7 @@
+# Perjantai 22.1.2021 (tv)
+
+EU:n koronarokotukset. Vanhusten koronarokotukset Suomessa. Turvapaikanhakijat. Sääennuste.
+
+Yle Uutiset selkosuomeksi
+
+EU:n koronarokotukset. Vanhusten koronarokotukset Suomessa. Turvapaikanhakijat. Sääennuste.

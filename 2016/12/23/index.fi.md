@@ -1,0 +1,79 @@
+# Perjantai 23.12.2016 (radio)
+
+Poliisi ampui Berliinin hyökkääjän Italiassa. Vammaiset ja vanhukset saavat ehkä henkilökohtaisen hoitobudjetin. Netissä myydään yhä enemmän huumeita. Monet suomalaiset matkustavat tänään viettämään joulua esimerkiksi sukulaisten luokse tai mökille. Turvatoimia on tavallista enemmän, kun joulurauha julistetaan lauantaina Turussa.
+
+## Poliisi ampui Berliinin hyökkääjän Italiassa
+
+![Rikostutkijat keräävät todisteita ampumispaikalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9371528)
+
+Avaa kuvien katselu
+
+Poliisit keräävät todisteita Milanossa. Kuva: Daniele Bennati / EPA
+
+Berliinin terrori-iskun tekijä Anis Amri on kuollut. Poliisi ampui hänet Milanossa Italiassa.
+
+Amri tuli junalla Milanoon ja asemalla poliisi kysyi häneltä henkilöllisyystodistusta. Amri veti aseen esiin ja poliisit ampuivat hänet. Yksi poliisi haavoittui.
+
+Tunisialainen Anis Amri ajoi tahallaan kuorma-autolla joulutorille Berliinissä Saksassa maanantaina. 12 ihmistä kuoli ja kymmeniä loukkaantui.
+
+## Henkilökohtainen hoitobudjetti
+
+![Raisa Ticklén opaskoiran kanssa Näkövammaisten liiton käytävällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9371918)
+
+Avaa kuvien katselu
+
+Raisa Ticklén ja opaskoira. Kuva: Mårten Lampén / Yle
+
+Kun sosiaali- ja terveydenhuollon uudistus eli sote-uudistus tulee voimaan, vanhukset ja vammaiset saavat ehkä henkilökohtaisen hoitobudjetin.
+
+Se tarkoittaa, että vanhus tai vammainen saa käyttää tietyn summan rahaa palveluihin. Esimerkiksi sokea saa ostaa autokyytejä tai kotiapua keneltä haluaa.
+
+Hoitobudjetin summat päättää esimerkiksi sosiaalityöntekijä.
+
+## Huumekauppa helppoa netissä
+
+![Tor-verkko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9364689)
+
+Avaa kuvien katselu
+
+Tor-verkossa voi toimia nimettömänä. Kuva: Eetu Pietarinen / Yle
+
+Netissä myydään yhä enemmän huumeita.
+
+Huumeita on helppo ostaa netin kautta. Niitä myydään Tor-verkossa, jossa ihmiset voivat toimia nimettöminä. Esimerkiksi Silkkitie-nimisellä nettisivulla tarjotaan nyt huumeita melkein 100 prosenttia enemmän kuin vuosi sitten. Sivulle on tullut uusia myyjiä.
+
+Poliisi tietää netin huumekaupat ja seuraa niitä. Joskus poliisi esittää huumeiden ostajaa ja ottaa myyjän kiinni, kun hän tulee tuomaan huumetta. 
+
+## Superjuna ja paljon muuta liikennettä
+
+![Auton pakokaasua pakkasilmassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9209579)
+
+Avaa kuvien katselu
+
+Moni perhe matkustaa jouluksi mummolaan. Kuva: Kaisa Siren / AOP
+
+Maanteillä on tänään perjantaina paljon liikennettä, kun monet lähtevät Helsingin seudulta muualle Suomeen viettämään joulua. Eniten autoja on ollut liikkeellä kello 15:n ja 18:n välillä. Keli on koko maassa hyvä, mutta joissakin kohdissa tie voi olla jäässä ja liukas.
+
+Rautateillä kulkee Helsingistä Rovaniemelle ennätyspitkä juna. Se on yli 400 metriä pitkä ja sen kyydissä on 1500 matkustajaa. Juna on perillä Rovaniemellä ennen keskiyötä.
+
+## Joulurauhaa Turusta aattona
+
+![Joulurauha julistettiin jälleen Brinkkalan talon parvekkeelta, Turun Vanhalta Suurtorilta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6131338)
+
+Avaa kuvien katselu
+
+Joulurauha julistetaan Turun vanhalla suurtorilla. Kuva: YLE / Jouni Koutonen
+
+Joulurauha julistetaan perinteiseen tapaan Turussa huomenna jouluaattona kello 12.
+
+Poliisi kertoo, että Turun vanhalla suurtorilla on tavallista enemmän turvatoimia. Niiden syynä on muun muassa Berliinin viime maanantain hyökkäys. Poliisi sanoo kuitenkin, että mitään selvää uhkaa ei Turussa ole ja ihmisten ei tarvitse olla huolissaan.
+
+## Hyvää joulua!
+
+![Joulupukki ja poro](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9371809)
+
+Avaa kuvien katselu
+
+Joulupukki lähti taas Lapista tapaamaan maailman lapsia. Kuva: Yle
+
+Hyvää joulua selkouutisten kuuntelijoille! Selkouutisia ei tule joulunpyhinä, vaan seuraavan kerran tiistaina 27. joulukuuta.

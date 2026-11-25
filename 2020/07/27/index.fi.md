@@ -1,0 +1,76 @@
+# Maanantai 27.7.2020 (radio)
+
+Suomalaiset luottavat taas talouteen. Suomessa on 5 uutta koronatartuntaa. Suomi on tiukentanut rajavalvontaa Suomen ja 3 Euroopan maan välillä koronan takia. Poliisi etsii tällä viikolla liikenteestä rattijuoppoja. Aurinko laski Utsjoella ensimmäisen kerran yli 2 kuukauteen.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Luottamus talouteen
+
+![Kauppa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10592457)
+
+Avaa kuvien katselu
+
+Monet suomalaiset luottavat talouteen ja aikovat ostaa uusia tavaroita. Kuva: Ismo Pekkarinen / AOP
+
+Suomalaiset luottavat taas talouteen. Moni suomalainen uskoo, että oma talous ja myös koko Suomen talous menevät nyt hyvään suuntaan.
+
+Asiassa on tapahtunut nopea muutos. Keväällä koronakriisin pahimpaan aikaan suomalaiset luottivat talouteen tosi vähän.
+
+Muutos näkyy niin, että monet suomalaiset aikovat nyt käyttää rahaa uusiin tavaroihin. Monet aikovat myös ottaa lainaa ja ostaa uuden auton tai asunnon.
+
+Tiedot ovat Tilastokeskuksen tutkimuksesta.
+
+## Koronatartunnat
+
+![Matkustajia maskeissaan Helsinki-Vantaan lentoasemalla 17. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11466873)
+
+Avaa kuvien katselu
+
+Korona ei ole päässyt leviämään Suomessa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Terveyden ja hyvinvoinnin laitos on kertonut maanantaina, että Suomessa on 5 uutta koronatartuntaa. Koronatartuntoja on Suomessa yhteensä noin 7400.
+
+Uusia koronakuolemia ei ole. Tähän mennessä 329 ihmistä on kuollut Suomessa koronan takia.
+
+## Rajavalvonta
+
+![Finnairin lentokone Helsinki-Vantaan lentoasemalla Vantaalla 3. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11463493)
+
+Avaa kuvien katselu
+
+Matkustajien pitää pysyä kotona karanteenissa 2 viikkoa, jos he palaavat Itävallasta, Sloveniasta tai Sveitsistä. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomen rajavalvonnassa on tapahtunut maanantaina muutoksia.
+
+Suomi on tiukentanut rajavalvontaa Suomen ja 3 Euroopan maan välillä koronan takia. Maat ovat Itävalta, Slovenia ja Sveitsi. Näissä maissa koronatartunnat ovat lisääntyneet.
+
+Suomalaiset voivat edelleen palata näistä maista kotiin. Viranomaiset kuitenkin suosittelevat, että he pysyvät matkan jälkeen 2 viikkoa kotona karanteenissa. Näin halutaan estää koronaviruksen leviäminen.
+
+Liikenne Suomen ja monien Euroopan maiden välillä on jo vapaata, koska koronatilanne on parantunut. Jos koronatilanne pahenee uudelleen jossakin maassa, Suomi tiukentaa rajavalvontaa, kuten nyt Itävallan, Slovenian ja Sveitsin liikenteessä.
+
+## Rattijuopot kesällä
+
+![Rattijuopumusvalvonnan pistokoe Helsingissä juhannuspäivänä. Rekisterikilpi kuvassa on sumennettu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10270940)
+
+Avaa kuvien katselu
+
+Puhalluskoe näyttää nopeasti, onko kuljettaja juonut alkoholia. Kuva: Jouni Immonen / Yle
+
+Poliisi etsii tällä viikolla liikenteestä rattijuoppoja. Poliisi etsii rattijuoppoja puhalluskokeilla, jotka näyttävät, onko autoilija juonut alkoholia.
+
+Poliisi etsii rattijuoppoja erityisesti paikkakunnilla, joissa on paljon kesämökkejä. Kesällä rattijuoppoja on liikenteessä yleensä enemmän kuin muina aikoina.
+
+## Auringonlasku Utsjoella
+
+![Kuvassa on yötön yö Rovaniemellä kesäkuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6955455efd6c4eb5e48/1593671544)
+
+Avaa kuvien katselu
+
+Utsjoen yötön yö on nyt ohi.  Kuva: Vesa Vaarama / Yle
+
+Aurinko on laskenut Utsjoella ensimmäisen kerran yli 2 kuukauteen. Utsjoki on Suomen pohjoisin kunta.
+
+Edellisen kerran aurinko laski Utsjoella toukokuun 16. päivä. Aurinko siis pysyi taivaalla 72 vuorokautta.
+
+Yö on Utsjoella vielä lyhyt. Sunnuntain ja maanantain välinen yö kesti alle tunnin.

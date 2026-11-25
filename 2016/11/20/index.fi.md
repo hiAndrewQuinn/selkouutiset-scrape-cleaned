@@ -1,0 +1,61 @@
+# Sunnuntai 20.11.2016 (radio)
+
+Valtion anteeksipyyntö lapsille. Lapsen oikeuksien päivä. Intiassa paha junaonnettomuus. Ruotsin poliisi haluaa laivoille tiukempaa alkoholivalvontaa. Joulukatu avattiin.
+
+## Valtion anteeksipyyntö lapsille
+
+![Perhe- ja peruspalveluministeri Juha Rehula.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9305178)
+
+Avaa kuvien katselu
+
+Ministeri Juha Rehula esitti valtion anteeksipyynnön sunnuntaina Finlandia-talossa Helsingissä. Kuva: Yle
+
+Perheministeri Juha Rehula esitti valtion anteeksipyynnön kaikille niille suomalaisille, joita suomalainen lastensuojelu on kohdellut huonosti.
+
+Anteeksipyyntö perustuu tutkimukseen, jossa käsiteltiin lasten kokemuksia laitoksissa 1930-luvulta 1980-luvulle saakka. Selvityksen mukaan lapset kokivat ruumiillista, henkistä ja seksuaalista väkivaltaa.
+
+## Lapsen oikeuksien päivä
+
+Tänään sunnuntaina on kansainvälinen lapsen oikeuksien päivä.
+
+YK:n lapsen oikeuksien sopimus tuli Suomessa voimaan tasan 25 vuotta sitten. Sopimuksen tavoitteena on taata terveys, koulutus, tasa-arvo ja turva kaikille lapsille.
+
+## Intiassa paha junaonnettomuus
+
+![Onnettomuuspaikka Kanpurin kaupungin lähellä sunnuntaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9304993)
+
+Avaa kuvien katselu
+
+Onnettomuuspaikka Kanpurin kaupungin lähellä sunnuntaina. Kuva: STR / EPA
+
+Intiassa yli 100 ihmistä on kuollut junaonnettomuudessa. Loukkaantuneita on yli 150.
+
+Onnettomuus tapahtui Pohjois-Intiassa Uttar Pradeshin osavaltiossa aikaisin sunnuntaina, kun matkustajajuna suistui pois raiteilta. Onnettomuuden syytä ei tiedetä.
+
+Intiassa junaonnettomuudet ovat yleisiä, ja syynä on usein inhimillinen virhe tai vanha kalusto.
+
+## Ruotsin poliisi haluaa laivoille tiukempaa alkoholivalvontaa
+
+![Oluttuoppi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8897783)
+
+Avaa kuvien katselu
+
+Ruotsin poliisin mukaan ruotsinlaivoilla juodaan liikaa alkoholia. Kuva: Jyrki Lyytikkä / Yle
+
+Ruotsin poliisi haluaa, että ruotsalaisilla laivoilla noudatetaan maan alkoholilakeja myös kansainvälisessä liikenteessä.
+
+Ruotsin poliisin mukaan väkivalta ja seksuaalirikokset ovat ongelma ruotsinlaivoilla. Poliisi haluaa niille tiukempaa alkoholivalvontaa. Poliisin mukaan laivayhtiöt myyvät asiakkaille liikaa alkoholia. 
+
+## Joulukatu avattiin
+
+![Aleksanterinkatu jouluvalaistuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7646058)
+
+Avaa kuvien katselu
+
+Aleksanterinkatu jouluvalaistuksessa. Kuva: Yle
+
+Joulun odotus on alkamassa ympäri Suomea, kun kaupungeissa avattiin viikonloppuna joulukatuja ja joulutoreja.
+
+Helsingissä perinteinen joulukatu - Aleksanterinkatu - avautui virallisesti iltapäivällä, kun joulupukki sytytti jouluvalot.
+
+Joulupukki vieraili sunnuntaina myös Tampereella.

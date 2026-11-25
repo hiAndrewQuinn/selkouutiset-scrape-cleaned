@@ -1,0 +1,79 @@
+# Perjantai 16.8.2019 (radio)
+
+Nuorten alkoholin ja tupakan käyttö. SDP:n kansanedustaja Hussein al-Taee. Pikaruokaravintolat ja muovi. Perhosten kesä. Sää lämpenee.
+
+## Raittiit nuoret
+
+![Nuori nainen juo olutta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5906914)
+
+Avaa kuvien katselu
+
+Nuoriso juo nyt vähemmän alkoholia kuin 20 vuotta sitten. Kuva: Antti Karhunen / Yle
+
+Suomalaisilta nuorilta on kysytty tutkimuksessa, jmiten he suhtautuvat alkoholiin ja tupakkaan.
+
+Tytöistä 40 prosenttia sanoo, että he eivät juo alkoholia tai polta tupakkaa ollenkaan.
+
+Pojista 43 prosenttia sanoo, että he eivät juo alkoholia tai polta tupakkaa ollenkaan.
+
+He ovat raittiita. Raitis ihminen ei juo alkoholia ollenkaan. Raittiiden nuorten määrä on vähän laskenut.
+
+Tilanne on silti nyt parempi kuin esimerkiksi 20 vuotta sitten. Silloin raittiita nuoria oli paljon vähemmän.
+
+## SDP ei rankaise al-Taeeta
+
+![Kansanedustaja Hussein al-Taee eduskunnassa 23.7.2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10890098)
+
+Avaa kuvien katselu
+
+Hussein al-Taee on SDP:n kansanedustaja. Kuva: Kimmo Hiltunen / Yle
+
+SDP:n eduskuntaryhmä ei rankaise kansanedustaja Hussein al-Taeeta.
+
+SDP:n eduskuntaryhmä keskusteli tänään kirjoituksista, joita al-Taee oli kirjoittanut sosiaaliseen mediaan ennen kuin hänestä tuli kansanedustaja. Hän kirjoitti ikävästi esimerkiksi sunnimuslimeista, juutalaisista ja homoista.
+
+Vanhat kirjoitukset tulivat julki sen jälkeen, kun al-Taee oli valittu kansanedustajaksi.
+
+## Pikaruokaravintolat vähentävät muovia
+
+![Muovisia pillejä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10923983)
+
+Avaa kuvien katselu
+
+Pikaruokaravintolat vähentävät esimerkiksi muovipillien käyttämistä. Kuva: Tapio Termonen / Yle
+
+Pikaruokaravintolat vähentävät muovin käyttöä.
+
+Esimerkiksi juomapillit ja mukien kannet ovat piilossa tiskin takana. Jos asiakas haluaa pillin ja kannen, hänen pitää pyytää ne.
+
+Hesburger-ketjun ravintoloissa on kokeiltu paperipillejä. Paperipillit voidaan kierrättää.
+
+## Perhosilla on ollut hyvä kesä
+
+![Nokkosperhonen kukassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5603307)
+
+Avaa kuvien katselu
+
+Tänä kesänä on ollut paljon esimerkiksi nokkosperhosia. Kuva: Karoliina Kantola / Yle
+
+Tänä kesänä on ollut paljon perhosia.
+
+Kesä on ollut lämmin ja vettä on satanut. Päivällä lentävien perhosten on ollut helppo etsiä ruokaa.
+
+Ne ovat myös helposti löytäneet parin ja sitten on tullut paljon munia.
+
+Suomessa on ollut paljon sellaisia perhosia, joita on aiemmin nähty paljon etelämpänä. Ilmastonmuutos tuo Suomeen uusia perhoslajeja.
+
+## Viikonloppuna sää lämpenee
+
+![Vehnän puintia Kontiolahdella 23.9.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9849599)
+
+Avaa kuvien katselu
+
+Viikonloppuna on lämmintä eikä sada paljon. Maanviljelijät pääsevät viljapellolle puimaan viljaa. Kuva: Ismo Pekkarinen / AOP
+
+Viikonloppuna sää lämpenee. Etelästä tulee Suomeen lämmintä ilmaa.
+
+Huomenna lauantaina lännessä ja pohjoisessa voi sataa välillä. Idässä aurinko paistaa.
+
+Lämpötila voi olla yli 20 astetta.

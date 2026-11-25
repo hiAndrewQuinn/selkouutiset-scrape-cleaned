@@ -1,0 +1,79 @@
+# Sunnuntai 30.12.2018 (radio)
+
+Suomessa otetaan vuodenvaihteessa käyttöön uusi tulorekisteri. Pohjois-Korean johtaja haluaa tavata Etelä-Korean presidentin ensi vuonna entistä säännöllisemmin. Saudi-Arabia on palkannut lapsisotilaita. Hampurin poliisi kertoo suuresta ilotulitteiden takavarikosta. Uusivuosi otetaan vastaan huonossa säässä.
+
+## Tulorekisteri tulee käyttöön ensi vuonna
+
+![100 ja 200 euron setelit.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10409088)
+
+Avaa kuvien katselu
+
+Verohallinto pitää yllä uutta tulorekisteriä ja lupaa, että tietoturva on kunnossa. Kuva: Euroopan Keskuspankki
+
+Suomessa otetaan vuodenvaihteessa käyttöön uusi tulorekisteri.
+
+Se kokoaa yhteen esimerkiksi kansalaisten palkkatietoja. Myös eläkkeet ja etuudet näkyvät rekisterissä vuoden kuluttua.
+
+Rekisteriä pitää yllä Verohallinto. Se sanoo, että rekisterin tietoturva on kunnossa.
+
+Virkailijat voivat nähdä vain työtehtäviin kuuluvat tiedot. Tietoihin pääsevät monet viranomaiset, aluksi esimerkiksi verottaja, Kela ja työeläkelaitokset.
+
+Tavalliset kansalaiset pääsevät näkemään vain omia tietoja.
+
+## Etelä-Korean presidentti sai kirjeen Pohjois-Korealta
+
+![Moon Jae-in ja Kim Jong-un kättelevät Pyongyangissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10411844)
+
+Avaa kuvien katselu
+
+Pohjois-Korean ja Etelä-Korean suhteet ovat tärkeät maailmanpolitiikassa. Kuva: AFP
+
+Pohjois-Korean johtaja haluaa tavata Etelä-Korean presidentin ensi vuonna entistä säännöllisemmin.
+
+Pohjois-Korean johtaja Kim Jong-Un on lähettänyt presidentti Moon Jae-inille kirjeen. Kim ehdottaa keskusteluja ydinaseriisunnasta Korean niemimaalla.
+
+Kim ja Moon ovat tavanneet tänä vuonna 3 kertaa. Kim lupasi viime huippukokouksessa vierailla Etelä-Korean pääkaupungissa Soulissa. On mahdollista, että vierailu toteutuu ensi vuoden alkupuolella.
+
+## NYT: Saudi-Arabia on palkannut lapsisotilaita
+
+![Mies seisoo tehtaan raunioissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10570354)
+
+Avaa kuvien katselu
+
+New York Times kirjoittaa, että Saudi-Arabia on palkannut lapsisotilaita Jemenin sotaan. Kuva: AFP
+
+New York Times -sanomalehti kertoo, että Saudi-Arabia on palkannut lapsisotilaita. Lapsisotilaita on palkattu Sudanin Darfurista taistelemaan Saudi-Arabian puolesta Jemenin sodassa.
+
+Lehti on haastatellut useita alaikäisiä, jotka ovat palanneet rintamalta. Lapsisotilaat paljastivat, että Saudi-Arabia maksaa heille vajaat 500 euroa kuukaudessa.
+
+Sudan on mukana saudien johtamassa liittoumassa Jemeniä vastaan.
+
+Saudi-Arabia kiistää lapsien värväämisen rintamalle.
+
+## Ilotulitteita takavarikoitiin asunnosta Hampurissa
+
+![Ilotulitteita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10574733)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+Saksassa Hampurin poliisi kertoo suuresta ilotulitteiden takavarikosta.
+
+Poliisi takavarikoi 850 kiloa ilotulitteita ja paukkupommeja 23-vuotiaan miehen asunnosta. Saksassa yksityishenkilö saa säilyttää ilotulitteita enintään 1 kilon.
+
+Viime uutenavuotena Saksassa 2 ihmistä kuoli ilotulitteiden takia. 5 ihmistä menetti ruumiinosia, ja 1 lapsi loukkaantui.
+
+## Uudenvuoden sää on huono ilotulitteille
+
+![Lumimyräkkä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9946108)
+
+Avaa kuvien katselu
+
+Keski-Suomessa ja Kainuussa lunta voi sataa 20 senttimetriä.  Kuva: Riikka Rautiainen, Yle Kemi
+
+Suomessa vuosi vaihtuu lumisateessa ja kovassa tuulessa. Siksi uudenvuodenyö ei ole hyvä ilotulituksille.
+
+Ylen meteorologi Matti Huutonen kertoo, että Suomen yli liikkuu vuodenvaihteessa voimakas matalapaine. Huono sää jatkuu vielä uudenvuodenpäivänä.
+
+Keskiviikon vastaisena yönä voi olla myrskyä. Myös sähkökatkokset ovat mahdollisia.

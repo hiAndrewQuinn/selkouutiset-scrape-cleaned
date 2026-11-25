@@ -1,0 +1,79 @@
+# Perjantai 17.3.2017 (radio)
+
+Seurakunnilta haetaan paljon apua. Suomi haluaa EU:n lääkeviraston. Finnair perui perjantaina paljon lentoja. Posti tuo olutta ja limonadia kauppoihin. Punkaharju on vuoden paras retkikohde.
+
+## Ihmiset hakevat apua seurakunnista
+
+![Diakoniavastaanottohuone Pietarsaaren seurakuntakeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9513589)
+
+Avaa kuvien katselu
+
+Ihmiset pyytävät seurakunnalta neuvoja ja ruoka-apua Kuva: Juha Kemppainen Yle
+
+Kansaneläkelaitoksen eli Kelan tukiruuhka näkyy myös seurakuntien avustustyössä.
+
+Monet ihmiset ovat jääneet ilman rahaa, kun Kela ei ehdi käsitellä toimeentulohakemuksia tarpeeksi nopeasti. Kela on myös hylännyt paljon hakemuksia.
+
+Ihmiset hakevat apua seurakunnista. Ihmiset pyytävät neuvoja ja ruoka-apua. Jotkut seurakunnat voivat myös antaa vähän rahaa.
+
+## Suomi haluaa EU:n lääkeviraston
+
+![Euroopan lääkeviraston EMA:n pääkonttori.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9515659)
+
+Avaa kuvien katselu
+
+Euroopan lääkeviraston EMA:n pääkonttori Lontoossa. Kuva: Rex / AOP
+
+Suomi toivoo, että Euroopan lääkevirasto siirretään Suomeen.
+
+Lääkevirasto on nyt Lontoossa, mutta se pitää siirtää muualle Britannian EU-eron takia.
+
+Suomen lisäksi myös monet muut maat ovat kiinnostuneita lääkevirastosta. Siitä ovat kiinnostuneita esimerkiksi Tanska, Ruotsi, Espanja, Ranska ja Italia.
+
+Lääkevirasto on EU:n kolmanneksi suurin virasto. Siellä työskentelee noin 900 ihmistä.
+
+## Lakko sotki lentoliikennettä
+
+![Finnairin koneita Helsinki-Vantaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9513484)
+
+Avaa kuvien katselu
+
+Finnair perui perjantaina melkein sata lentoa. Kuva: Markku Ulander / Lehtikuva
+
+Ilmailualan lakko on häirinnyt lentoliikennettä.
+
+Finnair perui lakon takia perjantaina melkein sata lentoa Suomessa ja Euroopassa. Peruutukset  koskivat noin 6500 matkustajaa.
+
+Lakko alkoi iltapäivällä ja kesti 4 tuntia. Lakossa oli työntekijöitä, jotka hoitavat lentokentällä matkatavaroita ja turvatarkastuksia.
+
+Ilmailualan unioni uhkaa lakolla myös ensi viikolla, jos työriitaan ei sitä ennen löydy sopua. 
+
+## Posti kuljettaa nyt myös olutta ja limonadia
+
+![Postin kuljettaja Robert Gustafsson ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9514256)
+
+Avaa kuvien katselu
+
+Postin kuljettaja Robert Gustafsson vie kauppaan Coca-Colaa. Kuva: Antti Kolppo / Yle
+
+Posti aloittaa jälleen uuden palvelun. Posti alkaa kuljettaa olutta ja limonadia kauppoihin.
+
+Posti ja Sinebrychoff ovat sopineet, että Posti kuljettaa Sinebrychoffin juomia kauppoihin.  Sinebrychoff valmistaa olutta, siideriä ja limonadia kuten esimerkiksi Coca-Colaa ja Fantaa.
+
+Postin työntekijät myös laittavat oluet ja limonadit kauppojen hyllyille. Lisäksi he vievät pois tyhjät pullot ja tölkit.
+
+Posti sanoo, että se haluaa tehdä enemmän kuljetuksia. Seuraavaksi se haluaa kuljettaa esimerkiksi pakasteita.
+
+## Punkaharju on hieno retkikohde
+
+![Punkaharju ilmakuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9516113)
+
+Avaa kuvien katselu
+
+Punkaharju on kuuluisa kauniista maisemasta. Kuva: Punkaharjun matkailu ry
+
+Punkaharju on valittu vuoden parhaaksi retkikohteeksi.
+
+Punkaharju sijaitsee Etelä-Savossa järvien keskellä. Se on kuuluisa kauniista harjumaisemista. Punkaharju onkin yksi Suomen kansallismaisemista.
+
+Vuoden retkikohde -äänestykseen osallistui yli 6000 ihmistä. Heistä noin 25 prosenttia äänesti voittajaksi Punkaharjua.

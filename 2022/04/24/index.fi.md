@@ -1,0 +1,81 @@
+# Sunnuntai 24.4.2022 (radio)
+
+Ranskan presidentinvaalit. Palvelualan turvattomuus. Kirjepostin jakelu. Lumipeite ohenee. Säätiedot.
+
+## Ranskan presidentinvaalit
+
+![Ranskan presidentti Emmanuel Macron ja presidenttiehdokas Marine Le Pen istuvat vastakkain vaaliväittelyssä.](https://img.img-cdn.yle.fi/crop_extract,w_7239,h_4071,x_327,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9441366260927bcbf4f/1650496314)
+
+Avaa kuvien katselu
+
+Emmanuel Macron ja Marine Le Pen istuivat vastakkain vaaliväittelyssä. Kuva: Ludovic Marin / EPA
+
+Ranskassa on tänään äänestetty presidentinvaaleissa. Vaaleissa valitaan presidentti 5 seuraavan vuoden ajaksi.
+
+Vaalien toisella kierroksella vastakkain ovat Emmanuel Macron ja Marine Le Pen. Macron on keskustaliberaali ja nykyinen presidentti, Le Pen on äärioikeiston ehdokas.
+
+Vaalien alla kyselyt ovat ennustaneet voittoa Macronille
+
+Vaalitulos selviää sunnuntai-illan ja yön aikana.
+
+## Palvelualan turvattomuus
+
+![Siivooja moppaa lattiaa käytävällä.](https://img.img-cdn.yle.fi/crop_extract,w_3820,h_2149,x_0,y_101/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-852647613b931ca56c3/1634018500)
+
+Avaa kuvien katselu
+
+Esimerkiksi siivoojat kohtaavat aggressiivista käytöstä enemmän kuin ennen.  Kuva: Nella Nuora / Yle
+
+Monet palvelualan työntekijät tuntevat olonsa turvattomaksi.
+
+Työntekijät sanovat, että turvattomuus palvelualalla on lisääntynyt koronavuosina. Asiakkaiden käytös on nyt epäystävällisempää kuin ennen. Työntekijöiden mielipiteitä kysyi vuokratyöfirma Barona.
+
+Barona sanoo, että asiakkaiden uhkaava käytös kuormittaa työntekijöitä. Siksi työntekijöille tarjotaan esimerkiksi keskusteluapua, jossa voi käydä läpi ikäviä tilanteita.
+
+Asiakkaiden epäystävällinen ja jopa uhkaava käytös on huomattu myös Hekassa, joka hallinnoi Helsingin kaupungin vuokrataloja. Sen takia Heka tarjoaa nyt työntekijöille koulutusta, jossa harjoitellaan itsepuolustustaitoja ja esimerkiksi sitä, miten aggressiivista ihmistä voi rauhoitella.
+
+## Kirjepostin jakelu
+
+![Postinjakaja ja postilaatikko.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9920661)
+
+Avaa kuvien katselu
+
+Ensi vuonna kirjepostia voi tulla entistä harvemmin. Kuva: Yle
+
+Kirjepostin jakelu harvenee koko maassa.
+
+Jos eduskunta hyväksyy esityksen uudesta postilaista, kirjeposti jaetaan jatkossa vain 3 kertaa viikossa.
+
+Uusi laki vaikuttaa vain kansalaisten kirjeisiin ja kortteihin, joissa on postimerkki. Esimerkiksi yrityskirjeet ja laskut kulkevat entiseen tapaan.
+
+Lakimuutos johtuu siitä, että tavallinen kirjeposti on siirtynyt entistä enemmän verkkoon.
+
+Uuden lain on tarkoitus tulla voimaan ensi vuoden alussa.
+
+## Lumipeite ohenee
+
+![Lumi sulaa vedeksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10109350)
+
+Avaa kuvien katselu
+
+Jääpuikko sulaa vedeksi. Kuva: AOP
+
+Lumipeite on ohentunut reippaasti eri puolilla maata.
+
+Lämpimän sään ansiosta lumipeite on sulanut paikoin 5-10 senttimetriä vuorokaudessa, kertoo Ilmatieteen laitos.
+
+Lunta on kuitenkin yhä paljon etenkin Lapissa. Esimerkiksi Kittilässä on yhä yli metri lunta. Myös maan keskiosissa lunta on paikoin noin puoli metriä.
+
+Länsi- ja etelärannikolla lumi on osin sulanut jo kokonaan.
+
+## Maanantain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12415682)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Huomenna maanantaina sää on pääosin poutaista ja aurinkoista. Lapissa on pilvisempää ja välillä sataa vettä tai räntää.
+
+Päivälämpötila on 7-12, Lapissa 0-7 astetta

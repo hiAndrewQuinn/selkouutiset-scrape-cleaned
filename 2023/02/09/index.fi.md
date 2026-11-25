@@ -1,0 +1,83 @@
+# Torstai 9.2.2023 (radio)
+
+Turkin maanjäristyksen uhrit. Ukrainan presidentti Euroopassa. Nuoret ja D-vitamiini. Tuulivoima. Sää.
+
+## Maanjäristyksen uhrit
+
+![Pelastustyöntekijät kantavat miestä, joka löytyi raunioista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688912)
+
+Avaa kuvien katselu
+
+Pelastustyöt Turkissa jatkuvat. Kuva: Esra Hacioglu Karakaya / AOP
+
+Turkissa ja Syyriassa maanjäristyksen uhrien määrä kasvaa. Kuolleita löytyy koko ajan lisää, kun pelastustyöt etenevät. 
+
+Torstaina kerrottiin, että maanjäristyksessä on kuollut noin 20 000 ihmistä. Suurin osa kuolleista on Turkissa.
+
+Lisäksi monet turkkilaiset menettivät kodin maanjäristyksen takia. Siksi noin 50 000 turkkilaista pääsee asumaan Antalyan alueen hotelleihin.
+
+Antalya on suosittu lomakohde, mutta talvella hotellit ovat kiinni. Nyt hotellien työntekijät on kutsuttu töihin, ja hotellit avataan ihmisille, jotka ovat ilman kotia.
+
+## Ukrainan presidentti
+
+![Euroopan parlamentin istuntosali, jossa on paljon ihmisiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688913)
+
+Avaa kuvien katselu
+
+Presidentti Volodymyr Zelenskyi puhui Euroopan parlamentille Brysselissä. Kuva: Lehtikuva
+
+Ukrainan presidentti Volodymyr Zelenskyi on vieraillut Euroopassa. 
+
+Zelenskyi puhui torstaina Euroopan parlamentille Brysselissä.
+
+Zelenskyi sanoi, että Ukraina puolustaa eurooppalaisia arvoja sodassa Venäjää vastaan. Hän kiitti Eurooppaa tuesta.
+
+Zelenskyi osallistui Brysselissä myös EU-johtajien kokoukseen.
+
+Ukrainan presidentin vierailu Euroopassa alkoi keskiviikkona.
+
+Silloin Zelenskyi tapasi Britannian pääministerin Lontoossa ja sen jälkeen Ranskan ja Saksan johtajat Pariisissa.
+
+Zelenskyi kertoi näiden maiden johtajille, että Ukraina tarvitsee nyt erityisesti sotilaslentokoneita.
+
+Ukrainassa on ollut sota jo noin vuoden ajan. Venäjä hyökkäsi Ukrainaan viime vuoden helmikuussa.
+
+## D-vitamiini
+
+![D-vitamiinipurkki ja käsi, joka ottaa siitä tabletin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688914)
+
+Avaa kuvien katselu
+
+Kaikille lapsille suositellaan D-vitamiinilisää. Kuva: All Over Press
+
+Suomessa iso osa nuorista saa liian vähän D-vitamiinia. Näin kertoo Itä-Suomen yliopiston uusi tutkimus. 
+
+Suomessa suositellaan, että kaikki 2-18-vuotiaat käyttävät D-vitamiinilisää eli esimerkiksi D-vitamiinitabletteja.
+
+Noin 30 prosenttia nuorista ei kuitenkaan käytä D-vitamiinilisää. Tämän asian tutkijat haluavat muuttaa.
+
+D-vitamiinia saa jonkin verran myös ruuasta, esimerkiksi maitotuotteista, rasvoista ja kalasta.
+
+## Tuulivoima
+
+![Tuulivoimala.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688915)
+
+Avaa kuvien katselu
+
+Torstaina tuulivoimalat tuottivat paljon sähköä. Kuva: Rikhard Husu / Yle
+
+Torstaina on ollut kova tuuli, ja tuulivoimalat ovat tuottaneet ennätyspaljon sähköä. Tuulivoimalat ovat tuottaneet melkein puolet sähköstä, joka kulutetaan Suomessa torstaina. 
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688916)
+
+Avaa kuvien katselu
+
+Myös perjantai on tuulinen päivä. Lännessä paistaa aurinko, ja idässä sataa lunta. 
+
+Lämpötila on etelässä vähän plussan puolella. Muualla maassa on pakkasta 1-10 astetta.
+
+Lauantaista tulee aurinkoinen päivä. Lämpötila on pakkasen puolella melkein koko maassa.
+
+Sunnuntaina lännestä virtaa Suomeen lämmintä ilmaa. Itä- ja Pohjois-Suomeen tulee myös lumisateita.

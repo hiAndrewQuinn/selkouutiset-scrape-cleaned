@@ -1,0 +1,75 @@
+# Lauantai 28.7.2018 (radio)
+
+Metsäpalot jatkuvat Ruotsissa. Tänä viikonloppuna Jyväskylässä järjestetään MM-ralli ja Rovaniemellä Kuninkuusravit. Pilvet peittivät kuunpimennyksen eri puolilla Suomea. Aurinko laskee taas koko Suomessa.
+
+## Metsä palaa Ruotsissa
+
+![Maastopalo Ruotsin Ljusdalissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10321207)
+
+Avaa kuvien katselu
+
+Metsät palavat eri puolilla Ruotsia. Kuva: Maja Suslin / AFP
+
+Metsäpalot jatkuvat Suomen naapurimaassa Ruotsissa. Tuli on polttanut metsää eri puolilla Ruotsia jo yli 2 viikkoa.
+
+Ruotsissa ei ole koskaan ennen ollut näin suuria metsäpaloja. Kesä on ollut Ruotsissa kuiva ja kuuma. Siksi tuli on levinnyt nopeasti.
+
+Ruotsi on saanut apua sammutustyöhön monista maista. Myös ryhmä suomalaisia palomiehiä saapui Ruotsiin lauantaina. He auttavat sammutustyössä ainakin viikon.
+
+## Ralliautot kilpailevat Jyväskylässä
+
+![Ott Tänak liitää.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10327435)
+
+Avaa kuvien katselu
+
+Virolainen Ott Tänak johtaa MM-rallia Jyväskylässä. Kuva: Tomi Hänninen
+
+Keski-Suomessa Jyväskylässä järjestetään tänä viikonloppuna isot autokilpailut. Suomen ralli on osa ralliautojen MM-sarjaa.
+
+Virolainen Ott Tänak johti rallia lauantaina. Tänak ja muut kuljettajat ovat saaneet paljon katsojia Jyväskylän teiden varsille.
+
+Ralli jatkuu vielä sunnuntaina. MM-ralli järjestettiin Jyväskylässä ensimmäisen kerran jo vuonna 1951.
+
+## Ravihevoset kilpailevat Rovaniemellä
+
+![Saaga S](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10324015)
+
+Avaa kuvien katselu
+
+Ravihevoset kilpailevat Rovaniemellä. Kuva: Mikko Stig / Lehtikuva.
+
+Lapissa nähdään tänä viikonloppuna raviurheilua, kun Rovaniemellä järjestetään Kuninkuusravit. Raveissa kilpaillaan siitä, mikä hevonen on nopein.
+
+Tammat eli naishevoset ja oriit eli mieshevoset kilpailevat omissa sarjoissa. Nopein tamma on tämän vuoden kuningatar, ja nopein ori on tämän vuoden kuningas.
+
+Hevosten kasvattajille Kuninkuusravit on tärkeä tapahtuma. Jokainen toivoo, että omasta hevosesta tulee kuningas tai kuningatar. Lisäksi voittaja saa paljon rahaa.
+
+## Kuunpimennys jäi pilvien taakse
+
+![punainen kuu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10325060)
+
+Avaa kuvien katselu
+
+Punainen Kuu jäi Helsingissä pilvien taakse. Kuva: Rolex Dela Pena / EPA
+
+Perjantai-iltana taivaalla oli täydellinen kuunpimennys. Kuu jäi Maan varjoon. Siksi Kuu näytti punaiselta.
+
+Valitettavasti eri puolilla Suomea taivaalla oli myös pilviä. Siksi kuunpimennys näkyi esimerkiksi Helsingissä vain muutaman sekunnin ajan.
+
+Monilla paikoilla kuunpimennys kuitenkin näkyi, ja ihmiset ottivat kuunpimennyksestä paljon valokuvia. Voit katsoa valokuvia kuunpimennyksestä Ylen nettisivuilta, osoite on yle.fi.
+
+**Valokuvia kuunpimennyksestä**
+
+## Yötön yö on ohi
+
+![Čuvges ijat nohket Sámis](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10325076)
+
+Avaa kuvien katselu
+
+Lapin kesäyö alkaa lyhentyä. Kuva: Maiju Saijets / Yle
+
+Yötön yö loppuu. Aurinko laskee taas koko Suomessa, myös aivan pohjoisessa Lapin Utsjoella.
+
+Utsjoen ensimmäinen pimeä yö on lyhyt. Aurinko laskee sunnuntaina kello 00.30, mutta se nousee uudelleen jo noin kello 2.
+
+Yötön yö alkoi Utsjoella toukokuun 16. päivä. Aurinko pysyi taivaalla yli 2 kuukautta.

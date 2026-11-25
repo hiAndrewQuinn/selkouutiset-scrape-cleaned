@@ -1,43 +1,55 @@
-# Selkouutiset | tiistai 3.11.2026
+# Selkouutiset | keskiviikko 4.11.2026
 
-Turvallisuus. Konkurssit. Zen Cafe. Sää.
+USA:n vaalit. Jääkiekko. Kummit. Sää.
 
-## Suomen uhat
+## USA:n vaalit
 
-Ensin uutinen Suomen turvallisuudesta.
+Aluksi suuri vaaliuutinen USA:sta.
 
-Sisäministeriö on julkaissut listan siitä, millaisia uhkia Suomella on. Listalla on 24 uhkaa.
+USA:ssa demokraatit ovat voittaneet välivaalit.
 
-Esimerkiksi sähkö, vesi tai netti voivat katketa.
+Demokraatit saavat enemmistön kongressissa eli edustajainhuoneessa ja senaatissa. Demokraattien voitto on jo varma, vaikka ääntenlasku on vielä kesken.
 
-Suojelupoliisi sanoo, että Venäjä yrittää murtautua Suomen tietokoneisiin ja tietoverkkoihin. Myös tekoälyn avulla tehdyt hyökkäykset voivat lisääntyä.
+Lopullinen vaalitulos vahvistetaan vasta myöhemmin.
 
-Uusi uhka on se, että ihmiset eivät saa tietoa tai tieto on väärää.
+USA:ssa demokraatit ovat voittaneet välivaalit.
 
-Sisäministeriö on julkaissut listan uhista, joihin Suomen pitää varautua. Sisäministeriö sanoo, että isoa sodan uhkaa ei ole.
+Presidentti Donald Trump sanoo, että hän hyväksyy tuloksen ja on valmis yhteistyöhön demokraattien kanssa.
 
-## Konkurssit
+Vaalitulos on vastalause Trumpin politiikalle. USA:n vaalituloksella on myös kansainvälistä merkitystä. Suomi on USA:n liittolainen.
 
-Seuraavan uutisen aihe on konkurssi.
+## Jääkiekko
 
-Yrityksiä menee konkurssiin enemmän kuin aikaisemmin. Yritys menee konkurssiin, kun yrityksen rahat eivät riitä velkoihin. Yrityksen toiminta loppuu.
+Nyt jääkiekosta.
 
-Huonekaluyritys Basta meni konkurssiin vuonna 2024. Bastan työntekijät perustivat uuden yrityksen. Yrityksen nimi on Ikimakee. Nämä kuvat ovat Ikimakeen tiloista. Ikimakeen työntekijät eivät ota isoja riskejä. He haluavat, että yritys tekee huonekaluja vielä monen vuoden kuluttua.
+Suomi ei pelaa Venäjää vastaan maailmanmestaruuskisoissa ensi toukokuussa. Suomen jääkiekkoliitto on päättänyt asiasta.
 
-Yrityksiä menee konkurssiin enemmän kuin aikaisemmin. Samaan aikaan Suomeen perustetaan koko ajan uusia yrityksiä.
+Ruotsi, Tanska, Norja ja Tšekki ovat liittyneet Suomen rinnalle. Myös Latvia kieltäytyy pelaamasta Venäjää vastaan.
 
-## Zen Cafe
+Suomi ja monet muut maat eivät pelaa Venäjää vastaan jääkiekon MM-kisoissa.
 
-Nyt uutinen Zen Cafe -yhtyeestä.
+Urheilun kansainvälinen vetoomustuomioistuin linjasi viime viikolla, että Kansainvälisen jääkiekkoliiton pitää päästää Venäjä takaisin kilpailuihin.
 
-Zen Cafe palaa keikkalavoille. Zen Cafe on suosittu yhtye, joka soitti musiikkia viimeksi 20 vuotta sitten. Yhtye esiintyy ensi kesänä monella festivaalilla eri puolilla Suomea.
+## Kastaminen kirkon jäseneksi
 
-Zen Cafen laulaja ja kitaristi on **Samuli Putro**. Hän kertoo, miksi Zen Cafe palaa keikkalavoille:
+Vielä evankelis-luterilaisesta kirkosta.
 
--Tämä on sopiva aika sovinnolle. Jonkinlainen sovinto myös kuuntelijoiden ja fanien kanssa, jotka me jätimme tyhjän päälle silloin 20 vuotta sitten. Emme edes ilmoittaneet, että lopetamme.
+Lapsi voidaan kastaa tulevaisuudessa kirkon jäseneksi, vaikka hänellä ei ole kummia.
+
+Kummi on lapsen kasteen todistaja ja lapsen ystävä.
+
+Tähän asti kastettavalla on pitänyt olla vähintään yksi kummi, joka kuuluu kirkkoon. Kirkkoherra päättää, saako lapsi kasteen ilman kummia.
+
+Kirkko pelkää, että lapsi jää ilman kastetta, jos kummia ei löydy.
+
+Lapsi voidaan kastaa, vaikka hänellä ei ole kummia. Kirkolliskokous päätti asiasta.
+
+Asia on vielä Kirkkohallituksen käsittelyssä.
 
 ## Sää
 
 Vielä sääennuste.
 
-Idässä sataa vettä ja lunta. Lapissa ja lännessä paistaa paikoin aurinko. Lämpötila on 5 ja 10 asteen välillä. Idässä ja Pohjois-Lapissa on paikoin kylmempää.
+Etelässä paistaa aurinko. Maan keskiosassa sataa vähän vettä. Pohjoisessa on poutaista, aurinkokin voi paistaa.
+
+Lämpötila on koko maassa 0 ja 8 asteen välillä.

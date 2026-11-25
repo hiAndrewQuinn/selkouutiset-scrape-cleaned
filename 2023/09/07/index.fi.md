@@ -1,0 +1,93 @@
+# Radio Selkouutiset torstai 7.9.
+
+Sanna Marin. Suomen suosituimmat puolueet. Sähköntuotanto. Sauli Niinistö. Hukkumisluvut. Sää.
+
+## Sanna Marin
+
+![Sanna Marin (sd.) tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_3983,h_2241,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116893164f9b8389e5fe/1694087281)
+
+Avaa kuvien katselu
+
+Kuva: Silja Viitala / Yle
+
+Entinen pääministeri, SDP:n kansanedustaja Sanna Marin lähtee eduskunnasta.
+
+Marin pyytää eroa tehtävästään, koska hänet on nimitetty strategiseksi neuvonantajaksi Tony Blair -instituuttiin.
+
+Instituutti on kansainvälinen säätiö, joka neuvoo hallituksia ja poliittisia johtajia.
+
+Instituutin kotipaikka on Lontoossa ja se toimii yli 30 valtiossa.
+
+Marinin tilalle eduskuntaan nousee 37-vuotias tutkija ja terveystieteiden tohtori Lotta Hamari Hämeenkyröstä.
+
+## Suomen suosituimmat puolueet
+
+![Tuoreimmassa puoluekannatusmittauksessa SDP on kärjessä (21,4 %), kokoomus toisena (21,2 %) ja perussuomalaiset kolmantena (18,5 %).](https://img.img-cdn.yle.fi/crop_extract,w_2544,h_1431,x_0,y_189/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116819064f83611217ff/1693988587)
+
+Avaa kuvien katselu
+
+Kuva: Nanna Särkkä / Yle
+
+SDP ja Kokoomus ovat Suomen suosituimmat puolueet.
+
+Yle on tehnyt uuden kannatuskyselyn, jonka mukaan SDP:tä kannattaa 21,4 prosenttia suomalaisista. Kokoomuksen kannatus on lähes yhtä suuri. Kokoomusta kannattaa 21,2 prosenttia suomalaisista.
+
+Kolmanneksi suurimman puolueen, perussuomalaisten suosio on laskenut vähän ja on nyt 18,5 prosenttia.
+
+Neljänneksi suurin puolue on keskusta. Keskustan kannatus nousi ja oli 11,5 prosenttia.
+
+## Sähköntuotanto
+
+![OX2 Metsälamminkankaan tuulipuisto Vaalassa. ](https://img.img-cdn.yle.fi/crop_extract,w_5360,h_3015,x_0,y_549/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116162464e70974254dc/1694341507)
+
+Avaa kuvien katselu
+
+Kuva: Petteri Löppönen
+
+Hallitus haluaa kaksinkertaistaa Suomen sähköntuotannon seuraavien 15 vuoden aikana.
+
+Ympäristö- ja ilmastoministeri Kai Mykkänen sanoo, että sähköntuotannon täytyy olla varmaa, kun uusiutuvaa energiaa käytetään enemmän kuin aikaisemmin.
+
+Esimerkiksi tuulivoiman tuotanto vaihtelee paljon sen mukaan, tuuleeko paljon vai vähän.
+
+Hallitus haluaa myös, että Suomeen rakennetaan lisää ydinvoimaloita.
+
+## Sauli Niinistö
+
+![Presidentti Sauli Niinistö](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116868264f9796625457/1694077339)
+
+Avaa kuvien katselu
+
+Kuva: Jussi Nukari / Lehtikuva
+
+Presidentti Sauli Niinistö varoittaa, että Ukrainan sota saattaa laajentua.
+
+Presidentin mukaan pahin uhka on ydinaseiden käyttö.
+
+Hän sanoi, että Suomesta on annettu aseita Ukrainalle puolustuskäyttöön.
+
+Presidentti Niinistö kertoi ajatuksistaan, kun hän tapasi politiikan toimittajia.
+
+## Hukkumisluvut
+
+![Puinen risti pystytetty rantakivien väliin Bastvikinsillan (Muulon silta) länsipäädyn alle.](https://img.img-cdn.yle.fi/crop_extract,w_6119,h_3441,x_9,y_277/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9459936266817039134/1650886757)
+
+Avaa kuvien katselu
+
+Kuva: Ronnie Holmberg / Yle
+
+Suomessa hukkui kesällä vähemmän ihmisiä kuin aikaisemmin.
+
+Suomen uimaopetus- ja hengenpelastusliitto kertoo, että kesäkuussa, heinäkuussa ja elokuussa hukkui yhteensä 40 ihmistä.
+
+Yleensä kesän aikana hukkuu keskimäärin 65 ihmistä.
+
+## Sää
+
+![perjantain sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116906664f9d799cb183/1694095334)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Perjantaina sää on lämmintä ja aurinkoista. Lämpötila on pääosin 17..22 astetta. Tuuli on heikkoa tai kohtalaista.

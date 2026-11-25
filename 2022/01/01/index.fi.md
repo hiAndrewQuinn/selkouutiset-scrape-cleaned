@@ -1,0 +1,85 @@
+# Lauantai 1.1.2022 (radio)
+
+Uusivuosi. Presidentin puhe. Työttömyys. Lakot. Ranska. Sää.
+
+## Uusi vuosi
+
+![Senaatintori melkein tyhjillään ihmisistä uuden vuoden aattona.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2802,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89795761cf4ce15b02e/1640975856)
+
+Avaa kuvien katselu
+
+Helsingin Senaatintorilla on yleensä paljon ihmisiä vuoden vaihtuessa. Nyt oli toisin. Kuva: Jouni Immonen / Yle
+
+Vuosi on vaihtunut koko maassa tavanomaista rauhallisemmin. Muun muassa koronarajoitukset hillitsivät juhlintaa.
+
+Poliiseilla oli työtä esimerkiksi kotihälytyksien ja ilotulitteiden takia. Ainakin 9 ihmistä on saanut silmävammoja ilotulitteista.
+
+Heistä vain yhdellä oli käytössä suojalasit.
+
+## Presidentin puhe
+
+![Tasavallan presidentti Sauli Niinistö pitämässä perinteistä uudenvuodenpuhettaan vuodelle 2022.](https://img.img-cdn.yle.fi/crop_extract,w_4813,h_2707,x_1,y_164/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89799961d02780bfbcc/1641034234)
+
+Avaa kuvien katselu
+
+Tasavallan presidentti Sauli Niinistö korosti uudenvuodenpuheessaan, että suurvaltojen etupiirit eivät kuulu 2020-luvulle. Kuva: LEHTIKUVA / RONI REKOMAA
+
+Tasavallan presidentti Sauli Niinistö sanoo, että eripura on pahempi uhka kuin pandemia. Niinistö toivoi uudenvuodenpuheessa, että terveyden suojaamisesta ei tule riidan lähdettä.
+
+Niinistö korosti, että pandemian kolmas vuosi on alkamassa ja vaatii sitkeyttä. Erilaiset mielipiteet kuuluvat demokratiaan, mutta eripura ja paha tahto eivät, presidentti sanoi.
+
+Presidentti Niinistö puhui myös turvallisuuspolitiikasta. Niinistö sanoi, että Suomen liikkumatilaan kuuluu myös mahdollisuus liittoutua sotilaallisesti. Suomi voi hakea sotilasliitto Naton jäsenyyttä, jos Suomi niin itse päättää, Niinistö sanoi.
+
+## Työttömyys
+
+![TE-toimisto. ](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_183/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7404295faa9713df2b7/1605093561)
+
+Avaa kuvien katselu
+
+Tyttömyys ei huoleta suomalaisia yhtä paljon kuin ennen. Kuva: Jorge Gonzalez / Yle
+
+Suomalaisten huoli työttömyydestä on vähentynyt paljon vuoden takaisesta, kertoo Taloustutkimuksen kysely.
+
+Vuosi sitten 39 prosenttia vastasi, että työttömyys oli toiseksi merkittävin huolenaihe. Nyt työttömyydestä on huolissaan enää 17 prosenttia vastaajista.
+
+Sen sijaan 41 prosenttia vastaajista on huolissaan eriarvoistumisesta ja tuloerojen kasvusta.
+
+## Lakko
+
+![Kaksi miestä huomioliiveissä seisoo UPM:n tehtaan edessä Lappeenrannassa aikaisin uuden vuoden aamuna 1. tammikuuta 2022.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1992,x_0,y_369/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89799361d00a19959ae/1641024175)
+
+Avaa kuvien katselu
+
+Lakot alkoivat aikaisin tänä aamuna muun muassa UPM:n Kaukaan tehtaan edessä Lappeenrannassa. Lakkojen on määrä jatkua 22. tammikuuta asti. Kuva: Lehtikuva
+
+Paperiliitto, Sähköliitto ja Ammattiliitto Pro ovat aloittaneet lakot metsäfirma UPM:n tehtailla. Lakkopaikkakunnat ovat Jämsänkoski, Kouvola, Lappeenranta, Pietarsaari, Rauma, Tampere ja Valkeakoski.
+
+Lakko jatkuu 3 viikkoa, jos osapuolet eivät pääse sopuun uusista työehdoista.
+
+Paperiliitto vaatii yhtä sopimusta, joka koskee koko konsernia. Metsäyhtiö UPM haluaa 5 työehtosopimusta jokaiselle toimialalle erikseen.
+
+## EU-puheenjohtajuus
+
+![Ranskan presidentti Emmanuel Macron.](https://img.img-cdn.yle.fi/crop_extract,w_3114,h_1751,x_4,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89718961cc46409a34a/1640777508)
+
+Avaa kuvien katselu
+
+Ranskan EU-puheenjohtajuuden ajalle osuvat myös maan presidentinvaalit. Kuvassa presidentti Emmanuel Macron. Kuva: Johanna Geron / AFP
+
+Ranska on nyt Euroopan unionin puheenjohtajamaa. Kausi kestää puoli vuotta.
+
+Ranska haluaa kiinnittää huomiota esimerkiksi muuttoliikkeeseen, Schengen-sääntöihin ja rajaturvallisuuteen. Ranskan kaudella esillä ovat myös puolustus ja talous.
+
+Puheenjohtajakausi kiertää jäsenmaalta toiselle.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12255293)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sunnuntaina lumisateet yltävät maan länsiosaan ja Länsi-Lappiin iltapäivän ja illan aikana. Idässä on vielä laajalti poutaista.
+
+Pakkasta on maan etelä- ja keskiosissa 2-10 astetta, Lapissa 15-25 astetta.

@@ -1,0 +1,79 @@
+# Maanantai 1.11.2021 (radio)
+
+Nuorten määrä. Ilmastokokous. Räjähdys kerrostalossa. Asiantuntijat ja uni. Sää.
+
+## Nuorten määrä
+
+![Useita nuoria seisoo ryhmässä. Etualalla näkyy erilaisia valoja. ](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_504/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-79870460856d04e70ef/1673503675)
+
+Avaa kuvien katselu
+
+Alle 15-vuotiaiden määrä Suomessa putoaa vuoteen 2035 sadalla tuhannella. Kuva: Tanja Heino / Yle
+
+Lasten ja nuorten määrä laskee Suomessa enemmän ja nopeammin kuin on arvioitu. Vain noin 20 kunnassa alle 15-vuotiaiden määrä kasvaa vuoteen 2035 mennessä.
+
+Aluetutkija Timo Aro laski alle 35-vuotiaiden määrän kehityksen. Taustalla oli Tilastokeskuksen väestöennuste.
+
+Aro sanoo, että tulos yllätti kaikki.
+
+Suomen väestön ikääntyminen on ollut tiedossa. Muutoksen nopeus kuitenkin kiihtyy koko ajan. Työvoimapula pahenee 2040-luvulla.
+
+Lasten ja nuorten määrä vähenee ensimmäistä kertaa 250 vuoteen. Se on aika, josta on väestötietoja. Suomessa syntyy lapsia vähemmän kuin kertaakaan 1860-luvun nälkävuosien jälkeen.
+
+## Ilmastokokous
+
+![Toimittajat työskentelevät Glasgow’n ilmastokokouksen pressitiloissa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_134/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-874065617f71ae7f77b/1635742272)
+
+Avaa kuvien katselu
+
+Kuva: Daniel Leal-Olivas / AFP
+
+Britannian pääministeri varoittaa, että ilmastonmuutoksen torjunta epäonnistuu, jos Glasgow´n ilmastokokous ei onnistu. Boris Johnson sanoo, ne maat, jotka ovat eniten vastuussa ilmastonmuutoksesta, eivät vielä tee riittävästi ilmastotoimia.
+
+Pääministeri Johnson saapui aamupäivällä Skotlannin Glasgow´n kansainväliseen kokoukseen. Siellä tehdään välitarkistus siitä, kuinka Pariisin vuoden 2015 ilmastosopimuksen tavoitteet toteutuvat.
+
+Nykyiset päätökset vievät maapalloa kohti runsaan 2 asteen lämpenemistä esiteollisesta ajasta.
+
+Lämpeneminen pitää kuitenkin saada pysähtymään 1,5 asteeseen.
+
+## Räjähdys Varkaudessa
+
+![Tulipalon jälkiä Varkauden Kauppalankadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12168598)
+
+Avaa kuvien katselu
+
+Räjähdyksenomainen tulipalo sattui kerrostalon toisessa kerroksessa.  Kuva: Pohjois-Savon pelastuslaitos 
+
+Yksi ihminen on kuollut kerrostaloräjähdyksessä Varkaudessa Pohjois-Savossa. Räjähdys tapahtui myöhään sunnuntai-iltana.
+
+Poliisi kertoo, että räjähdyksessä kuollut aiheutti räjähdyksen itse. Räjähdysaineista ei kuitenkaan ollut kyse.
+
+Rakennuksesta vietiin sairaalahoitoon 4 ihmistä, jotka loukkaantuivat lievästi.
+
+## Etätyö ja uni
+
+![Nukkuvan ihmisen varpaat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11331721)
+
+Avaa kuvien katselu
+
+Asiantuntijatehtävien työntekijät ovat nukkuneet paremmin, kun he ovat voineet tehdä etätyötä. Kuva: Nella Nuora / Yle 
+
+Etätyö on saanut asiantuntijat nukkumaan aiempaa paremmin. Aamulla on voinut nukkua pidempään, kun työmatkoihin ei ole kulunut aikaa.
+
+Työterveyslaitos teki asiasta kyselyn. 42 prosenttia asiantuntijoista arvioi, että uni on parantunut etätöiden aikana.
+
+Naisten uni oli parantunut useammin kuin miesten.
+
+Keskimäärin vastaajat nukkuivat 7 tuntia. Noin 20 prosenttia kuitenkin nukkui alle 6 tuntia.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12169458)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Tiistaina suuressa osassa maata on pilvistä. Lapissa tulee paikoin tihkusadetta.
+
+Lämpötila on etelässä noin 8 astetta, pohjoisessa on muutama plusaste.

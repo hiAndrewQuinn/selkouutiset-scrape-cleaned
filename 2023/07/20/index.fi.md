@@ -1,0 +1,83 @@
+# Radio Selkouutiset torstai 20.7.2023
+
+Ruotsin Bagdadin lähetystö. Aucklandin ammuskelu. Elokuvat. Mansikat. Hannu Hautala. Sää.
+
+## Ruotsin Bagdadin lähetystö
+
+![Kartalla Ruotsin suurlähetystö Bagdadissa Irakissa.](https://img.img-cdn.yle.fi/crop_extract,w_1400,h_782,x_0,y_43/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114504064b8d9265ed81/1689835895)
+
+Avaa kuvien katselu
+
+Kartalla Ruotsin suurlähetystö Bagdadissa Irakissa. Kuva: Harri Vähäkangas / Yle, MapCreator, OpenStreetMap
+
+Irakin pääkaupungissa Bagdadissa satoja ihmisiä meni yöllä Ruotsin suurlähetystöön. Mielenosoittajat sytyttivät rakennuksen tuleen. Kukaan lähetystön työntekijä ei loukkaantunut.
+
+Ruotsin poliisi päätti aikaisemmin, että mielenosoittaja saa polttaa Koraanin Tukholmassa. Irakissa ihmiset suuttuivat tästä päätöksestä. Mielenosoittaja ei lopulta polttanut Koraania Tukholmassa.
+
+Irak ilmoitti myöhemmin, että se karkottaa Ruotsin suurlähettilään pois Bagdadista.
+
+## Aucklandin ammuskelu
+
+![Polisen står och bevakar på gatan i Auckland. ](https://img.img-cdn.yle.fi/crop_extract,w_5218,h_2921,x_0,y_108/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114500564b89e3d95556/1689820820)
+
+Avaa kuvien katselu
+
+Mies ampui 2 ihmistä kuoliaaksi Aucklandissa lähellä jalkapallostadionia. Kuva: EPA-EFE
+
+Uudessa-Seelannissa oli paha välikohtaus ennen jalkapallon MM-kisojen alkua.
+
+Mies ampui 2 ihmistä kuoliaaksi Aucklandissa lähellä jalkapallostadionia. Myös ampuja kuoli. Ainakin 6 ihmistä loukkaantui.
+
+Naisten jalkapallon MM-kisat alkoivat torstaina Uudessa-Seelannissa ja Australiassa. Kisat kestävät kuukauden. Mukana on 32 maata. Suomi ei pelaa jalkapallon MM-kisoissa.
+
+## Elokuvat
+
+![Inarissa kuvataan tällä hetkellä kansainvälisten suosikkinäyttelijöiden tähdittämää Constellation-televisiosarjaa.](https://img.img-cdn.yle.fi/crop_extract,w_1995,h_1122,x_0,y_168/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106756263db9d65e0a70/1694855094)
+
+Avaa kuvien katselu
+
+Applen Constellation-sarja on suurin tuotanto, jonka osia on kuvattu Suomessa. Kuva: Theresa Clamann / Turbine Studios
+
+Suomessa kuvataan enemmän ulkomaalaisia elokuvia ja tv-sarjoja kuin aikaisemmin.
+
+Viime vuonna eri puolilla Suomea kuvattiin 3 ulkomaalaista elokuvaa tai tv-sarjaa. Tänä vuonna Suomessa kuvataan ainakin 5 ulkomaalaista tuotantoa.
+
+Ulkomaalaiset firmat haluavat kuvata esimerkiksi Lapissa, Tampereella ja Suomen saaristossa. Selvästi eniten elokuvia ja sarjoja Suomessa kuvataan kuitenkin Helsingissä.
+
+## Mansikat
+
+![Kolme mansikkaa odottamassa poimintaa. ](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114443664b6c6bb4defd/1689701750)
+
+Avaa kuvien katselu
+
+Syrjälän mansikkamarjatilan mansikoita. Kuva: Dani Branthin / Yle
+
+Mansikan sato on huono joillakin mansikkatiloilla. Mansikanviljelijät kertovat, että varsinkin Etelä-Suomessa mansikoita tulee vain vähän.
+
+Sää on ollut mansikoille huono. Alkukesän aikana yöllä oli usein kylmä. Lisäksi välillä on satanut liian paljon vettä, ja paikoin taas vettä on satanut liian vähän.
+
+## Hannu Hautala
+
+![Hannu Hautala.](https://img.img-cdn.yle.fi/crop_extract,w_4817,h_2709,x_0,y_1667/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114507164b8e349a4c2c/1689838557)
+
+Avaa kuvien katselu
+
+Hannu Hautala. Kuva: Juha Metso / AOP
+
+Suomalainen valokuvaaja Hannu Hautala on kuollut. Hän oli 82-vuotias.
+
+Hannu Hautala kuvasi paljon luontoa. Hänet tunnetaan varsinkin valokuvista, joissa on lintuja.
+
+Hannu Hautala julkaisi yli 60 kirjaa.
+
+## Sää
+
+![Sadepisarat muodostavat renkaita lätäkön pintaan.](https://img.img-cdn.yle.fi/crop_extract,w_3208,h_1803,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114059464ac4f6694bbd/1689015119)
+
+Avaa kuvien katselu
+
+Sää on sateinen. Kuvituskuva. Kuva: Joel Peltonen / Yle
+
+Sää on perjantaina sateinen. Vettä sataa isoilla alueilla Lapissa ja Itä-Suomessa. Myös maan etelä- ja keskiosissa tulee sadekuuroja.
+
+Perjantaina päivällä lämpötila on enimmäkseen 16 ja 22 asteen välillä.

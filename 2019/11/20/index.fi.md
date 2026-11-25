@@ -1,0 +1,69 @@
+# Keskiviikko 20.11.2019 (radio)
+
+Postilakon neuvottelut ovat jatkuneet. Keskiviikkona on vietetty lasten päivää. "Tohtori Google" ehdottaa usein paljon pahempaa tautia kuin ihmisellä oikeasti on. Yle aloittaa lasten uutiset ensi vuonna.
+
+## Postilakon tilanne
+
+![Postilaatikkoja Pääpostin edustalla Helsingissä 18. marraskuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11075102)
+
+Avaa kuvien katselu
+
+Postilakon takia kirjeet eivät kulje. Kuva: Martti Kainulainen / Lehtikuva
+
+Postilakon neuvottelut ovat jatkuneet. Neuvottelijat etsivät ratkaisua postialan työriitaan. Alalla riidellään esimerkiksi palkoista.
+
+Jos postilakko jatkuu, jatkuvat myös tukilakot. Monien alojen ammattiliitot tukevat Postin työntekijöiden lakkoa. Tukilakot pysäyttävät Postin lähetyksiä maanteillä, rautateillä, satamissa ja lentoasemilla.
+
+Jos postilakko jatkuu vielä ensi viikolla, tukilakkoja tulee lisää. Uudet tukilakot vaikuttavat esimerkiksi ihmisten liikkumiseen.
+
+Maanantaina tukilakko pysäyttää bussit Helsingin seudulla. Monet laivat Helsingin ja Tukholman välillä eivät kulje alkuviikon aikana. Maanantaina tukilakkoja on myös lentoasemilla, esimerkiksi turvatarkastuksen työntekijät voivat keskeyttää työt.
+
+Jos postilakko loppuu, tukilakkoja ei tule.
+
+Postilakko alkoi marraskuun 11. päivä. Lakon takia kirjeet ja paketit kulkevat tosi hitaasti.
+
+## Lasten päivä
+
+![isä näyttää lapselle kuvakirjaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10998326)
+
+Avaa kuvien katselu
+
+Jokaisella lapsella on oikeus hyvään elämään. Kuva: Tiina Jutila / Yle
+
+Keskiviikkona on vietetty lasten päivää. Kansainvälinen lasten oikeuksien päivä on monissa maissa marraskuun 20. päivä.
+
+YK eli Yhdistyneet kansakunnat suosittelee, että lasten päivää vietetään kaikissa maissa. YK:n Lapsen oikeuksien sopimus hyväksyttiin tasan 30 vuotta sitten eli marraskuun 20. päivä vuonna 1989.
+
+Lapsen oikeuksien sopimus sanoo, että lapsella on oikeus hyvään elämään, suojeluun ja kehittymiseen.
+
+Suomessa lasten päivä on liputuspäivä. Siksi Suomen lippu on liehunut keskiviikkona eri puolilla Suomea.
+
+## Tohtori Google
+
+![Nainen läppärin äärellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11069209)
+
+Avaa kuvien katselu
+
+Googlesta löytyy pelottavia sairauksia. Kuva: AOP
+
+Monet etsivät syytä netin avulla, kun he voivat huonosti. "Tohtori Google" ehdottaa kuitenkin usein paljon pahempaa sairautta, kuin ihmisellä oikeasti on.
+
+Amerikkalaisessa tutkimuksessa huomattiin, että melkein puolet googlaajista löysi netistä pahemman sairauden, kuin mitä heillä oli.
+
+Hannu Halila Lääkäriliitosta uskoo, että tilanne on Suomessa sama. Monet jopa tuovat lääkärille papereita, jotka he ovat tulostaneet Googlesta.
+
+Usein ihmiset pelkäävät syöpää, Halila sanoo. Lääkärin tehtävä on poistaa potilaan pelkoja.
+
+## Lasten uutiset
+
+![Uutisluokkalaiset haastattelemassa meteorologeja ilmastokeskustelussa Pointti-kaupunkifestivaaleilla](https://img.img-cdn.yle.fi/crop_extract,w_4616,h_2596,x_659,y_651/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5818545d49625795080/1565090642)
+
+Avaa kuvien katselu
+
+Myös lapset tarvitsevat omia uutisia. Kuva: Laura Hyyti / Yle
+
+Yle alkaa tehdä uutisia lapsille. Lasten uutiset tehdään suomeksi ja ruotsiksi.
+
+Tavoite on kertoa tapahtumista tavalla, joka sopii lapsille.
+
+Lasten uutiset alkavat televisiossa syksyllä 2020.

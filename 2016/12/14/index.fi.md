@@ -1,0 +1,85 @@
+# Keskiviikko 14.12.2016 (radio)
+
+Aleppon kaupungissa Syyriassa odotetaan taistelujen loppumista. Suomen kaupungit käyttävät eri summia jouluvaloihin. Miehet viettävät vapaa-aikaa usein muiden miesten kanssa. Puusta saadaan myös vaatteita.
+
+## Aleppon taistelut
+
+![Syyrian sotilas kantamassa haavoittunutta naista Aleppossa 12. joulukuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9352514)
+
+Avaa kuvien katselu
+
+Aleppo monet odottavat, että pääsevät pois kaupungista. Kuva: SANA / EPA
+
+Aleppon kaupungissa Syyriassa odotetaan vielä taistelujen loppumista.
+
+Venäjä kertoi jo eilen, että Syyrian armeija valvoo jo koko Aleppoa ja taistelut voidaan lopettaa. Venäjä on tukenut Syyrian armeijaa taistelussa kapinallisia vastaan.
+
+Nyt Syyrian hallitus ja kapinalliset syyttävät toisiaan taistelujen jatkumisesta.
+
+Aleppossa on tuhansia ihmisiä, jotka odottavat, että he pääsevät lähtemään pois kaupungista.
+
+Sota Aleppossa on jatkunut yli 4 vuotta.
+
+## Kaupunkien jouluvalot
+
+![Rovaniemen jouluilme Lorin aukiolta katsottuna.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9352902)
+
+Avaa kuvien katselu
+
+Rovaniemen jouluvaloja. Kuva: Raimo Torikka / Yle
+
+Suomen kaupungit käyttävät eri summia jouluvaloihin.
+
+Helsinki ja Tampere käyttävät rahaa eniten. Ne ovat varanneet jouluvaloihin tänä vuonna 150 000 euroa.
+
+Turku käyttää jouluvaloihin melkein 60 000 euroa, ja Joulupukin kaupunki Rovaniemi melkein 50 000 euroa.
+
+Monet kaupungit varaavat jouluvaloihin vain muutamia tuhansia euroja. Esimerkiksi iso Oulun kaupunki käyttää jouluvaloihin vain 1200 euroa.
+
+## Miesten vapaa-aika
+
+![Miehet virvelöivät kalliolta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9017762)
+
+Avaa kuvien katselu
+
+Miesten omaa puuhaa. Kuva: Kare Lehtonen/Yle
+
+Miehet viettävät vapaa-aikaa usein muiden miesten kanssa. Miehet harrastavat yhdessä esimerkiksi kalastusta, metsästystä tai autoja.
+
+Professori Timo Airaksinen sanoo, että kaveriporukka vapauttaa miehen. Kaverien kanssa miehet voivat puhua, mitä haluavat, ja olla niin kuin haluavat.
+
+Se on tärkeää, koska suomalainen nainen vaatii paljon, Airaksinen sanoo. Nainen kontrolloi, miten mies saa puhua ja minkälaisia vaatteita mies saa käyttää.
+
+Nykyään miehillä on kuitenkin vain vähän vapaa-aikaa. Työ ja perhe vievät aikaa niin paljon, Airaksinen sanoo.
+
+## Vaatteita puukuidusta
+
+![Kuitua valuu veteen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9325277)
+
+Avaa kuvien katselu
+
+Puukuidusta saadaan kestävää lankaa. Kuva: Yle
+
+Puusta saadaan myös vaatteita.
+
+Suomessa kehitetään uusia menetelmiä, joilla puukuidusta saadaan lankaa.
+
+Aalto-yliopiston uudella tekniikalla voidaan tehdä tosi kestävää kuitulankaa. Sitä voidaan käyttää vaatteisiin ja vaikkapa formula-autojen renkaisiin.
+
+Myös VTT eli Teknologian tutkimuskeskus tekee puusta kuitulankaa. Tekstiilitehtaat voivat tehdä siitä kangasta jopa ilman uudenlaisia koneita.
+
+Tulevaisuudessa kuitulankaa valmistetaan ehkä samassa paikassa kuin muita metsäteollisuuden tuotteita.
+
+## Mitä ihmettelet?
+
+Suomella on pian syntymäpäivä.
+
+Suomi täyttää 100 vuotta 6. joulukuuta 2017.
+
+100-vuotiaalla voi olla hassuja tapoja.
+
+Kerro meille, mitä asiaa tai tapaa ihmettelet Suomessa.
+
+Me kerromme siitä lisää.
+
+Lähetä idea selkouutisten sähköpostiin. Osoite on selko.uutiset@yle.fi.

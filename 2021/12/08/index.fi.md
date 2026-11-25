@@ -1,0 +1,79 @@
+# Keskiviikko 8.12.2021 (radio)
+
+Pääministeri Marinin ravintolaillasta nousi kohu. Koronapotilaiden määrä tehohoidossa kasvaa. Riskiryhmien hoitajille halutaan pakollinen koronarokotus. Valta vaihtui Saksassa. Säätiedot.
+
+## Marinin ravintolaillasta nousi kohu
+
+![Pääministeri Sanna Marin tapasi mediaa ulkosalla Puhemiehen aukiolla eduskuntatalon takana Helsingissä 8. joulukuuta](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_119/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88949761b0a876bec12/1638967479)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin kertoo medialle, mitä lauantaina oikein tapahtui. Kuva: Silja Viitala / Yle
+
+Suomessa on noussut kohu pääministeri Sanna Marinin ympärille.
+
+Marin vietti iltaa yökerhossa viime lauantaina, vaikka hän tiesi, että on altistunut koronavirukselle. Marin altistui koronalle, koska hän oli samoissa kokouksissa kuin ulkoministeri Pekka Haavisto. Haavistolla todettiin lauantaina korontartunta.
+
+Marin ei noudattanut hallituksen koronaohjeita. Ohjeissa sanotaan, että ministerien on hyvä välttää kontakteja heti, kun he ovat saaneet tiedon korona-altistumisesta. Ohjeita oli päivitetty vajaat 2 viikkoa sitten.
+
+Pääministeri Marin sanoo, että hän ei ollut saanut uusia ohjeita.
+
+Marinin virkapuhelimeen lähetettiin lauantai-iltana myös viesti, että altistumisen takia hänen pitää välttää kontakteja. Marin ei kuitenkaan saanut viestiä, koska hänellä ei ollut virkapuhelinta mukana.
+
+Ministerien koronaohjeet ovat tiukemmat kuin tavallisten kansalaisten.
+
+## Koronapotilaat täyttävät tehohoidon
+
+![tehohoito-monitori](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10112532)
+
+Avaa kuvien katselu
+
+Potilaan elintoiminnot näkyvät monitorissa. Kuva: Yle
+
+Koronapotilaiden määrä tehohoidossa kasvaa.
+
+Terveyden ja hyvinvoinnin laitos kertoo, että tehohoidossa on nyt 60 koronapotilasta. 50 tehohoitopotilasta on pidetty rajana, minkä jälkeen esimerkiksi kiireettömiä leikkauksia pitää perua.
+
+Sairaalassa on tällä hetkellä noin 300 koronapotilasta. Se on noin kolmekymmentä enemmän kuin eilen.
+
+Uusia tartuntoja on tänään kirjattu noin 1300. Uusia kuolemantapauksia on 11.
+
+## Hoitajille halutaan rokotuspakko
+
+![Hoitaja auttaa pöydän ääressä ruokailevaa vanhusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11724018)
+
+Avaa kuvien katselu
+
+Hallitus ehdottaa, että koronarokotuksesta tulee pakollinen hoitajille, jotka tekevät työtä riskiryhmien kanssa. Kuva: Antro Valo / Yle
+
+Hoitoalan työntekijöiltä aletaan ehkä vaatia koronarokotusta.
+
+Hallitus esittää, että koronarokotuksesta tulee pakollinen sosiaali- ja terveydenhuollon työntekijöille, jotka työskentelevät riskiryhmien kanssa.
+
+Rokotuksesta voi kieltäytyä vain terveyssyistä. Jos rokotusta ei voi ottaa, pitää esittää negatiivinen koronatestitulos.
+
+## Valta vaihtui Saksassa
+
+![Olaf Scholz ja Frank-Walter Steinmeier kävelevät maskit kasvoillaan](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88948661b0a63acf901/1638966983)
+
+Avaa kuvien katselu
+
+Saksan uusi liittokansleri Olaf Scholz ja liittopresidentti Frank-Walter Steinmeier. Kuva: Mirtin Divisek / EPA
+
+Saksassa Angela Merkelin valtakausi on ohi. Merkel ehti olla Saksan liittokansleri 16 vuotta.
+
+Uudeksi liittokasleriksi on nimitetty Olaf Scholz. Hän on Saksan sosiaalidemokraattisesta puolueesta, SPD:stä.
+
+Scholz johtaa hallitusta, jossa ovat mukana sosiaalidemokraatit, vihreät ja liberaalipuolue FDP.
+
+## Torstain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12221286)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Torstaina pilvisyys vaihtelee ja enimmäkseen on poutaa. Länsirannikolla voi tulla lumikuuroja.
+
+Pakkanen on 12 ja 25 asteen välillä, maan länsiosassa lauhtuu kolmen ja 12 pakkasasteen välille.

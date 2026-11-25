@@ -1,0 +1,93 @@
+# Lauantai 8.5.2021 (radio)
+
+Poliisit. Intian koronatilanne. Läksykummit. Äitienpäivä. Sää.
+
+## Poliisit ja rasismi
+
+![poliisiväkivallan uhri kuvituskuva](https://img.img-cdn.yle.fi/crop_extract,w_5946,h_3345,x_0,y_307/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-801979609132bdaee10/1620130422)
+
+Avaa kuvien katselu
+
+Poliisihallitus sanoo, että kaikkia pitää kohdella tasapuolisesti. Kuva: Antti Haanpää / Yle
+
+Poliisit käyttäytyvät joskus huonosti vähemmistöjä kohtaan.
+
+Asia tuli esille, kun Yle haastatteli poliiseja. Poliisit kertoivat, että he ovat nähneet, kuinka jotkut poliisit ovat puhuneet rasistisesti.
+
+Poliisit ovat yleensä saaneet vain lieviä rangaistuksia rasististen puheiden takia. Viime vuosina on kuitenkin erotettu 2 poliisia rasististen kirjoitusten takia.
+
+Poliisihallitus sanoo, että poliisi tekee kaiken mahdollisen, jotta myös vähemmistöt voivat vielä luottaa poliisiin.
+
+## Suomen koronaluvut
+
+![Henkilö ilmestyy ottamaan koronatestin. 19.3.2021.](https://img.img-cdn.yle.fi/crop_extract,w_6016,h_3384,x_0,y_451/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7861376054969b24f6b/1616156394)
+
+Avaa kuvien katselu
+
+Koronatestit ovat tärkeitä, jotta koronatartunnat löydetään. Kuva: Jorge Gonzalez / Yle
+
+Suomessa on 229 uutta koronatartuntaa. Näin kertoi Terveyden ja hyvinvoinnin laitos lauantaina.
+
+Suomen kaikkien koronatartuntojen määrä on yli 88 000.
+
+Koronarokotukset etenevät. Noin 1,9 miljoonaa suomalaista on saanut koronarokotuksen.
+
+## Intian koronatilanne
+
+![Ruumista kuljetetaan kärryillä Kolkatassa.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1993,x_0,y_66/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8040026096470762bcc/1620461419)
+
+Avaa kuvien katselu
+
+Intiassa kuolee ihmisiä koronaan koko ajan. Kuva: Piyal Adhikary / EPA
+
+Intian koronatilanne pahenee.
+
+Intiassa tehtiin surullinen ennätys, kun yli 4000 intialaista kuoli koronaan yhdessä päivässä. Uusia koronatartuntoja löytyi yli 400 000 päivässä.
+
+Korona leviää nyt nopeasti Intian maaseudulla. Suurissa kaupungeissa, esimerkiksi New Delhissä ja Mumbaissa, koronatilanne on vähän rauhoittunut.
+
+Intiassa on melkein 1,4 miljardia asukasta.
+
+## Läksykummit
+
+![Eskolanmäen koulun oppitunti Kouvolassa.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_322/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7223545f6b392194a25/1633344119)
+
+Avaa kuvien katselu
+
+Läksyt sujuvat paremmin läksykummin kanssa. Kuva: Antro Valo / Yle
+
+Suomessa kokeillaan läksykummeja. Kokemukset ovat hyviä.
+
+Läksykummit auttavat peruskoululaisia tekemään läksyjä. Läksykummi ja koululainen tapaavat etäyhteydellä eli tietokoneen kautta.
+
+Perheet ovat kertoneet, että lasten koenumerot ovat parantuneet läksykummin avulla. Myös maahanmuuttajalasten suomen kielen taito on parantunut.
+
+Läksykummit ovat saaneet koulutuksen Mannerheimin lastensuojeluliitolta. Se on kouluttanut noin 30 läksykummia.
+
+## Äitienpäivä
+
+![Suomen lippu tangossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11060883)
+
+Avaa kuvien katselu
+
+Äitienpäivä on liputuspäivä. Kuva: Pekka Tynell / Yle
+
+Sunnuntaina juhlitaan äitejä eli on äitienpäivän aika.
+
+Äitienpäivä on Suomessa aina toukokuun toisena sunnuntaina. Silloin äitienpäivää vietetään myös monissa muissa maissa, esimerkiksi Virossa, Tanskassa, Saksassa ja USA:ssa.
+
+Äitienpäivä on Suomessa liputuspäivä.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11922681)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Äitienpäivän sää on tänä vuonna melko poutainen. Sadekuuroja tulee päivällä vain paikoin.
+
+Lämpötila on sunnuntaina noin 10 astetta.
+
+Sunnuntain ja maanantain välisenä yönä Suomeen tulee sateita, ja viikon alku on sateinen.

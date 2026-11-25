@@ -1,0 +1,75 @@
+# Torstai 6.1.2022 (radio)
+
+Etäkoulu. Sairaalat. USA:n kongressin valtaus. Loppiainen. Sääennuste.
+
+## Etäkoulusta keskustellaan
+
+![Kuvassa on tyhjä luokkahuone Hyvinkäällä elokuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_275/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7070515f325e8a263bf/1613318282)
+
+Avaa kuvien katselu
+
+Tyhjä luokka. Kuva: Silja Viitala / Yle
+
+Suomessa keskustellaan koulujen etäopetuksesta. Sosiaali- ja terveysministeriö aikoo suositella etäopetusta koronatilanteen takia. Opettajien järjestö OAJ kannattaa etäopetusta. Opettajien järjestö toivoo, että kouluissa siirrytään pian etäopetukseen.
+
+Monissa kouluissa joululoma loppuu sunnuntaina. Hallitus keskustelee etäkoulusta ehkä perjantaina. Kaikki hallituksen ministerit eivät kannata etäkoulua, koska etäkoulu voi olla vaikeaa monille perheille.
+
+Jos hallitus antaa perjantaina suosituksen etäkoulusta, etäkoulu voi ehkä alkaa ensi viikolla.
+
+## Sairaaloissa ruuhkaa
+
+![Hoitaja siirtämässä potilasta kirurgian poliklinikalle Mehiläinen Länsi-Pohjan keskussairaalassa Kemissä](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_294/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88463461a0b76ce6710/1648283792)
+
+Avaa kuvien katselu
+
+Potilasta siirretään sairaalassa. Kuva: Antti Ullakko / Yle
+
+Pahentunut koronatilanne ruuhkauttaa sairaaloiden päivystyksiä ja vuodeosastoja. Huolta aiheuttaa erityisesti se, riittääkö henkilökuntaa hoitamaan potilaita. Osa hoitajista ja lääkäreistä on joko sairaana tai karanteenissa.
+
+Ruuhkaa on erityisesti Etelä-Suomen suurissa sairaanhoitopiireissä. Muualla Suomessa tilanne ei ole yhtä vaikea, mutta tilanne voi pahentua myös muualla Suomessa.
+
+Suomessa on torstaina raportoitu melkein 6 000 uutta koronatartuntaa.
+
+## USA:n kongressitalon valtauksesta 1 vuosi
+
+![Joe Biden puhuu Capitolilla.](https://img.img-cdn.yle.fi/crop_extract,w_8192,h_4608,x_0,y_856/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89925761d700236ce37/1641480355)
+
+Avaa kuvien katselu
+
+Presidentti Joe Biden piti puheen. Biden sanoi, että kongressitalon valtaus ei saa toistua. Kuva: Jim Lo Scalzo / EPA
+
+USA:n kongressitalon valtauksesta on kulunut 1 vuosi. Presidentti Donald Trumpin kannattajat tunkeutuivat USA:n kongressitaloon Washingtonissa 6. tammikuuta viime vuonna.
+
+![Mielenosoittajia Yhdysvaltain kongressin portailla.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_157/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89873761d5478ee9fc1/1641368884)
+
+Avaa kuvien katselu
+
+Tältä näytti USA:n kongressitalolla 6. tammikuuta 2021. Kuva: Michael Reynolds / EPA
+
+Trumpin kannattajat eivät halunneet, että kongressi vahvistaa Joe Bidenin vaalivoiton. Kongressitalon valtauksessa kuoli 5 ihmistä.
+
+USA:ssa on muistettu kongressitalon valtausta. Presidentti Joe Biden piti amerikkalaisille puheen. Biden sanoi, että sama ei saa tapahtua koskaan uudestaan.
+
+## Loppiainen
+
+![De tre vise männen och Betlehemsstjärnan](https://img.img-cdn.yle.fi/crop_extract,w_1743,h_980,x_90,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-319349585a61ca62f44/1641154488)
+
+Avaa kuvien katselu
+
+Loppiaisena muistetaan esimerkiksi kolmea tietäjää. Kuva: Pixabay - Public Domain
+
+Loppiainen päättää monille ihmisille joulun ajan. Loppiainen on Suomessa pyhäpäivä eli esimerkiksi virastot ja pankit ovat olleet torstaina kiinni.
+
+Loppiainen on kristittyjen vanhimpia juhlia. Loppiaista on vietetty jopa kauemmin kuin joulua.
+
+Monissa kristillisissä kirkoissa muistetaan loppiaisena tietäjiä, jotka tulivat katsomaan Jeesus-lasta.
+
+## Sää
+
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12261110)
+
+Avaa kuvien katselu
+
+Koko maassa on pakkasta. Aurinko paistaa välillä.
+
+Perjantaina tulee lumisateita Kainuussa ja länsirannikolla. Pilvisyys on vaihtelevaa. Maan etelä ja keskiosassa on pakkasta -5...-15 astetta. Pohjoisessa pakkasta on -15..-25 astetta.

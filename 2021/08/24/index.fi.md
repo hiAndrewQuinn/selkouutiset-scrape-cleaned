@@ -1,0 +1,93 @@
+# Tiistai 24.8.2021 (radio)
+
+Suomi on evakuoinut lisää ihmisiä Afganistanista. Ravintola- ja matkailualalla on työvoimapula. Työllisyysaste on noussut. Kauppakeskuksilla menee hyvin. Paralympialaiset alkoivat. Puolukasta tulee runsas sato.
+
+## Evakuoinnit Afganistanista
+
+![Evakuintioperaatio Kabulin lentokentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12069915)
+
+Avaa kuvien katselu
+
+Evakuointioperaatio Kabulin lentokentällä. Kuva: Puolustusvoimat
+
+Suomi on evakuoinut lisää ihmisiä Afganistanista. Suurlähetystön henkilökunta ja perheenjäsenet on saatu pois Afganistanista.
+
+Joukossa on myös noin 40 ihmistä EU-delegaatiosta, kertoo ulkoministeri Pekka Haavisto.
+
+Suomi ei aio evakuoida afganistanilaisia, jotka ovat työskennelleet Suomelle alihankkijoiden kautta. Syy on se, että evakuoinnin aikaraja ja resurssit eivät riitä.
+
+Äärijärjestö Taliban ei suostu Afganistanin evakuointien takarajan siirtämiseen, kertoo järjestön edustaja.
+
+Suomi on evakuoinut Afganistanista yli 200 ihmistä.
+
+## Työvoimapula
+
+![Kuva ravintolasta missä tuoleja pöydällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12028824)
+
+Avaa kuvien katselu
+
+Ravintola-alalta lähti paljon työntekijöitä koronasulun takia. Kuva: Henrietta Hassinen / Yle
+
+Työntekijöiden löytäminen on vaikeaa ravintola- ja matkailualalla ja rakennuksilla. Monet vaihtoivat alaa koronapandemian sulkutoimien takia.
+
+Myös terveydenhuoltoon on vaikea saada työntekijöitä.
+
+Tilastokeskuksen kyselyssä työnantajat arvioivat, että huhti - kesäkuun työpaikoista yli 50 prosenttia oli vaikea täyttää.
+
+Työnantajajärjestöt sanovat, että koulutus, työperäinen maahanmuutto ja parempi asumispolitiikka auttavat työvoimapulaa enemmän kuin palkka.
+
+## Työllisyys
+
+![TE-toimisto. ](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7404265faa9712e0202/1605018827)
+
+Avaa kuvien katselu
+
+Työllisyys on parantunut viime heinäkuusta. Kuva: Jorge Gonzalez / Yle
+
+Työllisyysaste on noussut samalle tasolle kuin ennen korona-aikaa. Tilastokeskus kertoo, että työllisyys kasvoi ja työttömyys väheni heinäkuussa.
+
+Työllisyysaste oli heinäkuussa 72,7 prosenttia.
+
+Työttömiä oli 5 000 vähemmän kuin viime vuoden heinäkuussa.
+
+## Kauppakeskukset ja kahvilat
+
+![Kauppakeskus Ainoa Espoossa.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-795784607ab4d3a310d/1618750684)
+
+Avaa kuvien katselu
+
+Kauppakeskuksissa on käynyt paljon väkeä. Kuva: Henrietta Hassinen / Yle
+
+Kauppakeskuksissa oli keväällä vilkasta. Myyntimäärät ja kävijämäärät nousivat selvästi huhti - kesäkuussa.
+
+Suomen Kauppakeskusyhdistys kertoo, että kävijämäärä nousi jopa 24 prosenttia viime vuoden vastaavasta ajasta. Kokonaismyynti kasvoi yli 20 prosenttia.
+
+Kahviloiden ja ravintoloiden myynti nousi melkein 90 prosenttia viime vuoden keväästä.
+
+## Paralympialaiset
+
+![Tokion paralympialaisten maskotti Someity hyppää ilmaan paralympialaisten logon edessä. ](https://img.img-cdn.yle.fi/crop_extract,w_4639,h_2609,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8454686124bbcceef6d/1629797551)
+
+Avaa kuvien katselu
+
+Tokion paralympialaisten maskotti Someity. Kuva: Kazuhiro Nogi / AFP / Getty Images
+
+Tokion paralympialaiset ovat alkaneet tänään.
+
+Kisoihin osallistuu 162 maata. Kaikkiaan kisoissa nähdään 4500 urheilijaa. Suomen joukkueessa on 16 urheilijaa 7 lajissa.
+
+Suomi tavoittelee 7:ää mitalia. Rion paralympialaisissa tuli 3 mitalia.
+
+## Puolukkasato
+
+![Nico Kauppila kurkottaa puolukkaan](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7285295f804fa519cdd/1602244671)
+
+Avaa kuvien katselu
+
+Moni pelkäsi, että kuivuus vie puolukkasadon. Sadosta tulee kuitenkin runsas. Kuva: Juuso Stoor / Yle 
+
+Syksyn puolukkasadosta on tulossa runsas, kertoo Luonnonvarakeskus.
+
+Helteinen kesä oli puolukalle vaikea varsinkin kuivilla alueilla, mutta pölytys onnistui keskimääräistä paremmin. Helteiden takia pölyttäjähyönteisiä oli paljon liikkeellä.
+
+Puolukka kestää kuivuutta paremmin kuin esimerkiksi mustikka, jonka sato jäi normaalia pienemmäksi.

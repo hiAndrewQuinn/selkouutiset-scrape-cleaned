@@ -1,0 +1,61 @@
+# Maanantai 24.4.2017 (radio)
+
+Emmanuel Macron ja Marine Le Pen pääsivät Ranskan presidentinvaalien toiselle kierrokselle. Näsijärven jäät sulivat viikonloppuna. Nykyään myös vanhukset hakevat ravintolasta ruokaa kotiin. Pikkuleijonat on saanut jääkiekon MM-hopeaa.
+
+## Presidentinvaalit jatkuvat Ranskassa
+
+![Macron ja le Pen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9579317)
+
+Avaa kuvien katselu
+
+Ranskan seuraava presidentti on Emmanuel Macron tai Marine Le Pen. Kuva: AOP
+
+Ranskalaiset ovat äänestäneet presidentinvaaleissa. Sunnuntaina oli vaalien ensimmäinen kierros. Eniten ääniä saivat Emmanuel Macron ja Marine Le Pen. He pääsevät vaalien toiselle kierrokselle.
+
+Emmanuel Macron sai sunnuntaina kaikkein eniten ääniä. Hän sai noin 24 prosenttia äänistä.
+
+Macron kannattaa eurooppalaista yhteistyötä. Hän haluaa, että Ranska pysyy Euroopan unionissa. Macron haluaa myös, että rajat Euroopassa ovat auki.
+
+Marine Le Pen sai ensimmäisellä kierroksella toiseksi eniten ääniä. Hän sai noin 22 prosenttia äänistä.
+
+Le Pen ei halua maahanmuuttajia Ranskaan. Le Penin mielestä Ranskan työpaikat, asunnot ja sosiaaliedut kuuluvat ranskalaisille. Le Pen ei pidä myöskään Euroopan unionista. Hän haluaa, että ranskalaiset äänestävät siitä, lähteekö Ranska pois EU:sta.
+
+Vaalien toinen kierros on 2 viikon päästä. Silloin selviää, onko Ranskan seuraava presidentti Macron vai Le Pen.
+
+## Jäät lähtivät Näsijärvestä
+
+![Jäätön Näsijärvi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9579107)
+
+Avaa kuvien katselu
+
+Näsijärvessä ei ole enää jäätä. Kuva: Milka Koskinen / Yle
+
+Kevät tulee myös Suomeen, vaikka hitaasti. Yksi merkki keväästä on se, että järvien jäät sulavat.
+
+Viikonloppuna jäät lähtivät Näsijärvestä. Esimerkiksi Tampere on Näsijärven rannalla. Alueella sanotaan, että kevät alkaa, kun Näsijärven jäät ovat sulaneet.
+
+Aina kevät ei ole alkanut Näsijärvellä näin aikaisin. Esimerkiksi vuonna 1876 Näsijärvi oli jäässä melkein juhannukseen asti.
+
+## Vanhukset ostavat noutoruokaa
+
+![Ruoka-annoksia pöydällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9156039)
+
+Avaa kuvien katselu
+
+Ravintolaruokaa voi ostaa myös kotiin. Kuva: Niko Mannonen / Yle
+
+Suomalaiset hakevat paljon ruokaa ravintolasta kotiin. Take away -ruoka kiinnostaa nykyään myös vanhoja ihmisiä. Esimerkiksi Kajaanin kiinalaisesta ravintolasta kerrotaan, että vanhukset käyvät hakemassa take away -annoksia eli noutoruokaa.
+
+Kajaanilainen 85-vuotias Saimi Tikkanen sanoo, että noutoruoka piristää elämää. Tikkanen käy joskus hakemassa ruokaa kiinalaisesta tai japanilaisesta ravintolasta. Noutoruoka on hyvä vaihtoehto, koska yhdestä annoksesta riittää ruokaa monelle päivälle, Tikkanen sanoo.
+
+## Pikkuleijonat saivat MM-hopeaa
+
+![Pikkuleijonat eteni välieriin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9574023)
+
+Avaa kuvien katselu
+
+Suomen Pikkuleijonat eli alle 18-vuotiaiden jääkiekkojoukkue. Kuva: Mikko Ahmajärvi / Yle
+
+Pikkuleijonat on saanut jääkiekon MM-hopeaa. Pikkuleijonat eli Suomen alle 18-vuotiaat pelaajat hävisivät sunnuntaina finaalipelin.
+
+Finaalissa Suomi pelasi USA:ta vastaan. USA teki pelissä 4 maalia, mutta Suomi vain 2. USA voitti ja on tämän vuoden maailmanmestari. Suomi oli maailmanmestari viime vuonna.

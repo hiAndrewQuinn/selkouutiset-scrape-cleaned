@@ -1,0 +1,95 @@
+# Perjantai: 16.2.2018 (radio)
+
+Finnairin tulos. Kesämökit halpenevat. Uusnatsiliike saa jatkaa. Ruotsissa jo 50 000 paperitonta. Suomi valmis nostamaan EU-maksuja. Lukiolaiset tanssivat vanhojentansseja.
+
+## Finnairin tulos parani
+
+![Lentokone lentokentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10016190)
+
+Avaa kuvien katselu
+
+Finnairin matkustajamäärät ovat kasvussa. Kuva: Martti Kainulainen / Lehtikuva
+
+Suomalaisella lentoyhtiöllä Finnairilla menee hyvin.
+
+Yhtiön tulos oli viime vuonna yli 170 miljoonaa euroa. Se on yli kolme kertaa enemmän kuin vuonna 2016. Silloin tulos oli noin 55 miljoonaa euroa.
+
+Finnairilla matkusti viime vuonna 12 miljoonaa matkustajaa. Matkustajamäärät ovat kasvaneet etenkin Euroopan ja Aasian välillä.
+
+Moni Finnairin aasialainen matkustaja haluaa Suomen Lappiin. Lappi on jo suositumpi matkakohde kuin Pariisi tai Rooma, kerrotaan lentoyhtiöstä.
+
+## Kesämökit halpenevat
+
+![Nainen kävelee kesämökin pihalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10078228)
+
+Avaa kuvien katselu
+
+Kesämökit halpenevat etenkin Lapissa ja Pohjois-Karjalassa. Kuva: Ismo Pekkarinen / AOP
+
+Suomalaisen kesämökin hankkiminen on aiempaa halvempaa.
+
+Kesämökkien hinnat putosivat viime vuonna noin neljä prosenttia edellisvuodesta.
+
+Erot mökkien hinnoissa ovat kuitenkin suuria eri puolilla Suomea. Edullismman mökin saa Lapista ja kalleimmat mökit ovat Uudellamaalla.
+
+## Pohjoismainen vastarintaliike saa jatkaa
+
+![Pohjoismaisen vastarintaliikkeen mielenosoitus Helsingissä 6 joulukuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9956963)
+
+Avaa kuvien katselu
+
+Pohjoismainen vastarintaliike saa jatkaa toimintaa. Kuva: Martti Kainulainen / Lehtikuva
+
+Uusnatsijärjestö Pohjoismainen vastarintaliike saa jatkaa toimintaansa.
+
+Turun hovioikeus hylkäsi Poliisihallituksen vaatimuksen, jonka mukaan järjestö on asetettava väliaikaiseen toimintakieltoon.
+
+Pirkanmaan käräjäoikeus päätti aiemmin, että Pohjoismainen vastarintaliike voidaan kieltää.
+
+## Ruotsissa paperittomien määrä kasvaa
+
+![Sergelin tori on kohtaamispaikka. Jotkut paperittomat yöpyvät toreilla ja kaduilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9260041)
+
+Avaa kuvien katselu
+
+Ruotsin pääkaupungissa Tukholmassa paperittomat kokoontuvat Sergelin torille. Kuva: Bengt Jägerskog
+
+Ruotsissa on jo noin 50 000 paperitonta eli maassa ilman lupaa elävää ihmistä.
+
+Paperittomat ihmiset ovat saaneet Ruotsissa kielteisen turvapaikkapäätöksen, mutta he eivät ole halunneet lähteä pois maasta.
+
+Hallitus arvioi, että maahan tulee lähivuosina kymmeniä tuhansia paperittomia lisää.
+
+## Suomi valmis maksamaan lisää EU:lle
+
+![Euroopan unionin tähdet.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10078884)
+
+Avaa kuvien katselu
+
+Suomi voi maksaa tulevaisuudessa EU:lle nykyistä enemmän rahaa. Kuva: Ismo Pekkarinen / AOP
+
+Suomen hallitus sanoo, että Suomi voi maksaa lisää rahaa EU:lle.
+
+EU joutuu pyytämään jäsenmailta lisää rahaa, koska Britannia eroaa EU:sta.
+
+EU:n budjetti on ollut noin prosentin jäsenmaiden kansantuotteesta. Nyt osuutta ollaan korottamassa 1,1 prosenttiin.
+
+Suomi on valmis maksamaan enemmän EU:lle, koska se haluaa pitää kiinni maatalouden ja alueiden tukirahoista.
+
+Suomi myös haluaa, että EU ohjaa lisää rahaa maahanmuuttoon ja puolustukseen.
+
+## Lukioissa tanssitaan vanhojentansseja
+
+![Vanhat tanssivat Jyväskylän Lyseon lukiossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10078713)
+
+Avaa kuvien katselu
+
+Vanhojentansseissa halutaan olla tosi hienoina. Kuva: Petri Aaltonen / Yle
+
+Lukioissa on vietetty tänään vanhojenpäivää.
+
+Vanhojenpäivänä lukion vanhimmat oppilaat vaihtuvat, kun abiturientit jäävät pois koulusta ja valmistautuvat ylioppilaskirjoituksiin.
+
+Koulun uudet, vanhimmat oppilaat tanssivat perinteisissä vanhojentansseissa.
+
+Vanhojentansseissa oppilailla on hienoja juhlapukuja ja -kampauksia.

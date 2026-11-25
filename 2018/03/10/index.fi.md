@@ -1,0 +1,59 @@
+# Lauantai 10.3.2018 (radio)
+
+Puolueet haluavat parempia perhevapaita. Poliisi toivoo lisää virkoja. Kuvat auttavat ymmärtämään puhetta. Sähköautojen ja aurinkopaneelien akkuihin tarvitaan koko ajan enemmän metalleja.
+
+## Puolueet haluavat parempia perhevapaita
+
+![Äiti ja vastasyntynyt vauva sairaalassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10110758)
+
+Avaa kuvien katselu
+
+Äiti ja vauva sairaalassa. Kuva: Emmi Korhonen / Lehtikuva
+
+Kaikki puolueet haluavat parantaa perhevapaita.
+
+Suomessa syntyy nyt tosi vähän vauvoja. Vauvoja syntyi viime vuonna yhtä vähän kuin 150 vuotta sitten. Kaikki puolueet ajattelevat, että se on ongelma. Suomessa on tulevaisuudessa liian vähän veronmaksajia.
+
+Yle kysyi puolueilta, mitä asialle pitäisi tehdä. Kaikki puolueet haluavat parantaa perhevapaita. Puolueet haluavat maksaa äideille ja isille korvauksia, että heillä on varaa olla pois töistä, kotona hoitamassa pikkulapsia. Moni puolue haluaa parantaa myös lasten palveluita. Esimerkiksi varhaiskasvatusta eli 5- ja 6-vuotiaiden opetusta päiväkodeissa halutaan parantaa.
+
+## Poliisi toivoo lisää poliiseja
+
+![Poliiseja Helsingin Narinkkatorilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10100309)
+
+Avaa kuvien katselu
+
+Poliisiautoja jonossa Helsingissä. Kuva: Emmi Korhonen / Lehtikuva
+
+Poliisi toivoo lisää virkoja.
+
+Poliiseja on vähennetty viime vuosina ja heitä on nyt noin 7 200. Poliisijohtaja Seppo Kolehmainen sanoo, että Suomeen tarvitaan noin 600 poliisia lisää. Kolehmainen sanoo, että esimerkiksi uusi alkoholilaki ja kansainvälinen terrorismi lisäävät poliisin töitä.
+
+Poliisien ammattiliitto sanoo, että on hyvä idea kouluttaa lisää poliiseja.
+
+## Kuvat auttavat ymmärtämään
+
+![Askartelunohjaaja Marja Hietanen näyttää vanhaa valokuvaa pöydän ääressä istuville vanhuksille.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10103788)
+
+Avaa kuvien katselu
+
+Kuva tukee vanhuksen muistia. Kuva: Mikko Koski / Yle
+
+Kuvia käytetään joskus puheen apuna.
+
+Kuvat auttavat ymmärtämään puhetta ja muistamaan asioita paremmin. Ne myös auttavat lasta, kun hän opettelee puhumaan. Myös vastaanottokeskuksissa kuvat ovat tärkeitä. Turvapaikanhakijat eivät osaa suomea heti. Monet heistä eivät osaa lukea ja kirjoittaa. Silloin auttaa, kun voi näyttää kuvaa.
+
+Internetissä on Papunet.net -sivusto, josta voi ladata kuvia omaan puhelimeen tai tietokoneelle.
+
+## Kiviarkistosta etsitään metalleja
+
+![mies varastossa kivien kanssa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10111145)
+
+Avaa kuvien katselu
+
+Ari Hevonkoski tutkii kivinäytteitä. Kuva: Yle
+
+Maailmassa käytetään nykyään paljon akkuja.
+
+Akkuja tarvitaan esimerkiksi sähköautoihin ja aurinkopaneeleihin. Akkuihin tarvitaan paljon metalleja: nikkeliä, kuparia, kobolttia ja litiumia. Metalleja etsitään myös Suomesta. Moni ulkomainen kaivosfirma haluaa tutkia kivipötköjä, joita on porattu Suomen kallioista. Kivinäytteitä pidetään valtion kiviarkistossa, joka on kymmenen varastorakennusta täynnä kivinäytteitä Lopen kunnassa.
+
+Jos kivipötköstä löytyy metalleja, kannattaa ehkä avata kaivos siellä, mistä näyte on porattu.

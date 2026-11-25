@@ -1,0 +1,65 @@
+# Lauantai 26.10.2019 (radio)
+
+Syysmyrsky katkaisi sähköt tuhansilta kodeilta. Teknologiateollisuudessa tarvitaan lisää työntekijöitä. Unirytmiä voi muuttaa. Normaaliaika tuo sunnuntaihin tunnin lisää.
+
+## Syysmyrsky
+
+![myrskyä porissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11038690)
+
+Avaa kuvien katselu
+
+Porissa myrskysi perjantain ja lauantain välisenä yönä. Kuva: Yle
+
+Suomessa on ollut syysmyrsky. Myrsky katkaisi sähköt tuhansilta kodeilta.
+
+Perjantain ja lauantain välisenä yönä yli 40 000 kotia oli ilman sähköä. Esimerkiksi Länsi-Suomessa Porissa myrsky katkaisi sähköt monilta kaupunkilaisilta.
+
+Korjaustyöt ovat sujuneet lauantaina nopeasti. Melkein kaikki kodit ovat jo saaneet sähköt takaisin.
+
+## Teknologiateollisuus
+
+![Helsinki ABB.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9526867)
+
+Avaa kuvien katselu
+
+Teknologiateollisuus tarvitsee lisää työntekijöitä. Kuva: AOP
+
+Teknologiateollisuudessa tarvitaan lisää työntekijöitä. Teknologiateollisuus tekee esimerkiksi tietotekniikkaa ja koneita. Ala on tärkeä koko Suomen taloudelle.
+
+Teknologiateollisuus arvioi, että se tarvitsee tuhansia uusia osaajia joka vuosi. Erityisesti tarvitaan osaajia, joilla on hyvä koulutus. Esimerkiksi diplomi-insinöörejä tarvitaan lisää.
+
+Tekniikan alan korkeakoulut ovat huolissaan, koska ne eivät ole saaneet valtiolta lisää rahaa.
+
+Teknologiateollisuuden järjestö ehdottaa lisää korkeakoulujen ja firmojen yhteistyötä. Firmat voivat ehkä tarjota työharjoittelupaikkoja ja osallistua opetuksen järjestämiseen, järjestö ehdottaa.
+
+## Unirytmi
+
+![nukkuva nainen peiton alla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11037345)
+
+Avaa kuvien katselu
+
+Valo, liikunta ja ruoka auttavat, jos aamut ovat vaikeita. Kuva: Henrietta Hassinen / Yle
+
+Unirytmi vaikuttaa ihmisen terveyteen.
+
+Monien on vaikea herätä aikaisin aamulla ja mennä nukkumaan ajoissa illalla. Nämä iltavirkut sairastuvat joihinkin sairauksiin useammin kuin muut, tutkimusprofessori Timo Partonen sanoo.
+
+Partonen sanoo myös, että unirytmiä voi muuttaa. Unirytmiin vaikuttavat valo, liikunta ja ruoka.
+
+Aamulla herääminen on helpompaa, jos ihminen saa valoa aamulla kello 5-9. Siksi monet käyttävät kirkasvalolamppua pimeän talven aikana.
+
+Myös liikuntaharrastus voi tehdä aamuista helpompia. Jos ihminen harrastaa liikuntaa tunnin ajan aamulla noin kello 7 tai iltapäivällä kello 13-16, hänen on vähitellen helpompi herätä aamulla.
+
+Myös ruoka vaikuttaa unirytmiin. Hyvä aamupala ja kevyt ilta-ateria voivat auttaa, jos aamut tuntuvat raskailta.
+
+## Talviaika
+
+![Kellot siirtyvät talviaikaan ensi yönä klo 4.00.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5444412)
+
+Avaa kuvien katselu
+
+Sunnuntaiaamuna kello 4 kelloja siirretään tunti taaksepäin. Talviaika alkaa. Kuva: Yle Uutisgrafiikka
+
+Sunnuntaiaamuna voi nukkua pitempään, koska kesäaika loppuu. Normaaliaika eli talviaika alkaa aamulla kello 4. Silloin kello onkin vasta 3.
+
+Kaikki Euroopan unionin maat siirtyvät talviaikaan yhdessä. Suomi on ehdottanut, että EU lopettaa kesäajan ja talviajan vaihtelun. Osa EU-maista ei tykkää ajatuksesta.

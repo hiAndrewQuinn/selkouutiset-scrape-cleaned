@@ -1,0 +1,81 @@
+# Sunnuntai 12.8.2018 (radio)
+
+Suomen budjetti. Ulkoministerin mielipiteet. Luotain kohti Aurinkoa. Halvat muotivaatteet. Epävakainen sää.
+
+## Pääministeri puhuu budjetista
+
+![Juri Ratas ja Juha Sipilä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10349063)
+
+Avaa kuvien katselu
+
+Suomen pääministeri (oikealla) tapasi sunnuntaina Viron pääministerin (vasemmalla) pyöräilytapahtumassa. Kuva: Mikko Stig / Lehtikuva
+
+Pääministeri Juha Sipilä sanoo, että hallitus voi nostaa kaikkein pienimpiä päivärahoja ja takuueläkkeitä, jos Suomen valtiolle jää ylimääräistä rahaa.
+
+Ylimääräistä rahaa voi olla, koska Suomen taloudella menee nyt hyvin.Pääministeri Sipilä sanoo myös, että verotus ei saa kiristyä.
+
+Pääministerin puheet liittyvät Suomen valtion budjettiin, jota ministeriöt nyt tekevät ensi vuodeksi.
+
+Hallitus päättää tämän kuun lopussa, millainen budjetti lopulta on.
+
+## Ulkoministerin mielipiteet
+
+![Timo Soini](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10346976)
+
+Avaa kuvien katselu
+
+Suomen ulkoministeri Timo Soini vastustaa aborttia. Suomen hallitus hyväksyy abortin. Kuva: Jarno Kuusinen / AOP
+
+Ulkoministeri Timo Soinin mielipiteistä puhutaan taas paljon.
+
+Ulkoministeri Soini on monta kertaa ilmoittanut julkisesti, että hän vastustaa aborttia. Monet arvostelevat Soinia tästä mielipiteestä.
+
+Pääministeri Juha Sipilä sanoo, että Soinilla on oikeus omaan mielipiteeseen.
+
+Suomen hallitus kannattaa kuitenkin naisten ja tyttöjen oikeutta tehdä abortti.
+
+## Luotain matkaa kohti Aurinkoa
+
+![Delta IV Heavy -kantoraketti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10349049)
+
+Avaa kuvien katselu
+
+Luotain laukaistiin avaruuteen kantoraketin kyydissä Kuva: Bill Ingalls / NASA
+
+Yhdysvallat laukaisi tänään avaruuteen luotaimen.
+
+Luotain matkaa kohti Aurinkoa. Luotain vie tutkimuslaitteita.
+
+Laitteet tutkivat Auringon kaasukehää, koronaa. Laitteet keräävät tietoa muun muassa aurinkomyrskyistä.
+
+Luotain menee lähemmäksi aurinkoa kuin mikään aikaisempi laite.
+
+## Vaatteista tulee paljon päästöjä
+
+![Topshop-vaateliikkeen näyteikkuna Lontoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10289883)
+
+Avaa kuvien katselu
+
+Isot vaateketjut myyvät halpoja muotivaatteita. Kuva: Andy Rain / EPA
+
+Halvat muotivaatteet ovat huono asia ympäristölle.
+
+Ihmiset ostavat paljon halpoja vaatteita ja heittävät ne pian roskiin.
+
+Britanniassa on tehty asiasta tutkimus. Tutkimus paljastaa, että suurin osa vaatteista päätyy kaatopaikalle.
+
+Vaatteiden tekeminen kuluttaa paljon vettä. Vaatteiden tekemisestä tulee myös enemmän päästöjä kuin lento- ja laivaliikenteestä.
+
+## Huomenna on epävakaista
+
+![Vuorokauden ylin lämpötila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10348045)
+
+Avaa kuvien katselu
+
+Sää viilenee. Se näkyy sääkartassakin. Lämmintä oranssia on vain vähän maanantain kartassa. Kuva: Yle Sää
+
+Huomenna maanantaina sää on epävakaista.
+
+Etelä- ja Keski-Suomessa on pilvistä ja välillä sataa.Pohjois-Suomessa voi sataa paljon.
+
+Päivällä lämpötila on 15 ja 20 asteen välillä.Pohjoisessa on viileämpää.

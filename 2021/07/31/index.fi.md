@@ -1,0 +1,78 @@
+# Lauantai 31.7.2021
+
+Koronatartunnat. Helsingin koronatestipaikat. Viron-matkat. Raakakahvin hinta. Sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Suomen koronatartunnat
+
+![Maskittomia nuoria aikuisia Tikkurila Festivaaleilla.](https://img.img-cdn.yle.fi/crop_extract,w_4429,h_2491,x_0,y_187/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83526460fd5ce9b09d1/1627217569)
+
+Avaa kuvien katselu
+
+Koronatartuntoja on nyt paljon nuorilla. Kuva: Jussi Koivunoro / Yle
+
+Koronatartuntojen määrä kasvaa Suomessa.
+
+Terveyden ja hyvinvoinnin laitos kertoi lauantaina, että Suomessa on melkein 800 uutta koronatartuntaa.
+
+Uusia koronatartuntoja on löydetty paljon nuorilta. 2 viime viikon aikana noin 30 prosenttia uusista koronatartunnoista on löydetty 20-29 -vuotiailta.
+
+Uusia koronatartuntoja on eniten Helsingin seudulla. Koronatartuntoja on paljon myös Tampereen seudulla ja Turun seudulla.
+
+## Helsingin koronatestipaikat
+
+![Terveystalon testauspisteellä koronatestiin jonotetaan seisten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12012906)
+
+Avaa kuvien katselu
+
+Tänä kesänä koronatesteihin on ollut ruuhkaa. Kuva: Marjukka Talvitie / Yle
+
+Helsinkiin avataan uusia koronatestipaikkoja. Uudet koronatestipaikat tulevat Hartwall Arenalle ja Kamppiin. Ne avataan ensi viikolla.
+
+Uusia koronatestipaikkoja tarvitaan, koska koronatesteihin on ruuhkaa. Koronatestiajan saa Helsingissä nyt noin 20 tunnin päähän.
+
+Odotusaika lyhenee, kun uudet testipaikat avataan ja hoitohenkilökunnan kesälomat loppuvat.
+
+## Viron-matkat
+
+![Omakanta-palvelusta tulostettu koronatodistus rokotustietoineen.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_219/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83156060ee7cf4d5328/1626242527)
+
+Avaa kuvien katselu
+
+Koronatodistuksen saa Omakanta-palvelusta, jonka osoite on kanta.fi. Kuva: Silja Viitala / Yle
+
+Viro vaatii nyt koronatodistusta matkustajilta, jotka tulevat Suomesta. Syynä on se, että koronatartuntojen määrä on Suomessa kasvanut.
+
+Koronatodistus kertoo, että matkustajalla on koronarokotukset tai negatiivinen koronatestitulos tai hän on sairastanut koronataudin.
+
+Jos matkustajalla ei ole koronatodistusta, häntä odottaa Virossa koronatesti ja karanteeni.
+
+## Kahvin hinta
+
+![Työntekijä kerää kahvipapuja.](https://img.img-cdn.yle.fi/crop_extract,w_6016,h_3384,x_0,y_630/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8372366104063a350e8/1627653910)
+
+Avaa kuvien katselu
+
+Brasilia tuottaa kahvia enemmän kuin mikään muu maa. Kuva: Igor do Vale / AOP
+
+Raakakahvin hinta on noussut.
+
+Raakakahvista valmistetaan paahtamalla kahvia, jota asiakkaat ostavat kaupasta. Siksi kahvin hinta voi nousta pian myös kaupoissa.
+
+Raakakahvin hinta on noussut huonon sään takia. Esimerkiksi Brasilia voi menettää jopa 15 prosenttia kahvisadosta, koska maassa on ollut kuivaa ja kahviviljelmillä on ollut jopa pakkasta. Uutinen on huono, koska Brasilia on maailman suurin kahvintuottajamaa.
+
+Kahvin hinta kiinnostaa suomalaisia, koska suomalaiset juovat kahvia eniten maailmassa. Suomalaiset kaupat yrittävät usein saada asiakkaita niin, että ne myyvät kahvia tarjoushintaan.
+
+## Sunnuntain sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12042544)
+
+Avaa kuvien katselu
+
+Sunnuntai on sateinen päivä. Sadekuuroja ja ukkoskuuroja tulee eri puolilla maata.
+
+Maanantaina sateet vähenevät.
+
+Lämpötila on etelässä noin 20 astetta ja pohjoisessa noin 15 astetta.

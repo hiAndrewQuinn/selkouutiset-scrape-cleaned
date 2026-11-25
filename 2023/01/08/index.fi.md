@@ -1,0 +1,71 @@
+# Lauantai 7.1.2023 (radio)
+
+Koronatilanne. Päivystysten ruuhkat. Puhemieskiista USA:ssa. Sähkötuki. Pakkasennätys. Sääennuste.
+
+## Koronatilanne ja Kiinan-lennot
+
+![Perhe- ja peruspalveluministeri Krista Kiuru.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_446/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105656063b92ac8b40dd/1673079701)
+
+Avaa kuvien katselu
+
+Perhe- ja peruspalveluministeri Krista Kiuru oli lauantaina vieraana Ylen Ykkösaamu -ohjelmassa.  Kuva: Petteri Sopanen / Yle
+
+Perhe- ja peruspalveluministeri Krista Kiuru sanoo, että Suomi haluaa torjua mahdollista uutta koronaviruksen tautiaaltoa. Kiuru muistuttaa, että koronapotilaat ovat kuormittaneet syksyn aikana terveydenhuoltoa. 
+
+Kiuru sanoo, että Kiinan koronatilanteesta ja uudesta virusmuunnoksesta ei ole saatu tarpeeksi tietoa. Siksi Kiinan-lentojen matkustajille tarvitaan koronarajoituksia. 
+
+Kiinan-lentojen matkustajilta aletaan pian vaatia negatiivista koronatestitodistusta. Kiuru sanoo, että määräys tulee voimaan mahdollisimman pian. Perhe- ja peruspalveluministeri Krista Kiuru oli lauantaina vieraana Ylen Ykkösaamu -ohjelmassa. 
+
+## Päivystysten ruuhkat
+
+![Harmaan rakennuksen seinässä lukee Tays päivystys Acuta.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_489/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1047960639987b134bf8/1671006231)
+
+Avaa kuvien katselu
+
+Monilla alueilla on ollut ruuhkaa päivystyksissä. Siksi odotusajat voivat olla tosi pitkiä. Kuva: Marjut Suomi / Yle
+
+Terveydenhuollon päivystysten ruuhkat jatkuvat. Päivystyksiä kuormittaa esimerkiksi pula vanhusten jatkohoitopaikoista. Jatkohoitopaikkoja on liian vähän. Siksi päivystyksiin tulee potilaita, joita ei pystytä hoitamaan muualla. 
+
+Esimerkiksi Pohjois-Pohjanmaan hyvinvointialue aikoo vähentää palveluasumispaikkoja ja sairaalapaikkoja, koska hyvinvointialue haluaa säästää rahaa. 
+
+Myös muilla hyvinvointialueilla mietitään keinoja säästää. 
+
+## USA:n edustajainhuone
+
+![Kevin McCarthy kädet levällään.](https://img.img-cdn.yle.fi/crop_extract,w_4553,h_2561,x_0,y_268/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105641963b72c8f6f437/1672948992)
+
+Avaa kuvien katselu
+
+Uusi puhemies on republikaani Kevin McCarthy. Kuva: Michael Reynolds / EPA
+
+USA:n edustajainhuone on valinnut uuden puhemiehen. Uusi puhemies on republikaani **Kevin McCarthy.** 
+
+Puhemiehen valitseminen oli harvinaisen vaikeaa ja valitseminen kesti 5 päivää. USA:n edustajainhuone äänesti puhemiehestä 15 kertaa. 
+
+Edustajainhuone säätää USA:ssa lakeja. Edustajainhuoneen puhemies on USA:n hallinnon kolmanneksi korkein virka. Korkeampia virkoja ovat vain presidentti ja varapresidentti. 
+
+## Sähkötuki
+
+![Tampereen sähkölaitoksen lasku.](https://img.img-cdn.yle.fi/crop_extract,w_4259,h_2395,x_10,y_42/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1031122636a54c17e08f/1680684775)
+
+Avaa kuvien katselu
+
+Sähkötukea voi saada yli 400 euron sähkölaskuun. Kuva: Matias Väänänen / Yle
+
+Kela on julkaissut lomakkeen, jolla voi hakea tukea kalliisiin sähkölaskuihin. Tukea myönnetään pienituloisille. 
+
+Sähkötukea voi saada tammikuulta, helmikuulta ja maaliskuulta. Kelan sähkötukea voi saada, jos sähkölasku on yli 400 euroa kuukaudessa. 400 euroa ylittävään määrään voi saada tukea 60 prosenttia. 
+
+Hakemuksen liitteeksi tarvitaan sähkölasku. Sähkötuen hakemuslomake on julkaistu Kelan verkkosivuilla. 
+
+## Sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687486)
+
+Avaa kuvien katselu
+
+Lännestä tulee lumisade sunnuntaina.
+
+Talven pakkasennätys on rikkoutunut Muoniossa. Muonion kirkonkylän havaintoasemalla oli lauantaina aamulla pakkasta 34,8 astetta. 
+
+Sunnuntaina on pilvistä. Lännessä alkaa sataa lunta. Aivan idässä aurinko voi vielä paistaa välillä. Lämpötila on -5 ja -15 asteen välillä.

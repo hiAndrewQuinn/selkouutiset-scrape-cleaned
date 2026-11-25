@@ -1,0 +1,69 @@
+# Maanantai 18.3.2019 (radio)
+
+Hollannissa on tapahtunut terrori-isku. Stora Enso aikoo vähentää työntekijöitä Oulussa. Tyttöjen silpominen on Suomessa rikos. Maahanmuuttajat tekivät selkouutisille ohjelmasarjan.
+
+## Hollannissa tapahtui terrori-isku
+
+![Ammuskelu Utrehtissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10695153)
+
+Avaa kuvien katselu
+
+Terrori-isku tapahtui Utrechtissa. Kuva: Robin van Lonkhuijsen / EPA
+
+Hollannissa on tapahtunut terrori-isku. Iskussa kuoli ainakin 3 ihmistä. Loukkaantuneita on monta.
+
+Isku tapahtui Utrechtin kaupungissa, jossa mies ampui ihmisiä raitiovaunussa.
+
+Ampuja on ehkä 37-vuotias mies, joka on kotoisin Turkista.
+
+Turvatoimia on Hollannissa lisätty iskun takia.
+
+## Stora Enso vähentää työntekijöitä
+
+![Stora Enson tehdas Oulussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10694880)
+
+Avaa kuvien katselu
+
+Stora Enson tehdas Oulussa. Kuva: Paulus Markkula / Yle
+
+Metsäfirma Stora Enso aikoo vähentää työntekijöitä. Stora Enso vähentää työntekijöitä Oulun tehtaalta. Oulusta loppuu ehkä 400 työpaikkaa.
+
+Stora Enso tekee Oulun tehtaalla paperia. Tehtaalla on 2 paperikonetta. Stora Enso sulkee yhden paperikoneen ja alkaa valmistaa toisella pakkauspahvia. Siksi työpaikat vähenevät.
+
+Stora Enso tekee muutoksia Oulun tehtaalla, koska paperin hinta maailmalla laskee, mutta pakkauspahvin hinta nousee.
+
+## Silpominen on rikos
+
+![Erillislaki silpomisen kieltämiseksi Suomessa jakaa mielipiteet, mutta siitä ollaan samaa mieltä, että ratkaisun avaimet ovat tiedottamisessa, koulutuksessa ja avoimessa keskustelussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10230189)
+
+Avaa kuvien katselu
+
+Silpomisveitsi Keniasta. Kuva: Juha Tuominen / Yle
+
+Tyttöjen silpominen on Suomessa rikos. Silpomisessa tytön sukuelimiä leikataan. Silpominen vahingoittaa tytön terveyttä.
+
+Tyttöjä silvotaan esimerkiksi joissakin Afrikan maissa. Maahanmuuton mukana ongelma on tullut myös Eurooppaan.
+
+Suomessa on ehkä noin 3000 tyttöä, jotka ovat vaarassa. On mahdollista, että heidät silvotaan vanhempien entisessä kotimaassa esimerkiksi kesälomamatkan aikana.
+
+Kätilö ja terveydenhoitaja Batulo Essak tekee työtä silpomista vastaan. Essak sanoo, että terveysalan ammattilaisten pitää puhua silpomisesta maahanmuuttajaperheiden kanssa.
+
+Essak on kokemusasiantuntija. Hän on syntynyt Somaliassa, ja hänet on lapsena silvottu. Essak toivoo, että Suomeen saadaan lisää kokemusasiantuntijoita, jotka puhuvat silpomisesta rohkeasti.
+
+Asiasta on lisää tietoa Ylen nettisivuilla osoitteessa yle.fi.
+
+## Maahanmuuttajat keskustelevat
+
+![Viisi naista istuu pöydän ympärillä ja takana seisoo kaksi miestä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10669682)
+
+Avaa kuvien katselu
+
+Uuden sarjan keskustelijat. Vasemmalta: Nida Iram, Alexandra Pospolit, Sadegh Mohammad Husseini, Razia Molawi, Momine Drame, Ramla Muse Dahir ja Nasib Naseri. Kuva: Yle
+
+Nasib ja maahanmuuttajat on selkouutisten uusi sarja.
+
+Sarjassa maahanmuuttajat keskustelevat asioista, jotka ovat heille tärkeitä. He toivovat, että nämä asiat ovat esillä myös huhtikuun eduskuntavaaleissa.
+
+Sarjassa on 3 osaa: Kotoutuminen, Kulttuurierot ja Maahanmuuttajanaiset.
+
+Ohjelmat löytyvät selkouutisten nettisivuilta ja Yle Areenasta, osoitteesta yle.fi/vaalit.

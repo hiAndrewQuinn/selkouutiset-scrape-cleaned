@@ -1,0 +1,73 @@
+# Lauantai 4.2.2017 (radio)
+
+Antti Rinne jatkaa SDP:n puoluejohtajana. USA:ssa tuomari päätti, että muslimimaiden matkustuskieltoa ei väliaikaisesti noudateta. Finlandia-hiihdossa on mukana hiihtäjiä melkein 30 maasta. Nyt syödään Runebergin torttuja. Ensi viikolla on kylmää.
+
+## Rinne jatkaa SDP:n johtajana
+
+![Antti Rinne SDP:n puoluekokouksessa Lahdessa perjantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9440938)
+
+Avaa kuvien katselu
+
+SDP:n puoluejohtaja Antti Rinne. Kuva: Jarno Kuusinen / AOP
+
+Antti Rinne jatkaa SDP:n eli sosiaalidemokraattien puoluejohtajana.
+
+SDP:llä on viikonloppuna puoluekokous Lahdessa. Rinne valittiin kokouksessa puoleen johtajaksi. Ehdokkaita oli 3.
+
+Antti Rinne on ollut SDP:n puoluejohtaja vuodesta 2014. Rinne on 54-vuotias. Hänellä on lakimiehen eli juristin koulutus. Rinne on tehnyt aikaisemmin työtä työntekijöiden ammattiliitoissa.
+
+Sosiaalidemokraattien SDP on vasemmistopuolue. Se on yksi Suomen suurista puolueista.
+
+## Riita matkustuskiellosta jatkuu USA:ssa
+
+![Donald Trump esittelee allekirjoittamaansa maahantulokieltoa valkoisessa talossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9442210)
+
+Avaa kuvien katselu
+
+Trumpin määräykset aiheuttavat riitaa. Kuva: Mandel Ngan / AFP
+
+USA:ssa jatkuu riita presidentti Donald Trumpin määräyksestä, joka kieltää 7 muslimimaan kansalaisten matkustamisen USA:han.
+
+Tuomari James Robart on päättänyt, että presidentin määräystä ei väliaikaisesti noudateta. Tuomarin mielestä Trumpin määräys on laiton.
+
+Presidentti Trump on sitä mieltä, että tuomari on väärässä. Presidentti sanoo, että tuomarin päätös pitää perua.
+
+Trumpin määräys kielsi Iranin, Irakin, Libyan, Somalian, Sudanin, Syyrian ja Jemenin kansalaisten matkustamisen USA:han. Nyt monet lentoyhtiöt sanovat, että ne alkavat taas kuljettaa USA:han myös näiden maiden kansalaisia.
+
+## Finlandia-hiihto
+
+![Finlandia-hiihdon latutalkoot Tapanilassa tammikuussa 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9423663)
+
+Avaa kuvien katselu
+
+Vapaaehtoiset työntekijät panevat Finlandia-hiihdon latuja kuntoon. Kuva: Yle / Mikko Tuomikoski
+
+Finlandia-hiihto alkoi lauantaina Lahdessa.
+
+Finlandia-hiihdossa hiihtäjät hiihtävät eripituisia matkoja. Tänä vuonna järjestettiin myös 100 kilometrin hiihto, koska itsenäinen Suomi täyttää 100 vuotta. 100 kilometrin juhlamatkalle osallistui yli 400 hiihtäjää.
+
+Finlandia-hiihtoon osallistuu paljon hiihdon harrastajia. Tänä vuonna hiihtäjiä on melkein 30 maasta. Finlandia-hiihtoja on järjestetty jo yli 40 vuotta.
+
+## Nyt syödään Runebergin torttuja
+
+![Runebergintorttuja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9440879)
+
+Avaa kuvien katselu
+
+Hillo ja sokerirengas koristavat runebergintorttua. Kuva: Olli Koski / Yle
+
+Sunnuntaina vietetään Runebergin päivää. Päivän sankari on kirjailija ja Suomen kansallisrunoilija Johan Ludvig Runeberg. Hän eli 1800-luvulla.
+
+Runebergin päivänä suomalaiset syövät Runebergin torttuja. Runebergin tortun päällä on vadelmahilloa, ja hillon ympärillä on rengas sokerista.
+
+Runebergin vaimo, Fredrika Runeberg, leipoi melko samanlaisia torttuja jo yli 150 vuotta sitten. Tortut saivat nimen kirjailija Runebergin mukaan.
+
+## Sää kylmenee
+
+![Merisumu pakkanen Kaivopuisto Helsinki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9389754)
+
+Avaa kuvien katselu
+
+Etelä-Suomi saa vihdoin pakkasia. Kuva: Antti Haanpää / Yle
+
+Ensi viikolla on kylmää. Kylmimmät päivät ovat tiistai ja keskiviikko. Silloin Etelä-Suomessa voi olla noin 20 astetta pakkasta. Pohjois-Suomessa pakkasta on vähemmän.

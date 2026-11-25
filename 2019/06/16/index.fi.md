@@ -1,0 +1,65 @@
+# Sunnuntai 16.6.2019 (radio)
+
+Sianlihan vienti Kiinaan kasvaa. Kultarannassa pohditaan Euroopan ja Suomen tulevaisuutta. Monien vanhempien mielestä vauva nukkuu huonosti. Tänään ihastellaan luonnonkukkia kaikissa Pohjoismaissa.
+
+## Suomi voi hyötyä Kiinan lihapulasta
+
+![Lihatiski jonka takana seisoo myyjä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10141847)
+
+Avaa kuvien katselu
+
+Kiina on maailman isoin sianlihan tuottaja ja kuluttaja. Kuva: How Hwee Young / EPA
+
+Suomalaiset lihafirmat uskovat, että sianlihan vienti Kiinaan kasvaa.
+
+Kiinan sianlihamarkkina on tosi iso. Kiina on suurin sianlihan kuluttaja maailmassa. Kiina on myös suurin sianlihan tuottaja maailmassa. Kiinassa tuotetaan melkein puolet maailman sianlihasta.
+
+Afrikkalainen sikarutto on kuitenkin levinnyt myös Kiinaan. Afrikkalainen sikarutto on eläintauti, joka leviää herkästi. Kiinassa noin 200 miljoonaa sikaa kuolee tai pitää teurastaa eli tappaa, jotta sikaruton leviäminen estetään. Sen takia Kiinassa voi tulla pula sianlihasta.
+
+Suomalaiset lihafirmat Atria ja HKScan uskovat, että sianlihan vienti Kiinaan kasvaa. Firmat myös sanovat, että sianlihasta saa entistä paremman hinnnan.
+
+## Kultarannassa pohditaan Euroopan tulevaisuutta
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_extract,w_4173,h_2347,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-2931645768078a648ac/1528717463)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö isännöi Kultaranta-keskusteluja. Kuva: All Over Press / Petteri Paalasmaa
+
+Kultaranta-keskustelut ovat alkaneet.
+
+Keskusteluissa puhutaan tänä vuonna Euroopan tulevaisuudesta ja turvallisuudesta, politiikan murroksesta ja demokratiasta.
+
+Keskusteluihin on kutsuttu noin 100 asiantuntijaa ja vaikuttajaa yhteiskunnan eri aloilta. Keskustelujen päävieras on Saksan liittopresidentti Frank-Walter Steinmeier.
+
+Kultaranta-keskustelut järjestetään Naantalissa presidentti Sauli Niinistön kesäkodissa. Keskustelut alkoivat tänään sunnuntaina, ja ne jatkuvat huomenna.
+
+## Moni vauva nukkuu huonosti
+
+![lapsi nukkuu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9231032)
+
+Avaa kuvien katselu
+
+Lapsi nukkuu. Kuva: Toni Pitkänen / Yle
+
+Monien suomalaisvanhempien mielestä perheen vauva nukkuu huonosti.
+
+Vanhemmat sanovat, että vauva nukkuu huonosti etenkin 8 kuukauden iässä. Vanhempien kokemus on, että 8 kuukauden iässä jopa 40 prosenttia vauvoista kärsii unihäiriöistä.
+
+3 kuukauden ikäisenä noin 25 prosentilla vauvoista on unihäiriöitä. Unihäiriöiden määrä on sama myös puolitoistavuotiailla lapsilla.
+
+Terveyden ja hyvinvoinnin laitos on kysynyt vanhempien kokemuksia lasten nukkumisesta. Tutkimus osoittaa, että monet vanhemmat kokevat ongelmaksi myös vauvojen normaalin yöheräilyn.
+
+## Luonnonkukat tutuiksi
+
+![Päivänkakkarat, mäkitervekot ja muut luonnonkukat rehottavat Tampereen yliopiston rinteessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10829615)
+
+Avaa kuvien katselu
+
+Päivänkakkarat ja mäkitervakot kukkivat. Kuva: Jouni Tanninen / Yle 
+
+Tänään on vietetty luonnonkukkien päivää. Tänä vuonna päivän teemalajina ovat lumpeet.
+
+Luonnonkukkien päivän tavoitteena on, että ihmisten oppivat tuntemaan luontoa ja kasveja paremmin. Sen takia tänään on järjestetty kymmeniä kasviretkiä eri puolilla maata.
+
+Luonnonkukkien päivää vietetään kaikissa Pohjoismaissa. Luonnonkukkien päivä on aina sunnuntaina noin viikko ennen juhannusta.

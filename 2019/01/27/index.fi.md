@@ -1,0 +1,77 @@
+# Sunnuntai 27.1.2019 (radio)
+
+Pääministeri Juha Sipilä kannattaa turvapaikanhakijoiden pääsykoetta. Filippiineillä on kuollut ihmisiä pommi-iskussa. Brasiliassa tapahtui pato-onnettomuus. Tämän talven uusi pakkasennätys on 38,7 pakkasastetta. Pakkasen takia peruttiin tapahtumia sunnuntaina.
+
+## Pääministerin haastattelu
+
+![Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10593193)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilää haastateltiin radiossa sunnuntaina. Kuva: Martti Kainulainen / Lehtikuva
+
+Pääministeri Juha Sipilä kannattaa turvapaikanhakijoiden pääsykoetta. Sipilän mielestä turvapaikanhakijan pitää tietää, miten Suomessa käyttäydytään.
+
+Suomessa on ehdotettu, että turvapaikanhakijoille järjestetään pääsykoe Suomeen. Ehdotuksen syynä ovat Oulun ja Helsingin seksirikokset, joiden tekijät ovat todennäköisesti ulkomaalaistaustaisia. Turvapaikanhakijoiden pääsykokeesta ei ole vielä tehty päätöstä.
+
+Pääministeri Sipilää haastateltiin Yle Radio Suomessa sunnuntaina.
+
+## Pommi-isku Filippiineillä
+
+![Pommi-iskun jälkiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10616271)
+
+Avaa kuvien katselu
+
+Pommi räjähti kirkossa Jolon saarella. Kuva: AFP
+
+Filippiineillä, Aasiassa, on tapahtunut pommi-isku. Yli 20 ihmistä kuoli ja yli 80 ihmistä loukkaantui iskussa.
+
+Isku tapahtui Jolon saarella, jonka pääkaupungissa räjähti 2 pommia. Ensimmäinen pommi räjähti kirkossa, ja toinen pommi räjähti kirkon ulkopuolella. Pommi-isku tapahtui aamulla, kun kirkossa oli ihmisiä.
+
+Vielä ei tiedetä, kuka teki pommi-iskun.
+
+## Pato-onnettomuus Brasiliassa
+
+![Pelastustyöt ovat käynnissä lähellä Brumadinhon kaupunkia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10615446)
+
+Avaa kuvien katselu
+
+Muta peitti isoja alueita, sen jälkeen kun kaivoksen pato murtui. Kuva: PAULO FONSECA/ EPA
+
+Brasiliassa, Etelä-Amerikassa, on kuollut ihmisiä pato-onnettomuudessa.
+
+Onnettomuudessa on kuollut ainakin 40 ihmistä. Kuolleita on ehkä enemmän, koska melkein 300 ihmistä on vielä kadoksissa.
+
+Onnettomuudessa kaivoksen pato murtui, ja ympäristöön pääsi paljon mutaa. Muta peitti taloja ja autoteitä.
+
+Pelastajat ovat etsineet ihmisiä, jotka katosivat onnettomuudessa. Pelastajien piti kuitenkin lopettaa etsiminen, kun viranomaiset varoittivat, että kaivoksen pato voi murtua myös toisesta kohtaa.
+
+## Uusi pakkasennätys
+
+![Lähikuva lumisesta sammaleesta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10605974)
+
+Avaa kuvien katselu
+
+Kuva: Heini Holopainen / Yle
+
+Viikonloppuna on syntynyt tämän talven uusi pakkasennätys.
+
+Uusi ennätys on 38,7 pakkasastetta. Se mitattiin aikaisin sunnuntaiaamuna Sodankylässä, Lapissa.
+
+Suomen kovin pakkanen mitattiin 20 vuotta sitten. Silloin Lapin Kittilässä oli 51,5 astetta pakkasta.
+
+## Tapahtumia peruttiin
+
+![Kylmä pakkaspäivä Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10616020)
+
+Avaa kuvien katselu
+
+Kovan pakkasen takia ulkona on ollut vaikea järjestää tapahtumia. Kuva: Henrietta Hassinen / Yle
+
+Kova pakkanen on vaikuttanut sunnuntain tapahtumiin eri puolilla Suomea.
+
+Kuopiossa peruttiin Pakkasjuhla. Se on puistotapahtuma, jota vietetään ulkona. Kuopiolaiset eivät voineet viettää Pakkasjuhlaa, koska pakkasta oli liian paljon.
+
+Seinäjoella peruttiin sunnuntaina ravikilpailut. Pakkasta oli liikaa hevosille ja niiden kuljettajille.
+
+Alkuviikolla kova pakkanen heikkenee, eli paukkupakkanen loppuu.

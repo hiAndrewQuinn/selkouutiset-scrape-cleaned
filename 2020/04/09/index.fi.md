@@ -1,0 +1,77 @@
+# Torstai 9.4.2020 (radio)
+
+Ylen puoluekannatuskysely. Koronavirustilanne Suomessa. Uudenmaan rajalle tehovalvontaa pääsiäiseksi. Valintakokeet pidetään etänä. Valamon luostarilta loppuivat tulot.
+
+## Ylen puoluekannatuskysely
+
+![Maaliskuun puoluekannatusmittaus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11299665)
+
+Avaa kuvien katselu
+
+SDP:n suosio on kasvanut. Kuva: Ilkka Kemppinen / Yle
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Eniten kannatusta saa perussuomalaiset. 20 % vastaajista kannattaa perussuomalaisia. Toiseksi eniten kannatusta saa SDP. Melkein 20 % vastaajista kannattaa SDP:tä. Kolmanneksi eniten kannatusta saa kokoomus.
+
+SDP:n kannatus on noussut kokoomusta isommaksi. Perussuomalaiset ja kokoomus ovat oppositiopuolueita, eli ne eivät ole hallituksessa.
+
+Kaikkien puolueiden kannatusluvut ovat osoitteessa yle.fi.
+
+## Koronatilanne Suomessa
+
+![Terveyden ja hyvinvoinninlaitoksen kyltti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11269515)
+
+Avaa kuvien katselu
+
+THL eli Terveyden ja hyvinvoinnin laitos.  Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Terveyden ja hyvinvoinnin laitos on kertonut torstaina Suomen koronavirustilanteesta. Tautiin, jonka koronavirus aiheuttaa, on kuollut Suomessa nyt 42 ihmistä. Kuolleiden määrä on noussut kahdella keskiviikosta.
+
+Koronaviruksen vuoksi sairaalassa on 244 potilasta, joista 82 on tehohoidossa.
+
+Suomessa on yli 2 600 varmistettua koronavirustartuntaa.
+
+&gt;&gt; Tietoa koronaviruksesta
+
+## Poliisi valvoo Uudenmaan rajaa pääsiäisenä
+
+![Poliisi tarkastaa autoilijoita Uudenmaan rajalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11300059)
+
+Avaa kuvien katselu
+
+Poliisi valvoo Uudenmaan rajaa.  Kuva: Markku Ulander / Lehtikuva
+
+Poliisi on aloittanut pääsiäisen takia Uudenmaan rajan tehovalvonnan.
+
+Tavallisesti monet ihmiset menevät pääsiäisenä mökille. Nyt Suomessa on liikkumisrajoituksia ja Uudenmaan rajan yli saa mennä vain välttämättömästä syystä, esimerkiksi töihin. Vapaa-ajanmatka esimerkiksi mökille ei ole välttämätön syy.
+
+Poliisi valvoo liikennettä Uudenmaan rajalla noin 40 tarkastuspisteellä. Poliisi valvoo myös junien matkustajia.
+
+## Pääsykokeet tehdään etänä
+
+![Yliopiston pääsykokeet.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5407845)
+
+Avaa kuvien katselu
+
+Nuoria yliopiston pääsykokeessa.  Kuva: Yle
+
+Yliopistojen ja ammattikorkeakoulujen valintakokeet järjestetään tänä keväänä etäkokeena.
+
+Koronatilanteen takia yliopistot ja korkeakoulut eivät voi järjestää perinteisiä valintakokeita.
+
+Etäkokeessa hakijat tekevät esimerkiksi tehtäviä kotona tietokoneella. Yliopistot voivat valita opiskelijoita myös esimerkiksi todistusten perusteella.
+
+## Valamon luostari joutui talousvaikeuksiin
+
+![Valamon luostarin pääkirkko Heinävedellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11091402)
+
+Avaa kuvien katselu
+
+Valamon luostarin pääkirkko Heinävedellä. Kuva: Marja-Liisa Kämppi / Yle
+
+Valamon luostari Heinävedellä on joutunut talousvaikeuksiin koronatilanteen takia.
+
+Tavallisesti Valamon luostarissa käy paljon ihmisiä pääsiäisenä, joka on ortodoksisen kirkon tärkein juhla.
+
+Nyt Valamon luostarin ravintola, hotelli, matkamuistomyymälä ja opisto ovat kiinni eikä luostari saa tuloja. Valamon luostarin rahat riittävät, jos se saa avata ovet kesällä.

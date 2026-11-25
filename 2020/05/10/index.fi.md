@@ -1,0 +1,103 @@
+# Sunnuntai 10.5.2020 (radio)
+
+Korona-ajan erilainen äitienpäivä. LIsääkö koulujen avaaminen koronatartuntoja? Suomen koronatartunnat. Venäjällä koronavirus leviää. Ranskassa höllennetään koronarajoituksia. Sää viilenee.
+
+## Korona-ajan erilainen äitienpäivä
+
+![Äitienpäivänä annettavia Suomen Valkoisen Ruusun I luokan mitaleita.](https://img.img-cdn.yle.fi/crop_extract,w_1346,h_757,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6729155eb55579ebfe8/1588942289)
+
+Avaa kuvien katselu
+
+Äitien ansiomerkit jaetaan myöhemmin, koska nyt on koronarajoituksia. Kuva: Samuli Miettinen / MLL
+
+Tänään on vietetty äitienpäivää.
+
+Äitienpäivänä tasavallan presidentti palkitsee äitejä, jotka ovat ansioituneet kasvattajina.
+
+36 äitiä saa kunniamerkin, joka on nimeltään Suomen Valkoisen Ruusun ensimmäisen luokan mitali kultaristein.
+
+He saavat kunniamerkit myöhemmin koronaepidemian takia.
+
+Tasavallan presidentti Sauli Niinistö piti puheen kaikille äideille. Hän sanoi, että äitienpäivä on hyvä hetki muistuttaa siitä, että perhe- ja lähiyhteisöt ovat tärkeitä.
+
+Presidentti muistutti, että moni äiti asuu yksin. Nyt poikkeusaikana pitää keksiä uusia tapoja pitää yhteyttä..
+
+## Lisääntyvätkö koronatartunnat?
+
+![Tyhjä luokkahuone Vesilahden yhtenäiskoulussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11331639)
+
+Avaa kuvien katselu
+
+Peruskoululaiset palaavat kouluun ensi torstaina. Kuva: Miikka Varila / Yle
+
+Peruskoululaiset palaavat kouluihin lähiopetukseen ensi torstaina.
+
+Nyt puhutaan paljon siitä, lisääntyvätkö koronatartunnat, kun koulut avataan.
+
+Virusasiantuntija, professori Kalle Saksela ei usko, että kouluopetuksen jatkuminen aiheuttaa paljon koronatartuntoja.
+
+Tilastojen mukaan näyttää siltä, että lasten kautta on levinnyt vain vähän tartuntoja.
+
+Virusasiantuntija Saksela sanoo, että lapsi voi levittää samanlaisia viruksia kuin aikuinen.
+
+Tanskassa kävi niin, että virus alkoi tarttua enemmän, kun koulut avattiin.
+
+## Koronaan on kuollut Suomessa 267 ihmistä
+
+![Kuvassa sairaanhoitohenkilökunta työskentelee.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11344372)
+
+Avaa kuvien katselu
+
+Meilahden sairaala Helsingissä. Kuva: Markku Ulander / Lehtikuva
+
+Suomessa on nyt virallisesti melkein 6000 koronatartuntaa.
+
+Koronaviruksen takia on kuollut 267 ihmistä.
+
+## Venäjällä koronavirus leviää nopeasti
+
+![Katuja desinfioitiin Moskovassa 24. huhtikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11324150)
+
+Avaa kuvien katselu
+
+Moskovassa Venäjällä on desinfioitu katuja. Kuva: Sergei Chirikov / EPA
+
+Venäjällä koronavirus leviää nopeasti. Siellä viranomaiset ilmoittivat tänään, että uusia tartuntoja löytyi yli 11 000.
+
+Yhteensä Venäjällä on yli 200 000 tartuntaa.
+
+Venäjällä on nyt todettu viidenneksi eniten tartuntoja maailmassa.
+
+Eniten tartuntoja on Yhdysvalloissa. Siellä on 1,3 miljoonaa tartuntaa.
+
+Koko Euroopassa tartuntoja on yhteensä 1,7 miljoonaa.
+
+## Ranskalaiset pääsevät ulos
+
+![äiti, isä&#39; ja lapsi kävelevät metroaseman edessä](https://img.img-cdn.yle.fi/crop_extract,w_5708,h_3211,x_0,y_348/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6731845eb6a69e99297/1589028659)
+
+Avaa kuvien katselu
+
+Ranskassa höllennetään koronarajoituksia. Kuva: Juha Nurminen
+
+Ranskassa ihmiset palaavat huomenna normaaliarkeen.
+
+Melkein 2 kuukautta kestänyt ulkonaliikkumiskielto päättyy.
+
+Monet ovat huolissaan, kun rajoituksia vähennetään. Ihmiset pelkäävät, että koronavirus leviää esimerkiksi metrossa ja busseissa sekä kouluissa.
+
+## Sää viilenee
+
+![Kirsikkapuut kukkivat Roihuvuoressa.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_96/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6732125eb6ae444b1ab/1737461566)
+
+Avaa kuvien katselu
+
+Etelä-Suomessa ihmiset ovat ihailleet kirsikkapuita, jotka kukkivat juuri nyt. Kuva: Tiina Jutila / Yle
+
+Sää viilenee ja muuttuu sateiseksi.
+
+Yöllä maan itäosassa voi sataa paljon, ensin vettä ja sitten lunta.
+
+Huomenna maanantaina Etelä-Suomessa on noin 5 astetta lämmintä ja vettä sataa.
+
+Pohjois-Suomessa voi sataa lunta.

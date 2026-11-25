@@ -1,0 +1,85 @@
+# Torstai 14.5.2020 (radio)
+
+Yritykset voivat hakea valtiolta yritystukea. Suomalaiset eivät pidä maskipakkoa tarpeellisena. Työmatkaliikenne Suomen ja muiden Schengen-maiden välillä on käynnistynyt. Ihmissalakuljetus paljastui Helsinki–Vantaalla.
+
+## Yritystuesta on päätetty
+
+![Sanna Marin, Mika Lintilä, Katri Kulmuni ja Tuula Haatainen ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11351403)
+
+Avaa kuvien katselu
+
+Elinkeinoministeri Mika Lintilä eduskunnassa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Firmat voivat hakea valtiolta yritystukea. Haku alkaa ehkä kuun vaihteessa.
+
+Hallitus pääsi keskiviikkoiltana sopuun tuista. Elinkeinoministeri Mika Lintilä kertoi aamulla, että lain valmistelu on jo loppusuoralla.
+
+Tukea saavat yritykset, jotka ovat kärsineet koronasta ja liikevaihto on pudonnut paljon.
+
+Tuki on 2000 - 200 000 euroa. Tuella yritetään estää konkurssit.
+
+## Pakolliset kasvomaskit eivät saa kannatusta Suomessa
+
+![Maskikyselyn tulokset. Kansalaiset kannattavat eniten omaa harkintaa maskin käytössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11347241)
+
+Avaa kuvien katselu
+
+Kuva: Jyrki Lyytikkä / Yle
+
+Suurin osa suomalaisista on sitä mieltä, että maskipakko ei ole tarpeellinen.
+
+Yle teki maskeista kyselyn. Vain 11 prosenttia on maskipakon kannalla. Suomessa ei ole toistaiseksi suositusta tai määräystä käyttää kasvomaskia.
+
+Kasvomaskin käyttö on pakollinen julkisilla paikoilla monissa Euroopan maissa. Esimerkiksi Saksassa, Itävallassa ja Puolassa on voimassa maskipakko koronaviruksen takia.
+
+Osa suomalaisista toivoo viranomaisilta selviä ohjeita.
+
+Sosiaali- ja terveysministeriö selvittää tutkimustietoa kasvomaskeista. Selvityksen on tarkoitus valmistua tämän kuun aikana
+
+## Työmatkat Ruotsiin ja Viroon aukesivat
+
+![Viking Grace ja Silja Galaxy kohtaavat Ahvenenmaan saaristossa lähellä Maarianhaminaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11084576)
+
+Avaa kuvien katselu
+
+Viking Grace ja Silja Galaxy kohtaavat Ahvenenmaan saaristossa lähellä Maarianhaminaa. Arkistokuva. Kuva: Markku Ojala / AOP
+
+Työmatkaliikenne Suomen ja muiden Schengen-maiden välillä on käynnistynyt. Liikenne alkoi aamulla kuukauden tauon jälkeen.
+
+Myös esimerkiksi automatkailijat pääsevät palaamaan Suomeen laivalla Ruotsista ja Virosta.
+
+Sallittua liikennettä ovat myös lähiomaisen tapaaminen tai opiskelu.
+
+Rajoituksia on yhä voimassa. Risteilyt tai vapaa-ajan matkustus eivät ole vielä sallittua liikennettä.
+
+## Autoja vuokrataan nyt paljon
+
+![Mies vuokraa auton Aviksen toimipisteestä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9733564)
+
+Avaa kuvien katselu
+
+Henkilö autovuokraamon tiskillä. Kuvituskuva. Kuva: Juha Kivioja / Yle
+
+Autoja vuokrataan nyt paljon. Henkilöautojen pitkäaikainen vuokraus on lisääntynyt ainakin 50 prosenttia koronaepidemian aikana.
+
+Autovuokraamot Hertz ja Europcar kertovat, että yli kuukauden vuokra-aika on yleinen. Se yleistyi heti, kun Uudenmaan sulku päättyi.
+
+Ihmiset haluavat matkustaa mahdollisimman turvallisesti ja välttää kontakteja. Lisäksi joukkoliikenteen vuoroja on vähennetty.
+
+## Helsinki–Vantaalla paljastui ihmissalakuljetus
+
+![Helsinki-Vantaan lentoaseman terminaali 1 ulkopuolelta kuvattuna.](https://img.img-cdn.yle.fi/crop_extract,w_3383,h_1903,x_0,y_446/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6539825e70911d912f5/1585149334)
+
+Avaa kuvien katselu
+
+Helsinki–Vantaan lentokenttä. Kuva: Eleni Paspatis / Yle
+
+Rajavartiolaitos on paljastanut ihmisten salakuljetusringin Helsinki–Vantaalla.
+
+Ihmisiä on viety Manner-Euroopasta Isoon-Britanniaan noin 8 000 euron hinnalla.
+
+Poliisi epäilee, että taustalla on ammattimainen salakuljetusrinki. Rinki vaikuttaa ainakin Ruotsissa ja Isossa-Britanniassa.
+
+Rikollisryhmä paljastui tammikuussa, kun Helsinki–Vantaan lentoasemalla jäi kiinni kaksi epäiltyä. Toinen oli Ruotsin kansalainen. Toinen oli kuwaitilainen, joka käytti muun henkilön Ruotsin passia.
+
+Miehet olivat matkalla Pariisista Helsingin kautta Lontooseen.

@@ -1,0 +1,73 @@
+# Maanatai 22.2.2021 (radio)
+
+Uusi tartuntatautilaki tuli voimaan. Koronatartunnat lisääntyvät. Osa ihmisistä sairastaa pitkään. Kuljettajien lepoajat alittuvat. Toisen asteen haku alkaa.
+
+## Tartuntatautilaki
+
+![Ihmisiä kuntosalilla](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-776915603356d030ae8/1613977382)
+
+Avaa kuvien katselu
+
+Esimerkiksi kuntosaleja voidaan sulkea, jos koronatilanne on paha. Kuva: Antro Valo / Yle
+
+Suomessa on tullut voimaan uusi tartuntatautilaki. Viranomaiset eri alueilla voivat nyt sulkea esimerkiksi yksityisiä liikuntapaikkoja, kuntosaleja ja kylpylöitä, jos koronatilanne on paha.
+
+Viranomaiset voivat myös sulkea kauppakeskuksien oleskelutiloja ja rajoittaa matkustajamäärää junissa ja busseissa.
+
+Helsingin ja Uudenmaan alueella on tullut voimaan tiukennuksia kokoontumisrajoituksiin tänään maanantaina. Yli 6 ihmisen yleisötilaisuudet ja yleiset kokoukset on nyt kielletty Helsingin ja Uudenmaan alueella 3 viikoksi.
+
+## Koronatartunnat
+
+![Koronatestiä ottava sairaanhoitaja](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-774046602a22a396899/1613637514)
+
+Avaa kuvien katselu
+
+Koronatesti. Kuva: Mari Kahila / Yle 
+
+Suomessa on todettu maanantaina 390 uutta koronavirustartuntaa. Uusia koronaviruskuolemia on 7.
+
+2 viikon aikana koronatartuntoja on todettu yli 6 000. Se on noin 1 000 tartuntaa enemmän, kuin 2 edellisen viikon aikana.
+
+Sairaalahoidossa on 170 koronapotilasta.
+
+## Pitkät koronaoireet
+
+![Sohvalla viltin alla makaava nainen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11391258)
+
+Avaa kuvien katselu
+
+Koronatauti voi joillakin ihmisillä kestää pitkään varsinaisen taudin jälkeen. Kuva: Jarkko Riikonen / Yle
+
+Koronavirus voi aiheuttaa pitkän sairauden. Lääkärit ovat todenneet, että koronapotilas voi olla sairas jopa useita kuukausia.
+
+Pitkäaikaisia koronan oireita on ehkä tuhansilla suomalaisilla. Ongelmana on, että pitkän koronataudin oireita ei aina tunnisteta.
+
+Vielä ei tiedetä, mistä johtuu, että koronatauti voi kestää pitkään varsinaisen taudin jälkeen.
+
+## Kuljettajien lepoaikarikkomukset
+
+![Rekkoja lumisella tiellä.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7507175fcb670d0d0c0/1607165838)
+
+Avaa kuvien katselu
+
+Kuljetukset ovat lisääntyneet. Esimerkiksi verkkokaupan kasvu lisää kuljetuksia. Kuva: AOP
+
+Raskaan liikenteen ajo- ja lepoaikarikkomukset ovat lisääntyneet. Esimerkiksi verkkokaupan kuljetukset ovat lisääntyneet paljon.
+
+Koronatilanteen takia kuljettajat joutuvat jäämään pois töistä aina, jos heillä on flunssaoireita. Silloin esimerkiksi rekkaa voi lähteä ajamaan kuljettaja, joka ei ehkä ole levännyt tarpeeksi edellisen ajon jälkeen.
+
+Poliisi valvoo kuljettajien lepoaikoja. Lepoaikarikkomuksia on ollut nyt aiempaa enemmän.
+
+## Pakollinen yhteishaku
+
+![Opiskelijoita ammattikoulun luentosalissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7293501)
+
+Avaa kuvien katselu
+
+Opiskelijoita luokassa. Kuva: Yle
+
+Yhteishaku toisen asteen kouluihin alkaa huomenna tiistaina. Koululaisten, joiden peruskoulu loppuu tänä keväänä, pitää hakea toisen asteen koulutukseen, esimerkiksi lukioon.
+
+Hakuvelvoite on uusi asia. Se on tullut voimaan tänä vuonna.
+
+Hakuaikaa toisen asteen koulutukseen on 23. maaliskuuta asti.

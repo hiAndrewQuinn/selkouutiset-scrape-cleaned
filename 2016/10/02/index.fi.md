@@ -1,0 +1,63 @@
+# Sunnuntai 2.10.2016 (radio)
+
+35 000 suomalaisella on edunvalvoja. Suomalaisyritykset haluavat puhtaan teknologian markkinoille. Selkokieli on ollut esillä Turun kirjamessuilla. Elokuva Hymyilevä mies voitti taas palkinnon.
+
+## 35 000 suomalaisella on edunvalvoja
+
+![Vanhus laskee taskulaskimella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9190584)
+
+Avaa kuvien katselu
+
+Edunvalvoja huolehtii päämiehen omaisuudesta ja rahoista. Edunvalvojan pitää myös huolehtia siitä, että päämies saa sopivan hoidon, huolenpidon tai kuntoutuksen. Kuva: Ismo Pekkarinen / AOP
+
+Suomessa on 35 000 ihmistä, joilla on edunvalvoja.
+
+Kaikki eivät pysty hoitamaan omia asioita kuten raha-asioita. Syynä voi olla sairaus tai vamma. Tällaisia ihmisiä on Suomessa monta sataa tuhatta.
+
+Jos ihmisellä ei ole lähiomaisia, hänelle määrätään tukihenkilöksi yleinen edunvalvoja. Edunvalvoja on virkamies, joka huolehtii asiakkaan eli päämiehen omaisuudesta ja rahoista.
+
+Suomessa on 200 yleistä edunvalvojaa. Päämies on usein esimerkiksi kehitysvammainen, mielenterveyspotilas, alaikäinen tai muistisairas.
+
+## Suomalaisyritykset haluavat puhtaan teknologian markkinoille
+
+![vedenpuhdistuskontti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9203018)
+
+Avaa kuvien katselu
+
+Aurinkovoimalla toimivaa vedenpuhdistinta testattiin kesällä Hangossa. Kuva: Solar Water Solutions
+
+Suomalainen clean tech -ala eli niin sanottu puhdas teknologia haluaa maailmanmarkkinoille. Maailmalla on isot markkinat menetelmille, jotka edistävät puhdasta ympäristöä.
+
+Yksi näistä firmoista on Solar Water Solutions. Firman laitos tekee merivedestä juomavettä aurinkoenergian avulla. Tavoite on korvata akut tai generaattorit, joissa käytetään dieselöljyä. Firmalla on testilaitos Dubaissa. 
+
+Puhtaan teknologian firmoja on Suomessa ehkä 5 000. Suomessa on kuitenkin liian vähän alan kokeiluhankkeita. Ensi viikolla Lahdessa on tapahtuma, jossa puhtaan teknologian firmat etsivät rahoitusta.
+
+## Selkokielelle halutaan lisää uusia kirjoja ja vanhoja klassikkoja
+
+![Selkokirjallisuutta Turun kirjamessuilla 2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9205274)
+
+Avaa kuvien katselu
+
+Leealaura Leskelä Selkokeskuksesta haastattelee kirjailija Eppu Nuotiota ja selkokirjailija Johanna Kartiota (oik.). Kuva: Kaisa Kaatra / Selkosanomat
+
+Turussa on ollut viikonloppuna kirjamessut. Kirjamessuilla on ollut esillä myös selkokielisiä kirjoja.
+
+Kirjailija Eppu Nuotio toivoi  enemmän selkokirjoja uudesta suomalaisesta kaunokirjallisuudesta. Selkokirjailija Johanna Kartio toivoi lisää myös vanhoja suomalaisia klassikkoja. Tällainen klassikko on esimerkiksi Väinö Linnan Tuntematon sotilas.
+
+Kartio on kirjoittanut selkokielisen version Nuotion kirjasta Peiton paikka.
+
+## Elokuva Hymyilevä mies sai taas palkinnon
+
+![Hymyilevä Mies](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9115442)
+
+Avaa kuvien katselu
+
+Hymyilevän miehen pääosissa näyttelevät Jarkko Lahti, Eero Milonoff ja Oona Airola. Kuva: Kuokkasen Kuvaamo
+
+Suomalainen elokuva Hymyilevä mies on voittanut pääpalkinnon Zürichin elokuvajuhlilla. Elokuvan on ohjannut Juho Kuosmanen.
+
+Pääpalkinto on noin 23 000 euroa. Siihen kuuluu myös levityspalkinto. Pääpalkinnosta kisasi tänä vuonna 14 elokuvaa.
+
+Elokuva kertoo siitä, kun nyrkkeilijä Olli Mäki rakastuu. Elokuva sijoittuu vuoteen 1962.
+
+Hymyilevä mies on voittanut palkintoja myös Makedoniassa ja Cannesin elokuvajuhlilla Ranskassa. Elokuva on Suomen Oscar-ehdokas. Oscar-palkinnot jakaa Yhdysvaltain elokuva-akatemia.

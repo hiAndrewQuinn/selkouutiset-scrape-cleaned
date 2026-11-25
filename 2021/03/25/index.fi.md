@@ -1,0 +1,59 @@
+# Torstai 25.3.2021 (radio)
+
+Hallitus ehdottaa liikkumisrajoituksia. Teknologiateollisuus irtautui työehtosopimusneuvotteluista. Lasten vanhemmat väsyvät. Siitepölykausi alkaa.
+
+## Hallitus ehdottaa liikkumisrajoituksia
+
+![Helsingin Hakaniemessä käytettiin kasvomaskeja 16. maaliskuuta.](https://img.img-cdn.yle.fi/crop_extract,w_4653,h_2617,x_117,y_719/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7850096051b1b6e3b05/1615967767)
+
+Avaa kuvien katselu
+
+Hallitus on antanut ehdotuksen liikkumisrajoituksista. Kuva: Silja Viitala / Yle
+
+Hallitus on antanut eduskunnalle ehdotuksen liikkumisrajoituksista ja maskipakosta. Ehdotuksen käsittelee ensin eduskunnan perustuslakivaliokunta. Perustuslakivaliokunta arvioi, onko laki tehty oikein. Sen jälkeen eduskunta keskustelee ehdotuksesta ja päättää, hyväksytäänkö uusi laki.
+
+Ehdotuksessa sanotaan esimerkiksi, että ulkoilu on sallittua enintään kahden (2) muun ihmisen. kanssa. Kyläily ja kokoontuminen on kielletty. Esimerkiksi töihin, ruokakauppaan tai apteekkiin saa mennä. Yleisissä tiloissa ja joukkoliikenteessä pitää käyttää maskia.
+
+Jos eduskunta hyväksyy ehdotuksen, liikkumisrajoitukset otetaan ehkä käyttöön Helsingin seudulla ja Turussa. Eduskunta voi myös muuttaa ehdotusta.
+
+## Teknologiateollisuus ei enää neuvottele
+
+![Logo ja kuva taustalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9526937)
+
+Avaa kuvien katselu
+
+Teknologiateollisuus ry on teknologiafirmojen yhteinen järjestö. Kuva: Teknologiateollisuus Ry
+
+Teknologiateollisuus lopettaa yleiset työehtosopimusneuvottelut. Teknologiateollisuus on teknologiafirmojen yhteinen järjestö. Se on ollut mukana, kun firmoille on tehty työehtosopimuksia.
+
+Teknologiateollisuus haluaa, että firmat saavat tehdä itse paikallisia sopimuksia työntekijöiden kanssa.
+
+Myös metsäalan firmojen järjestö Metsäteollisuus lopetti työsopimusneuvottelut viime vuonna. Metsäteollisuus tai Teknologiateollisuus eivät enää osallistu työehtosopimusneuvotteluihin.
+
+## Lasten vanhemmat kovilla
+
+![Rahan niukkuus koettele työttömien ja yksinhuoltajien lisäksi myös työssäkäyvien perheitä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8593396)
+
+Avaa kuvien katselu
+
+Monet vanhemmat tarvitsevat tukea, koska korona-aika on raskasta. Kuva: Riikka Pennanen / Yle
+
+Monilla lasten vanhemmilla on koronatilanteen takia raskasta.
+
+Vahemmille kertyy paljon vastuuta lasten hyvinvoinnista, koska muita palveluita rajoitetaan. Esimerkiksi monet harrastukset ovat loppuneet ja kouluissa opetusta voi olla etänä.
+
+Monet vanhemmat tarvitsevat tukea, koska arki tuntuu raskaalta. Mannerheimin lastensuojeluliiton vanhempainpaveluihin tuli viime vuonna yli 2000 soittoa tai viestiä. Se on enemmän, kuin koskaan aikaisemmin.
+
+## Allergiakausi alkaa
+
+![Lepän norkkoja Joensuussa maaliskuussa vuonna 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10119691)
+
+Avaa kuvien katselu
+
+Lepän kukkia eli norkkoja. Kuva: Ismo Pekkarinen / AOP
+
+Kevään allergiakausi alkaa Suomessa. Allergikot voivat Etelä-Suomessa saada jo oireita lepän ja pähkinäpensaan siitepölystä.
+
+Lepän siitepölyä tulee Suomeen ilmassa muista maista. Myös Suomessa lepän kukinta alkaa pian.
+
+Koivun kukinta alkaa noin kuukauden kuluttua. Luonnonvarakeskus ennustaa, että koivun siitepölyä tulee tänä keväänä paljon.

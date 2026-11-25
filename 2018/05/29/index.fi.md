@@ -1,0 +1,77 @@
+# Tiistai 29.5.2018 (radio)
+
+Suomessa valmistetaan autoja ja laivoja enemmän kuin ennen. Ammatillisessa koulutuksessa on paljon maahanmuuttajataustaisia opiskelijoita. Belgiassa on sattunut ampumistapaus. Helsingin raitiovaunuissa voi ehkä pian maksaa pankkikortilla. Sää vaihtelee eri puolilla Eurooppaa.
+
+## Autojen valmistus
+
+![Uudenkaupungin autotehdas](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10140026)
+
+Avaa kuvien katselu
+
+Uudenkaupungin autotehtaalla on paljon töitä. Kuva: Jyrki Lyytikkä / Yle
+
+Teollisuudesta on saatu hyviä uutisia.
+
+Suomessa valmistetaan nyt autoja ja laivoja enemmän kuin ennen. Määrä kasvaa tänä vuonna yli 20 prosenttia.
+
+Kasvu jatkuu myös ensi vuonna. Kasvu on silloin 15 prosenttia.
+
+Tutkimuslaitos kertoo, että autojen ja laivojen valmistus kasvaa Suomessa nopeammin kuin yleensä Euroopan unionin alueella.
+
+## Ammatillinen koulutus
+
+![Stadin ammattiopiston vartijaopiskelijoita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10229227)
+
+Avaa kuvien katselu
+
+Namik Ali, Samba Jarreh ja Rahimy Najibullah opiskelevat vartijoiksi Stadin ammattiopistossa. Kuva: Antti Kolppo / Yle
+
+Ammatillisessa koulutuksessa on paljon maahanmuuttajataustaisia opiskelijoita. Maahanmuuttajataustaisten opiskelijoiden määrä myös kasvaa nopeasti.
+
+Esimerkiksi Helsingin ammattiopiston opiskelijoista jo noin 30 prosenttia on vieraskielisiä. Vieraskielisten opiskelijoiden äidinkieli on joku muu kuin suomi tai ruotsi.
+
+Maahanmuuttajia opiskelee paljon esimerkiksi teknisillä aloilla.
+
+## Belgian ampumistapaus
+
+![kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10228177)
+
+Avaa kuvien katselu
+
+Mies ampui 3 ihmistä Liègen kaupungissa Belgiassa. Kuva: Yle Uutisgrafiikka
+
+Belgiassa on sattunut ampumistapaus. Ampuja tappoi 3 ihmistä. Myös ampuja kuoli, kun poliisi ampui hänet.
+
+Tapaus alkoi, kun mies hyökkäsi 2 naispoliisin kimppuun. Mies otti poliiseilta aseen. Sitten hän ampui poliisit ja 1 muun ihmisen.
+
+Mies oli aikaisemmin vankilassa huumerikoksen takia. Belgian viranomaiset sanovat, että ampumisessa oli ehkä kysymys terrorismista.
+
+## Maksaminen raitiovaunussa
+
+![Ratikka ajaa Helsingissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10228767)
+
+Avaa kuvien katselu
+
+Ratikassa voi ehkä pian maksaa pankkikortilla. Kuva: Henrietta Hassinen / Yle
+
+Helsingin raitiovaunuissa matkustajat voivat maksaa matkan ensi vuonna uudella tavalla. Suunnitelma on, että matkustaja voi maksaa matkan pankkikortilla.
+
+Maksaminen tapahtuu niin, että matkustaja näyttää pankkikorttia kortinlukijalle. Matkustajan ei tarvitse näyttää pankkikorttia kuljettajalle.
+
+Pankkikortilla maksaminen sopii hyvin ihmisille, jotka matkustavat harvoin. Myös turistit voivat maksaa raitiovaunussa helposti pankkikortilla.
+
+Jos kokeilu raitiovaunuissa onnistuu, uusi maksutapa otetaan käyttöön myös muissa liikennevälineissä.
+
+## Euroopan sää
+
+![kulottunutta nurmikkoa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10221509)
+
+Avaa kuvien katselu
+
+Suomessa on nyt kuivaa. Kuva: Marja Väänänen / Yle
+
+Sää vaihtelee eri puolilla Eurooppaa.
+
+Esimerkiksi Ranskan viinialueella on ollut tosi huono sää. Viikonloppuna alueella oli raesateita. Sade aiheutti suurta vahinkoa Ranskan viiniviljelmille.
+
+Täällä Suomessa vettä ei ole satanut. Siksi maa on niin kuivaa, että metsä voi syttyä helposti tuleen. Ilmatieteen laitos varoittaa metsäpalon vaarasta suuressa osassa Suomea.

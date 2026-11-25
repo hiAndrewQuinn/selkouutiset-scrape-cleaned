@@ -1,0 +1,65 @@
+# Torstai 1.12.2016 (radio)
+
+Guggenheimin museota ei tule Suomeen. Irakilaisveljekset saavat joukkomurhasyytteet. Perussuomalaisten poliitikko sai tuomion vihakirjoituksesta. Pienet lapset katsovat paljon televisiota. Slush-tapahtumassa sijoittajat etsivät mielenkiintoisia firmoja.
+
+## Guggenheimin museota ei tule Suomeen
+
+![Havainnekuva Guggenheim Helsinki -arkkitehtuurikilpailun voittaneesta rakennuksesta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9269693)
+
+Avaa kuvien katselu
+
+Guggenheimin museon mallikuva Kuva: Guggenheim Helsinki
+
+Guggenheimin taidemuseota ei rakenneta Helsinkiin. Helsingin kaupunginvaltuusto hylkäsi yöllä hankkeen. Guggenheimin museo oli tarkoitus rakentaa Helsingin Eteläsatamaan.
+
+Guggenheimin museon rakentaminen on herättänyt paljon keskustelua, koska siihen olisi kulunut paljon rahaa. Museota pidettiin liian kalliina Helsingille. Rakentaminen olisi maksanut ainakin 130 miljoonaa euroa.
+
+Amerikkalainen sijoittaja perusti Guggenheimin säätiön melkein 80 vuotta sitten ja museoita on tällä hetkellä New Yorkissa, Venetsiassa ja Bilbaossa.
+
+## Irakilaisveljekset joutuvat oikeuteen joukkomurhasta
+
+![Terroristiepäillyn vangitsemisoikeudenkäynti Tampereella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8521822)
+
+Avaa kuvien katselu
+
+Veljeksiä epäillään Isisin taistelijoiksi. Kuva: Leena Peltokangas / Yle
+
+Irakilaiset veljekset saavat syytteet joukkomurhista, jotka tapahtuivat Irakissa. Suomen ylin syyttäjä eli valtakunnansyyttäjänvirasto on päättänyt, että 23-vuotiaat miehet joutuvat oikeuteen. He ovat syyttäjän mielestä olleet mukana joukkomurhassa, joka tapahtui Irakissa vuonna 2014.
+
+Terroristijärjestö Isisin taistelijat surmasivat yli 1000 ihmistä. Syyttäjä sanoo, että veljekset olivat Isisin joukoissa.
+
+Miehet otettiin kiinni Forssassa vuosi sitten.
+
+## Poliitikko sai tuomion vihakirjoituksesta
+
+![Terhi Kiemunki Pirkanmaan käräjäoikeudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9306700)
+
+Avaa kuvien katselu
+
+Terhi Kiemunki Kuva: Terri Niemi / Yle
+
+Perussuomalaiset-puolueen poliitikko Terhi Kiemunki on saanut tuomion nettikirjoituksistaan. Kiemunki sai 450 euron sakot siitä, että hän kirjoitti blogissaan vihakirjoituksen. Hän sanoi kaikkien Euroopan terroristien olevan muslimeja. Oikeuden mielestä kirjoituksessa solvattiin islaminuskoisia.
+
+Kiemunki on perussuomalaisten kansanedustajan Lea Mäkipään avustaja eduskunnassa.
+
+## Pienet lapset käyttävät paljon medialaitteita
+
+![Viisivuotias Kaisla katselee iPadia, kuvassa myös perheen kissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9323777)
+
+Avaa kuvien katselu
+
+Lapset katsovat tabletti-tietokoneilta lastenohjelmia. Kuva: Jari Kovalainen / Yle
+
+Pienet lapset katsovat paljon televisiota. Tutkimus kertoo, että 3-6-vuotiaat lapset tuijottavat television, kännykän tai tietokoneen ruutua melkein 2 tuntia päivässä. Lapsista 40 prosenttia käyttää laitteita vielä enemmän eli yli 2 tuntia päivässä.
+
+Eniten lapset katsovat televisiota ja älypuhelimia tai tabletti-tietokoneita. Tutkijat sanovat, että laitteiden käyttö vaikuttaa lasten uneen. Unen määrä voi jäädä liian pieneksi.
+
+## Slush-tapahtuma tuo paljon ihmisiä Helsinkiin
+
+![Slush tapahtuma 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9328663)
+
+Avaa kuvien katselu
+
+Slush-tapahtuma kerää yrittäjiä ja sijoittajia.  Kuva: Yle
+
+Helsingissä on parhaillaan suuri tapahtuma, jossa teknologiayrittäjät ja sijoittajat tapaavat toisiaan. Slush-tapahtumassa on mukana 2300 firmaa, jotka pyytävät rahaa sijoittajilta. Tapahtumassa uudet pienet firmat esittelevät uusia tuotteita ja keksintöjä sijoittajille.

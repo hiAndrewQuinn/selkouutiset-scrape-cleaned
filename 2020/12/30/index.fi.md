@@ -1,0 +1,71 @@
+# Keskiviikko 30.12.2020 (radio)
+
+Ennätyslämmin vuosi. Suomalaisten muuttohalut. Koronarokote. Ruotsin ja Suomen koronaluvut. Norjan maanvyöry.
+
+## Vuosi 2020 oli ennätyslämmin
+
+![Maapallon lämpötilan muutoskartta . Napa-alueet ovat lämmenneet eniten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11702625)
+
+Avaa kuvien katselu
+
+Maapallon lämpötilan muutoskartta . Napa-alueet ovat lämmenneet eniten. Kuva: Copernicus Climate Change Service/ECMWF
+
+Tämä vuosi, vuosi 2020, on ollut mittaushistorian lämpimin vuosi Suomessa.
+
+Tämän vuoden keskilämpötila on ollut noin asteen verran edellistä ennätystä korkeampi. Edellinen ennätyslämmin vuosi Suomessa oli vuosi 2015.
+
+Ilmatieteen laitoksen tutkija Mika Rantanen kertoo, että maapallon pohjoisilla alueilla on ollut tänä vuonna lämpimämpää kuin tavallisesti. Esimerkiksi Siperiassa marraskuu oli paikoin yli 10 astetta tavallista lämpimämpi.
+
+## Suomalaisten muuttohalut
+
+Koronakriisi ei ole saanut kaupunkilaisia haaveilemaan muuttamisesta maaseudulle.
+
+Yle kysyi joulukuussa suomalaisilta, missä he mieluiten asuvat, jos raha tai työpaikka ei rajoita valintaa. Suurin osa eli 53 prosenttia sanoi, että haluaa asua lähellä isoa kaupunkia tai pikkukaupungissa. Noin 15 prosenttia haluaa asua kaupungin keskustassa ja 26 prosenttia haluaa asua maaseudulla.
+
+Samanlainen kysely tehtiin myös 4 vuotta sitten. Tulokset olivat myös silloin samanlaiset.
+
+## Koronarokotteen annostelu
+
+![Pfizer-Biontechsin koronavirusrokote lähikuvassa.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7572125fe31f7eaed3d/1608720313)
+
+Avaa kuvien katselu
+
+Pfizer-Biontechin koronarokote. Kuva: ullstein bild - Sven Simon/ All Over Press
+
+Terveyden ja hyvinvoinnin laitos on muuttanut koronavirusrokotteen annosteluohjetta.
+
+Pfizer-Biontech-rokotteen pullosta on tähän asti otettu 5 rokoteannosta. Pullossa on kuitenkin usein runsaasti ylimääräistä rokotetta. Jos rokotetta on tarpeeksi, pullosta voi tästä lähtien ottaa 6 rokoteannosta.
+
+Aiemmin tänään kerrottiin, että Norjassa ja myös Suomessa on ehkä heitetty rokotteen ylijäämäannoksia roskiin.
+
+## Ruotsin ja Suomen koronaluvut
+
+![turvaväleistä muistuttava lappu ruokakaupan ovessa Haaparannalla](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7224895f6b53358250e/1600869241)
+
+Avaa kuvien katselu
+
+Lappu kaupan ovella muistuttaa turvaväleistä.  Kuva: Annu Passoja / Yle
+
+Ruotsissa on raportoitu iso määrä koronakuolemia yhden päivän aikana.
+
+Ruotsin yleisradio SVT kertoo, että Ruotsissa on raportoitu 243 uutta koronakuolemaa. Kaikkiaan koronaan on Ruotsissa kuollut yli 8700 ihmistä.
+
+Suomessa on raportoitu tänään 6 uutta koronakuolemaa. Meillä koronaan on kuollut runsaat 550 ihmistä.
+
+Uusia tartuntoja raportoitiin tänään Suomessa melkein 440 ja Ruotsissa yli 8800.
+
+## Norjan maanvyöry
+
+![Maanvyöryn synnyttämä rotko Gjerdrumissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11719028)
+
+Avaa kuvien katselu
+
+Maanvyöry avasi rotkon Gjerdrumin kylään. Kuva: Fredrik Hagen / EPA
+
+Norjassa on sattunut maanvyöry.
+
+Maanvyöry sattui aamuyöllä Gjerdrumissa, noin 30 kilometrin päässä pääkaupungista Oslosta.
+
+Maanvyöryssä on loukkaantunut ainakin 9 ihmistä.
+
+Maanvyöry vei mukanaan useita taloja. Alueelta on evakuoitu satoja ihmisiä.

@@ -1,0 +1,69 @@
+# Radio Selkouutiset keskiviikko 26.7.2023
+
+Välimeren maastopalot. Presidentinvaalit. Tulipalo laivalla. Sää.
+
+## Välimeren maastopalot
+
+![Poliisit ja paikalliset asukkaat sammuttamassa maastopaloa Italian Palermossa 25. heinäkuuta.](https://img.img-cdn.yle.fi/crop_extract,w_3072,h_1728,x_0,y_246/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114736364bfec6d8bf5f/1690311817)
+
+Avaa kuvien katselu
+
+Maastopaloja sammutetaan Palermossa. Kuva: EPA-EFE
+
+Maastopalot leviävät Välimeren maissa. Italiassa Sisiliassa maastopaloja on Palermon kaupungin lähellä. Palermossa ihmisiä neuvotaan pysymään sisällä maastopalojen takia.
+
+Palermossa yli 200 ihmistä on joutunut sairaalaan, koska he ovat hengittäneet savua.
+
+Sisiliassa ainakin kolme ihmistä on kuollut maastopalojen takia.
+
+Pohjois-Afrikan Algeriassa maastopaloja on rannikolla. Yli kolmekymmentä ihmistä on kuollut Algerian maastopaloissa. Monet kuolleet ovat sotilaita, jotka yrittivät sammuttaa tulipaloja.
+
+Kroatiassa sammutetaan maastopaloja Dubrovnikin kaupungin lähellä. Dubrovnikissa on paljon turisteja.
+
+Kova helle tekee maastopalot pahemmiksi.
+
+## Presidentinvaalit
+
+![Presidentin virka-asunto](https://img.img-cdn.yle.fi/crop_extract,w_5254,h_2953,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-83612592edae8d6bf2/1496242992)
+
+Avaa kuvien katselu
+
+Presidentin virka-asunto sijaitsee Helsingissä Mäntyniemessä. Kuva: Toni Määttä / Yle
+
+Presidentinvaaleihin on aikaa enää puoli vuotta. Vaikka aikaa on vähän, kaikilla isoilla puolueilla ei vielä ole omaa presidenttiehdokasta.
+
+Kokoomus on eduskunnan isoin puolue, mutta kokoomuksella ei vielä ole ehdokasta. SDP on myös iso puolue, mutta SDP päättää ehdokkaasta vasta syksyllä.
+
+Tutkijoiden mielestä on huono asia, jos puolueilla on presidenttiehdokkaat vasta vähän ennen vaaleja.
+
+Maailma on muuttunut paljon, kun Suomi on liittynyt Natoon ja Venäjä käy Euroopassa sotaa. Presidenttiehdokkaiden pitää keskustella kunnolla näistä asioista ennen presidentinvaaleja.
+
+Tutkijat sanovat, että vaalikeskusteluille ei ole tarpeeksi aikaa, jos puolueet asettavat ehdokkaat liian myöhään.
+
+## Tulipalo laivalla
+
+![Kartta jossa näkyy missä Ameland sijaitsee Hollannissa.](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_607,x_0,y_84/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114743264c0b53044b03/1690350957)
+
+Avaa kuvien katselu
+
+Rahtilaiva palaa lähellä Alankomaiden eli Hollannin rannikkoa. Kuva: Henrietta Hassinen / Yle, MapCreator, OpenStreetMap
+
+Merellä Hollannin rannikon lähellä palaa iso rahtilaiva. Sen kyydissä on 3 000 autoa.
+
+Tulipalo laivalla syttyi viime yönä. Tuli levisi niin nopeasti, että jotkut miehistön jäsenet hyppäsivät laivalta mereen. Yksi ihminen kuoli.
+
+Tulipalo laivalla voi kestää monta päivää. Se syttyi ehkä sähköautosta.
+
+Rahtilaiva oli matkalla Saksasta Egyptiin.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114786364c12eb12b080/1690382047)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Torstaina sataa melkein koko maassa, mutta ei etelärannikolla.
+
+Lämpötila on 17–23 astetta.

@@ -1,0 +1,73 @@
+# Keskiviikko 21.8.2019 (radio)
+
+Venäjän presidentti Vladimir Putin on vierailulla Suomessa. Putinin vierailu on näkynyt Helsingin keskustassa. Junalippujen myynti käteisellä loppuu kaukojunissa. Presidentti Trump ei vieraile Tanskassa, koska Tanska ei halua myydä Grönlantia USA:lle.
+
+## Putin Suomessa
+
+![Presidentti Vladimir Putin kirjoittaa Presidentinlinnan vieraskirjaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10932433)
+
+Avaa kuvien katselu
+
+Presidentit Putin ja Niinistö Helsingissä. Kuva: Alexei Druzhinin / EPA
+
+Venäjän presidentti Vladimir Putin on vierailulla Suomessa. Putin saapui Suomeen keskiviikkona iltapäivällä.
+
+Presidentti Sauli Niinistö otti Putinin vastaan Helsingissä. Presidentit ovat keskustelleet Presidentinlinnassa.
+
+Presidenttien ilta jatkuu Suomenlinnassa, jossa he syövät illallisen.
+
+## Vierailu katukuvassa
+
+![Ihmiset odottelvat Putinin saapumissta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10932064)
+
+Avaa kuvien katselu
+
+Putinin vierailu kiinnosti helsinkiläisiä. Kuva: Laura Hyyti / Yle
+
+Presidentti Putinin vierailu on näkynyt Helsingin keskustassa. Esimerkiksi Helsingin kauppatori on ollut koko päivän kiinni. Kauppatori on Presidentinlinnan vieressä.
+
+Iso joukko poliiseja on varmistanut, että Putinin vierailu sujuu hyvin. Helsingin poliisi on saanut apua myös muualta Suomesta. Helsingissä on Putinin vierailun aikana yhtä paljon poliiseja muualta Suomesta kuin Helsingistäkin.
+
+Helsingissä on järjestetty myös mielenosoituksia Putinia vastaan. Mielenosoitukset ovat olleet pieniä, mukana on ollut vain vähän ihmisiä. Mielenosoitusten teemana olivat Venäjän huonot ihmisoikeudet.
+
+## Junalippujen myynti
+
+![Konduktööri nousemassa junanvaunuun.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10644179)
+
+Avaa kuvien katselu
+
+Konduktööriltä voi ostaa lipun myös tulevaisuudessa, mutta vain kortilla. Kuva: Roger Källman / Yle
+
+Junalippujen myynti käteisellä rahalla loppuu kaukojunissa. Syyskuun alusta lähtien matkustajat voivat ostaa lippuja konduktööriltä vain maksukortilla.
+
+Suurin osa matkustajista ostaa lipun jo ennen matkaa. Matkustajat voivat ostaa junalippuja esimerkiksi netistä, automaateista ja R-kioskeilta.
+
+VR sanoo, että 99 prosenttia matkustajista ostaa junalipun ennen matkaa tai junasta kortilla.
+
+## Trump ja Tanska
+
+![Presidentti Donald Trump.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10932229)
+
+Avaa kuvien katselu
+
+Presidentti Trump halusi ostaa Grönlannin. Kuva: Andrew Harrer / EPA
+
+USA:n presidentti Donald Trump on perunut vierailun Tanskaan. Trump aikoi vierailla Tanskassa syyskuun alussa.
+
+Presidentti Trump ei matkusta Tanskaan, koska Tanska ei halua myydä Grönlantia USA:lle. Trump sanoi vähän aikaa sitten, että USA haluaa ostaa Grönlannin.
+
+Grönlanti on maailman suurin saari. Grönlanti kuuluu Tanskalle, mutta Grönlannilla on itsehallinto eli se päättää monista asioista itse.
+
+Suurin osa Grönlannista on jään peitossa. Ilmastonmuutos kuitenkin sulattaa Grönlannin jääpeitettä. Jään alta paljastuu maata, jossa on esimerkiksi kalliita mineraaleja.
+
+## Suomen sää
+
+![Rannikkovartioston alus Helsingin edustalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10932329)
+
+Avaa kuvien katselu
+
+Kuva: Karoliina Simoinen / Yle
+
+Sää on torstaina Länsi-Suomessa kuivaa ja aurinkoista. Muualla tulee sadekuuroja. Lämpötila on 15 ja 20 asteen välissä.
+
+Perjantaina Suomeen saapuu uusia sateita.

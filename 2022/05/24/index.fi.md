@@ -1,0 +1,87 @@
+# Tiistai 24.5.2022 (radio)
+
+Neuvottelut Turkin kanssa. Ukrainan sota. Fazerin makeistehdas. Ruuan hinta. Ilkka Suominen. Sää.
+
+## Neuvottelut Turkin kanssa
+
+![Recep Tayyip Erdogan kädet ilmassa.](https://img.img-cdn.yle.fi/crop_extract,w_2993,h_1683,x_0,y_204/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-959397628c9d8183aec/1653382576)
+
+Avaa kuvien katselu
+
+Turkin presidentti Recep Tayyip Erdoğan. Kuva: AOP
+
+Suomi ja Ruotsi lähettävät neuvottelijoita Turkkiin. Neuvottelijat matkustavat Turkkiin keskiviikkona.
+
+Neuvottelujen teema on puolustusliitto Nato. Suomi ja Ruotsi ovat hakeneet jäsenyyttä Natossa, mutta Turkki ei hyväksy asiaa.
+
+Turkin mielestä Suomi ja Ruotsi suojelevat kurditerroristeja. Suomen ja Ruotsin pitää sopia riidat Turkin kanssa, jotta niiden Nato-hakemusten käsittely pääsee käyntiin.
+
+## Ukrainan sota
+
+![Kaksi ihmistä hautausmaalla, paljon puisia ristejä.](https://img.img-cdn.yle.fi/crop_extract,w_5088,h_2853,x_0,y_315/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-959240628c6dfe296c9/1671721380)
+
+Avaa kuvien katselu
+
+Kuva: Alexander Ermochenko / Reuters
+
+Ukrainan sota on jatkunut 3 kuukautta. Venäjä hyökkäsi Ukrainaan helmikuun 24. päivä.
+
+Ukrainalaiset ovat kärsineet sodasta paljon. Venäjä on pommittanut kaupunkeja ja tappanut tavallisia ukrainalaisia.
+
+Yli 6,5 miljoonaa ukrainalaista on paennut ulkomaille sodan takia. Ukrainalaisia pakolaisia on tullut myös Suomeen.
+
+Jo 20 000 ukrainalaista saa Suomessa tilapäistä suojelua. Tilapäinen suojelu tarkoittaa, että ukrainalaiset saavat esimerkiksi tehdä työtä ja opiskella Suomessa.
+
+## Fazerin makeistehdas
+
+![Fazerin karkkipusseja kaupan karkkihyllyssä.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_2/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-959586628cbec36e0c4/1653391115)
+
+Avaa kuvien katselu
+
+Kuva: Petri Niemi / Yle
+
+Fazer aikoo rakentaa makeistehtaan Lahteen. Jos suunnitelma toteutuu, makeisten valmistus Fazerin tehtailla Vantaalla ja Lappeenrannassa loppuu.
+
+Lahden kaupunki on tyytyväinen Fazerin suunnitelmaan. Fazerin makeistehdas voi tuoda Lahteen paljon uusia työpaikkoja.
+
+## Ruuan hinta
+
+![Asiakkaita ja myyjiä ruokakaupan lihatiskillä.](https://img.img-cdn.yle.fi/crop_extract,w_2861,h_1610,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-56395575959d096a45/1465473657)
+
+Avaa kuvien katselu
+
+Lihan hinta ehkä nousee loppuvuonna. Kuva: Mika Kanerva
+
+Ruoka kallistuu tänä vuonna. Luonnonvarakeskus ennustaa, että ruuan hinta nousee tänä vuonna 10 prosenttia viime vuodesta.
+
+Esimerkiksi kahvin ja kalan hinnat ovat jo nousseet paljon. Luonnonvarakeskus arvioi, että vilja, liha ja maitotuotteet kallistuvat seuraavaksi.
+
+Yksi syy hintojen nousuun on Venäjän sota Ukrainassa. Venäjä ja Ukraina ovat tärkeitä viljan ja kasviöljyjen tuottajia, mutta sodan takia ruokakuljetukset eivät toimi.
+
+## Ilkka Suominen
+
+![Ilkka Suominen ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8951827)
+
+Avaa kuvien katselu
+
+Ilkka Suominen. Kuva: Jarno Kuusinen / AOP
+
+Ilkka Suominen on kuollut. Suominen oli 83-vuotias.
+
+Ilkka Suominen oli kokoomuksen puoluejohtaja 1980-luvulla. Hän teki työtä myös ministerinä.
+
+Suominen valittiin myös Suomen eduskuntaan ja myöhemmin Euroopan parlamenttiin.
+
+Eduskunta piti tiistaina hiljaisen hetken Ilkka Suomisen muistolle.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12460077)
+
+Avaa kuvien katselu
+
+Keskiviikkona länsirannikolla sataa vähän vettä ja muualla maassa paistaa aurinko. Lämpötila on 17 ja 23 asteen välillä.
+
+Torstaina Suomeen tulee sateita. Etelässä vettä voi sataa paljon.
+
+Sateet jatkuvat myös torstain jälkeen. Sää myös viilenee.

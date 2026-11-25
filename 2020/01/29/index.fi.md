@@ -1,0 +1,105 @@
+# Keskiviikko 29.1.2020 (radio)
+
+Suomessa on todettu ensimmäinen koronavirustartunta. Kiinaan ei kannata matkustaa. Rikosten tutkiminen kestää kauan. Maahanmuuttajaäidit helpottavat vauvapulaa. Pikavipit aiheuttavat ongelmia. Säätietoja.
+
+## Suomessa on todettu koronavirustartunta
+
+![Lapin Keskussairaala Rovaniemellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11183220)
+
+Avaa kuvien katselu
+
+Rovaniemen sairaalassa hoidetaan potilasta, jolla on koronavirustartunta. Kuva: Laura Haapamäki / Lehtikuva
+
+Suomessa on varmistunut ensimmäinen koronavirustartunta.
+
+Kiinalainen nainen on sairaalassa Rovaniemellä Pohjois-Suomessa.
+
+Nainen on kotoisin Wuhanin alueelta Kiinasta. Hän tuli lomamatkalle Suomeen ja joutui täällä sairaalaan oireiden takia.
+
+Tänään varmistui, että naisella on koronavirus.
+
+Koronavirus tarttuu ihmisestä toiseen, mutta vain jos ihmiset ovat ihan lähekkäin.
+
+Kiinalaisnainen on sairaalassa eristyksessä.
+
+## Kiinaan ei kannata matkustaa
+
+![Wuhanin kaduilla oli hiljaista 26. tammikuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11178145)
+
+Avaa kuvien katselu
+
+Kiinalaiset suojautuvat maskeilla. Kuva: AOP
+
+Monen maan viranomaiset sanovat nyt, että Kiinaan ei kannata matkustaa, jos ei ole ihan pakko.
+
+Koronavirus leviää nopeasti Kiinassa.
+
+Koronavirus voi olla vaarallinen niille ihmisille, joilla on joku pitkäaikainen sairaus.
+
+## Maahanmuuttajaäidit helpottavat vauvapulaa
+
+![vauvan käsi](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_284/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6296125e182030b7f00/1578639528)
+
+Avaa kuvien katselu
+
+Suomessa on vauvapula, koska vauvoja syntyy niin vähän. Kuva: Juha-Petri Koponen / Yle
+
+Suomessa puhutaan vauvapulasta, koska vauvoja syntyy niin vähän.
+
+Maahanmuuttajaäidit synnyttävät paljon vauvoja. Se helpottaa Suomen vauvapulaa.
+
+Suomessa joka 7. lapsi syntyy äidille, joka on muuttanut Suomeen ulkomailta.
+
+Maahanmuuttajaäitejä on tullut eniten Venäjältä. Heitä on paljon myös Virosta, Somaliasta ja Irakista.
+
+## Poliisilla menee paljon aikaa rikosten tutkimiseen
+
+![Porvoossa oli meneillään suuri poliisioperaatio varhain sunnuntaina 25. elokuuta. Tutkintaa tehtiin Ölstensin teollisuusalueella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10937487)
+
+Avaa kuvien katselu
+
+Joskus rikokset ovat sellaisia, että niitä on vaikea tutkia. Kuva: Roni Rekomaa / Lehtikuva
+
+Poliisilla menee nyt rikosten tutkimiseen enemmän aikaa kuin ennen.
+
+Siihen on monta syytä.
+
+Poliiseja, jotka tutkivat rikoksia on nyt vähemmän kuin 10 vuotta sitten.
+
+Nuoret poliisit eivät halua tutkijoiksi. He haluavat olla töissä kaduilla ja liikenteessä.
+
+## Hyvätuloiset ottavat myös pikavippejä
+
+![Pikavippiä haetaan puhelimella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10745037)
+
+Avaa kuvien katselu
+
+Pikavipin voi ottaa verkossa. Pikavipissä on todella korkea korko. Kuva: Henrietta Hassinen / Yle
+
+Pikavipit aiheuttavat paljon ongelmia.
+
+Pikavippi tarkoittaa sitä, että verkossa toimiva firma lainaa ihmiselle rahaa. Pikavipin saa helposti ja nopeasti.
+
+Pikavipissä on todella korkea korko.
+
+Ihmiset voivat joutua velkakierteeseen pikavipin takia. Ihmisen pitää ottaa uusi pikavippi, että hän voi maksaa vanhan pikavipin pois.
+
+Uusi ongelma on se, että myös hyvätuloiset ihmiset ottavat pikavippejä.
+
+He ehkä käyttävät rahoja rahapelien pelaamiseen.
+
+## Torstaina on pilvistä
+
+![Sääkuva: Sinitiainen talvimaisemassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11181898)
+
+Avaa kuvien katselu
+
+Sinitiainen on lintu, jonka näkee usein lintulaudalla talvella. Kuva: Aino Piirainen
+
+Huomenna torstaina on koko maassa pilvistä.
+
+Etelä- ja Länsi-Suomessa sataa lunta tai räntää. Lämpötila on vähän plussan puolella.
+
+Itä- ja Pohjois-Suomessa sataa lunta vain joissakin paikoissa. Itä- ja Pohjois-Suomessa on pakkasta.
+
+Pohjoisessa pakkasta voi olla 15 astetta.

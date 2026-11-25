@@ -1,0 +1,7 @@
+# Maanantai 21.11.2016 (tv)
+
+Putkiremontti voidaan tehdä myös nopeasti. Hallitus suunnittelee tukea sähköautoille. Suomenruotsalaiset harrastavat paljon kuorolaulua. Henri Kontinen on ensimmäinen suomalainen, joka on voittanut tenniksen ATP-finaaliturnauksen. Lämpötila on melkein koko maassa plussan puolella.
+
+Yle Uutiset selkosuomeksi
+
+Putkiremontti voidaan tehdä myös nopeasti. Hallitus suunnittelee tukea sähköautoille. Suomenruotsalaiset harrastavat paljon kuorolaulua. Henri Kontinen on ensimmäinen suomalainen, joka on voittanut tenniksen ATP-finaaliturnauksen. Lämpötila on melkein koko maassa plussan puolella.

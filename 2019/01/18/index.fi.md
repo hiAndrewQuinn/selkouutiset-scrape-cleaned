@@ -1,0 +1,69 @@
+# Perjantai 18.1.2019 (radio)
+
+Kiintiöpakolaisille on kunnissa paikkoja enemmän kuin tarvitaan. Poliisijohtaja kertoi hallitukselle seksuaalirikoksista. Monella työpaikalla ajatellaan jo kesälomia. Laulaja Danny lopettaa kiertueet. Iivo Niskanen on Vuoden urheilija.
+
+## Kunnissa paikkoja kiintiöpakolaisille
+
+![Pakolaisten telttaleiri ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6253143)
+
+Avaa kuvien katselu
+
+Syyrian pakolaisia leirillä Jordaniassa.  Kuva: Jamal Nasrallah / EPA
+
+Kiintiöpakolaisia tulee Suomeen vähemmän kuin heille on paikkoja kunnissa.
+
+Suomen pakolaiskiintiö on 750 ihmistä, mutta kuntapaikkoja on tänä vuonna tarjolla noin 1 300. Esimerkiksi Orimattilan kunta sanoo, että se odotti viime vuonna 20:tä kiintiöpakolaista. Heitä tuli kuitenkin vain 3.
+
+## Hallitus puhui jälleen seksuaalirikoksista
+
+![Juha Sipilä ja Kai Mykkänen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10602772)
+
+Avaa kuvien katselu
+
+Ministerit Kai Mykkänen ja Juha Sipilä. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Suomen hallitus on puhunut jälleen Oulussa ja Helsingissä epäillyistä seksuaalirikoksista.
+
+Poliisijohtaja kertoi hallitukselle myös tilastoja siitä, paljonko Suomessa hyväksikäytetään lapsia. Poliisi sanoo, että aikuiset houkuttelevat lapsia ja nuoria seksiin usein netissä. Siksi tarvitaan lisää poliiseja, jotka seuraavat nettiä, hallitus sanoo. Hallitus myös selvittää, voiko Suomi alkaa tulkita kansainvälisiä turvapaikkasopimuksia uudella tavalla.
+
+Poliisi epäilee, että esimerkiksi Oulussa ja Helsingissä jotkut maahanmuuttajat ovat hyväksikäyttäneet ja jopa raiskanneet lapsia.
+
+## Työpaikoilla ajatellaan jo kesää
+
+![Auringonlasku San Sebastianissa Espanjassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10601307)
+
+Avaa kuvien katselu
+
+Auringonlasku Espanjassa. Kuva: Javier Etxezarreta / EPA
+
+Joillakin työpaikoilla ajatellaan jo kesälomia.
+
+Työntekijät ja työnantaja keskustelevat, milloin kukin työntekijä voi olla lomalla. Lomista päätetään eri aloilla eri aikaan. Joissakin tehtaissa lomat sovitaan jo tammi- tai helmikuussa, kaupoissa ja kuljetusalalla huhtikuussa. Monien päiväkotien työntekijät tietävät vasta toukokuussa, milloin he ovat kesälomalla. Jos ihmiset tietävät loman ajankohdan vasta vähän ennen sen alkua, heidän on vaikea suunnitella lomaa perheen kanssa.
+
+Monella ihmisellä on määräaikainen työpaikka, ja siksi he eivät saa kesälomaa ehkä lainkaan.
+
+## Dannyn kiertueet ovat ohi
+
+![Lähikuva Dannysta.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_171/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5366025c3dfdc6f3e0b/1547566573)
+
+Avaa kuvien katselu
+
+Danny eli Ilkka Lipsanen. Kuva: Nella Nuora / YLE
+
+Laulaja Danny on tehnyt pitkän kiertueen: hän on laulanut 34 konsertissa eri puolilla Suomea. Jäljellä on vielä yksi konsertti Helsingissä perjantai-iltana.
+
+76-vuotias Danny sanoo, että tämä on viimeinen kiertue. Danny ei kuitenkaan lopeta laulamista, vaan hän julkistaa pian uuden laulun. Hän aikoo myös esiintyä joissakin konserteissa ja festivaaleilla, vaikka ei jaksa enää tehdä pitkiä kiertueita.
+
+## Iivo Niskanen on Vuoden urheilija
+
+![Iivo Niskanen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10603465)
+
+Avaa kuvien katselu
+
+Iivo Niskanen. Kuva: Tomi Hänninen
+
+Hiihtäjä Iivo Niskanen valittiin torstai-iltana Vuoden urheilijaksi.
+
+Niskanen valittiin, koska hän voitti viime talvena olympialaisten 50 kilometrin hiihdon. Niskanen on Vuoden urheilija jo kolmatta kertaa. Hänet valittiin Vuoden urheilijaksi myös viime vuonna ja vuonna 2014.
+
+Vuoden urheilija -valinta kerrottiin torstai-iltana juhlassa, joka näkyi televisiossa. Niskanen lensi heti juhlan jälkeen yöllä Otepäähän Viroon, missä hän hiihtää kilpaa sunnuntaina.

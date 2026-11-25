@@ -1,0 +1,71 @@
+# Keskiviikko 20.6.2018 (radio)
+
+Lomarahan leikkaus näkyy valtion ja kuntien työntekijöiden palkassa myös tänä kesänä. USA lähtee YK:n ihmisoikeusneuvostosta. Mustikkasadosta on tulossa keskinkertainen koko maassa. Juhannusliikenne tukkii teitä torstaina. Keskikesän juhlaa vietetään vaihtelevassa säässä.
+
+## Lomarahaleikkaus näkyy taas kuntien palkoissa
+
+![grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10259960)
+
+Avaa kuvien katselu
+
+Kuva: Hilppa Hyrkäs / Yle Uutisgrafiikka
+
+Lomarahan leikkaus näkyy valtion ja kuntien työntekijöiden palkassa myös tänä kesänä.
+
+Lomaraha on lisäpalkkio, joka on käytössä useimmissa töissä. Hallituksen kilpailukykysopimus ottaa julkisen alan lomarahoista pois 30 prosenttia.
+
+Valtion ja kuntien työntekijät saavat kertaerän rahaa ensi vuoden alussa. Se on 9,2 prosenttia tammikuun palkasta. Esimerkiksi keittäjien palkka on noin 2000 euroa. Vaikka siihen lisätään 9,2 prosentin kertaerä, vähennys on 250 euroa vuodessa.
+
+## USA eroaa ihmisoikeusneuvostosta
+
+![USA:n YK-suurlähettiläs Nikki Haley](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10163845)
+
+Avaa kuvien katselu
+
+USA:n YK-suurlähettiläs Nikki Hailey. Kuva: Justin Lane / EPA
+
+USA lähtee YK:n eli Yhdistyneiden kansakuntien ihmisoikeusneuvostosta.USA:n YK-lähettiläs Nikki Haley kertoi asiasta tiedotustilaisuudessa Washingtonissa.
+
+Päätöksen taustalla on neuvoston suhtautuminen Israeliin. USA sanoo, että suhtautuminen on epäreilua.
+
+Kansainvälinen yhteisö on arvostellut USA:n päätöstä.Ulkoministeri Timo Soini on pahoillaan päätöksen takia. Soini sanoo, että USA oli neuvostossa Euroopalle tärkeä kumppani.
+
+## Mustikkasadosta tulee keskinkertainen
+
+![Mustikoita metsässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9754659)
+
+Avaa kuvien katselu
+
+Kuivuus voi tehdä mustikoista pieniä. Kuva: Jussi Nukari / Lehtikuva
+
+Mustikkasadosta on tulossa keskinkertainen koko maassa. Luonnonvarakeskus kertoo, että pitkä kuivuus voi pienentää marjojen kokoa. Sato voi heikentyä varsinkin Etelä-Suomessa.
+
+Sen sijaan puolukkasadosta on tulossa runsas eteläisessä Suomessa. Muualla maassa puolukkasadosta on tulossa keskinkertainen.
+
+## Juhannusliikenne näkyy teillä
+
+![Autoletka vitostiellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9687991)
+
+Avaa kuvien katselu
+
+Lusin suoralla valtatie 5:llää ajetaan juhannuksena aina ruuhkassa. Kuva: Heidi Sullström / Yle
+
+Juhannusliikenne tukkii teitä torstaina. Pääkaupunkiseudun ulosmenotiet ja kaupungit ovat ruuhkaisia.
+
+Ruuhkaa on varsinkin nelostiellä Jyväskylästä pohjoiseen, valtatie 9:llä Alajärven kohdalla ja valtatie 5:llä Lahdesta ja Mikkelistä pohjoiseen.Tieliikennekeskus arvioi, että vilkkainta on kello 16 ja 18:n välillä.
+
+Suurin osa tietöistä keskeytetään juhannuksen ajaksi. Työmaat voivat silti hidastaa ajomatkaa.Juhannuksen paluuliikenne on vilkasta sunnuntaina aamukymmenen ja iltakymmenen välillä.
+
+## Juhannuksen sää on vaihteleva
+
+![Sademäärät kolmena päivänä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10265014)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Keskikesän juhlaa vietetään vaihtelevassa säässä. Torstaina Etelä-Suomessa tulee kuurosateita. Keski-Suomessa on aurinkoista ja poutaa.
+
+Juhannusaattona perjantaina sateisinta voi olla Pohjanmaan ja Oulun seuduilla. Kuurosateita tulee ehkä myös etelässä.Ennuste kertoo, että paras juhannussää on todennäköisesti Pohjois-Karjalassa ja Etelä-Karjalassa.
+
+Lauantaina on poutaisempaa, ja sunnuntai on ainakin aluksi poutainen. Merialueilla on tuulista.

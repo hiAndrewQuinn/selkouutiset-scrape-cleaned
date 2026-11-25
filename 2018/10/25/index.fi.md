@@ -1,0 +1,65 @@
+# Torstai 25.10.2018 (radio)
+
+Hallitus yrittää sopia riitaa irtisanomislaista ammattijärjestöjen kanssa. Ammattijärjestö Akavan puheenjohtaja saa kritiikkiä. Suomi aikoo kieltää alaikäisten avioliitot kokonaan. Lappajärvellä juhlitaan maailmanmestari Petra Ollia.
+
+## Riita irtisanomislaista
+
+![Työministeri Jari Lindström, pääministeri Juha Sipilä ja valtiovarainministeri Petteri Orpo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10476082)
+
+Avaa kuvien katselu
+
+Ministerit Jari Lindström, Juha Sipilä ja Petteri Orpo kertoivat toimittajille tapaamisesta ammattijärjestöjen johtajien kanssa. Kuva: Roni Rekomaa / Lehtikuva
+
+Hallitus yrittää sopia riitaa irtisanomislaista. Hallitus tapasi ammattijärjestöjen puheenjohtajia torstaina.
+
+Ammattijärjestöt saivat hallitukselta uuden ehdotuksen, miten riita voidaan ratkaista. Ammattijärjestöt aikovat kommentoida ehdotusta perjantaina.
+
+Ammattijärjestöjen ja hallituksen riita alkoi, kun hallitus ehdotti uutta irtisanomislakia. Hallituksen idea oli, että pienet firmat saavat helpommin irtisanoa työntekijöitä.
+
+Ammattijärjestöt kuitenkin suuttuivat asiasta. Ne ovat jopa järjestäneet lakkoja riidan takia.
+
+## Akavan puheenjohtaja
+
+![Sture Fjäder](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10216812)
+
+Avaa kuvien katselu
+
+Akavan puheenjohtaja Sture Fjäder. Kuva: Jarno Kuusinen / AOP
+
+Ammattijärjestö Akavan puheenjohtaja Sture Fjäder saa kritiikkiä. Syynä on Fjäderin mielipide maahanmuuttajien palkoista.
+
+Fjäder ehdotti keskiviikkona, että maahanmuuttajalle voidaan maksaa pienempää palkkaa kuin suomalaiselle, jos hänellä ei ole koulutusta. Se on tapa auttaa maahanmuuttajaa saamaan työtä, Fjäder sanoi.
+
+Akava on korkeasti koulutettujen järjestö. Järjestössä monet ovat suuttuneet Fjäderin ehdotuksesta. Arvioidaan, että puheenjohtaja Fjäder voi jopa saada potkut.
+
+## Alaikäisten avioliitot
+
+![aviopari käsi kädessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9577189)
+
+Avaa kuvien katselu
+
+Kohta kukaan alle 18-vuotias ei saa mennä naimisiin. Kuva: AOP
+
+Suomi aikoo kieltää alaikäisten avioliitot kokonaan. Alaikäiset ovat alle 18-vuotiaita.
+
+Nykyään alaikäiset voivat hakea poikkeuslupaa mennä naimisiin. Esimerkiksi viime vuonna viranomaiset saivat 11 hakemusta. 7 hakemusta hyväksyttiin.
+
+Usein poikkeusluvan hakija on 17-vuotias tyttö, joka haluaa naimisiin uskonnon tai raskauden takia. Alle 17-vuotias on saanut poikkeusluvan vain harvoin.
+
+Hallitus haluaa muuttaa lakia niin, että poikkeuslupaa ei voi enää hakea. Lain muuttamisesta päättää eduskunta eli Suomen parlamentti.
+
+## Maailmanmestaria juhlitaan
+
+![Painija Petra Olli](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10210553)
+
+Avaa kuvien katselu
+
+Painija Petra Olli. Kuva: Elina Niemistö/Yle
+
+Lappajärvellä juhlitaan uutta maailmanmestaria. Painija Petra Olli on kotoisin Lappajärveltä.
+
+Olli voitti MM-kultaa keskiviikkona Unkarissa. Olli on ensimmäinen suomalainen naispainija, joka on maailmanmestari.
+
+Lappajärven asukkaat ovat ylpeitä maailmanmestarista. Lappajärven kunta aikoo järjestää Ollille isot juhlat.
+
+Olli saa myös lahjan, mutta Lappajärven kunnanjohtaja ei vielä osaa sanoa, mikä lahja on.

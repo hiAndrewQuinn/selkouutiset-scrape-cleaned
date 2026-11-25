@@ -1,0 +1,67 @@
+# Keskiviikko 4.9.2019 (radio)
+
+Posti kulkee pian normaalisti. Bahamasaarilla on aloitettu avustustyöt. Britannian parlamentti riitelee brexitistä. Jalkapalloilija Teemu Pukilla on hauska nimi.
+
+## Posti kulkee taas
+
+![Helsingin Pasilan postikeskus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10955237)
+
+Avaa kuvien katselu
+
+Kuva: Jussi Nukari / Lehtikuva
+
+Posti kulkee pian normaalisti. Pieniä myöhästymisiä voi vielä olla.
+
+Postin kulkua häiritsi alkuviikolla lakko. Postin työntekijät kuitenkin keskeyttivät lakon tiistai-iltana.
+
+Lakko alkoi, kun Posti aikoi muuttaa satojen työntekijöiden työehtoja eli käytännössä pienentää työntekijöiden palkkoja.
+
+Työntekijät keskeyttivät lakon, kun ministeri Sirpa Paatero päätti, että työehtoja vielä mietitään. Valtio on Postin omistaja, ja Paateron tehtävä on valvoa valtion firmoja.
+
+## Bahamasaaret saa apua
+
+![Myrskyssä tuhoutuneita rakennuksia Bahamasaarilla 3. syyskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10953862)
+
+Avaa kuvien katselu
+
+Bahamasaarille tarvitaan apua Dorian-myrskyn jälkeen. Kuva: Adam Stanton / USA:n rannikkovartiosto / EPA
+
+Bahamasaarilla Amerikassa on aloitettu avustustyöt. Dorian-myrsky teki alkuviikolla Bahamalla isoja vahinkoja.
+
+Myrskyssä kuoli ainakin 7 ihmistä. Kuolleita on todennäköisesti enemmän.
+
+Avun vieminen Bahamasaarille on vaikeaa, koska myrsky tuhosi myös lentokenttiä. Monet alueet Bahamasaarilla ovat veden alla.
+
+Myös Suomen Punainen Risti lähettää apua Bahamalle. Suomesta lähtee Bahamalle 6 hengen ryhmä.
+
+## Britit riitelevät brexitistä
+
+![Boris Johnson puhumassa parlamentissa Lontoossa 25. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10952575)
+
+Avaa kuvien katselu
+
+Britannian pääministeri Boris Johnson. Kuva: Jessica Taylor / AFP
+
+Brexit-riita jatkuu Britanniassa. Britannian parlamentissa on koko keskiviikko riidelty siitä, miten brexit eli Britannian ero Euroopan unionista hoidetaan.
+
+Pääministeri Boris Johnsonin mielestä Britannian pitää erota EU:sta lokakuun lopussa. Johnson haluaa eron, vaikka Britannia ja EU eivät pysty tekemään erosopimusta.
+
+Parlamentissa ehdotetaan lakia, joka kieltää eron ilman sopimusta. Ehdottajien mielestä eroa pitää siirtää, jos sopimusta ei tehdä.
+
+Pääministeri Johnson haluaa uudet parlamenttivaalit, jos parlamentti estää brexitin lain avulla.
+
+## Pukilla on hauska nimi
+
+![Norwichin Teemu Pukki ihmeissään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10954379)
+
+Avaa kuvien katselu
+
+Teemu Pukki. Kuva: Stephen Pond/Getty Images
+
+Kuuluisin suomalainen jalkapalloilija on tällä hetkellä Teemu Pukki. Pukki pelaa Englannin Valioliigassa, Norwichin joukkueessa.
+
+Englannin Valioliigan pelejä seurataan ympäri maailmaa. Siksi myös Teemu Pukin nimi on tullut tutuksi ihmisille monissa maissa.
+
+Nyt Pukin nimi hauskuuttaa ihmisiä. Englantilaisten mielestä on hauskaa, että suomen sana "pukki" voi tarkoittaa sarvipäistä eläintä tai joulupukkia.
+
+Eniten ihmiset ovat nauraneet Malesiassa, Aasiassa. Malaijin kielessä "pukki" on ruma sana. Se tarkoittaa naisen sukuelimiä. Asia on huomattu esimerkiksi Facebookissa.

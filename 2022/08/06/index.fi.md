@@ -1,0 +1,82 @@
+# Lauantai 6.8.2022
+
+Valtiovarainministeri Annika Saarikko puolustaa ylimääräistä lapsilisää. Israel iskee Gazaan. Kroatiassa oli paha bussionnettomuus. Assembly täyttää 30 vuotta. Myrsky on aiheuttanut tuhoja Itä-Suomessa ja Kainuussa.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Ylimääräinen lapsilisä
+
+![Annika Saarikko.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_364/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99095062ece85b1e436/1664448175)
+
+Avaa kuvien katselu
+
+Valtiovarainministeri Annika Saarikko. Kuva: Sakari Piippo / Yle
+
+Rahaministeri Annika Saarikko sanoo yhä, että kaikille perheille kannattaa maksaa ylimääräinen lapsilisä. Saarikko ehdotti jo aikaisemmin, että perheet saavat 2 lapsilisää joulukuussa.
+
+Saarikon esitystä on arvosteltu. Joidenkin ihmisten mielestä ylimääräistä lapsilisää ei tarvitse maksaa sellaisille perheille, joilla on hyvät tulot.
+
+Annika Saarikko sanoo nyt, että lapsilisää on maksettu kymmeniä vuosia kaikille perheille. Järjestelmää ei voi Saarikon mielestä muuttaa nopeasti.
+
+## Israel
+
+![Ihmiset kannattelevat Israelin lippuja ja joku on sytyttänyt keltaista huomiosavua ilmoille syöksevän soihdun.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9622716294d1013dee5/1653920442)
+
+Avaa kuvien katselu
+
+Ihmiset kannattelevat Israelin lippuja. Kuvituskuva toukokuulta. Kuva: Atef Safadi / EPA
+
+Israel on tehnyt iskuja Gazan alueelle. Israelin iskuissa on kuollut ainakin 11 ihmistä ja haavoittunut 80 ihmistä. Israel aloitti iskut perjantaina.
+
+Israel iskee Islamilaista Jihadia vastaan. Israel sanoo, että Islamilainen Jihad on terroristijärjestö, jota Iran tukee.
+
+Israel sanoo myös, että Islamilainen Jihad ampuu koko ajan raketteja Gazasta Israelin puolelle.
+
+## Kroatian bussionnettomuus
+
+Kroatiassa on ollut paha bussionnettomuus. Ainakin 12 ihmistä kuoli ja yli 30 loukkaantui, kun bussi ajoi ulos valtatieltä.
+
+Onnettomuus sattui noin 50 kilometriä pohjoiseen Kroatian pääkaupungista Zagrebista. Bussi oli puolalainen.
+
+Kroatian televisio kertoo, että bussin kuljettaja ilmeisesti nukahti.
+
+## Assembly
+
+![Yleisöä Assemblyssa. ](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_141/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99090662ece4ffea589/1659693314)
+
+Avaa kuvien katselu
+
+Yleisöä Assemblyssa. Kuva: Jussi Mankkinen / Yle
+
+Helsingin Messukeskuksessa on meneillään Suomen suurin tietokonefestivaali Assembly. Assemblyssa ihmiset esimerkiksi pelaavat pelejä tietokoneella. Paikalla on paljon nuoria.
+
+Assembly täyttää tänä vuonna 30 vuotta.
+
+## Sienet
+
+![Turun Sieniseuran puheenjohtaja Maart Piitulainen sienikori kädessään Ruissalossa.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_76/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99108462ed0bf355e2e/1659702349)
+
+Avaa kuvien katselu
+
+Turun Sieniseuran puheenjohtaja Maart Piitulainen sienikori kädessään Ruissalossa. Kuva: Minna Rosvall / Yle
+
+Metsässä on nyt paljon sieniä.
+
+Varsinkin kantarelleja on Etelä-Suomen ja Keski-Suomen metsissä enemmän kuin tavallisesti elokuun alkupuolella. Sen sijaan tatteja on metsässä vähemmän kuin yleensä.
+
+Sää on ollut sienille hyvä. Sienille on hyvä, kun välillä on lämmin ja välillä sataa vettä.
+
+Monia sieniä on metsässä eniten syyskuussa.
+
+## Myrsky
+
+![Myrskyn kaatama haapa.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_52/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82127660c896d79c576/1623758761)
+
+Avaa kuvien katselu
+
+Teille kaatuneet puut ovat katkaisseet liikennettä Mikkelin alueella. Kuva: Jaana Polamo / Yle
+
+Itä-Suomessa ja Kainuussa on ollut myrsky. Ainakin Pohjois-Karjalassa ja Kainuussa on kaatunut puita. Sähköt ovat olleet poikki monista kodeista.
+
+Sunnuntaina päivällä sää on poutainen ja paikoin selkeä. Paikoin sataa sunnuntaina kuitenkin vähän vettä.

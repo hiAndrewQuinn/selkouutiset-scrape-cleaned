@@ -1,0 +1,93 @@
+# Sunnuntai 18.2.2018 (radio)
+
+Asunnot menevät kaupaksi suurissa kaupungeissa. Suomi ja Ruotsi voivat olla Itä-Ukrainan rauhanturvaoperaatiossa. Iranissa tuhoisa lento-onnettomuus. Latvian keskuspankin johtajaa kuulusteltu. Floridassa vaaditaan tiukempia aselakeja.
+
+## Asunnot menevät nyt kaupaksi
+
+![Kauppakirja pöydällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9934650)
+
+Avaa kuvien katselu
+
+Pääkaupunkiseudulla ja 10 suurimmassa kaupungissa asunnot menevät nyt hyvin kaupaksi. Kuva: Ismo Pekkarinen / AOP
+
+Asunnot menevät tällä hetkellä hyvin kaupaksi isoissa kaupungeissa.
+
+Asuntojen hinnat olivat tammikuussa noin 4,5 prosenttia suuremmat kuin viime vuoden tammikuussa.
+
+Asuntokauppiaat sanovat, että ihmiset uskaltavat nyt ostaa asuntoja, koska taloustilanne on parantunut.
+
+Helsingin keskustassa on jo pulaa keskikokoisista perheasunnoista.
+
+## Ruotsi ja Suomi valmiina Itä-Ukrainaan
+
+![Nainen seisoo hajonneen talon reunalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9992967)
+
+Avaa kuvien katselu
+
+Ukrainassa taistelut jatkuvat, ja sinne halutaan lähettää rauhanturvaajia. Kuva: Alexander Ermochenko / EPA
+
+Suomi ja Ruotsi voivat lähettää rauhanturvaajia Itä-Ukrainaan.
+
+Ruotsi ja Suomi kertoivat asiasta turvallisuuskokouksessa, joka oli Münchenissä, Etelä-Saksassa.
+
+YK suunnittelee rauhanturvaoperaatiota Itä-Ukrainaan, koska siellä on edelleen taisteluja.
+
+Rauhanturvaoperaatioon voi osallistua noin 20 000 sotilasta.
+
+Münchenin kokoukseen osallistui myös monia muita maita.
+
+Israelin pääministeri Benjamin Netanjahu sanoi kokouksessa, että Israel on valmis iskemään Iraniin.
+
+Netanjahun mielestä Iranin toiminta on muuttunut entistä röyhkeämmäksi.
+
+Netanjahu sanoi, että Israelin suhteet muihin arabimaihin ovat kuitenkin parantuneet.
+
+## Iranissa tuhoisa lento-onnettomuus
+
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10081194)
+
+Avaa kuvien katselu
+
+Lento-onnettomuus tapahtui vuorilla, jonne pelastustyöntekijöiden on vaikea päästä. Kuva: Yle Uutisgrafiikka
+
+Iranissa on tapahtunut lento-onnettomuus.
+
+Lentokone syöksyi maahan vuoristossa, Iranin eteläosassa.
+
+Koneessa oli 66 matkustajaa. Viranomaiset uskovat, että kaikki matkustajat kuolivat onnettomuudessa.
+
+Onnettomuuden syytä ei vielä tiedetä.
+
+## Latvian keskuspankin pääjohtajaa kuulusteltu
+
+![Latvian keskuspankin pääjohtaja Ilmārs Rimševičs.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10081338)
+
+Avaa kuvien katselu
+
+Ilmārs Rimševičs on johtanut Latvian keskuspankkia vuodesta 2001 lähtien. Kuva: Valda Kalnina / EPA
+
+Latvian keskuspankin pääjohtaja on otettu kiinni ja poliisi on kuulustellut häntä.
+
+Kuulustelu liittyy korruptiotutkintaan.
+
+Pääjohtajan koti ja toimisto tutkittiin jo perjantaina.
+
+Keskuspankki ei ole komentoinut pääjohtajan kuulusteluja.
+
+## USA:ssa vaaditaan tiukempia aselakeja
+
+![Ihmisiä mielenosoituksessa Fort Lauderdalessa, Floridassa .](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10081097)
+
+Avaa kuvien katselu
+
+Mielenosoittajat vaativat tiukempia aselakeja Yhdysvaltoihin Floridan kouluampumisten jälkeen. Kuva: Joe Raedle / AFP
+
+Yhdysvalloissa on ollut paljon mielenosoituksia, joissa on vaadittu aselakien tiukentamista.
+
+Mielenosoittajat sanovat, että Yhdysvalloissa saa aseita liian helposti.
+
+Mielenosoituksia on järjestetty sen jälkeen, kun nuori mies ampui 17 ihmistä floridalaisessa koulussa viime keskiviikkona.
+
+Mielenosoittajat moittivat etenkin poliitikkoja, joilla on yhteyksiä aseita kannattavaan Kansalliseen kivääriyhdistykseen NRA:han. He moittivat muun muassa presidentti Donald Trumpia.
+
+Myös liittovaltion poliisia FBI:tä on moitittu. FBI oli saanut varoituksen miehestä, joka ampui koulussa. FBI ei kuitenkaan ottanut varoitusta vakavasti.

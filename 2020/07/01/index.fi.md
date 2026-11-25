@@ -1,0 +1,56 @@
+# Keskiviikko 1.7.2020 (radio)
+
+Myrsky aiheutti tuhoja Itä-Suomessa. Yleisötilaisuuksien rajoitukset helpottavat. Ennätysmäärä lapsia on sijoitettu kodin ulkopuolelle. Kesäkuussa oli paljon hellepäiviä.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Kesämyrsky kaatoi puita
+
+![Puu kaatunut talon päälle myrskyssä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11427155)
+
+Avaa kuvien katselu
+
+Myrsky pudotti ison oksan talon päälle Nilsiässä. Kuva: Lasse Kurronen
+
+Kesämyrsky on riepotellut Itä-Suomea.
+
+Kesämyrsky Päivö toi eilen rankkasadetta ja kovaa tuulta koko maahan. Myrsky iski kuitenkin pahiten Itä-Suomeen viime yön aikana.
+
+Energiateollisuus kertoo, että ehkä jopa 100 000 taloutta jäi ilman sähköä, kun myrsky kaatoi puita sähkölinjoille. Sähköyhtiöt sanovat, että voi viedä monta päivää, ennen kuin kaikki viat saadaan korjattua.
+
+Myrsky kaatoi puita myös teille ja talojen ja autojen päälle. Lisäksi kova tuuli repi irti esimerkiksi peltikattoja ja veneitä. Pelastuslaitoksilla oli yhteensä noin 1000 tehtävää myrskyn takia.
+
+Myrsky aiheutti vikoja myös matkapuhelinverkkoon ja sotki junaliikennettä.
+
+Ilmatieteenlaitos kertoo, että myrskyn kovin kovimmat tuulenpuuskat ja isoimmat sademäärät mitattiin Pohjois-Savossa. Kovimmat tuulenpuuskat, yli 27 metriä sekunnissa, mitattiin Kuopiossa. Eniten vettä tuli Pielavedellä, jossa satoi vuorokaudessa yli 90 milliä.
+
+## Yleisötilaisuuksiin helpotuksia
+
+![Yleisö seuraa turvavälein yleisurheilun Uusi Alku kutsukilpailua 7. kesäkuuta 2020 Lahdessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11393519)
+
+Avaa kuvien katselu
+
+Yleisöä yleisurheilun kutsukilpailussa Lahdessa kesäkuun alussa.  Kuva: Roni Rekomaa / Lehtikuva
+
+Yleisötilaisuuksien koronarajoitukset helpottavat vähän.
+
+Yli 500 ihmisen yleisötilaisuuksia saa järjestää ulkona tästä päivästä lähtien.
+
+Tilaisuuksien turvallisuudesta pitää kuitenkin huolehtia. Edelleen pitää huolehtia esimerkiksi turvaväleistä ja hyvästä hygieniasta.
+
+Suomessa on viime vuorokauden aikana todettu 22 uutta koronavirustartuntaa. Uusia koronakuolemia ei ole todettu nyt 2 päivään.
+
+## Kesäkuussa tarkeni
+
+![Vesileikkejä uimarannalla.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_497/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6930765ef46f2f80ceb/1593105259)
+
+Avaa kuvien katselu
+
+Lapset leikkivät uimarannalla Kuva: Petteri Bülow / Yle
+
+Kesäkuu oli tänä vuonna ennätyslämmin, kertoo Ilmatieteen laitos.
+
+Hellepäiviä oli eniten yli 60 vuoteen. Helteisiä lämpötiloja mitattiin jossain päin Suomea yhteensä 21 päivänä. Helle tarkoittaa yli 25 asteen lämpötilaa.
+
+Kuukauden ylin lämpötila oli 33,5 astetta. Se mitattiin Kankaanpäässä 25. kesäkuuta eli viime torstaina.

@@ -1,0 +1,72 @@
+# Perjantai 17.7.2020 (radio)
+
+Lapset pitivät poikkeusoloista. Käytettyjen autojen kauppa kasvaa. Raimo Sailas kuoli. Hernesato on tosi hyvä. Sää jatkuu lämpimänä.
+
+TV:n selkouutisilla on kesätauko. Ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Lapset pärjäsivät hyvin kevään poikkeusoloissa
+
+![lapsi kotona kirjojen ääressä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11350620)
+
+Avaa kuvien katselu
+
+Etäkoulussa lapset opiskelivat kotona. Oppitunteja pidettiin videoyhteydellä. Kuva: Heidi Paal
+
+Lapset sopeutuivat Suomessa hyvin poikkeusoloihin ja etäkouluun. Lapsijärjestö Unicef on kysynyt suomalaisilta lapsilta, mitä he tykkäsivät poikkeusoloista keväällä.
+
+Monet lapset tykkäsivät siitä, että he saivat olla paljon kotona perheen kanssa. Lapset tykkäsivät myös siitä, että he saivat nukkua enemmän, ja että elämä oli rauhallista, koska harrastukset loppuivat.
+
+Huonoa poikkeusoloissa oli lasten mielestä se, että ei saanut tavata kavereita, isovanhempia tai opettajaa.
+
+## Käytettyjen autojen myynti kasvoi paljon
+
+![Autokauppa hiljeni vuoden 2018 syksyllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10581842)
+
+Avaa kuvien katselu
+
+Moni ostaa käytetyn auton ehkä kesälomamatkaa varten. Kuva: Ensio Karjalainen / Yle
+
+Suomalaiset ovat ostaneet käytettyjä autoja paljon aiempaa enemmän. Autokaupat möivät kesäkuussa yli 56 000 käytettyä autoa eli 13 % enemmän, kuin vuosi sitten.
+
+Uusien autojen myynti on vähentynyt tosi paljon koronatilanteen takia, mutta käytettyjen autojen myynti on lisääntynyt.
+
+Monet suomalaiset eivät halua koronatilanteen takia mennä esimerkiksi bussiin tai junaan, jossa on muita ihmisiä. Suomalaiset myös matkailevat nyt paljon kotimaassa.
+
+## Raimo Sailas on kuollut
+
+![Raimo Sailas](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11452807)
+
+Avaa kuvien katselu
+
+Raimo Sailas 13.9.1945 – 17.7.2020. Kuva: Kimmo Brandt / AOP
+
+Valtiovarainministeriön entinen valtiosihteeri **Raimo Sailas** on kuollut. Raimo Sailas tunnettiin Suomessa hyvin. Hän oli töissä valtiovarainministeriössä yli 40 vuotta.
+
+Raimo Sailas oli talousasiantuntija. Kun Suomen taloudessa meni tosi huonosti 1990-luvulla, Raimo Sailas sanoi, mistä Suomen pitää säästää.
+
+Raimo Sailas oli 74-vuotias.
+
+## Hernesato on hyvä
+
+![Kädessä avoin herneenpalko.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_400/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6929045ef379ec227b9/1593016238)
+
+Avaa kuvien katselu
+
+Hernesato on tänä kesänä suurempi kuin koskaan aikaisemmin Suomessa. Kuva: Rebecka Svedberg / Yle
+
+Hernesato on Suomessa iso tänä kesänä. Herne on kasvanut hyvin ja herneitä tulee myyntiin paljon. Hernettä on viljelty aiempaa enemmän.
+
+Viljasato on tänä vuonna normaali. Viljasato on kuitenkin pienempi kuin viime vuonna, mutta viljasato riittää suomalaisille.
+
+Rukiin sato pienenee 50 % viime vuodesta. Vehnän sato pienenee 20 %. Kauran sato on yhtä suuri kuin viime vuonna.
+
+## Sää
+
+![Rantaleluja uimarannalla.](https://img.img-cdn.yle.fi/crop_extract,w_5498,h_3093,x_0,y_275/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6930795ef46f33737b0/1593078130)
+
+Avaa kuvien katselu
+
+Sää on lauantaina suuressa osassa Suomea lämmintä ja aurinkoista. Silloin on mukava mennä esimerkiksi rannalle. Kuva: Petteri Bülow / Yle
+
+Länsi ja Pohjois-Lapissa tulee sateita. Muualla Suomessa sää on poutaista eli ei sada. Lauantaina lämpötila on 20 ja 27 asteen välillä.

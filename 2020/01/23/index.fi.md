@@ -1,0 +1,61 @@
+# Torstai 23.1.2020 (radio)
+
+Suomessa on varauduttu tartuntavaarallisiin tauteihin. Kiinassa miljoonakaupunkeka on eristetty koronaviruksen takia. Valtakunnansyyttäjä pyytää eduskunnalta lupaa asettaa kansanedustaja Juha Mäenpää syytteeseen. Metsä auttaa ihmisen mieltä.
+
+## Suomi on varautunut viruksiin ja tauteihin
+
+![Terveysviranomainen tarkastaa matkustajia lämpöskannerilla. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11168980)
+
+Avaa kuvien katselu
+
+Malesialainen terveysviranomainen tarkasti matkustajia lämpöskannerilla Kuala Lumpurin kansainvälisellä lentoasemalla tiistaina. Kuva: Ahmad Yusni / EPA 
+
+Suomessa on varauduttu jo kauan tauteihin, jotka ovat tartuntavaarallisia eli tarttuvat ihmiseen. Asia on nyt esillä, koska Kiinassa leviää uusi sairaus. Sairauden aiheuttaja on uudenlainen koronavirus. Se aiheuttaa samanlaisia oireita kuin keuhkokuume.
+
+Kiinassa jo noin 600 ihmistä on saanut tartunnan. Noin 20 ihmistä on kuollut. Tilanne kuitenkin muuttuu koko ajan.
+
+HUSissa eli Helsingin ja Uudenmaan sairaanhoitopiirissä on ollut jo yli 10 vuotta ohjeet tartuntataudeista. Ohjeet koskevat myös virusuhkia, jotka eivät ole kovin todennäköisiä. Koronavirus on tällainen virus. Se ei ehkä koskaan tule Suomeen, mutta siihen pitää varautua.
+
+## Wuhanin kaupunki on eristetty koronaviruksen takia
+
+![Viranomaiset desinfioivat Hankoun rautatieasemaa Wuhanissa, Kiinassa 22. tammikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11171344)
+
+Avaa kuvien katselu
+
+Viranomaiset desinfioivat Hankoun rautatieasemaa Wuhanissa Kiinassa 22. tammikuuta. Kuva: AFP
+
+Kiinassa Wuhanin miljoonakaupunki on eristetty melkein kokonaan. Wuhan on ehkä uuden koronaviruksen lähtöpaikka. Lentoliikenne, junaliikenne, metro ja bussiliikenne on pysäytetty.
+
+Viranomaiset ovat kieltäneet kaupungin asukkaita poistumasta ilman tärkeää syytä. Asukkaiden on myös pakko käyttää hengityssuojaimia julkisilla paikoilla.
+
+Wuhanissa asuu 11 miljoonaa ihmistä. Myös 2 muuta miljoonakaupunkia on eristetty.
+
+Koronavirusta on löydetty myös joistakin muista Aasian maista ja USA:sta. Lisäksi Pietarissa Venäjällä on todettu 2 tapausta, jotka voivat olla koronavirusta.
+
+## Kansanedustaja Mäenpää joutuu ehkä syytteeseen
+
+![Juha Mäenpää](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11172123)
+
+Avaa kuvien katselu
+
+Perussuomalaisten kansanedustaja Juha Mäenpää. Kuva: Eduskunta
+
+Valtakunnansyyttäjä pyytää eduskunnalta lupaa panna kansanedustaja Juha Mäenpään syytteeseen. Syyte tarkoittaa, että Mäenpäälle voidaan vaatia rangaistusta.
+
+Mäenpää on perussuomalaisten kansanedustaja. Valtakunnansyyttäjä tarvitsee syytteeseen eduskunnan luvan.
+
+Poliisi epäilee Mäenpäätä kiihottamisesta kansanryhmää vastaan. Mäenpää vertasi eduskunnassa turvapaikanhakijoita ja vieraslajeja toisiinsa. Vieraslaji on kasvi tai eläin, joka ei ole jollakin alueella alkuperäinen laji.
+
+## Metsä tekee mielelle hyvää
+
+![Tutkija Tytti Pasanen juo metsässä teetä kuksasta.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6338945e283aeb90e26/1579695022)
+
+Avaa kuvien katselu
+
+Tytti Pasasen väitöstutkimus tukee aiempia tutkimustuloksia siitä, että luonnossa liikkuminen auttaa mielen hyvinvoinnissa. Kuva: Anne Savin / Yle
+
+Metsä tekee hyvää ihmisen mielelle. Säännöllinen liikkuminen luonnossa auttaa, sanoo tutkija Tytti Pasanen.
+
+Jo aikaisemmin on tiedetty, että luonnossa ulkoileminen laskee sydämen sykettä ja verenpainetta sekä lievittää stressiä ja parantaa mielialaa.
+
+Tutkija Pasanen kertoo, että luonto antaa ihmiselle myös hyvinvointia, joka kestää kauan. Luonnosta on iso apu silloin, kun ihminen on pahasti stressaantunut.

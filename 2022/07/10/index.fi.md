@@ -1,0 +1,90 @@
+# Sunnuntai 10.7.2022
+
+Pommitukset Ukrainassa. Sri Lankan mielenosoitukset. Vääriä tietoja junamatkustajille. Tangokuninkaalliset. Mansikat. Sää.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Pommitukset Ukrainassa
+
+![Pelastustyöntekijät tutkivat osittain tuhoutuneen asuinkerrostalon raunioita.](https://img.img-cdn.yle.fi/crop_extract,w_3233,h_1818,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98018562ca9492770c5/1657443626)
+
+Avaa kuvien katselu
+
+Venäjä pommitti lauantaina kerrostaloa. Kuva: Miguel Medina / AFP
+
+Venäjä jatkaa pommituksia Itä-Ukrainassa.
+
+Lauantaina Venäjän raketit osuivat kerrostaloon, joka romahti. Kuolleita ja loukkaantuneita on paljon.
+
+Venäjä hyökkäsi Ukrainaan helmikuussa, eli sota on jatkunut jo yli 4 kuukautta.
+
+## Sri Lankan mielenosoitukset
+
+![Turvallisuusjoukot ja mielenosoittajat ottavat yhteen Sri Lankan pääkaupungissa Colombossa.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_700/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98001462c935ccc7c1a/1657353815)
+
+Avaa kuvien katselu
+
+Sri Lankan kaduilla on ollut paljon mielenosoittajia. Kuva: EPA-EFE
+
+Etelä-Aasiassa Sri Lankassa maan johtajat vaihtuvat. Sri Lankan presidentti ja pääministeri kertoivat lauantaina, että he eroavat.
+
+Sri Lankan johtajat eroavat, koska maassa on ollut isoja mielenosoituksia. Ihmiset ovat vihaisia, koska maan taloustilanne on huono. He sanovat, että huono taloustilanne on presidentin ja pääministerin syytä.
+
+Mielenosoittajat tunkeutuivat lauantaina presidentin virka-asuntoon. Presidentti lähti pakoon.
+
+Nyt mielenosoittajat juhlivat, koska presidentti eroaa. Presidentti aikoo lopettaa työt keskiviikkona.
+
+## Vääriä tietoja junista
+
+![Joukko ihmisiä Pieksämäen juna-aseman laiturilla. Mies astuu juuri junan kyytiin.](https://img.img-cdn.yle.fi/crop_extract,w_5893,h_3314,x_0,y_344/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97165962ac7b67ec2ba/1655472662)
+
+Avaa kuvien katselu
+
+Viikonloppuna juna-asemien kuulutuksissa oli virheitä. Kuva: Jarkko Riikonen / Yle
+
+Matkustajat ovat saaneet vääriä tietoja joillakin juna-asemilla viikonlopun aikana. Syynä oli häiriö tietojärjestelmässä.
+
+Häiriön takia juna-asemien kuulutuksissa on kerrottu ylimääräisiä pysähdyspaikkoja. Myös näyttötauluissa on voinut olla vääriä tietoja.
+
+Matkustajat saivat vääriä tietoja esimerkiksi junista, jotka kulkevat Helsingin ja Tampereen välillä.
+
+## Tangokuninkaalliset
+
+![Tangomarkkinoiden laulukilpailun vuoden 2022 finalistit Keijo Hietikko, Heta Halonen, Lauri Ketonen ja Hanna Hirvonen.](https://img.img-cdn.yle.fi/crop_extract,w_6611,h_3718,x_0,y_650/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97946762c7ac219e938/1657253265)
+
+Avaa kuvien katselu
+
+Tangomarkkinoiden finaalissa oli 4 laulajaa. Vasemmalla Keijo Hietikko ja Heta Halonen. Kuva: Krista Luoma
+
+Tämän vuoden tangokuninkaalliset on valittu. Tangokuninkaalliset valittiin Seinäjoen Tangomarkkinoilla lauantaina.
+
+Laulukilpailun finaaliin eli loppukilpailuun pääsi 4 laulajaa, 2 naista ja 2 miestä. Heistä valittiin tangokuningatar ja tangokuningas.
+
+Tämän vuoden tangokuningatar on Heta Halonen, ja tangokuningas on Keijo Hietikko. Tuomarit olivat yhtä mieltä siitä, että Halonen ja Hietikko olivat tämän vuoden parhaat tangolaulajat.
+
+Seinäjoen Tangomarkkinat on suosittu tapahtuma Suomessa. Tänä vuonna laulukilpailuun osallistui noin 250 laulajaa.
+
+## Mansikat
+
+![Sormet kannattelevat pinsettiotteella kypsää mansikkaa mansikkatilalla.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_146/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97957762c7e0d38821e/1657266794)
+
+Avaa kuvien katselu
+
+Kuva: Päivi Seeskorpi / Yle
+
+Mansikat ovat kypsyneet. Mansikoita on nyt paljon, koska sää on ollut lämmin.
+
+Hedelmän- ja Marjanviljelijäin liitto sanoo, että mansikat on hyvä ostaa nyt, jos niitä aikoo pakastaa.
+
+Mansikoita saa myös myöhemmin kesällä, koska osa mansikkalajikkeista kypsyy vasta loppukesän aikana.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12530915)
+
+Avaa kuvien katselu
+
+Sää lämpenee. Alkuviikolla lämpötila voi nousta helteen puolelle eli yli 25 asteen.
+
+Sää on myös sateista. Sadetta ja ukkoskuuroja tulee eri puolilla maata.

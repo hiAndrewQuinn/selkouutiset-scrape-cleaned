@@ -1,0 +1,75 @@
+# Perjantai 31.12.2021 (radio)
+
+Koronatartuntoja ennätyspaljon. Marin koronarokotuksista. Ilotulitteet. Sää.
+
+## Koronatartuntojen ennätys
+
+![Ihmisiä menossa liukuportaita alas.](https://img.img-cdn.yle.fi/crop_extract,w_5905,h_3321,x_0,y_614/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89731361cc6e2d9e035/1640788347)
+
+Avaa kuvien katselu
+
+Maskit estävät hyvin koronatartuntoja. Kuva: Patrik Molander / Yle
+
+Uusia koronatartuntoja on ennätyspaljon.
+
+Terveyden ja hyvinvoinnin laitos eli THL kertoi perjantaina, että uusia koronatartuntoja on yli 9000. Se on enemmän kuin koskaan ennen yhdessä päivässä.
+
+Lisäksi THL raportoi melkein 2000 koronatartuntaa edellisiltä päiviltä. Perjantaina tilastoihin tuli siis yli 11 000 koronatartuntaa lisää.
+
+Suurin osa uusista koronatartunnoista on Helsingin ja Uudenmaan alueella.
+
+THL kertoi perjantaina myös 10 uudesta koronakuolemasta. Suomessa on kuollut yhteensä yli 1500 ihmistä koronan takia.
+
+## Pääministerin tervehdys
+
+![Pääministeri Sanna Marin eduskunnan täysistunnossa Helsingissä 28. joulukuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_159/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89691661cb28264fa4f/1640704148)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin eduskunnassa. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Pääministeri Sanna Marin on julkaissut uudenvuoden tervehdyksen.
+
+Pääministeri sanoo tervehdyksessä, että koronarokotukset ovat tärkeitä. Koronarokotukset ovat paras keino taistella koronaa vastaan, Marin sanoo.
+
+Pääministeri toivoo, että kaikki ottavat koronarokotukset. Marin muistuttaa, että koronarokotuksella ihminen suojelee itseään, kaikkia läheisiä ja koko yhteiskuntaa.
+
+Koronarokotukset auttavat myös sairaaloita, koska rokotukset vähentävät koronapotilaiden määrää sairaaloissa, pääministeri Sanna Marin sanoo.
+
+## Ilotulitteiden myynti
+
+![Ilotulitteiden kauppa käynnistyi Ruoholahden Tokmannilla Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89729661cc69a71084c/1640786385)
+
+Avaa kuvien katselu
+
+Ilotulitteita on myyty nyt paljon. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Tänään perjantaina on uudenvuodenaatto, ja ilotulitteita on myyty paljon. Raketit ja muut ilotulitteet kuuluvat monen suomalaisen uuteenvuoteen.
+
+Monet ovat ostaneet omia ilotulitteita, koska julkisia ilotulituksia on peruttu koronan takia. Kaupat odottavat, että ilotulitteita myydään tänä vuonna ennätysmäärä.
+
+Kaupat kertovat, että asiakkaat ostavat nyt paljon hiljaisia ilotulitteita. Kaikki eivät halua ostaa kovaäänisiä raketteja, jotka pelottavat eläimiä.
+
+Osa kaupoista ei enää myy ilotulitteita ollenkaan. Ne sanovat, että ilotulitteet ovat huono asia ympäristölle.
+
+Ilotulitteita saa ampua uudenvuodenaattona illalla. Ilotulitteiden ampuminen pitää lopettaa kello 2 yöllä.
+
+## Uudenvuoden sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12254217)
+
+Avaa kuvien katselu
+
+Uusi vuosi alkaa pakkassäässä. Lauantaina eli uudenvuodenpäivänä pakkasta on 5 ja 10 asteen välillä koko maassa.
+
+Sää myös poutaantuu. Lauantaina ei enää sada lunta. Myös aurinko näkyy taivaalla uudenvuodenpäivänä.
+
+Myös sunnuntai on poutainen pakkaspäivä. Länsi-Suomeen saapuu kuitenkin lumisateita sunnuntain aikana.
+
+**Selkouutiset toivottaa kaikille hyvää uutta vuotta!**
+
+![ilotulitus](https://img.img-cdn.yle.fi/crop_extract,w_1378,h_775,x_0,y_22/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-723405867b4f5996be/1483191563)
+
+Avaa kuvien katselu
+
+Vuosi 2022 alkaa.

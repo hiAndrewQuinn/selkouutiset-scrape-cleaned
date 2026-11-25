@@ -1,0 +1,63 @@
+# Maanantai 23.4.2018 (radio)
+
+Kuopioon aiotaan rakentaa iso sellutehdas. Suomessa on vankeja, joilla oli väkivaltaista ääriajattelua. Suomalaisen on vaikea päättää, tervehtiikö hän muita vai ei. Britannia on saanut uuden pikkuprinssin.
+
+## Sellutehdas
+
+![Havusellutehtaan tontti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10172795)
+
+Avaa kuvien katselu
+
+Tälle paikalle Kuopiossa rakennetaan ehkä iso sellutehdas. Kuva: Antti Karhunen / Yle
+
+Kuopioon suunnitellaan isoa tehdasta. Suomalainen firma Finnpulp aikoo rakentaa Kuopioon sellutehtaan.
+
+Finnpulp kertoi maanantaina, että kiinalainen firma Hengan International sijoittaa tehtaaseen rahaa. Rahan avulla voidaan aloittaa tehtaan suunnittelutyöt.
+
+Jos tehdas rakennetaan, siitä tulee maailman suurin havusellutehdas. Tehdas valmistaa sellua havupuusta, esimerkiksi männystä. Sellua käytetään paperin valmistamiseen.
+
+Finnpulp arvioi, että tehdas on valmis aikaisintaan 3 vuoden päästä.
+
+## Vankien ääriajattelu
+
+![Riihimäen vankila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10036198)
+
+Avaa kuvien katselu
+
+Suomen vankiloissa on ääriajattelua. Kuva: Timo Leponiemi / Yle
+
+Suomessa on vankeja, jotka voivat mennä mukaan terroristiseen toimintaan.
+
+Rikosseuraamuslaitos tutki asiaa vankiloissa. Se löysi yli 100 vankia, joilla oli väkivaltaista ääriajattelua. Osa vangeista oli kiinnostunut islamismista ja osa äärioikeistosta.
+
+Ääriajattelu voi levitä vankilassa. Siksi Rikosseuraamuslaitoksen mielestä on tärkeää löytää vangit, jotka voivat ottaa huonoa esimerkkiä muista vangeista.
+
+## Tervehtiminen
+
+![Anja Salmi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10169468)
+
+Avaa kuvien katselu
+
+Anja Salmi sanoo, että hän moikkailee ihmisiä usein. Kuva: Antti Kolppo / Yle
+
+Suomalaisen on vaikea päättää, tervehtiikö hän muita vai ei. Yle kysyi ihmisten mielipidettä tervehtimisestä ja sai netin kautta yli 600 vastausta.
+
+Iso osa vastaajista toivoi, että ihmiset tervehtivät useammin. Monet sanoivat, että ulkomailla on mukavaa, koska ihmiset tervehtivät toisiaan.
+
+Osa vastaajista oli kuitenkin tyytyväisiä, että suomalaiset antavat toisten olla rauhassa. Suomessa ei tarvitse olla supersosiaalinen koko ajan.
+
+Suomalaisia harmittaa eniten silloin, kun joku ei vastaa tervehdykseen. Myös asiakaspalvelutilanteissa suomalaiset toivovat tervehtimistä. Jotkut vastaajat kehuivat maahanmuuttajataustaisia bussikuskeja. He usein tervehtivät matkustajia.
+
+## Uusi prinssi
+
+![Rojalistien kannattajia Lontoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10173204)
+
+Avaa kuvien katselu
+
+Kuninkaallisten fanit odottivat uutisia kuninkaallisesta vauvasta lontoolaisen sairaalan ulkopuolella. Kuva: Daniel Leal-Olivas / AFP
+
+Britannia on saanut uuden kuninkaallisen. Prinssi William ja herttuatar Catherine saivat vauvan maanantaina.
+
+Poikavauva syntyi lontoolaisessa sairaalassa. Äiti ja vauva voivat hyvin, Britannian hovi kertoo.
+
+Uusi prinssi on Williamin ja Katen kolmas lapsi ja kuningatar Elisabetin kuudes lapsenlapsenlapsi. Pikkuprinssin nimi kerrotaan myöhemmin.

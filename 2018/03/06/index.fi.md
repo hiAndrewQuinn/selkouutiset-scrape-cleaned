@@ -1,0 +1,67 @@
+# Tiistai 6.3.2018 (radio)
+
+Yliopistot eivät mene lakkoon. Lääkäreitä puhuttaa käyttäytyminen työpaikalla. Lapsia syntyi viime vuonna vähän. Sanakirjaan 600 uutta sanaa. Ilmavoimat täytti 100 vuotta.
+
+## Yliopistot eivät mene lakkoon
+
+![Yliopiston mielenosoitus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10095542)
+
+Avaa kuvien katselu
+
+Yliopistojen työriitaan saatin ratkaisu. Kuva: Ronnie Holmberg / Yle
+
+Suomen yliopistoissa ei ala keskiviikkona lakko vaan työnteko jatkuu. Lakko peruuntui, kun yliopistoalan työriitaan löytyi ratkaisu.
+
+Työriitaan tehtiin sovintoehdotus, joka hyväksyttiin. Palkat nousevat kahden vuoden aikana 3,45 prosenttia.
+
+## Lääkäreitä puhuttaa käyttäytyminen työpaikalla
+
+![Nuoret lääkärit](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10099888)
+
+Avaa kuvien katselu
+
+Nuoret lääkärit ovat kokeneet, että jotkut vanhemmat lääkärit kiusaavat heitä. Kuva: Yle Uutisgrafiikka
+
+Monet nuoret lääkärit sanovat, että vanhat lääkärit kohtelevat nuoria lääkäreitä huonosti. Yle haastatteli monia nuoria lääkäreitä. He kertoivat, että vanhempi lääkäri on voinut loukata nuorta lääkäriä tahallaan. Nuoret lääkärit kertovat, että ongelmista on tiedetty jo kauan.
+
+Nuorten lääkärien yhdistys sanoo, että yleensä kohtelu on hyvää. Mutta välillä kohtelu voi olla myös huonoa. Lääkäriliitto sanoo, että kiusaamista ei saa hyväksyä. Kiusaaminen voi johtaa huonoon hoitoon.
+
+## Lapsia syntyi viime vuonna vähän
+
+![Vauvoja synnytysosastolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10104533)
+
+Avaa kuvien katselu
+
+Syntyvyys on laskenut Suomessa jo monen vuoden ajan. Kuva: Leif Öster / Yle
+
+Suomessa syntyi viime vuonna vähän lapsia. Viranomaiset kertovat, että lapsia syntyi yli 2500 vähemmän kuin vuonna 2016. Yhteensä lapsia syntyi yli 50 000, yhtä paljon kuin 150 vuotta sitten.
+
+Vaikka lapsia syntyi viime vuonna tosi vähän, Suomen väkiluku kasvoi. Väkiluvun kasvu johtuu maahanmuutosta. Suomeen muutti noin 17 000 ihmistä enemmän kuin muutti pois.
+
+Suomen väkiluku on nyt yli 5,5 miljoonaa.
+
+## Sanakirjaan 600 uutta sanaa
+
+![Drone lentämässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10087474)
+
+Avaa kuvien katselu
+
+Tämä on suomen kielessä drooni. Kuva: AOP
+
+Suomen kieli saa tänä vuonna virallisesti 600 uutta sanaa. Suomen kielestä huolehtii kielitoimisto, jolla on suomen kielen sanakirja. Tänä vuonna sanakirjaan lisätään 600 uutta sanaa.
+
+Uusia suomen kielen sanakirjan sanoja ovat esimerkiksi drooni, tubettaa ja jonne. Drooni on pieni kauko-ohjattava lennokki. Tubettaminen tarkoittaa, että julkaisee jotakin YouTube-videopalvelussa internetissä. Jonne on nimitys, joka tarkoittaa nuorta tai lapsellisesti käyttäytyvää ihmistä.
+
+Muita uusia sanoja ovat esimerkiksi alien, vegaaninen, energiatodistus, G-piste, kaupunkipyörä ja kokemusasiantuntija.
+
+## Ilmavoimat täytti 100 vuotta
+
+![Hävittäjälentolaivue 41:n Hawk-suihkuharjoituskoneiden ylilento juhlisti Vaasassa Ilmavoimien 100-vuotisjuhlaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10103949)
+
+Avaa kuvien katselu
+
+Armeijan lentokoneet lensivät Vaasan taivaalla Ilmavoimien syntymäpäivän kunniaksi. Kuva: Jarkko Heikkinen/Yle
+
+Suomen armeijan Ilmavoimat on täyttänyt tänään 100 vuotta. Ilmavoimien syntymäpäivää juhlittiin Helsingin seudun taivaalla. Taivaalla lensi päivällä 4 Hawk-mallista lentokonetta.
+
+Ilmavoimien vuosipäivän juhlia on ollut myös muualla Suomessa.

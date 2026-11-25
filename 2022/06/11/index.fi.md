@@ -1,0 +1,75 @@
+# Lauantai 11.6.2022
+
+Puoluekokoukset. EU-komission puheenjohtaja Ukrainassa. Koronalääkkeet. Auringon uv-säteily. Sää.
+
+TV:n selkouutisilla on kesätauko 12.8. asti. Lue ja kuuntele radiolähetys tästä.
+
+## Puoluekokoukset
+
+![Petteri Orpo, Li Andersson, Annika Saarikko](https://img.img-cdn.yle.fi/crop_extract,w_1879,h_1056,x_40,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96780762a1fdd4b6c7d/1654783503)
+
+Avaa kuvien katselu
+
+Kokoomuksen Petteri Orpo, vasemmistoliiton Li Andersson ja keskustan Annika Saarikko.
+
+Viikonlopun puoluekokoukset ovat jatkuneet. Puoluekokous päättää puolueen ohjelmasta ja valitsee puolueen puheenjohtajan.
+
+Kokoomuksen puoluekokous valitsi Petteri Orpon jatkamaan puheenjohtajan tehtävässä. Muita ehdokkaita ei ollut.
+
+Myös vasemmistoliitossa jatkaa nykyinen puheenjohtaja. Puheenjohtaja Li Andersson oli ainoa ehdokas tehtävään.
+
+Keskustalla oli 2 puheenjohtajaehdokasta. Nykyinen puheenjohtaja Annika Saarikko voitti selvästi Paavo Väyrysen. Väyrynen ei ollut uusi kilpailija, hän on ollut politiikassa jo kauan.
+
+## Von der Leyen Ukrainassa
+
+![Zelenskyi ja Von Der Leyen.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-960303628e075e52a9b/1653476114)
+
+Avaa kuvien katselu
+
+Ukrainan presidentti Volodymyr Zelenskyi ja EU-komission puheenjohtaja Ursula von der Leyen. Kuva: AOP, Ronald Wittek / EPA
+
+Tärkeä EU-johtaja on vieraillut Ukrainassa.
+
+EU-komission puheenjohtaja Ursula von der Leyen matkusti Ukrainaan lauantaina. Hän tapasi Ukrainan presidentti Volodymyr Zelenskyin.
+
+Von der Leyen ja Zelenskyi keskustelivat Ukrainan jälleenrakennuksesta eli siitä, kuinka Ukraina rakennetaan uudelleen sodan jälkeen. Venäjä on tuhonnut ison osan Ukrainaa.
+
+Tämä oli jo von der Leyenin toinen vierailu Ukrainassa sodan aikana.
+
+## Koronalääkkeet
+
+![Molnupiravir on Merck -lääkeyhtiön lanseeraama koronalääke. Molnupiravir pillereitä.](https://img.img-cdn.yle.fi/crop_extract,w_5499,h_3078,x_0,y_229/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-878174618bf31d6715c/1642524929)
+
+Avaa kuvien katselu
+
+Koronalääkkeitä on kehitetty monissa lääkefirmoissa. Kuva: Merck Sharp &amp; Dohme Corp
+
+Suomeen saadaan ensimmäiset koronalääkkeet ehkä jo heinäkuussa. Näin kertoo sosiaali- ja terveysministeriö.
+
+Aluksi Suomeen tulee koronalääkkeitä muutamalle tuhannelle potilaalle. Koronalääkkeitä annetaan potilaille, joille koronavirus on tosi vaarallinen esimerkiksi jonkin sairauden takia.
+
+Hoito koronalääkkeillä pitää aloittaa mahdollisimman pian koronatartunnan jälkeen. Joitakin koronalääkkeitä otetaan vain kerran, mutta joitakin koronalääkkeitä potilaan pitää käyttää jonkin aikaa..
+
+## Uv-säteily
+
+![Nainen levittää aurinkorasvaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9046795)
+
+Avaa kuvien katselu
+
+Hattu, vaatteet ja aurinkovoide suojaavat auringon uv-säteilyltä. Kuva: Jarno Kuusinen / AOP
+
+Ilmatieteen laitos varoitti lauantaina auringon voimakkaasta uv-säteilystä. Voimakasta uv-säteilyä on maan etelä- ja keskiosissa.
+
+Ihmisten on hyvä varoa voimakasta uv-säteilyä. Uv-säteily lisää ihosyövän riskiä. Vaatteet ja aurinkovoiteet suojaavat uv-säteilyltä.
+
+Voimakkaan uv-säteilyn aika alkaa Suomessa usein noin 2 viikkoa ennen juhannusta eli juuri tähän aikaan.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12489230)
+
+Avaa kuvien katselu
+
+Myös sunnuntai on Etelä-Suomessa aurinkoinen päivä. Päivä on myös poutainen eli vettä ei sada. Pohjois-Suomessa tulee joitakin sadekuuroja. Lämpötila on noin 20 astetta suuressa osassa maata.
+
+Maanantaina sadekuuroja tulee Keski- ja Pohjois-Suomessa. Myös ukkonen on mahdollista. Etelässä maanantai on poutapäivä. Myös aurinko paistaa välillä.

@@ -1,0 +1,91 @@
+# Torstai 15.9.2022 (radio)
+
+Presidentti Niinistö. Kuningatar Elisabet. Ruotsin pääministeri. Suomen Nato-jäsenyys. Finnairin lento. Sää.
+
+## Venäläisten viisumit
+
+![Suomen presidentti Sauli Niinistö seisoo antamassa puhetta lavalla.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_240/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97819062c40aa26c0f4/1657160335)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Sara Aaltio / Yle
+
+Presidentti Sauli Niinistö haluaa vähentää venäläisten viisumeja. Venäläiset tarvitsevat viisumin, jos he matkustavat Suomeen.
+
+Niinistön mielestä esimerkiksi asunnon tai kesämökin ostaminen Suomesta ei ole hyvä syy viisumille. Nykyään venäläiset saavat viisumin helpommin, jos he omistavat asunnon Suomessa.
+
+## Jono Elisabetin arkulle
+
+![Muistokuva kuningatar Elisabetista Lontoon keskustassa. ](https://img.img-cdn.yle.fi/crop_extract,w_5858,h_3288,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1005257631a34eca761c/1662663429)
+
+Avaa kuvien katselu
+
+Kuningatar Elisabet kuoli viime viikolla. Kuva: Andrew Boyers / Reuters
+
+Lontoossa on pitkä jono kuningatar Elisabetin arkulle. Monet ihmiset haluavat kunnioittaa kuningatarta, joka kuoli viime viikolla.
+
+Torstaina päivällä jono kuningattaren arkulle oli 6 kilometriä pitkä. Ihmisiä päästetään arkun luo maanantaiaamuun asti.
+
+Kuningatar Elisabetin hautajaiset ovat maanantaina iltapäivällä.
+
+## Ruotsin pääministeri
+
+![Magdalena Andersson tiedotustilaisuudessaan.](https://img.img-cdn.yle.fi/crop_extract,w_8191,h_4608,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-100809363221a29e6347/1663179350)
+
+Avaa kuvien katselu
+
+Pääministeri Magdalena Andersson eroaa. Kuva: EPA-EFE/All Over Press
+
+Ruotsin pääministeri Magdalena Andersson on eronnut. Andersson kuitenkin hoitaa pääministerin tehtäviä niin kauan, että Ruotsi saa uuden pääministerin ja hallituksen.
+
+Magdalena Andersson on sosiaalidemokraatti. Hän johtaa Ruotsin vasemmistoa, joka hävisi vaalit viime viikonloppuna.
+
+Vaalien voittaja on oikeisto, jota johtaa kokoomuspuolueen Ulf Kristersson. Kristersson yrittää nyt koota Ruotsiin uuden hallituksen.
+
+Jos Kristersson onnistuu tehtävässä, hänestä tulee Ruotsin uusi pääministeri.
+
+## Suomen ja Ruotsin Nato-jäsenyydet
+
+![Natolippu](https://img.img-cdn.yle.fi/crop_extract,w_3355,h_1882,x_0,y_64/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-954676627e360ccfded/1652438601)
+
+Avaa kuvien katselu
+
+Puolustusliitto Naton lippu. Kuva: Eetu-Mikko Pietarinen / Yle
+
+Kreikka on hyväksynyt Suomen ja Ruotsin Nato-jäsenyydet. Kreikan parlamentti hyväksyi torstaina, että Suomi ja Ruotsi tulevat mukaan puolustusliitto Natoon.
+
+Nyt 25 Nato-maata on hyväksynyt Suomen ja Ruotsin Natoon. Nato-maita on 30.
+
+Suomesta ja Ruotsista tulee Naton jäseniä, kun kaikki vanhat Nato-maat ovat ne hyväksyneet.
+
+Suomi ja Ruotsi päättivät hakea Nato-jäsenyyttä, kun Venäjä hyökkäsi Ukrainaan.
+
+Suomi ja Ruotsi arvioivat, että niiden turvallisuus paranee Natossa. Nato-maat auttavat toisiaan, jos niitä vastaan hyökätään.
+
+## Finnairin lento
+
+![Finnairin kone. Helsinki-Vantaa lentoasema. 26.3.2021](https://img.img-cdn.yle.fi/crop_extract,w_3041,h_1711,x_269,y_326/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-788978605de8d2622a5/1625800481)
+
+Avaa kuvien katselu
+
+Finnairin lentokonen. Kuvituskuva. Kuva: Jorge Gonzalez / Yle
+
+Finnairin lento Helsingistä Espanjan Malagaan ei sujunut suunnitelmien mukaan torstaiaamuna.
+
+Lentokoneen piti laskeutua välillä Pariisiin. Syynä oli matkustaja, joka käyttäytyi huonosti.
+
+Pariisissa matkustaja poistettiin koneesta. Sen jälkeen matka jatkui kohti Malagaa.
+
+Asiasta kertoi Iltalehti.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12626195)
+
+Avaa kuvien katselu
+
+Sää on perjantaina pilvistä. Pilvisyys on runsasta. Monin paikoin sataa vettä.
+
+Lämpötila on päivällä 10 ja 15 asteen välillä.
+
+Pohjoisessa itätuuli on kohtalaista. Etelässä tuuli on heikkoa.

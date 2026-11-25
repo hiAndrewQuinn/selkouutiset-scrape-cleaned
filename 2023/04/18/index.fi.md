@@ -1,0 +1,89 @@
+# Radio Selkouutiset 17.4.2023
+
+Antti Lindtman. Korona. Ruotsin sotaharjoitus. Olkiluoto 3. Sää.
+
+## Antti Lindtman
+
+![Antti Lindtman puhumassa tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_265/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1100240643d2cb3d68d5/1681731283)
+
+Avaa kuvien katselu
+
+Antti Lindtman. Kuva: Petteri Bülow / Yle
+
+Antti Lindtman pyrkii SDP:n puheenjohtajan tehtävään. Lindtman on kansanedustaja.
+
+40-vuotias Lindtman on Vantaalta. Hän on yksi SDP:n eli sosiaalidemokraattien tunnetuista poliitikoista.
+
+SDP:n uusi puheenjohtaja valitaan syyskuussa. Silloin SDP:llä on puoluekokous.
+
+SDP:n nykyinen puheenjohtaja on Sanna Marin. Hän ei halua enää jatkaa puheenjohtajan tehtävässä.
+
+Suomessa valittiin uusi eduskunta huhtikuun alussa. Pian vaihtuu myös maan hallitus.
+
+SDP oli eduskuntavaaleissa vasta 3. suurin puolue. Siksi SDP ei enää saa pääministerin paikkaa.
+
+## Korona
+
+![Kasvomaski ja käsidesipullo pöydällä.](https://img.img-cdn.yle.fi/crop_extract,w_4020,h_2261,x_0,y_359/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9349146242e190ab1a0/1648550385)
+
+Avaa kuvien katselu
+
+Käsidesi ja kasvomaski. Kuva: Sebastian Björklund / Yle
+
+Suomalaiset eivät enää pelkää koronaa.
+
+Suurin osa suomalaisista ei enää käytä kasvomaskia tai noudata turvaväliä. Näin kertoo uusi kansalaiskysely.
+
+Ihmiset luottavat siihen, että rokotukset antavat suojan koronaa vastaan. Koronasta on tullut yksi tauti muiden joukossa.
+
+Myös Terveyden ja hyvinvoinnin laitos sanoo, että ihmiset voivat suhtatua koronaan samalla tavalla kuin muihin infektiotauteihin. Sairaan on hyvä pysyä kotona.
+
+## Ruotsin sotaharjoitus
+
+![Suomalainen sotilas tähtää metsässä aseellaan.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_266/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96868062a47c530f50c/1654947435)
+
+Avaa kuvien katselu
+
+Arkistokuva. Kuva: Daniel Ivarsson
+
+Ruotsissa on alkanut iso sotaharjoitus. Myös Suomi on mukana harjoituksessa.
+
+Harjoitukseen osallistuu yli 10 Ruotsin kumppanimaata. Mukana ovat esimerkiksi USA ja Britannia.
+
+Ruotsin puolustamista harjoittelee yhteensä 26 000 sotilasta. Harjoitus keskittyy Etelä-Ruotsiin.
+
+## Olkiluoto 3
+
+![Keskellä Olkiluodon ykkösreakori, oikealla kakkonen. Taustalla kolmosreaktori.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1099814643ba86f60502/1718549016)
+
+Avaa kuvien katselu
+
+Olkiluodon ydinvoimalaitos. Kuva: Jari Pelkonen / Yle
+
+Suomi on saanut lisää ydinvoimaa eli atomivoimaa.
+
+Olkiluodon uusi ydinreaktori eli Olkiluoto 3 on alkanut tuottaa sähköä täydellä teholla.
+
+Uusi ydinreaktori on tärkeä. Se tuottaa noin 14 prosenttia Suomen sähköstä.
+
+Olkiluoto 3 vaikuttaa esimerkiksi sähkön hintaan. Odotetaan, että sähkön hinta ei enää vaihtele niin paljon kuin ennen.
+
+Ydinreaktorin piti valmistua jo 14 vuotta sitten, mutta iso rakennusprojekti on vienyt paljon aikaa.
+
+Tarkoitus on, että Olkiluoto 3 toimii ainakin 60 vuotta.
+
+Olkiluoto 3:n hinta on 5,8 miljardia euroa. Se on ehkä maailman kallein rakennus.
+
+## Sää
+
+![Kaksi istuvaa ihmistä nauttii auringonpaisteesta veden äärellä. Kuvattuna selän takaa.](https://img.img-cdn.yle.fi/crop_extract,w_5109,h_2869,x_0,y_419/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-109676164302c9558e26/1681210920)
+
+Avaa kuvien katselu
+
+Aurinko paistaa melkein koko maassa. Kuva: Lehtikuva
+
+Tiistaina aurinko paistaa melkein koko maassa. Paikoin sää on kuitenkin pilvinen tai puolipilvinen.
+
+Etelässä on yli 10 astetta lämmintä. Pohjoisessa lämpötila on 5 ja 10 asteen välillä.
+
+Keskiviikkona lämmin ja aurinkoinen sää jatkuu suuressa osassa maata. Lapissa voi keskiviikkona sataa vähän vettä.

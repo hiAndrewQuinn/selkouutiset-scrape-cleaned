@@ -1,0 +1,75 @@
+# Keskiviikko 13.4.2022 (radio)
+
+Hallitus julkisti turvallisuusselonteon. Suomen Nato-ratkaisu syntyy ehkä viikoissa. Ruokakori on yhä Suomessa halvempi kuin Ruotsissa ja Norjassa. Tupakkalaki kiristyy. Säätiedot.
+
+## Hallituksen turvallisuusselonteko
+
+![Sisäministeri Krista Mikkonen, ulkoministeri Pekka Haavisto ja puolustusministeri Antti Kaikkonen esittelivät valtioneuvoston ajankohtaisselontekoa Helsingissä 13. huhtikuuta 2022. ](https://img.img-cdn.yle.fi/crop_extract,w_5342,h_3004,x_0,y_490/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9419466256ba79e4e67/1649851112)
+
+Avaa kuvien katselu
+
+Hallituksen turvallisuusselontekoa esittelivät sisäministeri Krista Mikkonen, ulkoministeri Pekka Haavisto ja puolustusministeri Antti Kaikkonen.  Kuva: Markku Ulander / Lehtikuva
+
+Hallitus on julkistanut selonteon Suomen turvallisuusympäristön muutoksesta.
+
+Selonteossa kuvataan, miten Venäjän hyökkäyssota Ukrainassa muuttaa Suomen turvallisuustilannetta. Selonteossa kuvataan myös eri vaihtoehtoja, joita Suomella on tässä uudessa tilanteessa.
+
+Selonteko pohjustaa ratkaisua siitä, hakeeko Suomi sotilasliitto Naton jäseneksi.
+
+Eduskunta aloittaa keskustelun Suomen turvallisuustilanteesta ja selonteosta pääsiäisen jälkeen.
+
+## Suomen Nato-ratkaisu
+
+![Sauli Niinistö puhui medialle Presidentinlinnassa torstaina 10. maaliskuuta 2022.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_142/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9264046229e5e76bb0a/1647765032)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Silja Viitala / Yle
+
+Presidentti Sauli Niinistö toivoo, että eduskunta käsittelee turvallisuusselonteon perinpohjin, mutta ripeästi.
+
+Mahdollisen Nato-jäsenyyden haittapuolia ja Venäjän reaktioita ei selonteossa käydä läpi tarkemmin. Niinistö kuitenkin sanoo, että eduskunta käy asian perinpohjin läpi, kun se kuulee eri asiantuntijoita.
+
+Niinistö uskoo, että Suomen Nato-ratkaisu on valmis hyvissä ajoin ennen Naton huippukokousta Madridissa kesäkuussa.
+
+Myös pääministeri Sanna Marin sanoo, että päätös Nato-jäsenyyden hakemisesta syntyy viikoissa.
+
+## Ruuan hinta
+
+![Ostoksia kaupan hihnalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5917125)
+
+Avaa kuvien katselu
+
+Ostoksia kaupan kassalla.  Kuva: Yle
+
+Ruuan hinta on pysynyt Suomessa ennallaan kuukauden aikana. Venäjän sota Ukrainassa ei vielä näy ruuan hinnassa.
+
+Yle on vertaillut ruuan hintaa Pohjois-Suomessa, Pohjois-Ruotsissa ja Pohjois-Norjassa. Ruokakoriin kerättiin jokaisessa maassa samat 14 tuotetta.
+
+Ruokakori on halvin Suomessa ja kallein Norjassa. Suomessa Torniossa ruokakori maksoi noin 39 euroa, Ruotsin puolella Haaparannalla kori maksoi noin 6 euroa enemmän eli noin 45 euroa. Altassa Norjassa ruokakorin hinnaksi tuli 60 euroa.
+
+## Tupakkalaki kiristyy
+
+![Tumpattu tupakka ja lakipykälä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9088682)
+
+Avaa kuvien katselu
+
+Tupakkalaki kiristyy toukokuun alusta. Kuva: Yle Uutisgrafiikka, kuva AOP
+
+Tupakkalakia tiukennetaan.
+
+Sosiaali- ja terveysministeriö sanoo, että tiukennuksella halutaan vähentää tupakkatuotteiden houkuttelevuutta etenkin nuorten silmissä.
+
+Esimerkiksi logot poistuvat tupakkatuotteiden pakkauksista. Uusi laki kieltää myös tupakoinnin leikkikentillä ja yleisillä uimarannoilla.
+
+Tupakkalain muutokset tulevat voimaan toukokuun alussa. Vaatimus pakkausten yhdenmukaisuudesta tulee kuitenkin voimaan vasta ensi vuoden toukokuussa.
+
+## Torstain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12404131)
+
+Avaa kuvien katselu
+
+Huomenna sataa vettä ja räntää ja pohjoisessa myös lunta.
+
+Lämpötila on päivällä 1 ja 6 asteen välillä. Pohjois-Lapissa on vähän viileämpää.

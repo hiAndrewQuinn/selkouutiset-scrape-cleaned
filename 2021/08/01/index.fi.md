@@ -1,0 +1,82 @@
+# Sunnuntai 1.8.2021
+
+Koronatartuntojen määrän kasvu jatkuu. Venäjällä on paljon uusia koronatartuntoja. Myanmarissa on paha koronakriisi. Turkin metsäpaloissa on kuollut ihmisiä. Rovaniemellä on järjestetty koronarokotustapahtuma. Sateet heikkenevät maanantaina.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Koronatilanne Suomessa
+
+![Mieheltä otetaan koronatesti](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82110660c87b18bdba3/1623751620)
+
+Avaa kuvien katselu
+
+Koronatestejä tehdään joka päivä. Kuva: Yrjö Hjelt / Yle
+
+Suomessa on ilmoitettu sunnuntaina yli 500 uutta koronatartuntaa. Noin puolet uusista koronatartunnoista on Helsingin ja Uudenmaan alueella.
+
+Koronatartuntojen määrä on viime viikkoina kasvanut nopeasti.
+
+2 viime viikon aikana on ilmoitettu noin 6700 koronatartuntaa. Se on noin 3000 enemmän kuin edellisten 2 viikon aikana.
+
+## Koronatilanne ulkomailla
+
+![Kolme suojapukuihin pukeutunutta vapaaehtoista kuljettaa arkkua paareilla. Arkun ympärille kiedottu vaalenpunaisilla sydämillä koristettua paperia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12042109)
+
+Avaa kuvien katselu
+
+Myanmarissa kuolee joka päivä satoja ihmisiä koronan takia. Kuva: Nyunt Win / EPA
+
+Myös ulkomailta on saatu huonoja koronauutisia.
+
+Venäjällä ilmoitettiin sunnuntaina melkein 23 000 uutta koronatartuntaa. Se on suurin määrä yhdessä päivässä koko korona-aikana. Lisäksi Venäjällä ilmoitettiin sunnuntaina melkein 800 uutta koronakuolemaa.
+
+Aasiassa Myanmarissa on paha koronakriisi. Maassa kuolee koronan takia satoja ihmisiä joka päivä. Uusia koronatartuntoja on tuhansia päivässä.
+
+Sotilaat kaappasivat vallan Myanmarissa puoli vuotta sitten. Sen jälkeen maan terveydenhuolto on nopeasti huonontunut. Vasta 3 prosenttia Myanmarin asukkaista on saanut koronarokotuksen.
+
+## Turkin metsäpalot
+
+![Palomiehet sammuttamassa Turkin metsäpaloja.](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_267/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8374506105d804d1025/1627773927)
+
+Avaa kuvien katselu
+
+Palomiehet sammuttavat metsäpaloa Turkissa. Kuva: Erdem Sahin / EPA
+
+Turkissa on pahoja metsäpaloja. Metsä palaa Turkin eteläosissa.
+
+Metsäpaloissa on kuollut yhteensä ainakin 6 ihmistä. Lauantaina kuoli 2 palomiestä, jotka olivat sammutustöissä.
+
+Yli 300 ihmistä on loukkaantunut paloissa. Monia ihmisiä on siirretty turvaan pois paloalueelta.
+
+Turkin metsäpalot alkoivat keskiviikkona. On epäilty, että jotkut ovat ehkä tahallaan sytyttäneet metsää palamaan.
+
+Turkin presidentti sanoo, että syyllisiä rangaistaan ankarasti, jos paloja on sytytetty tahallaan.
+
+## Rovaniemen rokotustapahtuma
+
+![Lordi saa koronarokotuksen.](https://img.img-cdn.yle.fi/crop_extract,w_6048,h_3402,x_0,y_180/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8375566106a0446baa5/1627824411)
+
+Avaa kuvien katselu
+
+Lordi otti koronarokotuksen Rovaniemellä. Kuva: Jouni Porsanger
+
+Kerrotaan vielä, että Rovaniemellä on järjestetty koronarokotustapahtuma.
+
+Tarkoitus oli muistuttaa erityisesti nuoria siitä, kuinka tärkeää on ottaa koronarokotukset.
+
+Paikalla oli myös Lapin julkkiksia. Euroviisuvoittaja Lordi otti tapahtumassa koronarokotuksen.
+
+Paikalla oli myös Joulupukki, mutta hänet on rokotettu jo aikaisemmin korkean iän takia.
+
+## Alkuviikon sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12042926)
+
+Avaa kuvien katselu
+
+Sateet heikkenevät maanantaina. Kuurosateita tulee kuitenkin eri puolilla Suomea. Pohjoisessa on maanantaina poutaista, eli siellä vettä ei sada.
+
+Tiistai on sateinen päivä idässä. Vettä voi sataa paljon ja tuuli voi olla kovaa. Lännessä on tiistaina poutaista.
+
+Lämpötila on alkuviikon aikana 15 ja 20 asteen välillä suuressa osassa maata.

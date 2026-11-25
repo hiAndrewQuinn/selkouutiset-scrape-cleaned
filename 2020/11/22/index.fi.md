@@ -1,0 +1,61 @@
+# Sunnuntai 22.11.2020 (radio)
+
+Viking Grace. Työttömyys. Joulukatu. Sääennuste.
+
+## Viking Grace pääsi pois karilta
+
+![Karille ajanut Viking Linen matkustaja-alus Viking Grace Maarianhaminan satamassa 22. marraskuuta 2020. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11660448)
+
+Avaa kuvien katselu
+
+Viking Grace Maarianhaminan satamassa sunnuntaina. Kuva: Niclas Nordlund / Lehtikuva
+
+Viking Grace laiva on päässyt jatkamaan matkaa Ahvenanmaalta. Viking Grace irrotettiin ensin karilta ja hinattiin Maarianhaminan satamaan.
+
+Sukeltajat tarkastivat laivan pohjan. Pohja oli ehjä ja viranomaiset antoivat laivalle luvan ajaa omilla moottoreilla Turkuun. Myös laivan matkustajat pääsivät laivalla Turkuun.
+
+Viking Grace ajoi karille lauantaina lähellä Maarianhaminan satamaa. Kukaan ei loukkaantunut.
+
+Viking Grace menee Turusta telakalle korjattavaksi. Viking Gracen tilalle Turku-Maarianhamina-Tukholma -reitille tulee siksi aikaa toinen laiva.
+
+## Monien työttömyys pitenee
+
+![Ansiopäivärahalomaketta täytetään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11452127)
+
+Avaa kuvien katselu
+
+Työtön täyttää lomaketta, jolla haetaan ansiopäivärahaa. Kuva: Tiina Jutila / Yle
+
+Koronakriisi pidentää monien suomalaisten työttömyyttä. Työ- ja elinkeinoministeriö arvioi, että pitkäaikaistyöttömien määrä lisääntyy lähivuosina paljon.
+
+Pitkäaikaistyötön on ihminen, joka on ollut työttömänä 12 kuukautta tai pidempään.
+
+Ennen korona-aikaa Suomessa oli yli 60 000 pitkäaikaistyötöntä. Nyt arvioidaan, että pitkäaikaistyöttömien määrä voi nousta yli 113 000:een ensi vuoden ja seuraavan vuoden aikana.
+
+## Joulukausi avattiin
+
+![Helsingin jouluavausta 2020 vietettiin Senaatintorilla sunnuntaina aurinkoisessa säässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11660519)
+
+Avaa kuvien katselu
+
+Helsingin joulunavauksessa oli ohjelmaa lapsille.  Kuva: Katriina Laine / Yle
+
+Suomen joulukausi on avattu taas Helsingissä. Aleksanterinkadulle sytytettiin sunnuntaina iltapäivällä jouluvalot ja Helsingin Senaatintorilla oli ohjelmaa lapsille. Senaatintorilla oli myös joulupukki. Tapahtuma näytettiin myös netissä.
+
+Helsingin joulukadun avaus tehtiin tänä vuonna vähän eri tavalla kuin aiemmin. Koronatilanteen takia ei järjestetty perinteistä paraatia.
+
+Helsingin joulukadun jouluvaloja voi käydä katsomassa tammikuun loppuun asti. Joulukadun avaus on Helsingissä perinteinen tapahtuma. Se alkoi vuonna 1949.
+
+## Sää
+
+![Lunta ja räntää auton ikkunassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7963028)
+
+Avaa kuvien katselu
+
+Pohjois-Suomessa voi sataa lunta. Kuva: Sakari Partanen / Yle
+
+Sää muuttuu alkavalla viikolla sateisemmaksi.
+
+Maanantaina taivas on välillä pilvinen ja varsinkin maan keskiosissa tulee vesisateita ja räntäsateita. Pohjoisessa sataa lunta tai vettä. Maanantain päivälämpötila vaihtelee 0 ja +5, Lapissa 0 ja -5 asteen välillä.
+
+Tiistaina sää on poutaisempi.

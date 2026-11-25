@@ -1,0 +1,82 @@
+# Perjantai 9.7.2021
+
+Paula-myrsky. Passit. Tullit. Hyttyskarkotteet. Kävely.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Paula-myrskyn tuhot
+
+![Paula-myrskyn tuhoja Taivalkoskella metsässä](https://img.img-cdn.yle.fi/crop_extract,w_960,h_540,x_0,y_49/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82733160dd66167ddeb/1625123059)
+
+Avaa kuvien katselu
+
+Paula-myrsky oli Pohjois-Suomen pahin myrsky 40 vuoteen. Kuva: Anu Suomalainen
+
+Kesäkuisen Paula-myrskyn jälkiä tutkitaan Pohjois-Suomessa helikopterista. Viimeksi tällainen metsätuho oli Pohjois-Suomessa noin 40 vuotta sitten.
+
+Metsähallitus arvioi helikopterista tuhoja Koillismaan, Kainuun ja Pohjois-Pohjanmaan metsissä.
+
+Puut valtion mailla halutaan saada hyötykäyttöön. Myrsky kaatoi enimmäkseen tukkikokoisia mäntyjä. Osa tukkipuusta päätyy sellutehtaaseen.
+
+Osa tuhoalueen puista jätetään ehkä alueelle. Silloin talousmetsiin tulee lahopuuta, joka lisää biodiversiteettiä eli luonnon monimuotoisuutta.
+
+## Passiruuhka
+
+![Suomen passi. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9608907)
+
+Avaa kuvien katselu
+
+Passia voi joutua odottamaan kauan. Kuva: Timo Jaakonaho / Lehtikuva
+
+Poliisin lupapalveluissa on ruuhkaa ainakin Pohjois-Pohjanmaalla, Kainuussa ja Itä-Suomessa.
+
+Passin ja henkilökorttien hakeminen on vilkasta, koska matkustuksen rajoituksia on vähennetty.
+
+Myös lähestyvä metsästyskausi ja yleisötilaisuuksien runsas määrä tauon jälkeen ruuhkauttavat poliisin lupapalveluja.
+
+## Halpatavaran tullit
+
+![aleksi laikari tullimies vantaa](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82981260e6b04878603/1699613658)
+
+Avaa kuvien katselu
+
+Tulli ja Posti välttivät ruuhkat. Kuva: Markku Rantala / Yle
+
+Lakimuutos kansainvälisestä verkkokaupasta ei ole tuonut Suomeen suurta pakettikaaosta.
+
+Pienetkin paketit EU:n ulkopuolelta on nyt tullattava. Niistä pitää myös maksaa arvonlisävero. Aiemmin halpatavaraa pystyi tilaamaan verottomasti.
+
+Posti ja Tulli varautuivat ruuhkiin, mutta verkkokaupat reagoivatkin uudistukseen nopeammin kuin odotettiin.
+
+## Hyväksytyt hyttyskarkotteet
+
+![Sääskiä vastaan sähköllä vai savulla?](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5582122)
+
+Avaa kuvien katselu
+
+Hyttyskarkottimissa saa käyttää vain hyväksyttyjä aineita ja valmisteita. Sen voi tarkistaa valmisteen pakkauksesta. Kuva: Jari Vesa / YLE
+
+Hyttysten torjunnassa saa käyttää vain valmisteita, jotka on hyväksytty. Näin muistuttavat Tulli sekä Turvallisuus- ja kemikaalivirasto Tukes.
+
+Tulli on ottanut alkukesän aikana haltuun noin 4 000 torjunta-ainetyynyä, joiden käyttö Suomessa on kielletty. Tyynyt ovat tulleet postilähetysten ja lentorahdin mukana.
+
+Hyttyskarkotteet ja hyttysmyrkyt vaativat Suomessa Tukesin hyväksynnän. Hyväksytyn valmisteen tunnistaa Tukesin lupanumerosta.
+
+Lisäksi pakkauksessa pitää olla ohjeet suomeksi ja ruotsiksi.
+
+## Kävelyn terveyshyödyt
+
+![Mikkelin kävelykatu](https://img.img-cdn.yle.fi/crop_extract,w_3008,h_1692,x_0,y_310/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81610160ba276cc78d1/1622812673)
+
+Avaa kuvien katselu
+
+Kävely tuo terveyshyötyjä eikä maksa mitään. Tavoite on, että lyhyet automatkat korvataan kävelyllä.  Kuva: Juho Liukkonen / Yle
+
+Suomessa halutaan edistää kävelyä. Tarkoitus on nostaa kävelyn ja pyöräilyn suosiota 30 prosenttia vuoteen 2030 mennessä.
+
+Samanlainen tavoite on kansallisessa energia- ja ilmastostrategiassa.
+
+Liikennevirasto Traficom myöntää kunnille valtionavustusta kävelyn ja pyöräilyn edistämiseen. Viime vuonna avustusta myönnettiin monille hankkeille esimerkiksi Helsingissä, Joensuussa, Jyväskylässä ja Tampereella.
+
+Kävelyn lisääminen voi tuottaa yhteensä 3,3 miljardin euron arvosta terveyshyötyjä.

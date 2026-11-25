@@ -1,0 +1,77 @@
+# Maanantai 11.9.2017 (radio)
+
+Hirmumyrsky Irma on heikentynyt, mutta ei vielä ohi. Firmoja kiinnostaa kehittää aurinkosähköä ja biokaasua. Suomen ainoa sokeritehdas tarvitsee lisää viljelijöitä. Kymmeneen kaupunkiin tulee isoja seinämaalauksia tänä syksynä. Matti Pohto oli suomenkielisen kirjallisuuden sankari, joka on unohdettu.
+
+## Hirmumyrsky Irma heikkenee
+
+![Yhdysvaltain sää- ja valtamerentutkimusorganisaation (NOAA) välittämä sateliittikuva hurrikaani Irman etenemisestä Floridan yllä 10. syyskuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9825717)
+
+Avaa kuvien katselu
+
+Satelliittikuva Irma-myrskystä Floridassa. Kuva: NOAA / EPA
+
+USA:ssa hirmumyrsky Irma on heikentynyt. Se liikkuu pohjoiseen Floridassa.  
+
+Sunnuntaina myrsky teki vielä pahaa jälkeä. Ulkona ei voinut liikkua, vesi nousi kaduille ja taloihin. Sähköt ovat poikki yli 4 miljoonasta kodista.  
+
+Ennen Floridaa Irma kulki Karibianmeren saarten yli. Esimerkiksi Kuubassa, Haitissa ja St. Martinin saaressa se kaatoi puita ja rikkoi taloja. Melkein 30 ihmistä kuoli.
+
+Irma oli yksi maailman historian kovimmista myrskyistä.
+
+## Aurinkosähkö ja biokaasu kiinnostavat
+
+![Mies tankkaa biokaasua](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9314290)
+
+Avaa kuvien katselu
+
+Biokaasua tankkiin. Kuva: Markku Ojala / AOP
+
+Uusiutuva energia, eli esimerkiksi aurinkosähkö ja biokaasu, kiinnostavat nyt firmoja.
+
+Monet firmat hakevat valtiolta rahaa, joka auttaa niitä kehittämään aurinkopaneeli- ja biokaasujärjestelmiä. Valtio antaa rahaa, koska Suomen täytyy vähentää pakokaasuja ja öljyn käyttöä.
+
+Biokaasua tehdään jätteistä ja kasveista, esimerkiksi puiden oksista. Biokaasu on suomalaista, ja siksi sen käyttö tuo myös työpaikkoja.
+
+Suomessa on noin 3 500 biokaasuautoa, Ruotsissa niitä on jo 50 000.   
+
+## Sokeritehdas tarvitsee lisää viljelijöitä
+
+![Viljelijä Matti Pere ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9824354)
+
+Avaa kuvien katselu
+
+Matti Pere aloitti sokerijuurikkaan viljelyn tänä vuonna. Kuva: Jari Kärkkäinen / Yle
+
+Suomen ainoa sokeritehdas Sucros yrittää houkutella lisää ihmisiä viljelemään sokerijuurikasta.
+
+Euroopan unioni vapauttaa sokerin tuotannon tänä syksynä, eli jokainen jäsenmaa saa tuottaa niin paljon sokeria kuin haluaa. 50 maatilaa on aloittanut sokerijuurikkaan viljelyn tänä vuonna. Sucros toivoo, että ensi vuonna uusia tiloja on 100.
+
+Jos sokerinviljelijöitä ei saada lisää, Suomen ainoa sokeritehdas joutuu ehkä lopettamaan. 
+
+## Seinämaalaukset ovat suosittuja
+
+![Millo maalaa muraalia Jyväskylässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9811496)
+
+Avaa kuvien katselu
+
+Seinämaalaus syntyy Jyväskylään. Kuva: Simo Pitkänen / Yle
+
+Kaupungeissa tehdään nyt paljon isoja seinämaalauksia. Syyskuussa seinätaidetta valmistuu yli kymmeneen kaupunkiin.
+
+Seinämaalauksia tekevät yleensä ammattitaiteilijat, ja siksi ne ovat usein parempia kuin graffitit. Seinämaalauksiin on aina lupa ja taiteilija saa niistä palkkaa.
+
+Seinämaalauksen maksaa yleensä talon omistaja. Joskus maalauksen voi maksaa esimerkiksi firma tai yhdistys.  
+
+## Kirjastojen sankari Matti Pohto
+
+![mies reppu selässä, kirja kädessä vesikelkan vieressä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9814403)
+
+Avaa kuvien katselu
+
+Matti Pohtosta ei ole yhtään valokuvaa. Taiteilija Tapani Lemminkäinen kuvitteli hänet tämän näköiseksi. Kuva: Johannes Wiehn.
+
+Matti Pohto on suomalaisen kirjallisuuden sankari, joka on unohdettu.
+
+1800-luvun alkupuolella Matti Pohto käveli tuhansia kilometrejä ympäri Suomea. Hän keräsi kirjoja. 4 000 suomenkielistä kirjaa tarvittiin niiden tilalle, jotka paloivat Suomen suurimman kirjaston mukana Turussa 190 vuotta sitten. Matti Pohto ehti kerätä melkein kaikki 4 000 kirjaa. Vain muutama puuttui, kun hän kuoli.
+
+Matti Pohto keräsi kirjoja, vaikka hän oli köyhä eikä päässyt lapsena kouluun.

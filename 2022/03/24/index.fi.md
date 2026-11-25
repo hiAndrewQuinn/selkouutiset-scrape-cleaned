@@ -1,0 +1,103 @@
+# Torstai 24.3.2022 radio)
+
+Ukrainan apu. Pakolaislapset. Korona. Ruokapakkaukset. Journalismipalkinto. Sää
+
+## Puolustustarvikkeet
+
+![Puolustusministeriön rakennus Eteläiseltä Makasiinikadulta kuvattuna](https://img.img-cdn.yle.fi/crop_extract,w_5664,h_3186,x_0,y_469/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81073460accf5137f22/1621938310)
+
+Avaa kuvien katselu
+
+Puolustusministeriön rakennus Helsingissä. Kuva: Terhi Liimu / Yle
+
+Suomi lähettää Ukrainaan lisää puolustustarvikkeita, kertoo puolustusministeriö.
+
+Ministeriö ei kerro tarkemmin avun sisällöstä, toimitustavasta tai toimituksen aikataulusta.
+
+Puolustustarvikkeiden toimittamisessa on otettu huomioon Ukrainan tarpeet sekä Suomen omat resurssit.
+
+Helmikuun lopussa Suomi lähetti Ukrainaan muun muassa 2500 rynnäkkökivääriä ja 1 500 kertasinkoa.
+
+Tänään on kulunut kuukausi siitä, kun Venäjä aloitti hyökkäyssodan Ukrainaan.
+
+## Lapset
+
+![Paljon peittoja ja patjoja käytävällä. Kaksi pikkulasta nukkumassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12363709)
+
+Avaa kuvien katselu
+
+Ukrainasta paenneet lapset nukkuivat rautatieasemalla Przemyslin rajakaupungissa Kaakkois-Puolassa. Kuva: Dominikin kuvapäiväkirja
+
+Yli puolet Ukrainan lapsista on joutunut jättämään kodin sodan aikana, kertoo YK:n lastenjärjestö Unicef. 4,3 miljoonaa lasta on nyt pakosalla.
+
+Ukrainassa oli ennen sotaa arviolta 7,5 miljoonaa lasta.
+
+YK kertoo, että 1,8 miljoonaa lasta on paennut maasta ja 2,5 miljoonaa on joutunut pakolaiseksi maan sisällä.
+
+## Korona
+
+![Rokotettavaa ainetta laitetaan ruiskun sisään.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_369/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88489561a0e8e6b8045/1637935415)
+
+Avaa kuvien katselu
+
+THL suosittaa neljättä rokotusta 80 vuotta täyttäneille ja niille, jotka asuvat hoitokodeissa.  Kuva: AFP
+
+Koronaepidemia ei vielä hellitä Suomessa. Asiasta kertovat sosiaali- ja terveysministeriö sekä Terveyden ja hyvinvoinnin laitos THL.
+
+Sairaalahoidossa on edelleen paljon koronapotilaita ja tehohoidon tarve on pysynyt korkealla.
+
+Ylilääkäri Otto Helve kertoo, että uudet laajat rajoitukset eivät kuitenkaan ole ajankohtaisia.
+
+THL suosittaa nyt, että kunnat tarjoavat neljättä rokotusta 80 vuotta täyttäneille ja niille, jotka asuvat hoitokodeissa.
+
+## Ruokapakkaukset
+
+![Ostoskärryt, missä on muunmuasa maitopurkki, leipää, munia ja nyhtökaurapakkaus](https://img.img-cdn.yle.fi/crop_extract,w_3024,h_1701,x_0,y_607/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90525161ed7cbcc4f81/1642954040)
+
+Avaa kuvien katselu
+
+Ruokaviraston mukaan elintarviketurvallisuus ei saa vaarantua, vaikka pakkausmerkinnöistä voidaan joustaa. Kuva: Outi Parikka / Yle
+
+Ruokavirasto myöntää helpotuksia elintarvikkeiden pakkausmerkintöihin. Syy ovat saatavuusongelmat, jotka johtuvat sodasta Ukrainassa.
+
+Pakkausmerkinnät eivät välttämättä täysin kerro sitä, mitä elintarvike sisältää.
+
+Helpotuksien takia valmiit pakkausmateriaalit eivät mene hukkaan.
+
+## Selkosanomat
+
+![Selkosanomat- ja Lätta bladet-lehdet vierekkäin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12374315)
+
+Avaa kuvien katselu
+
+Kuva: Tommi Pylkkö / Yle, lähde: Selkosanomat
+
+Sanomalehti Selkosanomat ja sen ruotsinkielinen versio Lätta bladet ovat saaneet Salli-journalistipalkinnon. Palkinto myönnettiin lehti- ja verkkouudistuksesta.
+
+Tavoite on parempi saavutettavuus.
+
+Uudistus tehtiin yhteistyössä Metropolia-ammattikorkeakoulun opiskelijoiden kanssa.
+
+Salli-journalistipalkinnon myönsi Helsingin Seudun Journalistit ry.
+
+Palkinto on 1500 euroa.
+
+![palkinnonluovutus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12374268)
+
+Avaa kuvien katselu
+
+Kaisa Kaatra (Selkosanomat), , Maria Österlund (Lätta bladet), Tea Siren (Metropolia AMK/opiskelija), Petri Kiuttu (Selkosanomat), Tuomas Aatola (Metropolia AMK). Kuva: Helsingin Seudun Journalistit
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12375102)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Perjantaina Keski- ja Pohjois-Suomessa sataa paljon lunta.
+
+Etelässä voi sataa vähän vettä, mutta enimmäkseen on poutaa eli ei sada.
+
+Pohjoisessa on vähän pakkasta, mutta etelässä on 10 astetta lämmintä.

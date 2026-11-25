@@ -1,0 +1,65 @@
+# Keskiviikko 5.2.2020 (radio)
+
+Presidentti Sauli Niinistö tuomitsee rasismin ja juutalaisvihan. Hallitus aikoo muuttaa perhevapaita. Koronapotilas pääsi pois Lapin keskussairaalasta. Keskiviikkona oli Runebergin päivä.
+
+## Presidentti tuomitsi rasismin
+
+![Presidentti Sauli Niinistön puhui valtiopäivien avajaisissa eduskunnan istuntosalissa Helsingissä 5. helmikuuta 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11193558)
+
+Avaa kuvien katselu
+
+Presidentti puhui eduskunnassa keskiviikkona. Kuva: Emmi Korhonen / Lehtikuva
+
+Presidentti Sauli Niinistö tuomitsee rasismin ja antisemitismin eli juutalaisvihan.
+
+Niinistö on huolissaan siitä, että rasistisia puheita kuulee myös Suomessa. Presidentti sanoo, että rasismilla ja juutalaisvihalla ei ole paikkaa Suomessa.
+
+Niinistö puhui asiasta eduskunnassa, jossa hän avasi eduskunnan työkauden. Eduskunta aloitti tämän vuoden työt virallisesti keskiviikkona.
+
+## Perhevapaita tulee lisää
+
+![Mies kantaa vauvaa sylissään rappukäytävässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11185775)
+
+Avaa kuvien katselu
+
+Hallitus toivoo, että isät viettävät enemmän aikaa lasten kanssa. Kuva: Tiina Jutila / Yle
+
+Hallitus aikoo muuttaa perhevapaita. Hallituksen tavoite on, että isät viettävät enemmän aikaa lasten kanssa kuin nykyään.
+
+Siksi hallitus suunnittelee, että perhevapaita tulee lisää. Molemmat vanhemmat eli äiti ja isä saavat perhevapaita noin 7 kuukautta.
+
+Toinen vanhemmista voi tosin antaa omista perhevapaista 69 päivää toiselle vanhemmalle. Lisäksi synnyttäjä saa kuukauden vapaajakson ennen vanhempainvapaata.
+
+Jos suunnitelmasta tulee totta, perhevapaat muuttuvat ensi vuonna tai sen jälkeen.
+
+## Koronapotilas pääsi sairaalasta
+
+![Lapin Keskussairaala Rovaniemellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11183230)
+
+Avaa kuvien katselu
+
+Lapin keskussairaala Rovaniemellä. Kuva: Laura Haapamäki / Lehtikuva
+
+Suomen ainoa koronapotilas on päässyt pois sairaalasta.
+
+Potilas on kiinalainen nainen, joka tuli lomalle Suomen Lappiin. Nainen joutui Lapin keskussairaalaan, kun hän sairastui koronavirukseen.
+
+Sairaala kertoi keskiviikkona, että nainen on parantunut. Naisella ei ole enää koronaviruksen oireita, ja hän on hyvässä kunnossa. Siksi hän sai lähteä pois sairaalasta.
+
+Nainen on kotoisin kiinalaisesta Wuhanin kaupungista. Uudenlainen koronavirus alkoi levitä juuri Wuhanista joulukuussa.
+
+Koronaviruksen on saanut jo noin 25 000 ihmistä. Yli 400 ihmistä on kuollut koronaviruksen takia.
+
+## Runebergin päivää vietettiin
+
+![Kansalliskirjailija Johan Ludvig Runebergin patsas Pietarsaaressa, missä perhe asui vuosia.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6389745e3aae6d8724d/1580905816)
+
+Avaa kuvien katselu
+
+Johan Ludvig Runeberg on Suomen kansallisrunoilija. Kuva: Raila Paavola / Yle
+
+Keskiviikkona on vietetty Runebergin päivää. Runebergin päivä on aina helmikuun 5. päivä, koska se on kirjailija Johan Ludvig Runebergin syntymäpäivä. Runeberg syntyi helmikuun 5. päivä vuonna 1804.
+
+Johan Ludvig Runeberg on Suomen kansallisrunoilija. Esimerkiksi Suomen kansallislaulun sanat ovat Runebergin kirjasta Vänrikki Stålin tarinat. Laulun nimi on suomeksi Maamme ja ruotsiksi Vårt land. Runeberg kirjoitti ruotsin kielellä.
+
+Keskiviikkona jaettiin myös Runeberg-kirjallisuuspalkinto. Palkinnon sai tänä vuonna Ralf Andtbacka. Palkinto on jaettu joka vuosi yli 30 vuoden ajan. Palkinto on 20 000 euroa.

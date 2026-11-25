@@ -1,0 +1,89 @@
+# Keskiviikko 16.9.2020 (radio)
+
+Suomen valtion budjetti. Korona vaarallinen vanhuksille. Koronavilkku. Oleskeluluvat. Säätietoja myrskystä.
+
+## Suomen valtio lainaa paljon rahaa
+
+![Opetusministeri Li Andersson, sisäministeri Maria Ohisalo, pääministeri Sanna Marin, tiede- ja kulttuuriministeri Annika Saarikko ja oikeusministeri Anna-Maja Henriksson hallituksen talousarvioneuvottelujen tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11548038)
+
+Avaa kuvien katselu
+
+Hallitus kertoi budjettiehdotuksesta iltapäivällä. Kuva: Markku Ulander / Lehtikuva
+
+Suomen hallitus on saanut valmiiksi ehdotuksen siitä, miten valtio käyttää rahaa ensi vuonna.
+
+Valtion ensi vuoden budjetti eli talousarvio on 10,7 miljardia alijäämäinen eli menoja on paljon enemmän kuin tuloja.
+
+Siksi Suomen valtio joutuu lainaamaan paljon rahaa.
+
+Koronaepidemian hoitaminen vie paljon valtion rahoja. Koronatestien tekemiseen on varattu ensi vuodeksi rahaa 1,4 miljardia euroa.
+
+Summalla voidaan tehdä 30 000 testiä joka päivä.
+
+## Korona on vaarallisempi kuin influenssa
+
+![Henkilö niistää nenäänsä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5097473)
+
+Avaa kuvien katselu
+
+Koronavirus on vanhuksille vaarallisempi kuin tavallinen influenssa, muistuttavat terveysviranomaiset. Kuva: Arja Lento / Yle
+
+Suomen terveysviranomaiset muistuttavat, että koronavirus on vanhuksille vaarallisempi kuin tavallinen influenssa.
+
+Koronaviruksen takia on nyt syksyllä joutunut vähemmän ihmisiä kuin keväällä. Koronavirus ei kuitenkaan ole heikentynyt, terveysviranomaiset sanovat.
+
+Suomessa on tänään todettu 25 uutta koronatartuntaa.
+
+## Koronavilkku on suosittu
+
+![Henkilön kädessä puhelin jossa koronavilkku sovellus.](https://img.img-cdn.yle.fi/crop_extract,w_5178,h_2913,x_0,y_421/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7141595f4e35d8dc7ef/1654083412)
+
+Avaa kuvien katselu
+
+Koronavilkku on ilmainen sovellus puhelimeen. Kuva: Henrietta Hassinen / Yle
+
+2 miljoonaa suomalaista on ladannut Koronavilkun.
+
+Koronavilkku on puhelinsovellus, joka kertoo, jos puhelimen käyttäjä on ehkä altistunut koronavirukselle.
+
+Koronavilkun avulla voidaan jäljittää koronaviruksen tartuntaketjuja.
+
+## Oleskeluluvan saaminen kestää kauan
+
+![Työmiehiä rakennustyömaalla](https://img.img-cdn.yle.fi/crop_extract,w_4705,h_2647,x_855,y_365/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5752935d1dae864c8db/1562226703)
+
+Avaa kuvien katselu
+
+Rakennusalalla tarvitaan työntekijöitä ulkomailta. Kuva: Karoliina Simoinen / Yle
+
+Suomi tarvitsee työvoimaa ja Suomen hallitus haluaa, että myös ulkomailta muuttaa Suomeen ihmisiä töihin.
+
+Suomeen muuttaminen on kuitenkin vaikeaa, koska oleskeluluvan saaminen kestää kauan.
+
+Suomen viranomaisten tavoite on, että ihminen saa oleskeluluvan kuukaudessa, jos hän tulee Suomeen töihin.
+
+Käsittelyaika on kuitenkin keskimäärin 3 kuukautta.
+
+Esimerkiksi rakennusfirmat haluavat työntekijöitä ulkomailta.
+
+Mutta se on vaikeaa, kun oleskeluluvan saaminen kestää niin kauan. Maahanmuuttovirasto Migri toivoo, että se saa lisää henkilökuntaa tekemään oleskelulupapäätöksiä.
+
+## Syysmyrsky koettelee Suomea
+
+![Tuuli pieksi Helsingin Eiranrantaa 26. syyskuuta 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11547315)
+
+Avaa kuvien katselu
+
+Tänään keskiviikkona ja huomenna torstaina tuulee kovaa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Vielä säätietoja.
+
+Syysmyrsky koettelee Suomea ensi yön ja huomisen torstain aikana.
+
+Varsinkin Keski- ja Etelä-Suomessa tuuli on kovaa ja puuskaista.
+
+Huomenna torstaina maan itäosassa sataa paljon.
+
+Myrskytuuli voi kaataa paljon puita, koska maa on vielä pehmeä.
+
+Yleensä rajut myrskyt tulevat Suomeen vasta marras- ja joulukuussa.

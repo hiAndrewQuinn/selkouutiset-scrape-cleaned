@@ -1,0 +1,93 @@
+# Sunnuntai 2.4.2023 (radio)
+
+Eduskuntavaalit. Äänestysprosentti. Kokkolan ampumistapaus. USA:n tornadot. Palmusunnuntai. Sää.
+
+## Eduskuntavaalit
+
+![Petteri Orpo nostaa käden pystyyn.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690199)
+
+Avaa kuvien katselu
+
+Kokoomuksen puheenjohtaja Petteri Orpo oli iloinen vaalivoitosta. Kuva: Lehtikuva / Antti Aimo-Koivisto
+
+Sunnuntai on ollut Suomessa vaalipäivä. 
+
+Suomalaiset ovat äänestäneet eduskuntavaaleissa. Eduskuntaan valitaan 200 kansanedustajaa.
+
+Vaalien tulos on melko tasainen. Isojen puolueiden välillä ei ole suuria eroja.
+
+Eniten ääniä saivat kokoomus, perussuomalaiset ja SDP. Jokainen niistä sai noin 20 prosenttia äänistä.
+
+Kokoomus ja perussuomalaiset saavat eniten kansanedustajia uuteen eduskuntaan. Ne ovat nyt oppositiopuolueita, eli ne eivät ole hallituksessa.
+
+Pääministeri Sanna Marinin puolue SDP on uudessa eduskunnassa kolmanneksi suurin puolue. Näyttää siis siltä, että Suomen hallitus vaihtuu.
+
+Puolueet alkavat neuvotella uudesta hallituksesta heti vaalien jälkeen. Neuvotteluja johtaa kokoomus, koska se on uuden eduskunnan suurin puolue.
+
+## Äänestysprosentti
+
+![Käsi panee vaalilipun vaaliuurnaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690200)
+
+Avaa kuvien katselu
+
+Kuva: Mikko Ahmajärvi / Yle
+
+Suomalaiset äänestivät näissä eduskuntavaaleissa melkein yhtä ahkerasti kuin edellisissä eduskuntavaaleissa 4 vuotta sitten.
+
+Äänestämässä kävi noin 72 prosenttia suomalaisista, joilla on äänioikeus.
+
+## Kokkolan ampumistapaus
+
+![Poliisiauton kylki, jossa Poliisi -teksti.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-101827063403b725239e/1669795506)
+
+Avaa kuvien katselu
+
+Kuva: Matias Väänänen / Yle
+
+Vielä lyhyesti muita uutisia. 
+
+Länsi-Suomessa Kokkolassa on ollut ampumistapaus.
+
+Ampumisessa kuoli 1 ihminen. Poliisi kertoo, että häntä ammuttiin autosta Kokkolan keskustassa sunnuntaina.
+
+Poliisi on ottanut kiinni 2 ihmistä.
+
+## USA:n tornadot
+
+![Auto, joka on mennyt rikki myrskyssä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690201)
+
+Avaa kuvien katselu
+
+Tornadot ovat tehneet paljon vahinkoja USA:ssa. Kuva: Peter Zay / AOP
+
+USA:ssa on ollut tornadoja eli pyörremyrskyjä. Tornadoja on ollut monta kymmentä viikonlopun aikana.
+
+Melkein 30 ihmistä on kuollut tornadojen takia. Loukkaantuneita on paljon.
+
+Tornadokausi alkaa USA:ssa huhtikuussa. Tornadoja syntyy ukkosmyrskyissä, joita USA:ssa on ollut tänä vuonna paljon.
+
+## Palmusunnuntai
+
+![Lapsia pääsiäisasuissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690202)
+
+Avaa kuvien katselu
+
+Palmusunnuntain virpojia. Kuva: Sasha Silvala / Yle
+
+Suomessa on vietetty palmusunnuntaita. Palmusunnuntain suomalainen perinne on virpominen. 
+
+Virpojat ovat lapsia, jotka kulkevat esimerkiksi pääsiäisnoidan asussa ja virpovat pajunoksilla sukulaisia ja naapureita. Virpojat antavat pajunoksia ja saavat palkaksi esimerkiksi suklaamunia.
+
+Palmusunnuntaita vietetään viikko ennen pääsiäistä.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690203)
+
+Avaa kuvien katselu
+
+Sää on viikon alussa poutainen, eli vettä tai lunta ei sada. Aurinko paistaa suuressa osassa maata.
+
+Yöt ovat kylmiä, mutta päivällä lämpötila nousee vähän plussan puolelle koko maassa.
+
+Viikon lopussa sää lämpenee lisää, ja pääsiäistä vietetään keväisessä säässä.

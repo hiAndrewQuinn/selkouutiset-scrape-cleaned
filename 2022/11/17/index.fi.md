@@ -1,0 +1,69 @@
+# Torstai 17.11.2022 (radio)
+
+Hallitus veti pois monia lakiesityksiä. Saamelaiskäräjälaki menee eduskuntaan. Suomen talouskasvu voi pysähtyä. Sianlihan kulutus kasvaa. Sääennuste.
+
+## Hallituksen riidat lakiesityksistä
+
+![Pääministeri Sanna Marin ja valtiovarainministeri Annika Saarikko eduskunnassa 9.11.2022](https://img.img-cdn.yle.fi/crop_extract,w_4503,h_2533,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1032611636d11dcabd19/1669920935)
+
+Avaa kuvien katselu
+
+SDP:n puheenjohtaja Sanna Marin ja keskustan puheenjohtaja Annika Saarikko ovat olleet eri mieltä hallituksen lakiehdotuksista.  Kuva: Pekka Tynell / Yle
+
+Hallitus on päässyt sopuun riidassa lakiesityksistä. Hallituksessa on ollut riitaa monista lakiesityksistä. Koska hallitus ei päässyt sopuun kaikista lakiesityksistä, hallitus ei vie kaikkia lakiesityksiä eduskuntaan. 
+
+Pois jäävät esimerkiksi lakiesitykset arvonnousuverosta, työttömyysturvan euroistamisesta, alueellisesta opintolainan hyvityksestä tai ruuhkamaksuista. 
+
+Hallituksen piti antaa viimeistään torstaina kaikki loput lakiesitykset, että eduskunta ehtii käsitellä ne ennen vaalikauden loppua. 
+
+## Saamelaiskäräjälaki
+
+![Ihmisiä seuraamassa kyselytuntia.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1035567637650673cdcd/1668698464)
+
+Avaa kuvien katselu
+
+Saamelaiskäräjälaista keskustellaan ehkä paljon eduskunnassa. Kuva: Silja Viitala / Yle
+
+Hallitus vie eduskuntaan lakiehdotuksen saamelaiskäräjälaista. Saamelaiskärjälaista on ollut hallituksessa iso riita. 
+
+Hallituksen enemmistö kuitenkin päätti, että lakiehdotus annetaan eduskunnalle. Hallituksen äänestyksessä 11 ministeriä kannatti, että laki viedään eduskuntaan. Vastaan äänesti 3 keskustan ministeriä. 
+
+Saamelaiskärjälain tarkoitus on lisätä saamelaisten itsemääräämisoikeutta. Vielä ei tiedetä, saako laki tarpeeksi kannatusta eduskunnassa.
+
+## Suomen talous
+
+![kaupan hyllyväli](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_114/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97323862b1cb69cc9f3/1655819774)
+
+Avaa kuvien katselu
+
+Hintojen nousu lisää epäluottamusta talouteen. Kuva: Susanna Pesonen / Yle
+
+Kansainvälinen valuuttarahasto IMF arvioi Suomen taloustilannetta. IMF sanoo, että Suomen talouskasvu ehkä pysähtyy ensi vuonna. Syy on sota Ukrainassa. 
+
+Sota lisää monia riskejä. Ihmiset ja firmat ovat varovaisia. Siksi talouskasvu hidastuu.
+
+Kansainvälinen valuuttarahasto IMF sanoo, että Suomen hallitus on hoitanut hyvin koronatilannetta. Nopea hintojen nousu eli inflaatio pienentää kuitenkin ihmisten ostovoimaa. Se vähentää luottamusta talouteen, koska ihmiset ostavat vähemmän palveluita ja tavaroita. 
+
+## Sianlihan kulutus
+
+![Råa köttbullar i en stekpanna. ](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_258/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4748275abbbe2d76f31/1522253590)
+
+Avaa kuvien katselu
+
+Myös jauhelihan kulutus lisääntyy, koska jauheliha on edullista. Kuva: Mostphotos 
+
+Sianlihan kulutus on kasvanut Suomessa. Sianlihan kulutus alkoi kasvaa kesällä. Syy on ruuan hinnan kallistuminen. Sianliha on halvempaa kuin naudanliha. Siksi ihmiset ovat alkaneet ostaa enemmän sianlihaa ja vähemmän naudanlihaa. 
+
+Luonnonvarakeskus kertoo, että lihan kokonaiskulutus ei ole kasvanut paljon, mutta ihmiset ovat alkaneet ostaa edullisempaa lihaa. Siksi myös jauhelihan kulutus on kasvanut.
+
+Maataloudessa on vaikeaa, koska hinnat nousevat. Myös sikatiloilla on vaikeaa. Suomen Sikayrittäjät -yhdistys arvioi, että tänä vuonna noin 10 prosenttia sikatiloista lopettaa toiminnan tänä vuonna. 
+
+## Sää
+
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12678542)
+
+Avaa kuvien katselu
+
+Sää on melko viileää.
+
+Perjantaina suuressa osassa maata on pilvistä. Lapissa voi paistaa aurinko. Lämpötila on 0 ja -7 asteen välillä, Lapissa -10 ja -20 asteen välillä.

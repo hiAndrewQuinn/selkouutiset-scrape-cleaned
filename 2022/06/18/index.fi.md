@@ -1,0 +1,89 @@
+# Lauantai 18.6.2022
+
+Ukrainalaisten kuljetukset. Liike Nyt. Jukolan viesti. Hyttysaika. Sää.
+
+TV:n selkouutisilla on kesätauko 12.8. asti. Lue ja kuuntele radiolähetys tästä.
+
+## Ukrainalaisten kuljetukset
+
+![Valkoisia pikkubusseja jonossa, kaksi maastopukuista miestä aseet kädessä.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_178/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97122162ab38b18e23a/1655388737)
+
+Avaa kuvien katselu
+
+Pikkubussit vievät ihmisiä leirille. Monen ukrainalaisen matka jatkuu leiriltä vankilaan. Kuva: All Over Press
+
+Venäjä on vienyt ihmisiä Ukrainasta Venäjälle. Ehkä yli miljoona ukrainalaista on viety Venäjälle ilman omaa tahtoa.
+
+Monet ukrainalaiset ovat joutuneet ensin leirille. Leireillä venäläiset ovat päättäneet, ketkä ukrainalaisista joutuvat vankilaan.
+
+Leireillä ukrainalaisia on myös kidutettu. Näin kertovat ukrainalaiset, jotka ovat paenneet Venäjältä.
+
+Venäjä sanoo, että se ei ole vienyt ihmisiä pakolla pois Ukrainasta. Venäjä sanoo, että se on vienyt noin miljoona ukrainalaista turvaan Venäjälle.
+
+Lue asiasta lisää Ylen yleiskielisiltä sivuilta.
+
+## Liike Nyt
+
+![Puheenjohtaja ja Liike Nyt:in perustaja Hjallis Harkimo Liike Nyt:in puoluekokouksessa Bankissa Helsingissä 18.06.2022.](https://img.img-cdn.yle.fi/crop_extract,w_4956,h_2787,x_1,y_63/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97199862adc4469781e/1668007344)
+
+Avaa kuvien katselu
+
+Liike Nytin puheenjohtaja Harry Harkimo. Kuva: Jorma Vihtonen / Yle
+
+Liike Nyt pitää puoluekokousta viikonloppuna.
+
+Liike Nyt perustettiin vuonna 2019. Puolueessa on 1000 jäsentä.
+
+Puoluekokous valitsi Harry Harkimon jatkamaan puheenjohtajan tehtävässä.
+
+Lisäksi puoluekokous päätti, että Harkimo on myös puolueen presidenttiehdokas. Suomessa on presidentinvaalit seuraavan kerran vuonna 2024.
+
+## Jukolan ja Venlojen viestit
+
+![Venlojen viestin lähtö kuvassa.](https://img.img-cdn.yle.fi/crop_extract,w_3726,h_2086,x_0,y_388/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97195062adb7eee3190/1655889333)
+
+Avaa kuvien katselu
+
+Venlojen viestin lähtö. Mukana on monta joukkuetta. Kuva: Tomi Hänninen
+
+Viikonloppuna järjestetään tämän vuoden Jukolan viesti. Jukolan viesti on maailman suurin viestisuunnistuskilpailu.
+
+Mukana on tällä kertaa 3000 joukkuetta 16 maasta. Kilpailijoita on yhteensä 17 000.
+
+Kilpailijat suunnistavat tänä vuonna Mynämäen metsissä Länsi-Suomessa.
+
+Naisten kilpailu eli Venlojen viesti juostiin lauantaina päivällä. Kilpailun 3 parasta joukkuetta tulivat Ruotsista.
+
+Miesten kilpailu eli Jukolan viesti juostaan lauantain ja sunnuntain välisenä yönä. Joukkueet tulevat maaliin sunnuntaina aamulla.
+
+## Hyttyset
+
+![Lähikuva hyttysestä kädellä, Jollaksen räme, 4.6.2019.](https://img.img-cdn.yle.fi/crop_extract,w_4349,h_2446,x_0,y_170/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5704195d0202b56e319/1593936744)
+
+Avaa kuvien katselu
+
+Hyttynen imee verta ihmisen ihosta. Kuva: Jari Kovalainen / Yle
+
+Suomessa on hyttysaika. Tosi pieniä hyttysiä voi nyt lentää ilmassa paljon.
+
+Hyttyset häiritsevät ihmisten ulkoilua, koska ne yrittävät imeä ihmisen ihosta verta.
+
+Tänä vuonna hyttysaika on ehkä pitempi kuin tavallisesti, koska sää on ollut viileä.
+
+Etelä- ja Keski-Suomessa hyttysiä on eniten juuri nyt eli kesäkuun puolivälistä juhannukseen asti. Juhannusta vietetään viikon kuluttua. Pohjoisessa hyttysiä on eniten juhannuksesta heinäkuun puoliväliin asti.
+
+Hyttysiä liikkuu eniten kauniissa säässä. Sateessa, tuulessa ja viileässä säässä hyttysiä on vähemmän.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12500555)
+
+Avaa kuvien katselu
+
+Viikonloppu on suuressa osassa maata sateinen.
+
+Sunnuntaina sadetta ja ukkosta saadaan eniten Keski-Suomessa.
+
+Lämpötila on pohjoisessa alle 15 astetta ja etelässä melkein 20 astetta.
+
+Maanantaina sateet loppuvat ja sää lämpenee.

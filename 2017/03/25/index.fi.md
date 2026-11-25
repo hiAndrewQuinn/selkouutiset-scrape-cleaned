@@ -1,0 +1,69 @@
+# Lauantai 25.03.2017 (radio)
+
+Lauantaina on Earth Hour -tapahtuma. Euroopan unioni on täyttänyt 60 vuotta. Viime vuoden paras suomalainen elokuva on "Hymyilevä mies". Sunnuntaina alkaa kesäaika. Sunnuntai on lämmin ja tuulinen päivä.
+
+## Earth Hour
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5257265"
+
+Avaa kuvien katselu
+
+Ympäristöjärjestö WWF järjestää Earth Hour -tapahtuman. Kuva: WWF
+
+Lauantaina vietetään Earth Hour -tapahtumaa. Se on ilmastotapahtuma, jonka aikana valot sammutetaan tunniksi kello 20.30. Valot sammuvat esimerkiksi Helsingin Finlandia-talosta, Jyväskylän Vesilinnasta ja Turun jokivarresta.
+
+Earth Hour -tapahtuman järjestäjä on ympäristöjärjestö WWF. Se toivoo, että Earth Hour saa ihmiset ajattelemaan ympäristöä. Yksi teema on tänä vuonna ruoka. Esimerkiksi lihan kasvattaminen rasittaa ympäristöä.
+
+Earth Hour -tapahtumaa vietetään joka puolella maailmaa. Valot sammuvat esimerkiksi Eiffel-tornista Pariisissa.
+
+## Euroopan unioni
+
+![Juha Sipilä allekirjoittamassa julistusta Roomassa lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9530550)
+
+Avaa kuvien katselu
+
+Myös Suomen pääministeri Juha Sipilä osallistui EU:n juhliiin Roomassa. Kuva: Tiziana Fabi / AFP
+
+Euroopan unioni on täyttänyt 60 vuotta. Euroopan unionin kehittyminen alkoi, kun 6 maata allekirjoitti Rooman sopimuksen vuonna 1957. Nykyään Euroopan unionissa on mukana 28 maata.
+
+EU-maiden johtajat juhlivat unionin syntymäpäivää lauantaina Roomassa. Juhlassa olivat mukana kaikkien EU-maiden johtajat, paitsi Britannian pääministeri Theresa May. May ei osallistunut juhlaan, koska Britannia aikoo erota EU:sta.
+
+## Jussi-palkinnot
+
+![Parhaan miespääosan Jussi-patsaan vastaanotti Jarkko Lahti elokuvasta Hymyilevä mies](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9530063)
+
+Avaa kuvien katselu
+
+Näyttelijä Jarkko Lahti sai Jussi-palkinnon.  Kuva: Markku Ulander / Lehtikuva
+
+Viime vuoden parhaat suomalaiset elokuvat on valittu. Niille annettiin Jussi-palkintoja. Jussi on Suomen Oscar.
+
+Viime vuoden paras suomalainen elokuva on "Hymyilevä mies". Elokuva kertoo oikeasta tapahtumasta vuonna 1962. Silloin nyrkkeilijä Olli Mäki pääsi nyrkkeilemään siitä, tuleeko hänestä maailmanmestari. Mäki epäonnistui ja hävisi, mutta se oli Mäen elämän onnellisin päivä. Syynä oli rakkaus.
+
+"Hymyilevä mies" sai yhteensä 8 Jussi-palkintoa. Palkinto annettiin esimerkiksi elokuvan ohjaajalle Juho Kuosmaselle ja näyttelijä Jarkko Lahdelle, joka esittää elokuvassa Olli Mäkeä.
+
+## Kesäaika
+
+![Kuvassa havainnollistetaan kesäaikaan siirtyminen kellon viisarein. Kello kolmelta aamuyöllä kelloja siirretään tunnin verran eteenpäin. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7891779)
+
+Avaa kuvien katselu
+
+Sunnuntaina aamu tulee nopeasti, kun tunti kello 3:n ja 4:n välilä hypätään yli. Kuva: Anssi Leppänen / Yle
+
+Sunnuntaina alkaa kesäaika.
+
+Lauantain ja sunnuntain välisenä yönä kelloja siirretään tunti eteenpäin. Tunti kello 3:n ja kello 4:n välillä hypätään yli. Tämän takia yöjunat ja yöbussit ovat sunnuntaiaamuna tunnin myöhässä.
+
+Takaisin normaaliaikaan eli talviaikaan siirrytään lokakuun viimeisenä sunnuntaina.
+
+## Talvinen sää
+
+![Sää pilviä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9529734)
+
+Avaa kuvien katselu
+
+Talvi väistyy vähitellen. Kuva: Derrick Frilund / Yle
+
+Sunnuntai on lämmin ja tuulinen päivä. Etelässä lämpötila voi nousta noin 10 asteeseen, mutta kovan tuulen takia ilma ei tunnu lämpimältä.
+
+Ylen meteorologi Kerttu Kotakorpi kertoo, että ensi viikolla lämpötila taas laskee ja sää on vielä melko talvinen.

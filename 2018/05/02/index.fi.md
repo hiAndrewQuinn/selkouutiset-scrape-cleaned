@@ -1,0 +1,77 @@
+# Keskiviikko 2.5.2018 (radio)
+
+Syyttäjä vaatii rangaistusta 3 poliisijohtajalle. Monet ihmiset hengittävät likaista ilmaa. Ruokatarvikkeiden vienti Suomesta Aasiaan kasvaa. Viikonloppuna on kaunis ja kesäinen sää.
+
+## Poliisijohtajat
+
+![Kuvassa vasemmalta lukien poliisiylijohtaja Mikko Paatero, Helsingin poliisilaitoksen poliisipäällikkö Lasse Aapio ja Helsingin poliisikomentaja Jukka Riikonen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9885425)
+
+Avaa kuvien katselu
+
+Mikko Paatero, Lasse Aapio ja Jukka Riikonen ovat poliisipomoja, joille syyttäjä vaatii rangaistusta. Kuva: AOP ja Yle 
+
+Syyttäjä vaatii rangaistusta 3 poliisijohtajalle. Syyttäjä sanoo, että johtajat eivät ole valvoneet huumepoliisin toimintaa.
+
+Syyttäjän mielestä huumepoliisi ei hoitanut oikein rekisteriä tietolähteistä. Tietolähteet ovat ihmisiä, joilta huumepoliisi saa tietoja. Syyttäjän mielestä he voivat olla vaarassa poliisin huonon työn takia. Siksi oikeuden pitää rangaista poliisijohtajia, syyttäjä sanoo.
+
+Poliisijohtajat ovat itse sitä mieltä, että he eivät ole tehneet rikosta.
+
+## Ilmansaasteet
+
+![Pekingiläiset käyttävät hengityssuojaimia suojautuakseen savusumulta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8494109)
+
+Avaa kuvien katselu
+
+Esimerkiksi Pekingissä ilma on usein likaista. Kuva: Mika Mäkeläinen / Yle
+
+Monet ihmiset hengittävät likaista ilmaa. Maailman terveysjärjestö WHO sanoo, että 90 prosenttia maailman ihmisistä hengittää ilmansaasteita.
+
+Esimerkiksi autot ja tehtaat saastuttavat ilmaa joka puolella maailmaa. Myös kodin sisällä ilma voi olla likaista, jos perhe esimerkiksi käyttää hiiltä polttoaineena ruuanlaitossa.
+
+Ilmansaasteet aiheuttavat ihmisille esimerkiksi sydänsairauksia ja keuhkosairauksia. WHO arvioi, että joka vuosi noin 7 miljoonaa ihmistä kuolee ilmansaasteiden takia.
+
+Ilmansaasteet ovat suurin ongelma Afrikassa ja Aasiassa.
+
+## Ruokavienti
+
+![kananmunia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10184532)
+
+Avaa kuvien katselu
+
+Suomalainen ruoka on puhdasta. Kuva: Petra Ristola / Yle
+
+Suomesta viedään ruokatarvikkeita Aasiaan enemmän kuin ennen.
+
+Esimerkiksi Munax-firma alkaa viedä kananmunia Japaniin ja Hongkongiin.
+
+Aasialaiset ovat kiinnostuneet suomalaisista munista ja muista ruokatarvikkeista, koska ne ovat puhtaita. Niissä ei ole salmonellaa tai muita vaarallisia bakteereja.
+
+Suomalaisista ruokatarvikkeista ei löydy myöskään antibiootteja, koska Suomessa antibiootteja ei lisätä eläinten ruokaan.
+
+## Sää
+
+![kevätaurinko paistaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10158566)
+
+Avaa kuvien katselu
+
+Viikonlopusta voi tulla kesäisen kaunis. Kuva: Tommi Parkkinen /Yle
+
+Viikonloppuna alkaa ehkä kesä.
+
+Ylen meteorologi Toni Hellinen kertoo, että Suomeen virtaa lauantaina lämmintä ilmaa. Sunnuntaina sää lämpenee lisää.
+
+Etelä-Suomessa lämpötila voi nousta lähelle 20 astetta. Aivan pohjoisessa lämpötila on viikonloppuna noin 10 astetta.
+
+## Puhdistuspalveluala
+
+![Nainen siivoaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10187792)
+
+Avaa kuvien katselu
+
+Pattaravadee Jylkkä opiskelee puhdistuspalvelualaa Luksiassa. Kuva: Yle
+
+Kerrotaan vielä, että selkouutisten nettisivuilla jatkuu videosarja, jonka selkouutiset on tehnyt yhdessä Luksian ammatillisen koulutuksen opiskelijoiden kanssa.
+
+Sarja esittelee eri koulutusaloja. Nyt on julkaistu sarjan viimeinen video. Se kertoo puhdistuspalvelualasta.
+
+Videot löytyvät selkouutisten nettisivuilta, osoitteesta yle.fi/selkouutiset.

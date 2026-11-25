@@ -1,0 +1,81 @@
+# Maanantai 13.3.2023 (radio)
+
+Energiakriisi. Alkoholipolitiikka. Suomen isoin kala. Oscarit. Sää.
+
+## Sähkön hinta
+
+![Sähkölinjoja. Kuvituskuva.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1034319637381dca9a1a/1668541425)
+
+Avaa kuvien katselu
+
+Sähkö oli tosi kallista viime vuoden jälkipuoliskolla. Kuva: Matias Väänänen / Yle
+
+Energiakriisi on tullut kalliiksi suomalaisille sähkönkuluttajille. 
+
+Tutkijat laskevat, että viime vuoden jälkipuoliskolla suomalaiset maksoivat sähköstä ehkä noin 5 miljardia euroa enemmän kuin tavallisesti.
+
+Tutkijat laskivat energiakriisin hintaa suomalaisille, kun Ylen MOT-toimitus pyysi sitä.
+
+Aalto-yliopiston professori Peter Lund sanoo, että sähköfirmat hyötyivät energiakriisistä. Vaikka sähkön myyntihinta nousi, sen tuottaminen maksoi saman verran kuin ennenkin. Sähköfirmat saivat siis energiakriisistä isot voitot.
+
+Energiateollisuus sanoo, että asiantuntijoiden laskelmat jättivoitoista eivät ole totta. Energiateollisuus sanoo, että sähköfirmojen voitot eivät ole viittä miljardia, vaan ehkä noin miljardi euroa.
+
+## Alkoholipolitiikka
+
+![Alkon myymälän sisällä on hyllyssä punaviinipulloja, rivi jatkuu pitkänä. Kuvan tarkennus on lähimmissä olevissa pulloissa. Lähimpien pullojen kaarevista pinnoista erottuu sanat ATLANTICO ja ESPORAO. ATLANTICON hinta on 11.43 euroa.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6635445e8f22bc47c61/1726031270)
+
+Avaa kuvien katselu
+
+Viinipulloja Alkon hyllyssä. Kuva: Retu Liikanen / Yle
+
+Noin puolet suomalaisista ovat tyytyväisiä nykyiseen alkoholipolitiikkaan. 
+
+Terveyden ja hyvinvoinnin laitoksen kyselyssä 53 prosenttia sanoo, että nykyiset rajoitukset ovat sopivia.
+
+Liki puolet vastaajista haluaa, että ruokakaupoissa voidaan myydä myös viiniä. Valtaosa vastaajista ei kuitenkaan halua voimakkaita alkoholijuomia ruokakauppoihin.
+
+THL:n kyselyyn vastasi tammikuussa noin tuhat yli 18-vuotiasta suomalaista.
+
+## Suomen isoin kala
+
+![Kuollut turska](https://img.img-cdn.yle.fi/crop_extract,w_2554,h_1436,x_0,y_607/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1084159640ed7618a786/1678694329)
+
+Avaa kuvien katselu
+
+Suomen suurin kala painoi perkaamisen jälkeen liki 30 kiloa. Kuva: Patrik Lundin / Lehtikuva
+
+Ahvenanmaalla on pyydetty ennätyssuuri kala. 
+
+Viime toukokuussa tosi iso turska ui verkkoon Ahvenanmaalla. Turska oli 141 senttimetriä pitkä ja se painoi melkein 30 kiloa. Turska punnittiin perattuna, joten sen oikea paino oli vieläkin isompi.
+
+Kalatalouden keskusliitto kertoo, että turska merkittiin ennätyskalarekisteriin Suomen suurimmaksi kalaksi.
+
+## Oscar-palkinnot
+
+![Michelle Yeoh.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_83/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1084107640e9a14ded1a/1678679478)
+
+Avaa kuvien katselu
+
+Michelle Yeoh sai Oscar-palkinnon parhaasta naispääosasta. Kuva: Kevin Winter / AFP
+
+Yhdysvalloissa on jaettu elokuva-alan Oscar-palkintoja. 
+
+Eniten Oscar-palkintoja sai elokuva nimeltä Everything Everywhere All at Once. Se sai yhteensä 7 Oscar-palkintoa.
+
+Elokuva palkittiin esimerkiksi parhaasta ohjauksesta, parhaasta naispääosasta ja parhaista sivuosista. Se palkittiin myös vuoden parhaana elokuvana.
+
+## Tiistain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689839)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää lauhtuu ja muuttuu sateiseksi. 
+
+Tiistaina etelässä sataa vettä tai räntää. Muualla maassa sataa lunta.
+
+Lämpötila on päivällä nollan ja +6 asteen välillä, pohjoisessa -10 ja +1 asteen välillä.
+
+Ajokeli on huomenna huono melkein koko maassa ja Etelä-Suomessa erittäin huono.

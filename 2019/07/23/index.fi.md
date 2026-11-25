@@ -1,0 +1,83 @@
+# Tiistai 23.7.2019 (radio)
+
+Boris Johnsonista tulee Britannian uusi pääministeri. Työllisyys paranee nyt hitaasti. Peräseinäjoella sattui paha liikenneonnettomuus. Kesäkuun liikennetilasto on synkkä. Vadelmasadosta on tulossa erittäin hyvä.
+
+## Boris Johnsonista tulee Britannian pääministeri
+
+![Boris Johnson pitämässä puhetta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10888358)
+
+Avaa kuvien katselu
+
+Boris Johnsonista tulee Britannian uusi pääministeri. Kuva: Neil Hall / EPA
+
+Britanniassa konservatiivipuolue on saanut uuden johtajan. Hän on entinen ulkoministeri ja Lontoon pormestari Boris Johnson.
+
+Johnsonista tulee myös pääministeri. Hän on luvannut saattaa britit ulos EU:sta lokakuun lopussa vaikka ilman sopimusta.
+
+Johnson sai kaksi kolmasosaa puolueen jäsenten äänistä. Hän voitti vastaehdokas Jeremy Huntin selvästi.
+
+Johnson nimitetään pääministeriksi virallisesti keskiviikkona. Sitä ennen nykyinen pääministeri Theresa May esittää eronpyynnön kuningatar Elisabeth II:lle.
+
+Väistyvä Theresa May onnitteli Johnsonia sosiaalisessa mediassa.
+
+## Työllisyys paranee hitaasti
+
+![Mies työskentelee tehtaassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10824119)
+
+Avaa kuvien katselu
+
+Kuva: Jyrki Lyytikkä / Yle
+
+Työllisyys paranee nyt hitaasti. Tilastokeskus kertoo, että työllisyysasteen trendi oli kesäkuussa 72,5 prosenttia. Trendi on luku, josta on suljettu pois vaihtelu.
+
+Käytännössä työllisyystilanne on pysynyt samana koko alkuvuoden.
+
+Työttömyysaste oli kesäkuussa 6,5 prosenttia eli sama kuin toukokuussa.
+
+Työttömiä oli silti 16 000 vähemmän kuin viime vuoden kesäkuussa.
+
+## Peräseinäjoella oli liikenneonnettomuus
+
+![Peräseinäjoen turmapaikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10889527)
+
+Avaa kuvien katselu
+
+Onnettomuuspaikalla on mutka, jossa on 60 km/h nopeusrajoitus. Kuva: Anne Elhaimer / Yle
+
+Peräseinäjoella Etelä-Pohjanmaalla sattui tiistaiaamuna paha liikenneonnettomuus. Pikkubussin ja henkilöauton kolarissa oli 11 ihmistä.
+
+Törmäys oli nokkakolari, ja nopeus oli kova.
+
+Useita ihmisiä loukkaantui vakavasti ja osa lievästi. Pikkubussin kyydissä oli thaimaalaisia marjanpoimijoita. Paikalle tarvittiin monta ambulanssia ja lääkärihelikopteri.
+
+Henkilöauton kuljettajaa epäillään törkeästä rattijuopumuksesta.
+
+## Liikenteessä on kuollut paljon ihmisiä kesällä
+
+![Kuorma-auto ohittaa kolaripaikan, jossa yksi ihminen kuoli ja kolme loukkaantui vakavasti kahden henkilöauton rajussa nokkakolarissa 13. kesäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10836838)
+
+Avaa kuvien katselu
+
+Kuorma-auto ohittaa kolaripaikan, jossa yksi ihminen kuoli ja kolme loukkaantui vakavasti kahden henkilöauton rajussa nokkakolarissa 13. kesäkuuta. Kuva: Kalle Parkkinen / Lehtikuva
+
+Liikenteessä kuoli kesäkuussa enemmän ihmisiä kuin viime vuonna samaan aikaan. T
+
+ilastokeskus kertoo, että liikenteessä kuoli 24 ja loukkaantui 504 ihmistä. Kuolleita oli 15 enemmän kuin viime vuoden kesäkuussa. Loukkaantuneita oli 36 vähemmän.
+
+Suurin osa kuolonuhreista oli liikkeellä henkilöautolla.
+
+## Vadelmalla on hyvä sato
+
+![Lähikuva vadelmasta ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9755339)
+
+Avaa kuvien katselu
+
+Vadelma selvisi hyvin talvesta ja kukinnasta ja tuottaa nyt hyvän sadon. Kuva: Heli Pirinen
+
+Vadelmasadosta on tulossa erittäin hyvä. Hedelmän- ja Marjanviljelijäin liitto kertoo, että vadelma selvisi talvesta hyvin. Myös kesän kukinta onnistui.
+
+Lisäksi pensasmustikan sadosta odotetaan hyvää. Pensasmustikan keruu on käynnistymässä koko maassa.
+
+Luonnonvarakeskus Luke on arvioinut, että metsämustikan sadosta tulee korkeintaan keskinkertainen. Pensasmustikka ja metsämustikka ovat eri lajeja.
+
+Puolukkasadosta sen sijaan odotetaan hyvää.

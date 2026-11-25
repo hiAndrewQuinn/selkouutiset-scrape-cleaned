@@ -1,0 +1,77 @@
+# Torstai 5.11.2020 (radio)
+
+USA:ssa lasketaan presidentinvaalien ääniä. Teräsfirma Outokumpu vähentää työntekijöitä. VR aikoo lomauttaa työntekijöitä. Kirjallisuuden Finlandia-palkintoehdokkaat on julkistettu. Opaskoirille tarvitaan hoitoperheitä.
+
+## USA:ssa lasketaan ääniä
+
+![Ääntenlaskijoita Pennsylvaniassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11631335)
+
+Avaa kuvien katselu
+
+Ääntenlaskijoilla on ollut paljon työtä. Kuva: Spencer Platt / AFP
+
+USA:ssa lasketaan presidentinvaalien ääniä. Johdossa on demokraattien ehdokas Joe Biden.
+
+Republikaanien ehdokas, presidentti Donald Trump kuitenkin epäilee vaalien rehellisyyttä. Demokraatit yrittävät estää Trumpin voiton postiäänten avulla, sanoo Trump.
+
+Monet amerikkalaiset äänestivät postissa jo ennen vaalipäivää koronan takia. Siksi äänten laskeminen myös kestää kauan.
+
+Vaalitulos voi selvitä pian, mutta vaalituloksesta riidellään ehkä pitkään.
+
+## Outokumpu vähentää työntekijöitä
+
+![Outokummun Tornion tehtaat. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10860849)
+
+Avaa kuvien katselu
+
+Outokummun tehdasalue Torniossa. Kuva: Antti Heikinmatti / Yle
+
+Teräsfirma Outokumpu vähentää työntekijöitä. Outokumpu on suomalainen firma, mutta se toimii monessa maassa.
+
+Outokumpu aikoo nyt vähentää työntekijöitä Suomessa, Ruotsissa ja Saksassa. Suomessa Outokumpu aikoo vähentää 270 työntekijää.
+
+Outokumpu sanoo, että koronatilanne on vaikeuttanut metallialan myyntiä. Siksi Outokumpu aikoo säästää rahaa niin, että se vähentää työntekijöitä.
+
+Outokummulla on esimerkiksi terästehdas Torniossa, Pohjois-Suomessa. Tehtaan työntekijät ovat surullisia Outokummun suunnitelmasta vähentää työntekijöitä.
+
+## VR lomauttaa työntekijöitä
+
+![Pendolino junaradalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10366536)
+
+Avaa kuvien katselu
+
+VR on menettänyt matkustajia koronan takia. Kuva: Soile Laaksonen / VR Group
+
+VR aikoo lomauttaa työntekijöitä ensi vuonna. Lomautuksen aikana työntekijällä ei ole työtehtäviä, eikä hän saa palkkaa.
+
+VR lomauttaa ehkä 4000 työntekijää. Lomautus voi kestää esimerkiksi 3 kuukautta.
+
+VR sanoo, että lomautusten syy on koronavirus. Koronan takia VR:llä on nyt paljon vähemmän matkustajia kuin tavallisesti.
+
+## Finlandia-ehdokkaat julkistettiin
+
+![Anne Vuori-Kemilä, Tommi Kinnunen, Anni Kytömäki, Heikki Kännö, Ritva Hellsten, Ann-Luise Bertell](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11631858)
+
+Avaa kuvien katselu
+
+Tässä ovat kirjailijat, joiden kirjat ovat Finlandia-ehdokkaina: Anne Vuori-Kemilä, Tommi Kinnunen, Anni Kytömäki, Heikki Kännö, Ritva Hellsten ja Ann-Luise Bertell. Kuva: Karisto, Joonas Brandt, Anniina Mannila, Helena Kulmala, Aviador, Niklas Sandström
+
+Kaunokirjallisuuden Finlandia-palkintoehdokkaat on julkistettu. Ehdokkaina on 6 kirjaa. Raati valitsi ehdokkaat 150 kirjan joukosta.
+
+Kapellimestari Hannu Lintu valitsee lopullisen voittajan. Marraskuun 25. päivä kerrotaan, mikä kirja voittaa Finlandian.
+
+Finlandia-palkinto on Suomen tärkein kirjallisuuspalkinto. Se jaetaan joka vuosi. Palkinnon arvo on 30 000 euroa.
+
+## Opaskoirat tarvitsevat hoitoperheitä
+
+![Jamppa Mikkola ja opaskoira Vilka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10942536)
+
+Avaa kuvien katselu
+
+Opaskoira on tärkeä apu näkövammaiselle. Kuva: Juulia Tillaeus / Yle
+
+Kerrotaan vielä, että opaskoirille tarvitaan hoitoperheitä. Opaskoiran tehtävä on auttaa näkövammaista ihmistä.
+
+Ensimmäisen vuoden tuleva opaskoira elää hoitoperheessä, jossa se tottuu ihmisiin. Sen jälkeen alkaa varsinainen koulutus opaskoiran tehtävään.
+
+Hoitoperheitä on kuitenkin vaikea löytää, koska monien on vaikea luopua koirasta vuoden yhdessäolon jälkeen.

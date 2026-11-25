@@ -1,0 +1,71 @@
+# Tiistai 13.9.2022 (radio)
+
+Hallituksen sisäinen kiista. S-pankin verkkopankin häiriö. Eläkerahojen arvo. Tytöt tytöt tytöt -elokuva. Sääennuste.
+
+## Potilasturvallisuuslaki
+
+![Sanna Marin talade inför EU-parlamentet i Strasbourg den 13.9.2022](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_344/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1007185632065a06e34f/1663067604)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin.  Kuva: Â© European Union 2022 - Source : EP
+
+Hallituksessa on kiistaa potilasturvallisuuslaista. Hallitus on tehnyt lakiesityksen, jolla hoitajien lakko-oikeutta voidaan rajoittaa. Tarkoitus on varmistaa potilaiden turvallisuus teho-osastoilla.
+
+Hallituspuolue vasemmistoliitto on sanonut, että vasemmistoliitto ei äänestä lain puolesta. Vasemmistoliitto ei tykkää, että lakko-oikeutta rajoitetaan.
+
+Pääministeri Sanna Marin puhui tiistaina asiasta. Marin sanoo, että hallituksen ministerien pitää äänestää hallituksen esityksen puolesta.
+
+Hoitajajärjestöt ovat antaneet 5 lakkovaroitusta eri teho-osastoille ja vanhusten kotihoitoon.
+
+## Häiriö S-Pankin verkkopankissa
+
+![S-pankin logo.](https://img.img-cdn.yle.fi/crop_extract,w_4128,h_2322,x_0,y_65/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4812325ae087afccd79/1697607990)
+
+Avaa kuvien katselu
+
+S-pankin verkkopankin häiriö on korjattu.  Kuva: Anna Savonius / Yle
+
+S-Pankin verkkopankissa on ollut vakava häiriö. Häiriön takia sadat S-Pankin asiakkaat pääsivät kirjautumaan toisten asiakkaiden verkkopankkiin.
+
+Häiriö kesti yli 3 kuukautta. Muutamat ihmiset käyttivät häiriötä väärin. He esimerkiksi maksoivat toisen ihmisen tililtä omia maksuja.
+
+S-Pankki huomasi häiriön elokuun alussa. Häiriö on nyt korjattu. S-Pankki on ilmoittanut ongelmasta niille asiakkaille, joiden tilejä ongelma koski. S-Pankki on tehnyt asiasta poliisille tutkintapyynnön.
+
+## Eläkerahojen arvo
+
+![Vanhus rollaattorin kanssa](https://img.img-cdn.yle.fi/crop_extract,w_6016,h_3384,x_0,y_630/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-7891558dd401a061e8/1579152448)
+
+Avaa kuvien katselu
+
+Pörssikurssien lasku on vienyt paljon rahaa eläkefirmojen eläkerahoista. Kuva: Henrietta Hassinen / Yle
+
+Eläkerahojen arvo on laskenut nopeasti paljon. Eläkerahat on sijoitettu rahastoihin. Tavalliseti rahasto tuottaa lisää rahaa. Tänä vuonna rahastoissa on tullut tappiota eli arvot ovat laskeneet.
+
+Eläkerahaston arvosta on kadonnut 9 miljardia euroa huhti-kesäkuussa. Syy on se, että monien osakkeiden arvot ovat laskeneet. Työeläkefirmoja valvoo Finanssivalvonta. Finanssivalvonta sanoo, että tilanne ei ole vielä huolestuttava.
+
+Eläkefirmat haluavat lisätä osakesijoituksia, koska pitkän ajan kuluttua osakesijoitukset ovat yleensä tuottaneet hyvin. Suomessa toivotaan, että eläkerahastojen arvot nousevat uudelleen.
+
+## Tytöt tytöt tytöt -elokuva
+
+![Naurava tyttö.](https://img.img-cdn.yle.fi/crop_extract,w_4666,h_2624,x_0,y_311/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-935977624585679ac8e/1648723998)
+
+Avaa kuvien katselu
+
+Linnea Leino esittää taitoluistelijaa Tytöt tytöt tytöt -elokuvassa. Kuva: Ilkka Saastamoinen
+
+Elokuva *Tytöt tytöt tytöt* on valittu Suomen ehdokkaaksi parhaan kansainvälisen elokuvan Oscar-palkintoon.
+
+Elokuva kertoo kolmesta tytöstä, aikuisuuden alussa, tyttöjen suhteista ja rakkauksista. Tytöt tytöt tytöt -elokuvan on ohjannut **Alli Haapasalo**.
+
+Suomen Oscar-ehdokkaan valitse elokuva-ammattilaisten raati. Lopulliset Oscar-ehdokkuudet julkaistaan tammikuussa. Oscar-gaala on maaliskuussa.
+
+## Sää
+
+![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12622211)
+
+Avaa kuvien katselu
+
+Keskiviikkona tulee sateita, mutta sää on melko lämmin vaikka on syksy.
+
+Keskiviikkona päivällä sataa vettä maan länsi- ja pohjoisosissa. Idässä on poutaisempaa, mutta myös idässä tulee sadekuuroja. Lämpötila on enimmäkseen 11 ja 14 asteen välillä. Pohjois-Lapissa on kylmempää.

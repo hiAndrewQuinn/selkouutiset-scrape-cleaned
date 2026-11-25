@@ -1,0 +1,79 @@
+# Keskiviikko 12.12.2018 (radio)
+
+Strasbourgissa tapahtui terrori-isku. Liikenteen päästöjä pitää vähentää. Mielenosoituksista pitää ilmoittaa poliisille nykyistä aiemmin. Natsilippujen takavarikosta on tehty useita kanteluita. Suomalaiset ovat kielitaitoisia.
+
+## Asemies iski Strasbourgin joulutorille
+
+![Ranskalainen poliisi seisoo vartiossa Strasbourgissa tiistai-iltana 11. joulukuuta. Takana monivärinen joulukuusi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10550061)
+
+Avaa kuvien katselu
+
+Poliisi seisoo vartiossa Strasbourgissa Kuva: Sebastien Bozon / AFP
+
+Strasbourgissa Ranskassa on tapahtunut terroriteko.
+
+Mies hyökkäsi tiistai-iltana väkijoukkoon ja ampui ainakin 2 ihmistä kuoliaaksi. Lisäksi 12 ihmistä haavoittui. Heistä 6 on haavoittunut vakavasti.
+
+Hyökkäys tapahtui lähellä Strasbourgin joulutoria.
+
+Ampuja pääsi pakoon iskun jälkeen. Hän on poliisin vanha tuttu useista pienistä rikoksista. Poliisi myös tiesi, että ampuja oli radikalisoitunut, kun hän oli aiemmin vankilassa.
+
+Rajatarkastuksia Ranskan ja Saksan rajalla on kiristetty. Myös joulutorien turvajärjestelyjä Ranskassa on kiristety.
+
+## Liikenteen päästöt voidaan poistaa
+
+![liikenneruuhkaa ruoholahdessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10228439)
+
+Avaa kuvien katselu
+
+20 prosenttia Suomen päästöistä tulee liikenteestä. Kuva: Esko Jämsä / AOP
+
+Liikenne- ja viestintäministeriön työryhmä on miettinyt, miten Suomi voi vähentää liikenteen päästöjä.
+
+Työryhmä sanoo, että Suomen on mahdollista poistaa liikenteen päästöt kokonaan vuoteen 2045 mennessä. Se vaatii kuitenkin, että isoja päätöksiä tehdään nopeasti.
+
+Työryhmä ehdottaa esimerkiksi tiemaksuja isoihin kaupunkeihin ja polttoaineveron nostamista. Nykyisten autojen pitää vaihtua sähköautoihin ja biokaasuautoihin. Lisäksi joukkoliikenneyhteyksiä pitää parantaa.
+
+Suomen päästöistä 20 prosenttia tulee liikenteestä.
+
+## Kokoontumislakia halutaan muuttaa
+
+![Antti Häkkänen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9856009)
+
+Avaa kuvien katselu
+
+Oikeusministeri Antti Häkkänen. Kuva: Petteri Sopanen / Yle
+
+Hallitus haluaa muuttaa kokoontumislakia niin, että mielenosoituksista pitää ilmoittaa poliisille 24 tuntia etukäteen.
+
+Nykyisen lain mukaan mielenosoituksen järjestäjän pitää tehdä poliisille ilmoitus mielenosoituksesta 6 tuntia ennen sen alkamista.
+
+Oikeusministeri Antti Häkkänen sanoo, että ilmoitusaikaa pitää pidentää siksi, että poliisi ehtii paikalle varmistamaan kaikkien turvallisuuden.
+
+## Natsilippujen takavarikosta kanteluita
+
+![Poliisit poistivat hakaristiliput mielenosoittajilta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10542614)
+
+Avaa kuvien katselu
+
+Poliisi takavarikoi uusnatsien hakaristiliput itsenäisyyspäivänä. Kuva: Martti Kainulainen / Lehtikuva
+
+Helsingin poliisista on tehty useita kanteluita. Kantelut koskevat hakaristilippujen takavarikkoa, jonka poliisi teki uusnatsien marssilla itsenäisyyspäivänä.
+
+4 yksityishenkilöä pyytää tutkimaan poliisin toiminnan lainmukaisuutta.
+
+Kanteluissa sanotaan, että poliisi toimi väärin, kun se takavarikoi liput, sillä natsitunnusten käyttöä ei ole kielletty Suomessa.
+
+## Suomalaiset ovat kielitaitoisia
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286492"
+
+Avaa kuvien katselu
+
+Suurin osa suomalaisista osaa ainakin yhtä vierasta kieltä. Kuva: YLE / Eeva Huovinen
+
+Melkein jokainen työikäinen suomalainen osaa vähintään yhtä vierasta kieltä.
+
+93 prosenttia työikäisistä suomalaisista sanoo, että osaa jotain vierasta kieltä.Määrä on sama kuin 5 vuotta sitten.
+
+20 viime vuoden kuluessa eniten kielitaitoaan ovat parantaneet pelkän peruskoulun käyneet ihmiset.

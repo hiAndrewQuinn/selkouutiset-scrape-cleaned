@@ -1,0 +1,81 @@
+# Torstai 7.4.2022 (radio)
+
+Puoluekannatus. Maakaasu. Teleoperaattorit. Finlandia-talo. Sää.
+
+## Puoluekannatus
+
+![Puoluekannatus: Kok: 26,1%, SDP. 19,0 %, PS 13,6 %](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12393625)
+
+Avaa kuvien katselu
+
+Kokoomus on saanut Ylen kannatuskyselyssä ennätyslukeman. Oppositiopuolue kokoomuksen kannatus oli 26,1 prosenttia. Toisena oli hallituspuolue SDP, 19 prosenttia.
+
+Oppositiopuolue perussuomalaisten kannatus oli 13,6 prosenttia. Hallituspuolue keskustan kannatus oli 12,3.
+
+Kaikista puolueista vain kokoomuksen ja SDP:n kannatus nousi.
+
+Kokoomuksen nousun taustalla on turvallisuuspolitiikan muutos. Puolustusliitto Natoon liittymisen kannatus on noussut. Kokoomus on Suomen Nato-myönteisin puolue.
+
+Vihreiden kannatus oli 8,9 ja vasemmistoliiton 8,4 prosenttia. Molemmat ovat hallituksessa.
+
+Muiden puolueiden kannatusluvut ovat Ylen nettisivulla.
+
+## Nesteytetty maakaasu
+
+![Haminan LNG-termiinaali. Taustalla kaasun varastosäiliö.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_312/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-92958762333ba1bf73f/1647524900)
+
+Avaa kuvien katselu
+
+Haminan LNG-terminaali. Taustalla kaasun varastosäiliö. Kuva: Esa Syväkuru / Yle
+
+Suomi vuokraa Viron kanssa yhteisen kelluvan LNG-kaasuterminaalin. LNG-laiva on tarkoitettu nestemäisen maakaasun varastointiin.
+
+Laiva vähentää Suomen riippuvuutta venäläisestä putkikaasusta. Kelluva LNG-terminaali auttaa muun muassa teollisuutta saamaan kaasua.
+
+Se on tarkoitus sijoittaa ensi talveksi Viron Paldiskiin ja myöhemmin Etelä-Suomeen.
+
+## Teleoperaattorit
+
+![Näyttökuva mobiilimaksuinfo-sivulta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10924803)
+
+Avaa kuvien katselu
+
+Näyttökuva mobiilimaksuinfo.fi-sivustolta Kuva: Näyttökuva mobiilimaksuinfo.fi-sivustolta
+
+Teleoperaattorit DNA ja Elisa kertovat Ylelle, että ne ovat varautuneet kyberhyökkäyksiin.
+
+Palvelunestohyökkäyksiä on nähty muun muassa pankeissa sen jälkeen, kun Venäjä hyökkäsi Ukrainaan. Palvelunestohyökkäyksessä esimerkiksi verkkopankki ei ole toiminut normaalisti.
+
+Teleoperaattori Elisa kertoo, että tilannetta seurataan aiempaa tehokkaammin.
+
+## Finlandia-talon lamput
+
+![Finlandia-talo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10376496)
+
+Avaa kuvien katselu
+
+Kuva: Pete Laakso
+
+Helsingin Finlandia-talon 2700 valaisinta entisöidään. Valaisimet entisöi valaisinpaja Fasetti oy Hollolassa.
+
+Finlandia-talon suuri perusparannus alkoi helmikuussa. Valaisinten entisöinti kestää pari vuotta.
+
+Valaisimissa pyritään säilyttämään patina, joka on tullut niihin vuosikymmenien aikana.
+
+Valaisinten tekniikka uusitaan, ja polttimoiksi vaihdetaan led-lamput.
+
+Arkkitehti Alvar Aalto suunnitteli Finlandia-taloon useita uniikkeja eli ainutlaatuisia valaisimia.
+
+Finlandia-talo valmistui vuonna 1971.
+
+Finlandia-talo on myös suosittu nähtävyys. Tuhannet matkailijat eri puolilta maailmaa tutustuvat taloon joka vuosi.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12396014)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Runsaita sateita leviää yöllä etelästä. Lännessä sataa yöllä paljon lunta ja ajokeli on hyvin huono. Perjantaina päivällä sataa lunta pohjoisessa. Muualla sateet ovat vettä. Lämpötila on pohjoisessa nollan vaiheilla, muualla on muutama plusaste.

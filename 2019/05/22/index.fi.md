@@ -1,0 +1,75 @@
+# Keskiviikko 22.5.2019 (radio)
+
+Hallitusneuvottelut tarvitsevat lisää aikaa. Perheiden määrä vähenee Suomessa. Eurovaalien ennakkoäänestys loppui. Myös kesätöissä tarvitaan verokorttia. Suomessa on saatu ukkossateita.
+
+## Hallitusneuvottelut
+
+![Antti Rinne median haastateltavana Säätytalossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10795015)
+
+Avaa kuvien katselu
+
+Antti Rinne kertoi toimittajille, miten hallitusneuvottelut sujuvat. Kuva: Lauri Heikkinen / valtioneuvoston kanslia
+
+Hallitusneuvottelut tarvitsevat lisää aikaa. Neuvotteluja johtaa SDP:n puoluejohtaja Antti Rinne.
+
+Rinne sanoo, että neuvotteluille tarvitaan ehkä 2 päivää lisäaikaa. Rinteen suunnitelma oli, että neuvottelijat saavat työn valmiiksi perjantaina.
+
+Neuvottelijat yrittävät sopia Suomen uudesta hallituksesta. Heidän pitää sopia, mitä uusi hallitus tekee ja mihin hallitus käyttää rahaa.
+
+Rinne sanoo, että keskustelut talous- ja veroasioista ovat vielä kesken.
+
+Neuvotteluissa on mukana 5 puoluetta. Jos neuvottelut onnistuvat, ne pääsevät hallitukseen ja Antti Rinteestä tulee Suomen uusi pääministeri.
+
+## Perheet
+
+![isä ja lapsi seurasaaren sillalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10795411)
+
+Avaa kuvien katselu
+
+Lapsiperheitä on Suomessa vähemmän kuin ennen. Kuva: AOP
+
+Perheiden määrä vähenee Suomessa. Viime vuonna perheiden määrä väheni 2800 perheellä. Näin kertoo Tilastokeskus.
+
+Myös lapsiperheitä on vähemmän kuin ennen. Vain lapsettomien parien määrä Suomessa kasvaa. Suomessa on nyt enemmän pareja, joilla ei ole yhtään lasta.
+
+## Eurovaalit
+
+![Eurovaalien ennakkoäänestyspaikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10794072)
+
+Avaa kuvien katselu
+
+Eurovaalien ennakkoäänestys loppui, mutta varsinainen äänestyspäivä on sunnuntaina. Kuva: Toni Pitkänen / Yle
+
+Eurovaalien ennakkoäänestys loppui eilen tiistaina. Noin 900 000 suomalaista äänesti ennakkoäänestyksen aikana.
+
+Varsinainen vaalipäivä on sunnuntai, 26. päivä toukokuuta. Eurovaalit järjestetään kaikissa Euroopan unionin maissa.
+
+EU-maiden kansalaiset valitsevat edustajat Euroopan parlamenttiin. Parlamentissa on yli 750 edustajaa. Suomalaiset valitsevat Euroopan parlamenttiin 13 edustajaa.
+
+## Verokortti
+
+![Verokortti ennakonpidätysprosentti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10006997)
+
+Avaa kuvien katselu
+
+Verokortti kertoo, paljonko pitää maksaa veroa. Kuva: Derrick Frilund / Yle
+
+Myös kesätöissä tarvitaan verokorttia. Verohallinto muistuttaa nuoria, että työntekijällä pitää olla verokortti myös lyhytaikaisissa töissä.
+
+Verokortin ei tarvitse enää olla paperilla. Työntekijä voi näyttää verokortin myös esimerkiksi puhelimen näytöltä.
+
+Verokortin näyttäminen kannattaa. Jos verokorttia ei näytä, palkasta otetaan 60 prosenttia veroa.
+
+Veroasioista löytyy tietoa netistä. Verokampus.fi on nuorten oma tietopankki veroasioista.
+
+## Ukkonen
+
+![Salamoita taivaalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10792685)
+
+Avaa kuvien katselu
+
+Salamat ja vesisade kuuluvat ukkoseen. Kuva: Leonid Tit / AOP
+
+Suomessa on ollut keskiviikkona ukkossateita. Keski-Suomessa ukkonen oli kova.
+
+Esimerkiksi Jyväskylässä sadevesi nousi kaduille. Myös moniin rakennuksiin pääsi vettä. Vettä pääsi esimerkiksi Jyväskylän Torikeskukseen.

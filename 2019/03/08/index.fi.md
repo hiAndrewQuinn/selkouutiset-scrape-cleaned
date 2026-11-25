@@ -1,0 +1,7 @@
+# Perjantai 8.3.2019 (tv)
+
+Suomen hallitus erosi, koska sote-uudistus kaatui. Soten kaatuminen varmistui perjantaiaamuna. Suomenruotsalaiset ovat elämään tyytyväisiä. Tänään on kansainvälinen naistenpäivä. Sää kylmenee.
+
+Yle Uutiset selkosuomeksi 
+
+Suomen hallitus erosi, koska sote-uudistus kaatui. Soten kaatuminen varmistui perjantaiaamuna. Suomenruotsalaiset ovat elämään tyytyväisiä. Tänään on kansainvälinen naistenpäivä. Sää kylmenee.

@@ -1,0 +1,81 @@
+# Torstai 26.8.2021 (radio)
+
+Kabulissa on räjähtänyt. Uusia koronatartuntoja on vähemmän kuin aikaisemmin. Suomalaiset matkustivat kesällä paljon kotimaassa. Sää on huomenna aurinkoinen.
+
+## Kabulissa räjähdys
+
+![Ilmakuva Kabulista.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8467946127a2a02593c/1629987529)
+
+Avaa kuvien katselu
+
+Tämä ilmakuva Hamid Karzain lentoasemasta on otettu 23. elokuuta. Kuva: Maxar Technologies
+
+Afganistanissa Kabulin lentokentän lähellä on räjähtänyt. Räjähdys oli iso. Räjähdys oli todennäköisesti terrori-isku.
+
+Useita ihmisiä kuoli räjähdyksessä. Puolustusministeriö kertoo, että suomalaisia ei kuollut tai loukkaantunut.
+
+Useat maat varoittivat jo aikaisemmin, että Kabulin lentokentälle suunnitellaan terrori-iskuja. Lentokentän lähellä on paljon ihmisiä, jotka yrittävät päästä pois Afganistanista.
+
+## Evakuoinnit Afganistanista
+
+![Ihmisiä saatettiin evakuointilennolle Kabulin lentoasemalla tiistaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12071662)
+
+Avaa kuvien katselu
+
+Ihmisiä saatettiin evakuointilennolle Kabulin lentoasemalla tiistaina. Kuva: AOP
+
+Kabulista haettiin keskiviikkona Suomeen 51 ihmistä. Afganistanista on evakuoitu Suomeen nyt yhteensä lähes 340 ihmistä, kertoo ulkoministeriö.
+
+Ylen tiedot kertovat, että Suomi lopettaa evakuoinnit Afganistanista perjantaina. Moni maa on jo lopettanut ihmisten evakuoinnin.
+
+## Koronatartunnat
+
+![Koronatestausta auton ikkunasta käsin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12070500)
+
+Avaa kuvien katselu
+
+Koronatestausta auton ikkunasta. Kuva: Antti Eintola / Yle
+
+Uusia koronatartuntoja on Suomessa vähemmän kuin aikaisemmin. Viranomainen kertoo, että uudet tartunnat ovat vähentyneet tällä viikolla lähes kaiken ikäisillä ihmisillä.
+
+Viime viikolla uusia koronatartuntoja oli noin 800 vähemmän kuin viikkoa aikaisemmin. Torstaina Suomessa oli 650 uutta koronatartuntaa.
+
+Koronarokotteen 1. annoksen on nyt saanut noin 71 prosenttia Suomen ihmisistä.
+
+## Matkailu kotimaassa
+
+![Ihmisiä lautalla Nauvossa matkalle Seilin saarelle.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83166660eea51fbbf62/1626713997)
+
+Avaa kuvien katselu
+
+Matkailijoita menossa Seilin saarelle kesäkuussa 2021. Kuva: Henrietta Hassinen / Yle
+
+Suomalaiset matkustivat heinäkuussa kotimaassa enemmän kuin koskaan ennen. Ihmiset nukkuivat yön Suomen hotelleissa ja mökeissä heinäkuussa yli 3,3 miljoonaa kertaa. Tämä on 2 prosenttia enemmän kuin 2 vuotta sitten.
+
+Ulkomaalaisten turistien määrä Suomessa vähentyi paljon koronan takia. Ulkomaalaisia turisteja oli Suomessa heinäkuussa 77 prosenttia vähemmän kuin 2 vuotta aiemmin.
+
+## Gunilla Bergström
+
+![Mikko Mallikas -kirjojen tekijä Gunilla Bergström.](https://img.img-cdn.yle.fi/crop_extract,w_4368,h_2457,x_0,y_123/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-84647961274bad4b1af/1629965315)
+
+Avaa kuvien katselu
+
+Mikko Mallikas -kirjojen tekijä Gunilla Bergström. Kuva: Seppo Samuli / Lehtikuva
+
+Ruotsalainen kirjailija Gunilla Bergström on kuollut. Hän oli 79-vuotias.
+
+Bergström kirjoitti kirjoja lapsille. Monissa Bergströmin kirjoissa seikkailee Mikko Mallikas. Mikko Mallikas on myös monen tv-sarjan ja näytelmän päähenkilö.
+
+Gunilla Bergström kirjoitti myös muita satukirjoja.
+
+## Sää
+
+![Nainen istuu kallioilla ja katsoo kohti järveä. ](https://img.img-cdn.yle.fi/crop_extract,w_5997,h_3373,x_0,y_450/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-84653361276433bc42a/1629971682)
+
+Avaa kuvien katselu
+
+Retkeilijä ihaili maisemaa Olhavanvuorella Repovedellä viime viikolla. Kuva: Benjamin Suomela / Yle
+
+Sää on perjantaina aurinkoinen melkein koko maassa. Vain etelässä sää on pilvinen. Etelässä sataa ehkä välillä vähän vettä.
+
+Sää myös lämpenee. Päivällä lämmintä on ainakin 14 astetta. Paikoin lämpötila nousee 20 asteen lähelle.

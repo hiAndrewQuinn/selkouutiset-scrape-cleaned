@@ -1,0 +1,79 @@
+# Radio Selkouutiset perjantai 21.7.2023
+
+Lintuinfluenssa. Riikka Purra. Sähköpotkulaudat. Ravustus. Sää.
+
+## Lintuinfluenssa
+
+![Kukko ja kanoja ulkoaitauksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_393/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97092362aae1e897332/1655366969)
+
+Avaa kuvien katselu
+
+Kukko ja kanoja. Kuva: Mikko Savolainen / Yle
+
+Suomessa yritetään estää lintuinfluenssan leviäminen kanoihin. Luonnossa lintuinfluenssa on jo tappanut paljon lintuja.
+
+Viranomaiset ovat määränneet, että joillakin alueilla kanat täytyy pitää sisätiloissa. Jos kanat ovat ulkona, tila täytyy suojata verkolla.
+
+Uudet määräykset koskevat kanaloita Länsi-Suomessa.
+
+Lisäksi viranomaiset muistuttavat kaikkia siitä, että kuolleisiin lintuihin ei saa koskea. Jos luonnosta löytyy monta kuollutta lintua, asiasta on hyvä kertoa viranomaisille.
+
+## Riikka Purra
+
+![Pustaan pukuun pukeutunut ihminen pitää kansiota kädessään.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_426/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114580864ba50da9a613/1689932217)
+
+Avaa kuvien katselu
+
+ Vetoomuksessa on yli 120 000 allekirjoitusta. Kuva: Roni Rekomaa / Lehtikuva
+
+Monet suomalaiset haluavat, että Riikka Purra eroaa ministerin tehtävästä.
+
+Eduskunta sai perjantaina vetoomuksen Purran erosta. Vetoomuksessa on noin 120 000 allekirjoitusta.
+
+Allekirjoittajat haluavat, että Purra eroaa vanhojen kirjoitusten takia. Purran vanhat kirjoitukset ovat rasistisia.
+
+Riikka Purra on perussuomalaisten puheenjohtaja. Hän hoitaa hallituksessa valtiovarainministerin eli rahaministerin tehtävää.
+
+## Sähköpotkulauta
+
+![Sähköpotkulauta pysäköitynä keskelle kevyen liikenteen väylää Jyväskylän Lutakossa.](https://img.img-cdn.yle.fi/crop_extract,w_4094,h_2303,x_503,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113730964a1958e9d7d8/1688311277)
+
+Avaa kuvien katselu
+
+Kuva: Heli Kaski / Yle
+
+Sähköpotkulaudat ovat yleistyneet.
+
+Sähköpotkulautoja käytetään paljon nyt myös pienissä kaupungeissa. Isoissa kaupungeissa sähköpotkulaudat ovat olleet tavallisia jo aikaisemmin.
+
+Myös sairaalat eri puolilla Suomea ovat huomanneet sähköpotkulautojen yleistymisen. Ne ovat saaneet potilaita, jotka ovat loukanneet itsensä sähköpotkulaudalla.
+
+Tavallisesti sähköpotkulaudalla joutuu onnettomuuteen nuori mies, joka on juonut alkoholia. Onnettomuudessa vammoja tulee yleensä päähän.
+
+## Ravustus
+
+![Kuorensa vaihtaneita täplärapuja](https://img.img-cdn.yle.fi/crop_extract,w_4624,h_2601,x_0,y_434/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83388060f7c5932453d/1627567181)
+
+Avaa kuvien katselu
+
+Ravut ovat monien herkkua. Kuva: Timo Leponiemi / Yle
+
+Rapujen pyynti eli ravustus on alkanut tänään perjantaina. Suomen vesistä pyydystetään jopa 6 miljoonaa rapua joka vuosi.
+
+Rapujen pyydystäjiä eli ravustajia on Suomessa noin 100 000. Rapuja saa pyydystää vain vesialueen omistajan luvalla, ja alle 65-vuotiaiden aikuisten pitää myös maksaa kalastonhoitomaksu.
+
+Rapujen pyynti jatkuu lokakuun loppuun asti.
+
+## Sää
+
+![Kuvassa näkyy lauantain, sunnuntain ja maanantain sääkartat.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114606064ba8adfe9539/1689946886)
+
+Avaa kuvien katselu
+
+Kuva: Elias Paakkanen / Yle
+
+Lauantaina vettä sataa idässä ja maan keskivaiheilla. Pohjoisessa on pilvistä ja viileää, etelässä on aurinkoista ja lämmintä.
+
+Lämpötila on lauantaina pohjoisessa noin 15 astetta, etelässä noin 20 astetta.
+
+Myös sunnuntaina ja maanantaina maan keskivaiheilla sataa vettä. Sadealueen pohjoispuolella sää on viileää, mutta etelässä on lämpimämpää.

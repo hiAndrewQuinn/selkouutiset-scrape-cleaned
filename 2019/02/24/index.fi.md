@@ -1,0 +1,81 @@
+# Sunnuntai 24.2.2019 (radio)
+
+Mobiiliverkot. Katolinen kirkko. Kuuban perustuslaki. Hiihdon MM-kisat. Säätietoja.
+
+## 5G-verkko on nopea
+
+![Huawei on 5G-verkon rakentamiseen tarvittavien komponenttien johtava toimittaja. Kuva Hannoverin tietotekniikkamessuilta kesäkuulta 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10654252)
+
+Avaa kuvien katselu
+
+Kiinalainen Huawei rakentaa paljon 5G-teknologiaa. Kuva: FOCKE STRANGMANN / EPA
+
+Mobiiliverkko muuttuu pian 5G-verkoksi. Se tarkoittaa, että puhelimet ja laitteet toimivat todella nopeasti.
+
+Tavallinen ihminen huomaa, että puhelu ei esimerkiksi katkea junassa. Nopeaa verkkoa voi käyttää myös Suomen armeija.
+
+Nopea ja tehokas mobiiliverkko voi olla myös vaarallinen. Monet maat epäilevät, että kiinalaiset voivat käyttää 5G-verkkoa vakoiluun.
+
+Suomen armeija aikoo käyttää vain suomalaisia tai eurooppalaisia laitteita.
+
+## Katolinen kirkko ei enää salaile rikoksia
+
+![Paavi Franciscus puhumassa lapsien hyväksikäyttöä koskeneen kokouksen päätöstilaisuudessa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10660850)
+
+Avaa kuvien katselu
+
+Piispa Franciscus puhui Vatikaanissa tänään. Kuva: Giuseppe Lami / EPA
+
+Katolisen kirkon johtaja Paavi Franciscus sanoo, että katolinen kirkko ei enää salaile rikoksia. Paavi sanoo, että kirkko rankaisee pappeja, jotka syyllistyvät lasten hyväksikäyttöön.
+
+Katolinen kirkko antaa pian toimintaohjeet. Ohjeiden avulla katolinen kirkko yrittää ratkaista ongelman.
+
+Katolisessa kirkossa on tullut paljon ilmi hyväksikäyttötapauksia. Tekijät ovat olleet pappeja ja uhrit lapsia.
+
+Paavi puhui kokouksessa, jossa käsiteltiin lasten suojelemista seksuaaliselta hyväksikäytöltä katolisessa kirkossa.
+
+## Kuubaan uusi perustuslaki
+
+![Kuva kadulta Havannasta. Kapealla kadulla ajaa pyörätaksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10194237)
+
+Avaa kuvien katselu
+
+Kuubaa hallitsee kommunistinen puolue. Kuva: Nina Svahn / Yle
+
+Kuubassa on tänään ollut kansanäänestys uudesta perustuslaista.
+
+Uusi laki ei muuta kovin paljon asioita Kuubassa.
+
+Kuuba on vielä sosialistinen valtio, jossa valtaa pitää kommunistinen puolue. Mutta yksityisomistus tulee lailliseksi.
+
+Lisäksi Kuubaan valitaan pääministeri.
+
+## Suomalaisilla huono päivä MM-kisoissa
+
+![Niskanen Hakola parisprintti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10660853)
+
+Avaa kuvien katselu
+
+Hiihdon parisprintti on viestikilpailu. Joukkueessa on vain 2 hiihtäjää.  Kuva: Lehtikuva
+
+Hiihdon maailmanmestaruuskilpailuissa suomalaisilla hiihtäjillä ei ollut hyvä päivä tänään.
+
+Miehet ja naiset hiihtivät parikilpailun.
+
+Suomen miesten joukkue oli 7. ja myös naisten joukkue oli 7. Suomalaishiihtäjät olivat pettyneitä, kun kilpailut eivät sujuneet niin hyvin.
+
+Suomalaishiihtäjät odottivat, että tänään he olisivat saaneet mitaleita.
+
+## Lämpötila vaihtelee
+
+![Pilkkijä Pielisellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10659899)
+
+Avaa kuvien katselu
+
+Jää ei ehkä enää kestä. Jäällä pitää olla varovainen. Kuva: Ismo Pekkarinen / AOP
+
+Sää on nyt lämmin, vaikka Suomessa on talvi.
+
+Huomenna maanantaina lämpötila on koko maassa plussan puolella. Yöllä ei ole pakkasta.
+
+Mutta myöhemmin ensi viikolla sää taas kylmenee

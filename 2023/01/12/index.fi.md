@@ -1,0 +1,75 @@
+# Torstai 12.1.2023 (radio)
+
+Nuorten oppimistulokset. Ukrainalaisten työnhaku. Laivaliikenne. Kalifornian myrskyt. Suomen sää.
+
+## Nuorten oppimistulokset
+
+![Norssin yläasteen oppilaita käytävällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9932349)
+
+Avaa kuvien katselu
+
+Kuva: Eveliina Matikainen / Yle
+
+Suomalaisten nuorten oppimistulokset ovat huonontuneet. Nuorten taidot esimerkiksi lukemisessa ja matematiikassa ovat nyt selvästi huonommat kuin ennen. 
+
+15-vuotiaiden oppimistulokset paranivat 1990-luvulle asti. Tulokset alkoivat huonontua viimeistään noin 20 vuotta sitten.
+
+Nykyään myös perhetausta vaikuttaa lasten oppimistuloksiin enemmän kuin ennen. Lasten oppimistulokset ovat parempia, jos vanhemmilla on hyvä koulutus ja hyvä palkka.
+
+Opetus- ja kulttuuriministeriö kertoi nuorten oppimistuloksista torstaina.
+
+## Ukrainalaisten työnhaku
+
+![TE-toimisto.](https://img.img-cdn.yle.fi/crop_extract,w_4628,h_2603,x_426,y_270/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7404185faa97100e585/1739960352)
+
+Avaa kuvien katselu
+
+Kuva: Jorge Gonzalez / Yle
+
+Suomessa on paljon ukrainalaisia, jotka eivät ole löytäneet työpaikkaa. TE-toimistoissa on jo noin 7000 ukrainalaista, jotka ovat työttömiä työnhakijoita. 
+
+Monet ukrainalaiset ovat paenneet sotaa Suomeen vasta vähän aikaa sitten. Heidän on vaikea saada työpaikkaa Suomesta, koska he eivät vielä puhu suomea tai ruotsia.
+
+Kaikki ukrainalaiset eivät etsi työtä TE-toimiston kautta. Siksi työttömiä ukrainalaisia on todennäköisesti enemmän kuin TE-toimistojen tilastot kertovat.
+
+## Laivaliikenne
+
+![yleisnäkymä vuosaaren satamasta,kuva otettu näköala parvekkeelta](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-867509616942a934f17/1634288407)
+
+Avaa kuvien katselu
+
+Laivaliikenteen hiilidioksidipäästöt aiotaan lopettaa. Kuva: Jouni Immonen / Yle
+
+Laivaliikenne on siirtymässä puhtaaseen energiaan.
+
+Tavoite on, että laivaliikenteen hiilidioksidipäästöt loppuvat vuoteen 2050 mennessä. Hiilidioksidipäästöt halutaan lopettaa, koska ne lisäävät ilmastonmuutosta.
+
+Jo lähivuosina merillä kulkee laivoja, jotka voivat käyttää myös uudenlaisia polttoaineita.
+
+Esimerkiksi Wärtsilän tehtailla Vaasassa testataan laivamoottoria, joka toimii myös ammoniakilla. Ammoniakista ei tule yhtään hiilidioksidipäästöjä.
+
+Kun laivaliikenne siirtyy puhtaaseen energiaan, tarvitaan uudenlaisia laivoja. Siksi laivanrakentajien tulevaisuus näyttää hyvältä.
+
+## Kalifornian myrskyt
+
+![Katuja veden peitossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687735)
+
+Avaa kuvien katselu
+
+Myrskyt ovat aiheuttaneet Kaliforniassa tulvia. Kuva: Josh Edelson / AFP
+
+Talvimyrskyt jatkuvat Kaliforniassa, USA:ssa. Vettä on satanut jopa enemmän kuin 150 vuoteen. Myrskyissä on kuollut noin 20 ihmistä. 
+
+Keskiviikkona myrsky toi lisää kovia sateita mereltä Kalifornian rannikolle. Siksi alueelle voi tulla lisää myös tulvia ja maanvyöryjä.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687737)
+
+Avaa kuvien katselu
+
+Suomen sää on sateista, tuulista ja lämmintä. Lämpötila on lähes koko maassa plusan puolella. Vain osassa Lappia on vähän pakkasta. 
+
+Sateita liikkuu Suomen yllä. Perjantaina sadealue leviää etelästä. Sateet ovat vettä, räntää tai lunta.
+
+Myös viikonlopusta tulee sateinen. Vettä, räntää tai lunta sataa suuressa osassa maata.

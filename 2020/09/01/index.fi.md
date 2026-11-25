@@ -1,0 +1,5 @@
+# Tiistai 1.9.2020 (tv)
+
+Suomalaiset innostuivat Koronavilkusta. Korona teki työharjoittelusta vaikeaa. Kesämökkejä ostetaan paljon. Yöllä on kylmä koko maassa.
+
+Yle Uutiset selkosuomeksi

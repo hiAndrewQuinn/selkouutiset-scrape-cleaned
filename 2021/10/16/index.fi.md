@@ -1,0 +1,63 @@
+# Lauantai 16.10.2021 (radio)
+
+Koronapassi. Kulttuuriala. Taikonautit. Sää.
+
+## Koronapassi
+
+![Tarkastamme koronapassin -kyltti.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-867938616a03d8b8ed4/1634338088)
+
+Avaa kuvien katselu
+
+Kyltti ravintolan ovella kertoo, että ravintola tarkastaa asiakkaiden koronapassit. Kuva: Silja Viitala / Yle
+
+Koronapassi on otettu käyttöön Suomessa. Koronapassista näkee esimerkiksi, onko ihminen saanut koronarokotukset.
+
+Koronapassia voidaan vaatia paikoissa, joissa on paljon ihmisiä. Esimerkiksi ravintolat, konserttipaikat, liikuntatilat ja museot voivat vaatia asiakkailta koronapassia.
+
+Näissä paikoissa ei tarvitse noudattaa koronarajoituksia, kun koronapassi on käytössä. Esimerkiksi Helsingin yökerhot saavat taas olla auki koko yön, jos ne tarkastavat asiakkaiden koronapassit.
+
+Koronapassi on siis vaihtoehto koronarajoituksille. Koronarajoituksia on Helsingin seudun lisäksi myös esimerkiksi Turun seudulla.
+
+Koronapassin eli koronatodistuksen saa Omakanta-palvelusta. Nettiosoite on kanta.fi.
+
+## Kulttuuriala
+
+![Iso näyttämö lavalta tyhjään katsomoon](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5398645c52a509e3cae/1548920214)
+
+Avaa kuvien katselu
+
+Kulttuurialan avustukset on turvattu ensi vuonna. Kuva: Rinna Härkönen / Yle
+
+Hallituspuolueet ovat sopineet riidan kulttuurialan rahoista.
+
+Hallituspuolueet sopivat perjantaina, että kulttuurialan rahoja ei pienennetä ensi vuonna. Kysymys on kulttuurin, taiteen, tieteen ja nuorisotyön rahoista.
+
+Kulttuuriministeri Antti Kurvinen kertoi aikaisemmin tällä viikolla, että kulttuurialan rahat vähenevät kymmeniä miljoonia euroja. Syynä on se, että Veikkauksen rahapelit tuottavat vähemmän kuin ennen. Rahapelien tuotto käytetään esimerkiksi juuri kulttuurialan hyväksi.
+
+Osa hallituspuolueista kuitenkin vaati, että kulttuurialan rahat pitää turvata. Siksi hallituspuolueet sopivat, että valtio antaa kulttuurialalle lisää rahaa. Näin hallitus korvaa sen, että rahapelien tuotto pienenee.
+
+## Taikonautit
+
+![Kiina laukaisi miehitetyn Shenzhou 11 –aluksen Jiuquanin keskuksesta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9246160)
+
+Avaa kuvien katselu
+
+Kiina on lähettänyt taikonautteja avaruuteen jo monta kertaa. Tämä kuva on vuodelta 2016. Kuva: How Hwee Young / EPA
+
+Kiinan taikonautit ovat päässeet perille Kiinan avaruusasemalle. Taikonautteja on 3, yksi heistä on nainen.
+
+Taikonautit ovat avaruusasemalla puoli vuotta. Tuona aikana taikonautit tekevät myös avaruuskävelyjä.
+
+Kiinan avaruusohjelman päämäärä on lähettää ihmisiä Kuuhun ja Mars-planeetalle.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12147929)
+
+Avaa kuvien katselu
+
+Sunnuntai on etelässä poutapäivä, vettä ei sada. Pohjoisessa sataa vielä sunnuntaina, mutta sateet heikkenevät.
+
+Lämpötila on sunnuntaina etelän 8 ja pohjoisen 2 asteen välillä.
+
+Maanantaina sade loppuu melkein kokonaan myös pohjoisessa. Sää kylmenee vähän, ja Lapissa voi maanantaina olla jo vähän pakkasta.

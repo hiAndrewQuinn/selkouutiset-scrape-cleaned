@@ -1,0 +1,76 @@
+# Tiistai 25.5.2021 (radio)
+
+EU asettaa Valko-Venäjälle pakotteita. Lisäbudjetti valmistui. Terveyspalvelut siirtyvät nettiin. Korona-aika huolettaa lapsia. Ennakkoäänestys alkaa. 
+
+## Valko-Venäjä
+
+![Lentoyhtiö Belavian kone lentokentällä.](https://img.img-cdn.yle.fi/crop_extract,w_4720,h_2655,x_0,y_361/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81037660aba5ce2cae4/1621861939)
+
+Avaa kuvien katselu
+
+Valkovenäläisen Belavian kone Minskin lentokentällä. Kuva: AOP
+
+EU asettaa Valko-Venäjälle uusia talouspakotteita. EU myös kieltää valkovenäläisiltä lentoyhtiöiltä pääsyn EU:n ilmatilaan tai EU-maiden lentokentille.
+
+Syy on se, että Valko-Venäjä pakotti eurooppalaisen lentokoneen laskeutumaan sunnuntaina Valko-Venäjälle. Valko-Venäjä pidätti oppositioaktivistin, joka oli lentokoneessa.
+
+Myös suomalainen Finnair lopettaa lentämisen Valko-Venäjän ilmatilassa.
+
+## Lisäbudjetti
+
+![Ministeri Vanhanen poseeraa Valtionneuvoston linnan edessä.](https://img.img-cdn.yle.fi/crop_extract,w_3983,h_2240,x_0,y_6/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80961960a8c96b015e3/1621674731)
+
+Avaa kuvien katselu
+
+Valtiovarainministeri eli rahaministeri Matti Vanhanen sanoo, että budjetti on yksi suurimmista Suomessa.  Kuva: Ilkka Klemola / Yle
+
+Hallitus on saanut valmiiksi vuoden kolmannen lisäbudjetin.
+
+Lisäbudjetti kasvattaa valtion menoja runsaat 2 miljardia euroa ja vähentää tuloja 200 miljoonaa euroa.
+
+Lisäbudjetilla esimerkiksi hankitaan rokotteita, tuetaan lapsia ja nuoria ja firmoja. Lisäbudjetti annetaan eduskunnalle torstaina.
+
+## Terveyspalvelut
+
+![Eksoten ravitsemusterapeutti Iida Niemi tietokoneen ääressä pitämässä etävastaanottoa.](https://img.img-cdn.yle.fi/crop_extract,w_2084,h_1172,x_0,y_456/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7676866013d108c1fae/1611913589)
+
+Avaa kuvien katselu
+
+Etävastaanotolla voi saada apua moniin vaivoihin.  Kuva: Mikko Savolainen / Yle
+
+Korona-aika on lisännyt nopeasti digitaalisia terveyspalveluita. Esimerkiksi koronatestiin voi ilmoittautua sähköisellä lomakkeella. Lomake ohjaa testiin, jos oireet antavat siihen syyn.
+
+Myös etälääkärikäynnit ovat lisääntyneet paljon. Monissa asioissa lääkärin tai hoitajan kanssa voi keskustella videoyhteydellä, pikaviesteillä tai puhelimessa.
+
+Lääkärit sanovat, että kaikkia vaivoja ei voi hoitaa etävastaanotolla. Myös lähivastaanotolle pitää päästä.
+
+## Lasten hyvinvointi
+
+![Koululainen etäopiskelee](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_351/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6610125e8608a4b1dd9/1585843364)
+
+Avaa kuvien katselu
+
+Moni nuori tuntee, että etäkoulu on huonontanut koulussa pärjäämistä. Kuva: Pasi Takkunen / Yle
+
+Koronatilanne heikentää lasten hyvinvointia. Lähes 50 prosenttia lapsista ja nuorista on huolestunut omasta henkisestä hyvinvoinnista, kun koronatilanne kestää pitkään.
+
+Lasten jaksamista on kysynyt Pelastakaa Lapset -järjestö. Se haastatteli 12-17 vuotiaita lapsia ja nuoria.
+
+Huolta ja stressiä lapsille aiheuttavat esimerkiksi etäopiskelu ja perheen toimeentulo.  
+Yli 50 prosenttia lapsista ja nuorista sanoo, että etäopiskelu on heikentänyt opinnoissa pärjäämistä.
+
+## Ennakkoäänestys
+
+![Helsingin kaupungin varastossa maan alla säilytetään arviolta noin 900 äänestyskoppia.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-779252603a132339eb4/1614419214)
+
+Avaa kuvien katselu
+
+Ennakkoäänestyskoppeja. Kuva: Silja Viitala / Yle
+
+Kuntavaalien ennakkoäänestys alkaa huomenna keskiviikkona. Ennakkoäänestysaika on 2 viikkoa. Ennakkoäänestysaika on nyt tavallista pidempi, että äänestyspaikoille ei tule ruuhkaa. Varsinainen vaalipäivä on 13. kesäkuuta.
+
+Vaaleista saa lisätietoa oikeusministeriön verkkosivulta vaalit.fi
+
+Katso myös oikeusministeriön video: Näin äänestät ennakkoon
+
+Tietoa vaaleista on myös Selkouutisten vaali-sivuilla

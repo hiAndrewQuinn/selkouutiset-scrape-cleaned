@@ -1,0 +1,65 @@
+# Perjantai 3.11.2017 (radio)
+
+Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä. Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Lauantaina vietetään pyhäinpäivää.
+
+## Ihmisten salakuljetus
+
+![Rajavartija passi raja passin tarkistus raja-asema Imatran raja-asema](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7732162)
+
+Avaa kuvien katselu
+
+Rajavartiolaitos on tutkinut ihmisten salakuljetusta. Kuva: Yle
+
+Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ihmisiä tuotiin Suomeen esimerkiksi Venäjän kautta.
+
+Viranomaiset epäilevät, että rikollisjärjestön toiminta jatkui monta vuotta. Suomeen tuotiin 15 ihmistä ja muualle Eurooppaan yli 150 ihmistä.
+
+Suomen viranomaisilla oli kesällä iso operaatio rikollisjärjestöä vastaan. Operaation aikana otettiin kiinni venäläinen mies.
+
+Asiaa tutkitaan nyt syyttäjänvirastossa.
+
+## Emmauksen työrinki
+
+![Hyväntekeväisyyskirpputoreille lahjoitettu tavara on entistä huonokuntoisempaa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8800539)
+
+Avaa kuvien katselu
+
+Emmaus-järjestö auttaa ihmisiä saamaan työtä Ahvenanmaalla. Kuva: Jaani Lampinen / Yle 
+
+Ruotsinkielisellä Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä.
+
+Emmaus on auttanut jo monia, esimerkiksi romanialaisia ja bulgarialaisia. Järjestöllä on työrinki, jonka kautta EU-kansalaiset voivat saada työtä.
+
+Ahvenanmaalaisten on helppoa tarjota työtä, koska Emmauksen työrinki hoitaa työnantajan velvollisuudet, esimerkiksi sosiaalimaksut.
+
+Romanialainen Amdreea Docuta on saanut siivoustyötä työringin kautta. Nyt Docuta opettelee ruotsia, koska hän haluaa opiskella keittiöapulaiseksi.
+
+Emmauksen työrinki on toiminut 2 vuotta, ja se on auttanut melkein 50 ihmistä.
+
+## Nimien taivutus
+
+![Valtiovarainministeri Petteri Orpo Ylen haastattelussa 27.06.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9693014)
+
+Avaa kuvien katselu
+
+Ministeri Orvon vai Orpon hymy? Kuva: Derrick Frilund / Yle
+
+Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Tavoite on, että nimiä taivutetaan samalla tavalla kuin muita sanoja. Silti jotkut taivuttavat esimerkiksi etunimen Satu muotoon "Sadun" ja toiset muotoon "Satun".
+
+Asiantuntija Ulla Onkamo sanoo, että molemmat muodot ovat oikein, kun kysymys on nimestä.
+
+Onkamon mielestä on kohteliasta kuulla, mitä nimen omistaja ajattelee. Esimerkiksi ministeri Petteri Orpo toivoo, että lehdet kirjoittavat "Orpon", eivät "Orvon".  Toivetta noudatetaan ja olen siitä tyytyväinen, ministeri Orpo sanoo.
+
+## Pyhäinpäivä
+
+![Hautakynttilä haudalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8417441)
+
+Avaa kuvien katselu
+
+Pyhäinpäivänä haudoille sytytetään kynttilöitä. Kuva: Nina Keski-Korpela / Yle
+
+Lauantaina vietetään pyhäinpäivää. Pyhäinpäivänä suomalaiset muistavat kuolleita sukulaisia ja ystäviä. Siksi haudoille viedään kynttilöitä.
+
+Pyhäinpäivä aiheuttaa muutoksia liikenteeseen. Esimerkiksi Helsingin seudulla lähijunat, bussit ja raitiovaunut noudattavat lauantaina sunnuntaiaikatauluja.
+
+VR:n kaukojunat kulkevat pyhäinpäivänä normaalisti, mutta kaukobussien aikatauluissa on muutoksia. Kaukobussien lähtöajat kannattaa tarkistaa Matkahuollon nettisivulta.

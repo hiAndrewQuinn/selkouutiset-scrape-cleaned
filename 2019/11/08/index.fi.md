@@ -1,0 +1,73 @@
+# Perjantai 8.11.2019 (radio)
+
+Nuorisotyöttömyys vähenee hitaasti. Työttömyyskorvaukset ja toimeentulotuet voivat myöhästyä Postin lakon takia. Lapistakin kertova Disneyn Frozen II -elokuva sai ensi-illan Hollywoodissa. Ateneumin taidemuseoon tulee esille tuntematon Helene Schjerfbeckin taulu. Järvenpään Citymarket valittiin maailman parhaaksi ruokakaupaksi.
+
+## Nuorten työttömyys vähenee hitaasti
+
+![kaksi työmiestä rakennustyömaalla kantavat rautatankoa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10918292)
+
+Avaa kuvien katselu
+
+Työllisyys ei kasva enää rakennusalalla. Kuva: Jani Saikko / Yle
+
+Työ- ja elinkeinoministeriö ennustaa, että työllisyys ei parane niin nopeasti kuin hallitus haluaa. Hallitus yrittää saada töihin 75 prosenttia 15-64 -vuotiaista suomalaisista.
+
+Työttömyys on vähentynyt Suomessa paljon viime vuosina. Työttömänä on nyt 6,6 prosenttia suomalaisista.
+
+Nuorten työttömyys ei ole vähentynyt yhtä paljon kuin muiden suomalaisten. Alle 25-vuotiaita on yhä työttömänä kolmannes enemmän kuin 11 vuotta sitten.
+
+## Kelan tuet ehkä myöhästyvät
+
+![Mies aukaisee Kelan ovea.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10140741)
+
+Avaa kuvien katselu
+
+Kela neuvoo hakemaan tukia verkkopalvelussa postin lakon aikana. Kuva: Ismo Pekkarinen / AOP
+
+Ihmiset saavat ehkä työttömyyskorvaukset ja toimeentulotuen myöhässä, kun Postin lakko alkaa. Kela sanoo, että tukien maksaminen ehkä myöhästyy, kun Posti ei tuo asiakkaiden hakemuksia ajoissa perille. Kela toivoo, että ihmiset täyttävät hakemukset internetissä.
+
+Asiakkaat saavat ehkä myöhässä myös Kelan lähettämät kirjeet, joissa kerrotaan tukien maksamisesta. Kelan verkkopalvelussa internetissä tukipäätökset kuitenkin näkyvät.
+
+Postin lakko alkaa maanantaina ja kestää 2 viikkoa.
+
+## Lapin luontoa ja ihmisiä Disney-elokuvassa
+
+![Per-Olof Nutti, Aili Keskitalo, Åsa Larsson Blind ja Tiina Sanila-Aikio nieiddainisguin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11058310)
+
+Avaa kuvien katselu
+
+Saamelaisten edustajia Hollywoodin punaisella matolla: Per-Olof Nutti, Aili Keskitalo, Åsa Larsson, Tiina Sainila-Aikio ja heidän tyttäriään. Kuva: Siv Eli Vuolab / Sámediggi
+
+Yhdysvalloissa on ollut Frozen II -animaatioelokuvan ensi-ilta.
+
+Elokuvassa nähdään Lapin luontoa ja saamelaiskulttuuria. Walt Disney -yhtiö teki elokuvasta sopimuksen Suomen, Ruotsin ja Norjan saamelaisten kanssa. Sopimuksessa Disney lupasi kunnioittaa saamelaiskulttuuria. Ryhmä saamelaisia neuvoi elokuvan tekijöitä.
+
+Saamelaisia oli kunniavieraina elokuvan ensi-illassa Hollywoodissa. Inarilainen Tiina Sainila-Aikio sanoi, että elokuva oli hienompi kuin hän osasi unelmoida.
+
+Disney tekee Frozen II -elokuvasta myös saamenkielisen version.
+
+## Tuntematon Schjerfbeck esille Helsingissä
+
+![Flickan från Barösund Tyttö Barösundista (1885–1890). Yksityiskokoelma. helene schjefbeck](https://img.img-cdn.yle.fi/crop_extract,w_3500,h_1969,x_0,y_618/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6098615dc55a82c667e/1573807542)
+
+Avaa kuvien katselu
+
+Tyttö Barösundista. Kuva: Ateneum
+
+Ateneumin taidemuseoon Helsingissä tulee esille taiteilija Helene Schjerfbeckin taulu, jota ei ole tunnettu aikaisemmin.
+
+Taulun nimi on Tyttö Barösundista. Sen omistaa suomalainen yksityishenkilö. Taulun omistaja on sanonut, että Schjerfbeck vieraili hänen perheensä luona ja antoi taulun lahjaksi 1800-luvun lopulla.
+
+## Järvenpään Citymarket maailman paras
+
+![Markku Hautala](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11058385)
+
+Avaa kuvien katselu
+
+Kauppias Markku Hautala. Kuva: Citymarket
+
+Järvenpään Citymarket on valittu maailman parhaaksi ruokakaupaksi.
+
+Palkinnon antoi kansainvälinen kaupan alan tutkimusjärjestö IGD Lontoossa. Kilpailussa vertailtiin tuhatta kauppaa eri puolilla maailmaa.
+
+Järvenpään Citymarketin kauppias Markku Hautala sanoo, että palkinto tuli hyvästä laadusta ja kaupan sisällä olevasta sushiravintolasta.

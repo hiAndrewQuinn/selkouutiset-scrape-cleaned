@@ -1,0 +1,83 @@
+# Keskiviikko 20.3.2019 (radio)
+
+Britannia pyytää lykkäystä EU-eroon. Suomi on maailman onnellisin maa. Yli miljoona koululaista vastusti ilmastonmuutosta. Eevi ja Eeli olivat viime vuoden suosituimmat lasten nimet. Päivä pitenee.
+
+## Britannia haluaa siirtää EU-eroa
+
+![Theresa May](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10696791)
+
+Avaa kuvien katselu
+
+Britannian pääministeri Theresa May Kuva: Andy Rain / EPA
+
+Britannia haluaa lykätä EU-eroa eli Brexitiä.
+
+Britannia on pyytänyt EU:lta, että Britannian EU-eroa lykätään kesäkuun loppuu asti. Britannian oli määrä erota ensi viikon perjantaina eli 29. maaliskuuta.
+
+Britannia haluaa lisäaikaa, koska brittiparlamentti ei ole hyväksynyt erosopimusta, jonka pääministeri Theresa May on neuvotellut EU:n kanssa. Parlamentti on äänestänyt sopimuksesta 2 kertaa ja hylännyt sen molemmilla kerroilla.
+
+Britannian lykkäyspyyntöä käsitellään EU-johtajien huippukokouksessa Brysselissä huomenna.
+
+## Onnellinen maa
+
+![Kaksi kättä muodostaa sydämen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10245264)
+
+Avaa kuvien katselu
+
+Suomi on jo toista vuotta peräkkäin onnellisuustutkimuksen kärjessä. Kuva: Yle
+
+Suomi on maailman onnellisin maa.
+
+YK:n onnellisuustutkimuksessa Suomi on jo toista vuotta peräkkäin ykkössijalla eli maailman onnellisin maa.
+
+Suomen jälkeen tulevat Tanska, Norja, Islanti ja Hollanti.
+
+YK:n vertailussa on mukana 156 maata. Tutkimuksessa tarkastellaan esimerkiksi maan bruttokansantuotetta, vapautta ja sosiaaliturvaa.
+
+Onnellisuustutkija Ilona Suojanen sanoo, että raportti ei kerro ihmisten onnellisuudesta, vaan siitä, miten hyvin asiat ovat eri valtioissa.
+
+Listan häntäpäässä ovat Etelä-Sudan, Keski-Afrikan tasavalta ja Afganistan.
+
+## Ilmaston puolesta marssi yli miljoona nuorta
+
+![Nuoria mielenosoittajia eduskuntatalon edustalla kansainvälisen nuorten ilmastolakon marssilla Helsingissä perjantaina 15. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10691207)
+
+Avaa kuvien katselu
+
+Ilmaston puolesta osoitettiin mieltä yli 100 maassa. Kuva: Marja Väänänen / Yle
+
+Koululaisten ilmastomielenosoituksiin osallistui noin 1,3 miljoonaa nuorta eri puolilla maailmaa.
+
+Koululaiset olivat poissa koulusta ja osoittivat mieltä ilmastonmuutosta vastaan viime perjantaina.
+
+Mielenosoituksia järjestettiin yli 100 maassa ja noin 2000 kaupungissa.
+
+Suomessa mielenosoituksiin osallistui noin 9000 koululaista.
+
+## Eevi ja Eeli olivat viime vuoden suosikkinimet
+
+![vauva haukottelee](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10618673)
+
+Avaa kuvien katselu
+
+Suomessa syntyi viime vuonna yli 49 000 vauvaa. Kuva: AOP
+
+Väestörekisterikeskus on kertonut, mitkä olivat suosituimmat etunimet lapsilla, jotka syntyivät viime vuonna.
+
+Tyttövauvojen suosituin etunimi oli viime vuonna Eevi ja poikavauvojen Eeli. Eevi-nimen sai viime vuonna etunimeksi noin 300 tyttöä. Eeli-nimen sai etunimeksi noin 400 poikaa.
+
+Ruotsinkielisistä nimistä suosituin tytön nimi oli Saga ja pojan nimi William.
+
+Viime vuonna syntyi yli 49 000 lasta.
+
+## Päivän on nyt yötä pidempi
+
+![Leskenlehti ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10696923)
+
+Avaa kuvien katselu
+
+Pohjoisessa on vielä talvi, mutta Vuosaaren golfkentän reunalla Helsingissä kukkii jo leskenlehti. Kuva: Antti Kolppo / Yle
+
+Tänään on kevätpäiväntasaus. Se tarkoittaa sitä, että valon määrä kasvaa nyt nopeasti.
+
+Kevätpäiväntasauksen aikaan aurinko siirtyy eteläiseltä pallonpuoliskolta pohjoiselle. Tästä eteenpäin pohjoisella pallonpuoliskolla eli myös täällä Suomessa päivä on pidempi kuin yö.

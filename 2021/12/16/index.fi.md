@@ -1,0 +1,61 @@
+# Torstai 16.12.2021 (radio)
+
+Omikron tarttuu noin 3 kertaa helpommin kuin delta. Suomi vaatii koronatestiä Norjasta, Tanskasta Britanniasta ja Nigeriasta tulijoilta. Ruotsi vaatii koronapassia Pohjoismaista tulevilta. Koronaviruksen kotitestejä myydään paljon.
+
+## Omikron
+
+![Tuoli, jonka selkänojassa lukee teksti: Koronarokotejono. Taustalla rokotusta odottavia ihmisiä.](https://img.img-cdn.yle.fi/crop_extract,w_3839,h_2160,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-882853619ce79d82ac5/1637672976)
+
+Avaa kuvien katselu
+
+ Oulussa jonotettiin koronarokotukseen Limingantullin rokotuspisteellä 23. marraskuuta. Kuva: Risto Degerman / Yle
+
+Koronaviruksen omikronmuunnos tarttuu ehkä 3 kertaa helpommin kuin deltamuunnos. Näin sanoo Terveyden ja hyvinvoinnin laitos THL. Vielä ei tiedetä, aiheuttaako omikron vakavamman taudin kuin delta.
+
+Suomesta on löytynyt keskiviikkoon mennessä 34 omikron-tartuntaa. Yhteensä Suomessa ilmoitettiin torstaina lähes 2000 uutta koronatartuntaa. Eniten uusia koronatartuntoja on Uudellamaalla.
+
+3 koronarokotusta on nyt saanut Suomessa noin 560 000 ihmistä. Rokotus antaa hyvän suojan vakavalta koronataudilta.
+
+## Suomen rajoitukset
+
+![yleiskuva - Helsinki-Vantaan lentoaseman uuden terminaalin edusta.](https://img.img-cdn.yle.fi/crop_extract,w_5901,h_3319,x_0,y_312/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88738661a8e3b0b3778/1638458523)
+
+Avaa kuvien katselu
+
+Suomi alkaa vaatia Norjasta, Tanskasta ja Iso-Britannista sekä Nigeriasta maahantulijoilta pakollista koronatestausta rajalla. Kuva: Esa Syväkuru / Yle
+
+Suomi tiukentaa maahantulon rajoituksia.
+
+Norjasta, Tanskasta, Britanniasta ja Nigeriasta tulevien ihmisten pitää käydä Suomen rajalla koronatestissä. Vaatimus on voimassa heti.
+
+Jos ihminen tulee Suomeen EU:n ulkopuolelta, hänen pitää tehdä koronatesti jo ennen matkaa. Ilman testiä ei pääse Suomeen. Tämä vaatimus tulee voimaan ensi viikon tiistaina.
+
+Suomen kansalainen tai Suomessa asuva ihminen saa aina tulla Suomeen.
+
+## Ruotsin rajoitukset
+
+![Asa Wernsten tyskentelee koronavirustestipaikalla Arlandan lentokentällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11804538)
+
+Avaa kuvien katselu
+
+Koronatestipaikka Arlandan lentoasemalla Tukholmassa. Kuva: Claudio Bresciani / EPA
+
+Ruotsi rajoittaa maahantuloa koronan takia.
+
+Ruotsi vaatii koronapassia ihmisiltä, jotka tulevat Ruotsiin muista Pohjoismaista. Koronapassi pitää olla 21. joulukuuta alkaen. Ruotsi ei aikaisemmin vaatinut koronapassia ihmisiltä, jotka tulivat Ruotsiin Pohjoismaista.
+
+Ruotsissa koronatartuntoja on enemmän kuin aikaisemmin. Koronatartuntoja on Ruotsissa kuitenkin vähemmän kuin muualla Euroopassa.
+
+Aikaisemmin tällä viikolla Norja tiukensi koronarajoituksia. Myös Tanskassa on taas koronarajoituksia.
+
+## Koronaviruksen kotitestit
+
+![Suomesta, Lidlistä ostettu koronan kotonatehtävä pikatesti](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-806037609e0da90a227/1620971132)
+
+Avaa kuvien katselu
+
+Koronaviruksen kotitesti. Kuva: Minna Rosvall / Yle
+
+Koronaviruksen kotitestejä myydään ruokakaupoissa enemmän kuin aikaisemmin. Monessa kaupassa koronaviruksen kotitestejä myydään 4 kertaa enemmän kuin 5 viikkoa sitten. Joissakin kaupoissa kaikki koronaviruksen kotitestit on myyty loppuun.
+
+Koronaviruksen kotitestistä ei saa virallista testitulosta. Jos testi on positiivinen, ihmisen pitää mennä viralliseen koronatestiin.

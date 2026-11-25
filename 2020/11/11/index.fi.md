@@ -1,0 +1,99 @@
+# Keskiviikko 11.11.2020 (radio)
+
+Suomi suunnittelee koronarokotuksia. Koronarokotteen kuljetus ja säilytys. Suomen koronatartunnat. Uniapnea ja korona. Apteekkien toiminta Suomessa. Lauha sää.
+
+## Suomi alkaa suunnitella rokotuksia
+
+![Yhtä ensimmäisistä eteläafrikkalaisista rokotekokeilijoista pistetään kliinisen tutkimuksen aikana koronaviruksen vastaista potentiaalista rokotetta vastaan ​​Baragwanathin sairaalassa Sowetossa, Etelä-Afrikassa, 24. kesäkuuta 2020.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7068985f3176d71854d/1597079036)
+
+Avaa kuvien katselu
+
+Koronarokotetta testataan Etelä-Afrikassa. Kuva: Siphiwe Sibeko / EPA
+
+Suomi alkaa ensi viikolla suunnitella, miten ja milloin koronarokotuksia annetaan ihmisille.
+
+Terveyden ja hyvinvoinnin laitos sanoo, että ensimmäiset rokotteet voidaan ehkä antaa ensi vuoden alussa.
+
+Suomen alustava suunnitelma on hankkia 3 erilaista rokotetta. Rokotteita pitää olla erilaisia, jotta kaikille väestöryhmille löytyy sopiva.
+
+Suomi ei ole vielä päättänyt, mitä rokotteita täällä käytetään.
+
+## Koronarokote pitää säilyttää todella kylmässä
+
+![Kuvassa henkilö työskentelee laboratoriossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11588209)
+
+Avaa kuvien katselu
+
+Ranskalaisen Sanofi-lääketehtaan rokotelaboratorio. Kuva: Joel Saget / AFP
+
+Koronarokotteiden kehittäminen etenee. Edessä on kuitenkin erikoisia ongelmia.
+
+Saksalaiset lääkeyhtiöt kertoivat maanantaina omasta rokotteesta.
+
+Se on toiminut testeissä hyvin.
+
+Erikoista on, että rokote pitää säilyttää - 70 asteen kylmyydessä.
+
+Rokoteasiantuntijoiden pitää nyt ratkaista, miten rokotetta voidaan kuljettaa ja säilyttää.
+
+## Nuorilla aikuisilla paljon koronatartuntoja
+
+![Kasvomaskeihin pukeutuneita ihmisiä Helsingin rautatieaseman edustalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11624737)
+
+Avaa kuvien katselu
+
+Koronatartuntoja on nyt eniten nuorilla aikuisilla. Kuva: Henrietta Hassinen / Yle
+
+Suomessa on raportoitu vuorokauden aikana 238 uutta koronavirustartuntaa.
+
+Tartuntoja on todettu nyt yhteensä yli 18 000.
+
+Suurin osa tartunnoista on todettu nuorilla aikuisilla.
+
+## Uniapnea voi pahentaa koronan sairastamista
+
+![Hanna Tuovila CPAP-laitteen kanssa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11030898)
+
+Avaa kuvien katselu
+
+Jos ihminen kärsii uniapneasta,hänen pitää nukkua ylipainehoitolaitteen kanssa. Kuva: Jari Pussinen / YLE 
+
+Uniapnea voi lisätä riskiä, että koronatartunnan saanut joutuu sairaalahoitoon.
+
+Tämä selvisi, kun Turun yliopisto ja Turun yliopistosairaala tutkivat koronan ensimmäisen aallon potilaita.
+
+29 prosenttia niistä potilaista, jotka joutuivat sairaalaan koronan takia, kärsi myös uniapneasta.
+
+Uniapnea tarkoittaa, että ihmisen hengitys katkeaa unen aikana.
+
+## Apteekkien toimintaa on selvitetty
+
+![Apteekin kassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11640862)
+
+Avaa kuvien katselu
+
+Apteekkari omistaa apteekin. Kuva: Henrietta Hassinen / Yle
+
+Viranomaiset ovat selvittäneet apteekkien toimintaa Suomessa.
+
+Selvitys kertoo, että lääkkeiden hintaa on mahdollista laskea.
+
+Apteekkarit eli apteekkien omistajat tienaavat paljon. He siis ottavat melko ison osan siitä hinnasta, jonka asiakas lääkkeestä maksaa.
+
+Kuluttajaviranomainen sanoo myös, että itsehoitolääkkeiden hinta laskee, jos niitä voivat myydä esimerkiksi ruokakaupat.
+
+Itsehoitolääke on lääke, jonka voi ostaa ilman reseptiä.
+
+## Lauha sää jatkuu
+
+![Sääkuva:Syksyn maisema, vesipisarat oksalla ja kynnöspelto taustalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11638137)
+
+Avaa kuvien katselu
+
+Syksyn maisema. Kuva: Eija Varjola/Lahti
+
+Sää on koko maassa pilvistä ja monin paikoin on myös sumuista.
+
+Vettä voi sataa vähän.
+
+Lämpötila on etelässä vähän yli 5 astetta. Lapissa lämpötila on nollan molemmin puolin.

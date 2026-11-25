@@ -1,0 +1,67 @@
+# Perjantai 11.10.2019 (radio)
+
+YK moittii Turkkia hyökkäyksestä Syyriaan. Nobelin rauhanpalkinto Etiopiaan. Iranilaisella tankkerilla räjähti. Hyvästä syöpähoidosta palkinto Turkuun. Viikonloppuna sataa vain vähän.
+
+## Turkki jatkoi hyökkäystä
+
+![Kuva otettu Turkin puolelta Syyriaan päin, jossa näkyy Tal Abayadin kaupungista nousevan savua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11015385)
+
+Avaa kuvien katselu
+
+Tal Abayadin kaupungista nousee savua. Kuva: Bulent Kilic / AFP
+
+YK moittii Turkkia hyökkäyksestä Pohjois-Syyriaan. YK:n turvallisuusneuvosto on pitänyt kokouksen Turkin hyökkäyksen takia.
+
+Turvallisuusneuvosto sanoo, että Turkin pitää lopettaa hyökkäys Syyriaan. Turvallisuusneuvosto sanoo, että hyökkäys pahentaa ihmisten kärsimyksiä ja lisää pakolaisuutta. Myös Suomi sanoo, että Turkin pitää lopettaa hyökkäys.
+
+Turkki on iskenyt kurdikohteisiin myös yöllä. Myös siviilejä on kuollut Turkin hyökkäyksessä. Tosi paljon ihmisiä on lähtenyt pakoon Turkin hyökkäystä.
+
+## Rauhan Nobel Etiopiaan
+
+![Etiopian pääministeri Abiy Ahmed.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11016398)
+
+Avaa kuvien katselu
+
+Etiopian pääministeri Abiy Ahmed. Kuva: Michael Tewelde / AFP
+
+Nobelin rauhanpalkinnon saa Etiopian pääministeri **Abiy Ahmed**. Palkinnon myöntää Norjan Nobel-komitea.
+
+Nobel-komitea sanoo, että Abiy Ahmed on rakentanut rauhaa ja kansainvälistä yhteistyötä. Komitea kiittää Ahmedia siitä, että hän on tehnyt paljon työtä, että Etiopian ja naapurimaa Eritrean välit paranevat.
+
+Nobel-komitea sanoo, että Abiy Ahmed on myös parantanut Etiopiassa demokratiaa, koska hän on vapauttanut poliittisia vankeja ja poistanut tiedotusvälineiden sensuuria.
+
+Rauhan Nobel-palkinto annetaan Etiopian pääministeri Abiy Ahmedille joulukuussa Oslossa.
+
+## Iranilaistankkerilla räjähti
+
+![Irans flagga 1964-1980.](https://img.img-cdn.yle.fi/crop_extract,w_2000,h_1124,x_0,y_9/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-322163587f231cc53b9/1484727687)
+
+Avaa kuvien katselu
+
+Iranin lippu. 
+
+Iranilaisella öljytankkerilla eli säiliölaivalla on tapahtunut räjähdys. Räjähdys tapahtui Punaisellamerellä Saudi-Arabian edustalla. Säiliölaiva syttyi tuleen ja laivasta on vuotanut öljyä mereen.
+
+Räjähdyksen syytä ei tiedetä. Räjähdys iranilaisella öljytankkerilla voi huonontaa Iranin ja Saudi-Arabian välejä.
+
+## Turun yliopistosairaala palkittiin syöpähoidosta
+
+![Turun yliopistollinen keskussairaala ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9786962)
+
+Avaa kuvien katselu
+
+Turun yliopistollinen keskussairaala eli TYKS. Kuva: Vesa Moilanen / Lehtikuva
+
+Turun yliopistollinen keskussairaala on saanut kansainvälisen palkinnon hyvästä syöpähoidosta. Palkinto on tunnustus siitä, että syövän hoito on Turussa tosi hyvää.
+
+Turun yliopistollinen keskussairaala on toinen sairaala Suomessa, joka saa eurooppalaisten syöpäsairaaloiden tunnustuksen. Aikaisemmin tunnustuksen on saanut Suomessa HUS syöpäkeskus Helsingissä.
+
+## Sää
+
+![Syksyinen Tampereen Näsinkallio.](https://img.img-cdn.yle.fi/crop_extract,w_2400,h_1350,x_0,y_124/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5977545d9c82bd44cc1/1570538222)
+
+Avaa kuvien katselu
+
+Sää on syksyistä. Kuva: Jussi Mansikka / Yle
+
+Viikonlopun sää on pilvinen ja poutainen. Sateita tulee vain vähän. Pohjoisessa on viileää ja lämpötila on lähellä nollaa. Etelässä lämpötila on päivällä 10 astetta. Pohjoisessa voi sataa vähän lunta. Etelässä voi sataa vähän vettä.

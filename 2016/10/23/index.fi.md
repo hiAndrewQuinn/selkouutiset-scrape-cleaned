@@ -1,0 +1,81 @@
+# Sunnuntai 23.10.2016 (radio)
+
+Suomi vie nyt aseita enemmän Lähi-itään kuin muille alueille. Liikennevakuutus muuttuu ensi vuonna. Välimerellä on pelastettu ihmisiä, jotka yrittivät päästä Eurooppaan. Alkoholi on kielletty Irakissa kokonaan. Timo Kaartinen haluaa pelastaa bandan kielen.
+
+## Suomen asekaupat
+
+![Pääministerin haastattelutunti Kesärannassa 23. lokakuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9247408)
+
+Avaa kuvien katselu
+
+Pääministeri Sipilän mielestä Suomi ottaa ihmisoikeusasiat huomioon, kun se myy aseita. Kuva: Pekka Tynell / Yle
+
+Pääministeri Juha Sipilä sanoo, että Suomen periaatteet asekaupassa eivät ole muuttuneet. Suomi harkitsee edelleen huolellisesti, kenelle se myy aseita.
+
+Uusi raportti kertoo, että Suomi vie nyt aseita enemmän Lähi-itään kuin muille alueille. Suomi on myynyt aseita esimerkiksi Saudi-Arabialle, joka on mukana Jemenin sodassa.
+
+Suomi myi aseita viime vuonna 99 miljoonalla eurolla.
+
+## Uudenlainen liikennevakuutus
+
+![Kolaroitu auto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9237481)
+
+Avaa kuvien katselu
+
+Jos kuski ajaa kolareita, hänen pitää maksaa liikennevakuutuksesta kallis hinta. Kuva: Mauri Ratilainen / AOP
+
+Laki liikennevakuutuksesta muuttuu ensi vuonna. Vakuutuksen hinta ei enää riipu autosta, vaan kuskista. Huono kuski maksaa vakuutuksesta enemmän kuin hyvä kuski.
+
+Uusi laki ei enää määrää, kuinka iso bonus eli alennus voi olla. Vakuutusfirma saa antaa ison bonuksen asiakkaalle, joka ei ole tehnyt liikenteessä yhtään virheitä. Bonuksen voi saada asiakkaan kaikkiin autoihin.
+
+Vakuutusfirmat eivät vielä kerro, minkälaisia liikennevakuutuksia ne aikovat ensi vuonna myydä. Liikennevakuutus on auton omistajalle pakollinen.
+
+## Välimeren pelastusoperaatiot
+
+![Turkkilainen rajavartia katselee kiikareilla merelle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8928354)
+
+Avaa kuvien katselu
+
+Viranomaiset seuraavat liikennettä Välimerellä. Kuva: Sedat Suna / EPA
+
+Välimerellä on pelastettu viikonlopun aikana ihmisiä pienistä ja huonokuntoisista veneistä. He yrittivät päästä Eurooppaan.
+
+Italian viranomaiset sanovat, että lauantaina Välimerellä pelastettiin 2400 ihmistä. 12 ihmistä kuoli, 4 heistä oli lapsia.
+
+Tänä vuonna yli 3000 ihmistä on hukkunut tai kadonnut Välimerellä, kun he ovat yrittäneet päästä Pohjois-Afrikasta Eurooppaan.
+
+## Irakin alkoholikielto
+
+![Mies myy tuotemehua kojussa Bagdadissa, Irakissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9247147)
+
+Avaa kuvien katselu
+
+Bagdadin vanhin mehukioski. Kuva: EPA/ALI ABBAS
+
+Irak on kieltänyt alkoholin kokonaan. Alkoholia ei saa valmistaa eikä myydä.
+
+Irakin parlamentti perustelee kieltoa islaminuskolla. Jos joku rikkoo kieltoa, hän saa isot sakot.
+
+Irakissa on tähän asti valmistettu olutta ja alkoholijuomaa, jossa maistuu anis.
+
+## Bandan kieli
+
+![Sosiaali- ja kulttuuriantropologian professori Timo Kaartinen (keskellä) Banda Elin kylässä 2009.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9237300)
+
+Avaa kuvien katselu
+
+Timo Kaartinen bandalaisten luona. Kuva: Elina Grundström 
+
+Suomalainen Timo Kaartinen on bandalaisten Agricola. Agricola perusti suomen kirjakielen 500 vuotta sitten, Kaartinen on nyt perustamassa bandan kirjakieltä.
+
+Bandan kieltä puhuu noin 5000 ihmistä. He asuvat Bandasaarilla, jotka ovat osa Indonesiaa.
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9240221)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Monet nuoret bandalaiset käyttävät nykyään indonesian kieltä, mutta myös bandan kieli halutaan säilyttää. Siksi tarvitaan myös bandan kirjakieli, ja se on Kaartisen iso projekti. Hän tekee sitä yhdessä bandalaisten ja muiden indonesialaisten kanssa.
+
+Bandalaiset arvostavat professori Timo Kaartista. Sen huomaa siitä, että nykyään monen bandalaisen pojan nimi on Timo.

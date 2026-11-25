@@ -1,0 +1,93 @@
+# Lauantai 25.4.2020 (radio)
+
+Koronaepidemia jatkuu Suomessa. Suomen koronatartunnat. Miten korona vaikuttaa naisiin ja miehiin? Suomalaiset uskovat omaan talouteen. Huomenna on viileä päivä.
+
+## Koronaepidemia jatkuu vielä kauan
+
+![Saksalaislääkäri ottamassa koronatestiä drive-in -testausasemalla Hallessa 27. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11315161)
+
+Avaa kuvien katselu
+
+Nyt pitää jokaisen mennä koronatestiin, jos on jonkinlaisia oireita. Kuva: Ronny Hartmann / AFP
+
+Terveysviranomaiset sanovat, että koronavirus leviää Suomessa vielä kauan.
+
+Koronavirusepidemian huippu on vielä edessä. Se tarkoittaa, että vielä on pitkä aika siihen, että koronavirustartuntojen määrä alkaa laskea Suomessa.
+
+Terveysviranomaiset sanovat, jos oireita tulee, pitää jokaisen mennä koronatestiin. Testiin voi mennä, vaikka oireet ovat lieviä.
+
+Terveysviranomaiset ovat muuttaneet strategiaa.
+
+Aiemmin ajateltiin, että paras tapa pitää epidemia kurissa on se, että rajoitetaan ihmisten liikkumista.
+
+Nyt ajatellaan, että on parasta testata mahdollisimman paljon ihmisiä.
+
+Kun tiedetään, kuinka paljon on ihmisiä, jotka ovat jo saaneet viruksen, on helpompi purkaa arkielämän rajoituksia.
+
+## Suomessa yli 4400 tartuntaa
+
+![Ihmisiä työskentelemässä laboratoriossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11318994)
+
+Avaa kuvien katselu
+
+Suomessa on nyt virallisesti yli 4400 koronavirustartuntaa. Kuva: Joédson Alves / EPA
+
+Suomessa on nyt yli 4400 koronatartuntaa, jotka on varmistettu testillä.
+
+Uusia tartuntoja on löydetty 80.
+
+Koronaan on Suomessa kuollut 186 ihmistä.
+
+## Miten korona vaikuttaa miehiin ja naisiin?
+
+![Tarjoilija kiinnittää ravintolan ikkunaan sulkemisesta kertovaa ilmoitusta. ](https://img.img-cdn.yle.fi/crop_extract,w_4288,h_2412,x_0,y_221/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6681095ea2fc749b714/1587740022)
+
+Avaa kuvien katselu
+
+Ravintoloiden sulkeminen vaikuttaa naisten työpaikkoihin. Kuva: Martin Divisek / EPA
+
+Koronavirus vaikuttaa eri tavalla naisten ja miesten elämään.
+
+Terveyden kannalta isoin ero on se, että koronaviruksen saanut mies kuolee todennäköisemmin kuin nainen, joka on saanut koronaviruksen. Tutkijat sanovat, että tähän voi olla monta syytä.
+
+Talouden kannalta isoin ero on se, että koronavirus vaikuttaa ammateissa, joissa on paljon naisia.
+
+Esimerkiksi ravintoloissa, hotelleissa ja kaupoissa on paljon naisia töissä.
+
+Nyt niillä menee huonosti, ja monet naiset menettävät ehkä työpaikan.
+
+## Suomalaiset uskovat omaan talouteen
+
+![Ihmiset nauttivat säästä Espoon Haukilahdessa.](https://img.img-cdn.yle.fi/crop_extract,w_4041,h_2273,x_0,y_423/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6639355e944c65b14d9/1586779388)
+
+Avaa kuvien katselu
+
+Suomalaiset luottavat omaan talouteen, vaikka koronavirus vaikuttaa moneen asiaan taloudessakin. Kuva: Henrietta Hassinen / Yle
+
+Elämä näyttää nyt synkältä koronaviruksen takia.
+
+Suomalaiset luottavat kuitenkin omaan talousteen ja tulevaisuuteen.
+
+Yle kysyi suomalaisilta, ovatko he huolestuneita työpaikan tai tulojen menettämisestä.
+
+Yli puolet ihmisistä vastasi kyselyssä, että he ovat vain vähän tai eivät ollenkaan huolissaan omasta taloudesta.
+
+Kyselyyn vastasi melkein 1500 ihmistä. Kyselyn mukaan naiset ovat enemmän huolissaan omasta taloudesta kuin miehet.
+
+Vain pieni osa vastaajista oli menettänyt työpaikan.
+
+## Huomenna on viileä sää
+
+![Valkovuokko.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_564/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6665605e9edf3f23e83/1587470252)
+
+Avaa kuvien katselu
+
+Valkovuokot kukkivat nyt Etelä-Suomessa. Kuva: Ronnie Holmberg / Yle
+
+Huomenna sunnuntaina Etelä-Suomessa on poutainen sää.
+
+Pohjois- ja Itä-Suomessa voi tulla lumikuuroja.
+
+Tuuli heikkenee. Päivällä lämpötila on 5 ja 8 asteen välillä.
+
+Yöllä on pakkasta.

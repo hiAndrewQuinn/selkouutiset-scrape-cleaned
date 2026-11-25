@@ -1,0 +1,73 @@
+# Torstai 26.7.2018 (radio)
+
+Pohjavesi. Ruotsin metsäpalot. Itsemurhat. Taksinkuljettajat. Säätietoja.
+
+## Vettä pitää käyttää järkevästi
+
+![Vesilasiin lasketaan hanavettä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10323448)
+
+Avaa kuvien katselu
+
+Vettä pitää käyttää järkevästi, kun on kuivaa. Kuva: Mikko Stig / Lehtikuva
+
+Moni vesilaitos kehottaa suomalaisia käyttämään hanavettä järkevästi.
+
+Suomessa on ollut tosi kuiva kesä. Kuivuus on vaikuttanut pohjavesialueisiin. Pohjavesialueilla on paljon vähemmän vettä kuin yleensä.
+
+Nyt ei esimerkiksi kannata pestä autoa turhaan. Vettä voi käyttää säästeliäästi myös suihkussa.
+
+## Suomi tarjoaa Ruotsille apua
+
+![Sammutushelikopteri Ljusdalissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10323572)
+
+Avaa kuvien katselu
+
+Ruotsi on saanut monesta maasta apua metsäpalojen sammuttamiseen. Kuva: Jonathan Nackstrand / AFP
+
+Suomi tarjoaa Ruotsille apua metsäpalojen sammuttamiseen.
+
+Suomella on valmiina pelastusjoukkue, johon kuuluu 35 sammuttajaa. Jos Ruotsi pyytää Suomelta apua, on joukkue vuorokauden kuluessa valmiina lähtöön. Joukkueen mukana lähtee esimerkiksi paloautoja ja moottoriruiskuja.
+
+Ruotsissa on paljon pelastustyöntekijöitä muista maista auttamassa metsäpalojen sammuttamisessa.
+
+## Liettuassa tehdään eniten itsemurhia
+
+![Enkelipatsas hautausmaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9634351)
+
+Avaa kuvien katselu
+
+Suomessa 100 000 ihmisen joukosta 13 tekee itsemurhan. Kuva: Henrietta Hassinen / Yle
+
+Euroopan maissa on tutkittu itsemurhien määrää. Suomessa on ennen ajateltu, että Suomessa tehdään tosi paljon itsemurhia.
+
+Tilastoista selviää, että Suomi ei ole maa, jossa tehdään eniten itsemurhia.
+
+Eniten itsemurhia tehdään Liettuassa. Liettuassa 100 000 ihmisen joukosta 30 tekee itsemurhan. Suomessa määrä on 13.
+
+Etelä-Euroopassa itsemurhia tehdään vähiten.
+
+## Taksinkuljettajista on pula
+
+![Takseja tolpalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10130309)
+
+Avaa kuvien katselu
+
+Taksiyritykset voivat palkata satoja kuljettajia. Kuva: Mikko Koski / Yle
+
+Taksinkuljettajista on pula.Näin sanoo moni taksiyritys.
+
+Pääkaupunkiseudun yritykset voivat palkata satoja uusia kuljettajia.
+
+Suomen taksilaki muuttui heinäkuun alussa. Taksiyritykset ovat huomanneet, että lain muuttumisen takia moni taksinkuljettaja lopetti työt. Kuljettajat uskovat, että lainmuutos pienentää heidän ansioita.
+
+## Lapissa on vähän viileämpää
+
+![Kilpisjärven Saana-tunturi kylpee keskiyön auringossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10266977)
+
+Avaa kuvien katselu
+
+Lapissa sää viilenee vähän. Kuva: Kaisa Siren / AOP
+
+Helle jatkuu lähes koko Suomessa.
+
+Lapissa on vähän viileämpää.Vettä voi sataa vähän maan pohjoisosassa.

@@ -1,0 +1,81 @@
+# Perjantai 7.4.2023 (radio)
+
+Keskusta. Pitkäperjantai. Lintujen kevätmuutto. Kanadan jäämyrsky. Suomen sää.
+
+## Keskusta
+
+![Ihmisiä pöydän äärellä, pöydän takana on keskustan juliste.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690333)
+
+Avaa kuvien katselu
+
+Keskusta menestyi eduskuntavaaleissa huonosti. Kuva: Jaana Polamo / Yle
+
+Keskustassa ei haluta osallistua seuraavaan hallitukseen. 
+
+Keskustan piirijohtajat sanovat, että puolueen on parempi mennä oppositioon. Piirijohtajat johtavat keskustan työtä Suomen eri alueilla.
+
+Keskusta on ollut mukana Sanna Marinin hallituksessa. Keskusta kuitenkin hävisi eduskuntavaaleissa viime sunnuntaina. Puole menetti monta edustajanpaikkaa.
+
+Monet keskustan päättäjät ajattelevat, että vastuu uudesta hallituksesta kuuluu puolueille, jotka voittivat vaaleissa.
+
+Neuvottelut uudesta hallituksesta alkavat heti pääsiäisen jälkeen. Neuvotteluja johtaa kokoomus, joka voitti vaalit. Kokoomus on uuden eduskunnan suurin puolue.
+
+## Pitkäperjantai
+
+![Vanha maalaus Jeesuksesta ristillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690334)
+
+Avaa kuvien katselu
+
+Kristillinen perinne kertoo, että Jeesus kuoli ristillä. Sitä muistellaan pitkäperjantaina. Kuva: Kirkon kuvapankki / Marco Peretto
+
+Suomessa on vietetty pitkäperjantaita. Pitkäperjantaina kristityt muistelevat Jessuksen kuolemaa. Pitkäperjantai on yksi pääsiäisen ajan juhlapyhistä.
+
+Pääsiäispäivä on sunnuntaina. Silloin kristityt eri puolilla maailmaa muistelevat Jeesuksen ylösnousemusta eli sitä, että Jeesus heräsi eloon kuoleman jälkeen. 
+
+Pääsiäinen on kristittyjen tärkein juhla.
+
+## Lintujen kevätmuutto
+
+![Hanhia kevätmuutolla Tyrnävällä 18.4.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9569660)
+
+Avaa kuvien katselu
+
+Parvi hanhia palaamassa etelästä Suomeen. Kuva: Risto Degerman / Yle
+
+Lintujen kevätmuutto etelästä Suomeen on sujunut tänä keväänä hitaasti. Näin kertoo lintujärjestö Birdlife Suomi.
+
+Lintujen kevätmuutto on hidastunut kylmän sään takia. Erityisesti yöt ovat olleet kylmiä.
+
+Lintujen kevätmuuttoa on haitannut myös vastatuuli, joka on puhaltanut pohjoisesta kohti etelää.
+
+Birdlife Suomi sanoo, että Suomeen on kuitenkin jo tullut paljon esimerkiksi hanhia ja kiuruja.
+
+Lintujen kevätmuutto luultavasi vilkastuu pian.
+
+## Kanadan jäämyrsky
+
+![Puita on kaatunut kadulle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690336)
+
+Avaa kuvien katselu
+
+Myrsky on haitannut Kanadassa esimerkiksi liikennettä. Kuva: Andrej Ivanov / AFP
+
+Kanadassa on ankara talvisää. Maassa on riehunut jäämyrsky. Ainakin 2 ihmistä on kuollut jäämyrskyn takia.
+
+Myrsky myös katkaisi sähköt miljoonalta kanadalaiselta. Myrsky on myös haitannut liikennettä, koska se on kaatanut puita autoteille.
+
+Myrskyalueella on vielä paljon puita, jotka ovat jään peitossa. Siksi Kanadan viranomaiset varoittavat ihmisiä puista, jotka voivat kaatua raskaan jään takia.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690338)
+
+Avaa kuvien katselu
+
+Suomessa pääsiäisen sää on poutainen, vettä ei sada. Pääsiäisenä on myös aurinkoista. 
+
+Suuressa osassa maata on vielä lunta. Pohjoisessa lunta on jopa yli metrin.
+
+Lämpötila on 5 ja 10 asteen välillä melkein koko maassa. Etelässä lämpötila voi nousta yli 10 asteen. Kaarinassa mitattiin perjantaina 12,8 astetta.
+
+Yöt ovat kuitenkin vielä kylmiä.

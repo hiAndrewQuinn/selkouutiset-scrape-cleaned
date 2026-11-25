@@ -1,0 +1,75 @@
+# Keskiviikko 3.10.2018 (radio)
+
+Monilla työpaikoilla on tänään lakkoiltu. Velkaantuneiden elämä on entistä vaikeampaa. Indonesian Sulawesissa purkautui nyt tulivuori. Vuoden S2-opettajat sanovat, että digitaaliset taidot ovat tärkeitä myös maahanmuuttajille.
+
+## Lakkopäivä
+
+![Etiketöintilinjasto juomavalmistaja Hartwallin Lahden yksikössä Lahdessa tiistaina 2. lokakuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10437497)
+
+Avaa kuvien katselu
+
+Vuorokauden pituinen lakko on pysäyttänyt esimerkiksi tehtaita ja elintarvikealan yrityksiä. Kuva: Samuli Ikäheimo / Lehtikuva
+
+Työntekijät monilla työpaikoilla ovat olleet tänään lakossa. Lakko kestää vuorokauden.
+
+Lakossa on kymmeniä tuhansia työntekijöitä ympäri maata. Elinkeinoelämä arvioi, että lakon takia firmoille koituu ehkä kymmenien miljoonien eurojen tappiot.
+
+Työntekijät vastustavat lakolla hallituksen uutta lakiesitystä. Hallitus haluaa helpottaa työntekijöiden irtisanomista pienissä firmoissa.
+
+## Velkaantuneet
+
+![nainen tuskailee laskua](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10365527)
+
+Avaa kuvien katselu
+
+Takuusäätiö sanoo, että suomalaisilla on enemmän velkaa kuin ennen. Kuva: Ville Välimäki / Yle
+
+Velkaantuneiden ihmisten elämästä on tullut entistä vaikeampaa, kertoo Takuusäätiö.
+
+Takuusäätiö auttaa ja neuvoo ihmisiä, joilla on vaikeuksia selvitä velkojen kanssa.
+
+Takuusäätiö kertoo, että sen neuvontapalvelu on ollut ennätysruuhkainen. Säätiöön on ottanut yhteyttä elo-syyskuussa noin 10 000 ihmistä.
+
+Takuusäätiö sanoo, että suomalaisilla on enemmän velkaa kuin ennen. Ratkaisuja velallisten elämän helpottamiseksi on myös entistä vaikeampi löytää.
+
+## Tulivuorenpurkaus
+
+![Tulivuoren tuhkapilvi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10436259)
+
+Avaa kuvien katselu
+
+Soputan-tulivuori purkautui Sulawesissa Indonesiassa. Kuva: BNPB / EPA-EFE
+
+Indonesiassa Sulawesin saarella on ollut tulivuorenpurkaus.
+
+Tulivuori Soputan syöksi tuhkaa 4 kilometrin korkeuteen. Kenenkään ei kuitenkaan tiedetä loukkaantuneen.
+
+Samaan aikaan Sulawesissa jatketaan pelastustöitä perjantain maanjäristyksen ja tsunamin jäljiltä. Kuolleita on löytynyt jo yli 1400.
+
+## Vuoden S2-opettajat
+
+![Kaksi naista seisoo kukkapuskat ja kunniakirjat kädessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10437406)
+
+Avaa kuvien katselu
+
+Marianne Seppä ja Réka Aarnos. Kuva: Svetlana Ostapuk
+
+Réka Aarnos ja Marianne Seppä on valittu Vuoden S2 -opettajiksi. S2-opettajat opettavat suomen kieltä maahanmuuttajille.
+
+Réka Aarnos on työssä Omniassa ja Marianne Seppä Luksiassa.
+
+Réka Aarnos ja Marianne Seppä kertovat, mikä on paras tapa oppia suomen kieltä:
+
+Réka: Paras tapa oppia suomea on harjoitella paljon itse. Luokassakin voi oppia, mutta eniten oppii kotona, kun itse tekee työtä. Marianne: Suomen kieltä oppii käyttämällä suomea. Puhua suomea kaupassa, pankeissa virastoissa.
+
+Réka Aarnos ja Marianne Seppä sanovat, että maahanmuuttajan on tärkeää oppia suomen kielen lisäksi myös digitaalisia taitoja:
+
+Réka: Nykyisin melkein kaikki osaavat käyttää puhelimia, mobiililaitteita, mutta minun mielestä Suomessa, jos menee työelämään, pitää osata myöskin käyttää tietokonetta. Ja sitäkin voi harjoittelemalla voi oppia.
+
+Marianne:Taitoja tarvitaan muun muassa koulutukseen hakeutumisessa, työhaussa ja asioinnissa.
+
+Voiko näitä taitoja opiskella jo ennen kuin osaa suomea hyvin?
+
+Réka: Voi. Ehdottomasti, Siihen ei tarvita suomen kielen taitoa.
+
+Marianne: Hyviä kokemuksia on saatu myös vertaisohjauksesta, jossa tietotekniikkaa hyvin osaava maahanmuuttaja auttaa toista omalla kielellä.

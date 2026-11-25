@@ -1,0 +1,61 @@
+# Sunnuntai 26.9.2021 (radio)
+
+Saksan vaalit. Helsinki-Vantaa. Tatuoinnit. Sää.
+
+## Saksan vaalit
+
+![Tiemainokset kolmesta vaalien ehdokkaasta Annalena Baerbockista, Olaf Scholzista ja Armin Laschet.](https://img.img-cdn.yle.fi/crop_extract,w_6026,h_3390,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-858164614dc36a391df/1632486798)
+
+Avaa kuvien katselu
+
+Saksan vaaleissa on tällä kertaa kolme kansleriehdokasta: vihreiden Annalena Baerbock, SPD:n Olaf Scholz ja CDU:n Armin Laschet. Kuva Berliinistä 14. syyskuuta Kuva: Filip Singer / EPA
+
+Saksalaiset äänestivät sunnuntaina parlamenttivaaleissa. Äänestäminen loppui illalla kello 19.
+
+Vaaleissa ratkeaa, kuka johtaa Saksaa Angela Merkelin jälkeen. Liittokansleri Angela Merkel on johtanut Saksaa 16 vuotta. Hän luopuu vallasta vaalien jälkeen.
+
+Mielipidekyselyt ovat kertoneet, että kamppailu Saksan liittokanslerin paikasta on tasainen. Angela Merkelin puolueen CDU:n ehdokas on Armin Laschet. Sosiaalidemokraattien ehdokas on Saksan valtiovarainministeri Olaf Scholz. Liittokansleriksi yrittää myös vihreiden ehdokas Annalena Baerbock.
+
+Vaalien jälkeen Saksaan tehdään hallitus. Hallitusneuvottelut ovat ehkä vaikeat, koska vaali on tasainen. Siksi voi kestää monta päivää ennen kuin tiedetään, kuka on Saksan uusi johtaja.
+
+## Helsinki-Vantaan lentoaseman on vihreä linja
+
+![Matkustajia Helsinki-Vantaan lentokentällä 4. elokuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_360/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-85852261506c1fa3d50/1634389914)
+
+Avaa kuvien katselu
+
+Arkistokuva Helsinki-Vantaan lentoasemalta elokuun alusta. Kuva: Roni Rekomaa / Lehtikuva
+
+Helsinki-Vantaan lentoasemalle on avattu vihreä linja.
+
+Vihreää linjaa pitkin voi tulla Suomeen, jos on saanut 2 koronarokotusta. Matkustajista yli 80 prosenttia on saanut 2 rokotusta.
+
+Koronatodistus katsotaan vihreällä linjalla vain joiltakin ihmisiltä. Tarkoituksena on purkaa jonoja lentoasemalla. Vihreästä linjasta kertoi Vantaan kaupunginjohtaja Ritva Viljanen.
+
+## Tatuoinnit
+
+![Asiakas esittelee valmiita kämmenselän tribaalitatuointejaan. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5597643)
+
+Avaa kuvien katselu
+
+Asiakas esittelee valmiita kämmenselän tribaalitatuointejaan.  Kuva: YLE / Karoliina Kantola
+
+Moni ihminen haluaa poistaa vanhan tatuoinnin. Tatuoinnin voi poistaa laserilla.
+
+Terveysyritykset kertovat, että tatuointeja poistetaan paljon enemmän kuin 10 vuotta sitten.
+
+Laserterapeutti Malin Ehnqvist Eiran sairaalasta kertoo, että eniten tatuointeja poistetaan alle 40-vuotiailta ihmisiltä. Naiset haluavat poistaa tatuoinnin vähän useammin kuin miehet.
+
+Ihmiset haluavat usein poistaa tatuoinnin, joka on tehty esimerkiksi kaulaan tai kasvoihin.
+
+## Sää
+
+![Keltaisia koivunlehtiä lähikuvassa, lehvästön läpi paistaa aurinko.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_322/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-853207613f4c1a751f1/1631538443)
+
+Avaa kuvien katselu
+
+Keltaisia koivunlehtiä lähikuvassa, lehvästön läpi paistaa aurinko. Kuva: Antti Ullakko / Yle
+
+Maanantain sää on monin paikoin aurinkoinen. Lämpötila on koko Suomessa 10 ja 15 asteen välillä. Varsinkin pohjoisessa on lämpimämpää kuin tavallisesti syyskuun lopussa.
+
+Tiistaina Etelä-Suomessa ja Keski-Suomessa on pilvisempää kuin maanantaina. Pohjoisessa sää on myös tiistaina aurinkoinen. Lämpötila on myös tiistaina 10 ja 15 asteen välillä.

@@ -1,0 +1,63 @@
+# Lauantai 21.7.2018 (radio)
+
+Pohjois-Suomessa sammutetaan metsäpaloja. Marjoja on metsässä melko vähän. Rapuja saa nyt pyydystää. Sää pysyy lämpimänä.
+
+## Pohjois-Suomessa sammutetaan metsäpaloja
+
+![Metsäpalo Venäjän Ratsasvaarassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10316443)
+
+Avaa kuvien katselu
+
+Metsäpalo uhkaa levitä Venäjän puolelta Suomeen. Kuva: Lapin pelastuslaitos
+
+Pohjois-Suomessa pelastuslaitoksen palomiehet yrittävät sammuttaa metsäpaloja.
+
+Inarissa palaa metsää. Metsäpalo levisi Venäjältä rajan yli Suomeen.
+
+Sallassa toinen tulipalo uhkaa myös levitä Venäjältä Suomen puolelle. Savu ja kipinät leijailevat tuulen mukana Suomen puolelle.
+
+Tänään sade on auttanut hieman palojen sammuttamisessa.
+
+Tavalliset ihmiset ovat sanoneet, että he haluavat auttaa palomiehiä. Lapin Pelastuslaitos sanoo, että palomiehet eivät tarvitse apua. Metsäpaloalueelle ei saa mennä, sanoo Pelastuslaitos.
+
+## Metsässä on melko vähän marjoja
+
+![mustikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10312342)
+
+Avaa kuvien katselu
+
+Nyt kannattaa etsiä mustikoita metsästä. Kuva: Mikko Savolainen / Yle
+
+Metsissä kasvaa tänä kesänä melko vähän marjoja. Kuivuuden takia mustikoita ja vadelmia kasvaa vähemmän kuin aiemmin.
+
+Nyt on paras aika etsiä metsästä mustikoita ja vadelmia. Puolukat kypsyvät vasta myöhemmin.
+
+Hyvää mustikkapaikkaa voi etsiä internetistä. Sieltä löytyy marjahavainnot.fi -niminen verkkosivu. Verkkosivulta saa tiedon siitä, missä päin Suomea on nyt kypsiä mustikoita.
+
+## Järvistä voi pyydystää rapuja
+
+![Marko Paloniemi koeravustaa Lappajärvellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7421856)
+
+Avaa kuvien katselu
+
+Rapuja pyydystetään välineellä, jonka nimi on rapumerta. Kuva: Pasi Takkunen/Yle
+
+Tänään lauantaina alkoi ravustuskausi. Se tarkoittaa, että rapuja saa pyydystää järvistä. Tänä kesänä ravut ovat kasvaneet hyvin, koska on ollut lämmintä ja vedet lämpenivät nopeasti.
+
+Suomen järvissä on täplärapuja ja jokirapuja. Jokirapuja on eniten Itä- ja Pohjois-Suomessa.
+
+Rapujen määrä vaihtelee paljon. Rapurutto on ikävä tauti, joka voi tappaa paljon rapuja.
+
+Rapuja voi pyydystää lokakuun loppuun asti.
+
+## Sää pysyy lämpimänä
+
+![Auto ajaa tulvivalla kadulla Riihimäellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10316467)
+
+Avaa kuvien katselu
+
+Kova sadekuuro tuo kadulle paljon vettä. Kuva: Eero Auvinen
+
+Sää pysyy lämpimänä. Huomenna sunnuntaina lämpimintä on Pohjois-Suomessa.
+
+Koko maassa on pilvistä. Ukkonen voi jyrähdellä ja ukkosen aikana voi tulla kova sadekuuro. Muuten sataa vain vähän.

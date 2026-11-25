@@ -1,0 +1,69 @@
+# Lauantai 29.9.2018 (radio)
+
+Maanjäristys ja tsunami iskivät Indonesiassa. Kreikassa on hirmumyrsky. Suomen Pankin pääjohtaja arvioi, että asuntolainojen korot alkavat nousta vuoden päästä. Metsä parantaa oppimista.
+
+## Maanjäristys Indonesiassa
+
+![Tsunamin aiheuttamia vahinkoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10430330)
+
+Avaa kuvien katselu
+
+Maanjäristys ja tsunami tuhosivat myös taloja. Kuva: BNPB Handout / AOP
+
+Indonesiassa, Aasiassa, on tapahtunut maanjäristys. Maanjäristys aiheutti myös tsunamin eli tosi ison aallon.
+
+Ainakin noin 400 ihmistä kuoli maanjäristyksen ja tsunamin takia. Loukkaantuneita on monta sataa.
+
+Pelastajien on vaikea viedä apua perille, koska maanjäristys katkaisi teitä ja siltoja. Myös sähköt ja puhelimet toimivat alueella huonosti.
+
+Maanjäristys ja tsunami iskivät tällä kertaa Sulawesin saarelle, joka on osa Indonesiaa.
+
+Indonesia on alueella, jossa maanjäristykset ovat tavallisia. Indonesiassa oli maanjäristys viimeksi elokuussa.
+
+## Hirmumyrsky Kreikassa
+
+![Kaksi naista matkalaukkujen ja ympäri kääntyneiden sateenvarjojen kanssa erittäin voimakkaassa tuulessa Ateenan satamassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10430498)
+
+Avaa kuvien katselu
+
+Tuuli voimistui, kun hirmumyrsky lähestyi Kreikkaa. Kuva: Yannis Kolesidis / EPA
+
+Kreikassa on hirmumyrsky. Myrsky on saanut nimen Zorba.
+
+Myrsky on tuonut Kreikkaan tosi kovaa tuulta ja sadetta.
+
+Kreikan viranomaiset sanovat, että sää on vaarallinen. Siksi ihmisten on hyvä pysyä sisällä.
+
+## Asuntolainojen korot
+
+![Olli Rehn](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9764727)
+
+Avaa kuvien katselu
+
+Suomen Pankin pääjohtaja Olli Rehn. Kuva: Henrietta Hassinen / Yle
+
+Täällä Suomessa asuntolainojen korot alkavat nousta vuoden päästä. Näin arvioi Suomen Pankin pääjohtaja Olli Rehn.
+
+Rehn sanoo, että ihmisten on hyvä varmistaa, että oma talous kestää koron nousun. Nyt korot ovat matalia, mutta asuntolainaa pitää hoitaa myös koron nousun jälkeen.
+
+Monilla suomalaisilla on asuntolainaa, ja iso osa palkasta menee lainan maksamiseen.
+
+## Metsässä oppii
+
+![Hämeenkyrön Mahnalan ympäristökoulu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10401709)
+
+Avaa kuvien katselu
+
+Mahnalan koulusta on lyhyt matka metsään. Kuva: Jani Aarnio / Yle
+
+Metsä parantaa oppimista. Tämä on huomattu Mahnalan koulussa, Hämeenkyrössä. Koulu on pitänyt oppitunteja metsässä jo yli 20 vuotta.
+
+Tutkimukset kertovat, että metsä rauhoittaa aivot. Myös Mahnalan koulun opettajat ja oppilaat sanovat, että oppiminen ja muistaminen on helpompaa metsässä kuin luokkahuoneessa.
+
+Metsässä oppilaat saavat itse tutkia ympäristöä. Kun lapset tekevät itse ja liikkuvat enemmän, he myös oppivat paremmin.
+
+Yhteinen tekeminen metsässä kehittää myös lasten sosiaalisia taitoja. He oppivat tuntemaan toisiaan paremmin, ja kiusaaminen vähenee.
+
+Monissa kouluissa mietitään, miten puhelimet vaikuttavat oppimiseen. Mahnalan koulussa puhelimet eivät ole ongelma. Metsässä oppilaat eivät edes muista puhelinta.
+
+Ei ihme, että lähimetsä on Mahnalan koulun oppilaille tärkeä paikka.

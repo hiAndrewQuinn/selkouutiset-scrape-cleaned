@@ -1,0 +1,83 @@
+# Sunnuntai 15.1.2023 (radio)
+
+Juupajoen poliisioperaatio. Nepalin lento-onnettomuus. Suomalaiset perheet. Kalifornian ja Filippiinien myrskyt. Suomen sää.
+
+## Poliisioperaatio Juupajoella
+
+![Paljon poliisiautoja talon edessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687900)
+
+Avaa kuvien katselu
+
+Poliisi piiritti taloa Juupajoella sunnuntaina. Kuva: Petri Aaltonen / Yle
+
+Poliisilla on ollut epätavallinen operaatio Juupajoella. 
+
+Poliisi piiritti taloa, jossa oli mies aseen kanssa. Miestä epäillään rikoksesta.
+
+Operaatio alkoi sunnuntaina aamulla, ja poliisi sai miehen kiinni sunnuntaina iltapäivällä.
+
+Poliisi kertoo, että kukaan ei kuollut tai loukkaantunut. Mies oli talossa yksin.
+
+Juupajoki on alle 60 kilometrin päässä Tampereesta.
+
+## Lento-onnettomuus Nepalissa
+
+![Ihmisiä ja pudonnut lentokone.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687902)
+
+Avaa kuvien katselu
+
+Lento-onnettomuuden pelastustöihin osallistui paljon ihmisiä. Kuva: Bijaya Neupane / EPA
+
+Aasiassa Nepalissa on tapahtunut lento-onnettomuus. Onnettomuudessa kuoli noin 70 ihmistä.
+
+Yeti Airlinesin lentokone putosi maahan lähellä Pokharan kaupunkia. Se tuli Nepalin pääkaupungista Kathmandusta.
+
+Lentokoneessa oli 72 ihmistä, joista melkein kaikki kuolivat. Joukossa oli myös ulkomaalaisia, mutta ei suomalaisia.
+
+Nepal on Himalajan vuoristossa, jossa lentäminen on vaikeaa. Vielä ei tiedetä, mikä oli sunnuntain onnettomuuden syy.
+
+## Suomalaiset perheet
+
+![Pienen lapsen kädet, jotka ottavat tukea tuohikorista. Taustalla lelulaatikko.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97142362ac3e25c2bd0/1712041381)
+
+Avaa kuvien katselu
+
+Kuva: Susanna Pesonen / Yle
+
+Suomessa suurin osa lapsista kasvaa perheissä, joissa vanhemmat ovat naimisissa. Tilastokeskus kertoo, että noin 60 prosenttia lapsista kasvoi aviopariperheessä vuonna 2021.
+
+Määrä on kuitenkin pienempi kuin ennen. Vielä 30 vuotta sitten noin 80 prosenttia lapsista kasvoi perheessä, jossa vanhemmat ovat naimisissa.
+
+Avopariperheiden määrä siis kasvaa. Avopariperheessä vanhemmat eivät ole naimisissa. Myös yhden vanhemman perheitä on enemmän kuin ennen.
+
+## Myrskyjä Kaliforniassa ja Filippiineillä
+
+![Mies ja nainen siivoavat mutaa pois pihalta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687901)
+
+Avaa kuvien katselu
+
+Kaliforniassa on satanut vettä jo yli 2 viikkoa. Kuva: Peter Dasilva / EPA
+
+Myrskyt tekevät tuhoa eri puolilla maailmaa.
+
+USA:ssa Kalifornian myrskyissä on kuollut noin 20 ihmistä. Kovat sateet ovat jatkuneet Kaliforniassa jo yli 2 viikkoa.
+
+Sateiden takia Kaliforniassa pelätään tulvia. Viranomaiset ovat varoittaneet tulvan mahdollisuudesta miljoonia ihmisiä.
+
+Myös Aasiassa Filippiineillä on ollut kovia myrskyjä. Myrskyissä on kuollut noin 30 ihmistä.
+
+Filippiinien myrskyt alkoivat jo jouluna. Monet filippiiniläiset asuvat nyt evakuointikeskuksissa, koska myrskyt ovat rikkoneet taloja.
+
+## Suomen sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687899)
+
+Avaa kuvien katselu
+
+Suomessa sateinen sää jatkuu maanantaina.
+
+Lämpötila on vähän plussan puolella suuressa osassa maata. Siksi sade on pääasiassa vettä tai räntää.
+
+Vain Lapissa on vähän pakasta ja sade on lunta. Osassa Lappia lunta voi sataa maanantaina jopa yli 10 senttimetriä.
+
+Tiistaina sää poutaantuu eli sateet loppuvat. Sää myös kylmenee, ja Pohjois-Suomessa on vähän pakkasta. Lapissa pakkasta on tiistaina paikoin yli 10 astetta.

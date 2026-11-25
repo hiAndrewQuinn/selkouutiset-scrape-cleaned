@@ -1,0 +1,73 @@
+# Torstai 28.10.2021 (radio)
+
+Korona-apua Latviaan. Ravintoloiden koronarajoitukset. Koronarokotukset etenevät. Tupakointi vähenee. Sääennuste.
+
+## Korona-apua Latviaan
+
+![Hengityskone Tyksin teho-osastolla.](https://img.img-cdn.yle.fi/crop_extract,w_5841,h_3286,x_0,y_301/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7830616048cdcf77b25/1615384074)
+
+Avaa kuvien katselu
+
+Osa koronapotilaista tarvitsee hengityskonetta. Kuva: Minna Rosvall / Yle
+
+Suomi lähettää korona-apua Latviaan. Suomi lähettää Latviaan 6 hengityskonetta koronapotilaiden hoitoa varten.
+
+Latvia on pyytänyt muilta EU-mailta apua. Latvia tarvitsee apua koronapotilaiden sairaalahoitoon.
+
+Latviassa on nyt ennätyspaljon koronatartuntoja ja koronakuolemia. Torstaina Latvia kertoi, että uusia koronatartuntoja on melkein 3000 päivässä. Uusia koronakuolemia oli 64 eli enemmän kuin koskaan ennen 1 päivän aikana.
+
+## Ravintoloiden koronarajoitukset
+
+![Tarkastamme koronapassin -kyltti.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-867938616a03d8b8ed4/1634338088)
+
+Avaa kuvien katselu
+
+Ravintola välttää koronarajoitukset, jos se vaatii asiakkailta koronapassia. Kuva: Silja Viitala / Yle
+
+Ravintoloiden koronarajoitukset jatkuvat osassa Suomea. Hallitus on päättänyt, että rajoitukset ovat voimassa marraskuun puoliväliin asti.
+
+Rajoitukset koskevat alueita, joiden koronatilanne on huono.
+
+Rajoitusten takia ravintoloiden pitää lopettaa alkoholin myynti keskiyöllä eli kello 24. Ne saavat myös ottaa vähemmän asiakkaita kuin tavallisesti.
+
+Ravintolan ei kuitenkaan tarvitse noudattaa koronarajoituksia, jos se vaatii asiakkailta koronapassia. Koronapassi kertoo, että ihmisellä on suoja koronaa vastaan, esimerkiksi koronarokotukset.
+
+## Koronarokotukset etenevät
+
+![Niko Torikkaa saa toisen koronarokotuksen, jonka antaa sairaanhoitaja Maroufian Pouye.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-87034561726c5b081ba/1639583307)
+
+Avaa kuvien katselu
+
+Nuoret ovat ottaneet koronarokotuksia myös koronapassin takia. Kuva: Minna Rosvall / Yle
+
+Koronarokotukset etenevät Suomessa. 78 prosenttia yli 12-vuotiaista on saanut 2 koronarokotusta.
+
+Koronarokotus antaa hyvän suojan koronatautia vastaan. Sairaalahoidossa on pääosin koronapotilaita, joita ei ole rokotettu.
+
+Myös alle 35-vuotiaat ovat alkaneet ottaa koronarokotuksia enemmän kuin ennen. Syynä on ehkä se, että monet ravintolat ja baarit vaativat asiakkailta koronapassia. Koronapassin saa, kun ottanut 2 koronarokotusta.
+
+## Tupakointi vähenee
+
+![Lähikuvassa silhuettina henkilö polttaa tupakkaa.](https://img.img-cdn.yle.fi/crop_extract,w_2202,h_1239,x_0,y_55/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6299095e1882948693d/1578666150)
+
+Avaa kuvien katselu
+
+Kuva: Nella Nuora / Yle
+
+Suomalaiset tupakoivat vähemmän kuin ennen. Terveyden ja hyvinvoinnin laitoksen tilasto kertoo, että 12 prosenttia aikuisista tupakoi joka päivä.
+
+Tupakointi on vähentynyt Suomessa jo pitkään. 20 vuotta sitten noin 30 prosenttia miehistä ja noin 20 prosenttia naisista tupakoi joka päivä.
+
+Tupakoitsija polttaa yleensä vähän yli askin tupakkaa päivässä. Se on noin 400 askia eli melkein 4000 euroa vuodessa.
+
+## Perjantain sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12165281)
+
+Avaa kuvien katselu
+
+Perjantaina maan keskiosassa sataa vettä.
+
+Maan eteläosassa ja Pohjois-Lapissa sää on paikoin aurinkoista.
+
+Lämpötila on maan etelä- ja keskiosassa noin +10 astetta, Lapissa 0 ja +3 asteen välillä.

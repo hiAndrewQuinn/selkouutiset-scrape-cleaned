@@ -1,0 +1,76 @@
+# Torstai 7.7.2022
+
+Puoluekannatus. Rajavartiolaki. Britannian hallituskriisi. Koronatilanne. Sääennuste.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Puoluekannatus
+
+![Puoluekannatus heinäkuussa 2022](https://img.img-cdn.yle.fi/crop_extract,w_1622,h_912,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97881562c58e69233c1/1657124894)
+
+Avaa kuvien katselu
+
+Kokoomus on suosituin puolue. Kuva: Yle
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Suosituin puolue on kokoomus. Kokoomusta kannattaa melkein 24 prosenttia kyselyn vastaajista. Kokoomus on oppositiopuolue eli se ei ole hallituksessa. Kokoomuksen kannatus on laskenut hieman kesäkuusta.
+
+Toiseksi suosituin puolue on SDP. SDP:tä kannattaa melkein 20 prosenttia kyselyn vastaajista. SDP on pääministeripuolue eli se on hallituksessa ja pääministeri on SDP:stä. SDP:n kannatus on noussut hieman kesäkuusta.
+
+Kolmanneksi suosituin puolue on perussuomalaiset, jonka kannatus on 15 prosenttia.
+
+Keskustapuolueen kannatus on vähän alle 12 prosenttia, vihreiden vähän alle 10 prosenttia ja vasemmistoliiton vähän alle 8 prosenttia. Keskusta, vihreät ja vasemmistoliitto ovat hallituspuolueita.
+
+## Rajavartiolaki
+
+![Rajamerkki Suomen valtakunnanrajalla.](https://img.img-cdn.yle.fi/crop_extract,w_4011,h_2256,x_0,y_242/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-954406627defb69d4ef/1652428016)
+
+Avaa kuvien katselu
+
+Rajamerkki Suomen rajalla. Kuva: Heikki Haapalainen / Yle
+
+Eduskunta on hyväksynyt uuden rajavartiolain.
+
+Rajavartiolakiin tulee aiempaa laajemmat mahdollisuudet rajoittaa rajaliikennettä poikkeustilanteissa. Jos esimerkiksi Venäjä lähettää Suomen rajalle paljon turvapaikanhakijoita, Suomi voi sulkea rajan.
+
+Eduskunnassa oli paljon eri mielipiteitä uudesta rajavartiolaista. Lopulta eduskunta kuitenkin hyväksyi uuden lain yksimielisesti eli ilman äänestystä.
+
+## Britannian hallituskriisi
+
+![Boris Johnson.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1679,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97908962c69adc4ca99/1657182978)
+
+Avaa kuvien katselu
+
+Britannian pääministeri Boris Johnson eroaa. Kuva: Tejas Sandhu / AOP
+
+Britannian hallituksessa on kriisi. Pääministeri Boris Johnson ilmoitti torstaina iltapäivällä, että hän eroaa konservatiivipuolueen johdosta ja pääministerin tehtävästä. Syy on se, että monet ministerit ja muut henkilöt Britannian hallinnossa ovat tyytymättömiä Johnsoniin.
+
+Johnson sanoo, että hän haluaa kuitenkin olla pääministeri siihen asti, että hänelle on valittu seuraaja puolueessa.
+
+Britannian uusi pääministeri nimitetään syksyllä, viimeistään lokakuussa. Vielä ei tiedetä, saako Johnson olla pääministeri siihen asti.
+
+## Koronatilanne
+
+![Sairaalahoidossa ja tehohoidossa olleet koronapoitlaat tilastografiikkaa.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97915262c6aa456f24c/1657189862)
+
+Avaa kuvien katselu
+
+Koronapotilaiden määrä on alkanut taas kasvaa. Kuva: Derrick Frilund / Yle
+
+Suomen koronatilanne on kääntynyt taas hieman huonompaan suuntaan. Terveyden ja hyvinvoinnin laitos kertoo, että koronapotilaiden määrä sairaaloissa on alkanut taas kasvaa.
+
+Torstaina päivällä sairaalahoidossa oli 475 koronapotilasta. Tehohoidossa oli 8 koronapotilasta.
+
+Kevään ajan koronapotilaiden määrä väheni. Nyt sairaalahoidon kuormitus on kääntynyt huonompaan suuntaan.
+
+## Sää
+
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12528188)
+
+Avaa kuvien katselu
+
+Perjantaina pilvisyys vaihtelee. Välillä on pilvistä ja välillä paistaa aurinko.
+
+Perjantaina pilvisyys vaihtelee, mutta enimmäkseen on poutaa eli ei sada. Pohjois-Lapissa tulee kuitenkin sadekuuroja. Lämpötila on enimmäkseen 17 ja 22 asteen välillä.

@@ -1,0 +1,59 @@
+# Sunnuntai 21.7.2019 (radio)
+
+Kaksi ihmistä kuoli Kuutostiellä. Ravustuskausi alkoi. Päästökauppa toimii. Ukrainassa on parlamenttivaalit. Portugalissa sammutetaan maastopaloja. Uimavedet lämpesivät.
+
+## Kaksi ihmistä kuoli onnettomuudessa Kuutostiellä
+
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10887490)
+
+Avaa kuvien katselu
+
+Onnettomuus sattui Luumäellä. Kuva: Kalevi Rytkölä / Yle
+
+Etelä-Karjalassa on sattunut vakava liikenneonnettomuus. Kaksi ihmistä kuoli, kun rekka törmäsi henkilöautoon Kuutostiellä. Onnettomuus tapahtui yöllä Luumäellä. Henkilöauto pysähtyi tielle. Kaksi ihmistä nousi autosta. Rekka törmäsi heihin. Autossa oli sisällä yksi ihminen. Hän loukkaantui.
+
+## Päästökauppa toimii
+
+![Saksalaisen sokeritehtaan piipusta nousee savua taivaalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6389870)
+
+Avaa kuvien katselu
+
+Firmojen pitää maksaa päästöistä. Kuva: Armin Weigel / EPA
+
+Päästökauppa on alkanut toimia. Päästökauppa toimii, koska päästöoikeuden hinnat ovat nousseet. Kun päästöt maksavat enemmän, firmat vähentävät päästöjä. Monissa Euroopan maissa poltetaan voimaloissa vähemmän kivihiiltä. Maakaasua poltetaan enemmän, koska maakaasusta tulee vähemmän päästöjä.
+
+## Ukrainassa järjestettiin parlamenttivaalit
+
+![Vanhempi nainen antaa nuoren pojan laittaa hänen äänestyslomakkeensa vaaliuurnaan Kievissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10887738)
+
+Avaa kuvien katselu
+
+Nainen antaa pojan pudottaa äänestyslipun vaaliuurnaan Kiovassa. Kuva: Sergei Supinsky / AFP
+
+Ukrainassa on äänestetty sunnuntaina parlamenttivaaleissa. Ukrainassa järjestettiin parlamenttivaalit, koska Ukrainan uusi presidentti **Volodymyr Zelenskyi** hajotti parlamentin. Ukrainan vanhassa parlamentissa enemmistö vastusti uutta presidenttiä. Uusi presidentti järjesti uudet vaalit.
+
+## Portugalissa sammutetaan maastopaloja
+
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10887528)
+
+Avaa kuvien katselu
+
+Maastopalot riehuvat Castelo Brancon alueella. Kuva: Kalevi Rytkölä / Yle
+
+Portugalissa on isoja maastopaloja. Portugalin maastopaloja on sammuttamassa tosi paljon palomiehiä. Armeija auttaa palomiehiä. Ihmisiä on viety turvaan. Teitä on suljettu. Maastopalot ovat Keski-Portugalissa. Kova tuuli levittää paloja. Sammutustyö on vaikeaa. Alueella on kova helle.
+
+## Ravustus alkoi
+
+Ravustuskausi on alkanut Suomessa sunnuntaina päivällä. Rapusaaliista tulee hyvä tai aika hyvä. Rapuja saa heti hyvin Etelä-Suomen vesistä. Pohjois-Suomessa rapusaaliit ovat ensin pieniä.
+
+Suomessa pyydetään täplärapuja ja jokirapuja. Täplärapuja pyydetään joka vuosi 2-3 miljoonaa. Jokirapuja pyydetään miljoona rapua.
+
+## Uimavedet lämpenevät
+
+![Lohjanjärven ranta Vohloisissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10878534)
+
+Avaa kuvien katselu
+
+Vedet olivat kylmiä monta viikkoa, koska ilma oli kylmä. Nyt vedet ovat lämminneet. Kuva: Paula Tiainen / Yle
+
+Suomessa on tosi lämmin. Lämmin sää lämmittää järviä ja merivettä. Monissa järvissä veden lämpötila on 20 astetta. Myös merivesi on lämminnyt rannoilla. Vesien lämpötila on nyt normaali vesien lämpötila heinäkuussa.

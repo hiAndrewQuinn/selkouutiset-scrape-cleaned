@@ -1,0 +1,75 @@
+# Tiistai 13.10.2020 (radio)
+
+Hallituspuolueet ovat päässeet sopuun sote-uudistuksesta. Lentoasemille tuli maskipakko. Alkon myynti on kasvanut paljon koronaepidemian aikana. Painoindeksi terveydenhuollossa saa arvostelua.
+
+## Hallitus sai sovun sote-uudistuksesta
+
+![Sote-tiedotustilaisuus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11592515)
+
+Avaa kuvien katselu
+
+Hallituspuolueet ovat sopineet uudesta sote-uudistuksesta. Kuva: Silja Viitala / Yle
+
+Hallituspuolueet ovat päässeet sopuun sote-uudistuksesta. Sote tarkoittaa sosiaali- ja terveysuudistusta.
+
+Suomeen perustetaan 21 sosiaali- ja terveydenhuollon aluetta. Alueen nimi on siirtymäajalla hyvinvointialue
+
+Alueiden lisäksi järjestäjä on Helsingin kaupunki.
+
+Uudistuksessa sote-palveluiden järjestäminen siirtyy kunnilta ja kuntayhtymiltä hyvinvointialueille. Alueille kuuluu myös pelastustoimi, esimerkiksi palokunta.
+
+Itä-Savo siirtyy sote-uudistuksessa Etelä-Savon yhteyteen.
+
+Soten tarkoitus on parantaa peruspalveluita.
+
+Sote-uudistus kaatui eduskunnan viime kaudella. Uudessa sotessa esimerkiksi julkinen terveydenhuolto on vahvassa roolissa.
+
+## Lentoasemille tuli maskipakko
+
+![Kasvomaskiin pukeutuneita matkustajia Helsinki-Vantaan lentoasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11592768)
+
+Avaa kuvien katselu
+
+Suomen lentoasemilla on nyt käytettävä kasvomaskia. Kuva: Silja Viitala / Yle
+
+Lentoasemafirma Finavia kertoo, että kaikkien matkustajien pitää käyttää kasvomaskia lentoasemilla.
+
+Maskipakko tuli voimaan tänään. Se koskee kaikkia, jotka liikkuvat lentoasemalla.
+
+Tähän asti on ollut voimassa Finavian suositus. Se annettiin jo toukokuussa.
+
+Finavia haluaa suojata matkustajia ja lentoaseman henkilökuntaa. Finavia haluaa myös korostaa, että turvallinen matkustaminen on mahdollista.
+
+## Alkon myynti on kasvanut
+
+![Alkon viinahyllyjä Kuopion Sokoksen Alko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10839622)
+
+Avaa kuvien katselu
+
+Alkoholin myynti Alkoissa on kasvanut rajusti koronan aikana. Kuva: Petra Husu / Yle
+
+Alkon myynti on kasvanut paljon koronaepidemian aikana. Tammi-syyskuussa Alkon myynti nousi yli 12 prosenttia verrattuna samaan aikaan viime vuonna.
+
+Syyskuussa litramääräinen myynti kasvoi 15,5 prosenttia viime vuoden syyskuusta.
+
+Alkoissa kävi viime kuussa asiakkaita lähes 9 prosenttia enemmän kuin vuosi sitten.
+
+Alkoholin kokonaiskulutus on kuitenkin laskenut, koska ravintolat ovat olleet osan aikaa kiinni. Lisäksi matkustajatuonti ulkomailta ja laivoilta on vähentynyt rajoitusten vuoksi.
+
+## Painondeksi ei kerro tarpeeksi
+
+![Muotinäytös Kanadassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11568121)
+
+Avaa kuvien katselu
+
+Kuva on muotinäytöksestä Kanadan Torontosta vuodelta 2012. Muotinäytös rohkaisi plus-kokoisia naisia tunnistamaan sekä sisäisen että ulkoisen kauneuden.  Kuva: AOP
+
+Painoindeksi terveydenhuollossa saa arvostelua. Esimerkiksi Kanada on jo päättänyt, että se luopuu painoindeksistä lihavuuden hoidossa.
+
+Painoindeksi on mitta-arvo, jolla arvioidaan ihmisen painon ja pituuden suhdetta.
+
+Useimmin painoindeksi lasketaan henkilön painosta, joka jaetaan pituuden neliöllä.
+
+Suomessa aikuisten lihavuutta arvioidaan määrittämällä painoindeksi ja mittaamalla vyötärönympärys.
+
+Erikoislääkäri Reita Nyberg sanoo, että painoindeksi ei kerro kehon koostumuksesta mitään. Esimerkiksi lihakset painavat enemmän kuin rasva. Näin voi olla esimerkiksi urheilijoilla.

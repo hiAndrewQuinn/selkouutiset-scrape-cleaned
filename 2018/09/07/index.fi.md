@@ -1,0 +1,77 @@
+# Perjantai 7.9.2018 (radio)
+
+Suomen tavaravienti ulkomaille on kasvanut. Sukeltaja Mikko Paasi on saanut kunniamerkin Thaimaassa. Suomessa kehitetään uutta tekniikkaa, jonka avulla sähköauton lataaminen on helppoa. Itäkeskuksen uimahallissa Helsingissä avataan unisex-pukuhuone. Viikonloppu on lämmin.
+
+## Suomen vienti kasvaa
+
+![Ahtaajia konttien päällä satamassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10215510)
+
+Avaa kuvien katselu
+
+Suomesta myydään nyt paljon tavaraa ulkomaille. Kuva: Mauri Ratilainen / AOP
+
+Suomen tavaravienti ulkomaille on kasvanut.
+
+Tämän vuoden heinäkuussa Suomesta vietiin tavaroita ulkomaille melkein 5 miljardin euron arvosta. Se on 5 prosenttia enemmän kuin viime vuoden heinäkuussa.
+
+Tiedot ovat Tullin tilastoista.
+
+## Suomalainen sukeltaja palkittiin
+
+![Mikko Paasi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10393220)
+
+Avaa kuvien katselu
+
+Mikko Paasi sai kunniamerkin Thaimaan kuninkaalta. Kuva: Lillian Suwanrumpha / EPA
+
+Suomalainen Mikko Paasi on saanut kunniamerkin Thaimaassa. Paasi sai kunniamerkin Thaimaan kuninkaalta.
+
+Mikko Paasi on sukeltaja. Hän auttoi kesällä pelastamaan 12 poikaa Thaimaassa. Pojat eivät päässeet pois luolasta ilman apua, koska osa luolasta jäi veden alle.
+
+Paasi sai kunniamerkin juhlassa, joka järjestettiin pelastusoperaation kunniaksi. Paasi tapasi juhlassa myös pojat, joita hän oli pelastamassa. Paasi kertoi, että pojat voivat hyvin.
+
+## Sähköautojen lataaminen helpottuu
+
+![Sähköauto latauksessa Helsingin keskustassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10239987)
+
+Avaa kuvien katselu
+
+Pian sähköauto osaa itse etsiä latauspisteen. Kuva: Esko Jämsä / AOP
+
+Sähköautojen lataaminen on lähivuosina helpompaa kuin nyt.
+
+Nykyään sähköauton kuljettajan pitää miettiä reitti niin, että reitillä on tarpeeksi latauspisteitä.
+
+Suomessa kehitetään uutta tekniikkaa, jonka avulla kuljettajan ei tarvitse miettiä lataamista. Sähköauto etsii itse vapaan latauspisteen ja opastaa kuljettajan perille.
+
+Uuden tekniikan idea on, että sähköautot ja latauspisteet keskustelevat netissä.
+
+Uutta tekniikkaa tarvitaan, että sähköautojen määrä voi kasvaa. Tavoite on, että Suomessa on 250 000 sähköautoa vuonna 2030.
+
+Nykyään Suomessa on vain 2000 sähköautoa ja noin 10 000 autoa, jotka voivat käyttää bensaa ja sähköä.
+
+## Itäkeskukseen tulee unisex-pukuhuone
+
+![Itäkeskuksen uimahalli.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9638659)
+
+Avaa kuvien katselu
+
+Kaikki ovat tervetulleita Itäkeskuksen uimahalliin. Kuva: Merja Huovinen / Helsingin kaupunki
+
+Itäkeskuksen uimahallissa Helsingissä avataan uudenlainen pukuhuone.
+
+Uusi pukuhuone on unisex-pukuhuone. Se ei ole naisten tai miesten pukuhuone, vaan se on avoin kaikille.
+
+Uusi unisex-pukuhuone on tärkeä esimerkiksi sukupuolivähemmistöille. Monet sukupuolivähemmistöjen edustajat ovat kokeneet kiusaamista liikuntapaikoissa. Siksi he ovat jopa lopettaneet liikuntaharrastuksen.
+
+## Sää on lämmintä
+
+![puolukoita varvuissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9812509)
+
+Avaa kuvien katselu
+
+Viikonlopun sää sopii ulkoiluun. Kuva: Ismo Pekkarinen / AOP
+
+Viikonloppu on lämmin. Ylen meteorologi Kerttu Kotakorpi kertoo, että lämpötila on 5 astetta korkeampi kuin tavallisesti syyskuun alussa.
+
+Ensi viikolla lämpötila laskee, ja sää on kylmempää kuin viikonloppuna. Kotakorpi sanoo, että ensi viikolla sää on normaalia syyskuun säätä.

@@ -1,0 +1,73 @@
+# Torstai 19.12.2019 (radio)
+
+Yhä useampi synnyttäjä on ylipainoinen. Olkiluoto 3:n ydinvoimalan valmistuminen siirtyy taas. Joulukuusikauppa on alkanut. Presidentti sai joulutervehdykset.
+
+## Ylipaino on synnyttäjälle riski
+
+![Odottavan äidin käsi vauvavatsan päällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9908806)
+
+Avaa kuvien katselu
+
+Ylipaino aiheuttaa riskejä raskauden aikana. Kuva: Tiina-Leena Kurki / Yle
+
+Yhä useampi synnyttäjä eli odottava äiti on ylipainoinen. Määrä kasvaa koko ajan.
+
+Terveyden ja hyvinvoinnin laitos kertoo, että yli 40 prosenttia synnyttäjistä on ylipainoisia. Synnyttäjistä 16 prosenttia on lihavia.
+
+Lihavuus lisää monia riskejä. Niitä ovat esimerkiksilediabetes raskauden aikana, keisarileikkaukset ja erilaiset tulehdukset. Ylipainoiset myös toipuvat hitaammin leikkauksista kuin normaalipainoiset.
+
+Viime vuonna kaikkien synnyttäjien keski-ikä oli 31 vuotta ja ensisynnyttäjien hieman yli 29 vuotta.
+
+Viime vuonna Suomessa syntyi noin 50 000 lasta.
+
+## Olkiluoto myöhästyy taas
+
+![Olkiluoto 3 reaktorirakennus](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5885475d710a4957dcf/1632805957)
+
+Avaa kuvien katselu
+
+Jos kaikki menee suunnitelmien mukaan, ensi vuonna Olkiluoto 3:n reaktorirakennuksen edessä ei enää nähdä työmaakoppeja. Kuva: Jari Pelkonen / Yle
+
+Olkiluoto 3:n ydinvoimalan valmistuminen siirtyy taas.
+
+Ydinvoimalan rakentaja Areva-Siemens on kertonut uudesta aikataulusta. Areva kertoo, että voimala alkaa tuottaa sähköä säännöllisesti maaliskuussa 2021.
+
+Olkiluodon kolmosreaktorin valmistuminen on myöhästynyt jo monta kertaa. Alun perin ydinvoimalan piti olla Satakunnan Eurajoella valmis jo vuonna 2009.
+
+Areva kertoo, että järjestelmien testaus on edennyt hitaasti. Lisäksi varaosista on ollut puutetta.
+
+## On taas joulukuusien aika
+
+![Nea Sipola ja joulukuusia](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6231775df77cbec580e/1576500501)
+
+Avaa kuvien katselu
+
+Kuusia ostetaan taas jouluna noin 1,5 miljoonaa. Kuva: Kai Pohjanen / Yle
+
+Joulukuusikauppa on alkanut. Tänäkin jouluna suomalaiset hankkivat koteihin noin 1,5 miljoonaa kuusta.
+
+Suurin osa kuusikaupan puista on suomalaisia metsäkuusia.
+
+Ympäristöystävällisin joulupuu on luonnonkuusi, joka löytyy lähialueelta. Muovikuusi on ekologinen, jos sitä käytetään noin 20 vuotta.
+
+Noin miljoona joulukuusta tuodaan Suomen kuusiviljelmiltä. Joulupuita tuodaan myyntiin myös ulkomailta, esimerkiksi Tanskasta.
+
+Joulupuita myydään Suomessa tänä jouluna ehkä 32 miljoonan euron arvosta.
+
+## Presidentti sai joulutervehdykset
+
+![.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11126631)
+
+Avaa kuvien katselu
+
+Joulutervehdykset presidentille ovat jo perinne. Kuva: Yle
+
+Presidentti Sauli Niinistö ja rouva Jenni Haukio ovat ottaneet vastaan perinteiset joulutervehdykset presidentin virka-asunnossa Mäntyniemessä.
+
+Metsäylioppilaat luovuttivat presidentille joulukuusen. Kukkakauppiasliitto toi Mäntyniemeen joulukukan. Luonnonsuojelujärjestöt toivat luomukasviskorin.
+
+Presidentti Niinistö ja rouva Haukio saivat myös muun muassa joulukinkun ja jouluhauen.
+
+Helsingin tuomiokirkon poikakuoro Cantores Minores toi presidentille laulutervehdyksen.
+
+Presidentin joulutervehdyksillä on pitkät perinteet. Esimerkiksi ensimmäinen joulukuusi luovutettiin presidentti Urho Kekkoselle vuonna 1963.

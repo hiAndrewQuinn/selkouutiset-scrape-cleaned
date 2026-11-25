@@ -1,0 +1,61 @@
+# Sunnuntai 19.2.2017 (radio)
+
+Kaksi nuorta kuoli kolarissa Sastamalassa. Monet espanjalaiset haluavat, että pakolaisia autetaan enemmän. Aki Kaurismäki sai parhaan ohjaajan palkinnon Berliinin elokuvajuhlilla. Kaisa Mäkäräinen sai pronssimitalin ampumahiihdon MM-kilpailuissa.
+
+## Kaksi nuorta kuoli kolarissa
+
+![Kynttilöitä ja romua valtatie 12:n varrella Sastamalan ja Nokian rajalla sunnuntaina. Kaksi 17-vuotiasta nuorta menehtyi mopoauton ja pakettiauton kolarissa lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9468612)
+
+Avaa kuvien katselu
+
+Kolaripaikka Sastamalassa. Kuva: Kalle Parkkinen / Lehtikuva
+
+Länsi-Suomessa on tapahtunut paha kolari. Kolari tapahtui Sastamalassa lauantai-iltana. Siinä kuoli kaksi 17-vuotiasta nuorta, yksi tyttö ja yksi poika.
+
+Nuoret ajoivat mopoautoa. He kuolivat, kun isompi auto törmäsi nuorten pieneen mopoautoon.
+
+Poliisi on pidättänyt isomman auton kuljettajan. Poliisi epäilee, että hän törmäsi mopoautoon tahallaan.
+
+## Espanjassa oli iso mielenosoitus
+
+![Tuhannet ihmiset marssivat maahanmuuttajien ja pakolaisten puolesta Barcelonassa Koillis-Espanjassa 18. helmikuuta 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9468414)
+
+Avaa kuvien katselu
+
+Mielenosoitus pakolaisten puolesta Barcelonassa. Kuva: Alberto Estevez / EPA
+
+Espanjassa monet haluavat, että pakolaisia autetaan enemmän.
+
+Barcelonan kaupungissa oli iso mielenosoitus, jossa oli mukana noin 160 000 ihmistä. He vaativat, että Espanjan hallitus auttaa turvapaikanhakijoita.
+
+Espanjan hallitus lupasi 2 vuotta sitten, että Espanja ottaa vastaan yli 17 000 turvapaikanhakijaa. Espanja on kuitenkin hyväksynyt vain noin 1000 pakolaista.
+
+## Aki Kaurismäki sai Hopeisen karhun
+
+![Ohjaaja Aki Kaurismäki kuvattuna Simon Hussein Al-Bazoonin (vas.) ja Sherwan Hajin (kesk.) kanssa Berliinin filmifestivaaleilla 18. helmikuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9468308)
+
+Avaa kuvien katselu
+
+Aki Kaurismäki (oikealla) yhdessä Sherwan Hajin (keskellä) ja Simon Hussein Al-Bazoonin (vasemmalla) kanssa. Al-Bazoon ja Haji näyttelevät Kaurismäen uudessa elokuvassa. Kuva: Ian Langsdon / EPA
+
+Suomalainen elokuvien tekijä Aki Kaurismäki on saanut palkinnon Saksassa, Berliinin elokuvajuhlilla. Kaurismäki sai palkinnon, jonka nimi on Hopeinen karhu. Se annetaan parhaalle ohjaajalle.
+
+Aki Kaurismäki sai palkinnon elokuvasta Toivon tuolla puolen, jonka hän on ohjannut. Elokuva kertoo syyrialaisesta miehestä, joka ei saa turvapaikkaa Suomesta. Mies saa kuitenkin suomalaisen ystävän, joka ottaa hänet töihin ravintolaan. Elokuvan teema on ihmisten auttaminen.
+
+Kaurismäen elokuva kilpaili myös Berliinin elokuvajuhlien pääpalkinnosta eli Kultaisesta karhusta. Kultaisen karhun voitti kuitenkin unkarilainen elokuva.
+
+Aki Kaurismäki kertoi Berliinissä, että hän lopettaa elokuvien tekemisen. Kaurismäki on ohjannut monta elokuvaa ja voittanut paljon palkintoja. Hän täyttää huhtikuussa 60 vuotta.
+
+## Kaisa Mäkäräinen sai pronssimitalin
+
+![Kaisa Mäkäräinen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9468310)
+
+Avaa kuvien katselu
+
+Ampumahiihtäjä Kaisa Mäkäräinen. Kuva: EPA
+
+Suomen Kaisa Mäkäräinen on saanut pronssimitalin ampumahiihdon MM-kilpailuissa. Mäkäräinen hiihti ja ampui hyvin. Hän oli kilpailun kolmanneksi paras.
+
+Mäkäräinen sai pronssimitalin yhteislähtökilpailussa. Yhteislähtö tarkoittaa, että kilpailijat lähtevät hiihtämään yhtä aikaa. Naiset hiihtävät 12,5 kilometriä. Matkan aikana he pysähtyvät 4 kertaa ampumaan maalitauluja. Aina kun urheilija ampuu maalitaulun ohi, hänen pitää hiihtää sakkokierros, joka on 150 metriä pitkä.
+
+Ampumahiihdon MM-kilpailut järjestettiin Hochfilzenissä, Itävallassa.

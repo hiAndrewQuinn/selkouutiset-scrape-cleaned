@@ -1,0 +1,84 @@
+# Torstai 28.7.2022
+
+Ihmiset ovat jo kuluttaneet loppuun tämän vuoden luonnonvarat. Neste teki hyvän tuloksen. Korona voi viedä makuaistin pitkäksi ajaksi. Suomessa kävi kesällä paljon turisteja.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Ylikulutus
+
+![Maapallo luonto kulutus ylikulutus energia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10848657)
+
+Avaa kuvien katselu
+
+Torstaina on ylikulutuspäivä. Kuvituskuva. Kuva: AOP
+
+Tänään torstaina on maailman ylikulutuspäivä. Ylikulutus tarkoittaa, että maailman ihmiset kuluttavat luonnonvaroja enemmän kuin maapallo kestää.
+
+Ylikulutuspäivänä ihmiset ovat kuluttaneet luonnonvaroja sen määrän, minkä maapallo kestää koko vuoden aikana. Ihmiset käyttävät siis noin 7 kuukauden aikana koko vuoden luonnonvarat.
+
+## Neste
+
+![Nesteen pääkonttori Espoon Keilaniemessä.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2800,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98778662e27d284114a/1659010462)
+
+Avaa kuvien katselu
+
+Nesteen pääkonttori Espoon Keilaniemessä. Kuva: Henrietta Hassinen / Yle
+
+Öljyfirma Nesteen tulos on hyvä.
+
+Nesteen tulos oli keväällä 750 miljoonaa euroa. Vuotta aikaisemmin tulos oli 465 miljoonaa euroa.
+
+Nesteen liikevaihto oli keväällä yli 7 miljardia euroa. Vuotta aiemmin Nesteen liikevaihto oli noin 3 miljardia euroa.
+
+Nesteen osakkeen kurssi nousi Helsingin pörssissä.
+
+## Korona ja makuaisti
+
+![Lapselle suoritetaan koronavirustestiä. Hänen perässään on ihmisiä jonossa.](https://img.img-cdn.yle.fi/crop_extract,w_3999,h_2249,x_0,y_416/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98467462d9179e78d3a/1658394739)
+
+Avaa kuvien katselu
+
+Koronatestausta. Kuva: AFP
+
+Ihmisten hajuaistiin ja makuaistiin tulee häiriöitä, kun saa koronatartunnan. Monella ihmisellä makuaisti katoaa hetkeksi koronatartunnan jälkeen.
+
+Iso tutkimus kertoo, että noin 5 prosenttia ihmisistä kärsii hajuaistin ja makuaistin ongelmista vielä 6 kuukautta koronatartunnan jälkeen. Suuri osa ihmisistä saa makuaistin takaisin viimeistään 3 kuukautta koronatartunnan jälkeen.
+
+## Turistit
+
+![Hotelli Torni](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_539/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98155562cebda11c968/1657716231)
+
+Avaa kuvien katselu
+
+Hotelli Torni. Kuva: Tiina Karppi / Yle
+
+Suomessa on käynyt kesällä paljon ulkomaalaisia turisteja.
+
+Kesäkuussa Suomessa kävi ulkomaalaisia turisteja 4 kertaa niin paljon kuin kesäkuussa vuonna 2021. Tilastokeskus kertoo, että kotimaisten turistien määrä kasvoi 8 prosenttia.
+
+Suomessa oli kesäkuussa kuitenkin vähemmän turisteja kuin kesäkuussa 2019. Koronaepidemia alkoi vuonna 2020.
+
+## Siat
+
+![Poliisiauton etukulma, jossa näkyy hätänumero 112.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3372,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-132999531974a25811d/1476960683)
+
+Avaa kuvien katselu
+
+Kaakkois-Suomen poliisi ja aluehallintovirasto jatkavat selvitystyötä siitä, mikä aiheutti eläinkuljetusauton portin lukituksen pettämisen ja sikojen putoamisen Lappeenrannassa. Kuvituskuva. Kuva: Yle/Erica Vasama
+
+Lappeenrannassa pääsi keskiviikkona karkuun sikoja. 8 sikaa karkasi teurastamon autosta. 1 sika kuoli, kun se törmäsi autoon tiellä.
+
+Myöhemmin kaikki siat saatiin kiinni. 1 sika loukkaantui vähän. Muut siat ovat hyvässä kunnossa.
+
+## Sää
+
+![Sateinen Jyväskylän Kirkkopuisto, vihreää ruohoa ja puita.](https://img.img-cdn.yle.fi/crop_extract,w_4603,h_2592,x_0,y_432/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96464162999703e5e04/1654232965)
+
+Avaa kuvien katselu
+
+Kuva: Virpi Kotilainen / Yle
+
+Sää on yöllä enimmäkseen poutainen. Perjantaina päivällä Itä-Suomessa ja Kainuussa sataa monin paikoin vettä. Etelä-Suomessa ja Pohjois-Lapissa paistaa välillä aurinko.
+
+Päivällä on lämmintä 14...20 astetta.

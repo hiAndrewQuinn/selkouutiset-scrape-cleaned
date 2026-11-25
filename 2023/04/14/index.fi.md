@@ -1,0 +1,79 @@
+# Perjantai 14.4.2023 (radio)
+
+Hallituskeskustelut. Terveysfirmojen hinnat. Ruuan hinta. Australian ennätystuuli. Suomen sää.
+
+## Hallituskeskustelut
+
+![Poliitikkoja isossa kokoushuoneessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690447)
+
+Avaa kuvien katselu
+
+Puolueet aloittivat keskustleut hallituksesta perjantaina. Kuva: Silja Viitala / Yle
+
+Puolueiden keskustelut uudesta hallituksesta ovat alkaneet. 
+
+Keskusteluja vetää kokoomuksen puheenjohtaja Petteri Orpo, koska kokoomus on nyt eduskunnan suurin puolue.
+
+Orpo antoi perjantaina muille puolueille kysymyksiä asioista, jotka kokoomuksen mielestä ovat uudelle hallitukselle tärkeitä. Orpo haluaa vastaukset viimeistään tiistaina.
+
+Vastausten perusteella Orpo päättää, minkä puolueiden kanssa hän yrittää koota hallituksen.
+
+Politiikan tutkija Markku Jokisipilä arvioi, että kokoomuksen kanssa hallitukseen tulee perussuomalaiset. Kokoomus ja perussuomalaiset ajattelevat esimerkiksi valtion säästöistä melko samalla tavalla.
+
+Jokisipilän mielestä kokoomuksen ja SDP:n yhteinen hallitus ei ole yhtä todennäköinen vaihtoehto.
+
+## Terveysfirmojen hinnat
+
+![Lääkäri stetoskooppi kädessä ja vieressä potilas.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690446)
+
+Avaa kuvien katselu
+
+Yksityisten lääkäriasemien pitää kertoa selvästi, mitä niiden palvelut maksavat. Kuva: Derrick Frilund / Yle
+
+Yksityisten lääkäriasemien pitää kertoa hinnat selvästi. Näin sanoo kuluttaja-asiamies, jonka tehtävä on suojata kuluttajan eli ostajan oikeuksia.
+
+Kuluttaja-asiamiehen mielestä terveysalan firmat eivät kerro nykyään selvästi, paljonko niiden palvelut maksavat. Kuluttaja-asiamies on tutkinut Mehiläisen, Terveystalon ja Pihlajalinnan toimintaa.
+
+Kuluttaja-asiamies vaatii, että ne kertovat hinnat selvästi myös verkkopalvelussa. Asiakkaan pitää nähdä koko hinta niin, että esimerkiksi iltalisä ja palvelumaksu ovat mukana.
+
+Hinnan pitää myös näkyä samalla sivulla, jossa asiakas varaa ajan. Linkki ajanvaraussivulta hintasivulle ei riitä, kuluttaja-asiamies sanoo.
+
+Terveysalan firmat ovat luvanneet korjata puutteet.
+
+## Ruuan hinta
+
+![Jauhopaketteja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690449)
+
+Avaa kuvien katselu
+
+Esimerkiksi jauhojen hinta on noussut tosi paljon. Kuva: Henrietta Hassinen / Yle
+
+Ruoka on kallistunut. Ruoka oli maaliskuussa noin 16 prosenttia kalliimpaa kuin vuosi sitten. 
+
+Eniten ovat kallistuneet sokeri, jauhot ja munat. Niiden hinta nousi vuodessa yli 30 prosenttia.
+
+Hinnat nousevat nyt nopeaa vauhtia. Edellisen kerran ruuan hinta nousi näin nopeasti noin 50 vuotta sitten.
+
+## Australian ennätystuuli
+
+![Palmupuita kovassa tuulessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690450)
+
+Avaa kuvien katselu
+
+Hirmumyrskyssä tuuli voi olla kovaa. Arkistokuva. Kuva: EPA-EFE/All Over Press
+
+Australiassa on puhaltanut ennätyskova tuuli. 
+
+Hirmumyrsky toi Australiaan tuulen, joka puhalsi jopa 289 kilometriä tunnissa.
+
+Australian viranomaiset sanovat, että myrskytuulet eivät iske koko voimalla isoihin kaupunkeihin.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690451)
+
+Avaa kuvien katselu
+
+Lauantaina Suomen sää on poutaista ja aurinkoista. Lämpötila on 5-12 astetta, lounaassa on lämpimintä. 
+
+Sää on aurinkoista, ja lämpötilat nousevat viikonlopun ja alkuviikon aikana.

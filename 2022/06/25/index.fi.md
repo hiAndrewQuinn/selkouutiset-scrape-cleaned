@@ -1,0 +1,73 @@
+# Lauantai 25.6.2022 (radio)
+
+Norjan joukkoampuminen. Poliisin juhannus. Juhannusfestivaalit. Ukraina. Sääennuste.
+
+Norjassa joukkoampuminen
+
+![Poliiseja vartioimassa Oslon kadulla.](https://img.img-cdn.yle.fi/crop_extract,w_8172,h_4596,x_0,y_506/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97453162b6e3bd79060/1656153040)
+
+Avaa kuvien katselu
+
+Poliiseja vartioimassa Oslon kadulla. Kuva: Javad Parsa / EPA
+
+Norjassa on tapahtunut joukkoampuminen. Joukkoampuminen tapahtui Norjan pääkaupungissa Oslossa lauantaina aamuyöllä. Joukkoampuminen tapahtui vilkkaalla baarikadulla. Joukkoampumisessa kuoli 2 ihmistä ja loukkaantui noin 20 ihmistä.
+
+Poliisi sai ampujan kiinni. Ampuja on 42-vuotias mies. Ampuja on Norjan kansalainen. Hän on syntynyt Iranissa. Norjan viranomaiset syyttävät ampujaa terrorismista, murhasta ja murhan yrityksestä.
+
+Suomesta presidentti Sauli Niinistö ja pääministeri Sanna Marin ovat esittäneet surunvalittelut uhrien omaisille.
+
+## Poliisin juhannus
+
+![Ylikonstaapeli Timo Kokkonen (vas.) ja vanhempi konstaapeli Petri Kuiri partioveneensä äärellä Kuopion Pirttiniemessä.](https://img.img-cdn.yle.fi/crop_extract,w_3950,h_2221,x_0,y_270/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97371662b30e39a2631/1655901976)
+
+Avaa kuvien katselu
+
+Ylikonstaapeli Timo Kokkonen ja vanhempi konstaapeli Petri Kuiri partioivat Kallavedellä. Kuva: Jukka Eskanen / Yle
+
+Suomessa vietetään nyt juhannusta. Poliisilla oli vilkas yö perjantain ja lauantain välillä. Hätäkeskuksiin tuli lähes 12 000 soittoa juhannusaattona perjantaina.
+
+Poliisilla oli paljon tehtäviä selvittää esimerkiksi ihmisten häiriökäyttäytymistä ja pahoinpitelyjä. Poliisia työllistivät myös ihmiset, jotka ajoivat autoa tai venettä humalassa. Vakavia rikoksia tai onnettomuuksia ei kuitenkaan sattunut.
+
+Juhannuksena on kuitenkin hukkunut ainakin 2 ihmistä.
+
+## Juhannusfestivaalit
+
+![Yleisöä Himos-festivaalilla.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97440562b57772dc274/1656059790)
+
+Avaa kuvien katselu
+
+Yleisöä Himos-festivaalilla. Kuva: Tommi Anttonen / Lehtikuva
+
+Juhannusfestivaaleilla menee nyt hyvin. Esimerkiksi Keski-Suomessa Himoksen juhannusfestivaalille osallistuu 3 päivän aikana 30 000 ihmistä eli normaali määrä ihmisiä. Viime vuonna Himokseen sai tulla vain puolet eli 15 000 ihmistä koronarajoitusten takia.
+
+Pohjois-Savossa Tahkon juhannusfestivaalille osallistuu noin 15 000 ihmistä. Se on ennätyspaljon eli enemmän kuin Tahkon juhannusfestivaalilla on aiemmin käynyt ihmisiä.
+
+Ihmiset haluavat taas mennä juhannusfestivaaleille ja muihin kesätapahtumiin, koska koronarajoitukset ovat loppuneet.
+
+## Ukraina
+
+![Satelliittikuva tuhoista Tsernihivissä.](https://img.img-cdn.yle.fi/crop_extract,w_8794,h_4946,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-932379623be16f8b856/1648105020)
+
+Avaa kuvien katselu
+
+Maaliskuussa Tshrnihivissä paloi suuri öljysäiliö. Kuva: Maxar Technologies / EPA
+
+Venäjä on tehnyt useita ohjusiskuja Ukrainan pohjoisosiin.
+
+Ukraina sanoo, että Venäjä on iskenyt esimerkiksi lähelle Zytomirin kaupunkia ja Desnan kaupunkiin Tsernihivin alueella. Tsernihivin alueen kuvernööri sanoo, että suurin osa ohjuksista ammuttiin Tsernihiviin Valko-Venäjältä.
+
+Valko-Venäjä ei ole mukana sodassa, mutta Valko-Venäjä antaa Venäjän käyttää Valko-Venäjän alueita.
+
+## Sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12510768)
+
+Avaa kuvien katselu
+
+Sää on myös sunnuntaina lämmin ja aurinkoinen.
+
+Suomessa jatkuu lämmin kesäsää.
+
+Vain Keski-Lapissa tulee sunnuntaina sade- tai ukkoskuuroja. Muualla on aurinkoista.
+
+Lämpötila on sunnuntaina 25 ja 30 asteen välillä, Pohjois-Lapissa on viileämpää.

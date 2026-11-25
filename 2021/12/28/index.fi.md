@@ -1,0 +1,75 @@
+# Tiistai 28.12.2021 (radio)
+
+Koronarajoitukset. Rajavalvonta. Puolueiden kannatus. Nuorten MM-jääkiekko. Sää.
+
+## Koronarajoitukset
+
+![suuren kuntosalin laitteita ja painoja](https://img.img-cdn.yle.fi/crop_extract,w_6073,h_3416,x_1,y_632/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-877958618ba74f71a16/1636545259)
+
+Avaa kuvien katselu
+
+Esimerkiksi koronarajoitukset on suljettu osassa Suomea koronan takia. Kuva: Pyry Sarkiola / Yle
+
+Koronarajoitukset ovat kiristyneet. Uudet koronarajoitukset tulivat voimaan tänään tiistaina. Koronarajoituksia kiristetään, koska korona leviää nyt nopeasti.
+
+Uudet koronarajoitukset koskevat esimerkiksi ravintoloita. Suuressa osassa Suomea ravintoloiden pitää lopettaa alkoholin myynti jo kello 17 ja sulkea ovet kello 18.
+
+Lisäksi eri alueilla on omia koronarajoituksia. Esimerkiksi Helsingin ja Uudenmaan alueella ei saa järjestää tilaisuuksia, joissa on yleisöä. Siksi esimerkiksi teatterien esitykset on peruttu 17. tammikuuta asti.
+
+Myös aikuisten harrastustilat on Helsingin ja Uudenmaan alueella suljettu. Esimerkiksi liikuntatilat ja kuntosalit pysyvät kiinni 10. tammikuuta asti. Lapsille harrastustoimintaa saa järjestää.
+
+## Rajavalvonta
+
+![Matkalaukkuja Helsinki-Vantaan lentoaseman sisääntuloaulassa. ](https://img.img-cdn.yle.fi/crop_extract,w_5027,h_2828,x_0,y_330/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83538760fe717b29b2a/1627288001)
+
+Avaa kuvien katselu
+
+Kaikilla matkustajilla pitää olla todistus negatiivisesta koronatestituloksesta. Kuva: Matti Myller / Yle 
+
+Huonon koronatilanteen takia myös valvonta Suomen rajoilla kiristyy.
+
+Nyt valvotaan myös matkustajia, jotka tulevat Euroopan unionin alueelta Suomeen. Myös heillä pitää olla todistus negatiivisesta koronatestituloksesta.
+
+Jokaisella matkustajalla pitää olla myös todistus koronarokotuksista tai siitä, että hän on sairastanut koronataudin.
+
+## Puolueiden kannatus
+
+![Aluevaalien puoluekannatusmittaus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12245491)
+
+Avaa kuvien katselu
+
+Kuva: Ilkka Kemppinen / Yle
+
+Yle on julkaissut kyselyn puolueiden kannatuksesta ennen aluevaaleja.
+
+Kyselyssä eniten kannatusta saa kokoomus. Sen kannatus on melkein 22 prosenttia. Kyselyssä toisena on SDP ja kolmantena perussuomalaiset.
+
+Ensimmäiset aluevaalit järjestetään 23. tammikuuta. Vaaleissa valitaan eri alueiden aluevaltuustot. Aluevaltuustot päättävät sosiaali- ja terveydenhuollosta, eli esimerkiksi vanhusten hoidosta ja terveyskeskuksista.
+
+## Nuorten MM-jääkiekko
+
+![Brad Lambert kuvassa.](https://img.img-cdn.yle.fi/crop_extract,w_3795,h_2130,x_0,y_79/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89669461ca6bc245567/1640655833)
+
+Avaa kuvien katselu
+
+Brad Lambert on yksi Nuorista Leijonista. Kuva: Pasi Mennander / Suomen JÃ¤Ã¤kiekkoliitto
+
+Suomi pelaa hyvin jääkiekon nuorten MM-kisoissa. Nuorten maailmanmestaruuskisoissa pelaavat alle 20-vuotiaat miehet.
+
+Maanantai-iltana Suomi voitti Itävallan. Suomen joukkue eli Nuoret Leijonat oli selvästi parempi kuin Itävallan joukkue. Suomi voitti pelin 7-1.
+
+Jääkiekon nuorten MM-kisat pelataan Kanadassa. Suomen seuraava peli on keskiviikkona. Silloin Suomi pelaa Tshekkiä vastaan.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12249040)
+
+Avaa kuvien katselu
+
+Lumisateet yleistyvät keskiviikkona.
+
+Sää on koko maassa myös lauhaa. Pakkasta on vain vähän.
+
+Etelässä pakkasta on muutama aste. Myös pohjoisessa pakkasta on alle 10 astetta.
+
+Loppuviikon aikana sää vaihtelee, mutta enimmäkseen on lauhaa. Kovia pakkasia ei tule.

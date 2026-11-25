@@ -1,0 +1,79 @@
+# Torstai 24.5.2018 (radio)
+
+Suomen kasvihuonekaasupäästöt vähenivät. Työvälitystä aiotaan uudistaa. Erätaloudessa on suuria kasvumahdollisuuksia. Peruskouluissa suosituin vieras kieli on englanti. Luonto on nyt rutikuiva.
+
+## Kasvihuonekaasupäästöt vähenivät
+
+![länsiväylällä autoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10219241)
+
+Avaa kuvien katselu
+
+Liikenteessä käytetään entistä enemmän biopolttoaineita. Kuva: Henrietta Hassinen / Yle
+
+Suomen kasvihuonekaasupäästöt vähenivät viime vuonna, kertoo Tilastokeskus.
+
+Kasvihuonekaasujen kokonaispäästöt olivat noin 56 miljoonaa hiilidioksiditonnia. Päästöt laskivat lähes 5 prosenttia edellisvuoteen verrattuna.
+
+Päästöt vähenivät esimerkiksi sen takia, että liikenteessä käytetään entistä enemmän biopolttoaineita.
+
+## Työnvälitys voi siirtyä yksityisille
+
+![Henkilö etsimässä töitä tietokoneella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6795376)
+
+Avaa kuvien katselu
+
+Työvoimapalvelujen uudistuksen on määrä alkaa vuonna 2020. Kuva: Yle
+
+Työnvälitystä halutaan siirtää entistä enemmän yksityisten firmojen hoidettavaksi.
+
+Työvoimapalvelujen uudistuksen on määrä alkaa vuonna 2020 eli samaan aikaan, kun maakunnat aloittavat toimintansa. Tarkoitus on, että maakunnat voivat ulkoistaa työvoimapalvelut yksityisille firmoille vaikka kokonaan.
+
+Yksityistä työnvälitystä on kokeiltu eri puolilla Suomea viime vuosien aikana. Työnvälitysfirmoille on maksettu palkkio, jos ne onnistuvat löytämään työpaikkoja työttömille ihmisille.
+
+Sitä ei kuitenkaan tiedetä, onnistuvatko yksityiset firmat työllistämään työttömiä paremmin kuin TE-toimistot.
+
+Eduskunta äänestää uudistuksesta kesällä.
+
+## Erätaloudessa piilee kasvumahdollisuuksia
+
+![Metsästäjä suolammen lähellä puiden vieressä Kuusamossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9463055)
+
+Avaa kuvien katselu
+
+Metsästäjä suolammen rannalla Kuusamossa. Kuva: Ensio Karjalainen / Yle
+
+Suomessa on ensimmäistä kertaa selvitetty erätalouden kokoa ja kasvunäkymiä. Selvitys uskoo, että erätaloudessa on suuria kasvumahdollisuuksia.
+
+Erätalouteen liittyvää liiketoimintaa ovat esimerkiksi metsästys, kalastus, suurpetojen katselu ja kuvaus.
+
+Suomessa toimii noin 800 erämatkailuyritystä. Erätalous tarjoaa työpaikkoja etenkin syrjäseuduilla
+
+## Englanti on yhä koululaisten suosikkikieli
+
+![Englannin tunti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5452871)
+
+Avaa kuvien katselu
+
+Valtaosa suomalaislapsista aloittaa englannin opiskelun jo alakoulussa Kuva: Yle
+
+Englannin kieli on peruskouluissa yleisimmin opiskeltu vieras kieli, kertoo Tilastokeskus.
+
+Viime syyslukukaudella alakoulun oppilaista englantia opiskeli 71 prosenttia ja yläkoulun oppilaista melkein kaikki.
+
+Ruotsin kieltä opiskeli vieraana kielenä 18 prosenttia alakoulun oppilaista ja 93 prosenttia yläkoulun oppilaista.
+
+## Tulen kanssa pitää nyt olla varovainen
+
+![metsä palaa ilmakuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10221424)
+
+Avaa kuvien katselu
+
+Turvesuo palaa Kaustisella. Kuva: Jyri Jäntti / Keski-Pohjanmaan ja Pietarsaaren alueen pelastuslaitos
+
+Luonto on nyt rutikuiva eli tosi kuiva suuressa osassa maata. Luonto on kuiva, koska sää on ollut jo pitkään pääosin poutaista ja sadetta on tullut vain vähän.
+
+Pelastuslaitos sanoo, että nyt pitää olla tosi varovainen, kun käsittelee tulta. Pelastuslaitos sanoo, että on parempi, jos ei sytytä avotulta lainkaan. Pitää myös olla tosi huolellinen, jos sytyttää esimerkiksi hiiligrillin tai vaikkapa vain heittää tupakantumpin maahan.
+
+Luonto on niin kuivaa, että pienestä kipinästä voi syttyä tulipalo, joka kuivassa maastossa leviää helposti.
+
+Melkein koko maassa on nyt voimassa metsäpalovaroitus.

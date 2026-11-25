@@ -1,0 +1,89 @@
+# Maanantai 12.4.2021 (radio)
+
+Koronarokotukset. Lähiopetus. Ramadan. Lämpöennätys. Sää.
+
+## Koronarokotukset
+
+![Koronarokotukseen käytettäviä ruiskuja rokotuspisteessä.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_278/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7913106066c59b74eff/1617348264)
+
+Avaa kuvien katselu
+
+Liedossa saadaan päätökseen yli 70-vuotiaiden rokotukset. Kuvituskuva.  Kuva: Tiina Jutila / Yle
+
+Koronarokotukset etenevät Suomessa hyvin. Noin 20 prosenttia suomalaisista on jo rokotettu koronaa vastaan ainakin kerran.
+
+Terveyden ja hyvinvoinnin laitos kertoo, että Suomeen saadaan myöhemmin keväällä enemmän koronarokotteita kuin ennen. Toukokuussa Suomeen saadaan 300 000 koronarokotetta joka viikko.
+
+Kaikki riskiryhmät saavat koronarokotuksen ehkä toukokuun puoliväliin mennessä. Sen jälkeen aloitetaan työikäisten koronarokotukset.
+
+Terveyden ja hyvinvoinnin laitos arvioi, että heinäkuun alkuun mennessä ensimmäinen koronarokote on annettu kaikille, jotka haluavat koronarokotuksen.
+
+## Koronatartunnat
+
+![Hoitaja ojentaa koronatestipuikkoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11806727)
+
+Avaa kuvien katselu
+
+Kuva: Mari Kahila / Yle
+
+Uusien koronatartuntojen määrä vähenee.
+
+Terveyden ja hyvinvoinnin laitos kertoi maanantaina, että uusia koronatartuntoja on 225. Viimeksi päivän koronaluku oli näin pieni noin 3 kuukautta sitten.
+
+## Lähiopetus
+
+![Katriina Raine pitää ilmaisutaidon tuntia etänä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11835344)
+
+Avaa kuvien katselu
+
+Etäopetus on jatkunut monissa kouluissa jo pitkään. Kuva: Petteri Sopanen / Yle
+
+Lähiopetus alkaa taas monissa kouluissa.
+
+Monet yläkoulut, lukiot ja ammattikoulut ovat antaneet oppilaille etäopetusta koronan takia. Oppilaat ovat siis pysyneet kotona ja opiskelleet tietokoneen kautta.
+
+Nyt oppilaat pääsevät taas kouluun lähiopetukseen.
+
+## Ramadan
+
+![Kuvassa myyntipöydällä on Baklava-leivonnaisia. Pöydän takana seisoo kaksi miestä, jotka ovat leipomon työntekijöitä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11877684)
+
+Avaa kuvien katselu
+
+Paastokuukauden aikana syödään vasta auringonlaskun jälkeen. Ilta-aterilla syödään esimerkiksi baklavaa.  Kuva: AOP
+
+Muslimien paastokuukausi ramadan alkaa.
+
+Suomessa ramadan alkaa huomenna tiistaina. Ramadan loppuu toukokuun 12. päivä.
+
+Ramadaniin kuuluu paasto. Paaston aikana ei syödä eikä juoda, kun aurinko on taivaalla.
+
+Monet maailman muslimijohtajat sanovat, että koronarokotteen voi ottaa myös paaston aikana. Koronarokotteen ottaminen ei riko paastoa.
+
+Ramadanin jälkeen vietetään id al-fitr -juhlaa. Suomessa id al-fitr on tänä vuonna toukokuun 13. päivä.
+
+## Lämpöennätys
+
+![Ihmisiä ulkoilemassa Lappeenrannan satamassa.](https://img.img-cdn.yle.fi/crop_extract,w_5254,h_2955,x_0,y_25/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-79367560742f9b405eb/1618227171)
+
+Avaa kuvien katselu
+
+Maanantai oli lämmin päivä. Kuva: Kalle Purhonen / Yle
+
+Maanantaina on mitattu tämän kevään lämpöennätys. Ennätys on 17,1 astetta. Tämän kevään lämpöennätys mitattiin Parikkalassa, Itä-Suomessa.
+
+Ilmatieteen laitos kertoo, että kaikkien aikojen lämpöennätys huhtikuussa on 25,5 astetta. Se mitattiin 100 vuotta sitten Jyväskylässä.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11880636)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Tiistaina pohjoisessa sataa lunta tai räntää. Etelässä on poutaa ja aurinkokin paistaa.
+
+Sää kylmenee vähän. Lämpötila on alle 10 astetta myös etelässä.
+
+Tiistain jälkeen sää on edelleen sateeton eli poutainen. Sää myös lämpenee.

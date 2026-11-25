@@ -1,0 +1,73 @@
+# Lauantai 27.11.2021 (radio)
+
+Koronaviruksen uusi muunnos. Perttu Nousiainen. Joulukausi. Iivo Niskanen.
+
+## Koronaviruksen uusi muunnos
+
+![Infektiosairauksien ylilääkäri Asko Järvinen Ylen Ykkösaamussa.](https://img.img-cdn.yle.fi/crop_extract,w_5997,h_3373,x_0,y_121/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88502261a1ea671d460/1638001865)
+
+Avaa kuvien katselu
+
+HUSin ylilääkäri Asko Järvinen Ylen Ykkösaamussa. Kuva: Benjamin Suomela / Yle
+
+Koronaviruksen uudesta muunnoksesta on vain vähän tietoa. Näin sanoo Helsingin ja Uudenmaan sairaanhoitopiirin infektiosairauksien ylilääkäri Asko Järvinen.
+
+Virusmuunnos löytyi eteläisestä Afrikasta. Vielä ei tiedetä, millaisen suojan rokotteet antavat uutta virusmuunnosta vastaan.
+
+## Tarkastuksia Helsinki-Vantaan lentokentällä
+
+![Koronaohjeistusta ja lentomatkustajia Helsinki-Vantaan lentokentällä.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_46/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88507761a2203e60943/1638015087)
+
+Avaa kuvien katselu
+
+Koronaohjeistusta ja lentomatkustajia Helsinki-Vantaan lentokentällä tänään. Kuva: Emmi Korhonen / Lehtikuva
+
+Helsinki-Vantaan lentokentällä tarkastetaan matkustajia koronaviruksen uuden muunnoksen takia.
+
+Viranomainen määräsi, että kaikille eteläisestä Afrikasta tuleville ihmisille tehdään koronatesti. Matkustajien pitää myös jäädä karanteeniin.
+
+## Perttu Nousiainen matkustuskieltoon
+
+![Nuorisosäätiön entinen hallituksen puheenjohtaja Perttu Nousiainen (oik.) vangitsemisoikeudenkäynnissä Pasilan poliisitalolla Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_335/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88506461a21345381a6/1638011773)
+
+Avaa kuvien katselu
+
+Nuorisosäätiön entinen hallituksen puheenjohtaja Perttu Nousiainen (oik.) vangitsemisoikeudenkäynnissä Pasilan poliisitalolla Helsingissä tänään. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Helsingin käräjäoikeus on määrännyt, että Nuorisosäätiön hallituksen entinen puheenjohtaja Perttu Nousiainen ei saa matkustaa. Määräystä myös valvotaan.
+
+Poliisi vaati, että Nousiainen pitää vangita. Tämän vaatimuksen käräjäoikeus hylkäsi.
+
+Perttu Nousiaista epäillään yhteensä 7. rikoksesta. Häntä epäillään muun muassa törkeästä petoksesta.
+
+Poliisi otti Nousiaisen kiinni myöhään keskiviikkona, kun Nousiainen tuli Suomeen Sveitsistä.
+
+Keskusrikospoliisi tutkii kauppoja, joita tehtiin Nuorisosäätiössä. Myös Nuorisosäätiön entistä toimitusjohtajaa Aki Haaroa epäillään rikoksista.
+
+## Joulukausi alkaa
+
+![Tuomaan Markkinoiden kyltti, myyntikojuja ja karuselli Helsingin Kauppatorilla.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_141/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88503661a200b7e228d/1638007032)
+
+Avaa kuvien katselu
+
+Tuomaan Markkinoiden kyltti, myyntikojuja ja karuselli Helsingin Kauppatorilla 24. marraskuuta 2021. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Joulukausi on avattu monissa kaupungeissa.
+
+Helsingissä joulukausi alkoi Aleksanterinkadulla ja perinteiset Tuomaan Markkinat Kauppatorilla. Turussa oli jouluparaati ja Vanhan Suurtorin Joulumarkkinat avattiin.
+
+Tampereella on sunnuntaina jouluparaati.
+
+## Iivo Niskanen voitti Rukalla
+
+![Iivo Niskanen tuulettaa Rukan osakilpailun voittoa.](https://img.img-cdn.yle.fi/crop_extract,w_2470,h_1383,x_0,y_205/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88510061a2311e3b788/1638019417)
+
+Avaa kuvien katselu
+
+Iivo Niskanen tuulettaa Rukan osakilpailun voittoa. Kuva: Tomi Hänninen
+
+Iivo Niskanen voitti hiihdon maailmancupin kilpailun Kuusamon Rukalla. Niskanen voitti miesten 15 kilometrin perinteisen hiihtotavan kilpailun 8,3 sekunnin erolla venäläiseen Aleksei Tshervotkiniin. Kilpailussa 3. oli venäläinen Aleksandr Bolshunov.
+
+Niskanen voitti nyt jo 4. kerran Rukalla perinteisen hiihtotavan 15 kilometrin kilpailun. Niskanen voitti kilpailun myös vuosina 2019, 2016 ja 2014.
+
+Krista Pärmäkoski oli 5. naisten perinteisen hiihtotavan 10 kilometrin kilpailussa.

@@ -1,0 +1,69 @@
+# Radio Selkouutiset keskiviikko 28.6.2023
+
+Elinkeinoministeri Junnila. Vaalien äänestys. Nuorisorikollisuus. Vanhusten kotihoito. Sää.
+
+## Elinkeinoministeri Junnila
+
+![Elinkeinoministeri, perussuomalaisten Vilhelm Junnila eduskunnan täysistunnon jälkeen Helsingissä 28. kesäkuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135640649c20073ee73/1688117301)
+
+Avaa kuvien katselu
+
+Elinkeinoministeri, perussuomalaisten Vilhelm Junnila eduskunnan täysistunnon jälkeen Helsingissä 28. kesäkuuta 2023. Kuva: Eeva-Maria Brotherus / Lehtikuva
+
+Perussuomalainen elinkeinoministeri Vilhelm Junnila on saanut eduskunnan luottamuksen. Eduskunta äänesti käytännössä siitä, voiko Junnila olla elinkeinoministeri.
+
+Junnila sai eduskunnan äänestyksessä luottamuksen äänin 95–86. Tyhjiä ääniä oli 3. Äänestyksestä oli poissa 15 kansanedustajaa.
+
+Vihreät, vasemmistoliitto ja SDP vaativat elinkeinoministeri Vilhelm Junnilan eroa. Syynä ovat Junnilan äärioikeistoon liittyvät puheet. Junnila myös osallistui tapahtumaan, jolla oli yhteys äärioikeistoon.
+
+## Eduskuntavaalien äänestys
+
+![Täysistuntosali.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131012648c4c350d7cf/1686917217)
+
+Avaa kuvien katselu
+
+Ihmisen sukupuoli, ikä ja koulutus vaikuttavat vaaleissa paljon puolueen valintaan. Kuvituskuva. Kuva: Silja Viitala / Yle
+
+Åbo Akademi on tutkinut eduskuntavaalien äänestystä. Tutkimus kertoo, että yli 30 prosenttia työikäisistä miehistä äänesti vaaleissa perussuomalaisia.
+
+Ihmisen sukupuoli, ikä ja koulutus vaikuttavat paljon puolueen valintaan. Miehistä noin 50 prosenttia äänesti perussuomalaisia tai kokoomusta. Naisten joukossa oli eniten SDP:n kannattajia.
+
+Perussuomalaiset oli suosituin puolue kaikissa muissa ikäryhmissä, paitsi yli 65-vuotiaissa.
+
+## Nuorisorikollisuus
+
+![Lapsiasiavaltuutettu Elina Pekkarinen.](https://img.img-cdn.yle.fi/crop_extract,w_5304,h_2983,x_0,y_2305/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135284649b123219b7f/1694531019)
+
+Avaa kuvien katselu
+
+Lapsiasiavaltuutettu Elina Pekkarinen. Kuva: Rinna Härkönen / Yle
+
+Lapsiasiavaltuutettu arvostelee uuden hallituksen suunnitelmia siitä, miten nuorisorikollisuutta torjutaan. Lapsiasiavaltuutettu Elina Pekkarinen sanoo, että nuorten rikollisuutta pitää torjua enemmän jo etukäteen.
+
+Pekkarinen korostaa, että lapsiperheiden köyhyyttä pitää vähentää. Pekkarisen mielestä uuden hallituksen ohjelma ei vähennä lapsiperheiden köyhyyttä, vaan lisää sitä.
+
+Poliisi kertoo, että alle 15-vuotiaat tekevät enemmän rikoksia kuin aikaisemmin.
+
+## Vanhusten kotihoito
+
+![Vanhuksen käsi, jossa turvaranneke](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_312/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11336506493fd189c90e/1698058728)
+
+Avaa kuvien katselu
+
+Vanhusten kotihoito on vähentynyt. Kuvituskuva. Kuva: Juha Kemppainen / Yle
+
+Terveyden ja hyvinvoinnin laitos THL on huolissaan siitä, että vanhukset saavat vähemmän kotihoitoa kuin aikaisemmin. Vanhusten kotihoito on nyt vähentynyt 1. kerran, vaikka vanhuksia on enemmän kuin ennen.
+
+Varsinkin Helsingissä hoitajat käyvät vanhusten kotona vähemmän kuin aikaisemmin. THL pelkää, että jotkut vanhukset jäävät ilman hoitoa.
+
+## Sää
+
+![Asuntoautoja leirintäalueella aurinkoisena päivänä.](https://img.img-cdn.yle.fi/crop_extract,w_1612,h_907,x_12,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11335796493e996880d6/1687415806)
+
+Avaa kuvien katselu
+
+Sää jatkuu lämpimänä. Kuvituskuva. Kuva: Maija Tuunila / Yle
+
+Sää on yöllä poutainen. Torstaina päivällä monin paikoin tulee sade- ja ukkoskuuroja varsinkin Itä-Suomessa ja Pohjois-Suomessa.
+
+Yölämpötila on 10 ja 16 asteen välillä. Torstaina päivälämpötila on 21 ja 27 asteen välillä. Pohjois-Lapissa lämmintä on paikoin alle 20 astetta.

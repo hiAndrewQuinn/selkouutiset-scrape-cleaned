@@ -1,0 +1,63 @@
+# Perjantai 24.2.2017 (radio)
+
+Kasvisruoka on suosittua. Palvelualalle syntyy uusia työpaikkoja. Koivuallergiaa voidaan hoitaa uudella tavalla. Ensi viikolla sataa vettä.
+
+## Kasvisruoka on suosittua
+
+![Kasvispohjaisia elintarvikkeita eli vegaanisia tuotteita kaupan hyllyllä Pirkkalan Citymarketissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9475911)
+
+Avaa kuvien katselu
+
+Kaupoissa on jo paljon kasvisruokia. Kuva: Anne Savin / Yle
+
+Suomalaiset syövät kasvisruokia enemmän kuin ennen. Nykyään noin 30 prosenttia suomalaisista syö kasvisaterian ainakin kerran viikossa.
+
+Monet ovat nykyään sitä mieltä, että kasvisruoka on terveellisempää kuin liha. Monet ajattelevat myös, että eläimet eivät voi hyvin, kun niitä kasvatetaan lihan takia. Siksi he valitsevat kasvisruuan.
+
+Myös ruokateollisuus on alkanut valmistaa enemmän kasvisruokia. Uusia muotiruokia ovat nyhtökaura ja härkis eli härkäpapu, joissa on paljon proteiinia. Aikaisemmin vain liharuuissa oli paljon proteiinia.
+
+## ICT-alalta löytyy työtä
+
+![Serveri.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9183747)
+
+Avaa kuvien katselu
+
+Tietotekniikka-ala kasvaa. Kuva: Jyrki Lyytikkä / Yle
+
+Palvelualan firmoista on saatu hyviä uutisia. Palveluala kasvaa ja alalle syntyy uusia työpaikkoja. Palvelualalla riittää töitä esimerkiksi tietotekniikan osaajille.
+
+Tietoliikennefirma DNA:n johtaja Jukka Leinonen sanoo, että ICT-ala kasvaa hyvin. ICT eli informaatio- ja viestintäteknologia tuo työtä monille.
+
+Myös asiantuntijapalvelut kasvavat. Esimerkiksi suunnittelijoille riittää töitä, koska Suomessa rakennetaan nyt paljon.
+
+## Koivuallergian uusi hoito
+
+![Birch catkins](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6086984)
+
+Avaa kuvien katselu
+
+Monet ovat allergisia koivun siitepölylle. Kuva: T. Säntti / Yle
+
+Koivuallergiaa voidaan hoitaa uudella tavalla. Uusi hoito auttaa ihmisiä, joita tavalliset allergialääkkeet eivät auta tarpeeksi hyvin.
+
+Uusi hoito on siedätyshoitoa. Se auttaa ihmistä kestämään koivun siitepölyä paremmin.
+
+Kokkolalainen Annika Kupari kiinnostui uudesta siedätyshoidosta, koska siinä lääkeaine annetaan suuhun. Vanha tapa antaa siedätyshoitoa on pistää lääkeaine potilaaseen piikillä.
+
+Kuparin 8-vuotiaalla Niko-pojalla on paha koivuallergia. Kun koivu kukkii keväällä, Nikon on pitänyt olla sisällä pitkiä aikoja. Nyt Kupari toivoo, että uusi hoito auttaa Niko-poikaa.
+
+## Keski-Suomen talviloma alkoi
+
+![Lapset hiihtävät pellolla Kangasalan Saarikylissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8712145)
+
+Avaa kuvien katselu
+
+Viikonloppuna on hyvä hiihtosää, mutta ensi viikolla sataa vettä. Kuva: Jukka Töyli / Yle
+
+Talviloma on alkanut monissa Suomen kouluissa. Ensi viikolla on loma esimerkiksi Tampereen, Jyväskylän, Mikkelin ja Vaasan kouluissa.
+
+Etelä-Suomen kouluissa talviloma jo loppuu, ja Pohjois-Suomen kouluissa talviloma alkaa vasta viikon päästä.
+
+Ylen meteorologi Toni Hellinen kertoo, että ensi viikolla talvilomaa vietetään melko sateisessa säässä. Sää muuttuu tiistaina, ja sen jälkeen melkein koko maassa on plusasteita. Keskiviikkona ja torstaina sataa vettä eri puolilla Suomea.
+
+Paras paikka hiihtää on Lappi. Siellä on koko ajan pakkasta.

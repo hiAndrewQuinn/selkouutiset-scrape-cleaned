@@ -1,0 +1,75 @@
+# Lauantai 13.3.2021 (radio)
+
+Koronarokotusten järjestys voi muuttua. Pääministeri sanoo, että liikkumisrajoituksia voi tulla Helsingin ja Turun seuduille. Junamatkustajat noudattavat hyvin maskipakkoa. Muusikko Pentti Lasanen on kuollut. Säätiedot.
+
+## Rokotusjärjestys voi muuttua
+
+![Asiakkaat odottavat rokotusvuoroaan Helsingin Messukeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11825991)
+
+Avaa kuvien katselu
+
+Ihmiset odottavat rokotusvuoroaan Helsingin Messukeskuksessa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Rokotusjärjestys voi muuttua Suomessa. Kansallinen rokoteasiantuntijaryhmä sanoo, että koronarokotteita voidaan jatkossa ehkä suunnata alueille ja ihmisille, joilla koronatartunnan riski on erityisen suuri.
+
+Koronavirus leviää tällä hetkellä koko maassa, mutta erityisen voimakkaasti Helsingin seudulla. Tartuntoja on paljon esimerkiksi ulkomaalaistaustaisilla ihmisillä.
+
+Esimerkiksi Helsingissä koronatartunnoista melkein 40 prosenttia on vieraskielisillä. Vantaalla tartunnoista puolet eli 50 prosenttia on vieraskielisillä.
+
+## Pääministeri Ylen Ykkösaamussa
+
+![Pääministeri Sanna Marin vieraili Pasilassa Ylen Ykkösaamussa 13. maaliskuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_188/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-783982604c766dc69c9/1615624088)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin vieraili TV1:n Ykkösaamussa. Kuva: Silja Viitala / Yle
+
+Hallitus jatkaa liikkumisrajoitusten valmistelua.
+
+Pääministeri Sanna Marin sanoi TV1:n Ykkösaamussa, että ihmisten liikkumista voidaan ehkä rajoittaa Helsingin ja Turun seuduilla, joissa koronatartuntoja on paljon.
+
+Marin myös sanoi, että rokotusjärjestyksen muuttamista voidaan harkita sen jälkeen, kun riskiryhmät on rokotettu.
+
+Suomessa on tänään raportoitu noin 700 uutta koronavirustartuntaa
+
+## Junamatkustajien maskipakko
+
+![Kasvomaskia käyttäviä junamatkustajia 4. syyskuuta 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11578727)
+
+Avaa kuvien katselu
+
+Kasvomaskit ovat pakollisia VR:n junissa. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+VR kertoo, että ihmiset noudattavat hyvin junien maskipakkoa.
+
+Kasvomaskit tulivat pakollisiksi VR:n junissa torstaina. Maskia ei tarvitse käyttää, jos siihen on jokin terveydellinen syy.
+
+Myös Helsingin seudun joukkoliikenteessä pitää käyttää maskia tästä päivästä lähtien. Turussa ja Tampereella maskipakko alkaa maanantaina.
+
+Maskipakko ei koske alle 12-vuotiaita lapsia.
+
+## Jazzmuusikon kuolema
+
+![Pentti Lasanen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11836174)
+
+Avaa kuvien katselu
+
+Muusikko Pentti Lasanen. Kuva: Roni Rekomaa / Lehtikuva
+
+Jazzmuusikko ja säveltäjä Pentti Lasanen on kuollut. Hän oli 84-vuotias.
+
+Pentti Lasanen soitti saksofonia, klarinettia, huilua ja trumpettia. Hän myös lauloi Four Cats -yhtyeessä.
+
+Pentti Lasanen teki musiikkia moniin elokuviin ja voitti myös elokuva-alan Jussi-palkinnon.
+
+Syksyn Sävel laulukilpailun Pentti Lasanen voitti vuonna 1985 tällä Luoksesi jään -kappaleella.
+
+## Sunnuntain sää
+
+![Sunnuntain sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11836338)
+
+Avaa kuvien katselu
+
+Sunnuntaina päivällä maan eteläosassa sataa lunta ja räntää. Pohjoisessa on poutaisempaa ja paikoin voi paistaa myös aurinko.
+
+Päivälämpötila on plus kahden ja miinus neljän asteen välillä.

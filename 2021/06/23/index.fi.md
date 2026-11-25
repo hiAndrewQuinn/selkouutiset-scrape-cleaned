@@ -1,0 +1,76 @@
+# Keskiviikko 23.6.2021
+
+Sote-uudistus. Ravintolarajoitukset. Ryanair. Juhannusliikenne. Sääenuste.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Sote-uudistus
+
+![ Sosiaali- ja terveyspalvelu-uudistus eli sote hyväksyttiin eduskunnassa äänin 105-77 eduskunnan täysistunnossa Helsingissä 23. kesäkuuta 2021, jossa eduskunta äänesti laajalla kokoonpanolla sote-uudistuksen hyväksymisestä.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_472/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82471260d31b913c19b/1625158013)
+
+Avaa kuvien katselu
+
+Sosiaali- ja terveyspalvelu-uudistus hyväksyttiin äänin 105-77 . Kuva: Lehtikuva
+
+Eduskunta on hyväksynyt sosiaali- ja terveyspalvelu-uudistuksen eli Sote-uudistuksen.
+
+Päätös tarkoittaa, että sosiaali- ja terveydenhuollon järjestämiseen tulee iso muutos vuoden 2023 alussa. Terveydenhoidon järjestäminen siirtyy kunnilta hyvinvointialueille, eli maakunta-tasolle.
+
+Eduskunnan äänestyksessä Sote-uudistusta kannatti 105 kansanedustajaa ja sitä vastusti 77 kansanedustajaa. Äänestyksestä oli poissa 17 kansanedustajaa.
+
+## Ravintolarajoitukset
+
+![Olutta kaadetaan lasiin ravintolassa.](https://img.img-cdn.yle.fi/crop_extract,w_3008,h_1692,x_0,y_310/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81441460b71c4abb53c/1697528433)
+
+Avaa kuvien katselu
+
+Ravintolarajoituksia on enää Uudellamaalla. Kuva: Yleisradio / Juho Liukkonen
+
+Ravintoloiden koronarajoituksia vähennetään torstaina. Hallitus on päättänyt, että ravintoloiden asiakasmäärää tai aukioloaikaa ei rajoiteta enää koronaviruksen perustason alueilla eli suurimmassa osassa Suomea.
+
+Rajoituksia jää vain Uudellemaalle, joka on vielä kiihtymisvaiheessa.
+
+Uudellamaalla ravintoloiden aukioloaikaa pidennetään, mutta sisätiloissa asiakkaita saa olla tavallista vähemmän. Terasseilla ei ole rajoitusta.
+
+## Lentoyhteydet
+
+![Ryanairin lentokoneesta tulee ihmisiä ulos rauhalliseen tahtii.](https://img.img-cdn.yle.fi/crop_extract,w_2158,h_1214,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7075355f33dce8969d2/1597234474)
+
+Avaa kuvien katselu
+
+Ryanair aloittaa lentoja useisiin eri kohteisiin. Kuva: Elli Sormunen / Yle
+
+Lentoyhtiö Ryanair avaa Suomesta uusia lentoreittejä syksyllä. Ryanair aloittaa marraskuussa lennot 8 kohteeseen.
+
+Helsingistä Ryanair lentää silloin esimerkiksi Lontooseen, Pariisiin ja Milanoon. Ryanair avaa myös reitin Tampereelta Lontooseen.
+
+Jo elokuussa Ryanair aloittaa lennot Lappeenrannasta Wieniin ja Saksan Memmingeniin.
+
+## Juhannusliikenne
+
+![Autoja nelostiellä juhannusaattona.](https://img.img-cdn.yle.fi/crop_extract,w_2880,h_1620,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6912365eeb45e0c6b91/1592477241)
+
+Avaa kuvien katselu
+
+Juhannuksen menoliikenteessä voi olla jonoja. Kuva: Ilkka Klemola / Yle
+
+Monet suomalaiset lähtevät torstaina kesämökille viettämään juhannusta.
+
+Juhannuksen menoliikenne on vilkkaimmillaan torstaina iltapäivällä ja illalla ja myös perjantaina aamupäivällä. Eniten ruuhkaa syntyy sellaisille teille, joilla tehdään tien korjaustöitä.
+
+Juhannuksen paluuliikenne on vilkkainta sunnuntaina. Monilla suomalaisilla alkaa juhannuksena kesäloma.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11996087)
+
+Avaa kuvien katselu
+
+Sää viilenee hieman torstaina. Silti on vielä hyvin lämmintä.
+
+Maan etelä- ja keskiosissa on ollut keskiviikkona voimakkaita ukkosia ja sateita. Ukkosmyrskyt ovat aiheuttaneet paljon sähkökatkoja. Helsingissä junaliikenne pysähtyi sen takia, että puu kaatui junaradalle.
+
+Torstaina sää on puolipilvinen. Pohjois-Pohjanmaalla ja Itä-Suomessa voi tulla yksittäisiä sade- ja ukkoskuuroja.
+
+Sää viilenee hieman. Lämpötila on suuressa osassa maata 20 ja 28 asteen välillä. Lapissa on paikoin viileämpää.

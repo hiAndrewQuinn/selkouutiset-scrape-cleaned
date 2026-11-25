@@ -1,0 +1,67 @@
+# Sunnuntai 8.7.2018 (radio)
+
+Pohjois-Thaimaassa on aloitettu pelastustoimet luolastossa - ensimmäiset pojat on jo saatu turvaan. Eläkeikäisten työllisyysaste on noussut tasaisesti 2000-luvulla. Suomessa on valkohäntäpeuroja enemmän kuin koskaan ennen. Merivoimien 100-vuotisjuhlat.
+
+## Thaimaan luolapelastus on  alkanut
+
+![Ambulanssi lähdössä luolan suulta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10294522)
+
+Avaa kuvien katselu
+
+Sunnuntai-illan tietojen mukaan 4 poikaa on jo saatu turvaan. Heidät vietiin ambulanssilla sairaalaan. Kuva: Lillian Suwanrumpha / AFP
+
+Pohjois-Thaimaassa ensimmäiset pojat on saatu turvaan luolasta. 12 poikaa ja jalkapallovalmentaja ovat olleet loukussa luolassa yli 2 viikkoa. Sunnuntai-iltaan mennessä pojista 4 saatiin turvaan. 
+
+ Operaatiolla oli kiire, koska tulossa on rankkasateita. Pelastustyö voi vielä kestää, mutta tähän asti se on sujunut nopeammin kuin odotettiin. Operaatio keskeytettiin illalla noin 10 tunniksi, koska happipullot sukellusreitillä pitää täyttää uudelleen. 
+
+Veden pintaa luolastossa on saatu laskettua. Osan matkaa pääsee kävelemään. Muu matka pitää sukeltaa. 
+
+Kaikkiaan operaatioon osallistuu 90 sukeltajaa. Heistä 50 on ulkomaalaisia ja 40 thaimaalaisia.  
+
+## Moni eläkeikäinen tekee töitä
+
+![Työsopimus ja kynä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9762821)
+
+Avaa kuvien katselu
+
+Yhä useampi tekee töitä ainakin väliaikaisesti vaikka onkin jo eläkkeellä. Kuva: Ismo Pekkarinen / AOP
+
+Suurin osa suomalaisista lähtee heti työelämästä, kun laki sen sallii. Useimmat jättävät työn 63-vuotiaina. 
+
+Eläkeikä on kuitenkin noussut ja nousee edelleen uusien lakien takia. Monen eläkeikä on noussut 65 vuoteen, ja esimerkiksi työttömyyseläke poistui. 
+
+Toisaalta aiempaa useammat haluavat jatkaa töitä ainakin osa-aikaisesti. Eläketurvakeskus kertoo, että eläkeikäisten työllisyysaste on noussut tasaisesti 2000-luvulla. Töissä jatkaminen on tavallisinta asiantuntija-ammateissa. Naiset tekevät töitä usein hoiva-alalla ja miehet kuljetusalalla.   
+
+## Valkohäntäpeuroja on paljon
+
+![Valkohäntäpeuran vasa katsoo suoraan kameraan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10292800)
+
+Avaa kuvien katselu
+
+Ensimmäiset valkohäntäpeurat tuotiin Laukon kartanoon Vesilahdelle vuonna 1934. Nykyään kartanon mailla elää satoja peuroja. Tämän vasan kartanon isäntä Jouni Minkkinen nosti syrjään ruohonleikkurin tieltä. Kuva: Jouni Minkkinen
+
+Suomessa valkohäntäpeuroja on enemmän kuin koskaan ennen. Niitä on melkein 100 000. Ne voivat kaikki olla yhden ja saman uroksen jälkeläisiä.
+
+Ensimmäiset valkohäntäpeurat tuotiin Laukon kartanoon Vesilahdelle vuonna 1934 ja toiset vuonna 1948. Peura sai kartanon nimestä myös nimen laukonpeura. Peurat tuotiin kartanoon USA:sta pohjoisesta Minnesotan osavaltiosta. 
+
+Peurat tuotiin Suomeen, koska Suomessa ei enää ollut kauriita eikä metsäpeuroja. Siksi amerikansuomalaiset halusivat lahjoittaa vanhaan kotimaahan uuden riistaeläimen. 
+
+Vain 5 peuraa selvisi hengissä vaikeasta laivamatkasta. 1 niistä oli urospeura.  
+
+![Valkohäntäpeuroja lähetetään Suomeen vuonna 1948](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10279372)
+
+Avaa kuvien katselu
+
+Suomeen lahjoitettiin valkohäntäpeuroja vuosina 1934 ja 1948. Tässä peuralähetys on lähdössä Minneapoliksesta 15.11.1948. Kuvaajalle poseeraavat kuvernööri Luther Youngdahl, maa- ja metsätalousministeriön johtaja Frank Blair ja lentoemäntä Lorraine Ellefson. Kuva: Walter H. Wettschreck / Suomen metsästysmuseo
+
+## Merivoimat täyttää 100 vuotta
+
+![ohjusvene Tornio](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10048747)
+
+Avaa kuvien katselu
+
+Ohjusvene Tornio Kuva: Lehtikuva
+
+Merivoimat viettää sunnuntaina ja maanantain 100-vuotisjuhlaa Turussa. Aurajoen rannalla voi nähdä kaikki merivoimien alusluokat. Maanantaina järjestetään paraati.
+
+Aurajoen vesiliikennettä on rajoitettu juhlallisuuksien vuoksi.

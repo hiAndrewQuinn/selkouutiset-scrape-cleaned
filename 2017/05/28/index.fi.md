@@ -1,0 +1,69 @@
+# Sunnuntai 28.5.2017 (radio)
+
+Puolen miljoonan työntekijän lomaraha on pienempi kuin ennen. Sähköpyörän suosio kasvaa. Punkkirokotuksen aika on nyt. Melkein kaikki muuttolinnut ovat tulleet takaisin. Kesäkuu alkaa kylmässä säässä.
+
+## Lomaraha pieneni satoja euroja
+
+![Ritva Hagström](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9635869)
+
+Avaa kuvien katselu
+
+Ritva Hagström. Kuva: Yle
+
+Kuntien ja valtion työntekijöillä on tänä kesänä vähemmän rahaa kuin tavallisesti.
+
+Talvella Suomessa tehtiin sopimus, joka pienensi kuntien ja valtion työntekijöiden lomarahoja. Siksi puoli miljoonaa työntekijää saa kolmena vuonna vähemmän loma-ajan palkkaa. Esimerkiksi siivoojan lomaraha pienenee noin 400 euroa ja sairaanhoitajan noin 700 euroa.
+
+Firmojen työntekijöiden lomaraha ei pienene. Keittäjä Ritva Hagström Porvoosta sanoo, että on epäreilua, kun vain joidenkin työntekijöiden lomaraha pienenee.
+
+## Sähköpyöriä ostetaan paljon
+
+![Sähköavusteisia pyöriä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9635749)
+
+Avaa kuvien katselu
+
+Sähköpyörän akku on usein kiinni rungossa. Kuva: Yle
+
+Suomalaiset ovat ostaneet paljon sähköpyöriä tänä keväänä. Sähköpyöriä on liikenteessä yli 100 prosenttia enemmän kuin viime kesänä. 
+
+Sähköpyörässä on akku ja pieni moottori, joka auttaa esimerkiksi ylämäessä. Sähköpyörällä on kevyempää polkea kuin tavallisella pyörällä. Sillä pääsee kovempaa ja sillä jaksaa ajaa pitkiä matkoja. Moni ajaa sähköpyörällä työmatkoja. 
+
+Esimerkiksi muissa pohjoismaissa, Saksassa ja Hollannissa sähköpyöriä on jo paljon enemmän kuin Suomessa.
+
+## Punkkirokotuksen aika on nyt
+
+![Nuori tyttö saa TBE-rokotuksen. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9635772)
+
+Avaa kuvien katselu
+
+Sairaanhoitaja Kaisa Vaviolahti rokottaa Salla Keihästä. Kuva: Jari Kovalainen / Yle
+
+Jos haluaa ottaa kesäksi punkkirokotuksen, se täytyy ottaa pian.
+
+Rokotus estää aivokuumeen, jota jotkut punkit levittävät. Rokotus ei estä toista tautia, borrelioosia, jota osa punkeista levittää. Rokotus ei myöskään pidä punkkeja poissa iholta. Vain pieni osa punkeista levittää tauteja. Eniten punkkitauteja on Ahvenanmaalla, Paraisilla ja Simossa.
+
+Jos haluaa pitää punkit poissa iholta, täytyy käyttää pitkiä housuja ja pitkähihaista paitaa, kun liikkuu metsässä ja saarissa.
+
+## Muuttolinnut ovat tulleet takaisin
+
+![Satakieli](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9561778)
+
+Avaa kuvien katselu
+
+Kaikki satakielet eivät ole vielä tulleet etelästä Suomeen. Kuva: AOP
+
+Suurin osa muuttolinnuista on tullut Suomeen, kertoo Birdlife Suomi -yhdistys. Myös arktisten lintujen lento Suomen yli pohjoiseen on jo melkein ohi.
+
+Muuttolinnut ovat tulleet tavallista myöhemmin, koska sää on ollut niin kylmää. Nyt on kuitenkin pari viikkoa ollut lämpimämpää, ja lintujen muutto on suunnilleen tavallisessa aikataulussa. Joitakin lintulajeja, esimerkiksi satakieliä, on kuitenkin vielä Suomessa vähän.
+
+## Kesäkuun alku on kylmä
+
+![Yön jättämät kastepisarat loistaa aamu-auringossa ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6222239)
+
+Avaa kuvien katselu
+
+Kastepisaroita nurmikolla. Kuva: Sirkka Franttila
+
+Kesäkuu alkaa hyvin kylmässä säässä.
+
+Ensi viikko on myös sateinen. Ilma on jopa melkein 10 astetta kylmempää kuin tavallisesti. Keskiviikkona, kesäkuun ensimmäisenä päivänä Etelä-Suomessa on noin 10 astetta lämmintä ja pohjoisessa 5. Tällaiset lämpötilat ovat tavallisia huhtikuussa.

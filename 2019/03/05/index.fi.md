@@ -1,0 +1,77 @@
+# Tiistai 5.3.2019 (radio)
+
+Timo Soini ei lähde ehdolle eduskuntavaaleihin. Nuoret uskovat, että äänestämällä vaaleissa voi vaikuttaa. Saastuneimmat kaupungit ovat Intiassa. Hi-virus katosi miehestä. Viime vuoden kirjallisuuden Nobel-palkinto jaetaan tänä vuonna.
+
+## Timo Soini ei lähde eduskuntavaaliehdokkaaksi
+
+![Timo Soini (sin.) piti tiedotustilaisuuden eduskunnassa 5. maaliskuuta 2019. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10674244)
+
+Avaa kuvien katselu
+
+Timo Soini ei lähde ehdokkaaksi kevään eduskuntavaaleissa. Kuva: Yle
+
+Timo Soini ei lähde enää ehdolle eduskuntavaaleissa.
+
+Timo Soini on perussuomalaisten perustaja ja nykyinen sinisten ulkoministeri. Hän on ollut kansanedustajana neljä kautta eli 16 vuotta. Soini sai eduskuntavaaleissa 4 vuotta sitten lähes 30 000 ääntä.
+
+Eurovaaliehdokkuudesta Soini ei vielä sano mitään.
+
+Ehdokkaiden asettaminen huhtikuun eduskuntavaaleihin päättyi tänään tiistaina klo 16.
+
+## Nuoret uskovat äänestämiseen
+
+![Presidentinvaalimainoksia Töölöntorilla Helsingissä tammikuussa 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10673290)
+
+Avaa kuvien katselu
+
+Nuoret uskovat, että äänestämällä voi vaikuttaa. Kuva: Jarno Kuusinen / AOP
+
+Nuoret uskovat muita enemmän, että äänestämällä vaaleissa voi vaikuttaa asioihin.
+
+Ylen kyselyssä 75 prosenttia alle 30-vuotiaista uskoo, että äänestämällä voi vaikuttaa yhteiskuntaan. Nuoret kuitenkin äänestävät vaaleissa vähiten.
+
+## Maailman saastuneimmat kaupungit ovat Intiassa
+
+![Autoja ja mopoja tiellä alikulkusillan alla. Kaiken kattaa ruskeankellertävä sumu. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9274863)
+
+Avaa kuvien katselu
+
+Delhi on maailman saastuneimpia kaupunkeja. Kuva: Rajat Gupta / EPA
+
+Maailman 30 saastuneimmasta kaupungista 22 on Intiassa.
+
+Uusi raportti kertoo, että maailman saastunein kaupunki on Gurgaon Intiassa. Gurgaon on Delhin metropolin lähellä.
+
+Kolmenkymmenen saastuneimman kaupungin joukossa on Intian lisäksi kaupunkeja Pakistanista ja Kiinasta sekä yksi kaupunki Bangladeshista.
+
+## Hi-virus katosi tartunnan saaneesta miehestä
+
+![henkilö ottamassa hiv-testiä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10371687)
+
+Avaa kuvien katselu
+
+Hi-virus onnistuttiin hävittämään aikuisesta potilaasta toisen kerran historiassa.
+
+Lontoossa on onnistuttu hävittämään hi-virus tartunnan saaneesta miehestä.
+
+Miehelle tehtiin luuydinsiirtoja ihmisiltä, jotka ovat immuuneja virukselle. Hoidon jälkeen miehellä ei ole ollut hi-virusta 19 kuukauteen.
+
+Kyseessä on toinen kerta historiassa, kun virus on onnistuttu hävittämään aikuisesta potilaasta. Vuonna 2007 amerikkalainen potilas sai samaa hoitoa Berliinissä, eikä hänessä ole sen jälkeen todettu hi-virusta.
+
+Hiv-tartuntaa hoidetaan lääkkeellä, joka estää tartuntaa etenemästä aidsiksi. Lääkkeet eivät kuitenkaan paranna potilasta.
+
+Aidsiin on kuollut arvioiden mukaan maailmassa yli 35 miljoonaa ihmistä.
+
+## Tänä vuonna jaetaan 2 kirjallisuuden Nobelia
+
+![Ruotsin akatemiassa Nobel-palkintojen julkistamistilaisuus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10159854)
+
+Avaa kuvien katselu
+
+Viime vuonna jakamatta jäänyt kirjallisuuden Nobel-palkinto jaetaan tänä vuonna. Kuva: Pelle T Nilsson / AOP
+
+Ruotsin akatemia myöntää tänä vuonna 2 kirjallisuuden Nobel-palkintoa.
+
+Ruotsalainen media kertoo, että Ruotsin akatemia myöntää tänä vuonna myös viime vuonna jakamatta jääneen palkinnon. Palkinto jätettiin viime vuonna myöntämättä, koska Ruotsin akatemiaa häiritsi seksuaaliseen häirintään liittynyt skandaali.
+
+Kirjallisuuden Nobel-palkinto jaettiin ensimmäisen kerran vuonna 1901. Kirjallisuuden Nobel-palkinto on suuruudeltaan noin miljoona euroa.

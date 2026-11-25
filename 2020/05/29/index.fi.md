@@ -1,0 +1,83 @@
+# Perjantai 29.5.2020 (radio)
+
+Sosiaali- ja terveysministeriö on tehnyt selvityksen kasvomaskeista. Koulut loppuvat, mutta valmistujaisjuhlia ei järjestetä. Eduskunta on hyväksynyt ravintoloiden uudet ohjeet. Viikonlopun sää on kaunis.
+
+## Kasvomaskit
+
+![mies käyttää suojamaskia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11335665)
+
+Avaa kuvien katselu
+
+Kasvomaski peittää suun ja nenän. Kuva: Marja Väänänen / Yle
+
+Sosiaali- ja terveysministeriö on tehnyt selvityksen kasvomaskeista koronaviruksen takia. Ihmiset voivat peittää kasvomaskilla suun ja nenän.
+
+Selvitys kertoo, että kasvomaskilla ei ole suurta merkitystä. Kasvomaski ei estä virusten leviämistä.
+
+Selvitys menee Suomen hallitukselle. Hallitus käsittelee asiaa ensi viikolla. Silloin hallitus päättää, suositteleeko se kasvomaskin käyttöä koronan takia.
+
+## Koulut
+
+![Ylioppilas pitelee lakkiaan kädessä sitä katsoen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10811111)
+
+Avaa kuvien katselu
+
+Uudet ylioppilaat ja ammattiin valmistuneet joutuvat odottamaan isompia juhlia syksyyn asti. Kuva: Henrietta Hassinen / Yle
+
+Koulut loppuvat tänä viikonloppuna.
+
+Koulut eivät kuitenkaan järjestä valmistujaisjuhlia nyt koronan takia. Juhlat siirtyvät syksyyn.
+
+Nyt juhlitaan korkeintaan etäyhteydellä, ja oppilaat saavat todistukset postissa.
+
+Uusia ylioppilaita on tänä keväänä noin 25 000. Ammattiin valmistuu noin 47 000 opiskelijaa.
+
+Ylen nettisivuilla julkaistiin perjantaina amiskone. Sieltä voi katsoa, ketkä ovat valmistuneet ammattiin.
+
+Ylioppilaskone julkaistiin jo aikaisemmin toukokuussa. Sieltä näkee uusien ylioppilaiden nimet.
+
+Amiskone ja ylioppilaskone löytyvät osoitteesta yle.fi.
+
+## Ravintolat
+
+![Suljettu ravintola-alue Espoon Tapiolassa.](https://img.img-cdn.yle.fi/crop_extract,w_3506,h_1972,x_0,y_104/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6652295e987324963c6/1587634778)
+
+Avaa kuvien katselu
+
+Ravintolat ovat olleet tänä keväänä kiinni koronan takia. Kuva: Henrietta Hassinen / Yle
+
+Eduskunta on hyväksynyt ravintoloiden uudet rajoitukset. Hallitus ehdotti rajoituksia viime viikolla.
+
+Rajoituksia tarvitaan, jotta koronavirus ei leviä ravintoloissa. Ravintolat saavat avata ovet asiakkaille maanantaina koronatauon jälkeen.
+
+Uudet rajoitukset sanovat, että ravintolat saavat olla auki kello 23:een asti. Alkoholin myynti pitää kuitenkin lopettaa jo kello 22.
+
+Ravintolaan saa päästää puolta vähemmän asiakkaita kuin ennen. Jos ravintola sai ennen ottaa kerralla esimerkikis 100 asiakasta, nyt asiakkaita saa olla vain 50.
+
+## Koronatilanne
+
+![Kumihanskaa käyttävällä tutkijalla on kädessään Covid-19-tautia vastaan kehitettävä rokote.](https://img.img-cdn.yle.fi/crop_extract,w_3779,h_2126,x_0,y_6/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6797265ec8414e0318c/1594039034)
+
+Avaa kuvien katselu
+
+Tutkijat yrittävät löytää rokotetta koronaa vastaan. Kuva: Rungroj Yongrit / EPA
+
+Suomessa raportoitiin perjantaina yksi uusi koronakuolema. Koronavirus on tappanut Suomessa nyt yhteensä 314 ihmistä.
+
+Tähän mennessä melkein 6800 suomalaista on saanut koronavirustartunnan. Perjantaina kerrottiin, että uusia tartuntoja on 33.
+
+## Sää
+
+![Merimaisemaa Espossa, vastarannalla kesämökki.](https://img.img-cdn.yle.fi/crop_extract,w_3088,h_1737,x_0,y_323/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6774175ebfdf644362f/1589633438)
+
+Avaa kuvien katselu
+
+Viikonloppuna on hyvä ulkoilusää. Kuva: Henrietta Hassinen / Yle
+
+Viikonlopun sää on kaunis.
+
+Lauantaina on poutaista eli ei sada. Lämpötila on suuressa osassa maata 15 ja 20 asteen välillä.
+
+Sunnuntaina Suomeen tulee vielä lämpimämpää ilmaa lännestä. Lämpötila on melkein koko maassa noin 20 astetta.
+
+Sää on lämmin myös ensi viikon alussa.

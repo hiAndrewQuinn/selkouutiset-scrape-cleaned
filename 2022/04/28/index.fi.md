@@ -1,0 +1,91 @@
+# Torstai 28.4.2022 (radio)
+
+## Ukrainalaisten suojelu
+
+![Ukrainalaisia siviilejä bussissa Zaporižžjassa. ](https://img.img-cdn.yle.fi/crop_extract,w_7870,h_4426,x_0,y_61/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-94460062617d4856cfd/1650556283)
+
+Avaa kuvien katselu
+
+Suomesta on hakenut tilapäistä suojaa jo 20 000 pakolaista Ukrainasta. Kuva: Roman Pilipey / EPA
+
+Suomi on myöntänyt tilapäistä suojelua 13 000 ukrainalaispakolaiselle.
+
+Maahanmuuttovirasto kertoo, että lähes kaikki päätökset ovat olleet myönteisiä. Pieni osa hakemuksista on rauennut, kun hakija on perunut hakemuksen.
+
+Venäjän hyökkäyksen jälkeen Suomessa on jätetty yli 20 000 tilapäisen suojelun hakemusta.
+
+Venäjä hyökkäsi Ukrainaan 24. helmikuuta.
+
+## Ukrainalaiset opiskelijat
+
+![Opiskelijoita Tampereen yliopistolla 4. syyskuuta 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11569969)
+
+Avaa kuvien katselu
+
+Suomalaiset korkeakoulut ottavat ukrainalaisia opiskelijoita. Kuva: Jussi Nukari / Lehtikuva
+
+Ukrainalaiset pakolaiset saavat mahdollisuuden opiskella suomalaisissa korkeakouluissa.
+
+Opetusministeriö kertoo, että se tukee ukrainalaisten opintoja ja ohjausta erillisellä rahoituksella.
+
+Ministeriö arvioi, että opiskeluun voidaan ottaa 2 000–4 000 opiskelijaa.
+
+## Kotitestit
+
+![apteekin telineissä roikkuu kotitestejä. Myytävänä on ovulaatio-, virtsatientulehdus-, huume-, helikobakteeri- ja keliakiakotitestipakkauksia.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_232/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9465716267e30367462/1650976340)
+
+Avaa kuvien katselu
+
+Terveyden kotitestejä apteekissa. Kuva: Pyry Sarkiola / Yle
+
+Kotitestejä terveyden mittaamiseen tulee koko ajan lisää.
+
+Kotona voi tehdä testin esimerkiksi sukupuolitautien, keliakian tai korkean kolesterolin varalta.
+
+Tuloksia voidaan käyttää hyväksi julkisessa terveydenhuollossa. Näin voidaan vähentää laboratorioiden työtä.
+
+Kotitesti on myös kätevä, jos matka laboratorioon pitkä kuten esimerkiksi Pohjois-Suomessa.
+
+## Sademetsät
+
+![Sademetsän puita ja muuta kasvillisuutta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9548705)
+
+Avaa kuvien katselu
+
+Amazonin sademetsää Brasiliassa. Kuva: Ralf Hirschberger / EPA
+
+Viime vuonna hävitettiin suuri määrä trooppisia sademetsiä. Niitä hävitettiin 11,1 miljoonaa hehtaaria eli 111 000 neliökilometriä.
+
+Määrää voi verrata siten, että metsää hävitetään jalkapallokentän kokoinen alue joka 6. sekunti.
+
+Suurin osa tuhosta tapahtui Brasiliassa, missä luonnonmetsiä hakattiin 15 000 neliökilometriä.
+
+## Sammakot
+
+![Rupisammakko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6680939)
+
+Avaa kuvien katselu
+
+Rupisammakko. Kuva: Kalevi Keskinarkaus
+
+Nyt on sammakoiden kutuaika.
+
+Sammakot viihtyvät varsinkin pienissä lammikoissa, joissa ei ole kaloja. Biologi Antti Koli kertoo, että ääni on paras tapa tunnistaa eri sammakkolajit.
+
+Suomessa elää luonnonvaraisena 3 sammakkolajia: sammakko eli ruskosammakko, viitasammakko ja rupikonna eli rupisammakko.
+
+Ruskosammakon ääni on matala kurnutus. Rupikonnakin kurnuttaa, mutta sen ääni on lyhyempi ja terävämpi.
+
+Viitasammakon ääni on eräänlaista pulputusta.
+
+## Vapun sää
+
+![Vappupalloja Tampereen Tammelantorilla.](https://img.img-cdn.yle.fi/crop_extract,w_3024,h_1701,x_0,y_1167/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-800628608bb013ad601/1619767396)
+
+Avaa kuvien katselu
+
+Vappuna sää ei ole kovin keväinen eikä lämmin. Kuva: Maria Salovaara / Yle
+
+Vapun sää viikonloppuna on kolea, kertoo Ilmatieteen laitos. Suomeen ennustetaan lumi- ja vesisateita, jotka voivat jatkua loppuviikon ajan.
+
+Päivän ylin lämpötila on viiden asteen tienoilla. Loppuviikolla lämpötila ei nouse 10 asteen yläpuolelle.

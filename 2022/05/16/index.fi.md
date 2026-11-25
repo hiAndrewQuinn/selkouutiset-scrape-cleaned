@@ -1,0 +1,77 @@
+# Maanantai 16.5.2022 (radio)
+
+Nato-keskustelu. Koronaa Pohjois-Koreassa. Ukrainan viisuvoitto. Hanami-juhla. Sää.
+
+## Nato-keskustelu
+
+![Eduskunnan täysistunnossa käytiin 16. toukokuuta lähetekeskustelu.](https://img.img-cdn.yle.fi/crop_extract,w_5236,h_2945,x_0,y_545/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9555296282107725eac/1652781044)
+
+Avaa kuvien katselu
+
+Eduskunnassa keskustellaan Natosta. Kuva: Silja Viitala / Yle
+
+Suomen parlamentissa eli eduskunnassa keskustellaan puolustusliitto Natosta. Keskustelun jälkeen Suomi on valmis hakemaan Naton jäsenyyttä.
+
+Myös Suomen naapurimaa Ruotsi hakee jäsenyyttä Natossa. Suomi ja Ruotsi jättävät jäsenyyshakemukset yhtä aikaa. Se tapahtuu lähipäivinä.
+
+Suomi ja Ruotsi haluavat puolustusliitto Natoon, koska Venäjä on hyökännyt Ukrainaan. Nato-jäsenyys on Suomen ja Ruotsin johtajien mielestä paras tapa huolehtia turvallisuudesta.
+
+Puolustusliitto Natossa on nykyään 30 jäsenmaata. Ne auttavat toisiaan, jos johonkin jäsenmaahan hyökätään.
+
+## Koronaa Pohjois-Koreassa
+
+![Kuvassa etualalla massiivinen Pohjois-Korean lippu. Taustalla paraatiin osallistuneita ihmisiä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12447268)
+
+Avaa kuvien katselu
+
+Korona on voinut levitä myös paraateissa. Kuva: EPA / KCNA
+
+Korona leviää Pohjois-Koreassa, Aasiassa. Yli miljoona pohjoiskorealaista on jo sairastunut koronaan ja noin 50 ihmistä on kuollut koronan takia.
+
+Pohjois-Korean asukkaat eivät ole saaneet koronarokotuksia. Maailman terveysjärjestö, Kiina ja Venäjä ovat tarjonneet Pohjois-Korealle koronarokotteita, mutta Pohjois-Korea ei halua ottaa niitä vastaan.
+
+Pohjois-Korea on yrittänyt estää koronaa niin, että se on sulkenut maan rajat kokonaan.
+
+## Ukrainan viisuvoitto
+
+![Personer som står på en scen med ukrainska flaggor i händerna.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_410/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-95521462803ae605edf/1652570959)
+
+Avaa kuvien katselu
+
+Ukrainan Kalush Orchestra. Kuva: Marco Bertorello / AFP / Lehtikuva
+
+Euroviisujen laulukilpailut kiinnostivat suomalaisia myös tänä vuonna. Lauantain finaali eli loppukilpailu sai yli 2 miljoonaa tv-katsojaa.
+
+Euroviisujen voitto meni Ukrainalle. Ukraina sai ennätysmäärän ääniä tv-katsojilta ympäri Eurooppaa.
+
+Ukrainan edustaja Kalush Orchestra kiitti katsojia ja sanoi, että voitto on tärkeä ukrainalaisille keskellä sotaa.
+
+Bändi on varma, että Euroviisut voidaan järjestää ensi vuonna uudessa ja onnellisessa Ukrainassa.
+
+## Hanami-juhla
+
+![Ihmisiä ihastelemassa kirsikankukkia Roihuvuoren Kirsikkapuistossa.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_232/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9553316281049884783/1652622622)
+
+Avaa kuvien katselu
+
+Roihuvuoren Kirsikkapuisto. Kuva: Ilkka Loikkanen / Yle
+
+Kirsikkapuut kukkivat jälleen Helsingin Roihuvuoressa.
+
+Roihuvuoressa on Kirsikkapuisto ja japanilaistyylinen puutarha. Siellä on yhteensä noin 315 kirsikkapuuta.
+
+Kirsikkapuistossa on vietetty hanami-juhlaa aina keväällä vuodesta 2008 alkaen. Hanami on japania, ja se tarkoittaa kukkien katselemista.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12448339)
+
+Avaa kuvien katselu
+
+Tiistai on kolea päivä koko maassa. Lämpötila on alle 10 astetta koko maassa.
+
+Pilvisyys on enimmäkseen runsasta, aurinkoisinta on Perämeren rannikolla.
+
+Maan etelä- ja keskiosassa tulee paikoin sadekuuroja ja Lappiin saapuu luoteesta lumisateita.
+
+Keskiviikko on aurinkoinen ja lämmin päivä. Lämpötila on Etelä- ja Keski-Suomessa noin 15 astetta.

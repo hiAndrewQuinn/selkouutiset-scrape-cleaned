@@ -1,0 +1,89 @@
+# Lauantai 13.2.2021 (radio)
+
+Isis on vielä uhka Euroopassa, arvioi suojelupoliisi. Suomesta on löydetty yhteensä yli 50 000 koronatartuntaa. Maailmalla puhutaan korona-ahdistuksesta. Vesiputkien sulattaminen on ammattilaisten työtä. Lauantaina on vietetty Maailman radiopäivää. Sunnuntaina on aurinkoista.
+
+## Isis Euroopassa
+
+![Suojelupoliisin päällikkö Antti Pelttari.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_183/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7737676027873baae2b/1613203626)
+
+Avaa kuvien katselu
+
+Suojelupoliisin päällikkö Antti Pelttari. Kuva: Benjamin Suomela / Yle
+
+Terroristijärjestö Isis on vielä vaara Euroopalle. Näin arvioi Suomen suojelupoliisi.
+
+Suojelupoliisin päällikkö Antti Pelttari sanoi Ylen haastattelussa, että Isisin kannattajia on myös Suomessa.
+
+Tanskassa poliisi pidätti perjantaina yli 10 ihmistä. Poliisi epäilee, että he suunnittelivat terrori-iskua.
+
+Tanskan poliisi ei vielä tiedä, onko suunnitelman takana Isis. Voi myös olla, että pidätetyt ovat saaneet idean netistä.
+
+## Suomen koronatartunnat
+
+![Suojapukineissa oleva henkilö tekee koronatestiä autossa istuvalle henkilölle. ](https://img.img-cdn.yle.fi/crop_extract,w_4284,h_2410,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7677566013e2f90fabf/1614592430)
+
+Avaa kuvien katselu
+
+Koronatesteissä löydetään lisää koronatartuntoja. Kuva: Kalle Niskala / Yle
+
+Suomesta on löydetty yhteensä yli 50 000 koronatartuntaa. Koranatartuntojen määrä meni yli 50 000:n lauantaina.
+
+Uusia koronatartuntoja lauantaina oli 435. Suurin osa uusista koronatartunnoista on Helsingin ja Uudenmaan alueella.
+
+## Korona-ahdistus
+
+![Vanhus kävelee ylös rappusia Shibuyassa, Tokiossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11788809)
+
+Avaa kuvien katselu
+
+Korona-aika on lisännyt japanilaisten yksinäisyyttä. Kuva: Yoshiyoshi Hirokawa / Getty Images
+
+Maailmalla puhutaan korona-ahdistuksesta. Ihmiset voivat huonosti, koska he ovat paljon yksin koronakriisin takia.
+
+Esimerkiksi Japanissa on tehty paljon itsemurhia. Viime vuonna melkein 21 000 japanilaista tappoi itsensä. Luku on selvästi suurempi kuin ennen koronaa.
+
+Nyt Japanin hallituksessa on uusi ministeri, jonka tehtävä on parantaa tilannetta. Ministerin pitää vähentää ongelmia, joiden syy on yksinäisyys.
+
+## Vesiputkien sulattaminen
+
+![Hiustenkuivaajalla puhalletaan vesiputkia. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7733919)
+
+Avaa kuvien katselu
+
+Jos vesiputket jäätyvät, niitä ei kannata sulattaa itse. Kuva: Tarja Nyyssönen / Yle
+
+Talven kovat pakkaset ovat voineet jäädyttää vesiputkia esimerkiksi omakotitaloissa.
+
+Pelastusalan keskusjärjestö muistuttaa, että vesiputkien sulattaminen on ammattilaisten työtä.
+
+Vesiputket voivat mennä rikki, jos asukkaat sulattavat niitä itse esimerkiksi kuumailmapuhaltimella. Sillon myös tulipalon vaara on iso.
+
+## Maailman radiopäivä
+
+![Toimittajat Samuli Aaltonen ja Elina Rantalainen Lahden radiostudiossa.](https://img.img-cdn.yle.fi/crop_extract,w_6120,h_3443,x_0,y_57/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7736116026828792c0f/1613136691)
+
+Avaa kuvien katselu
+
+Kuva: Juha-Petri Koponen / Yle
+
+Lauantaina on vietetty Maailman radiopäivää. Maailman radiopäivää vietetään helmikuun 13. päivä.
+
+Maailman radiopäivä on UNESCO-järjestön idea. UNESCO on osa YK:ta eli Yhdistyneitä kansakuntia.
+
+UNESCO haluaa, että ihmiset huomaavat, kuinka tärkeä radio on. Radio voi välittää tietoa vapaasti, vaikka yli maiden rajojen.
+
+Radio on vanha tiedotusväline. Radiolla on ikää jo yli 110 vuotta.
+
+## Viikonvaihteen sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11789202)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sunnuntai on kaunis talvipäivä. Suuressa osassa maata on aurinkoista.
+
+Pakkasta on sunnuntaina 5 ja 15 asteen välillä.
+
+Maanantaina sää lauhtuu Lapissa ja Länsi-Suomessa eli pakkanen heikkenee. Lapissa sataa myös lunta.

@@ -1,0 +1,43 @@
+# Tiistai 14.3.2017 (radio)
+
+Korkein oikeus käsittelee kunniamurhan suunnittelua. EU-tuomioistuin päätti, että työnantaja saa kieltää uskonnolliset symbolit työpaikalla. Britannian parlamentti on antanut luvan ilmoittaa EU-erosta. Sairaaloihin halutaan lisää kulttuuria. Adoptiojärjestöt haluavat näyttää, että adoptioperheissä eletään normaalia elämää.
+
+## Korkein oikeus
+
+Korkeimmassa oikeudessa käsitellään tapausta, jossa irakilaista miestä syytetään kunniamurhan suunnittelusta. Tämä on ensimmäinen kerta, kun kunniamurhan suunnittelua käsitellään Suomessa oikeudessa.
+
+Syyttäjä vaatii, että Helsingissä asuva irakilainen nuori mies tuomitaan yli kahdeksi vuodeksi vankilaan. Syyttäjä sanoo, että mies suunnitteli siskonsa surmaa, koska tämä ei noudattanut muslimiperheen uskontoa ja kulttuuria.
+
+Mies sanoo, että hän ei ole suunnitellut surmaa. Myös sisko sanoo, että mies ei aikonut surmata häntä.
+
+## EU:n tuomioistuin
+
+Työnantajilla on oikeus kieltää työntekijöiden näkyvät uskonnolliset symbolit työpaikoilla. Asiasta päätti tänään tiistaina EU:n tuomioistuin.
+
+Belgialainen ja ranskalainen nainen olivat kannelleet tuomioistuimeen. Heidät oli erotettu työpaikoistaan, koska he olivat kieltäytyneet riisumasta päähuivejaan työpaikalla.
+
+Tuomioistuimen päätös tarkoittaa sitä, että yritys  voi kieltää poliittiset ja uskonnolliset symbolit, jos se antaa asiasta yleisen ohjeen. Jos kielto koskisi vain yhtä ryhmää, kyse olisi syrjinnästä.
+
+## Britannia
+
+Britannian parlamentti on hyväksynyt lain, joka tekee mahdolliseksi Britannian eroamisen EU:sta.
+
+Britannian hallituksen uskotaan antavan tämän kuun loppuun mennessä EU:lle ilmoituksen siitä, että se eroaa EU:sta.
+
+Ilmoituksen jälkeen Briannia ja EU aloittavat eroon liittyvät neuvottelut, jotka kestävät kaksi vuotta.
+
+## Kulttuuri
+
+Opetus- ja kulttuuriministeriö haluaa lisää taidetta ja kulttuuria sairaaloihin ja hoitolaitoksiin.
+
+Sairaaloihin halutaan lisää esimerkiksi teatteri- ja musiikkiesityksiä, taideteoksia sekä sairaalaklovneja, jotka vierailevat sairaiden lasten luona Sairaaloiden lisäksi kulttuuria tarjottaisiin esimerkiksi lastensuojeluun liittyvissä laitoksissa ja vanhusten hoitolaitoksissa.
+
+Opetus- ja kulttuuriministeriö haluaa, että sairaalat ja laitokset maksavat itse kulttuuripalveluista.
+
+## Adoptio
+
+Suomessa on käynnissä adoptiokampanja.
+
+Adoptiojärjestöjen kampanjan avulla halutaan näyttää, että adoptioperheissä eletään tavallista suomalaista perhe-elämää. Adoptiojärjestöjen mukaan tiedotusvälineissä korostuvat liikaa adoption ongelmat.
+
+Suomeen on adoptoitu noin 30 vuoden aikana noin 5000 lasta ulkomailta. Suomalaisia lapsia adoptoidaan joka vuosi noin 50.

@@ -1,0 +1,77 @@
+# Maanantai 27.5.2019 (radio)
+
+Suomalaiset valitsivat edustajat EU-parlamenttiin. Oikeistopopulistit saivat lisää paikkoja EU-parlamenttiin. Suomalaiset juhlivat jääkiekon maailmanmestaruutta. Kaikki eurosetelit on nyt uudistettu.
+
+## EU-parlamenttivaalit
+
+![Kannatus eurovaaleissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10803045)
+
+Avaa kuvien katselu
+
+Kuva: Hilppa Hyrkäs, Seppo Suvela / Yle
+
+Suomalaiset ovat valinneet uudet edustajansa EU-parlamenttiin.
+
+Vaalien suurin puolue on Kokoomus. Kokoomus saa kolme paikkaa Euroopan parlamenttiin. Määrä on sama kuin aikaisemmin.
+
+Vihreät on ainoa puolue, joka saa parlamenttiin lisää paikkoja. Vihreillä oli aikaisemmin yksi paikka. Nyt puolueella on 2 paikkaa.
+
+Keskusta menetti 1 paikan ja sille jää 2 paikkaa.
+
+SDP ja perussuomalaiset saivat parlamenttiin2 paikkaa. RKP ja Vasemmistoliitto saivat parlamenttiin 1 paikan.
+
+Äänestysprosentti Suomessa oli noin 43.
+
+## Pienille ryhmille lisää valtaa
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10804623)
+
+Avaa kuvien katselu
+
+Kuva: Ilkka Kemppinen / Yle
+
+Euroopan parlamentissa edustajat kuuluvat erilaisiin ryhmiin.
+
+Euroopan parlamentin suurimmat ryhmät ovat keskustaa ja oikeistoa edustava EPP sekä Sosiaalidemokraatit. Aiemmin näillä kahdella ryhmällä oli yhteensä yli puolet parlamentin paikoista. Nyt määrä on alle puolet.
+
+Parlamentin pienet ja keskisuuret ryhmät kasvavat, ja ne saavat lisää valtaa.
+
+Eniten parlamenttiin lisää paikkoja saavat vihreät puolueet. Kansallismielisiä populisteja valittiin parlamenttiin vähän enemmän kuin aikaisemmin.
+
+Euroopan parlamentissa on yhteensä 751 edustajaa.
+
+## Suomi on jääkiekon maailmanmestari
+
+![TOP Lankinen ja kumppanit](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10803164)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+Suomalaiset iloitsevat siitä, että Suomen joukkue voitti jääkiekon maailmanmestaruuden.
+
+Viime yönä Helsingin kauppatorilla oli 10 000 ihmistä juhlimassa Suomen joukkueen voittoa.
+
+Joukkue palasi Suomeen iltapäivällä ja juhlinta jatkuu tänään.
+
+Suomi voitti eilen illalla finaalissa Kanadan maalein 3 - 1.
+
+Suomen jääkiekkomaajoukkue on voittanut maailmanmestaruuden nyt yhteensä 3 kertaa.
+
+## Kaikki eurosetelit on uudistettu
+
+![100 ja 200 euron setelit.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10804125)
+
+Avaa kuvien katselu
+
+Kuva: Maik Guedes / Euroopan keskuspankki / Lehtikuva
+
+Uudistuneet 100 ja 200 euron setelit otetaan käyttöön huomenna kaikissa euromaissa.
+
+Nämä setelit ovat viimeiset uudet eurosetelit. Uusista euroseteleistä on jo aiemmin otettu käyttöön 5, 10, 20 ja 50 euron setelit.
+
+Uudessa eurosetelien sarjassa ei ole 500 euron seteliä.
+
+Uusissa euroseteleissä on paljon huipputeknologiaa. Siitä syystä ne ovat vaikeampia väärentää kuin vanhat setelit.
+
+Vanhoja euroseteleitä saa vielä käyttää.

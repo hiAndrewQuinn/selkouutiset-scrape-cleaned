@@ -1,0 +1,69 @@
+# Sunnuntai 9.10.2022 (radio)
+
+Kertšinsalmen silta. Vastaanottokeskukset. Veroprosentti. Lintujen syysmuutto. Sääennuste.
+
+## Kertšinsalmen silta
+
+![Osittain romahtanut silta. Taustalla sillalla oleva tulipalo.](https://img.img-cdn.yle.fi/crop_extract,w_1500,h_843,x_0,y_400/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-101837563413e4e479f5/1665220605)
+
+Avaa kuvien katselu
+
+Osa Kertšinsalmen sillasta romahti räjähdyksessä. Kuva: Ukrainan turvallisuuspalvelu
+
+Venäjä on määrännyt sukeltajat tutkimaan Kertšinsalmen sillan tuhoja. Sukeltajien pitää selvittää, miten paljon silta vaurioitui.
+
+Kertšinsalmen sillalla tapahtui lauantaina aamulla iso räjähdys, joka rikkoi siltaa. Osa sillasta romahti. Kertšinsalmen sillalla rikkoutuminen on iso tappio Venäjälle.
+
+Britannian sotilasasiantuntijat sanovat, että räjähdys vaikeuttaa Venäjän armeijan huoltoa Krimillä ja Etelä-Ukrainassa. Silta on ollut Venäjälle tärkeä väylä viedä Krimille raskaita aseita.
+
+## Vastaanottokeskukset
+
+![Maahanmuuttovirasto Helsingissä. 3.2.2021.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_296/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-769765601aa93c154d6/1643195926)
+
+Avaa kuvien katselu
+
+Maahanmuuttovirasto on puuttunut ongelmiin vastaanottokeskuksissa. Kuva: Jorge Gonzalez / Yle
+
+Muutamissa ukrainalaisten vastaanottokeskuksissa Suomessa on havaittu ongelmia. Esimerkiksi vastaanottorahaa ei ole maksettu asukkaille ajoissa. Asukkaille ei ole aina annettu ruokaa tai ruoka on ollut asukkaiden mielestä huonoa.
+
+Maahanmuuttovirasto sanoo, että ongelmien syy on se, että monet vastaanottokeskukset ovat uusia. Niissä ei ole osattu vielä hoitaa kaikkia asioita hyvin.
+
+Vastaanottokeskuksien määrä on yli nelinkertaistunut Suomessa sen jälkeen, kun Venäjä hyökkäsi Ukrainaan. Maahanmuuttovirasto on puuttunut ongelmiin, joita uusissa vastaanottokeskuksissa on ollut.
+
+## Veroprosentti
+
+![Henkilö tutkii verohallinnon nettisivuja.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_19/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-780060603e34094ea64/1705402603)
+
+Avaa kuvien katselu
+
+Verokokortin tietoja voi päivittää Verohallinnon verkkopalvelussa. Kuva: Henrietta Hassinen / Yle
+
+Monilla suomalaisilla on verokortissa ehkä liian pieni veroprosentti. Verohallinto arvioi, että noin miljoonalla (1 000 000) suomalaisella on liian pieni veroprosentti.
+
+Veroprosentti voi olla liian pieni, jos tulot ovat nousseet viime vuodesta. Esimerkiksi kansaneläkkeisiin, työmarkkinatukeen ja toimeentulotukeen on tullut korotuksia tänä vuonna. Myös monien ihmisten työllisyys on parantunut koronatilanteen jälkeen tänä vuonna.
+
+Omaa veroprosenttia voi päivittää netissä Verohallinnon Oma-vero -palvelussa.
+
+## Lintujen syysmuutto
+
+![Kurkia Vaasan Söderfjärdenillä. Kurjet kerääntyvät syksyisin tänne ennen kuin lentävät etelään.](https://img.img-cdn.yle.fi/crop_extract,w_6817,h_3836,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10132516332d9d7913a5/1664277875)
+
+Avaa kuvien katselu
+
+Kurkia Vaasassan Söderfjärdenillä. Kurjet kerääntyvät aina syksyllä tänne ennen kuin lentävät etelään. Kuva: Anna Wikman / Yle
+
+Lintujen syysmuutto on sujunut normaalisti.
+
+Lintuharrastajien järjestö Birdlife Suomi kertoo, että kurjilla oli ennätysmuutto 2 viikkoa sitten. Silloin Uudenmaan yli lensi yli 50 000 kurkea yhden päivän aikana.
+
+Lintujen syysmuutto jatkuu edelleen. Suurin osa arktisista valkoposkihanhista on jo tullut Suomeen tai jatkanut matkaa Suomen yli. Metsähanhet odottavat vielä Suomen länsirannikolla. Myös esimerkiksi räkättirastaita, järripeippoja, sepelkyyhkyjä ja peippoja on vielä paljon muuttomatkalla.
+
+## Sää
+
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12654231)
+
+Avaa kuvien katselu
+
+Aurinko paistaa monin paikoin. Eniten aurinko paistaa lounaassa. 
+
+Maanantaina sää on enimmäkseen poutainen eli ei sada. Aurinkoisinta on maan lounaisosassa. Pohjoisessa voi sataa vähän vettä. Lämpötila on 10 ja 14 asteen välillä, pohjoisessa 5 ja 10 asteen välillä.

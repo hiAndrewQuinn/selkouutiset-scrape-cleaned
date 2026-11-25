@@ -1,0 +1,63 @@
+# Perjantai 9.6.2017 (radio)
+
+Britanniassa konservatiivit ovat menettäneet enemmistön parlamentin alahuoneessa. Vihreät ja perussuomalaiset valitsevat uudet puheenjohtajat viikonloppuna. Terveydenhoitoon on joskus vaikea päästä. Mauno Koiviston muistoksi on julkaistu surumerkki.
+
+## Britanniassa konservatiivit epäonnistuivat vaaleissa
+
+![Työväenpuolueen kannattajat tuulettivat Paul Sweeneyn pääsyä parlamenttiin Glasgowssa, Skotlannissa torstaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9659287)
+
+Avaa kuvien katselu
+
+Britanniassa työväen puolueenkannattajat iloitsevat vaalien tuloksesta. Kuva: Robert Perry / EPA
+
+Britanniassa konservatiivit ovat menettäneet enemmistön parlamentin alahuoneessa.
+
+Konservatiivit ovat yhä suurin puolue, mutta se ei pysty enää muodostamaan hallitusta yksin.
+
+Työväenpuolue sai lisää paikkoja, mutta eroa konservatiiveihin on yli 50 paikkaa. Työväenpuolueen puheenjohtaja Jeremy Corbin vaati vaalituloksen jälkeen, että konservatiivien puheenjohtaja, pääministeri Theresa May eroaa.
+
+## Vihreät ja perussuomalaiset äänestävät puheenjohtajasta
+
+![vihreiden ja perussuomalaisten kannattajat -grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9659115)
+
+Avaa kuvien katselu
+
+Vihreiden ja perussuomalaisten kannattajissa on eroja. Kuva: Yle Uutisgrafiikka
+
+Viikonloppuna 2 suomalaisella puolueella on tärkeät vaalit. Vihreät ja perussuomalaiset valitsevat puoluekokouksissa uudet puheenjohtajat.
+
+Ennusteet kertovat, että perussuomalaisten pääehdokkaat ovat kansanedustaja, eurooppa-, kulttuuri- ja urheiluministeri Sampo Terho ja europarlamentin jäsen Jussi Halla-aho. Terho haluaa perussuomalaisista kansallismielisen yleispuolueen. Halla-aho haluaa keskittyä maahanmuuttoasioihin. Muut ehdokkaat ovat kansanedustajat Leena Meri ja Veera Ruoho sekä Riku Nevanpää.
+
+Vihreiden puheenjohtajaehdokkaat ovat varapuheenjohtaja Maria Ohisalo, tutkija Mika Flöjt sekä kansanedustajat Touko Aalto, Emma Kari, Krista Mikkonen ja Olli-Poika Parviainen. Uuden puheenjohtajan haaste on säilyttää puolueen suosio. Vihreät menestyivät hyvin kuntavaaleissa ja ovat saaneet kannatusmittauksessa puolueen historian parhaan tuloksen. Vihreät haluaa myös pääministeripuolueeksi.
+
+**Korjaus 11.6. klo 21.00: Vihreät valitsee puheenjohtajan lauantaina 17.6.**
+
+## Terveydenhoitoon on joskus vaikea päästä
+
+![Sisäkuva terveyskeskussairaalan käytävältä Kokkolasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7977560)
+
+Avaa kuvien katselu
+
+Pääsy terveydenhoitoon ei aina ole helppoa, kertoo kysely. Kuva: Kalle Niskala / Yle
+
+Yli puolet terveydenhuollon potilaista sanoo, että vastaanotolle pääseminen on joskus vaikeaa.
+
+Terveyden ja hyvinvoinnin laitoksen kyselyssä potilaat kuitenkin sanovat, että heitä kohdellaan hyvin. 75 prosenttia vastaajasta sanoi, että yksityisyyttä kunnioitetaan. Kielteisiä kokemuksia oli eniten niillä, joilla on talousvaikeuksia tai jotka käyttävät palveluja paljon.
+
+Kyselyn teki Tilastokeskus.
+
+## Mauno Koiviston surumerkki julkaistiin
+
+![Posti julkaisi surumerkin presidentti Mauno Koiviston kunniaksi. Postimerkin on suunnitellut Timo Berry.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9659298)
+
+Avaa kuvien katselu
+
+Presidentti Koiviston surumerkkiä saa Postista 10 postimerkin arkeisssa. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Posti on julkaissut surumerkin presidentti Mauno Koiviston muistoksi.
+
+Sinisävyisessä postimerkissä on Koiviston kuva ja Suomen Valkoisen Ruusun ritarikunnan suurristi. Merkissä on myös Koiviston nimikirjoitus sekä synnyinvuosi ja kuolinvuosi. Merkin suunnitteli Timo Berry. Merkin painosmäärä on miljoona kappaletta.
+
+Presidentti Mauno Koivisto kuoli 12. toukokuuta Helsingissä 93-vuotiaana. Koivisto oli Suomen tasavallan presidenttinä 12 vuoden ajan vuodesta 1982 vuoteen 1994.
+
+Edellisen kerran Suomessa on julkaistu surumerkki presidentti Urho Kekkosen muistoksi vuonna 1986.

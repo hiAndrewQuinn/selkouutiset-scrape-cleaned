@@ -1,0 +1,73 @@
+# Torstai 18.5.2017 (radio)
+
+Uusien ylioppilaiden nimet ovat selvillä. Pelaa ja opi hiukkasfysiikkaa! Islaminopettajista on pulaa. Cityketuista on iloa ja hyötyä. Sää lämpenee vihdoin.
+
+## Uudet ylioppilaat selvillä
+
+![Kuvassa ylioppilaslakki ruusujen keskellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7998929)
+
+Avaa kuvien katselu
+
+Ylioppilas saa valkolakin. Kuva: Raila Paavola / Yle
+
+Kevään ylioppilaskokeiden tulokset on kerrottu. Valkoisen lakin saa tänä keväänä noin 26 000 nuorta, jotka ovat suorittaneet lukion.
+
+Parhaat ylioppilaat saivat 8 laudaturia, joka on paras arvosana. 6 oppilasta 5:ssä eri koulussa sai 8 laudaturia. Heistä kaksi kävi koulua Lohjalla ja muut Espoossa, Porissa, Helsingissä ja Kotkassa.
+
+Kevään kaikkien ylioppilaiden nimet löytyvät Ylen nettisivuilta.
+
+## Peli opettaa hiukkasfysiikkaa
+
+![Lightneer brändijohtaja Peter Westerbacka toimitusjohtaja Lauri Järvilehto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9615713)
+
+Avaa kuvien katselu
+
+Peter Vesterbackan ja Lauri Järvilehdon firma teki Big Bang Legends -pelin.  Kuva: Pekka Tynell / Yle
+
+Suomalainen pelifirma haluaa opettaa miljoonille ihmisille hiukkasfysiikkaa kännykkäpelin avulla.
+
+Peli on tehty yhdessä huipputiedemiesten kanssa. Pelin idea on, että esimerkiksi atomit, kvarkit, happi ja hiili tulevat tutuiksi samalla kuin ihminen pitää hauskaa eli pelaa.
+
+Professori Marcus du Sautoy sanoo, että pelit ovat opiskelun tulevaisuutta.
+
+## Päteviä islaminopettajia tarvitaan lisää
+
+![Suaad Onniselkä, islaminopettaja, Vesalan peruskoulu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9605670)
+
+Avaa kuvien katselu
+
+Opettaja Suaad Onniselkä.  Kuva: Suaad Onniselkä
+
+Kouluissa on pula islaminopettajista.
+
+Suomessa on vain noin 20 pätevää islaminopettajaa, jotka ovat opiskelleet opettajiksi suomalaisessa yliopistossa. Islamiin uskovia koululaisia on 8000 ja määrä kasvaa nopeasti.
+
+Opettaja Suaad Onniselkä sanoo, että koulussa annetaan tietoa islamista. Siellä ei tehdä "hyviä muslimeja". Opettaja ei esimerkiksi sano oppilaille, mikä islamin suuntaus on oikea.
+
+Suurin osa Suomen koulujen islaminopettajista ei ole päteviä. Monet ovat maahanmuuttajia, jotka eivät esimerkiksi tunne Suomen koulujen opetussuunnitelmaa.
+
+## Cityketusta ei ole isoa haittaa
+
+![Ketut leikkivät](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8084188)
+
+Avaa kuvien katselu
+
+Citykettuja Ylen pihalla Helsingissä. Kuva: Henrietta Hassinen / Yle
+
+Helsingissä ja sen lähikaupungeissa asuu nykyään paljon kettuja. "Citykettuja" asuu myös ihmisten pihoissa, esimerkiksi terassin alla. Monet ihmiset sanovat, että on mukava katsoa, mitä ketut tekevät pihalla.
+
+Asiantuntijat sanovat, että ketuista ei ole kaupungissa isoa haittaa. Niiden pesä ehkä haisee pahalle. Ketun pesään jää esimerkiksi oravan tai sorsan jäänteitä, jotka houkuttelevat rottia. 
+
+Ketuista on hyötyä, kun ne syövät kaneja, joita on monessa paikassa liikaa.
+
+## Vihdoin lämpöä
+
+![Narsissit kukkivat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9608053)
+
+Avaa kuvien katselu
+
+Kevät saa vauhtia viikonloppuna. Kuva: Derrick Frilund / Yle
+
+Sää lämpenee vihdoinkin. Etelä-Suomessa on perjantaina monessa paikassa yli 20 astetta lämmintä ja aurinko paistaa. Perjantaipäivän aikana sade loppuu myös pohjoisessa.
+
+Viikonloppuna aurinko paistaa melkein koko maassa ja varsinkin etelässä on yhtä lämmintä kuin kesällä.

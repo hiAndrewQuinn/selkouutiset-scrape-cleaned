@@ -1,0 +1,75 @@
+# Torstai 30.5.2019 (radio)
+
+Jokivene kaatui Tonava-joella. Vankeja kuntoutetaan elämään ilman rikoksia. Luokanopettajaksi hakee entistä vähemmän ihmisiä. Ensimmäiset mansikat ovat kypsyneet. Helatorstai on kristinuskon tärkeä päivä.
+
+## Uudenlainen kuntoutusohjelma vangeille
+
+![Vuonna 2006 lakiin tuli valvottu koevapaus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10809029)
+
+Avaa kuvien katselu
+
+Ensimmäiset 15 minuuttia ovat merkittävät vangin vapautuessa.  Kuva: Antti Haanpää / Yle
+
+Suomen vankiloissa on otettu käyttöön uusi kuntoutusohjelma vangeille. Ohjelmassa vangeille opetetaan, miten vankila-ajan jälkeen elämää voi elää niin, että ei tee rikoksia.
+
+Vankeja opetetaan esimerkiksi elämään ilman päihteitä eli ilman alkoholia ja huumeita. Heille opetetaan, miten hallita ja hillitä suuttumusta. Heidän kanssaan pohditaan elämän arvoja ja ihmissuhteita.
+
+Viranomaiset toivovat, että kun vangit oppivat parempaa elämänhallintaa, he eivät enää tee uusia rikoksia.
+
+Rikokset maksavat yhteiskunnalle noin miljardi euroa vuodessa.
+
+## Unkarissa jokivene kaatui
+
+![Palomiehet valmistautuvat etsimään uhreja kumiveneellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10809202)
+
+Avaa kuvien katselu
+
+Palomiehet etsivät kadonneita Tonava-joesta. Kuva: Zsolt Szigetvary / EPA
+
+Unkarissa on sattunut vakava veneonnettomuus. Jokivene kaatui keskiviikkoiltana Tonava-joella Budapestissa.
+
+Vedestä saatiin pelastettua vain 7 ihmistä. Kuolleita voi olla melkein 30. Viranomaiset sanovat, että joesta tuskin löydetään enää ketään elossa.
+
+Onnettomuuden uhrit ovat eteläkorealaisia turisteja.
+
+## Opettajan ammatti ei houkuta
+
+![Luokkahuone Konalan alakoulussa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10191699)
+
+Avaa kuvien katselu
+
+Luokanopettajan työ ei kiinnosta enää yhtä paljon kuin ennen.  Kuva: Elise Tykkyläinen / Yle
+
+Kiinnostus luokanopettajan ammattiin on vähentynyt tosi paljon.
+
+Helsingin Sanomat kertoo, että 6 vuotta sitten vuonna 2013 luokanopettajan koulutukseen haki noin 8300 ihmistä. Tänä vuonna hakijoita oli noin 4700 eli melkein puolet vähemmän.
+
+Asiantuntijat sanovat Helsingin Sanomissa, että kiinnostus opettajan ammattiin on vähentynyt ehkä sen takia, että koulumaailmasta kerrotaan nykyään vain ikäviä ja huonoja uutisia.
+
+## Ensimmäiset mansikat kypsyivät
+
+![Henkilökuva](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_188/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5670455ceeb0434235c/1559146692)
+
+Avaa kuvien katselu
+
+Emmi Pekkalan mansikkatilalla aloitettiin mansikanpoiminta helatorstaina. Kuva: Mikko Koski / Yle
+
+Ensimmäiset kotimaiset mansikat ovat kypsyneet. Kesän ensimmäiset mansikat ovat kypsyneet kasvihuoneissa ja kasvutunneleissa.
+
+Esimerkiksi Pekkalan tilalla Kärkölässä mansikan poiminta alkoi tänään. Ensimmäiset marjat halutaan saada myyntiin niin, että suomalaiset voivat herkutella tuoreilla mansikoilla lauantaina, kun koulut loppuvat ja monissa kodeissa vietetään esimerkiksi ylioppilasjuhlaa.
+
+Jos lähiviikkojen sää on lämmin, avomaan mansikkaa saadaan myyntiin ehkä kesäkuun puolivälissä.
+
+## Helatorstai on pyhäpäivä
+
+![kirkko kristinusko risti kirkko kynttilä inri Jeesus ristillä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9112329)
+
+Avaa kuvien katselu
+
+Kristityt uskovat, että Jeesus nousi taivaaseen helatorstaina. Kuva: Soila Ojanen / Yle
+
+Tänään on vietetty helatorstaita.
+
+Helatorstai on Suomessa pyhäpäivä. Pyhäpäivänä koulut ja monet työpaikat ovat kiinni ja ihmisillä on vapaapäivä.
+
+Helatorstai on tärkeä päivä kristinuskossa. Se on päivä, jolloin Jeesus nousi taivaaseen. Helatorstaita vietetään aina 40 päivää pääsiäisen jälkeen.

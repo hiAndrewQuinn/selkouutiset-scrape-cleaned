@@ -1,0 +1,69 @@
+# Maanantai 12.9.2022 (radio)
+
+Ruotsin vaalit. Kuningatar Elisabetin hautajaiset. Energiansäästö kunnissa. Rengasratsiat. Sääennuste.
+
+## Ruotsin parlamenttivaalit
+
+![Ruotsin parlamentin rakennus Tukholmassa iltavalaistuksessa.](https://img.img-cdn.yle.fi/crop_extract,w_5616,h_3159,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1005815631b4f2cb5604/1662734264)
+
+Avaa kuvien katselu
+
+Ruotsin parlamenttirakennus Tukholmassa. Kuva: imageBROKER / AOP
+
+Ruotsissa kestää useita päiviä saada parlamenttivaalien tulos. Ruotsissa pidettiin parlamenttivaalit sunnuntaina. Tulos on niin tasainen, että vaalien voittajaa ei vielä tiedetä. Kaikkien äänien laskeminen kestää muutaman päivän.
+
+Kahden (2) kilpailevan blokin välillä oli maanantaina vain yhden (1) paikan ero. Jos tulos jää voimaan, oikeisto voittaa punavihreän vasemmiston yhdellä (1) paikalla.
+
+Tulokset ovat alustavia. Ruotsin parlamenttivaalien äänten laskenta jatkuu vielä.
+
+## Niinistö kuningatar Elisabetin hautajaisiin
+
+![Kuningatar Elisabetin arkku on saapunut St Gilesin katedraaliin. ](https://img.img-cdn.yle.fi/crop_extract,w_4614,h_2598,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1006798631f46c107bf4/1662994541)
+
+Avaa kuvien katselu
+
+Maanantaina kuningatar Elisabetin arkku saatettiin St. Gilesin katedraaliin Edinburghissa. Kuva: James Whatling / MEGA
+
+Presidentti Sauli Niinistö osallistuu kuningatar Elisabetin valtiollisiin hautajaisiin ensi maanantaina Lontoossa. Presidentti Niinistö osallistuu hautajaisiin yhdessä puoliso Jenni Haukion kanssa. Kuningatar Elisabet kuoli viime torstaina.
+
+Britannian uusi hallitsija kuningas Charles III on aloittanut vierailut Yhdistyneen kuningaskunnan eri osissa. Vierailut ovat vanha perinne.
+
+Maanantaina kuningas Charles matkusti Skotlantiin. Hän osallistui Edinburghissa kuningatar Elisabetin muistokulkueeseen. Tiistaina kuningas Charles matkustaa Pohjois-Irlantiin. Perjantaina kuningas Charles vierailee Walesissa.
+
+## Kunnat säästävät energiaa
+
+![Mikkeliin kuuluvan Haukivuoren entiselle kunnantalolle johtavan tien edessä olevia opaskylttejä.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_461/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-963637629764d54ec2b/1654089094)
+
+Avaa kuvien katselu
+
+Kuntien rakennuksia ovat esimerkiksi koulut, kirjastot ja virastot ja monet muut tilat. Kuva: Markku Tuhkanen / Yle
+
+Kunnat säästävät energiaa tänä talvena. Kunnat esimerkiksi sammuttavat katuvaloja ja laskevat rakennusten lämpötiloja. 70 prosenttia kunnista sanoo, että laskee ehkä lämpötilaa kunnan rakennuksissa. Kuntien rakennuksia ovat esimerkiksi koulut ja kirjastot.
+
+Kuntaliitto on kysynyt Suomen kunnilta, miten energiakriisi vaikuttaa kuntien toimintaan. Melkein kaikilla kunnilla on suunnitelma vähentää energian kulutusta.
+
+Energiaa halutaan säästää aiempaa enemmän, koska energian hinta on noussut, ja koska energiasta voi tulla pulaa.
+
+## Rengasratsiat
+
+![Rengasratsia, jossa mitataan auron renkaiden urien syvyyttä.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_653/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1006502631ef48b42f3f/1662973162)
+
+Avaa kuvien katselu
+
+Renkaan urien syvyys mitataan pienellä mittarilla.  Kuva: Ulla Malminen / Yle
+
+Syksy on alkanut ja Suomessa valvotaan taas autojen renkaita. Autonrengasliitto, Liikenneturva ja Poliisi järjestävät tällä viikolla rengasratsioita 5 kaupungissa.
+
+Tarkoitus on muistuttaa autoilijoita, että renkaiden kuntoa pitää seurata. Kuluneilla renkailla ei saa ajaa. Monet autoilijat eivät huomaa, että rengas on kulunut liikaa.
+
+Noin 350 000 autossa on Suomessa huonot renkaat. Tämä on huomattu rengasratsioissa, joita on tehty pitkään.
+
+## Sää
+
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12620508)
+
+Avaa kuvien katselu
+
+Lämpötila on laajoilla alueilla noin 15 astetta. Pohjoisessa on viileämpää.
+
+Tiistaina pilvisyys lisääntyy koko maassa. Lounais-saaristossa ja Länsi-Lapissa sataa illalla. Lämpötila on tiistaina 8 ja 16 asteen välillä.

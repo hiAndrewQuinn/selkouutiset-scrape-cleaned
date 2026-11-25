@@ -1,0 +1,83 @@
+# Tiistai 12.10.2021 (radio)
+
+Koronapassi. Koulujen maskisuositus. Baltian koronatilanne. Vihreiden ministerit. Sää.
+
+## Koronapassi
+
+![Matkailija esittää digitaalisen koronapassin virkailijalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11938884)
+
+Avaa kuvien katselu
+
+Kuva: Ramon van Flymen / EPA
+
+Suunnitelmat koronapassista menevät eduskunnassa eteenpäin.
+
+Koronapassi kertoo, että ihminen on saanut koronarokotukset tai negatiivisen koronatestituloksen tai sairastanut koronan. Koronapassin tiedot ovat netin Omakannassa, jonka osoite on kanta.fi.
+
+Koronapassi on vaihtoehto koronarajoituksille. Esimerkiksi Helsingin seudun yökerhot voivat taas olla auki, jos koronapassi tulee käyttöön.
+
+Koronapassi koskee aikuisia, sen alaikärajaksi tulee todennäköisesti 16 vuotta.
+
+Laki koronapassista yritetään saada voimaan tämän viikon lopussa.
+
+## Koulujen maskisuositus
+
+![Kuvassa on 10-vuotias poika, jolla on kasvoillaan hengityssuojain.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7125215f478c5f2c1e2/1598526836)
+
+Avaa kuvien katselu
+
+Monissa kouluissa maskin käyttö loppuu. Kuva: Silja Viitala / Yle
+
+Koulujen ja oppilaitosten yhteinen maskisuositus loppuu. Alueet ja koulut voivat itse päättää, pitääkö oppilaiden käyttää maskia.
+
+Opetusministeriö sanoo, että koronatartuntoja on tullut kouluissa tosi vähän. Siksi kaikissa kouluissa ei tarvitse enää käyttää maskia.
+
+## Baltian koronatilanne
+
+![Hoitajia kulkee koronapotilaiden luo ovesta Tyksin teho-osastolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11835833)
+
+Avaa kuvien katselu
+
+Hoitajia on aivan liian vähän esimerkiksi Latviassa. Kuva: Minna Rosvall / Yle
+
+Baltian maiden koronatilanne on huono. Yksi syy siihen on se, että koronarokotukset ovat edenneet Baltiassa hitaasti.
+
+Esimerkiksi Latviassa alle 50 prosenttia asukkaista on rokotettu koronaa vastaan.
+
+Latviassa on niin paljon koronapotilaita, että kaikille potilaille ei enää ole tilaa sairaaloissa. Potilaille on tehty lisää paikkoja telttoihin yhteistyössä armeijan kanssa.
+
+Latvian sairaaloilla on isoja ongelmia myös siksi, että hoitoalan työntekijöitä on liian vähän.
+
+## Vihreiden ministerit
+
+![Emma Kari.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_461/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-865522616452e2c2b7e/1633965320)
+
+Avaa kuvien katselu
+
+Emma Karista tulee uusi ministeri Suomen hallitukseen. Kuva: Tiina Jutila / Yle
+
+Vihreät vaihtaa ministereitä. Vihreillä on hallituksessa 3 ministeriä.
+
+Vihreät päätti maanantaina, että uusi sisäministeri on Krista Mikkonen. Tähän asti Mikkonen on ollut ympäristöministeri.
+
+Ympäristöministerin tehtävään tulee Emma Kari.
+
+Vihreät vaihtaa ministereitä puoluejohtaja Maria Ohisalon vanhempainvapaan takia. Ohisalo jää vanhempainvapaalle marraskuussa.
+
+Emma Kari on ministerin tehtävässä Ohisalon sijainen.
+
+Vihreillä on hallituksessa myös ulkoministerin paikka. Ulkoministerin tehtävässä jatkaa Pekka Haavisto.
+
+## Keskiviikon sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12140779)
+
+Avaa kuvien katselu
+
+Sää on keskiviikkona sateista idässä. Lännessä tulee paikoin sadekuuroja.
+
+Pohjoisessa sää on poutaista ja laajalti aurinkoista.
+
+Lämpötila on keskiviikkona 5 ja 9 asteen välillä, Lapissa lämpötila jää alle 5 asteen.
+
+Loppuviikolla Suomeen tulee sateita ja tuuli voimistuu.

@@ -1,0 +1,95 @@
+# Radio Selkouutiset keskiviikko 30.8.2023
+
+Drooni-isku. Drooni-isku Venäjälle. Jevgeni Prigožin haudattiin. Abortin saaminen helpottuu. Kiinnostavat ammatit. Kansallismuseo remonttiin. Sää.
+
+## Drooni-isku Venäjälle
+
+![Savu nousee Pihkovan lentokentältä.](https://img.img-cdn.yle.fi/crop_extract,w_2200,h_1237,x_0,y_299/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116467964ef20501cda1/1693408359)
+
+Avaa kuvien katselu
+
+Pihkovan lentokentältä nousee savua drooni-iskun jälkeen.  Kuva: Pihkovan alueen kuvernöörin toimisto
+
+Venäjälle on tehty drooni-isku. Isku on isoin droonihyökkäys Venäjälle koko Ukrainan sodan aikana.
+
+Isku tehtiin Pihkovan lentokentälle. Se on lähellä Viron rajaa.
+
+Venäjä kertoo, että iskussa tuhoutui tai vaurioitui 4 kuljetuskonetta. Valkovenäläinen uutiskanava Nexta taas kertoo, että iskussa tuhoutui tai vaurioitui yhteensä 7 konetta.
+
+Ukraina ei ole kommentoinut iskuja mitenkään.
+
+## Wagner-johtaja haudattiin
+
+![Korkealta otettu kuva hautausmaasta jolle Prigozin on haudattu. Vartija keskellä.](https://img.img-cdn.yle.fi/crop_extract,w_5359,h_3014,x_0,y_430/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116443564eef1d28db69/1693381198)
+
+Avaa kuvien katselu
+
+Porohovskojen hautausmaalla Pietarissa oli paljon poliiseja ja sotilaita, kun Jevgeni Prigožin haudattiin.  Kuva: Olga Maltseva / AFP
+
+Palkkasotilasyhtiö Wagnerin johtaja Jevgeni Prigožin on haudattu. Hänet haudattiin tiistaina yksityistilaisuudessa Pietarissa.
+
+Prigožin kuoli viime viikolla lentokoneen maahansyöksyssä.
+
+On epäilty, että Venäjän presidentti Vladimir Putin on turman takana, sillä Wagner-joukot Prigožinin johdolla kapinoivat juhannuksena Venäjän sotilasjohtoa vastaan.
+
+## Abortti helpottuu
+
+![Kädellä on yksi yhden napin ja yksi neljän napin lääkeliuskaa.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_356/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116033964e48aa2d18fa/1693482026)
+
+Avaa kuvien katselu
+
+Suomessa suurin osa raskauden keskeytyksistä tehdään lääkkeillä. Kuva: Retu Liikanen / Yle
+
+Uusi aborttilaki tulee voimaan Suomessa syyskussa.
+
+Sen jälkeen raskauden keskeytystä ei tarvitse enää perustella, jos raskautta on kestänyt alle 12 viikkoa.
+
+Muutos nopeuttaa hoitoonpääsyä. Se myös lisää naisen oikeutta määrätä itse omasta kehosta.
+
+Suomessa tehdään vuosittain noin 7000 aborttia. Niistä suurin osa tehdään lääkkeillä.
+
+## Kiinnostavat ammatit
+
+![Tays Päivystys Acuta.](https://img.img-cdn.yle.fi/crop_extract,w_3648,h_2052,x_0,y_508/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105299563a97de8f2314/1672052824)
+
+Avaa kuvien katselu
+
+Nuorten mielestä terveydenhuolto on yksi kiinnostavimmista ammattialoista. Kuva: Jani Aarnio / Yle
+
+Uudessa tutkimuksessa on kysytty nuorilta, mitä he ajattelevat eri ammattialoista.
+
+Nuorten mielestä kiinnnostavimpia ammattialoja ovat terveydenhuolto, matkailu- ja ravintola-ala sekä taideala. Vähiten nuoria kiinnostavat kirkollinen työ, siivous ja julkishallinto.
+
+Tutkimuksen mukaan nuorten kiinnostukseen eri aloja kohtaan vaikuttavat arvot, sukupuoli ja vanhempien koulutustausta.
+
+Nuorten tulevaisuusraportin kyselyyn vastasi keväällä yli 6000 nuorta
+
+## Kansallismuseon laajennus
+
+![Kansallismuseon torni.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114202064afd27d624c3/1729852621)
+
+Avaa kuvien katselu
+
+Kansallismuseo saa laajennusosan. Kuva: Sonja Sajavaara / Yle
+
+Kansallismuseossa Helsingissä alkaa ensi kuussa iso remontti.
+
+Kansallismuseon yli sata vuotta vanha päärakennus peruskorjataan. Museolle rakennetaan myös laajennusosa. Uusista tiloista noin 90 prosenttia rakennetaan maan alle.
+
+Kansallismuseo suljetaan lokakuun puolivälissä. Rakennustyöt kestävät 3 vuotta.
+
+## Torstain sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116481564ef399c4c3e3/1693399488)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Huomenna torstaina koko maassa on pilvistä.
+
+Idässä sataa vettä ja vähän voi myös ukkostaa.
+
+Lännessä on enimmäkseen poutaa, mutta vähän voi sataa.
+
+Päivälämpötila on 14-22 astetta.

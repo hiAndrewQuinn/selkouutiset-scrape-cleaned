@@ -1,0 +1,63 @@
+# Lauantai 8.12.2018 (radio)
+
+Suomen entinen presidentti Tarja Halonen sanoo, että perheiden yhdistäminen parantaa maahanmuuttajien kotoutumista. Annegret Kramp-Karrenbauer on Saksan kristillisdemokraattisen puolueen uusi puheenjohtaja. Mielenosoitukset ovat jatkuneet Ranskassa. Lauantaina on vietetty suomalaisen musiikin päivää.
+
+## Presidentti Halonen
+
+![Tarja Halonen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10545103)
+
+Avaa kuvien katselu
+
+Presidentti Tarja Halonen oli tv:n Ykkösaamun vieras lauantaina. Kuva: Tiina Jutila / Yle
+
+Suomen entinen presidentti Tarja Halonen sanoo, että perheiden yhdistäminen parantaa maahanmuuttajien kotoutumista.
+
+Kun perhe muuttaa yhdessä, kotoutuminen onnistuu paremmin, Halonen sanoo. Halosen mielestä oma perhe voi myös valvoa nuoria maahanmuuttajia paremmin kuin poliisi. Niin voidaan myös ehkäistä rikoksia.
+
+Suomessa on puhuttu paljon Oulun seksuaalirikoksista, joiden tekijät ovat nuoria ulkomaalaistaustaisia miehiä. Halonen muistutti, että samanlaiset rikokset on kielletty kaikissa kulttuureissa.
+
+Halonen oli television Ykkösaamu-ohjelman vieras lauantaina.
+
+Tarja Halonen oli Suomen presidentti vuodesta 2000 vuoteen 2012. Hän oli Suomen ensimmäinen naispresidentti.
+
+## Saksan kristillisdemokraattien johtaja
+
+![Annegret Kramp-Karrenbauer ja Angela Merkel.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10486055)
+
+Avaa kuvien katselu
+
+Annegret Kramp-Karrenbauer (vasemalla) seuraa Angela Merkeliä (oikealla) kristillisdemokraattien puheenjohtajan tehtävässä. Kuva: Omer Messinger / EPA
+
+Saksan kristillisdemokraattinen puolue CDU on saanut uuden puheenjohtajan. Uusi puheenjohtaja on Annegret Kramp-Karrenbauer.
+
+Ennen Kramp-Karrenbaueria kristillisdemokraattien puheenjohtaja oli Angela Merkel. Merkel on myös Saksan liittokansleri eli hän johtaa Saksan hallitusta. Merkel aikoo vielä jatkaa liittokanslerina.
+
+Kristillisdemokraatit on Saksan suurin puolue. On mahdollista, että puolueen uudesta puheenjohtajasta tulee joskus liittokansleri. Siksi asia kiinnostaa ihmisiä myös Saksan ulkopuolella.
+
+## Ranskan mielenosoitukset
+
+![Keltaliivisiä mielenosoittajia Pariisissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10545140)
+
+Avaa kuvien katselu
+
+Keltaliivit osoittavat mieltä presidentti Macronia vastaan. Kuva: Sameer Al-Doumy / AFP
+
+Mielenosoitukset ovat jatkuneet Ranskassa. Poliisi on pidättänyt satoja ihmisiä pääkaupungissa Pariisissa ja muualla Ranskassa.
+
+Monet Pariisin kaupat, museot ja metroasemat olivat lauantaina kiinni mielenosoitusten takia. Myös Eiffel-torni oli kiinni.
+
+Ranskassa on ollut mielenosoituksia jo monena viikonloppuna. Mielenosoittajat sanovat, että presidentti Emmanuel Macron on rikkaiden presidentti. He suuttuivat, kun hallitus päätti nostaa bensaveroa. Hallitus on jo luvannut, että se ei nosta bensaveroa lisää, mutta se ei ole rauhoittanut mielenosoittajia.
+
+Mielenosoittajat tunnetaan nimellä keltaliivit, koska monilla mielenosoittajilla on päällä keltaiset liivit.
+
+## Suomalaisen musiikin päivä
+
+![Jean Sibelius](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9890474)
+
+Avaa kuvien katselu
+
+Suomen kansallissäveltäjä Jean Sibelius syntyi 8.12.1865. Kuva: Santeri Levas / Suomen valokuvataiteen museo
+
+Lauantaina on vietetty suomalaisen musiikin päivää. Päivää vietetään joulukuun 8. päivä, koska se on Jean Sibeliuksen syntymäpäivä.
+
+Sibelius on Suomen kansallissäveltäjä. Hän syntyi vuonna 1865 ja kuoli vuonna 1957.

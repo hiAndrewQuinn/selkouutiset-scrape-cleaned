@@ -1,0 +1,87 @@
+# Maanantai 28.11.2016 (radio)
+
+Suomalaiset luottavat taas maan talouteen. Asuntojen hinnat nousevat Helsingissä ja sen ympäristössä. Suomalaisen poplaulajan Saara Aallon menestys Britanniassa jatkuu. Keskosvauvat saavat Suomessa hyvää hoitoa. Suurin osa maailman joulukoristeista tehdään Yiwun kaupungissa Kiinassa. Monissa kouluissa oppilaille järjestetään yhteistä leikkiä ja liikuntaa välitunneilla.
+
+## Suomen talous
+
+![Turun telakan portti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9147155)
+
+Avaa kuvien katselu
+
+Turun telakalla on nyt paljon töitä. Kuva: Ari Welling / Yle
+
+Suomalaiset luottavat taas maan talouteen. Tilastokeskus kertoo, että suomalaiset eivät ole moneen vuoteen uskoneet talouteen yhtä paljon kuin nyt. Monet uskovat myös, että työttömyys vähenee.
+
+Yksi syy luottamukseen ovat hyvät uutiset teollisuudesta. Esimerkiksi Turun laivatelakka ja Uudenkaupungin autotehdas ovat kertoneet, että ne tarvitsevat paljon uusia työntekijöitä.
+
+## Asuntojen hinnat
+
+![Katu Helsingin Kruununhaassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9049009)
+
+Avaa kuvien katselu
+
+Asuntojen hinnat ovat nousseet eniten Helsingissä. Kuva: Henrietta Hassinen / Yle
+
+Asuntojen hinnat nousevat Helsingissä ja sen ympäristössä.
+
+Tilastokeskus kertoo, että vanhat kerrostaloasunnot olivat pääkaupunkiseudulla lokakuussa yli 3 prosenttia kalliimpia kuin vuosi sitten. Helsingissä asuntojen hinnat nousivat eniten, melkein 5 prosenttia.
+
+Muualla Suomessa asuntojen hinnat ovat laskeneet. Hinnat laskevat eniten Itä-Suomessa.
+
+## Saara Aalto
+
+![Saara Aalto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9318989)
+
+Avaa kuvien katselu
+
+Brittiyleisö tykkää Saara Aallosta. Kuva: AOP
+
+Suomalaisen poplaulajan Saara Aallon menestys Britanniassa jatkuu.
+
+Aalto pääsi viikonloppuna jatkoon laulukilpailussa X Factor. Nyt Aalto on jo 4 parhaan laulajan joukossa. Ensi viikonloppuna yksi heistä putoaa pois kilpailusta, ja 3 muuta menee loppukilpailuun.
+
+Loppukilpailu on lauantaina, joulukuun 10. päivä. Britannian X Factor -laulukilpailun voittaja selviää sunnuntaina, 11. joulukuuta.
+
+## Keskosvauvojen hoito
+
+![Vastasyntynyt lapsi keskoskaapissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9009943)
+
+Avaa kuvien katselu
+
+Keskosten hoito on kallista, mutta tärkeää. Kuva: Jouni Immonen / Yle
+
+Keskosvauvat saavat Suomessa hyvää hoitoa.
+
+Keskosvauvat tarvitsevat hoitoa, koska he syntyvät liian aikaisin. Viime vuonna Suomessa päätettiin, että hoitoa annetaan jo vauvoille, jotka syntyvät raskauden puolivälissä.
+
+Suomi käyttää keskimäärin 60 000 euroa jokaisen keskosvauvan hoitoon.
+
+## Kiinalaiset joulukoristeet
+
+![Joulupukki tukkukauppa Kiina Yiwu International Trade Mart.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9311884)
+
+Avaa kuvien katselu
+
+Kiinalaiset joulukoristeet valloittavat maailman. Kuva: Mika Mäkeläinen / Yle
+
+Suurin osa maailman joulukoristeista tehdään Yiwun kaupungissa Kiinassa.
+
+Yiwussa tehdään esimerkiksi tonttulakkeja. Kiinalaiset joulukoristeet ovat halpoja, koska työntekijöiden palkka on pieni.
+
+Joulukoristeet myydään maailmalle kauppakeskuksessa, joka on 30 kertaa suurempi kuin Helsingin Itäkeskus.
+
+Yiwusta tulee joulukoristeita myös Suomeen. Mutta myös Yiwun kauppiaat tietävät, että joulupukki on kotoisin Suomesta.
+
+## Koulujen välitunnit
+
+![Yläkoululaiset juoksevat hiekkakentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9101224)
+
+Avaa kuvien katselu
+
+Peruskoululainen viettää välitunneilla 2000 tuntia. Kuva: Jani Ilola / Yle
+
+Monissa kouluissa oppilaille järjestetään yhteistä leikkiä ja liikuntaa välitunneilla.
+
+Oppilaat saavat itse ohjata leikkejä. Sitä varten koulutetaan leikinjohtajia.
+
+Välituntitoiminta on tärkeää, koska peruskoulun aikana oppilas viettää välitunneilla noin 2000 tuntia.

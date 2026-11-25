@@ -1,0 +1,75 @@
+# Keskiviikko 29.6.2022
+
+Nato-jäsenyydestä syntyi sopu Turkin kanssa. Suomi ja Ruotsi saivat kutsun Natoon. Junamatkustajat hakevat VR:ltä korvauksia juhannuksen myöhästelystä. Pölyttäjien määrästä kerätään tietoa. Helle jatkuu.
+
+## TV:n selkouutisilla on kesätauko 6.6.–12.8.Lue ja kuuntele radiolähetys tästä.Sopu Turkin kanssa
+
+![Pekka Haavisto allekirjoittaa.](https://img.img-cdn.yle.fi/crop_extract,w_1765,h_992,x_0,y_121/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97562062bbde26299d7/1656479392)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto allekirjoitti yhteisymmärrysasiakirjan eilen Madridissa. Turkin presidentti Recep Tayyip Erdogan ja Suomen presidentti Sauli Niinistö katselevat. Kuva: Kiko Huesca / EPA
+
+Suomen ja Ruotsin liittyminen sotilasliitto Natoon on ottanut ison askeleen eteepäin. Turkki tukee nyt Suomen ja Ruotsin Nato-jäsenyyttä, kun aiemmin Turkki vastusti sitä.
+
+Tiistai-illan neuvotteluissa Suomi, Ruotsi ja Turkki allekirjoittivat asiakirjan, jossa maat sitoutuvat tukemaan toisiaan erilaisia turvallisuusuhkia vastaan. Suomen lainsäädäntö ei muutu, mutta Suomi lupaa esimerkiksi tehostaa terrorismin vastaista työtä.
+
+## Nato-jäsenyys etenee
+
+![Finlands och Sveriges ansökan om Natomedlemskap](https://img.img-cdn.yle.fi/crop_extract,w_774,h_435,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97518662ba225608d06/1656365839)
+
+Avaa kuvien katselu
+
+Suomi ja Ruotsi hakivat sotilasliitto Naton jäseneksi toukokuussa. Kuva: NATO
+
+Sotilasliitto Nato on tänään kutsunut Suomen ja Ruotsin sotilasliiton jäseniksi.
+
+Kutsusta päätettiin Nato-maiden huippukokouksessa Madridissa Espanjassa. Kutsu voitiin esittää, koska kaikki Nato-maat olivat nyt yksimielisesti sen kannalla.
+
+Suomi ja Ruotsi aloittavat nyt liittymisneuvottelut Naton kanssa. Suomen neuvotteluvaltuuskuntaa johtaa ulkoministeri Pekka Haavisto. Ennakkoon on arvioitu, että neuvottelut vievät vain pari päivää.
+
+Jokaisen Nato-maan parlamentin pitää vielä hyväksyä liittymisneuvotteluiden tulokset. Vasta sen jälkeen Suomi ja Ruotsi ovat Naton varsinaisia jäseniä.
+
+## VR:ltä haetaan korvauksia
+
+![VR:n juna ylittämässä siltaa. Etualalla erilaisia työkaluja ja -koneita, taivas on puolipilvinen.](https://img.img-cdn.yle.fi/crop_extract,w_4261,h_2396,x_1,y_132/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97506862b99e68b7e4f/1656332235)
+
+Avaa kuvien katselu
+
+Juhannuksen paluuliikenne myöhästeli ratatöiden takia. Kuva: Jani Aarnio / Yle
+
+VR on saanut paljon korvaushakemuksia junaliikenteen myöhästelystä juhannusviikonloppuna.
+
+VR kertoo, että korvausta on hakenut jo muutama tuhat ihmistä. VR ei vielä osaa arvioida, kuinka suureksi korvauksien kokonaissumma kasvaa.
+
+Juhannuksen paluuliikenne myöhästeli pahoin, kun junaliikenne oli pitkään poikki pääradan ratatöiden takia.
+
+Junat olivat myöhässä jopa 15 tuntia. Junissa oli monta tuhatta matkustajaa.
+
+## Pölyttäjiä tutkitaan
+
+![Perhonen ja kimalainen pölyttämässä pihlaja-angervoa rivitalon pihalla.](https://img.img-cdn.yle.fi/crop_extract,w_4104,h_2309,x_0,y_539/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83346560f597a978fa5/1626709715)
+
+Avaa kuvien katselu
+
+Perhonen ja kimalainen pölyttävät pihlaja-angervoa. Kuva: Henrietta Hassinen / Yle
+
+Suomen luonnon pölyttäjähyönteisistä aletaan kerätä tietoa. Kansallinen pölyttäjässeuranta alkoi kesäkuun alussa, kertoo Suomen ympäristökeskus SYKE.
+
+Seurannassa kerätään tietoa kimalaisista, erakkomehiläisistä, kukkakärpäsistä ja päiväperhosista. Tietoa kerätään esimerkiksi niiden määrästä.
+
+Pölyttäjäseurantaa tehdään yli 100 paikassa eri puolilla maata. Seurantaa tehdään esimerkiksi niityillä, metsissä ja Lapin tuntureilla.
+
+## Torstain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12516022)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on myös huomenna helteistä ja aurinkoista. Lapissa voi tulla sade- ja ukkoskuuroja.
+
+Päivälämpötila on enimmäkseen 25 ja 30 asteen välillä.
+
+Metsäapalovaroitus on voimassa melkein koko maassa.

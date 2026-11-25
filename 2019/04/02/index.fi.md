@@ -1,0 +1,63 @@
+# Maanantai 1.4.2019 (radio)
+
+Terrorismia on rahoitettu veropetoksilla. EU haluaa pidentää kodinkoneiden käyttöikää. Lähimaksun yläraja nousee. Tänään on kerrottu aprillipiloja.
+
+## Terrorismin rahoitus
+
+![Taistelija](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10713236)
+
+Avaa kuvien katselu
+
+Suomalaiset vierastaistelijat ovat hankkineet rahaa esimerkiksi veropetoksilla.  Kuva: Yle / Uutisgrafiikka
+
+Terrorismia on rahoitettu Suomessa yritystoiminnalla ja talousrikoksilla.
+
+Ylen MOT-ohjelma on tutkinut terrorismin rahoitusta yhteistyössä muiden eurooppalaisten yleisradioyhtiöiden kanssa.
+
+Suomalaiset vierastaistelijat ovat esimerkiksi perustaneet pöytälaatikkofirmoja eli firmoja, joilla ei ole toimintaa. Firmojen avulla he ovat tehneet veropetoksia ennen lähtöään maasta. Rahaa on hankittu myös lahjoituksilla. Samanlaisia rahoituskeinoja on käytetty ympäri Eurooppaa.
+
+Poliisi arvioi, että Suomesta on viime vuosina lähtenyt Syyrian ja Irakin konfliktialueille yli 80 ihmistä. Osa heistä on liittynyt terroristijärjestö Isisin riveihin.
+
+## Kodinkoneiden kestävyys
+
+![Vanha kodin yleiskone käytössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10714642)
+
+Avaa kuvien katselu
+
+Tämä yleiskone toimii hyvin, vaikka se on jo yli 40 vuotta vanha. Kuva: Yle
+
+EU haluaa parantaa kodinkoneiden kestävyyttä ja käyttöikää.
+
+EU vaatii, että kaikki uudet sähkölaitteet pitää pystyä korjaamaan. Niihin pitää myös löytyä varaosia.
+
+EU valmistelee asiasta direktiiviä. Se tulee voimaan ehkä vuonna 2021.
+
+## Lähimaksun yläraja
+
+![Maksukorttia käytetään kaupan kassalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7735709)
+
+Avaa kuvien katselu
+
+Kun asiakas maksaa lähimaksulla, hänen ei tarvitse näppäillä kortin tunnuslukua. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Lähimaksun yläraja nousee tämän kevään aikana. Lähimaksun yläraja on tähän saakka ollut 25 euroa. Nyt se nousee 50 euroon.
+
+Lähimaksu tarkoittaa sitä, kun asiakkaan maksukortti luetaan langattomasti kaupan kassalla. Kortti viedään kassalla lähelle maksupäätettä. Asiakkaan ei tarvitse näppäillä kortin tunnuslukua.
+
+## Aprillipäivän pilat
+
+![Kuvakaappaus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10716449)
+
+Avaa kuvien katselu
+
+Itä-Uuudenmaan poliisi kertoo aprillitviitissä, että univormujen uusi pinkki ja metallinhohtoinen pinta parantaa poliisin työturvallisuutta. Kuva: Twitter
+
+Tänään on vietetty aprillipäivää.
+
+Huhtikuun 1. päivä on aina aprillipäivä. Silloin tehdään aprillipiloja eli yritetään juksata ihmisiä uskomaan joku hassu juttu.
+
+Aprillipiloja tekevät tavalliset ihmiset, mutta esimerkiksi myös sanomalehdet, eri firmat ja viranomaiset voivat tehdä aprillipiloja.
+
+Esimerkiksi Helsingin poliisi on tänään kertonut, että se on hankkinut huumemuulin. Poliisi kertoo, että tosi hyvän hajuaistin avulla muuli löytää ihmisten hallusta ruohoa. Suomessa sana ruoho voi tarkoittaa myös marihuanaa.
+
+Tampereen kaupunki taas kertoo, että Turun funikulaari eli rinnehissi tuodaan Pispalan harjulle. Funikulaari maalataan pinkiksi ja sen kylkeen varataan paikka Tampereen jääkiekkojoukkueiden logoille.

@@ -1,0 +1,79 @@
+# Lauantai 17.10.2020 (radio)
+
+Suomessa puhutaan urheilun koronariskistä. Ranskassa on tapahtunut terroristinen murha. Lauantaina vietetään Asunnottomien yötä. Lappiin on satanut ensilumi. Uusi tieliikennelaki ei anna päivämääriä renkaiden vaihtoon.
+
+## Urheilun koronariskit
+
+![Tauon paikka salibandykentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10666188)
+
+Avaa kuvien katselu
+
+Joukkueurheilussa pelaajat ovat lähellä toisiaan. Kuva: Yle
+
+Viranomaiset kertovat ensi viikolla tarkemmin, missä urheilussa koronariski on suuri.
+
+Hallitus suositteli torstaina, että esimerkiksi joukkueurheilu lopetetaan alueilla, joilla koronaepidemia kiihtyy. Urheilujärjestöt eivät ymmärrä, miksi esimerkiksi pallopelit ovat vaarallisia korona-aikana.
+
+Urheilusta ja koronasta puhutaan nyt paljon. Perjantaina kerrottiin, että kuuluisa jääkiekkojoukkue Oulun Kärpät joutuu karanteeniin. Yhdellä joukkueen pelaajalla on koronatartunta. Kärppien seuraavat pelit pelataan myöhemmin.
+
+## Ranskan terrori-isku
+
+![Ranskalaisia poliiseja Bois d&#39;Aulne -koulun edustalla 17. lokakuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11600230)
+
+Avaa kuvien katselu
+
+Mies murhasi opettajan koulun lähellä. Kuva: Yoan Valat / EPA
+
+Ranskassa on tapahtunut terroristinen murha.
+
+18-vuotias mies murhasi opettajan koulun lähellä. Mies myös katkaisi opettajan pään.
+
+Opettaja oli historian opettaja. Hän näytti luokassa pilapiirroksia profeetta Muhammedista.
+
+Murhaaja kuoli, kun poliisi ampui häntä. Poliisi on ottanut kiinni myös muita ihmisiä, jotka ehkä liittyvät murhaan.
+
+Murha on järkyttänyt ranskalaisia. Presidentti Emmanuel Macron sanoo, että murha oli islamistinen terrori-isku.
+
+## Asunnottomien yö
+
+![Asunnottomien yö, yle tv1](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-3531056168b4caaa20/1444318030)
+
+Avaa kuvien katselu
+
+Asunottomien yö -tapahtuma muistuttaa, että kaikilla ei ole kotia.
+
+Lauantaina vietetään Asunnottomien yötä. Asunnottomilla ei ole kotia.
+
+Suomessa oli viime vuoden lopussa noin 4600 asunnotonta, jotka elivät yksin. Lisäksi noin 260 perhettä oli ilman omaa kotia.
+
+Suurin osa asunnottomista elää Helsingin seudulla. Siksi Helsingissä järjestetään lauantaina ruokailua ja terveysneuvontaa asunnottomille.
+
+Asunnottomien yötä vietetään joka vuosi.
+
+## Lapin ensilumi
+
+![Ensilumi Joensuun Heinävaarassa 4. lokakuuta 2019.](https://img.img-cdn.yle.fi/crop_extract,w_5474,h_3079,x_0,y_505/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5966475d9752d715d9c/1602906289)
+
+Avaa kuvien katselu
+
+Lapissa satoi jo lunta. Arkistokuva. Kuva: Ismo Pekkarinen / All Over Press
+
+Lappiin on satanut ensilumi. Lauantaina aamulla lunta oli jopa monta senttimetriä. Lumisade jatkuu Lapissa viikonlopun ajan.
+
+Sunnuntain ja maanantain välisenä yönä lunta voi sataa myös etelässä. Muuten sade on suuressa osassa maata vettä tai räntää.
+
+## Talvirenkaat
+
+![Nastarenkaisiin laitetaan yleensä hieman ylipainetta pakkasia silmälläpitäen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10461198)
+
+Avaa kuvien katselu
+
+Sää määrää, milloin talvirenkaita tarvitaan. Kuva: Raimo Torikka / Yle
+
+Autoilijat voivat vaihtaa autoon talvirenkaat, kun sää niin vaatii.
+
+Uusi tieliikennelaki ei enää anna päivämääriä renkaiden vaihtoon. Nastarenkaita voi käyttää aina, kun ne sopivat säähän.
+
+Nastarenkaiden varsinainen käyttöaika on marraskuun alusta maaliskuun loppuun. Mutta autoilijan ei tarvitse vaihtaa autoon talvirenkaita, jos sää ja ajokeli pysyvät hyvinä.
+
+Uusi tieliikennelaki tuli voimaan kesäkuussa.

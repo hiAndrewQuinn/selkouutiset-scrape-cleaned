@@ -1,0 +1,61 @@
+# Lauantai 5.8.2017 (radio)
+
+MV-lehden päätoimittaja Ilja Janitskin on otettu kiinni. Osassa Eurooppaa on tosi kuuma sää. Suomessa on sopivan lämmintä. Keskustelijoiden aivot etsivät kontaktia, sanovat tutkijat.
+
+## Ilja Janitskin
+
+![Ilja Janitskin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9194906)
+
+Avaa kuvien katselu
+
+MV-lehden päätoimittaja Ilja Janitskin. Kuva: Yle
+
+Suomalaisen MV-lehden päätoimittaja Ilja Janitskin on otettu kiinni. Suomen poliisi sai asiasta tiedon kansainväliseltä poliisijärjestöltä Interpolilta perjantaina.
+
+Janitskin otettiin kiinni Andorrassa, joka on Ranskan ja Espanjan välissä. Janitskin on asunut Espanjassa.
+
+Suomen poliisi epäilee, että Janitskin on tehnyt monta rikosta. Janitskin on esimerkiksi ehkä kiihottanut kansanryhmää vastaan eli puhunut pahaa jostakin ryhmästä. Janitskinin MV-lehti tunnetaan Suomessa siitä, että se haukkuu maahanmuuttajia.
+
+Suomen poliisi haluaa, että Janitskin saadaan Suomeen kuulusteluja varten.
+
+## Kuuma Eurooppa
+
+![Ihmiset vilvoittelevat suihkulähteessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9759728)
+
+Avaa kuvien katselu
+
+Italialaiset yrittävät selvitä kuumuudesta. Kuva: Marco Bertorello / AFP
+
+Osassa Eurooppaa on tosi kuuma sää. Lämpötila on noussut yli 40 asteen esimerkiksi Italiassa ja Balkanin maissa.
+
+Viranomaiset varoittavat, että näin kuuma sää on vaarallista terveydelle. Ihmisiä on joutunut sairaalaan, ja ainakin Puolassa ja Romaniassa ihmisiä on kuollut kuuman sään takia.
+
+Viranomaiset sanovat, että ihmisten pitää juoda paljon vettä ja ainakin vanhusten kannattaa olla sisällä.
+
+Säätiedot kertovat, että kuuma sää jatkuu Euroopassa myös ensi viikolla.
+
+## Raikas Suomi
+
+![Poika leikkii vedessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9737171)
+
+Avaa kuvien katselu
+
+Suomen kesä on raikas. Kuva: Esko Jämsä / AOP
+
+Täällä Suomessa on sopivan lämmintä. Lämpötila on päivällä 15 ja 20 asteen välillä. Myös vesisade piristää viikonloppua eri puolilla Suomea.
+
+## Keskustelijoiden aivot
+
+![Aivokuva.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9234025)
+
+Avaa kuvien katselu
+
+Aivoaallot alkavat noudaattaa samaa rytmiä, kun 2 ihmistä keskustelee. Kuva: AOP
+
+Lopuksi vielä asiaa aivoista. Tiedätkö, mitä aivoissa tapahtuu keskustelun aikana? Tutkijat ovat kertoneet asiasta uusia mielenkiintoisia tietoja.
+
+Tutkijat kertovat, että aivoaallot alkavat noudattaa samaa rytmiä, kun ihmiset keskustelevat toistensa kanssa. Näyttää melkein siltä, että keskustelijoiden aivot etsivät kontaktia toisiinsa.
+
+Tutkimus tehtiin Baskimaan aivo- ja kielitutkimuksen keskuksessa. Tutkimustilanteessa 2 koehenkilöä keskusteli toistensa kanssa. Heillä oli päässä mittauslaitteet, joilla mitattiin aivokäyrää. Niiden avulla tutkijat huomasivat, että keskustelijoiden aivoaallot etsivät yhteistä rytmiä.
+
+Nyt tutkijoita kiinnostaa, onko tiedosta apua esimerkiksi vieraiden kielten opiskelijoille. Tutkijat aikovat seuraavaksi selvittää, alkavatko aivoaallot noudattaa samaa rytmiä myös vieraskielisessä keskustelussa.

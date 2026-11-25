@@ -1,0 +1,79 @@
+# Tiistai 27.12.2016 (radio)
+
+Työttömien elämään tulee ensi vuonna muutoksia. Venäjällä tutkitaan joulupäivän lento-onnettomuutta. Monet kaupat olivat auki jouluna joka päivä. Pitkiä sairauslomia yritetään vähentää. Gepardit voivat kuolla sukupuuttoon.
+
+## Muutoksia työttömien tukiin
+
+![Joensuun TE-toimisto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9268345)
+
+Avaa kuvien katselu
+
+Työttömät haastatellaan 3 kuukauden välein. Kuva: Ismo Pekkarinen / AOP
+
+Työttömien elämään tulee ensi vuonna muutoksia. Esimerkiksi työttömyyskorvaukset pienenevät. Työttömän on myös vaikeampi kieltäytyä työstä kuin ennen.
+
+Muutoksia tehdään, koska työttömät halutaan saada nopeammin töihin.
+
+Jos työttömyys jatkuu, työtön haastatellaan 3 kuukauden välein. Haastattelussa tarkistetaan suunnitelma työn hakemisesta.
+
+## Venäjän lento-onnettomuus
+
+![Solisti Vladislav Golikov Puna-armeijan kuoron konsertissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9372960)
+
+Avaa kuvien katselu
+
+Lento-onnettomuudessa kuoli monta Puna-armeijan kuoron jäsentä. Kuva: Juri Kochetkov / EPA
+
+Venäjällä tutkitaan joulupäivän lento-onnettomuutta.
+
+Viranomaiset ovat toistaiseksi kieltäneet lennot koneilla, jotka ovat samaa mallia kuin onnettomuuskone.
+
+Venäläinen lentokone putosi joulupäivänä Mustaanmereen. Koneessa oli 92 ihmistä. Kaikki kuolivat.
+
+Suurin osa lentokoneen matkustajista kuului Venäjän armeijan kuoroon eli Puna-armeijan kuoroon.
+
+Lentokone putosi, kun se oli matkalla Venäjältä Syyriaan. Puna-armeijan kuoron piti esiintyä Syyriassa venäläisille sotilaille.
+
+## Kauppojen aukiolo jouluna
+
+![Nainen marketin maitohyllyllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9207310)
+
+Avaa kuvien katselu
+
+Tänä vuonna kauppaan pääsi myös joulupäivänä. Kuva: Jarno Kuusinen / AOP
+
+Monet kaupat olivat auki jouluna joka päivä.
+
+Kaupat saavat nykyään itse päättää, milloin ne ovat auki. Niin on ollut tämän vuoden alusta lähtien. Nyt oli ensimmäinen joulu, kun kaupat kokeilivat aukioloa.
+
+Kauppias Pasi Hentilä sanoo, että asiakkaita riitti myös joulupäivänä. Samaa mieltä ovat myös monet muut kauppiaat, ja he aikovat pitää ovet auki myös ensi jouluna.
+
+## Sairauslomia yritetään lyhentää
+
+![Ensihoitaja Timo Åhs ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9363795)
+
+Avaa kuvien katselu
+
+Ensihoitaja Timo Åhs palasi sairauslomalta ensin toimistotöihin. Kuva: Minna Rinta-Tassi / Yle
+
+Pitkiä sairauslomia yritetään vähentää.
+
+Työntekijälle voidaan esimerkiksi etsiä sellaisia tehtäviä, että hän voi helpommin ja nopeammin palata sairauslomalta töihin.
+
+Ensihoitaja Timo Åhs kertoo, että hän loukkasi selän ja selkä leikattiin. Sairausloman jälkeen Åhs teki 2 kuukautta toimistotöitä, koska ensihoitajan työ on fyysisesti raskasta. Åhs sai kuitenkin samaa palkkaa kuin tavallisesti.
+
+Tällaisesta järjestelystä on hyötyä kaikille. Työntekijä menettää vähemmän rahaa, kun sairausloma lyhenee. Myös firmat säästävät, kun työaikaa menetetään vähemmän.
+
+## Gepardien huono tilanne
+
+![Gepardi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6688380)
+
+Avaa kuvien katselu
+
+Gepardi on maailman nopein maaeläin. Kuva: Lukas Coch / EPA
+
+Uusi tutkimus kertoo, että gepardit voivat kuolla sukupuuttoon. Jos niin käy, gepardeja ei jää jäljelle yhtään.
+
+Gepardi on kissaeläin. Se juoksee nopeammin kuin mikään muu eläin. Luonnossa elää vielä noin 7000 gepardia.
+
+Gepardien tilanne on huono, koska ihmiset metsästävät samoja eläimiä kuin gepardit. On vaara, että tila ja ruoka loppuvat gepardeilta ihmisen takia.

@@ -1,0 +1,73 @@
+# Lauantai 26.11.2022 (radio)
+
+Sähkön säästäminen. Iranin mielenosoitukset. Palvelut. Pääministerisuosikit. Sää.
+
+## Sähkö
+
+![Kuvassa neljäosainen pistorasia ](https://img.img-cdn.yle.fi/crop_extract,w_2978,h_1675,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81510460b89ae59ec51/1622711138)
+
+Avaa kuvien katselu
+
+Kaikkien kannattaa säästää sähköä. Kuva: Sannimari Lehtilä / Yle
+
+Suomessa yritetään säästää sähköä. Tavoite on, että suomalaiset kuluttavat sähköä 10 prosenttia vähemmän kuin ennen.
+
+Sähköä halutaan säästää, jotta sähköä riittää myös talvella. Pakkassäällä lämmitys kuluttaa paljon sähköä.
+
+Myös sähkön kallistuminen hidastuu, jos sähkön kulutus vähenee. Siksi sähkön säästäminen auttaa kaikkia.
+
+Marraskuun alussa sähkön kulutus väheni jo melkein 10 prosenttia. Viime viikolla sää kylmeni, ja sähkön kulutus väheni vain 3 prosenttia.
+
+## Iran
+
+![Mielenosoittajat ovat sytyttäneet tulipalon kadulla.](https://img.img-cdn.yle.fi/crop_extract,w_1278,h_717,x_0,y_82/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10186316342b9f6e2629/1665576072)
+
+Avaa kuvien katselu
+
+Kuva: EPA
+
+Protestit ja mielenosoitukset jatkuvat Iranissa. Ihmisoikeusjärjestö Human Rights Watch kertoo, että poliisi on pidättänyt monta tuhatta mielensoittajaa.
+
+Myös esimerkiksi opiskelijoita ja toimittajia on pidätetty. Ihmisoikeusjärjestö sanoo, että ihmisiä on pidätysaikana kidutettu.
+
+Iranin mielenosoitusten yhteydessä on kuollut jopa 400 ihmistä. Joukossa on myös lapsia.
+
+Iranin mielenosoitukset alkoivat, kun poliisi pahoinpiteli nuorta naista niin pahasti, että nainen kuoli. Poliisin mielestä nainen ei käyttänyt hijabia eli huivia oikealla tavalla.
+
+## Palvelut
+
+![Anonyymi kuva hoitajasta ja vanhuksesta vanhuksen kotona. Vanhus on menossa juuri sänkyyn makuulle. ](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_208/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922480621f32524b22c/1663312833)
+
+Avaa kuvien katselu
+
+Suomalaiset toivovat lisää palveluja vanhuksille. Kuva: Hilma Toivonen / Yle
+
+Suomalaisten mielestä vanhuspalveluja ei ole riittävästi. 
+
+Noin 50 prosenttia suomalaisista on sitä mieltä, että vanhuspalveluja on liian vähän. Näin kertoo uusi kysely.
+
+Enemmistö kyselyn vastaajista oli sitä mieltä, että terveyspalveluja on riittävästi. Vastaajat olivat erityisen tyytyväisiä liikunnan ja urheilun palveluihin.
+
+## Pääministerisuosikit
+
+![Pääministeri Sanna Marin eduskunnan suullisella kyselytunnilla Helsingissä 24. marraskuuta 2022.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_221/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1038977637f7dda7403d/1670408821)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Pääministeri Sanna Marin on suomalaisten suosikki myös seuraavan hallituksen pääministeriksi. Näin kertoo Uutissuomalaisen kysely. 
+
+Marin on SDP:n puheenjohtaja. Uutissuomalaisen kyselyssä toiseksi suosituin pääministeriehdokas on kokoomuksen puheenjohtaja Petteri Orpo.
+
+Suomessa on vaalit ensi keväänä, huhtikuun alussa. Vaaleissa valitaan kansanedustajat Suomen parlamenttiin eli eduskuntaan. Vaalien jälkeen puolueet sopivat uudesta hallituksesta.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12681874)
+
+Avaa kuvien katselu
+
+Sunnuntaina sataa vähän lunta. Lunta sataa Etelä-Suomessa ja Länsi-Suomessa. Lunta saadaan alle 5 senttimetriä. Koko maassa on sunnuntaina vähän pakkasta.
+
+Maanantaina sataa vähän lunta Itä-Suomessa. Lämpötila on edelleen pakkasen puolella. Myöhemmin ensi viikolla sää vähän lauhtuu eli pakkanen heikkenee.

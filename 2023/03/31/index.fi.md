@@ -1,0 +1,83 @@
+# Perjantai 31.3.2023 (radio)
+
+Turkki hyväksyi Suomen Natoon. Suomi kiittää Nato-maita. EU estää palkkasyrjintää. Junaliikenteessä oli isoja ongelmia. Sääennuste.
+
+## Suomen Nato-jäsenyys
+
+![Turkin parlamentissa keskustellaan ja äänestetään Suomen Nato-jäsenyyden ratifioinnista.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_272/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10927276426048b8e38e/1680213241)
+
+Avaa kuvien katselu
+
+Kaikki kansanedustajat Turkin parlamentissa kannattivat Suomen Nato-jäsenyyttä. Kuva: Mika Mäkeläinen / Yle
+
+Suomen jäsenyys sotilasliitto Natossa on varmistunut. 
+
+Turkin parlamentti hyväksyi Suomen Nato-jäsenyyden myöhään torstaina illalla. Parlamentin päätös oli yksimielinen. Paikalla oli 276 kansanedustajaa. He kaikki äänestivät Suomen Nato-jäsenyyden puolesta. Kukaan ei äänestänyt vastaan. 
+
+Turkki oli viimeinen Nato-maa, joka hyväksyi Suomen jäsenyyden. Nyt kaikki Nato-maat ovat hyväksyneet Suomen Nato-jäsenyyden. 
+
+## Nato-jäsenyyden eteneminen
+
+![Turkin presidentti Tayyip Erdogan](https://img.img-cdn.yle.fi/crop_extract,w_7602,h_4262,x_0,y_628/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-109240564256ecb1653e/1680175041)
+
+Avaa kuvien katselu
+
+Turkin presidentti Recep Tayyip Erdoğan. Kuva: Emin Sansar / AOP
+
+Turkin parlamentti hyväksyi lain, jolla Turkki hyväksyy Suomen Natoon. Seuraavaksi laki menee Turkin presidentille Recep Tayyip Erdoğanille. Presidentti Erdoğanin pitää hyväksyä laki. Se voi kestää monta päivää. 
+
+Sen jälkeen Naton pääsihteeri Jens Stoltenberg kutsuu Suomen Naton täysjäseneksi. 
+
+Liittymissopimus talletetaan USA:n ulkoministeriöön Washingtonissa. 
+
+## Suomen kiitokset
+
+![Presidentti Sauli Niinistö tiedotustilaisuudessa Yhdysvalloissa. ](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_1,y_464/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1083252640a5a7024de1/1678400166)
+
+Avaa kuvien katselu
+
+Presidentti Niinistö kiitti kaikkia Nato-maita. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Presidentti Sauli Niinistö kiittää kaikkia Nato-maita. Niinistö sanoo, että Suomi on Natossa vahva jäsen. Niinistö sanoo, että Suomi on sitoutunut Nato-maiden yhteiseen turvallisuuteen. 
+
+Myös pääministeri Sanna Marin kiittää kaikkia Nato-maita tuesta Suomelle. 
+
+Monet maat onnittelevat Suomea. Esimerkiksi Ruotsin ulkoministeri, Norjan pääministeri ja Viron ulkoministeri onnittelevat Suomea siitä, että Suomi liittyy Nato-perheeseen. 
+
+## Palkkasyrjintä
+
+![Eu:n lippuja salossa EU:n parlamenttitalon edessä Brysselissä.](https://img.img-cdn.yle.fi/crop_extract,w_4950,h_2784,x_0,y_277/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-104610363933c705402d/1670595869)
+
+Avaa kuvien katselu
+
+EU-parlamentin talo Brysselissä Belgiassa. Kuva: Dmitry Rukhlenko / AOP
+
+EU-parlamentti on hyväksynyt uudet säännöt palkka-avoimuudesta. 
+
+Työntekijöille tulee oikeus saada tietää oman palkan perusteet. Työntekijöille tulee myös oikeus saada tietää, mitä muille työntekijöille maksetaan samanarvoisesta työstä. Myös työpaikkailmoituksiin tulee uusia määräyksiä. Esimerkiksi työtehtävien nimien pitää olla sukupuolineutraaleja. 
+
+Tarkoitus on vähentää palkkasyrjintää, jota tapahtuu erityisesti sukupuolen perusteella. Muutokset tehdään Suomen lakiin 3 vuoden kuluessa. 
+
+## Junaliikenteen ongelmat
+
+![Ihmisiä Tampereen rautatieasemalla odottamassa pääsyä busseihin.](https://img.img-cdn.yle.fi/crop_extract,w_4962,h_2778,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10932876426ece8837d7/1680272861)
+
+Avaa kuvien katselu
+
+Ihmiset odottivat Tampereella bussia, koska junat eivät kulkeneet. Kuva: Matias Väänänen / Yle
+
+Junaliikenne on ollut perjantaina pitkään poikki pääradalla. Syy on vika radan sähköjärjestelmässä Tampereen ja Parkanon välillä. 
+
+Vian takia tuli paljon ongelmia junille, jotka kulkevat Tampereen ja Helsingin välillä ja junille, jotka kulkevat Tampereelta pohjoiseen. 
+
+Junafirma VR kuljetti tuhansia ihmisiä busseilla. Siksi monien ihmisten matkaan tuli jopa tuntien pidennys. 
+
+## Sää
+
+![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690091)
+
+Avaa kuvien katselu
+
+Lauantaina on enimmäkseen aurinkoista.
+
+Sää on lauantaina enimmäkseen aurinkoista, mutta tuulista. Lämpötila on 0 ja +3 asteen välillä, pohjoisessa +1 ja -4 asteen välillä.

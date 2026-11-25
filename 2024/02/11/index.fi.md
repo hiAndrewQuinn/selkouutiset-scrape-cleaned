@@ -1,50 +1,73 @@
-# Radio \| Uutisviikko selkosuomeksi \| lauantai 10.2.2024
+# Radio | Uutisviikko selkosuomeksi | sunnuntai 11.2.2024
 
-Presidentin tehtävät
+Presidentinvaalien tulos
 
-Uutisviikon aihe on tällä kertaa presidentin tehtävät.
+Uutisviikon aiheena ovat presidentinvaalit.
 
-Suomessa on tänä viikonloppuna presidentinvaalit, ja Suomi saa pian uuden presidentin. Presidentinvaalit ovat kiinnostaneet suomalaisia paljon, koska presidentillä on monia tärkeitä tehtäviä. Presidentti myös edustaa Suomea ulkomailla. Tällä kertaa Uutisviikko kertoo presidentin tehtävistä.
+Suomen uusi presidentti on Alexander Stubb. Hän voitti presidentinvaalien 2. kierroksella Pekka Haaviston. Nyt kerromme 2. kierroksen tuloksista ja presidentinvaalien voittajasta.
 
-## Ulkopolitiikka
+## 2. kierros
 
-![Presidentti Sauli Niinistö on tavannut USA:n presidentti Joe Bidenin monta kertaa. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1688634029/39-113877464a677d215b54)
+![Alexander Stubb ja Pekka Haavisto kaupungintalolla tulosillassa.](https://img.img-cdn.yle.fi/crop_extract,w_3936,h_2214,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-124239565c91471ac9c6/1707676947)
 
-Presidentin tärkein tehtävä on johtaa Suomen ulkopolitiikkaa. Hän päättää, minkälaiset suhteet Suomella on muihin maihin. Presidentti hoitaa ulkopolitiikkaa yhdessä hallituksen kanssa.
+Avaa kuvien katselu
 
-Presidentti edustaa Suomea myös puolustusliitto Naton huippukokouksissa. Suomen Nato-politiikan johtaminen on uusi tehtävä presidentille. Suomi liittyi Natoon viime vuonna.
+Alexander Stubb ja Pekka Haavisto. Kuva: Petteri Bülow / Yle
 
-Presidentti on myös Suomen armeijan ylipäällikkö. Tehtävä liittyy ulkopolitiikan hoitamiseen. Presidentti päättää jopa sodasta ja rauhasta yhdessä eduskunnan kanssa.
+Suomalaiset ovat valinneet uuden presidentin. Uusi presidentti on Alexander Stubb.
 
-## Edustustehtävät
+Stubb voitti presidentinvaalien 2. kierroksen. Vaalipäivä oli sunnuntaina.
 
-![Tilaisuus on arvokas, kun presidentti on paikalla. Kuva: Jari Kovalainen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3076,w_5472,x_0,y_393/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1481288683/17-70619584aab92d30e7)
+Mukana oli 2 ehdokasta, Alexander Stubb ja Pekka Haavisto.
 
-Presidentin edustustehtävät ovat monien suomalaisten mielestä tosi tärkeitä. Suomalaiset haluavat olla ylpeitä presidentistä, kun presidentti vierailee ulkomailla.
+Stubb sai noin 52 prosenttia äänistä. Haavisto sai noin 48 prosenttia äänistä.
 
-Presidentillä on edustustehtäviä myös Suomessa. Tilaisuus tuntuu suomalaisista tärkeältä ja arvokkaalta, jos paikalla on presidentti.
+Stubb oli kokoomuksen presidenttiehdokas. Pekka Haavisto oli valitsijayhdistyksen presidenttiehdokas, joka sai tukea myös vihreiltä.
 
-Itsenäisyyspäivänä presidentti järjestää Suomen tärkeimmät juhlat eli Linnan juhlat. Nyt suomalaisia kiinnostaa, kuka järjestää Linnan juhlat ensi kerralla.
+Stubb ja Haavisto pääsivät presidentinvaalien 2. kierrokselle, koska he saivat eniten ääniä 1. kierroksella 2 viikkoa sitten.
 
-## Arvojohtaja
+## Alexander Stubb
 
-![Presidentti voi nostaa esiin tärkeitä asioita esimerkiksi uudenvuodenpuheessa, jonka hän pitää aina tammikuun 1. päivänä. Kuva: Antti Haanpää / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2392,w_4252,x_0,y_219/ar_1.7777777777777777,c_fill,g_faces,h_675,w_1200/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1514554664/39-4534645a4644d9e0834)
+![Alexander Stubb ja Suzanne Innes-Stubb tiputtavat poseeravat vaaliuurnan vieressä.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-124203365c8862e1fba3/1707640472)
 
-Sisäpolitiikassa presidentillä ei ole paljon valtaa. Eduskunta ja hallitus päättävät esimerkiksi valtion rahoista.
+Avaa kuvien katselu
 
-Sanotaan, että sisäpolitiikassa presidentti on arvojohtaja. Presidentti nostaa esiin asioita, jotka ovat presidentin mielestä tärkeitä koko Suomelle.
+Myös Alexander Stubb ja Suzanne Innes-Stubb äänestivät presidentinvaaleissa. Kuva: Mikko Stig / Lehtikuva
 
-Lisäksi presidentillä on erikoisia tehtäviä, jotka kauan sitten kuuluivat Ruotsi-Suomen kuninkaalle. Presidentti voi esimerkiksi armahtaa rikollisia, eli rikollinen voi päästä pois vankilasta presidentin päätöksellä.
+Suomen seuraava presidentti Alexander Stubb on kokenut poliitikko. Hänellä on ollut monta tärkeää tehtävää.
 
-## Kertaus
+Stubb on ollut esimerkiksi Suomen pääministeri ja ulkoministeri. Hän on ollut myös Suomen edustaja Euroopan unionin parlamentissa.
 
-Tällä kertaa Uutisviikon aiheena on ollut presidentin tehtävät Suomessa.
+Stubb puhuu monta kieltä. Suomen ja ruotsin lisäksi hän osaa englantia, ranskaa, saksaa ja italiaa.
 
-Presidentin tärkein tehtävä on johtaa Suomen ulkopolitiikkaa.
+Stubb on 55-vuotias. Stubbin puoliso Suzanne Innes-Stubb on kotoisin Englannista. Perheessä on 2 aikuista lasta.
 
-Presidentti on myös armeijan ylipäällikkö.
+## Äänestäjät
 
-Lisäksi presidentti edustaa Suomea ulkomailla.
+![Äänestystä Sallassa.](https://img.img-cdn.yle.fi/crop_extract,w_5460,h_3072,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-124245265c9201773a70/1707680505)
+
+Avaa kuvien katselu
+
+Suomalaiset äänestivät presidentinvaaleissa ahkerasti. Kuva: Antti Mikkola / Yle
+
+Presidentinvaalit kiinnostivat suomalaisia paljon. Äänestämässä kävi nyt noin 71 prosenttia ihmisistä, joilla on äänioikeus presidentinvaaleissa.
+
+Vaalit kiinnostivat ihmisiä, koska presidentti johtaa Suomen ulkopolitiikkaa.
+
+Keskellä maailman kriisejä ja sotia suomalaiset haluavat presidentin, joka pitää huolta Suomen turvallisuudesta.
+
+Suomalaiset ovat luottaneet presidentti Sauli Niinistöön. Nyt suomalaiset toivovat, että uusi presidentti jatkaa Niinistön työtä.
+
+![Presidentinlinna juhlavalaistuksessa](https://img.img-cdn.yle.fi/crop_extract,w_5537,h_3115,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6193715de8aea02c234/1575530180)
+
+Avaa kuvien katselu
+
+Presidentinlinna Helsingissä. Kuva: Pekka Tynell / YLE
+
+Uutisviikon aihe oli presidentinvaalien 2. kierros.
+
+Eniten ääniä sai Alexander Stubb. Hänestä tulee Suomen seuraava presidentti.
+
+Suomen presidentti vaihtuu maaliskuun 1. päivä. Silloin presidentin valta ja vastuu siirtyvät Sauli Niinistöltä Alexander Stubbille.
 
 Tämä oli Uutisviikko selkosuomeksi, tavataan taas. Kuulemiin!
-

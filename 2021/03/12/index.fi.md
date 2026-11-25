@@ -1,0 +1,95 @@
+# Perjantai 12.3.2021 (radio)
+
+Koronapotilaiden määrä tehohoidossa kasvaa. Myös Tampereen joukkoliikenteeseen tulee maskipakko. Brasiliassa on paljon koronakuolemia. Teemu Pukki on Englannin Mestaruussarjan kuukauden pelaaja. Lämpötila on viikonloppuna etelässä plussan puolella.
+
+## Koronaluvut
+
+![Kuvassa on potilas tehohoidossa Ranskassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11558692)
+
+Avaa kuvien katselu
+
+Suomessa tehohoitopaikkoja on normaalioloissa noin 300 (kuvituskuva). Kuva: Caroline Blumberg / EPA
+
+Koronapotilaiden määrä tehohoidossa kasvaa.
+
+Suomessa on nyt noin 50 koronapotilasta tehohoidossa. Sairaalahoidossa on yhteensä yli 250 koronapotilasta.
+
+Perjantaina kerrottiin, että Suomessa on noin 700 uutta koronatartuntaa ja 3 uutta koronakuolemaa.
+
+Noin 10 prosenttia suomalaisista on rokotettu koronaa vastaan ainakin kerran.
+
+## Koronarokotukset
+
+![Sairaanhoitaja antamassa koronarokotetta.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-775260602d346fd5a50/1616069382)
+
+Avaa kuvien katselu
+
+Arkistokuvassa henkilö saa koronarokotteen.  Kuva: Petteri Bülow / Yle
+
+Suomen pitää arvioida uudelleen, missä järjestyksessä koronarokotuksia annetaan. Näin ehdottaa Helsingin ja Uudenmaan sairaanhoitopiirin toimitusjohtaja Juha Tuominen.
+
+Tuomisen mielestä riskiryhmiin kuuluvat myös ihmiset, joiden asuinalueella on paljon koronaa.
+
+Koronatartuntoja on paljon esimerkiksi Helsingin Itäkeskuksessa ja Vuosaaressa, erityisesti vieraskielisissä perheissä.
+
+Tuomisen mielestä tällaisilla alueilla koronarokotuksille on iso tarve.
+
+## Maskipakko
+
+![Matkustajat Helsingin päärautatieaseman laiturilla. 2.3.2021.](https://img.img-cdn.yle.fi/crop_extract,w_4256,h_2394,x_0,y_326/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-780095603e34fc1971d/1614690698)
+
+Avaa kuvien katselu
+
+Matkustajalla pitää olla maski esimerkiksi junassa. Kuva: Jorge Gonzalez / Yle
+
+Liikennevälineissä tulee käyttöön lisää maskipakkoja. Tampereen seudun joukkoliikenteessä alkaa maskipakko maanantaina.
+
+Helsingin seudun joukkoliikenteessä maskipakko alkaa nyt lauantaina. Matkustajien pitää käyttää maskia bussissa, metrossa ja raitiovaunussa.
+
+VR:n junissa maskipakko on jo voimassa.
+
+## Brasilia
+
+![Työntekijä suojapuvussa sateenvarjo kädessä kävelee koronaviruspotilaiden hautojen ohitse Manausissa, Brasiliassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11833747)
+
+Avaa kuvien katselu
+
+Koronapotilaiden hautoja Manausissa, Brasiliassa. Kuva: Michael Dantas / AFP
+
+Etelä-Amerikan suurin maa Brasilia kärsii koronasta.
+
+Viime viikolla yli 10 000 brasilialaista kuoli koronan takia. Nyt kuolleita on yli 2000 päivässä.
+
+Sairaaloissa ei ole enää tilaa kaikille koronapotilaille. Koronapotilaita on kuollut, kun he ovat odottaneet paikkaa tehohoitoon.
+
+Brasilian presidentti Jair Bolsonaro ei kuitenkaan halua maahan koronarajoituksia.
+
+## Pukki
+
+![Teemu Pukki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11789346)
+
+Avaa kuvien katselu
+
+Jalkapalloilija Teemu Pukki. Kuva: Stephen Pond/Getty Images
+
+Suomalainen jalkapalloilija Teemu Pukki menestyy Englannissa.
+
+Pukki on Englannin Mestaruussarjan kuukauden pelaaja. Pukki teki helmikuussa 7 maalia.
+
+Pukki pelaa Norwichin joukkueessa. Norwich johtaa Mestaruussarjaa, ja sillä on hyvät mahdollisuudet nousta Valioliigaan.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11835720)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on lauantaina pilvinen koko maassa.
+
+Maan keskiosassa ja Lapissa sataa lunta, etelässä sataa vettä tai räntää.
+
+Lämpötila nousee lauantaina plusasteiden puolelle maan etelä- ja länsiosassa, idässä ja pohjoisessa on pikkupakkasta.
+
+Sunnuntaina plusasteita mitataan melkein koko maassa.

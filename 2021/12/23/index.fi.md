@@ -1,0 +1,87 @@
+# Torstai 23.12.2021 (radio)
+
+Vanhusten luo voi tehdä jouluvierailun. Koronatartunnoissa taas uusi ennätys. Alueille tiukkoja koronarajoituksia. Aluevaalien ehdokaslistat julki. Joulun viettoon matkataan huonossa ajokelissä. Jouluaaton säätiedot.
+
+## Jouluvierailu hoivakotiin
+
+![Hoivakodin asukas poimii korista joulukortin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10561196)
+
+Avaa kuvien katselu
+
+Korona-aika on lisännyt vanhusten yksinäisyyttä. Kuva: Juulia Tillaeus / Yle
+
+Monet vanhusten hoivakodit sallivat tänä jouluna omaisten vierailut vanhusten luona.
+
+Hoivakodit muistuttavat, että vierailulle saa tulla vain terveenä. Lisäksi kävijän on hyvä tehdä koronapikatesti ja käyttää kasvomaskia.
+
+Omaisten vierailua pidetään tärkeänä vanhusten henkisen hyvinvoinnin kannalta, sillä korona-aikana monien vanhusten yksinäisyys on kasvanut.
+
+## Tartuntoja ennätysmäärä
+
+![Väkeä jonottamassa pikakoronatestiin. ](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_555/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88810361aa687e5d768/1640272609)
+
+Avaa kuvien katselu
+
+Helsinkiläiset jonottivat Kampintorilla pikakoronatestiin. Kuva: Matti Myller / Yle
+
+Suomessa on jälleen tullut uusi ennätys koronatartuntojen määrässä.
+
+Tänään uusia tartuntoja raportoitiin 3000. Se on suurin tartuntamäärä yhdessä vuorokaudessa koko epidemian aikana.
+
+Kahden viikon aikana tartuntoja on todettu noin 26 000. Se on vajaat 9000 enemmän kuin kahden edellisen viikon aikana.
+
+## Alueet kiristävät rajoituksia
+
+![Ihmiset kävelevät Itäkeskuksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4512,h_2538,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-877134618927eaeb54b/1636385795)
+
+Avaa kuvien katselu
+
+Yleisötilaisuuksien kieltäminen sulkee elokuvateatterit. Kuva: Jorge Gonzalez / Yle
+
+Monilla alueilla on määrätty uusia, tiukkoja rajoituksia koronan takia. Rajoituksia ei voi kiertää koronapassilla.
+
+Esimerkiksi Pirkanmaalla, Uudellamaalla ja Satakunnassa kielletään kaikki yleisötilaisuudet.
+
+Lisäksi suljetaan esimerkiksi urheilutiloja, harrastustiloja ja kauppakeskusten yleisötiloja. Tiloja voi kuitenkin käyttää lasten ja nuorten ohjattuun harrastustoimintaan.
+
+## Aluevaalien ehdokaslistat julki
+
+![Kuopion pääterveyaseman ilmoituskyltti rakennuksen katolla, jossa lukee Sosiaali- ja terveyskeskus](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_321/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88752861a9c696944c4/1638517863)
+
+Avaa kuvien katselu
+
+Terveydenhuollon, sosiaalihuollon ja pelastustoiminnan järjestäminen siirtyy kunnilta alueille. Kuva: Sami Takkinen / Yle
+
+Aluevaalien ehdokaslistat julkaistaan tänään. Ehdokkaat saavat samalla äänestysnumerot.
+
+Suomen ensimmäiset aluevaalit pidetään 23. tammikuuta. Silloin valitaan edustajat aluevaltuustoihin.
+
+Aluevaltuustot vastaavat terveydenhuollon, sosiaalihuollon ja pelastustoiminnan järjestämisestä. Tehtävä siirtyy kunnilta alueille vuoden 2023 alussa.
+
+Helsingissä kaupunki järjestää sosiaali- ja terveydenhuollon myös tulevaisuudessa. Siksi helsinkiläiset eivät äänestä aluevaaleissa.
+
+## Joululiikenteessä huono ajokeli
+
+![liikennettä talvisäässä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10590139)
+
+Avaa kuvien katselu
+
+Ajokeli oli tänään huono koko maassa. Kuva: AOP
+
+Tänään on ollut joululiikenteen vilkkain päivä. Maanteillä liikenne vilkastui puolen päivän jälkeen.
+
+Koko maassa ajettiin huonossa ajokelissä. Sään lauhtumisen takia tiet ovat olleet liukkaita. Lisäksi ilmassa on pakkaslunta, joka pöllyää, ja siksi näkyvyys voi olla huono.
+
+Myös junissa on ollut paljon matkustajia. VR kertoo, että junavaunuissa on tehostettu siivousta ja junissa on myös maskipakko.
+
+## Jouluaaton sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12245937)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Huomenna jouluaattona paikoin sataa lunta. Etelässä ja Lapissa voi olla aurinkoista.
+
+Pakkanen on 8 -15 astetta, idässä voi olla kylmempää.

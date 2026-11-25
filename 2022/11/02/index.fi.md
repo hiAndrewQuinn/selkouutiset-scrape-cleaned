@@ -1,0 +1,71 @@
+# Keskiviikko 2.11.2022 (radio)
+
+Kyberhyökkäykset. Suomen Nato-jäsenyys. Tanskan parlamenttivaalit. Taksiluvat. Sääennuste.
+
+## Kyberhyökkäykset
+
+![Anonyymi kybersotilas. Lavastettu tilanne.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9407536254194e28832/1649678785)
+
+Avaa kuvien katselu
+
+Asiantuntijat sanovat, että kyberhyökkäykset tulevat todennäköisesti Venäjältä. Kuva: Ronnie Holmberg / Yle
+
+Kyberhyökkäykset ulkomailta Suomeen ovat lisääntyneet. Esimerkiksi palvelunestohyökkäyksiä firmojen nettisivuille on ollut paljon. Kyberhyökkäykset ovat lisääntyneet Ukrainan sodan aikana noin 30 prosenttia.
+
+Myös firmojen työntekijöille lähetetään aiempaa enemmän huijausviestejä. Viesti voi näyttää tavalliselta firman toisen työntekijän viestiltä. Kyberhyökkääjien tarkoitus on, että työntekijä lataa firman tietokoneelle esimerkiksi vakoiluohjelman. 
+
+Asiantuntijat sanovat, että monet kyberhyökkäykset tulevat todennäköisesti Venäjältä. 
+
+## Suomen Nato-jäsenyys
+
+![Pekka Haavisto.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_228/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1028538636268a15dabc/1667394072)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto puhui Pohjoismaiden neuvoston tiedotustilaisuudessa. Kuva: Sakari Piippo / Yle
+
+Unkari hyväksyy Suomen Nato-jäsenyyden. Näin kertoi ulkoministeri Pekka Haavisto keskiviikkona. 
+
+Haavisto puhui asiasta Pohjoismaiden neuvoston tiedotustilaisuudessa. Haavisto sanoi, että Unkari vahvistaa Suomen ja Ruotsin Nato-jäsenyyden joulukuussa. 
+
+Presidentti Sauli Niinistö on myös puhunut Unkarin pääministerin Viktor Orbanin kanssa puhelimessa. Niinistö sanoo, että Suomi voi luottaa, että Unkari hyväksyy Suomen Natoon. 
+
+Nato-maista vain Turkki ja Unkari eivät vielä ole hyväksyneet Suomen ja Ruotsin Nato-hakemuksia.
+
+## Tanskan parlamenttivaalit
+
+![Mette Frederiksen kyynelehtii ennen puhettaan vaalivalvojaisissa 1. marraskuuta 2022.](https://img.img-cdn.yle.fi/crop_extract,w_4176,h_2349,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10281696361ea60e3758/1667361461)
+
+Avaa kuvien katselu
+
+Mette Frederiksen liikuttui, kun vasemmistoliittouma voitti parlamenttivaalit. Kuva: Nikolai Linares / EPA
+
+Tanskan parlamenttivaalit on voittanut vasemmistopuolueiden liittouma. 
+
+Äänestys oli tiukka. Vasemmistopuolueiden liittouma sai parlamenttiin 90 paikkaa. Tanskan parlamentissa on 179 paikkaa, eli vasemmistopuolueiden liittouma voitti vaalit vain 1 paikan enemmistöllä. 
+
+Vasemmistopuolueiden liittoumaa on johtanut Tanskan pääministeri Mette Fredriksen. Koska Fredriksenin liittouma voitti vaalit, Fredriksen alkaa nyt muodostaa Tanskaan uutta hallitusta. Fredriksen sanoo, että hän pyytää hallitukseen puolueita myös vasemmistopuolueiden ulkopuolelta. 
+
+## Taksiluvat
+
+![Takseja Tampereen rautatieasemalla.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_131/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7226415f6c569b9420b/1600935794)
+
+Avaa kuvien katselu
+
+Traficom perui yli 2 000 taksinkuljettajan luvan. Kuva: Miikka Varila / Yle
+
+Liikenne- ja viestintävirasto Traficom on perunut yli 2 000 taksinkuljettajan taksiluvan. 
+
+Suurin osa luvista, noin 1500 lupaa, peruttiin sen takia, että kuljettajilta puuttui pätevyys taksinkuljettajan työhön. Taksinkuljettajien pitää suorittaa yrittäjäkoe. Koe piti suorittaa viimeistään viime keväänä huhtikuussa.
+
+Hieman yli 500 taksinkuljettajan lupa peruttiin sen takia, että kuljettajilla ei ollut Y-tunnusta. Y-tunnus on numero, joka pitää olla firmoilla. 
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12672089)
+
+Avaa kuvien katselu
+
+Torstaina on pilvistä ja sataa vettä tai tihkua.
+
+Torstaina on pilvistä. Etelässä ja lännessä voi sataa vettä tai tihkusadetta. Lämpötila on 0 ja 10 asteen välillä. Pohjoisessa lämpötila on -3 ja +3 asteen välillä.

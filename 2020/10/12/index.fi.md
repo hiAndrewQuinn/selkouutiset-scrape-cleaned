@@ -1,0 +1,67 @@
+# Maanantai 12.10.2020 (radio)
+
+Virhearvio nosti sähkön siirtohintoja. Turkistarhoilla on vaikeaa. Moni on lopettanut tupakoinnin koronan takia. Taloustieteen palkinto annettiin huutokaupan kehittämisestä. Sääennuste.
+
+## Sähkön siirtohinnat ovat korkeita
+
+![Voimalinja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5449306)
+
+Avaa kuvien katselu
+
+Voimalinjassa kulkee paljon sähköä. Kuva: Yle
+
+Yle on selvittänyt, miksi sähkön siirtohinnat ovat nousseet Suomessa paljon.
+
+Siirtohinnat ovat nousseet paljon, koska Energiavirasto on ehkä arvioinut väärin siirtohintojen korotustarpeen. Siksi siirtoyhtiöt saivat nostaa siirtohintoja jopa 40 prosenttia. Yle laski, että oikea korotustarve oli 4 prosenttia.
+
+Siirtohintoja on saanut nostaa, että siirtofirmat saavat rahaa korjata myrskytuhoja. Myrskytuhoihin on kuitenkin kulunut vain vähän rahaa.
+
+## Turkistarhoilla on vaikeaa
+
+![Siniketunnahkoja roikkumassa telineessä huutokauppaa varten. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5499210)
+
+Avaa kuvien katselu
+
+Siniketun nahkat odottavat turkishuutokauppaa.  Kuva: Martti Juntunen / Yle 
+
+Koronatilanne vaikeuttaa suomalaisten turkistarhojen toimintaa. Turkiksia ja nahkoja myydään paljon Kiinaan. Koronatilanteen takia turkiskauppa on hiljentynyt.
+
+Turkistarhat ovat joutuneet vähentämään työntekijöitä ja turkiseläimiä. Turkistarhoilla on mennyt huonosti jo monta vuotta.
+
+## Koronatilanne on vähentänyt tupakointia
+
+![Tupakka palaa sormien välissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10110886)
+
+Avaa kuvien katselu
+
+Tupakointi ja muut nikotiinivalmisteet ovat huono ihmisen terveydelle. Kuva: Henrietta Hassinen / Yle
+
+Monet suomalaiset ovat lopettaneet tupakoinnin koronatilanteen takia.
+
+Terveysjärjestö Suomen ASH kysyi suomalaisilta, onko koronatilanne vaikuttanut heillä tupakointiin. Koronatilanteen takia tupakoinnin on lopettanut ehkä yli 10 000 suomalaista.
+
+Koronavirustartunta voi olla paha tupakoijalle, koska tupakointi heikentää keuhkoja.
+
+## Huutokauppojen kehitystyö palkittiin
+
+![Kuvassa jaetaan talouden Nobel-palkintoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11590859)
+
+Avaa kuvien katselu
+
+Tässä jaetaan taloustieteen palkinto. Palkinnon arvo on sama kuin Nobel-palkintojen, eli noin 950 000 euroa.  Kuva: Anders Wiklund / EPA
+
+Ruotsin keskuspankin taloustieteen palkinto annetaan tänä vuonna USA:laisille **Paul Milgromille** ja **Robert Wilsonille**.
+
+He ovat kehittäneet uusia huutokaupan tapoja isoihin huutokauppoihin. Sellaisia ovat esimerkiksi huutokaupat, joissa valtiot myyvät radiotaajuuksia tai jotakin valtion omaisuutta.
+
+Ruotsin keskuspankin taloustieteen palkintoa sanotaan myös taloustieteen Nobel-palkinnoksi. Sen saavat siis Paul Milgrom ja Robert Wilson.
+
+## Sää
+
+![Sadepisaroita ikkunassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8360765)
+
+Avaa kuvien katselu
+
+Maan etelä- ja keskiosassa tulee vesisateita. Kuva: Hanne Leiwo / Yle
+
+Tiistaina on pilvistä. Maan etelä- ja keskiosassa tulee vesisateita. Lapissa on enimmäkseen poutaa. Lämpötila on 6 ja 12 asteen välillä, Lapissa 1 ja 6 asteen välillä.

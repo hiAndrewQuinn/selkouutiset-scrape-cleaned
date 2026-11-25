@@ -1,0 +1,73 @@
+# Maanantai 5.2.2018 (radio)
+
+Paula Risikko on eduskunnan uusi puhemies. Presidentin puoliso ja vauva ovat jo päässeet kotiin. Moskovassa on satanut paljon lunta. Maanantaina vietettiin Runebergin päivää. Marjo Niemi sai kirjallisuuden Runeberg-palkinnon.
+
+## Eduskunnan puhemies
+
+![Paula Risikko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10059023)
+
+Avaa kuvien katselu
+
+Eduskunnan uusi puhemies Paula Risikko. Kuva: Roni Rekomaa / Lehtikuva
+
+Eduskunta on valinnut uuden puhemiehen. Eduskunta on Suomen parlamentti, ja puhemies johtaa eduskunnan työtä.
+
+Uusi puhemies on Paula Risikko. Risikon puolue on kokoomus.
+
+Risikko on 57-vuotias, ja hänellä on pitkä kokemus politiikasta. Risikko on ollut eduskunnassa kansanedustajana jo 15 vuotta. Nyt Risikko on sisäministeri, mutta hän jättää ministerin työn puhemiehen tehtävän takia.
+
+Risikolla on terveystieteen tohtorin koulutus. Hän on kotoisin Seinäjoelta, Pohjanmaalta.
+
+## Presidenttiparin vauva
+
+![Presidentti Sauli Niinistö ja puoliso Jenni Haukio (Niinistön takana) poistuvat vastasyntyneen poikavauvansa kanssa Naistenklinikalta Helsingissä maanantaina 5. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10059401)
+
+Avaa kuvien katselu
+
+Presidentti Niinistö haki vauvan ja äidin kotiin maanantaina. Kuva: Emmi Korhonen / Lehtikuva
+
+Sitten uusia uutisia presidentin vauvasta.
+
+Rouva Jenni Haukio on päässyt vauvan kanssa kotiin Helsingin Naistenklinikalta. Haukio on presidentti Sauli Niinistön puoliso. Haukio synnytti poikavauvan perjantaina.
+
+Presidentti Niinistö haki vauvan ja äidin kotiin maanantaina iltapäivällä. Rouva Haukio kertoi toimittajille, että hän voi hyvin.
+
+## Moskovan lumisade
+
+![Case-merkkinen puskutraktori työntää lumikasaa Moskovan Punaisella torilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10058551)
+
+Avaa kuvien katselu
+
+Moskovassa tehdään kovasti lumitöitä. Kuva: Vasily Maximov / AFP
+
+Venäjän pääkaupungissa Moskovassa on satanut paljon lunta. Parissa päivässä Moskovaan satoi noin puoli metriä lunta.
+
+Moskovassa tehdään nyt kovasti lumitöitä, että kaupungin kadut saadaan auki.
+
+Maanantaina koulut olivat kiinni, koska pienet lapset eivät voineet kulkea paksussa lumessa. Lumi häiritsi myös liikennettä, ja satoja lentoja peruttiin.
+
+## Runebergin päivä
+
+![Johan Ludvig Runeberg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9340964)
+
+Avaa kuvien katselu
+
+Johan Ludvig Runeberg eli 1800-luvulla. Kuva: Svenska litteratursällskapet i Finland
+
+Maanantaina on vietetty Runebergin päivää. Kirjailija Johan Ludvig Runeberg on Suomen kansallisrunoilija.
+
+Runeberg syntyi vuonna 1804. Hän syntyi Pietarsaaressa ja asui myöhemmin Porvoossa. Molemmissa kaupungeissa puhutaan ruotsia, ja myös Runeberg kirjoitti ruotsiksi.
+
+Runebergin kuuluisin kirja on Vänrikki Stoolin tarinat. Kirja alkaa runolla, jonka nimi on ruotsiksi Vårt land eli suomeksi Maamme. Runosta tuli Suomen kansallislaulu.
+
+## Runeberg-palkinto
+
+![Kirjailija Marjo Niemi vastaanotti Runeberg-kirjallisuuspalkinnon romaanistaan Kaikkien menetysten äiti Porvoossa 5. helmikuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10059441)
+
+Avaa kuvien katselu
+
+Marjo Niemi sai Runeberg-palkinnon. Kuva: Vesa Moilanen / Lehtikuva
+
+Runebergin päivänä on myös jaettu Runeberg-palkinto. Se on kirjallisuuspalkinto, joka on saanut nimen Johan Ludvig Runebergin mukaan. Palkinnon arvo on 10 000 euroa.
+
+Tänä vuonna kirjailija Marjo Niemi sai Runeberg-palkinnon. Niemi sai palkinnon kirjasta Kaikkien menetysten äiti. Kirja kertoo äidin ja tyttären vaikeasta suhteesta. Niemi kysyy kirjassa esimerkiksi, miksi suomalaisten on niin vaikea koskettaa toista ihmistä.

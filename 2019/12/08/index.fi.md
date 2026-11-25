@@ -1,0 +1,75 @@
+# Sunnuntai 8.12.2019 (radio)
+
+SDP ehdottaa, että Sanna Marinista tulee pääministeri. Hallituspuolueet eivät vaihdu. Teollisuudessa alkaa maanantaina lakko. Intiassa kuoli yli 40 ihmistä tulipalossa. Sunnuntaina vietettiin Jean Sibeliuksen ja suomalaisen musiikin päivää.
+
+## Sanna Marin
+
+![ SDP:n pääministeriehdokkaaksi valittu Sanna Marin kukkakimpun kanssa valinnan jälkeen SDP:n puoluevaltuuston kokouksessa Helsingissä 8. joulukuuta 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11108433)
+
+Avaa kuvien katselu
+
+Sanna Marinista tulee pääministeri. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomi saa uuden pääministerin. Hän on Sanna Marin.
+
+SDP eli sosiaalidemokraattinen puolue ehdottaa, että Marinista tulee pääministeri. Edellinen pääministeri Antti Rinne erosi noin viikko sitten.
+
+Sanna Marin on 34-vuotias. Hän on nyt liikenne- ja viestintäministeri.
+
+Suomen parlamentti eli eduskunta valitsee pääministerin ehkä jo tiistaina. Sanna Marinin puolue SDP on eduskunnan suurin puolue.
+
+## Uusi hallitus
+
+![Eduskunnan istuntosali.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10873212)
+
+Avaa kuvien katselu
+
+Eduskunnan puolueista 5 on mukana hallituksessa. Kuva: Mauri Ratilainen / AOP
+
+Pääministeri johtaa Suomen hallitusta. Sanna Marinin hallitukseen tulevat samat puolueet, jotka olivat jo Antti Rinteen hallituksessa.
+
+Hallituspuolueita on 5. Ne ovat SDP, keskusta, vihreät, vasemmistoliitto ja RKP. Ne aikovat jatkaa samoja asioita, jotka olivat tärkeitä myös edelliselle hallitukselle.
+
+Suomen hallitus vaihtuu hallituspuolueiden riidan takia. Keskusta ei enää luottanut SDP:n Antti Rinteeseen, ja siksi pääministeri Rinteen piti erota.
+
+## Teollisuuden lakko
+
+![Oras Groupin tehdas Raumalla](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6194655de8deaf6d411/1575542556)
+
+Avaa kuvien katselu
+
+Monet tehtaat pysähtyvät, kun työntekijät menevät lakkoon eli lopettavat työn tekemisen. Kuva: Tapio Termonen / Yle
+
+Teollisuudessa alkaa maanantaina lakko. Lakko pysäyttää monta tehdasta eri puolilla Suomea. Lakko kestää 3 päivää.
+
+Lakossa on mukana melkein 100 000 työntekijää. He eivät tee työtä alkuviikon aikana työriidan takia. Teollisuusalojen työntekijät ja työnantajat riitelevät palkasta ja työajasta.
+
+## Intian tulipalo
+
+![Poliiseja ja palomiehiä lähellä paikkaa, josta tulipalo levisi tuhoisasti sunnuntaiaamuna 8. joulukuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11108038)
+
+Avaa kuvien katselu
+
+Tulipalo syttyi tehtaassa Delhissä. Kuva: Rajat Gupta / EPA
+
+Intiassa on ollut paha tulipalo. Tulipalossa kuoli yli 40 ihmistä.
+
+Tulipalo oli Delhin kaupungissa. Tulipalo alkoi aikaisin aamulla laukkutehtaassa.
+
+Yli 100 työntekijää vielä nukkui tehtaassa, kun tulipalo alkoi. Pelastajat pelastivat tehtaasta noin 60 ihmistä.
+
+Tulipalon syy oli ehkä sähkövika. Tehtaalla ei ollut lupaa toimia.
+
+## Sibeliuksen päivä
+
+![Jean Sibelius](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9890474)
+
+Avaa kuvien katselu
+
+Säveltäjä Jean Sibelius. Kuva: Santeri Levas / Suomen valokuvataiteen museo
+
+Sunnuntaina on vietetty Jean Sibeliuksen ja suomalaisen musiikin päivää. Päivää vietetään aina joulukuun 8. päivä, koska se on Sibeliuksen syntymäpäivä.
+
+Jean Sibelius on Suomen kansallissäveltäjä. Hän syntyi vuonna 1865 ja kuoli vuonna 1957. Monet tuntevat Sibeliuksen musiikista esimerkiksi Finlandian.
+
+Jean Sibeliuksen ja suomalaisen musiikin päivä on liputuspäivä.

@@ -1,0 +1,81 @@
+# Maanantai 22.1.2018 (radio)
+
+Presidentinvaalien ennakkoäänestys jatkuu vilkkaana. Selkouutisten nettisivuilla kerrotaan lisää ehdokkaista ja vaaleista. Heinolassa halutaan siirtää sodanaikainen joukkohauta. Uudenvuoden raketeista tuli vain vähän silmävammoja. Pakkanen vaihtuu etelässä plusasteiksi viikon lopulla.
+
+## Ennakkoäänestys
+
+![Äänestyslippu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10032680)
+
+Avaa kuvien katselu
+
+Ennakkoäänestää voi tiistai-iltaan saakka. Kuva: Derrick Frilund / Yle
+
+Presidentinvaalien ennakkoäänestys on ollut vilkasta. Jo yli miljoona suomalaista on käynyt äänestämässä ennakkoon.
+
+Maanantaina alkuillasta äänestysprosentti oli noin 28.
+
+Ennakkoäänestys loppuu tiistai-iltana.
+
+## Selkouutisten kysely presidenttiehdokkaille
+
+![Selkouutisten nettisivu, jonka otsikkona on Presidentinvaalit 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10035191)
+
+Avaa kuvien katselu
+
+Selkouutisten nettisivuilla kerrotaan presidentinvaaleista.
+
+Presidentinvaalien varsinainen vaalipäivä on ensi sunnuntai. Vaaleissa valitaan presidentti 6 seuraavan vuoden ajaksi.
+
+Presidentiksi pyrkii yhteensä 8 ehdokasta.
+
+Selkouutiset teki kyselyn kaikille ehdokkaille. Ehdokkailta kysyttiin esimerkiksi sitä, miten ehdokas aikoo presidenttinä vaikuttaa siihen, että ketään ei kiusata töissä tai koulussa.
+
+Selkouutisten nettisivuilla kerrotaan, mitä ehdokkaat vastasivat.
+
+## Sodanaikainen joukkohauta
+
+![1918 sisällissodan joukkohaudan muistomerkki Vierumäellä Heinolassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10031356)
+
+Avaa kuvien katselu
+
+Sata vuotta vanha joukkohauta ja sen muistomerkki ovat keskellä vilkasta teollisuusaluetta Vierumäellä. Kuva: Juha-Petri Koponen / Yle
+
+Heinolassa halutaan siirtää vanha joukkohauta uuteen paikkaan.
+
+Hauta on Vierumäellä keskellä vilkasta teollisuusaluetta. Se halutaan siirtää kirkon hautausmaalle.
+
+Joukkohauta on peräisin Suomen sisällissodan ajalta eli se on sata vuotta vanha. Haudassa on ehkä noin 300 vainajan eli kuolleen ihmisen jäänteet. He taistelivat sisällissodassa punaisten puolella.
+
+Haudan siirtämiseen tarvitaan Itä-Suomen aluehallintoviraston lupa.
+
+## Uudenvuoden silmävammat
+
+![Suojalasit](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7007838)
+
+Avaa kuvien katselu
+
+Jos ampuu ilotulitteita, pitää käyttää suojalaseja. Kuva: Pekka Loukkola / Yle
+
+Turvallisuus- ja kemikaalivirasto Tukes kertoo iloisen uutisen uudenvuoden juhlinnasta. Tänä vuonna pikkulapset eivät saaneet yhtään silmävammaa uudenvuoden raketeista.
+
+Tukes kertoo, että tämä oli ensimmäinen kerta koko 2000-luvulla, kun alle 12-vuotiaat eivät saaneet silmävammoja uudenvuoden raketeista.
+
+Ilotulitteet aiheuttivat vuodenvaihteessa 11 silmävammaa, joita piti hoitaa sairaalassa. Loukkaantuneista 3 oli alle 18-vuotiaita.
+
+Kaikista potilaista vain yksi oli käyttänyt suojalaseja.
+
+## Sää lauhtuu
+
+![Tulevan tiistain, keskiviikon ja torstain sääennusteet kartalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10033969)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Säässä tapahtuu iso muutos tällä viikolla. Ilmatieteen laitos sanoo, että keskiviikon ja torstain välillä lämpötila voi muuttua yli 20 asteella.
+
+Ilmatieteen laitoksen meteorologi Niko Tollman kertoo, että tiistaina koko maassa on vielä pakkasta. Myös maan etelä- ja keskiosissa pakkasta voi olla 20 astetta.
+
+Keskiviikkona alkaa lauhtua eli sää lämpenee. Torstaina etelässä voi olla jo neljä tai viisi plusastetta, meteorologi Niko Tollman kertoo.
+
+Etelässä sää on lauhaa loppuviikon ajan, mutta pohjoisessa jatkuu talvinen pakkassää.

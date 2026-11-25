@@ -1,0 +1,75 @@
+# Tiistai 9.11.2021 (radio)
+
+Puolan ja Valko-Venäjän raja. Suomen koronatilanne. Tanskan koronatilanne. Eläkeläisten työnteko. Sää.
+
+## Puolan ja Valko-Venäjän raja
+
+![Siirtolaisia Puolan ja Valko-Venäjän rajalla.](https://img.img-cdn.yle.fi/crop_extract,w_1799,h_1007,x_0,y_187/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-877728618a9faa503ba/1636475222)
+
+Avaa kuvien katselu
+
+Ihmisiä Valko-Venäjän ja Puolan rajalla. Kuva: EPA-EFE / Leonid Scheglov
+
+Euroopan unionilla ja Valko-Venäjällä on riita.
+
+Riidan syynä on iso ihmisjoukko, joka pyrkii Valko-Venäjältä Puolaan. Puola on Euroopan unionin jäsenmaa.
+
+Puola sanoo, että tilanne Puolan ja Valko-Venäjän rajalla on vaara koko Euroopan unionille. Puolan sanoo, että Valko-Venäjä lähettää tahallaan ihmisiä kohti Euroopan unionia. Joukossa on ihmisiä esimerkiksi Lähi-idästä ja Afrikasta.
+
+Euroopan unionin mielestä Valko-Venäjä yrittää häiritä EU-maita, jotka ovat kritisoineet Valko-Venäjän huonoa ihmisoikeustilannetta.
+
+## Suomen koronatilanne
+
+![Sanna Marin puhuu medialle.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8506426136fc56cbf95/1630993902)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marinin hallitus neuvottelee koronatilanteesta keskiviikkona. Kuva: Henrietta Hassinen / Yle
+
+Suomen koronatilanne on huonontunut. Sairaalahoidossa on nyt enemmän koronapotilaita kuin ennen.
+
+Myös uusia koronatartuntoja on paljon. Korona tarttuu nyt erityisesti ihmisiin, jotka eivät ole saaneet koronarokotuksia.
+
+Noin 80 prosenttia yli 12-vuotiaista on saanut koronarokotukset. Se oli hallituksen tavoite, jotta kaikki koronarajoitukset voidaan lopettaa.
+
+Voi kuitenkin olla, että hallitus jatkaa ravintoloiden koronarajoituksia huonon koronatilanteen takia. Hallitus neuvottelee asiasta keskiviikkona.
+
+## Tanskan koronatilanne
+
+![Mette Frederiksen.](https://img.img-cdn.yle.fi/crop_extract,w_4172,h_2347,x_1191,y_909/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6525575e6a132e7b72b/1584010290)
+
+Avaa kuvien katselu
+
+Pääministeri Mette Frederiksen kertoi, että koronapassi tulee taas käyttöön Tanskassa. Arkistokuva. Kuva: Liselotte Sabroe / EPA
+
+Myös Tanskan koronatilanne huononee. Maassa on paljon uusia koronatartuntoja.
+
+Huonon koronatilanteen takia Tanskassa otetaan taas käyttöön koronapassi.
+
+Tanska lopetti koronarajoitukset syyskuussa. Silloin myös koronapassin käyttö lopetettiin.
+
+## Eläkeläisten työnteko
+
+![Potilas ja hoitaja.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_131/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-860985615687adeb5f4/1633066214)
+
+Avaa kuvien katselu
+
+Esimerkiksi hoitoalalla eläkeläisistä on apua. Kuva: Toni Pitkänen / Yle
+
+Monet eläkeläiset haluavat tehdä työtä. Näin kertoo eläkelaitos Kevan kysely.
+
+Kysely kertoo, että noin 25 prosenttia eläkeläisistä on kiinnostunut tekemään työtä. Noin 10 prosenttia eläkeläisistä tekee jo työtä säännöllisesti.
+
+Monet eläkeläiset haluavat tehdä työtä rahan takia. Lisäksi työ antaa eläkeläiselle tuntee siitä, että hän on hyödyllinen.
+
+Ongelma monien eläkeläisten mielestä on se, että sopivaa työtä on vaikea löytää.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12181076)
+
+Avaa kuvien katselu
+
+Tiistaiaamu oli syksyn kylmin. Lapissa Kittilässä mitattiin 22,2 astetta pakkasta. Tiistaina sää on kuitenkin lämmennyt ja Suomen yli on liikkunut lumi- ja vesisateita.
+
+Keskiviikkona on lähes koko maassa plusasteita, etelässä jopa 10 astetta. Lännessä voi paistaa vähän aurinko, mutta muuten on pilvistä. Idässä ja etelässä sataa vähän vettä.

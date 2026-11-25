@@ -1,0 +1,77 @@
+# Tiistai 4.4.2023 (radio)
+
+Suomi on nyt Naton jäsen. Ruotsi iloitsee Suomen jäsenyyttä ja odottaa omaa jäsenyyttä. Hylätyt äänestysliput. Osa-aikatyö. Sää.
+
+## Suomi on Naton jäsen
+
+![Suomen, Naton ja Yhdysvaltain liput.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_218/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1095301642c1deabb63c/1680612903)
+
+Avaa kuvien katselu
+
+Suomen lippu on nyt yksi monista Naton päämajassa Brysselissä. Päämajan ulkopuolella liehuvat 31 Nato-maan liput. Kuva: Johanna Geron / AFP
+
+Suomi on nyt puolustusliitto Naton täysjäsen. Samalla Naton turvatakuut Suomelle tulivat voimaan.
+
+Ulkoministeri Pekka Haavisto sinetöi jäsenyyden, kun hän antoi liittymisasiakirjat USA:lle iltapäivällä Brysselissä. Asiakirjat otti vastaan ulkoministeri Antony Blinken Naton päämajassa.
+
+Sen jälkeen Blinken julisti Suomen Naton jäseneksi. Suomen lippu nostettiin Naton päämajan salkoon Maamme-laulun soidessa. Lippuja on siten tällä hetkellä 31.
+
+Myös tasavallan presidentti Sauli Niinistö ja puolustusministeri Antti Kaikkonen olivat paikalla seremoniassa.
+
+Naton pääsihteeri Jens Stoltenberg sanoi, että on kunnia toivottaa Suomi tervetulleeksi Natoon. Suomella on nyt maailman vahvimmat ystävät ja liittolaiset, hän sanoi.
+
+Venäjän hyökkäys Ukrainaan sai Suomen ja Ruotsin hakemaan Natoon. Suomi ja Ruotsi eivät tähän asti ole liittoutuneet sotilaallisesti.
+
+## Ruotsi ja Nato
+
+![Billström ja Haavisto.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106950463e21dde1acda/1675764952)
+
+Avaa kuvien katselu
+
+Ruotsin ulkoministeri Tobias Billström vieraili Helsingissä 6.–7. helmikuuta. Kuva: Silja Viitala / Yle
+
+Ruotsin ulkoministeri Tobias Billström sanoo, että Suomen pääsy Natoon ei ole Ruotsille katkera päivä. - Päinvastoin iloitsemme veljesmaamme Suomen puolesta, Billström sanoi. 
+
+Hän sanoi myös, että Suomesta tulee Natossa vahva ääni Ruotsin jäsenyyden puolesta. Suomi on jo tänään ratifioinut Ruotsin jäsenyyden. 
+
+Billström sanoi, että Ruotsi on tehnyt jo kaiken, mitä Nato sekä Turkki ovat edellyttäneet. Naton pääsihteeri sanoi, että hän on täysin varma Ruotsin pääsemisestä Natoon. Vain Unkarin ja Turkin ratifioinnit vielä puuttuvat.
+
+## Hylätyt äänet
+
+![Äänestyslippu tiputetaan vaaliuurnaan äänestyspaikalla Lempäälässä.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_3,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90524861ed7bef7bacc/1642953992)
+
+Avaa kuvien katselu
+
+Äänestäjän pitää kirjoittaa vain ehdokkaan numero avatun lipun ympyrän keskelle ilman mitään muita merkintöjä. Jos äänestäjä kirjoittaa äänestyslippuun väärän tai sotkuisen merkinnän, vaalivirkailijalta voi pyytää uuden äänestyslipun. Silloin pilalle mennyt lippu revitään vaalivirkailijan nähden. Kuva: Marjut Suomi / Yle
+
+Sunnuntain eduskuntavaaleissa hylättiin noin 16 000 ääntä, kertoo Tilastokeskus. Hylättyjä ääniä oli lähes 2 000 vähemmän kuin viime eduskuntavaaleissa neljä vuotta sitten. 
+
+Kaikkiaan sunnuntaina äänesti reilut 3 miljoonaa äänioikeutettua. 
+
+Äänestysprosentti oli liki 71,9.
+
+## Osa-aikatyö
+
+![Ruokaostokset kaupan kassahihnalla.](https://img.img-cdn.yle.fi/crop_extract,w_5166,h_2906,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-776205602fa20e1c271/1613734998)
+
+Avaa kuvien katselu
+
+Osa-aikatyötä tehdään paljon myös kaupan alalla. Kuva: Tiina Jutila / Yle
+
+Yhä useampi osa-aikainen teki viime vuonna osa-aikatyötä omasta halustaan, kertoo Tilastokeskus. Neljäsosa osa-aikaisista haluaa kokoaikatyötä. Edellisvuonna kokoaikatyötä halusi melkein kolmasosa.
+
+Viime vuonna osa-aikatyötä teki vajaa viidesosa kaikista palkansaajista. Naisia oli osa-aikaisista viime vuonna 24 prosenttia ja miehiä 12 prosenttia.
+
+Palkansaajien määrän perusteella osa-aikatyötä tehtiin eniten terveyspalveluissa ja sosiaalipalveluissa.
+
+## Sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690241)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Aurinkoinen sää jatkuu. Pohjoisessa pilvisyys on runsaampaa. Lämpötila on lähellä +5 astetta koko maassa. 
+
+Tuuli on heikkoa.

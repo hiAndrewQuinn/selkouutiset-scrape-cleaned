@@ -1,0 +1,77 @@
+# Keskiviikko 26.1.2022 (radio)
+
+Koronalääkkeet. Koronatartunnat. Taksiala. Välimeren lumimyrskyt. Sää.
+
+## Koronalääkkeet
+
+![Molnupiravir on Merck -lääkeyhtiön lanseeraama koronalääke. Molnupiravir pillereitä.](https://img.img-cdn.yle.fi/crop_extract,w_5499,h_3078,x_0,y_229/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-878174618bf31d6715c/1642524929)
+
+Avaa kuvien katselu
+
+Koronalääkkeistä voi olla tulevaisuudessa apua koronapotilaiden hoidossa. Kuva: Merck Sharp &amp; Dohme Corp
+
+Maailmalla kehitetään uusia koronalääkkeitä. Nyt kehitetään koronapillereitä, jotka otetaan suun kautta.
+
+Koronapillerien on tarkoitus auttaa erityisesti koronapotilaita, jotka kuuluvat riskiryhmiin eli joilla on esimerkiksi jokin vakava sairaus. Koronapillerien avulla he voivat välttää sairaalahoidon.
+
+Maailmalla testataan jo koronapillereitä. Suomessa ne otetaan käyttöön vasta sitten, kun ne ovat saaneet myyntiluvan Euroopassa.
+
+## Koronatartunnat
+
+![Koronatestin näytteenottajan ottaa testattavalta nenänäytettä drive-in testauspisteellä.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2800,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90130861dff74e5a3f8/1642069269)
+
+Avaa kuvien katselu
+
+Koronaluvussa ovat mukana vain koronatartunnat, jotka on löydetty virallisessa testissä. Kuva: Henrietta Hassinen / Yle
+
+Suomessa on todettu keskiviikkona noin 8000 uutta koronatartuntaa.
+
+Luvussa ovat mukana vain ne tartunnat, jotka on löydetty virallisessa testissä. Kotitesti ei riitä, että koronatartunta lasketaan mukaan viralliseen tartuntalukuun.
+
+Suomessa on todettu myös 42 uutta koronakuolemaa. Suomessa on kuollut yhteensä 1894 ihmistä koronan takia.
+
+## Taksiala
+
+![Taksi liikenteessä.](https://img.img-cdn.yle.fi/crop_extract,w_4957,h_2778,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-881924619896ceefbcf/1637390872)
+
+Avaa kuvien katselu
+
+Kuva: Henrietta Hassinen / Yle
+
+Korona-aika on ollut vaikea taksialalla. Arvioidaan, että jopa 30 prosenttia taksiyrittäjistä joutuu ehkä lopettamaan työt.
+
+Koronan takia takseilla on ollut vähemmän asiakkaita kuin ennen. Taksiliitto arvioi, että taksialalla tulot ovat vähentyneet korona-aikana enemmän kuin monella muulla alalla.
+
+Lisäksi taksiluvan ehdot kiristyvät. Laki määrää nyt, että taksiyrittäjän pitää suorittaa yrittäjäkoe.
+
+Jos taksiyrittäjä ei suorita yrittäjäkoetta kesään mennessä, hän menettää taksiluvan. Yli 4000 taksiyrittäjää ei ole vielä suorittanut yrittäjäkoetta.
+
+## Välimeren lumimyrskyt
+
+![Kuvassa harmaahiuksinen mies puhdistaa auton ikkunoita lumesta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12287849)
+
+Avaa kuvien katselu
+
+Istanbulissa satoi paljon lunta. Kuva: AOP
+
+Välimeren alueella on ollut kova lumimyrsky. Lunta on satanut paljon Kreikassa ja Turkissa.
+
+Lumisateen takia Turkissa suljettiin Istanbulin lentokenttä. Se on yksi Euroopan suurista lentokentistä.
+
+Kreikan pääkaupungissa Ateenassa monet autoilijat jäivät kiinni lumeen, ja sotilaat ovat kaivaneet heitä ulos autoista.
+
+Lumisade on haitannut Kreikassa ja Turkissa myös esimerkiksi ruokakuljetuksia.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12288370)
+
+Avaa kuvien katselu
+
+Torstaina etelässä ja lännessä on pilvistä. Idässä sataa lunta. Pohjoisessa aurinko voi välillä paistaa.
+
+Torstaina pohjoisessa on 10 astetta pakkasta ja etelässä lämpötila on lähellä nollaa astetta.
+
+Perjantaina pakkanen kiristyy pohjoisessa, jossa pakkasta on 10 ja 15 asteen välillä. Etelässä pakkasta on vain muutama aste.
+
+Loppuviikolla Suomeen tulee lumisateita. Lunta sataa eniten etelä- ja keskiosissa maata.

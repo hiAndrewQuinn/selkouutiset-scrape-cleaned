@@ -1,0 +1,83 @@
+# Tiistai 27.12.2022 (radio)
+
+Rautjärven kirkko. Vartijat asemilla. Kuluttajien luottamus. Suolistosairaudet. Hätäpuhelut. Sääennuste.
+
+## Rautjärven kirkon palo
+
+![Rautjärven kirkko tulessa.](https://img.img-cdn.yle.fi/crop_extract,w_4640,h_2610,x_0,y_4/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105293963a846df32f82/1671972888)
+
+Avaa kuvien katselu
+
+Rautjärven kirkko tuhoutui täysin tulipalossa joulupäivänä. Kuva: Kari Luumi
+
+Poliisi jatkaa tutkimusta Rautjärven kirkon palosta. Poliisi epäilee, että kirkon sytytti palaamaan noin 77-vuotias mies. 
+
+Rautjärven kirkko paloi joulupäivänä. Samana päivänä Rautjärvellä paloi myös omakotitalo. Omakotitalon luota löytyi kuollut mies. 
+
+Poliisi epäilee, että sama mies sytytti Rautjärven kirkon palon.
+
+## Vartijoiden toiminta Helsingin asemilla
+
+![Vartija Mari Parkkisen työvaate.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_322/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7407125faba9bd6e6ba/1605087150)
+
+Avaa kuvien katselu
+
+Vartijat ovat ehkä pahoinpidelleet joitain ihmisiä asemilla Helsingin seudulla. Kuva: Antro Valo / Yle
+
+Poliisi tutkii vartijoiden toimintaa rautatieasemilla Helsingin seudulla. 
+
+Joukko vartijoita on ehkä pahoinpidellyt joitain ihmisiä, joita vartijat kohtaavat työtehtävissä. 
+
+Epäily koskee ainakin 6 vartijaa, jotka ovat olleet töissä turvafirma Avarnissa. 
+
+## Kuluttajien luottamus talouteen
+
+![Sähkölaitoksen lasku ja käteistä rahaa.](https://img.img-cdn.yle.fi/crop_extract,w_4629,h_2591,x_0,y_96/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1031124636a54c294783/1671528338)
+
+Avaa kuvien katselu
+
+Suomalaisten luottamus talouteen huononee. Kuva: Matias Väänänen / Yle
+
+Kuluttajien luottamus talouteen on laskenut tosi matalalle. Näin kertoo Tilastokeskus. Kuluttajien luottamus on laskenut joulukuussa alemmas kuin koskaan aiemmin mittausaikana. Mittauksia on tehty vuodesta 1995 alkaen. 
+
+Erityisesti luottamus omaan talouteen on huonontunut. 38 prosenttia suomalaisista arvioi, että oman talouden tila on huonompi kuin vuosi sitten. 84 prosenttia suomalaisista arvioi, että Suomen talouden tilanne on huonompi kuin vuosi sitten. 
+
+53 prosenttia eli yli puolet suomalaisista uskoo, että Suomen taloustilanne huononee lisää.
+
+## Suolistosairaudet
+
+![Suolistosairaudet ja ruokavalio.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-1152954577da6a066c/1415019997)
+
+Avaa kuvien katselu
+
+Kaikkia suolistosairauksia ei voi parantaa, mutta oireita voidaan helpottaa hoidolla.
+
+Suolistosairaudet lisääntyvät Suomessa. Esimerkiksi 1980-luvulla paksusuolen tulehdusta sairasti noin 3000 suomalaista. Viime vuonna paksusuolen tulehdusta sairasti melkein 57 000 suomalaista. Näin kertoo Kelan tilasto. 
+
+Syy suolistosairauksien lisääntymiseen on ehkä yleinen hygienian parantuminen. Hygieniaa ei voi huonontaa, mutta suolistosairauksien tiedetään aiempaa enemmän. 
+
+Suolistosairauksien oireita voidaan helpottaa hoidolla.
+
+## Puhelut hätänumeroon jouluna
+
+![Yleinen hätänumero 112 teipattuna pelastuslaitoksne mustan kumiveneen kylkeen. ](https://img.img-cdn.yle.fi/crop_extract,w_4096,h_2304,x_5,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1004340631878e4c2173/1703666662)
+
+Avaa kuvien katselu
+
+Hätänumeroon soitettiin esimerkiksi siksi, että ihmisen yleistila heikkeni. Kuva: Heli Kaski / Yle
+
+Suomalaiset soittivat jouluna hätänumeroon hieman viime joulua enemmän. Hätänumeroon tuli jouluaattona ja joulupäivinä yhteensä yli 20 000 puhelua. 
+
+Puheluja tuli hätänumeroon yli 1000 enemmän kuin viime jouluna.
+
+Yleisimmät syyt soittaa hätänumeroon jouluna olivat ihmisen yleistilan heikentyminen, kaatuminen tai hengitysvaikeudet. 
+
+## Sää
+
+![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12686912)
+
+Avaa kuvien katselu
+
+Sää selkenee lännessä ja etelässä.
+
+Keskiviikkona lännessä ja etelässä aurinko pääsee paistamaan. Muualla on pilvistä ja paikoin sataa lunta tai jäätyvää vettä. Lämpötila on etelän noin 0 asteen ja pohjoisen -8 asteen välillä.

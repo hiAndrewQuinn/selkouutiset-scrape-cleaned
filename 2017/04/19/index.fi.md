@@ -1,0 +1,71 @@
+# Keskiviikko 19.4.2017 (radio)
+
+Suojelupoliisi ja armeija saavat pian lukea joidenkin ihmisten sähköposteja. Uusi taksilaki hyväksyttiin. Ensimmäinen suomalainen satelliitti lähti avaruuteen. 15-vuotiaat pojat ovat tosi tyytyväisiä elämään. Sormenjälki, kasvokuva ja silmän kuva ovat biometrisiä tunnisteita.
+
+## Lisää oikeuksia poliisille ja armeijalle
+
+![Sormi osoittaa kannettavan tietokoneen ruutua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9096347)
+
+Avaa kuvien katselu
+
+Poliisi saa oikeuden lukea sähköposteja. Kuva: Ralf Hirschberger / EPA
+
+Suomen suojelupoliisi ja armeija saavat pian lisää oikeuksia tiedusteluun. Se tarkoittaa esimerkiksi, että poliisi ja armeija saavat lukea joidenkin ihmisten sähköposteja ja muita nettiviestejä. Tiedusteluun täytyy pyytää lupa oikeusistuimelta joka kerta.
+
+Suojelupoliisi ja armeija haluavat lisää tiedusteluoikeuksia siksi, että ne haluavat estää terrori-iskuja Suomessa. Ne haluavat myös saada kiinni rikollisia, ja ne haluavat estää toisten valtioiden uhkaa Suomelle.
+
+## Takseja tulee lisää
+
+![Taksikuskit ruuhkauttivat liikenteen Helsingin Asema-aukiolla mielenosoituksessaan tiistaina 18. huhtikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9571542)
+
+Avaa kuvien katselu
+
+Taksikuskit vastustavat sitä, että takseja tulee paljon lisää. Kuva: Markku Ulander / Lehtikuva
+
+Eduskunta on hyväksynyt lain, joka lisää takseja ja niiden kilpailua. Taksilupia annetaan enemmän kuin ennen. Valtio ei enää määrää taksimatkan hintaa. Valtio voi kuitenkin estää sen, että taksimatkan hinta nousee ihan liikaa.       
+
+Taksiyrittäjät vastustavat sitä, että takseja tulee lisää. Uusi laki tulee voimaan runsaan vuoden päästä.
+
+## Opiskelijoiden satelliitti avaruuteen
+
+![Laatikonmuotoinen satelliitti, josta sojottaa antenneja. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9572133)
+
+Avaa kuvien katselu
+
+Aalto 2 -satelliitti. Kuva: Aalto-yliopisto
+
+Ensimmäinen suomalainen satelliitti on viety avaruuteen.
+
+Satelliitin nimi on Aalto 2, se painaa vain 2 kiloa ja sen tekivät opiskelijat. Satelliitti tutkii kaasua, jota on Maan ilmakehän ja avaruuden välissä.
+
+Satelliitti lensi avaruuteen raketissa, joka lähti tiistai-iltana Floridasta USA:sta. Aalto-yliopiston opiskelijat ovat tehneet muitakin satelliitteja, jotka viedään avaruuteen myöhemmin.
+
+## 15-vuotiaat pojat tyytyväisiä
+
+![Viitaniemen 9C –luokan oppilaat Jyväskylässä ovat tyytyväisiä elämäänsä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9571436)
+
+Avaa kuvien katselu
+
+Jyväskylän Viitaniemen koulun oppilaat ovat tyytyväisiä elämään. Kuva: Jaana Polamo / Yle
+
+15-vuotiaat pojat ovat Suomessa tyytyväisempiä kuin tytöt, kertoo kansainvälinen Pisa-tutkimus.
+
+Yli puolet pojista sanoi tutkimuksessa, että he ovat tosi tyytyväisiä elämään. Tytöistä noin 30 prosenttia oli tosi tyytyväisiä. Pojista vain 4 prosenttia ei ollut tyytyväisiä ja tytöistä 9 prosenttia.
+
+Vielä tyytyväisempiä nuoria löytyi Dominikaanisesta tasavallasta, Meksikosta, Costa Ricasta ja Kroatiasta.
+
+Tutkimuksessa oli mukana 6 000 suomalaista nuorta ja 72 maata.
+
+## Kone tunnistaa sinut kasvoista
+
+![Passiin tulee nyt haltijan sormenjälki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5002723)
+
+Avaa kuvien katselu
+
+Sormenjälki on biometrinen tunniste. Kuva: Arja Lento
+
+Sormenjälki, kasvokuva tai silmän kuva kertoo, kuka ihminen on.
+
+Esimerkiksi nettikaupassa voi todistaa henkilöllisyyden niin, että lähettää kännykällä oman kasvokuvan tai sormenjäljen eli biometrisen tunnisteen.
+
+Moni luulee, että biometrinen tunniste on varma ja turvallinen. Mutta tunnisteenkin voi varastaa ja sitä voi käyttää väärin. Silmän kuvasta voi esimerkiksi nähdä paljon enemmän tietoja, kuin ihminen haluaa antaa. Silmästä näkee esimerkiksi joitakin sairauksia.

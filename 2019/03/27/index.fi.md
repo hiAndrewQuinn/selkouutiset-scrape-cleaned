@@ -1,0 +1,67 @@
+# Keskiviikko 27.3.2019 (radio)
+
+Suomessa on tehty väkivaltaista lapsipornoa. Suomi lähettää apua Afrikan myrskyalueelle. Ylen toimitusjohtaja Merja Ylä-Anttila valitsee tänä vuonna Finlandia-kirjallisuuspalkinnon voittajan. Yle Oppimisen Digitreenit on koonnut digisanaston.
+
+## Vakava rikos
+
+![KRP:n tutkinnanjohtaja, rikoskomisario Sanna Springare Keskusrikospoliisi KRP:n tiedotustilaisuudessa Vantaalla KRP-talolla 27. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10709530)
+
+Avaa kuvien katselu
+
+Rikoskomisario Sanna Springare tutkii lapsipornorikosta. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Suomessa on tehty väkivaltaista lapsipornoa. Poliisi epäilee, että suomalaiset miehet ovat kuvanneet lapsipornoa ja jakaneet sitä netissä.
+
+Miehiä on 5. Osa jakoi lapsipornoa, osa myös raiskasi lapsia.
+
+Uhrit olivat 6-15-vuotiaita poikia. Rikokset tapahtuivat vuosien 2004 ja 2018 välillä.
+
+Suomalaiset miehet olivat osa kansainvälistä pornorinkiä. Ringin jäsenet ovat kuvanneet lapsipornoa eri maissa ja jakaneet sitä toisilleen. Osa videoista on ollut tosi väkivaltaisia.
+
+Suomen poliisi alkoi tutkia asiaa vuonna 2017, kun se sai tietää asiasta muiden maiden viranomaisilta.
+
+## Apua Afrikkaan
+
+![Kuva koulun jumppasalista, josta on tehty hätämajoitussuoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10709419)
+
+Avaa kuvien katselu
+
+Monet mosambikilaiset ovat menettäneet kodin. Heidän pitää nukkua koulun salissa. Kuva: Benjamin Suomela / Suomen Punainen Risti / IFRC / EPA
+
+Suomi lähettää apua Afrikan myrskyalueelle. Suomen Punainen Risti lähettää Mosambikiin esimerkiksi kenttäsairaalan osia.
+
+Kenttäsairaala on tilapäinen sairaala, mutta siellä on esimerkiksi leikkaussali, laboratorio ja röntgen.
+
+Kenttäsairaalan ylihoitaja Virpi Teinilä sanoo, että monet sairaudet voivat levitä myrskyalueella. Mosambikissa on jo sairastunut ihmisiä koleraan. Sairaudet leviävät, koska hygienia on huono myrskytuhojen keskellä.
+
+Myrsky iski Itä-Afrikkaan noin 2 viikkoa sitten. Myrskytuhot vaikuttavat jopa 2 miljoonan ihmisen elämään. Kuolleita on jo noin 800.
+
+## Finlandia-voittajan valinta
+
+![Merja Ylä-Anttilan potretti](https://img.img-cdn.yle.fi/crop_extract,w_4623,h_2600,x_376,y_124/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5388515c4b07dea2563/1698756769)
+
+Avaa kuvien katselu
+
+Toimitusjohtaja Merja Ylä-Anttila valitsee Finlandia-voittajan tänä vuonna.
+
+Ylen toimitusjohtaja Merja Ylä-Anttila valitsee tänä vuonna Finlandia-palkinnon voittajan. Finlandia-palkinto on Suomen tärkein kirjallisuuspalkinto.
+
+Ylä-Anttila valitsee voittajan 6 ehdokkaasta. Ryhmä kirjallisuusalan ihmisiä valitsee ehdokkaat.
+
+Finlandia-palkinnon voittaja kerrotaan marraskuun lopussa. Silloin palkitaan myös paras tietokirja ja paras lastenkirja.
+
+## Uusi digisanasto
+
+![nuori käyttää pädiä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10384644)
+
+Avaa kuvien katselu
+
+Digitaitoja tarvitaan. Kuva: AOP
+
+Digitaidot ovat nykyään tärkeitä. Monien on kuitenkin vaikea ymmärtää digitermejä. Tiedätkö sinä, mitä tarkoittaa esimerkiksi selain tai wifi?
+
+Yle Oppimisen Digitreenit on koonnut uuden digisanaston. Se selittää digitermejä selkeällä suomen kielellä.
+
+Sanastossa on yli 900 sanaa. Sanasto löytyy Yle Oppimisen nettisivuilta osoitteesta yle.fi/oppiminen.
+
+Tutustu digisanastoon

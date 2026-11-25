@@ -1,0 +1,81 @@
+# Maanantai 5.12.2022 (radio)
+
+## Suomen Nato-jäsenyys
+
+![Finlands och Natos flaggor.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_500/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10421866388837d94603/1669891021)
+
+Avaa kuvien katselu
+
+Suomen Nato-jäsenyys odottaa vielä 2 maan hyväksyntää. Kuva: PX_MEDIA
+
+Hallitus on antanut eduskunnalle esityksen Suomen Nato-jäsenyydestä. Se tarkoittaa, että eduskunta voi alkaa käsitellä päätöstä Suomen liittymisestä Natoon. 
+
+Suomen Nato-jäsenyys odottaa vielä Turkin ja Unkarin hyväksymistä. Muut 28 Nato-maata ovat jo hyväksyneet Suomen ja Ruotsin Nato-jäsenyyden.
+
+Eduskunta tarvitsee aikaa Nato-päätöksen käsittelyyn ennen vaalitaukoa, joka alkaa maaliskuussa. 
+
+## Muovipullot ja maitotölkit
+
+![Uusi, irtoamaton muovipullon korkki.](https://img.img-cdn.yle.fi/crop_extract,w_4161,h_2340,x_0,y_112/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10351196375e43f610a2/1670223529)
+
+Avaa kuvien katselu
+
+Uudenlainen muovipullo, jonka korkki ei irtoa pullosta. Kuva: Esa Syväkuru / Yle
+
+Muovipullot ja maitotölkit uudistuvat. Uusi EU:n määräys sanoo, että muovikorkin pitää olla kiinni pullossa koko käytön ajan. Tarkoitus on vähentää muoviroskan määrää ympäristössä. 
+
+Kun korkki on kiinni pullossa tai tölkissä, korkki tulee myös kierrätykseen pakkauksen mukana. Muovikorkki on yleinen muoviroska luonnossa. Siksi EU haluaa, että korkit saadaan talteen.
+
+Suomessa tulee käyttöön uusia pakkauksia jo ensi vuonna. EU-määräys sanoo, että uudet korkit pitää ottaa käyttöön viimeistään seuraavana vuonna eli vuonna 2024. 
+
+## Nuorten liikennekuolemat
+
+![Pahoin romuttunut kolariauto tien sivussa.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_254/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948237626bd35511cf6/1651233748)
+
+Avaa kuvien katselu
+
+Nuorten kuljettajien onnettomuuksien syy on usein kova vauhti. Kuva: Rami Moilanen / Yle
+
+Nuoria on kuollut liikenteessä tavallista enemmän. Liikenteessä on kuollut tänä vuonna jo melkein 40 nuorta, jotka ovat 17-24 vuotiaita. 
+
+Nuorten kuljettajien liikennekuolemien syy on usein kova ylinopeus. Nuoria kuljettajia kuolee onnettomuuksissa kaksi kertaa niin paljon kuin muun ikäisiä kuljettajia.
+
+## Veronpalautukset
+
+![Henkilö pitää kädessään euroseteleitä pankkiautomaatilla.](https://img.img-cdn.yle.fi/crop_extract,w_5200,h_2925,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1031165636a59177c096/1667914232)
+
+Avaa kuvien katselu
+
+Veronpalautuksia maksetaan nykyään eri aikaan eri ihmisille.  Kuva: LianeM / Alamy/All Over Press
+
+Verohallinto on maksanut maanantaina taas veronpalautuksia osalle suomalaisista. 
+
+Suurin osa suomalaisista sai veronpalautuksen elokuussa tai syyskuussa. Osa veronpalautuksista maksetaan nyt joulukuun alussa. 
+
+Ihmisten verotus valmistuu eri aikaan. Uusi järjestely on ollut käytössä nyt 4 vuotta. Aikaisemmin kaikki veronpalautukset maksettiin aina joulukuun alussa. 
+
+## Itsenäisyyspäivä
+
+![Lipputangon ympärillä on isoja ja pieniä koululaisia. Yksi isoista koululaisista nostaa Suomen lippua salkoon ja tuuli on lennättänyt lipun kauas tangosta.](https://img.img-cdn.yle.fi/crop_extract,w_3929,h_2211,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1043943638dd8e405e92/1670240673)
+
+Avaa kuvien katselu
+
+Monissa kouluissa itsenäisyyspäivän juhlaa vietettiin maanantaina tai viime viikolla. Kuva: Laura Valta / Yle
+
+Huomenna tiistaina Suomessa vietetään itsenäisyyspäivää. Suomi täyttää 105 vuotta. 
+
+Itsenäisyyspäivä on pyhäpäivä eli monet kaupat, firmat, pankit ja virastot ovat kiinni. Ruokakaupat ja kauppakeskukset ovat kuitenkin auki. 
+
+Itsenäisyyspäivää juhlitaan 2 koronavuoden jälkeen taas perinteisellä tavalla. Itsenäisyyspäivän tunnetuin juhla on Linna juhlat. Presidentti Sauli Niinistö on kutsunut presidentinlinnaan taas paljon vieraita. 
+
+Yle näyttää Linnan juhlat televisiossa ja Yle Areenassa. 
+
+## Sää
+
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12683582)
+
+Avaa kuvien katselu
+
+Koko maassa on pakkasta.
+
+Tiistaina sataa lunta monin paikoin. Lännessä on poutaa eli ei sada. Lämpötila on enimmäkseen 0 ja -10 asteen välillä.

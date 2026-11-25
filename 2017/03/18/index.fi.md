@@ -1,0 +1,61 @@
+# Lauantai 18.3.2017 (radio)
+
+Merja Kyllönen on vasemmistoliiton presidenttiehdokas. Ranskalaisella lentokentällä oli lauantaina ampumistapaus. Suomeen tulee turisteja enemmän kuin ennen. Vielä ei kannata vaihtaa kesärenkaita.
+
+## Vasemmistoliiton presidenttiehdokas
+
+![Merja Kyllönen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9435945)
+
+Avaa kuvien katselu
+
+Merja Kyllönen on tällä hetkellä edustajana Euroopan parlamentissa. Kuva: Nick Tulinen
+
+Vasemmistoliitto on valinnut puolueen presidenttiehdokkaan. Vasemmistoliiton presidenttiehdokas on Merja Kyllönen.
+
+Merja Kyllönen on 40-vuotias, mutta hän on ollut mukana politiikassa jo kauan. Kyllönen on ollut esimerkiksi Suomen liikenneministeri ja kansanedustaja Suomen parlamentissa. Nykyään hän on edustajana Euroopan parlamentissa.
+
+Vasemmistoliitto on kolmas puolue, joka on valinnut oman ehdokkaan presidentinvaaleihin. Keskusta ja vihreät ovat jo aikaisemmin kertoneet, kuka puolueen ehdokas on. Muut puolueet eivät ole vielä valinneet ehdokasta.
+
+Presidentinvaalit järjestetään ensi vuoden alussa eli tammikuussa 2018. Nykyinen presidentti Sauli Niinistö ei ole vielä kertonut, yrittääkö hän päästä presidentiksi vielä toisen kerran. Suomessa presidentin työ kestää 6 vuotta, ja yksi ihminen voidaan valita presidentiksi 2 kertaa.
+
+## Ranskan ampumistapaus
+
+![Ihmisiä ja hälytysajoneuvoja Orlyn lentokentän terminaalien ulkopuolella 18. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9518126)
+
+Avaa kuvien katselu
+
+Orlyn lentokenttä suljettiin ampumistapauksen takia. Kuva: Christophe Petit Tesson / EPA
+
+Ranskalaisella lentokentällä oli lauantaina ampumistapaus. Lentokentällä ammuttiin mies, koska hän yritti ottaa aseen sotilaalta. Mies kuoli. Kukaan muu ei kuollut tai loukkaantunut.
+
+Tämä tapahtui Orlyn lentokentällä lähellä Pariisia. Lentokenttä suljettiin joksikin aikaa, ja lentokentältä vietiin turvaan noin 3000 ihmistä. Poliisi tarkisti, että mies ei jättänyt lentokentälle pommia.
+
+Sama mies ampui poliisia aikaisin lauantaiaamuna Pariisissa ja pakeni sitten paikalta. Poliisi ei loukkaantunut pahasti.
+
+Mies oli poliisille tuttu. Hän on tehnyt rikoksia myös aikaisemmin.
+
+## Turistien määrä
+
+![Kiinalainen matkailija Napapiirillä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8573383)
+
+Avaa kuvien katselu
+
+Lappi kiinnostaa kiinalaisia turisteja. Kuva: Jarmo Honkanen / Yle
+
+Suomeen tulee turisteja enemmän kuin ennen. Suomessa yöpyi ulkomaalaisia turisteja tammikuussa melkein 20 prosenttia enemmän kuin vuosi sitten.
+
+Kiinalaisten turistien määrä on kasvanut eniten. Suurin ryhmä ovat kuitenkin venäläiset. Kiinalaiset ja venäläiset turistit käyvät paljon Lapissa.
+
+## Ei vielä kesärenkaita
+
+![Renkaiden vaihto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8827429)
+
+Avaa kuvien katselu
+
+Vielä ei ole aika vaihtaa kesärenkaita. Kuva: Antti Mikkola / Yle
+
+Lumi on sulanut Etelä-Suomesta jo melkein kokonaan.
+
+Meteorologi Seija Paasonen kuitenkin sanoo, että autoon ei kannata vielä vaihtaa kesärenkaita. Maaliskuussa on vielä talvisäätä. Vaikka tiet ovat päivällä kuivia, pakkanen voi tehdä tiet liukkaiksi yöllä.
+
+Pohjois-Suomessa lunta on vielä paljon. Esimerkiksi Lapissa Kilpisjärvellä lunta on vielä 125 senttimetriä.

@@ -1,0 +1,68 @@
+# Tiistai 2.8.2022
+
+Suomalaisten huolet. Lumo Energian asiakkaat. Al-Qaidan johtaja. Sää.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Suomalaisten huolet
+
+![Kerrostalossa on iso reikä. Etualalla heiluu sini keltainen Ukrainan lippu.](https://img.img-cdn.yle.fi/crop_extract,w_3840,h_2160,x_0,y_240/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96975962a859a361f90/1655200714)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat huolissaan sodasta. Rauha on suomalaisille tärkeä asia. Kuva: Genya Savilov / AFP
+
+Suomalaisten suuri huoli on sota. Noin 50 prosenttia suomalaisista on erittäin huolissaan sodasta ja sodan uhasta. Näin kertoo Ylen kysely.
+
+Sodasta on tullut suomalaisten suuri huoli sen jälkeen, kun Venäjä hyökkäsi Ukrainaan. Venäjän sota Ukrainassa alkoi tämän vuoden helmikuussa.
+
+Kun samanlainen kysely tehtiin edellisen kerran 2 vuotta sitten, vain 10 prosenttia suomalaisista oli erittäin huolissaan sodasta.
+
+Silloin suomalaiset olivat enemmän huolissaan esimerkiksi ilmastonmuutoksesta. Nyt huoli ilmastonmuutoksesta on pienentynyt.
+
+Kyselytutkimus kertoo myös, mitkä asiat ovat suomalaisille tärkeitä. Niitä ovat rauha, vapaus ja terveys.
+
+## Lumo Energian asiakkaat
+
+![Sähköllä lämpiävän talon lämmityspatterin säätönappi.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2806,x_0,y_527/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98161062cec5fb6cc62/1664200959)
+
+Avaa kuvien katselu
+
+Osa Lumon asiakkaista joutuu etsimään uuden sähkönmyyjän. Kuva: Henrietta Hassinen / Yle
+
+Sähkönmyyjä Lumo Energian asiakkaat ovat saaneet uutta tietoa. Lumo Energia kertoo, että joidenkin sen asiakkaiden pitää etsiä itselleen uusi sähkönmyyjä.
+
+Noin 4000 Lumon asiakasta tarvitsee uutta sähkönmyyjää. He jäävät myöhemmin ilman sähköä, jos eivät itse tee sähkösopimusta toisen sähkönmyyjän kanssa.
+
+Syynä on se, että Lumo Energia lopettaa toiminnan. Lumo yritti etsiä kaikille asiakkaille uuden sähkönmyyjän, mutta se ei onnistunut.
+
+Lumo päätti lopettaa toiminnan, koska tilanne sähkömarkkinoilla on vaikea.
+
+## Al-Qaidan johtaja
+
+![Osama bin Laden ja Ayman al-Zawahiri ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9569820)
+
+Avaa kuvien katselu
+
+Al-Qaidan johtajat Osama bin Laden ja Ayman al-Zawahiri. Kuva: Ausaf-lehti/EPA
+
+Terroristijärjestö al-Qaidan johtaja on kuollut. Al-Qaidan johtaja Ayman al-Zawahiri kuoli USA:n ilmaiskussa.
+
+USA teki ilmaiskun viikonloppuna Afganistanin pääkaupungissa Kabulissa. Presidentti Joe Biden sanoo, että isku tehtiin terrorismia vastaan.
+
+Ayman al-Zawahirista tuli al-Qaidan johtaja Osama bin Ladenin jälkeen vuonna 2011. Al-Zawahiri oli yksi New Yorkin terrori-iskun suunnittelijoista.
+
+Al-Qaida teki terrori-iskun New Yorkin World Trade Centeriin syyskuun 11. päivä vuonna 2001. Iskussa kuoli noin 3000 ihmistä.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12560569)
+
+Avaa kuvien katselu
+
+Keskiviikkona sää poutaantuu ja sateet loppuvat. Suuressa osassa maata on kuitenkin pilvistä.
+
+Lämpötila jää pilvisillä alueilla alle 20 asteen. Etelässä aurinko voi kuitenkin keskiviikkona paistaa ja lämpötila voi nousta yli 20 asteen.
+
+Torstaina sää lämpenee. Etelässä voi olla jopa hellettä eli lämpötila voi olla yli 25 astetta. Sade- ja ukkoskuurot yleistyvät torstaina.

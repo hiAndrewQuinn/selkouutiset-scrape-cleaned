@@ -1,0 +1,51 @@
+# Perjantai 28.10.2022 (radio)
+
+Ruotsin pääministeri. Psykoterapiakeskus Vastaamo. Polttomoottoriautot. Lentolippujen hinnat. Sää.
+
+## Ruotsin pääministeri
+
+![Ruotsin pääministeri Ulf Kristersson ja suomen pääministeri Sanna Marin.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_136/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1026775635bd0ed53d1d/1666961743)
+
+Avaa kuvien katselu
+
+Kuva: Vesa Moilanen / Lehtikuva
+
+Ruotsin pääministeri Ulf Kristersson on vieraillut Suomessa. Hän tapasi Helsingissä Suomen presidentti Sauli Niinistön ja pääministeri Sanna Marinin. He keskustelivat Suomen ja Ruotsin Nato-jäsenyydestä ja Ukrainasta. Pääministeri Kristersson kertoi, että hän tapaa Turkin pääministerin marraskuun alussa Turkissa. Turkki ei ole hyväksynyt Suomen ja Ruotsin Nato-jäsenyyttä. 
+
+## Psykoterapiakeskus Vastaamo
+
+![Vastaamon logo.](https://img.img-cdn.yle.fi/crop_extract,w_5195,h_2922,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7676376013b40835829/1611904070)
+
+Avaa kuvien katselu
+
+Kuva: Lehtikuva
+
+Keskusrikospoliisi epäilee suomalaismiestä Psykoterapiakeskus Vastaamon tietomurrosta. Epäilty on 25-vuotias suomalaismies, joka on ulkomailla. Miehen pidättämisestä on annettu eurooppalainen pidätysmääräys. Kaksi vuotta sitten kerrottiin, että Psykoterapiakeskus Vastaamosta oli varastettu yli 30 000 asiakkaan tiedot. 
+
+## Polttomoottoriautot
+
+![Dieselauton pakoputki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10136704)
+
+Avaa kuvien katselu
+
+Kuva: Ina Fassbender / AFP
+
+Euroopan parlamentti ja EU:n neuvosto ovat sopineet polttomoottoriautojen myyntikiellosta. Uusia polttomoottoriautoja ei saa myydä EU-alueella enää vuoden 2035 jälkeen. Polttomoottoriautot korvataan sähköautoilla. Kiellon tarkoituksena on vähentää autojen päästöjä ja hidastaa ilmaston lämpenemistä. 
+
+## Lentolippujen hinnat
+
+![Joensuun lentoasemalta lennetään kotimaassa vuoroliikennettä vain Helsinkiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12535388)
+
+Avaa kuvien katselu
+
+Kuva: Jarno Artika / Pohjois-Karjalan maakuntaliitto
+
+Lentolippujen hinnat nousevat lähivuosina. Asiantuntijat arvioivat, että yhden lentomatkan hinta nousee enintään muutama kymmenen euroa. Lentolippujen hinnat nousevat, koska lentokoneissa käytetään uusiutuvaa polttoainetta. Se on kalliimpaa kuin tavallinen polttoaine. Ihmiset myös lentävät paljon enemmän kuin koronapandemian aikana. 
+
+## Sää
+
+![Lauantain 29.11. sääkartta (iltapäivä).](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12669765)
+
+Avaa kuvien katselu
+
+Sää on huomenna sateinen maan etelä- ja keskiosassa. Pohjoisessa sataa räntää tai lunta ja ajokeli on huono. Tuuli on puuuskaista ja voimakasta. Sunnuntaina on vielä tuulista, mutta sää on aurinkoinen.

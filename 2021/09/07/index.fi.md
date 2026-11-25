@@ -1,0 +1,75 @@
+# Tiistai 7.9.2021 (radio)
+
+Hallituspuolueet neuvottelevat valtion budjetista. Oikeus on antanut tuomion miehelle, joka pahoinpiteli entistä pääministeriä. Rakennusjätteen kierrätystä halutaan parantaa. Valokuvanäyttely Meistä - About Us kertoo ihmisistä, jotka kuuluvat moneen vähemmistöön. Sää on keskiviikkona sateista.
+
+## Budjettineuvottelut
+
+![Rahaa salkussa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8443778)
+
+Avaa kuvien katselu
+
+Budjetti kertoo valtion rahankäytöstä. Kuva: Yle
+
+Hallituspuolueet neuvottelevat valtion budjetista. Budjetti kertoo, miten valtio kerää ja käyttää rahaa.
+
+Neuvottelut ovat jatkuneet koko tiistain. Arvioidaan, että hallituspuolueet ovat jo samaa mieltä monista valtion raha-asioista.
+
+Hallituspuolueiden pitää kuitenkin vielä sopia, miten Suomi vähentää ilmastopäästöjä. Toimet ilmastonmuutosta vastaan ovat tärkeä osa valtion rahankäyttöä.
+
+Hallituspuolueiden neuvottelut jatkuvat vielä keskiviikkona.
+
+## Sakot pahoinpitelijälle
+
+![Juha Sipilä käräjäoikeudessa.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_381/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8506636137115bd90df/1630998956)
+
+Avaa kuvien katselu
+
+Juha Sipilä on entinen pääministeri. Kuva: Markku Ulander / Lehtikuva
+
+Oikeus on antanut tuomion miehelle, joka pahoinpiteli kansanedustaja Juha Sipilää.
+
+Mies löi nyrkeillä Sipilää, joka on entinen pääministeri. Tämä tapahtui viime talvena Eduskuntatalon lähellä Helsingissä.
+
+Oikeuden mielestä väkivaltaa päättäjiä vastaan ei voida hyväksyä. Oikeus määräsi miehelle isot sakot.
+
+## Rakennusjätteen kierrätys
+
+![Sekalaista rakennusjätettä kuormalavalla](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_180/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6253785dfcac88958e2/1576841903)
+
+Avaa kuvien katselu
+
+Kuva: Niko Mannonen / Yle
+
+Rakennusjätteen kierrätystä halutaan parantaa.
+
+Tänä syksynä Vantaalla aloittaa uudenlainen rakennusjätteen kierrätyslaitos. Laitoksessa rakennusjätettä ei polteta tai murskata.
+
+Kierrätyslaitoksen robottikädet lajittelevat rakennusjätteen niin, että eri materiaalit voidaan kierrättää. Robottikädet toimivat tekoälyn avulla, ja ne ovat tarkempia kuin ihminen.
+
+Nyt laitosta testataan, ja viimeistään marraskuussa se toimii täydellä teholla. Silloin laitos voi käsitellä 30 000 kiloa rakennusjätettä tunnissa.
+
+## Meistä - About Us
+
+![Aleksandra Lemke](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11934029)
+
+Avaa kuvien katselu
+
+Aleksandra Lemken valokuvista on koottu näyttely. Kuva: Linda Tammela / Yle
+
+Valokuvanäyttely *Meistä - About Us* kiertää Suomea. Nyt näyttely on Jyväskylässä, monikulttuurikeskus Gloriassa.
+
+Näyttelyssä on valokuvia, jotka on ottanut Aleksandra Lemke. Lemken valokuvat kertovat ihmisistä, jotka kuuluvat moneen vähemmistöön.
+
+Valokuvien ihmiset ovat esimerkiksi homoseksuaaleja ja maahanmuuttajia. He ovat kohdanneet monenlaista syrjintää, mutta valokuvissa he ovat vahvoja ja ylpeitä omasta itsestä.
+
+Valokuvanäyttely nähdään myös Tampereella ja Helsingissä.
+
+## Keskiviikon sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12089714)
+
+Avaa kuvien katselu
+
+Sää on keskiviikkona sateista maan pohjois- ja keskiosassa. Etelässä voi tulla paikoin sadekuuroja.
+
+Maan etelä- ja länsiosassa on lämmintä, lämpötila on jopa 20 astetta. Muualla lämpötila on noin 10 ja 15 asteen välillä.

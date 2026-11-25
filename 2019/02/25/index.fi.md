@@ -1,0 +1,81 @@
+# Maanantai 25.2.2019 (radio)
+
+Olkiluodon uusi ydinvoimala voidaan ehkä pian ottaa käyttöön. USA suunnittelee tullimaksuja eurooppalaisille autoille. Presidentti Niinistölle tehdään lonkkaleikkaus. Lapsi sairastuu ADHD-häiriöön todennäköisemmin, jos äiti tupakoi raskausaikana. Uusi muumisarja alkaa.
+
+## Olkiluodon ydinvoimala
+
+![Teollisuuden Voima OYj:n Olkiluodon ydinvoimalaitosyksikkö OL 3:n valvomo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10661881)
+
+Avaa kuvien katselu
+
+Uuden ydinvoimalan valvomo. Kuva: Roni Rekomaa / Lehtikuva
+
+Olkiluodon uusi ydinvoimala eli atomivoimala voidaan ehkä pian ottaa käyttöön.
+
+Säteilyturvakeskus sanoo, että ydinvoimala on turvallinen. Säteilyturvakeskuksen tehtävä on valvoa, että ydinvoimalat ovat turvallisia.
+
+Tarvitaan vielä Suomen hallituksen lupa, ennen kuin ydinvoimala voidaan ottaa käyttöön.
+
+Uusi ydinvoimala valmistuu 10 vuotta myöhässä. Olkiluodossa on jo 2 ydinvoimalaa. Olkiluoto on saari Länsi-Suomessa.
+
+## USA:n tullisuunnitelmat
+
+![ Uudenkaupungin autotehtaan kokoonpanolinjan marriage point. Pisteessä yhdistetään auton kori ja voimansiirto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10654740)
+
+Avaa kuvien katselu
+
+Uudenkaupungin autotehtaalla valmistetaan autoja, jotka viedään USA:han. Kuva: Valmet Automotive
+
+USA suunnittelee tullimaksuja eurooppalaisille autoille. Jos USA määrää eurooppalaisille autoille isot tullimaksut, se vaikuttaa myös Suomen autoteollisuuteen.
+
+Uudenkaupungin autotehdas tekee autoja saksalaiselle autonvalmistajalle Daimlerille. Autot viedään pääasiassa USA:han.
+
+Jos autosta pitää maksaa iso tullimaksu, auton hinta voi nousta USA:ssa yli 5000 dollaria. Silloin autoja ostetaan vähemmän.
+
+Se voi tarkoittaa, että autojen valmistus myös Uudessakaupungissa vähenee, ja autoalalta voi kadota työpaikkoja.
+
+Siksi autoala toivoo, että USA ei määrää uusia tullimaksuja.
+
+## Presidentin leikkaus
+
+![Tasavallan presidentti Sauli Niinistö. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10611305)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Markku Ojala / EPA
+
+Presidentti Sauli Niinistö leikataan keskiviikkona. Niinistölle tehdään lonkkaleikkaus.
+
+Niinistö hoitaa presidentin tehtäviä normaalisti leikkauksesta huolimatta.
+
+Presidentin kanslia kertoi leikkauksesta maanantaina.
+
+## Raskausajan tupakointi
+
+![Nainen tupakoi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10232381)
+
+Avaa kuvien katselu
+
+Osa naisista tupakoi raskauden aikana. Kuva: Nella Nuora / Yle
+
+Raskausajan tupakoinnista on saatu uutta tietoa.
+
+Lapsi sairastuu ADHD-häiriöön todennäköisemmin, jos äiti tupakoi raskausaikana. ADHD-lapsen on vaikea keskittyä ja hän on yliaktiivinen.
+
+Turun yliopiston tutkimus kertoo, että nikotiini kasvattaa ADHD-häiriön mahdollisuutta. Nikotiinia tulee äidin ja sikiön vereen, kun äiti tupakoi raskausaikana.
+
+Noin 12 prosenttia suomalaisista äideistä tupakoi raskauden alussa. 7 prosenttia äideistä jatkaa tupakointia koko raskauden ajan.
+
+## Uusi muumisarja
+
+![Muumilaakson väki uudessa animaatiosarjassa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_258/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5312875c139240a5030/1544786724)
+
+Avaa kuvien katselu
+
+Muumilaakson väkeä. Kuva: Moomin Characters &amp; Gutsy Animations
+
+Uusi muumisarja alkaa televisiossa ja Yle Areenassa maanantaina. Sarja on suomalaisten ja brittien yhteistyötä.
+
+Muumilaakso-sarja on maksanut miljoonia. Sarja on kolmiulotteinen, eli yleisö voi nähdä muumit 3D-animaationa.
+
+Tekijät sanovat, että sarja kunnioittaa Tove Janssonin muumitarinoita.

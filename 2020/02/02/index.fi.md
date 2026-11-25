@@ -1,0 +1,65 @@
+# Sunnuntai 2.2.2020 (radio)
+
+Hallitus ei aio puuttua työantajien ja työntekijöiden neuvotteluihin. Kolme suomalaista on päässyt pois Kiinan Wuhanista. Monet vanhukset saavat aivovamman, kun he kaatuvat. Seitsemän veljestä on täyttänyt 150 vuotta.
+
+## Pääministerin haastattelutunti
+
+![Pääministeri Sanna Marin ennen Ylen Pääministerin haastattelutunnin lähetystä pääministerin virka-asunnolla Kesärannassa Helsingissä 2. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11188962)
+
+Avaa kuvien katselu
+
+Sanna Marin radio-ohjelmassa Pääministerin haastattelutunti. Kuva: Jussi Nukari / Lehtikuva
+
+Hallitus ei aio puuttua työantajien ja työntekijöiden neuvotteluihin. Näin sanoo pääministeri Sanna Marin.
+
+Monilla aloilla neuvotellaan nyt uudesta työehtosopimuksesta. Työehtosopimus määrää esimerkiksi palkoista.
+
+Pääministeri Marin ymmärtää, että esimerkiksi hoitajat haluavat enemmän palkkaa. Hallitus ei kuitenkaan halua vaikuttaa neuvotteluihin, Marin sanoo.
+
+Sanna Marin vastasi toimittajien kysymyksiin radio-ohjelmassa Pääministerin haastattelutunti. Marin oli ohjelmassa nyt ensimmäistä kertaa. Marinista tuli pääministeri joulukuussa.
+
+Pääministerin haastattelutunti lähetetään radiossa noin kerran kuukaudessa. Ensimmäinen Pääministerin haastattelutunti lähetettiin jo vuonna 1962.
+
+## Suomalaisia pois Wuhanista
+
+![Wuhanista avustettujen suomalaisten uskotaan olleen tässä koneessa joka saapui Istresin lentotukikohtaan sunnuntaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11189018)
+
+Avaa kuvien katselu
+
+Tämä lentokone toi eri maiden kansalaisia Wuhanista Ranskaan sunnuntaina. Kuva: Clement Mahoudeau / AFP
+
+Kolme suomalaista on päässyt pois Kiinan Wuhanista. He olivat mukana lennolla Wuhanista Ranskaan.
+
+Lennnolla oli 30 maan kansalaisia. Suomen viranomaiset avustivat suomalaiset lennolle mukaan.
+
+Eri maiden kansalaisia tuodaan nyt pois Wuhanista koronaviruksen takia. Uusi ja vaarallinen koronavirus alkoi levitä Wuhanista joulukuussa.
+
+## Vanhusten kaatumisonnettomuudet
+
+![Seniori nainen kuntosallilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11164579)
+
+Avaa kuvien katselu
+
+Hyvä kunto estää vanhuksen kaatumisia. Kuva: Vicky Kasala / AOP
+
+Monet vanhukset saavat aivovamman, kun he kaatuvat. Näin kertoo uusi tutkimus.
+
+Vuonna 2017 noin 2600 vanhusta sai sairaalahoitoa aivovamman takia kaatumisen jälkeen. Mukaan on laskettu vähintään 80-vuotiaat vanhukset.
+
+Vanhusten aivovammat lisääntyvät, koska vanhusten määrä kasvaa. Liikunta on paras tapa estää vanhusten kaatumisonnettomuuksia, sanovat tutkijat.
+
+## Seitsemän veljestä 150 vuotta
+
+![Seitsemän veljestä elokuva vuodelta 1939.](https://img.img-cdn.yle.fi/crop_extract,w_3072,h_1728,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6154315ddbc518cdcef/1574683984)
+
+Avaa kuvien katselu
+
+Seitsemästä veljeksestä on tehty myös elokuva.
+
+Aleksis Kiven kirja Seitsemän veljestä on täyttänyt sunnuntaina 150 vuotta. Seitsemän veljestä julkaistiin vuonna 1870. Se on ensimmäinen tärkeä suomenkielinen romaani.
+
+Seitsemän veljestä on suomalaisille rakas kirja. Veljekset tappelevat ja juopottelevat, ja heidän on vaikea oppia lukemaan. Kirjassa on voimaa, josta suomalaiset nykyään pitävät.
+
+Niin ei ollut 150 vuotta sitten. Silloin Seitsemän veljestä sai paljon kritiikkiä. Monet olivat sitä mieltä, että hyvä kirjailija kirjoittaa Suomen kansasta kauniisti.
+
+Myöhemmin suomalaiset ovat ymmärtäneet, kuinka hieno kirja Seitsemän veljestä on. Nykyään Aleksis Kivi on Suomen kansalliskirjailija.

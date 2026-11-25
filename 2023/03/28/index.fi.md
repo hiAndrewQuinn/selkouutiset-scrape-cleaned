@@ -1,0 +1,93 @@
+# Tiistai 28.3.2023 (radio)
+
+Unkari ratifioi Suomen Nato-jäsenyyden. Kotiäänestys yleistyy. Hoitovastikkeet nousevat. Poliisi tehovalvoi liikennettä. Siitepölykausi lähestyy. Sääennuste.
+
+## Unkari, Suomi ja Nato
+
+![Unkarin parlamentti koolla, sisäkuvaa.](https://img.img-cdn.yle.fi/crop_extract,w_4860,h_2733,x_0,y_27/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1086795641475496dd2a/1679062448)
+
+Avaa kuvien katselu
+
+Unkarin parlamentti äänesti lopulta selvin luvuin Suomen Nato-jäsenyyden hyväksymisestä. Äänestystä odotettiin monta kuukautta. Kuva: KCS Presse / MEGA
+
+Unkarin parlamentti on ratifioinut eli hyväksynyt Suomen Nato-jäsenyyden. 
+
+Parlamentti äänesti asiasta maanantai-iltana lyhyen keskustelun jälkeen. Suomen jäsenyyden puolesta äänesti 182 kansanedustajaa. Vain 6 edustajaa vastusti. 
+
+Suomi odottaa vielä ratifiointia Turkilta. Ruotsi odottaa edelleen ratifiointia Turkilta ja Unkarilta.
+
+## Kotiäänestys
+
+![Lahtelainen Sinikka Frang äänestää kotonaan eduskuntavaaleissa 2023. Vaalitoimitsija Niko Niemi pitää vaalilappuja käsissään.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10909286421811d43a27/1679917814)
+
+Avaa kuvien katselu
+
+Kotiäänestystä Lahdessa eduskuntavaaleissa 2023. Kuva: Markku Lähdetluoma / Yle
+
+Kotiäänestäjiä on entistä enemmän. 
+
+Esimerkiksi Lahdessa kotona äänestää näissä eduskuntavaaleissa yli 120 kaupunkilaista. Se on melkein puolet enemmän kuin viime kuntavaaleissa. 
+
+Kasvu johtuu osittain siitä, että kotihoidossa on entistä vanhempia asukkaita.
+
+Viime eduskuntavaaleissa vuonna 2019 kotiäänestyksiä oli yli 10 000.
+
+Kotiäänestäjän kanssa voi äänestää yhdessä myös omaishoitaja, joka asuu samassa taloudessa.
+
+Eduskuntavaalien ennakkoäänestys päättyi tänään tiistaina. Varsinainen vaalipäivä on sunnuntaina eli 2. huhtikuuta.
+
+## Taloyhtiöt
+
+![Kerrostaloja kaupunkiympäristössä.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_405/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-108623264131825dffec/1678973269)
+
+Avaa kuvien katselu
+
+Monen taloyhtiön yhtiökokouksessa joudutaan päättämään hoitovastikkeen tuntuvasta nostamisesta. Kuva: Anna Polo / Yle
+
+Taloyhtiöt aikovat nostaa hoitovastikkeita tänä vuonna tuntuvasti, kertoo Kiinteistöliiton kysely. 
+
+Taloyhtiöt arvioivat, että hoitovastikkeita korotetaan keskimäärin 8 prosenttia viime vuoteen verrattuna. 
+
+Eniten vastikkeet ovat nousemassa Helsingissä ja Turussa, melkein 10 prosenttia. Jyväskylässä korotus on ehkä 3 ja Lahdessa 4 prosenttia.
+
+## Tehovalvonta
+
+![Poliisi valvoo ja valistaa tielläliikkujia. Tämä autoilija sai Liikenneturvan esitteen ja hyvän päivän toivotukset. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8909244)
+
+Avaa kuvien katselu
+
+Poliisi valvoi tehostetusti liikennettä viikonloppuna. Kuva: Susanna Pekkarinen / Yle
+
+Poliisi valvoi rattijuopumuksia tehovalvonnassa viikonloppuna. 
+
+Valvonnassa tehtiin 36 000 puhalluskoetta ja 120 huumepikatestiä. Kiinni saatiin 122 kuljettajaa, joista 88:aa epäillään alkoholista ja 34:ää huumeista.
+
+Valvonnassa tavattiin 17 henkilöä, joista on annettu etsintäkuulutus.
+
+## Siitepöly
+
+![Mies niistää, taustalla varisevia norkkoja. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12370990)
+
+Avaa kuvien katselu
+
+Siitepölykausi alkaa Suomessa, kun kun tuuli tuo etelästä siitepölyä. Kuva: Jürgen Fälchle / Alamy / AOP
+
+Koivu, kuusi ja mänty kukkivat tänä vuonna kohtalaisesti, ennustaa Luonnonvarakeskus. 
+
+Koivulle allergisten kannattaa varautua tukalaan toukokuuhun, sillä koivun kukinta on runsasta pohjoisinta Suomea lukuun ottamatta.
+
+Koivun kukinta alkaa Etelä-Suomessa yleensä huhti-toukokuun vaihteessa. Koivun siitepölyä voi kuitenkin kulkeutua Suomeen jo huhtikuun puolivälissä etelästä.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690055)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Keskiviikkona lunta sataa yleisesti maan itä- ja pohjoisosassa. Etenkin idässä ja Kaakkois-Suomesta Itä-Lappiin lunta voi sataa yli 20 cm.
+
+Etelässä ja lännessä sää on keskiviikkona pääosin poutainen eli ei sada.
+
+Lämpötila on etelässä nollassa, pohjoisessa noin -5 astetta.

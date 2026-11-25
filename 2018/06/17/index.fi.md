@@ -1,0 +1,79 @@
+# Sunnuntai 17.6.2018 (radio)
+
+Kultarannassa keskustellaan kansainvälisen järjestelmän tulevaisuudesta. Itämeren miinat uhkaavat ruostua. Halla vei mansikankukkia. Etelä-Suomen uimavedet ovat tavallista lämpimämpiä. Juhannuksen sää voi olla koleaa.
+
+## Kultarannassa keskustellaan
+
+![Presidentti Sauli Niinistö ja YK:n pääsihteeri Antonio Guterres kättelevät YK:n uudistamista koskevan kokouksen yhteydessä New Yorkissa maanantaina 18. syyskuuta .](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9838710)
+
+Avaa kuvien katselu
+
+YK.n pääsihteeri Antonio Guterres ja presidentti Sauli Niinistö. Kuva: YK / Lehtikuva
+
+Presidentti Sauli Niinistön isännöimät Kultaranta-keskustelut ovat alkaneet. Aiheena on tänä vuonna kansainvälisen järjestelmän tulevaisuus.
+
+Päävieras on tällä kertaa YK:n pääsihteeri Antonio Guterres. Hän pitää keskustelujen päätöspuheen huomenna maanantaina.
+
+Kultaranta-keskusteluissa puhutaan ulko- ja turvallisuuspolitiikasta. Keskustelut pidetään presidentin kesäasunnolla Naantalissa.
+
+Tilaisuus järjestetään nyt 6. kertaa.
+
+## Itämeren miinat
+
+![Merimiinoja miinalaivan kannella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10250682)
+
+Avaa kuvien katselu
+
+Merimiinoja miinalaivan kannella. Kuva on otettu vuonna 1943. Kuva: Heinrich Hoffmann / AOP
+
+Itämeressä on yhä paljon miinoja, jotka ovat peräisin sota-ajalta.
+
+Tämän kuun alussa Suomen merialueelta raivattiin noin 90 merimiinaa. Saman verran miinoja raivattiin Viron merialueelta vähän aikaa sitten.
+
+Sodan aikana Suomenlahteen laskettiin ehkä noin 60 000 miinaa, kertoo Suomen ympäristökeskuksen meribiologi Anu Lastumäki. Lastumäki on mukana kansainvälisessä tutkimuksessa, jossa selvitetään miinojen vaikutusta Itämereen.
+
+Merenpohjan miinat ovat jo niin vanhoja, että ne uhkaavat ruostua rikki. Jos miina ruostuu rikki, siitä pääsee mereen TNT-räjähdysainetta. TNT on myrkyllistä.
+
+Tutkimuksessa selvitetään, miten miinoista karannut räjähdysaine saastuttaa merta ja sen eläimiä.
+
+## Halla vei mansikkaa
+
+![Mansikankukkia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10258552)
+
+Avaa kuvien katselu
+
+Mansikankukka. Kuva: Anja Hiltunen / Yle
+
+Osa kesän mansikkasadosta on tuhoutunut hallan takia.
+
+Alkukesän aikana on ollut useita hallaöitä eli lämpötila maanpinnassa on laskenut alle nollan. Halla on tuhonnut monin paikoin jopa 80 prosenttia mansikkasadosta.
+
+Tuhoja on tullut esimerkiksi Pohjois-Savossa Suonenjoella, jossa viljellään paljon mansikkaa. Esimerkiksi suositun Polka-mansikkalajikkeen kukat ovat tuhoutuneet joillakin tiloilla melkein kokonaan hallan takia.
+
+## Uimavesien lämpötila
+
+![Lapsi leikkii vedessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10203548)
+
+Avaa kuvien katselu
+
+Etelä-Suomen järvissä tarkenee leikkiä. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Etelä-Suomessa uimavedet ovat vähän lämpimämpiä kuin tavallisesti kesäkuun puolivälissä.
+
+Maan etelä- ja länsiosissa järvien pintaveden lämpötila on noin 15-19 astetta.
+
+Pohjoisessa järvivesi sen sijaan on vähän kylmempää kuin tavallisesti. Lapin järvissä pintaveden lämpötila on noin 8-14 astetta.
+
+## Juhannusviikolla sataa
+
+![Sataa vettä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9682826)
+
+Avaa kuvien katselu
+
+Ensi viikolla Suomeen tulee useita sadealueita.
+
+Sää muuttuu sateiseksi ja tuuliseksi.
+
+Ilmatieteen laitos kertoo, että ensi viikolla Suomeen tulee useita sadealueita. Ukkoskuuroja saadaan ainakin Pohjois- ja Itä-Suomessa. Tiistaina vettä sataa myös Etelä-Suomessa.
+
+Tällä hetkellä näyttää siltä, että myös juhannuksena on viileää ja sateista.

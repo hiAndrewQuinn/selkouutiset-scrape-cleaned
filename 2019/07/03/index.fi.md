@@ -1,0 +1,63 @@
+# Keskiviikko 3.7.2019 (radio)
+
+Vanhusten hoivakotien arki ei ole vielä parantunut. Kesäkuu oli ennätyslämmin. Suomalaiset haluavat lomalle etelän lämpöön. Suomen passilla on hyvä matkustaa.
+
+## Vanhusten hoivakodit
+
+![Hoitaja saattaa vanhusta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6722383)
+
+Avaa kuvien katselu
+
+Monissa hoivakodeissa on liian vähän työntekijöitä. Kuva: Yle
+
+Vanhusten hoivakotien arki ei ole juuri parantunut. Hoivakotien arki on pysynyt melko samanlaisena, vaikka alkuvuodesta puhuttiin paljon siitä, että vanhusten hoivan laatua pitää parantaa.
+
+Hoitajien ammattijärjestöt Tehy ja Super kertovat, että ongelmat ovat samoja kuin ennenkin. Hoivakodeissa on esimerkiksi liian vähän työntekijöitä.
+
+Perhe- ja peruspalveluministeri Krista Kiuru sanoo, että hoitajamitoitusta eli hoitajien vähimmäismäärää voidaan nostaa ehkä ensi syksyn aikana.
+
+## Ennätyslämmin kesäkuu
+
+![Lämpömittari nousi yli 35 asteen Ranskassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10852260)
+
+Avaa kuvien katselu
+
+Kesäkuu oli lämmin koko maailmassa Kuva: Damien Meyer / AFP
+
+Tämän vuoden kesäkuu oli ennätyslämmin. Se oli lämpimin kesäkuu koko mittaushistoriassa.
+
+Euroopan keskilämpötilat olivat kesäkuussa yli 2 astetta tavallista korkeammat, kertoo Euroopan keskipitkien sääennusteiden keskus. Se johtuu kuumasta ilmasta, jota tuli Saharan autiomaasta Etelä- ja Keski-Eurooppaan.
+
+Myös Suomessa sekä koko maailmassa kesäkuu oli kaikkien aikojen lämpimin kesäkuu.
+
+## Matkailu
+
+![Madlen Muscat ja hänen poikansa kanootin vieressä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10857894)
+
+Avaa kuvien katselu
+
+Maltalainen Madlen Muscat toi poikansa mökkilomalle Saimaan rannalle.  Kuva: Kalle Purhonen / Yle
+
+Suomeen on tullut nyt paljon turisteja, jotka pakenevat Euroopan helteitä. Esimerkiksi Saimaa-järven alueelle on tullut paljon turisteja Italiasta ja Saksasta.
+
+Euroopassa lämpötila nousi viime viikolla jopa yli 40 asteen, joten näitä turisteja ei Suomen viileä kesäsää tai sadekuurot harmita. Suomalaisia sen sijaan harmittaa.
+
+Matkatoimistot kertovat, että suomalaiset etsivät nyt itselleen innokkaasti lomamatkaa etelän lämpöön. Suomalaiset alkavat etsiä etelänmatkoja heti, kun sää muuttuu sateiseksi, matkatoimistot kertovat.
+
+Monet ovat jättäneet lomamatkan varaamisen viime tippaan. Ihmiset halusivat ensin odottaa ja katsoa, tuleeko Suomeen tänä kesänä samanlainen helleaalto kuin viime kesänä. Nyt kun näyttää siltä, että samanlaista hellettä ei tule, ihmiset haluavat lähteä lomamatkalle etelän aurinkorannoille.
+
+## Vaikutusvaltaiset passit
+
+![Suomen passi henkilön kädessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10831155)
+
+Avaa kuvien katselu
+
+Suomen passi. Kuva: Yle
+
+Suomen passi kuuluu maailman vaikutusvaltaisimpien passien joukkoon.
+
+Maailmanlaajuinen passivertailu kertoo, että Suomen passilla pääsee 187 maahan. Myös Etelä-Korean ja Saksan passeilla pääsee yhtä moneen maahan.
+
+Kaikkein vaikutusvaltaisimpia passeja ovat Japanin ja Singaporen passit. Niillä pääsee 189 maahan.
+
+Afganistanin passi on heikoin. Sillä pääsee ilman viisumia vain 25 maahan.

@@ -1,0 +1,79 @@
+# Tiistai 12.3.2019 (radio)
+
+Politiikka kiinnostaa nuoria. Äidinkielen yo-kokeessa oli teknisiä ongelmia. Kuluttaja-asiamies haluaa puhelinmyynnille tiukemmat säännöt. Ilmansaasteet aiheuttavat ennenaikaisia kuolemia. Pohjois-Korea äänesti parlamenttivaaleissa.
+
+## Nuorisobarometri
+
+![Eduskuntatalon edustalle järjestettiin suuri ilmastonmuutosta vastustava mielenosoitus 6. maaliskuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10684032)
+
+Avaa kuvien katselu
+
+Eduskuntatalon edustalla vastustettiin viime viikolla ilmastonmuutosta. Kuva: Vesa Moilanen / Lehtikuva
+
+Politiikka kiinnostaa nuoria enemmän kuin ennen. Uusi kysely kertoo, että politiikasta kiinnostuneita nuoria on nyt enemmän kuin kertaakaan aiemmin 20 vuoden aikana.
+
+Kyselyyn vastanneista nuorista 61 prosenttia ilmoitti, että on ainakin jonkin verran kiinnostunut politiikasta.
+
+Kysely kertoo myös, että nuorten epävarmuuden ja turvattomuuden kokemukset ovat lisääntyneet. Nuoria huolestuttavat etenkin ilmastonmuutos, maailmanpoliittinen tilanne ja terrorismi.
+
+Toisaalta nuorten usko omiin vaikutusmahdollisuuksiin on kasvanut.
+
+Nuorisobarometri mittaa 15-29-vuotiaiden nuorten arvoja ja asenteita.
+
+## Yo-kokeet
+
+![Sähköiset ylioppilaskirjoitukset](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8791076)
+
+Avaa kuvien katselu
+
+Tekniset ongelmat häiritsivät äidinkielen yo-kirjoituksia. Kuva: Markus Heikkilä / Yle
+
+Ylioppilaskokeessa on ollut teknisiä ongelmia eri puolilla maata.
+
+Yo-kokeet alkoivat tänään äidinkielen lukutaidon kokeella. 2 lukiossa kokeen tekeminen viivästyi yli 2 tunnilla teknisten ongelmien takia.
+
+Yo-tutkintolautakunta sanoo, että ongelmat otetaan huomio kokeen arvostelussa.
+
+Kevään yo-kokeisiin osallistuu noin 40 000 opiskelijaa.
+
+## Puhelinmyynti
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5284023"
+
+Avaa kuvien katselu
+
+Puhelinmyyjä soittaa yllättäen. Kuva: YLE Etelä-Karjala
+
+Kuluttaja-asiamies haluaa tiukentaa puhelinmyynnin sääntöjä.
+
+Kuluttaja-asiamies Katri Väänänen haluaa, että puhelinmyyntiin pitää saada kuluttajalta lupa etukäteen. Myös EU-komissio on ennakkosuostumuksen kannalla.
+
+Markkinointiin sähköpostitse tai tekstiviestillä vaaditaan jo nyt kuluttajan lupa.
+
+## Ilmansaasteet
+
+![Tehtaiden piippuja iltataivasta vasten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6879398)
+
+Avaa kuvien katselu
+
+Ilmansaasteet aiheuttavat ennanaikaisia kuolemantapauksia. Kuva: Ryan Tong / EPA
+
+Ilmansaasteet aiheuttavat enemmän kuolemantapauksia kuin aiemmin on luultu.
+
+Uusi tutkimus kertoo, että ilmansaasteet aiheuttavat Euroopassa joka vuosi noin 790 000 ennenaikaista kuolemaa. Koko maailmassa ilmansaasteet aiheuttavat 8,8 miljoonaa ennenaikaista kuolemaa.
+
+## Pohjois-Korean vaalit
+
+![Ihmisiä jonottamassa äänestykseen Pjonjangisssa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10681809)
+
+Avaa kuvien katselu
+
+Pohjoiskorealaiset jonottivat äänestämään sunnuntain parlamenttivaaleissa. Kuva: Ed Jones / AFP / Lehtikuva
+
+Pohjois-Koreassa on viime viikonloppuna pidetty parlamenttivaalit.
+
+Äänestysprosentti oli 99,99, kertoo Pohjois-Korean valtiollinen uutistoimisto KCNA.
+
+Vaaleissa oli noin 700 vaalipiiriä. Niistä jokaisessa oli 1 valtion hyväksymä ehdokas. Jokainen ehdokas sai 100 prosentin kannatuksen, KCNA kertoo.
+
+Pohjois-Korean parlamentti kokoontuu ehkä pari kertaa vuodessa. Parlamentti hyväksyy budjetin ja muita ennalta tehtyjä päätöksiä.

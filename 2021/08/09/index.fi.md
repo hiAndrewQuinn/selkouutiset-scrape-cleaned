@@ -1,0 +1,74 @@
+# Maanantai 9.8.2021
+
+Ilmastonmuutos. Etäopiskelu. 12–15-vuotiaiden koronarokotukset. Tampereen raitiovaunu. Sääennuste.
+
+TV:n selkouutisilla on kesätauko 20.8. asti.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Ilmastonmuutos voimistuu
+
+![Savupiippuja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5816374)
+
+Avaa kuvien katselu
+
+Hiilidioksidipäästöt aiheuttavat ilmastonmuutosta. Kuva: YLE
+
+Kansainvälinen ilmastopaneeli IPCC on julkaissut raportin ilmastonmuutoksen tilanteesta. Ilmastonmuutos voimistuu.
+
+Raportissa sanotaan, että ihmisten pitää vähentää hiilidioksidipäästöjä nopeasti. Jos päästöjä ei vähennetä, lämpötila maapallolla jatkaa nousua.
+
+Ilmastopaneelin raportissa sanotaan myös, että hiilidioksidia pitää kerätä pois ilmasta, että ilmastonmuutosta voidaan estää.
+
+## Opiskelijat väsyvät etäopetukseen
+
+![Lapin yliopiston luentosalissa opetetaan hallintotieteen johdantokurssia](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6204875dee3ca9a956a/1575894324)
+
+Avaa kuvien katselu
+
+Tavallisesti opiskelijoita on paljon luennolla. Etäopiskelusta puuttuu kavereiden tuki ja apu. Kuva: Annu Passoja
+
+Monet opiskelijat ovat väsyneet etäopiskeluun korkeakouluissa ja yliopistoissa. Etäopetus alkoi koronan takia viime vuoden keväällä.
+
+Monet opiskelijat sanovat, että he eivät jaksa enää etäopiskelua. Etäopiskelu on yksinäistä. Etäopiskelusta puuttuu kavereiden tuki.
+
+Jotkut opiskelijat sanovat, että he ehkä keskeyttävät opinnot, jos etäopiskelu jatkuu. Myös osa uusista opiskelijoista sanoo, että ei ehkä aloita opiskelua, jos etäopetus jatkuu.
+
+## Nuorten koronarokotukset
+
+![Koronarokotteita pahvisessa astiassa.](https://img.img-cdn.yle.fi/crop_extract,w_5515,h_3102,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7585735fed93e381752/1609405470)
+
+Avaa kuvien katselu
+
+12-15 -vuotiaiden koronarokotuset aloitettiin maanantaina. Kuva: Esa Huuhko / Yle
+
+Suomessa on aloitettu 12–15-vuotiaiden lasten koronarokotukset. Monet kunnat aloittivat rokotukset heti maanantaina.
+
+12–15-vuotiaiden rokotuksia voidaan antaa ajanvarauksella tai ilman ajanvarausta rokotuspisteissä. Myös kouluterveydenhoitajat voivat antaa rokotuksia kouluissa.
+
+Suomessa on raportoitu maanantaina 449 uutta koronavirustartuntaa. Se on vähemmän kuin monena päivänä viime viikolla.
+
+## Tampereella ajaa nyt raitiovaunu
+
+![Tampereen raitiovaunu.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_375/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-839839610fbb6ec980a/1628421392)
+
+Avaa kuvien katselu
+
+Tampereen uusi raitiovaunu.  Kuva: Clarissa Jäärni / Yle
+
+Tampereella on alkanut raitiovaunuliikenne. Ensimmäinen raitiovaunuvuoro ajoi maanantaina Hervannan kaupunginosasta Tampereen keskustaan.
+
+Raitiovaunu muuttaa paljon Tampereen joukkoliikennettä. Joidenkin bussien reitit ja numerot muuttuivat. Myös jotkin pysäkin muuttuivat.
+
+Tampereella on aluksi 2 raitiovaunulinjaa. Linjoja rakennetaan kuitenkin lisää. Raitiovaunulinjojen laajennus valmistuu Tampereelle vuonna 2024.
+
+## Sää
+
+![Tiistai-iltapäivän sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12052555)
+
+Avaa kuvien katselu
+
+Tiistaina tulee sateita ja sadekuuroja.
+
+Tiistaina tulee sateita ja sade- ja ukkoskuuroja suuressa osassa maata.  
+Eniten sateita tulee maan länsi- ja pohjoisosassa. Idässä on enemmän poutaa.  
+Lämpötila on 17 ja 22 asteen välillä.

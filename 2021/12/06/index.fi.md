@@ -1,0 +1,69 @@
+# Maanantai 6.12.2021 (radio)
+
+Itsenäisyyspäivä. Presidenttipari. Itsenäisyyspäivän juhlat köyhille. Mielenosoitukset. Pakkanen.
+
+## Itsenäisyyspäivä
+
+![Tasavallan presidentti Sauli Niinistö ja puoliso Jenni Haukio itsenäisyyspäivänä 6. joulukuuta 2021.](https://img.img-cdn.yle.fi/crop_extract,w_1280,h_720,x_0,y_166/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88875061ae3f7eb0354/1638814638)
+
+Avaa kuvien katselu
+
+Presidenttipari itsenäisyyspäivänä 2021. Kuva: Matti Porre / Tasavallan presidentin kanslia
+
+Suomessa on vietetty itsenäisyyspäivää.
+
+Koronan takia juhlat ovat olleet erilaiset kuin tavallisesti.
+
+Esimerkiksi Presidentinlinnan vastaanotto peruttiin. Tänä vuonna ei nähty, kuinka presidenttipari kättelee vieraita.
+
+Yle on kuitenkin tehnyt ohjelmaa Presidentinlinnasta. Ohjelmassa haastateltiin presidentti Sauli Niinistöä ja rouva Jenni Haukiota.
+
+Presidenttipari puhui esimerkiksi korona-ajasta. Presidentti sanoi, että olemme korona-aikana oppineet arvostamaan kaikkien työtä. Presidenttipari myös kiitti hoitoalan työntekijöitä.
+
+Ohjelmassa tavattiin myös veteraani ja lotta. He puolustivat Suomea sodassa yli 70 vuotta sitten.
+
+Veteraanit ovat entisiä sotilaita. Lotat ovat naisia, jotka auttoivat armeijaa esimerkiksi sairaanhoitajina ja keittäjinä.
+
+Suomalaiset kunnioittavat veteraaneja ja lottia, koska he auttoivat Suomea pysymään itsenäisenä.
+
+## Itsenäisyyspäivän tapahtumia
+
+![Ruokajono Heikki Hurstin itsenäisyyspäivän tapahtumassa. Useita kymmeniä ihmisiä odottamassa ruokaa.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_169/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88853161ade9d01fc57/1638788093)
+
+Avaa kuvien katselu
+
+Itsenäisyyden viettoa Helsingin Rautatientorilla. Kuva: Petteri Bülow / Yle
+
+Itsenäisyyspäivänä on järjestetty myös tapahtumia köyhille.
+
+Helsingissä perinteinen köyhien itsenäisyyspäivän tapahtuma oli tällä kertaa ulkona Rautatientorilla koronan takia.
+
+Köyhien itsenäisyyspäivän tapahtuma on perinne, jonka aloitti Veikko Hursti. Hän halusi, että kaikilla on mahdollisuus juhlia itsenäisyyspäivää.
+
+Tänä vuonna myös Tampereella järjestettiin itsenäisyyspäivän tapahtuma köyhille.
+
+## Kulkueet ja mielenosoitukset
+
+![Helsinki ilman natseja -mielenosoitus kulkee Töölön läpi itsenäisyyspäivänä.](https://img.img-cdn.yle.fi/crop_extract,w_1599,h_900,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88873661ae3538bd6b6/1638812505)
+
+Avaa kuvien katselu
+
+Yksi itsenäisyyspäivän mielenosoituksista Helsingissä. Kuva: Tuomas Rimpiläinen / Yle
+
+Itsenäisyyspäivänä on järjestetty myös ylioppilaiden kulkueita eri puolilla Suomea.
+
+Ylioppilaat kulkivat esimerkiksi Helsingin keskustassa. Presidentinlinnan luona ylioppilaat tervehtivät presidentti Sauli Niinistöä.
+
+Helsingissä on järjestetty myös mielenosoituskulkueita. Mielenosoittajat olivat aivan eri mieltä esimerkiksi maahanmuutosta.
+
+Poliisi on huolehtinut siitä, että eri mielenosoituskulkueet eivät ole kohdanneet toisiaan.
+
+## Pakkanen
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12218740)
+
+Avaa kuvien katselu
+
+Itsenäisyyspäivää on vietetty pakkassäässä. Pakkasta on ollut koko maassa 10 ja 30 asteen välillä. Itsenäisyyspäivän aamuna Lapin Muoniossa mitattiin 35 pakkasastetta.
+
+Pakkassää jatkuu lähipäivinä. Tiistaina ja keskiviikkona pakkasta on etelässä 10 ja 20 asteen välillä ja pohjoisessa 20 ja 30 asteen välillä.

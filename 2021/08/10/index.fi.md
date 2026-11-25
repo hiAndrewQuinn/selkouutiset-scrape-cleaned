@@ -1,0 +1,70 @@
+# Tiistai 10.8.2021
+
+Koulut. Lasten liikenneturvallisuus. Koronatartunnat. Viljasato. Sääennuste.
+
+## Koulut alkavat
+
+![Lähiopetusta luokkahuoneessa.](https://img.img-cdn.yle.fi/crop_extract,w_8192,h_4608,x_0,y_858/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-766096600f37938ab4d/1652168136)
+
+Avaa kuvien katselu
+
+Lapsia koulussa.  Kuva: Benjamin Suomela / Yle
+
+Peruskouluissa alkaa uusi lukuvuosi tällä viikolla.
+
+Suurin osa kouluista aloittaa syyslukukauden keskiviikkona. Esimerkiksi Helsingin seudulla useimpien koulujen lukuvuosi alkaa keskiviikkona.
+
+Joissakin kunnissa, esimerkiksi Tampereella, syyslukukausi alkoi jo tänään tiistaina. Muutamissa kouluissa syyslukukausi alkaa vasta ensi maanantaina.
+
+## Lasten liikenneturvallisuus parani
+
+![Kaksi lasta ylittämässä suojatietä. Taustalla ajaa auto. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12052896)
+
+Avaa kuvien katselu
+
+Liikenne on lapsille vaarallista. Kuva: Henrietta Hassinen / Yle
+
+Lasten liikenneturvallisuus on parantunut. 7-12-vuotiaita lapsia loukkaantuu liikenneonnettomuuksissa aiempaa vähemmän. Lasten loukkaantumiset ovat vähentyneet 50 prosenttia 10 vuodessa.
+
+Lasten liikenneopetusta on lisätty. Kaupungeissa nopeusrajoituksia on alennettu.
+
+Liikenneonnettomuuksissa loukkaantuu silti noin 150 alakouluikäistä lasta joka vuosi. Asiantuntijat sanovat, että kaupunkien liikenneturvallisuutta pitää parantaa lisää.
+
+## Koronatartunnat
+
+![Koeputkia hoitajan kädessä. ](https://img.img-cdn.yle.fi/crop_extract,w_4718,h_2654,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83394360f7d87833552/1627907432)
+
+Avaa kuvien katselu
+
+Koronatartunnat ovat lisääntyneet paljon 2 viikon aikana. Kuva: Kalle Niskala / Yle
+
+Tänään tiistaina Suomessa on todettu taas paljon uusia koronatartuntoja. Tartuntoja on 781. Eniten uusia tartuntoja on Etelä-Suomessa, mutta myös Pohjois-Suomessa tartunnat ovat lisääntyneet nopeasti.
+
+2 viikon aikana koronatartuntoja on ollut Suomessa noin 4 400 enemmän kuin edellisen 2 viikon aikana.
+
+Koronarokotukset etenevät. Noin 39 prosenttia suomalaisista on saanut jo molemmat 2 rokoteannosta. Ensimmäisen rokoteannoksen on saanut 67 prosenttia suomalaisista.
+
+## Viljojen kasvu etuajassa
+
+![Viljan puintia vehnäpellolla Liperissä syyskuun alussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11524181)
+
+Avaa kuvien katselu
+
+Leikkuupuimuri kerää eli pui viljaa pellolla. Kuva: Marja-Liisa Kämppi / Yle
+
+Lämmin ja kuiva kesä on aikaistanut viljojen puintia. Viljat ovat kasvaneet noin 2 viikko tavallista nopeammin monilla alueilla.
+
+Kuivuus on haitannut joidenkin viljojen kasvua. Eniten kuivuudesta ovat kärsineet ohra ja kaura. Niiden sato jää tavallista pienemmäksi.
+
+Ruis ja syysvehnä ovat kasvaneet hyvin. Ruissadosta ja syysvehnäsadosta tulee hyvä.
+
+## Sää
+
+![Sininen taivas aurinko ja pilviä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10786511)
+
+Avaa kuvien katselu
+
+Pilvisyys on keskiviikkona vaihtelevaa. Kuva: Esko Jämsä / AOP
+
+Pilvisyys on keskiviikkona vaihtelevaa eli välillä on pilviä, ja välillä paistaa aurinko. Iltapäivällä tulee sade- ja ukkoskuuroja maan länsi- ja pohjoisosassa.  
+Lämpötila on keskiviikkona 17 ja 23 asteen välillä.

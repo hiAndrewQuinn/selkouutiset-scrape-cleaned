@@ -1,0 +1,91 @@
+Formula 1
+
+# Sunnuntai 27.11.2016 (radio)
+
+Pääministeri sanoo, että hän ei ole vaikuttanut omien sukulaisten ja Terrafamen välisiin asioihin. Suomalaiset nukkuvat liian vähän. Nico Rosberg on Formula 1:n uusi maailmanmestari. Sunnuntaina on alkanut adventtiaika.
+
+![Nico Rosberg juhli maailmanmestaruutta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9319539)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+- 
+
+  
+
+  Pertti Seppä
+
+  
+
+  
+
+27.11.2016 19:00•Päivitetty 27.11.2016 19:19
+
+## Pääministeri
+
+![Juha Sipilä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9319340)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä. Kuva: Jarno Kuusinen / AOP
+
+Pääministeri Juha Sipilä on kommentoinut keskustelua Terrafame-firmasta. Sipilä sanoo, että hän ei ole vaikuttanut omien sukulaisten ja Terrafamen välisiin asioihin.
+
+Yle Uutiset kertoi perjantaina, että pääministerin sukulaisten firma on saanut tilauksen Terrafamelta. Terrafame on valtion firma. Se ostaa Sipilän sukulaisilta tavaraa 500 000 eurolla.
+
+Terrafamella on Talvivaarassa kaivos, josta saadaan metalleja. Kaivoksella on ollut ongelmia, ja se on saanut rahaa valtiolta. Viimeksi 2 viikkoa sitten hallitus päätti antaa Terrafamelle 100 miljoonaa euroa.
+
+Pääministeri Sipilä on nyt kysynyt oikeuskanslerilta, voiko hän osallistua Terrafamen asioista päättämiseen. Oikeuskanslerin tehtävä on valvoa, että viranomaiset noudattavat lakia.
+
+## Väsymys
+
+![Unettomuus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7534171)
+
+Avaa kuvien katselu
+
+Moni miettii yöllä työasioita. Kuva: Yle
+
+Suomalaiset nukkuvat liian vähän. Tieto on Ylen ja Helsingin yliopiston uudesta kyselystä. Kyselyyn on vastannut jo melkein 10 000 suomalaista.
+
+Kyselyn vastaajat nukkuvat keskimäärin 6,5 tuntia yössä. Unitutkija Markku Partinen sanoo, että se on liian vähän. Aikuisen on hyvä nukkua noin 8 tuntia yössä.
+
+Monet vastaajat kertovat, että he nukkuvat huonosti stressin takia. He miettivät työasioita myös yöllä. Yli 50 prosenttia kyselyn vastaajista sanoo, että on aamulla usein tai aina väsynyt.
+
+Unitutkija Partinen on huolissaan tilanteesta. Ihmisiltä vaaditaan työssä koko ajan enemmän, mutta he ovat jo valmiiksi väsyneitä.
+
+## Rosberg
+
+![Kärkinelikko saapuu maaliin Abu Dhabin GP:ssä 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9319532)
+
+Avaa kuvien katselu
+
+Rosbergin maailmanmestaruus varmistui Abu Dhabin kilpailussa. Kuva: AOP
+
+Nico Rosberg on formula-autokuskien uusi maailmanmestari. Rosbergin voitto varmistui Abu Dhabin autokilpailussa sunnuntaina.
+
+Nico Rosberg edustaa Saksaa, mutta myös suomalaiset ovat iloisia Rosbergin eli "Ruusbärin" voitosta. Nico Rosbergin isä on suomalainen formulakuski Keke Rosberg.
+
+![Nico ja Keke Rosberg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9318712)
+
+Avaa kuvien katselu
+
+Nico ja Keke Rosberg. Kuva: AOP
+
+Keke Rosberg oli ensimmäinen suomalainen Formula 1:n maailmanmestari. Hän voitti maailmanmestaruuden vuonna 1982.
+
+Nico Rosberg edustaa Saksaa, koska Rosbergin äiti on saksalainen. Nico Rosbergilla on kuitenkin myös Suomen kansalaisuus.
+
+## Adventtiaika
+
+![Kynttila+adventti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6602913)
+
+Avaa kuvien katselu
+
+Sunnuntaina syttyi ensimmäinen adventtikynttilä. Kuva: Yle
+
+Sunnuntaina on alkanut adventtiaika. Ensimmäinen adventtisunnuntai aloittaa kristittyjen valmistautumisen jouluun.
+
+Monet suomalaiset käyvät kirkossa ensimmäisenä adventtisunnuntaina. Vain jouluna kirkoissa käy enemmän ihmisiä.
+
+Adventtiaika kestää 4 viikkoa.

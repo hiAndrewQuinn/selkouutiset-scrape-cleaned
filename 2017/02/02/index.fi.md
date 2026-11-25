@@ -1,0 +1,63 @@
+# Torstai 2.2.2017 (radio)
+
+Suomessa melkein kymmenesosa ihmisistä on kokenut vihapuhetta. Uusia nettipoliiseja palkataan. Presidentti puhui valtiopäivien avajaisissa. Pelit ja kaverit ehkäisevät muistin heikkenemistä.
+
+## Monet Suomessa ovat kokeneet vihapuhetta
+
+![Viha](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5412689)
+
+Avaa kuvien katselu
+
+Yle teetti vihapuheesta tutkimuksen, jonka teki Tilastokeskus.  Kuva: Seppo Sarkkinen / Yle
+
+Yhdeksän (9) prosenttia Suomessa asuvista ihmisistä on kokenut vihapuhetta. Asiaa tutki Ylelle Taloustutkimus. Vihapuheen taustalla on usein etnisyys tai uskonto.
+
+Melkein kolmasosa vastaajista sanoo, että kiihottamisesta kansanryhmää vastaan pitää rangaista kovemmin kuin nyt.
+
+62 prosenttia vastaajista sanoo, että laki uskonrauhan rikkomisesta on tärkeä. Vastaus yllätti tutkijat, koska lakia on kuitenkin vaikea soveltaa. Siksi monet tutkijat ja poliitikot sanovat, että laki kannattaa poistaa. Niin on tehty esimerkiksi Ruotsissa ja Norjassa.
+
+Vihapuheen kohteena ovat varsinkin 15 - 24-vuotiaat. Vihapuhetta on paljon internetissä ja sosiaalisessa mediassa.
+
+## Uusia nettipoliiseja palkataan
+
+![Nettipoliisi, Facebook](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7704716)
+
+Avaa kuvien katselu
+
+Nettipoliisi toimii samalla tavalla kuin muutkin poliisit: antaa neuvoja, kehotuksia ja käskyjä. Kun tietty raja ylittyy, poliisi ottaa asian tutkintaan. Kuva: Heidi Hannukainen / Yle
+
+Poliisi ottaa töihin 25 uutta nettipoliisia. Tarkoitus on ehkäistä netin vihapuhetta ja rikollisuutta. Nettipoliisi voi esimerkiksi puuttua levottomaan keskusteluun Facebookissa. Poliisin läsnäolon netissä on tarkoitus hillitä siellä vihapuhetta ja räyhäämistä.
+
+Suomessa on 11 poliisilaitosta. Jokaiseen tulee vähintään yksi (1) nettipoliisi. Helsinkiin perustetaan oma  kymmenen (10) poliisin erikoisryhmä. Loput poliisinvirat tulevat Keskusrikospoliisiin.
+
+Lisäksi palkataan poliiseja tunnistamaan ja torjumaan ääriliikkeiden laitonta toimintaa.
+
+## Valtiopäivät on taas avattu
+
+![Presidentti Sauli Niinistö vuoden 2017 valtiopäivien avajaisissa Finlandia-talossa Helsingissä 2. helmikuuta 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9438423)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö vuoden 2017 valtiopäivien avajaisissa Finlandia-talossa Helsingissä 2. helmikuuta 2017. Kuva: Martti Kainulainen / Lehtikuva
+
+Torstaina on vietetty valtiopäivien avajaisia. Niitä vietetään aina, kun eduskunta aloittaa kevään istuntokauden.
+
+Tasavallan presidentti Sauli Niinistö puhui avajaisissa Finladia-talossa Helsingissä. Hän sanoi, että talouden ja muiden rajojen sulkeminen ei ole hyvä asia. Niinistö sanoi, että yksikään kansa ei selviä, jos se unohtaa muut. 
+
+Niinistö sanoi, että kotimaan politiikkaa hallitsee talous. Tärkeintä on, että demokratian kunnioittaminen säilyy, presidentti Niinistö sanoi. Tärkeää on myös, että Suomessa voidaan torjua eriarvoistumista, hän sanoi.
+
+## Pelaaminen ja kaverit ovat tärkeitä muistille
+
+![Vanhukset pelaavat bingoa hyvinvointiasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9437452)
+
+Avaa kuvien katselu
+
+Bingon ja muiden pelien pelaaminen sekä kaverit ehkäisevät muistisairauksia Kuva: Lauri Heino / Lehtikuva
+
+Pelit ja kaverit pitävät vanhan ihmisen muistin kunnossa. Tämä on todettu uudessa tutkimuksessa.
+
+Pelaaminen, tietokoneen käyttö ja käsityöt auttavat dementiaan. Ne myös hidastavat muita muistisairauksia.
+
+Jotkin muistisairaudet voivat periytyä. Myös tällaisten ihmisten riski sairastua pienenee, jos he käyttävät aivoja monipuolisesti ja ovat sosiaalisesti aktiivisia.
+
+Suomessa noin 120 000 ihmistä sairastaa jonkinasteista dementiaa.

@@ -1,0 +1,79 @@
+# Tiistai 9.10.2018 (radio)
+
+Suomen metsät ja ilmastonmuutos. Dieselautoilla ajamista rajoitetaan. Asevarikko tuhoutui Ukrainassa. Luonnossa leikkinen on hyvä asia. Keskiviikkona on lämmin päivä.
+
+## Suomen metsät ja ilmastonmuutos
+
+![Metsämaisema Juuassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10209914)
+
+Avaa kuvien katselu
+
+Metsä on hiilidioksidinielu. Metsä sitoo hiilidioksidipäästöjä. Kuva: Heikki Haapalainen / Yle
+
+Metsät ovat Suomelle tärkeä asia, koska Suomessa on paljon metsää. 
+
+Metsät ovat tärkeitä myös ilmastonmuutoksen torjumisessa. Metsät ovat hiilidioksidinieluja, koska ne sitovat hiilidioksidipäästöjä. 
+
+Tässä on Suomen kannalta ristiriita. 
+
+Suomen hallitus haluaa, että Suomessa suositaan biopolttoaineita. Biopolttoaineita tehdään puusta. 
+
+Suomen hallituksella on siis erilainen linja kuin mitä ilmastoasiantuntijat pitävät hyvänä. 
+
+## Berliini rajoittaa dieselautoilla ajamista
+
+![Kuvassa on dieselautojen ajokiellosta kertova liikennemerkki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10447567)
+
+Avaa kuvien katselu
+
+Tämä liikennemerkki kieltää Saksassa dieselautoilla ajamisen. Kuva: Felipe Trueba / EPA
+
+Saksassa on jo kuusi kaupunkia päättänyt, että niissä rajoitetaan dieselautoilla ajamista. 
+
+Berliinissä tulee vuodenvaihteessa voimaan kielto, joka koskee vanhoja dieselautoja.Niillä ei saa ajaa Berliinin keskustassa. 
+
+Vanhoista dieselautoista tulee liian paljon typpioksidipäästöjä. 
+
+## Asevarikko tuhoutui Ukrainassa
+
+![Ukrainalaisia sotilaita vartioimassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10448429)
+
+Avaa kuvien katselu
+
+Asevarastolla tapahtui räjähdyksiä ja tulipalo. Kuva: EPA-EFE
+
+Ukrainassa iso asevarikko on tuhoutunut. Asevarikolla tapahtui monta räjähdystä ja siellä syttyi tulipalo.
+
+Asevarikolla oli paljon erilaisia ampumatarvikkeita. 
+
+Tuhansia ihmisiä siirrettiin turvaan lähialueelta.Ukrainan puolustusministeriö epäilee, että joku on tehnyt tuhoa tahallaan. 
+
+## Luonnossa leikkiminen on lapsille hyväksi
+
+![Lapsia istutuslaatikoiden keskellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10446762)
+
+Avaa kuvien katselu
+
+Luonnossa leikkiminen on lapsille hyvä asia. Kuva: Sini Ojanperä / Yle
+
+Lapset pysyvät terveinä, kun he saavat leikkiä luonnossa. Näin sanovat suomalaiset tutkijat. 
+
+Mullassa ja metsämaassa on pieneliöitä, jotka parantavat lasten vastustuskykyä. Yhdessä grammassa metsämaata on noin 4 miljardia pieneliötä. 
+
+Tutkijat selvittävät vielä, voiko kosketus luontoon ja pieneliöihin estää esimerkiksi diabetesta tai reumaa. Lapset ovat hyvä tutkimuskohde, koska heillä elimistön puolustusjärjestelmä vasta kehittyy
+
+Tutkijat ovat sitä mieltä, että päiväkotien pihalla pitää olla luonnonmaata ja kuralätäköitä. Ja lasten pitää saada leikkiä niissä. 
+
+## Lähipäivinä on lämmintä
+
+![Aamuaurinko paistaa kellastuneisiin lehtiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10442172)
+
+Avaa kuvien katselu
+
+Lähipäivinä on lämmintä. Kuva: Matti Myller / Yle
+
+Huomenna keskiviikkona ja ylihuomenna torstaina sää on poutaista ja aurinkoista. 
+
+Etelä-Suomessa voi olla 15 astetta lämmintä. Pohjois-Suomessa on kylmempää. 
+
+Aamulla voi olla paljon sumua.

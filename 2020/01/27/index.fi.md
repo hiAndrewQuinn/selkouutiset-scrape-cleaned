@@ -1,0 +1,75 @@
+# Maanantai 27.1.2020 (radio)
+
+Metsäteollisuuden lakko alkoi. Monet kiinalaiset peruvat loman Lapissa. Suomessa tehdään vuosittain tuhansia ennakollisia lastensuojeluilmoituksia. Tipaton tammikuu on hyväksi terveydelle. Ateneumin Schjerfbeck-näyttelyssä kävi paljon ihmisiä.
+
+## Metsäteollisuuden lakot
+
+![Lakkovahti UPM Kaukaan tehtaanportilla Lappeenrannassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11176854)
+
+Avaa kuvien katselu
+
+Lakkovahti UPM:n Kaukaan tehtaan portilla Lappeenrannassa. Kuva: Lauri Heino / Lehtikuva
+
+Metsäteollisuudessa on alkanut iso lakko. Lakossa on yhteensä noin 17 000 työntekijää.
+
+Lakon on määrä kestää 3 viikkoa. Kymmenet paperi- ja sellutehtaat ovat kiinni lakon ajan.
+
+Lakko johtuu siitä, että työnantajat ja työntekijät eivät ole onnistuneet sopimaan työajasta ja palkasta. Neuvottelut jatkuvat taas huomenna.
+
+## Kiinalaisten Lapin lomat
+
+![Aasialaisturisteja ei häiritse väentungos turistikohteissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10648286)
+
+Avaa kuvien katselu
+
+Kiinalaisturistit vierailulla Joulupukin pajakylässä napapiirillä. Kuva: Vesa Vaarama / Yle
+
+Monet kiinalaiset ovat peruneet tämän talven lomamatkan Suomen Lappiin. Noin tuhat kiinalaista peruu matkan tai siirtää sen toiseen ajankohtaan, esimerkiksi ensi kesään.
+
+Peruminen johtuu siitä, että Kiina on kieltänyt ryhmämatkat ulkomaille. Kiellolla Kiina haluaa estää koronaviruksen leviämisen.
+
+Esimerkiksi Rovaniemellä helmikuu on kiinalaisten vilkkain matkailukuukausi. Kaupungissa vierailee tuolloin jopa 10 000 kiinalaisturistia.
+
+Kiinalaiset ovat Lapille tärkeä matkailijaryhmä. He käyttävät paljon enemmän rahaa kuin muut turistit.
+
+## Ennakollinen lastensuojelu
+
+![vauvan jalat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9946279)
+
+Avaa kuvien katselu
+
+Joskus lapsi tarvitsee lastensuojelua heti syntymän jälkeen. Kuva: AOP
+
+Suomessa tehdään joka vuosi tuhansia ennakollisia lastensuojeluilmoituksia.
+
+Ennakollinen lastensuojeluilmoitus tehdään jo ennen lapsen syntymää. Se tehdään, jos epäillään, että lapsi tarvitsee lastensuojelua heti syntymän jälkeen.
+
+Ilmoituksen syy on usein äidin tai molempien vanhempien päihteiden käyttö tai mielenterveysongelmat. Ilmoituksen tekee tavallisesti viranomainen kuten esimerkiksi poliisi tai neuvola.
+
+## Tipaton tammikuu
+
+![Alkoholiton drinkki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5645703)
+
+Avaa kuvien katselu
+
+Tipattoman tammikuun aikana voi tehdä cocktailin vaikka mehusta.  Kuva: YLE Etelä-Karjala
+
+Moni suomalainen on viettää nyt tipatonta tammikuuta. Tipaton tammikuu tarkoittaa sitä, että tammikuun aikana ei juoda yhtään alkoholia.
+
+Tipatonta tammikuuta viettää joka vuosi noin 13 prosenttia niistä suomalaisista, jotka muutoin käyttävät alkoholia.
+
+Tipattomasta tammikuusta voi olla monenlaista hyötyä, sanoo Terveyden ja hyvinvoinninlaitoksen tutkimusprofessori Pia Mäkelä. Esimerkiksi verenpaine voi laskea, unen laatu parantua ja mieli virkistyä. Tipaton tammikuu voi tehdä hyvää myös ihmissuhteille ja rahaakin sen aikana voi säästyä.
+
+## Ateneumin Schjerfbeck-näyttely
+
+![Helene Schjerfbeck ateneumissa](https://img.img-cdn.yle.fi/crop_extract,w_3144,h_1769,x_0,y_688/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6271085e0b3abc900a7/1577794359)
+
+Avaa kuvien katselu
+
+Helene Schjerfbeckin taide kiinnostaa suomalaisia. Kuva: Mikko Ahmajärvi / Yle
+
+Helene Schjerfbeckin näyttely Ateneumin taidemuseossa Helsingissä on ollut tosi suosittu.
+
+Näyttely avattiin viime marraskuussa ja se päättyi eilen.
+
+Näyttelyssä kävi keskimäärin yli 3000 ihmistä päivässä. Se on uusi ennätys.

@@ -1,0 +1,79 @@
+# Keskiviikko 15.8.2018 (radio)
+
+Tänä vuonna on ollut paljon metsäpaloja. Ruotsin poliisi etsii autojen tuhopolttajia. Italiassa raivataan yhä romahtanutta siltaa. Kesä oli hyvä perhosille. Pohjoisessa on mitattu ensimmäiset yöpakkaset.
+
+## Metsäpaloja on ollut paljon
+
+![Puu palaa juuresta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10313857)
+
+Avaa kuvien katselu
+
+Pyhärannassa Varsinais-Suomessa paloi metsää heinäkuussa. Kuva: Roni Lehti / Lehtikuva
+
+Suomessa on ollut tänä vuonna metsäpaloja enemmän kuin tavallisesti.
+
+Metsäpaloja on ollut tänä vuonna jo noin 3300. Tavallisesti metsäpaloja on koko vuoden aikana vähän yli 2000, kertoo pelastusylitarkastaja Rami Ruuska sisäministeriöstä.
+
+Ruotsissa on tänä vuonna ollut monta suurpaloa, joita on ollut vaikea sammuttaa. Ruotsissa metsää on palanut kesän aikana noin 20 000 hehtaaria.
+
+Myös Suomessa metsäpalot ovat tänä vuonna olleet keskimääräistä isompia. Ne eivät kuitenkaan ole olleet yhtä isoja ja vaikeita kuin Ruotsissa, Rami Ruuska sanoo.
+
+## Ruotsin poliisi etsii tuhopolttajia
+
+![Palaneita autoja parkkipaikalla Göteborgissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10353811)
+
+Avaa kuvien katselu
+
+Ruotsissa poltettiin maanantai-iltana melkein sata autoa. Kuva: Adam Ihse / EPA
+
+Ruotsin poliisi on ottanut kiinni kaksi ihmistä, joita epäillään autotuhopoltoista. Poliisi myös kertoo, että Turkin rajapoliisi on ottanut kiinni yhden ihmisen, jonka Ruotsin poliisi on etsintäkuuluttanut tuhopoltoista.
+
+Ruotsissa poltettiin toissayönä melkein sata autoa. Viime yönä neljä autoa sytytettiin tuleen.
+
+Yhdellä palopaikalla kuvattiin video, jossa tulipaloja sytyttävät nuoret, joilla on naamiot ja tummat vaatteet.
+
+## Italiassa raivataan romahtanutta siltaa
+
+![Romahtanut moottoritiesilta Genovassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10353320)
+
+Avaa kuvien katselu
+
+Romahtanut moottoritiesilta Genovassa. Kuva: Valery Hache / AFP
+
+Italiassa Genovassa jatketaan eilisen siltaromahduksen raivaustöitä.
+
+Kuolleita on löytynyt jo 39, kertoo Italian sisäministeriö.
+
+Moottoritien silta romahti eilen noin sadan metrin matkalta. Yli 30 autoa putosi melkein 50 metrin korkeudesta.
+
+## Perhoskannat vahvistuivat
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5198070"
+
+Avaa kuvien katselu
+
+Sinisiipi. Kuva: Erkki Suonio / YLE
+
+Tämä kesä on ollut hyvä perhosille. Suomen ympäristökeskus kertoo, että päiväperhosia oli enemmän kuin edellisvuosina.
+
+Tänä kesänä oli paljon esimerkiksi sinisiipiä ja hopeatäpliä. Myös esimerkiksi nokkosperhosia, ohdakeperhosia ja keisarinviittoja on ollut enemmän kuin viime kesänä.
+
+Pitkän helleaallon takia päiväperhoset kuoriutuivat jopa 3 viikkoa etuajassa.
+
+## Pohjoisessa oli jo pakkasyö
+
+![Perjantain, lauantain ja sunnuntain sääennustegrafiikkaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10353711)
+
+Avaa kuvien katselu
+
+Kesä jatkuu vielä. Kuva: Yle Sää
+
+Kesä taitaa vaihtua vähitellen syksyksi, sillä ensimmäiset yöpakkaset on mitattu.
+
+Viime yönä mitattiin pakkasta yhteensä 6 eri mittausasemalla Pohjois-Suomessa. Miinusasteita mitattiin esimerkiksi Taivalkoskella, Ylitorniossa ja Vaalassa.
+
+Ilmatieteen laitos sanoo, että ensimmäiset yöpakkaset tulivat nyt vähän aikaisemmin kuin tavallisesti.
+
+Myös ensi yönä voi olla pakkasta Pohjois-Pohjanmaalla ja Kainuussa.
+
+Meteorologi Marjo Hoikkanen kuitenkin sanoo, että kesä jatkuu yhä. Ja sääkin lämpenee taas loppuviikosta.

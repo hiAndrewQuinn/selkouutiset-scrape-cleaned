@@ -1,0 +1,77 @@
+# Sunnuntai 10.6.2018 (radio)
+
+Kokoomuksen ja keskustan puoluekokouksissa on valittu varapuheenjohtajat. Pohjois-Korean johtaja Kim Jong-un on saapunut Singaporeen. Suomen armeija kaipaa e-urheilun huippuosaajia. Suomessa on järjestetty ompelulanit. Tiekirkot ovat taas auki.
+
+## Kokoomus ja keskusta valitsivat varapuheenjohtajat
+
+![Petteri Orpo ja Jan Vapaavuori poistuvat yhdessä lehdistötilaisuudesta. kokoomuksen puoluekokouksessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10246190)
+
+Avaa kuvien katselu
+
+Puheenjohtaja Petteri Orpo ja Helsingin pormestari Jan Vapaavuori kokoomuksen puoluekokouksessa. Kuva: Jussi Nukari / Lehtikuva
+
+Kokoomuksen ja keskustan puoluekokouksissa on valittu varapuheenjohtajat.
+
+Ministerit Antti Häkkänen ja Sanni Grahn-Laasonen jatkavat kokoomuksen varapuheenjohtajina. Kansanedustaja Mari-Leena Talvitie valittiin kolmanneksi varapuheenjohtajaksi.
+
+Keskustan varapuheenjohtajat ovat kansanedustajat Hannakaisa Heikkinen, Katri Kulmuni ja Juha Rehula. Keskustan puoluesihteeriksi valittiin erityisavustaja Riikka Pirkkalainen.
+
+## KIm Jong-un ja Donald Trump ovat saapuneet Singaporeen
+
+![Tv-kuvaaja tapaamispaikalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10246705)
+
+Avaa kuvien katselu
+
+Tv-kuvaajia St Regis -hotellin edustalla Singaporessa 9. kesäkuuta. Kim Jong-un ja seurue majoittuvat St Regisissä. Kuva: Wallace Woon / EPA
+
+USA:n presidentti Donald Trump ja Pohjois-Korean johtaja Kim Jong-un ovat saapuneet Singaporeen. Kim ja Trump tapaavat tiistaina Singaporessa.
+
+Se on historiallinen tapaaminen. Tapaamisessa on tarkoitus keskustella siitä, luopuuko Pohjois-Korea ydinaseista.
+
+Singapore Kaakkois-Aasiassa on tapaamispaikka, koska maalla on hyvät suhteet USA:n kanssa. Lisäksi Singaporella ja Pohjois-Korealla on diplomaattisuhteet.
+
+## Armeija ei löytänyt tarpeeksi hyviä e-urheilijoita
+
+![ESL-turnaus Hampurissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10063108)
+
+Avaa kuvien katselu
+
+Maailmalla e-urheilijat täyttävät kokonaisia stadioneita. Kuva: AOP
+
+Suomen armeija kaipaa e-urheilun huippuosaajia. Elektronisessa urheilussa pelataan videopelejä kilpailumielessä. Pelejä ovat esimerkiksi strategiapelit ja ampumispelit.
+
+E-urheilu on Suomessa nuorten miesten jo toiseksi suosituin urheiluharrastus. Vain jääkiekko on suositumpi. Ammattilaisia on Suomessa noin 40.
+
+Puolustusvoimien Urheilukoulu etsi e-urheilun huippuja, mutta kukaan hakijoista ei ollut tarpeeksi hyvä. Armeija tarvitsee e-urheilijoita, koska esimerkiksi simulaattorikoulutusta on koko ajan enemmän.
+
+E-urheilu tähtää myös näytöslajiksi Pariisin olympialaisiin vuonna 2024.
+
+## Ompelulanit kokosivat hyvin väkeä
+
+![Ompelutapahtuma.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10246732)
+
+Avaa kuvien katselu
+
+Espoolainen Pasi Heiskanen ehti tehdä ompelulaneilla ainakin pussukan sähkökirjalle sekä paidan, joka hänellä on kuvassa päällä. Kuva: Toni Määttä / Yle
+
+Suomessa on järjestetty ompelulanit Ommel-festivaalissa.
+
+Yleensä laneissa eli lähiverkkotapahtumassa kokoonnutaan harrastamaan yhdessä omien tietokoneiden kanssa. Ompelulaneissa ihmiset kokoontuivat ompelemaan yhdessä. Kaikki toivat tapahtumaan omat koneet, tarvikkeet ja kankaat.
+
+Lanit olivat Espoossa, ja jotkut tulivat Lapista asti. Laneissa oli 40 ihmistä. He ompelivat perjantaista sunnuntaihin aamukymmenestä kello yhteen yöllä.
+
+Yhteensä noin 2000 ihmistä kävi Ommel-festivaaleissa.
+
+## Tiekirkot ovat taas auki
+
+![Vähänkyrön kirkko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10240094)
+
+Avaa kuvien katselu
+
+Vähänkyrön kirkko Pohjanmaan maakunnassa on yksi tämän kesän tiekirkoista Kuva: Tarmo Niemi/Yle
+
+Tiekirkot ovat avanneet ovet sunnuntaina.
+
+Evankelisluterilaisen kirkon tiekirkot ovat pääteiden lähellä ja auki koulujen alkuun asti. Tiekirkkoihin voi pysähtyä tauolle koko maassa. Suomen pohjoisin tiekirkko on Utsjoen kirkko Ylä-Lapissa.
+
+Kaikkiaan 266 tiekirkkoa on auki tänä kesänä.

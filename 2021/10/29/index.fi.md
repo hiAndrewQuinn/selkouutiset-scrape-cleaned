@@ -1,0 +1,73 @@
+# Perjantai 29.10.2021 (radio)
+
+Suomen ja Venäjän presidenttien tapaaminen. Inflaatio. Influenssakausi. Elokuva Hytti numero 6. Sää.
+
+## Niinistö ja Putin
+
+![Sauli Niinistö ja Vladimir Putin](https://img.img-cdn.yle.fi/crop_extract,w_2737,h_1539,x_0,y_421/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-873690617bf0b8b1c5d/1635512623)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö ja presidentti Vladimir Putin tapasivat perjantaina. Kuva: Mikhail Klimentyev / AFP
+
+Presidentti Sauli Niinistö on vieraillut Venäjällä. Niinistö keskusteli perjantaina Venäjän presidentti Vladimir Putinin kanssa.
+
+Presidentit keskustelivat esimerkiksi talousasioista. Presidentti Putin toivoi, että Suomen ja Venäjän välinen matkailu alkaa pian uudelleen. Matkailu maiden välillä on ollut poikki koronan takia.
+
+Suomen ja Venäjän presidentit tapasivat edellisen kerran ennen koronaa, kesällä 2019. Sen jälkeen he ovat keskustelleet vain puhelimessa.
+
+## Inflaatio
+
+![Asiakas Taina Lehtonen etsimässä miehelleen joululahjaa, Stockmannin Helsingin keskustan tavaratalo, 14.12.2020.](https://img.img-cdn.yle.fi/crop_extract,w_5851,h_3291,x_0,y_549/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7539165fd763469a9d7/1607951339)
+
+Avaa kuvien katselu
+
+Monien tuotteiden hinnat ovat nousseet vuoden aikana. Kuva: Jari Kovalainen / Yle
+
+Inflaatio on voimistunut euroalueella eli maissa, jotka käyttävät euroa.
+
+Inflaatio eli hintojen nousu on ollut lokakuussa nopeampaa kuin vuosiin. Viimeksi hinnat nousivat yhtä nopeasti 13 vuotta sitten.
+
+Lokakuussa hinnat ovat olleet noin 4 prosenttia korkeammalla kuin vuosi sitten. Eniten on noussut energian hinta. Energia on nyt yli 20 prosenttia kalliimpaa kuin vuosi sitten.
+
+## Influenssa
+
+![Pipopäinen nainen aivastaa paperinenäliinan, ympärillä lentelee influenssaviruksia. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11972903)
+
+Avaa kuvien katselu
+
+Myös influenssa pääsee taas leviämään, kun koronarajoitukset loppuvat. Kuva: TeamDAF / AOP
+
+Influenssakausi lähestyy. Tänä talvena influenssakausi voi olla voimakkaampi kuin tavallisesti.
+
+Viime talvena koronarajoitukset estivät myös influenssan. Nyt influenssa pääsee taas leviämään, kun koronarajoitukset loppuvat ja ihmiset matkustavat enemmän.
+
+Influenssan oireita ovat esimerkiksi kova kuume, yskä ja nuha. Influenssassa oireet ovat paljon kovempia kuin tavallisessa flunssassa. Influenssa voi olla vaarallinen sairaus esimerkiksi vanhuksille.
+
+Paras tapa estää influenssa on rokotus. Influenssarokotukset ovat jo alkaneet.
+
+## Menestyselokuva
+
+![Ohjaaja Juho Kuosmanen poseeraa kuvajournalistille.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_203/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-869225616fc1aaa06a0/1634737543)
+
+Avaa kuvien katselu
+
+Juho Kuosmanen on ohjannut elokuvan Hytti numero 6. Kuva: Silja Viitala / Yle
+
+Elokuva *Hytti numero 6* on tullut elokuvateattereihin Suomessa. Elokuva on suomalainen, ja sen ohjaaja on Juho Kuosmanen.
+
+*Hytti numero 6* on jo voittanut palkintoja ulkomailla. Se sai esimerkiksi Grand Prix -palkinnon Cannesin elokuvajuhlilla.
+
+*Hytti numero 6* kertoo junamatkasta Venäjällä. Matkan aikana suomalainen opiskelijatyttö ja venäläinen mies tutustuvat toisiinsa. Elokuvassa puhutaan venäjää.
+
+Elokuvan tarina on Rosa Liksomin kirjasta.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12167504)
+
+Avaa kuvien katselu
+
+Viikonloppuna heikkoja sateita tulee pohjoisessa. Lämpötila on nollan lähellä, joten sateet ovat vettä, räntää tai lunta.
+
+Maan etelä- ja keskiosassa on poutaista eli sateita ei tule. Myös aurinko paistaa. Lämpötila ovat korkeita, lähellä 10 astetta.

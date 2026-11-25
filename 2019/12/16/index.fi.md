@@ -1,0 +1,67 @@
+# Maanantai 16.12.2019 (radio)
+
+Aktiivimalli lisäsi hakemuksia työkyvyttömyyseläkkeelle. Viron presidentti pyysi anteeksi sisäministerin puheita. Intiassa on ollut levotonta. Huumeisiin kuolee ennätyksellisen paljon ihmisiä.
+
+## Aktiivimalli lisäsi hakemuksia työkyvyttömyyseläkkeelle
+
+![Mies TE-toimiston aulassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11119202)
+
+Avaa kuvien katselu
+
+Vuoden lopussa päättyvän aktiivimallin tavoitteena oli ehkäistä työttömyyden pitkittymistä ja lisätä työllisyyttä. Kuva: Emilia Malin / Yle
+
+Työttömyysturvan aktiivimallin vaikutuksia on selvitetty.
+
+Selvitys kertoo, että työkyvyttömyyseläkettä haettiin aktiivimallin takia paljon enemmän kuin ennen. Määrä kasvoi viime vuonna yli 1 600 ihmisellä.
+
+Aktiivimallin tavoitteena oli lisätä työllisyyttä. Aktiivimalli ei koskenut sellaisia ihmisiä, jotka hakivat työkyvyttömyyseläkettä.
+
+Aktiivimalli loppuu nyt vuodenvaihteessa.
+
+## Viron presidentti pyysi anteeksi sisäministerin haastattelua
+
+![Mart Helme](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10966306)
+
+Avaa kuvien katselu
+
+Viron sisäministeri Mart Helme. Kuva: Valda Kalnina / EPA
+
+Viron presidentti Kersti Kaljulaid on soittanut presidentti Sauli Niinistölle.
+
+Kaljulaid pyysi anteeksi Viron sisäministerin Mart Helmen sunnuntaisia puheita. Viron oikeistopopulistisen puolueen puheenjohtaja Helme arvosteli Suomen hallitusta ja pääministeri Sanna Marinia. Helme epäili, onko Marin hyvä pääministeri.
+
+Presidentti Niinistö kertoi Kaljulaidin anteeksipyynnöstä pääministeri Marinille ja hallitukselle.
+
+## Intiassa on levotonta
+
+![Mielenosoittaja vastusti uutta kansalaisuuslakia Bangaloressa, Intiassa 14. joulukuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11119254)
+
+Avaa kuvien katselu
+
+Mielenosoittaja vastusti uutta kansalaisuuslakia Bangaloressa, Intiassa 14. joulukuuta. Kuva: Jagadeesh NV / EPA
+
+Intiassa on ollut isoja mielenosoituksia.
+
+Mielenosoituksissa on kuollut ainakin 6 ihmistä ja 10 on loukkaantunut. Mielenosoittajat vastustavat uutta kansalaisuuslakia. Kansalaisuuslakia on syytetty siitä, että se sortaa muslimeja.
+
+Laki hyväksyttiin viime viikolla. Sen avulla miljoonat laittomat siirtolaiset voivat ehkä saada Intian kansalaisuuden. Laki koskee hinduja ja kristittyjä, jotka ovat tulleet Intiaan Bangladeshista, Pakistanista ja Afganistanista.
+
+Pääministeri Narendra Modin hallinto sanoo, että uusi laki suojelee Intian naapurimaiden hinduja ja kristittyjä, jotka ovat vaarassa joutua vainotuksi. Laki ei tarjoa samaa etua muslimeille.
+
+Muslimipuolue vie kansalaisuuslain korkeimpaan oikeuteen.
+
+## Huumekuolemia ennätysmäärä
+
+![ruisku ja lääkkeitä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11119142)
+
+Avaa kuvien katselu
+
+Eniten lisääntyivät 20–29-vuotiaiden kuolemat. Kuva: Hernan Schmidt / AOP
+
+Huumeisiin kuoli viime vuonna Suomessa ennätyksellisen paljon ihmisiä. Kuolonuhrien määrä kasvoi yli 20 prosenttia. Kuolleita oli 261.
+
+Huumekuolemien määrä on kasvanut 3 vuotta peräkkäin. Eniten kasvoivat alle 30-vuotiaiden kuolemat. Suuri osa huumekuolemista liittyy opioidien käyttöön.
+
+Myös alkoholiin kuoli viime vuonna enemmän ihmisiä kuin vuotta aikaisemmin.
+
+Dementiaan ja Alzheimeriin kuolee paljon enemmän ihmisiä kuin 10 vuotta sitten.

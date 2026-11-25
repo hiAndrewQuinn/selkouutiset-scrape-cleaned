@@ -1,0 +1,67 @@
+# Perjantai 18.10.2019 (radio)
+
+Kataloniassa on järjestetty iso mielenosoitus. Pohjois-Syyriassa yritetään tulitaukoa. Viikonloppuna tehdään ennätyspitkä lentomatka. HSL:n matkakorttien lataaminen onnistuu pian myös netissä.
+
+## Katalonian mielenosoitus
+
+![Mielenosoittajia barcelonassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11027126)
+
+Avaa kuvien katselu
+
+Barcelona oli täynnä mielenosoittajia perjantaina. Kuva: Alejandro Garcia / EPA
+
+Kataloniassa on järjestetty iso mielenosoitus. Katalonialaiset olivat perjantaina myös lakossa eivätkä tehneet työtä.
+
+Mielenosoitus järjestettiin Katalonian pääkaupungissa Barcelonassa. Mielenosoituksessa oli mukana satoja tuhansia ihmisiä.
+
+Kataloniassa on ollut monta mielenosoitusta, sen jälkeen kun katalonialaisten johtajat tuomittiin vankilaan. Johtajat vaativat Katalonialle itsenäisyyttä.
+
+Katalonia on osa Espanjaa. Katalonialla on kuitenkin oma kieli, kulttuuri ja lippu. Monet katalonialaiset haluavat, että Katalonia eroaa Espanjasta ja katalonialaiset saavat oman valtion.
+
+## Syyrian tulitauko
+
+![Mike Pence ja Recep Tayyip Erdoğan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11026116)
+
+Avaa kuvien katselu
+
+USA:n varapresidentti Mike Pence ja Turkin presidentti Recep Tayyip Erdoğan neuvottelivat tulitauosta Turkissa. Kuva: EPA
+
+Pohjois-Syyriassa yritetään tulitaukoa. Tulitauon aikana ei taistella.
+
+USA:n varapresidentti Mike Pence kertoi tulitauosta torstaina Turkissa. Tarkoitus on, että tulitauko kestää 5 päivää.
+
+Pohjois-Syyriassa ovat taistelleet Turkki ja kurdit. Turkki hyökkäsi Pohjois-Syyriaan vähän yli viikko sitten. Turkin mielestä alueen kurdisotilaat ovat terroristeja.
+
+Tulitauko ei ole alkanut hyvin. Uutistoimistot kertovat, että taistelut eivät ole kokonaan loppuneet.
+
+## Ennätyspitkä lento
+
+![Alan Joyce ja Lisa Norman](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11026506)
+
+Avaa kuvien katselu
+
+Australialainen lentoyhtiö Qantas kokeilee ennätyspitkiä lentoja. Kuva: Dean Lewins / EPA 
+
+Viikonloppuna tehdään ennätyspitkä lentomatka. Australialainen lentoyhtiö Qantas lentää New Yorkista suoraan Sydneyyn, Australiaan.
+
+Lentokone lähtee perjantaina ja on perillä sunnuntaiaamuna. Matka kestää 19 tuntia.
+
+Lentokoneessa on 40 matkustajaa ja työntekijää. Kaikkien kuntoa ja oloa seurataan lennon aikana.
+
+Qantas päättää vuoden loppuun mennessä, aloittaako se näin pitkät lennot. Qantas aloitti viime vuonna lennot Australiasta Lontooseen. Lento Lontooseen kestää 17 tuntia, eli viikonlopun lento on vielä 2 tuntia pitempi.
+
+## HSL:n matkakortit
+
+![Matkustaja leimaa lippua](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10759674)
+
+Avaa kuvien katselu
+
+Pian matkakortin voi ladata itse netissä. Kuva: Jussi Nukari / Lehtikuva
+
+Helsingin seudun liikenteen eli HSL:n matkakorttien lataaminen helpottuu. Matkakorttien lataaminen onnistuu pian myös netissä.
+
+HSL kertoo, että matkakortteja voi ladata netissä viimeistään ensi vuoden alussa.
+
+Lataaminen onnistuu HSL:n nettisivuilla. Ennen lataamista asiakkaan pitää tunnistautua.
+
+Asiakkaat ovat jo kauan toivoneet, että matkakorttien lataaminen tulee mahdolliseksi myös netissä.

@@ -1,0 +1,83 @@
+# Sunnuntai 2.1.2022 (radio)
+
+Tapahtumatakuu. Kotitalousvähennys. Biojäte. Hätäkeskus. Sää.
+
+## Tapahtumatakuu
+
+![Kymi Sinfoniettan kenraaliharjoitukset Kotkan konserttitalolla.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_650/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8664166166bf0043902/1634124185)
+
+Avaa kuvien katselu
+
+Korona ja tapahtumien perumiset ovat tulleet kalliiksi tapahtuma-alalle. Kuva: Antro Valo / Yle
+
+Lähes 470 tapahtuma-alan yrittäjää on saanut apua korona-ajan tapahtumatakuusta. Korvaushakemuksia tuli Valtiokonttoriin noin 600.
+
+Vuoden loppuun mennessä korvauksia on maksettu noin 14 miljoonaa euroa. Korvaukset maksettiin kustannuksista, jotka aiheutuivat tapahtuman perumisesta tai supistamisesta.
+
+Eniten korvauksia saivat musiikkifestivaalit, konsertit ja näyttelyt sekä taide- ja kulttuuritapahtumat.
+
+## Kotitalousvähennys
+
+![Mattoa imuroidaan olohuoneessa.](https://img.img-cdn.yle.fi/crop_extract,w_5288,h_2975,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-780747603fb73ea13ed/1614788967)
+
+Avaa kuvien katselu
+
+Kotitalousvähennyksen saa, kun työ teetetään yrityksellä. Kuva: Tiina Jutila / Yle
+
+Kotitalousvähennys on muuttunut nyt vuoden alusta.
+
+Kotitaloustöiden sekä hoiva- ja hoitotöiden vähennykset nousevat. Vähennysprosentti työn osuudesta on nyt 60. Samoin öljylämmityksestä luopumista tuetaan vastaavilla korotuksilla.
+
+Sen sijaan muiden remonttien vähennykset pysyvät ennallaan. Niiden korvausprosentti on edelleen 40.
+
+Omavastuu pysyi 100 eurossa. Se pitää maksaa, käytti kotitalousvähennystä vähän tai paljon.
+
+Myös vähennyskelpoinen määrä nousee. Se on nyt 3 500 euroa. Viime vuonna määrä oli 2 200 euroa.
+
+Kotitaloustyössä sekä hoito- ja hoivatyössä alkaa 2-vuotinen kokeilu. Siinä tutkitaan vähennyksen vaikutusta työllisyyteen.
+
+## Biojäte
+
+![Tyypillistä biojätettä: kahvisuodatin ja banaaninkuori](https://img.img-cdn.yle.fi/crop_extract,w_2048,h_1152,x_0,y_192/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81438060b70660f33d6/1622607529)
+
+Avaa kuvien katselu
+
+Biojätettä menee valtavat määrät hukkaan. Kierrätyksessä on eroja eri kunnissa. Oman kunnan jätemääräykset kannattaa tarkistaa. Kuva: Jouni Tanninen / Yle
+
+Biojätettä kerätään Suomessa liian vähän tavoitteeseen verrattuna. Kaikesta biojätteestä kierrätetään nyt arviolta alle puolet, Suomen ympäristökeskus kertoo.
+
+Tavoite on, että ensi vuoteen mennessä biojätteestä hyödynnetään 60 prosenttia.
+
+Biojäte on elintarvike- ja keittiöjätettä, joka maatuu ja joka voidaan kompostoida.
+
+Kierrätettävästä biojätteestä noin puolet menee kompostointiin ja puolet mädätyslaitoksiin. Laitoksissa siitä jalostetaan biokaasua ja lannoitteita.
+
+## Hätäpuhelut
+
+![Hätäkeskuspäivystäjä työssään vastaanottamassa puheluita työpisteellään.](https://img.img-cdn.yle.fi/crop_extract,w_6573,h_3697,x_14,y_169/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89246661b9e469b4765/1639573089)
+
+Avaa kuvien katselu
+
+Hätäkeskuspäivystäjä työssään. Kuva: Patrik Molander / Yle
+
+Hätäkeskus vastasi uutenavuotena lähes 15 000 hätäpuheluun Suomessa. Puheluista noin puolet johti viranomaisen hälytystehtävään.
+
+Yleisimmät hälytystehtävät koskivat ilkivaltaa, häiriökäyttäytymistä, kaatumista ja sairastumista.
+
+90 prosenttia hälytystehtävistä välitettiin joko ensihoidolle tai poliisille.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12255709)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Maanantaina lumisateet siirtyvät itään ja heikkenevät. Pilvisyys on runsasta.
+
+Lunta tai lumikuuroja tulee etelässä ja paikoin pohjoisessa. Ajokeli muuttuu huonoksi monin paikoin.
+
+Poutaisinta sää on maan keskiosassa.
+
+Lämpötila on maan etelä- ja länsiosassa -1 ja -10 asetta, idässä ja pohjoisessa -10 ja -25 asteen välillä.

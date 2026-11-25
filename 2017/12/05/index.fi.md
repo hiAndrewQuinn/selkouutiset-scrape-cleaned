@@ -1,0 +1,71 @@
+# Sunnuntai 3.12.2017 (radio)
+
+Suomalaiset kannattavat maahanmuuttoa. SuomiKamut. Sote-uudistus. Laura Huhtasaari. Yöllä voi nähdä superkuun.
+
+## Maahanmuuton kannattajien määrä on kasvanut
+
+![Savon ammatti- ja aikuisopisto edelläkävijä maahanmuuttajien osaamisen kartoituksessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9563441)
+
+Avaa kuvien katselu
+
+Maahanmuuton kannattajia on nyt enemmän kuin vastustajia. Kuva: Heli Laitinen
+
+Suomalaiset tuntuvat nyt suhtautuvan maahanmuuttoon myönteisesti. Sanomalehti Helsingin Sanomat kertoo, että lähes puolet suomalaisista haluaa Suomeen enemmän maahanmuuttajia. Lehden kyselyssä 47 prosenttia vastaajista sanoi, että maahanmuuttajia voi tulla enemmän.
+
+Maahanmuuttoa vastustavia on nyt vähemmän kuin sen kannattajia. Maahanmuuttoa vastusti 41 prosenttia kyselyn vastaajista.
+
+Helsingin Sanomat kertoo, että vuonna 2010 maahanmuuton vastustajia oli selvästi enemmän.
+
+## Suomen Punainen Risti auttaa löytämään ystävän
+
+![Lasipurkkeja, joissa on sisällä joulukoristeita ja metallilankakahva. Yhden purkin kyljessä on arabiankielistä tekstiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9952403)
+
+Avaa kuvien katselu
+
+Näin joulun alla ystävän kanssa voi vaikka askarrella. Kuva: Anniina Wallius / Yle
+
+Moni Suomeen tullut ulkomaalainen on löytänyt ystävän Suomen Punaisen Ristin avulla. Suomen Punainen Risti järjestää SuomiKamu-toimintaa.
+
+Siinä oleskeluluvan saanut ja vapaaehtoinen suomalainen voivat etsiä ystävää, jonka kanssa voi vaikka käydä kahvilla tai kävelyllä.
+
+Suomalaisen ystävän tuki on tärkeää varsinkin silloin, kun oleskeluluvan saaja muuttaa vastaanottokeskuksesta omaan kotiin.
+
+## Sote-uudistus valmistuu, sanoo pääministeri
+
+![Pääministeri Juha Sipilä ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960612)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä  Kuva: Jussi Nukari / Lehtikuva
+
+Pääministeri Juha Sipilä sanoo, että hallitus saa sosiaali- ja terveyspalvelujen uudistuksen ajoissa valmiiksi.
+
+Sote-uudistuksen tekeminen on ollut vaikeaa, koska siihen liittyy monia lakeja.
+
+Pääministeri Juha Sipilä sanoi tänään sunnuntaina, että hallituspuolueet keskusta, kokoomus ja siniset saavat uudistuksen tehtyä.
+
+## Perussuomalaisten presidenttiehdokas
+
+![Perussuomalaisten presidenttiehdokas Laura Huhtasaari oli tavattavissa Hakaniementorilla sunnuntaina 3. joulukuuta 2017. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960623)
+
+Avaa kuvien katselu
+
+Laura Huhtasaari on perussuomalaisten presidenttiehdokas. Kuva: Martti Kainulainen / Lehtikuva 
+
+Perussuomalaisten presidenttiehdokas Laura Huhtasaari on aloittanut vaalikampanjan. Huhtasaaren presidentinvaalikampanjan iskulause on Suomi takaisin.
+
+Hänellä on tähän asti ollut kannatuskyselyissä vain vähän kannatusta.
+
+## Tänä yönä voi nähdä superkuun
+
+![Kuu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960398)
+
+Avaa kuvien katselu
+
+Sunnuntain ja maanatain välisenä yönä voi nähdä superkuun. Kuva: Ernie Wright / NASA Goddard's Scientific Visualization Studio
+
+Tänä yönä kannattaa kurkata taivaalle. Pilvien välistä saattaa näkyä täysikuu, joka on hieman suurempi ja kirkkaampi kuin yleensä. Nyt on superkuun aika.
+
+Superkuu tarkoittaa sitä, että Maa, Aurinko ja Kuu ovat suorassa linjassa ja tämän lisäksi Kuu on vielä radallaan lähimpänä Maata.
+
+Tämä on tänä vuonna ainoa yö, jolloin voi nähdä superkuun.

@@ -1,0 +1,69 @@
+# Lauantai 7.10.2017 (radio)
+
+Rotavirusrokote on tehonnut hyvin. Isoja alkoholilasteja jää tullin haaviin vähemmän kuin ennen. Ahvenanmaalle muutti viime vuonna paljon ihmisiä.
+
+## Rotavirusrokote on tehonnut hyvin
+
+![Pieni lapsi on television edessä lattialla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9723710)
+
+Avaa kuvien katselu
+
+Suomessa kaikki lapset rokotetaan rotavirusta vastaan. Kuva: Tiia Korhonen / Yle
+
+Pikkulapset joutuvat Suomessa enää aniharvoin sairaalaan rotaviruksen takia. Ennen rotavirus oli tavallinen syy pienten lasten sairaalahoitoon.
+
+Rotavirus aiheuttaa vatsatautia, joka tarttuu herkästi. Se aiheuttaa lapselle ripulia, oksentelua ja kuumetta.
+
+Rotavirus on vähentynyt Suomessa nopeasti, koska vuodesta 2009 lähtien kaikki lapset ovat saaneet rokotteen rotavirusta vastaan.
+
+Terveyden ja hyvinvoinnin laitos THL sanoo, että rotavirusrokote on ollut tosi tehokas. Rotaviruksen aiheuttamat sairaalahoidot ovat 5 vuoden kuluessa vähentyneet alle 5-vuotiailla lapsilla 93 prosenttia.
+
+THL laskee, että rokotteet ovat estäneet vuosittain noin 2200 vakavaa sairaustapausta.
+
+## Tullin alkoholivalvonta vähenee
+
+![mies vetää kaljakärryjä perässään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9853125)
+
+Avaa kuvien katselu
+
+Monet suomalaiset ostavat Viron matkalta tuliaisiksi alkoholia. Kuva: Mauri Ratilainen / AOP
+
+Tulli valvoo alkoholin maahantuontia vähemmän kuin ennen. Valvonta on vähentynyt, koska tullin rahoitusta on leikattu.
+
+Ennen tullilla oli 7 ihmistä, jotka valvoivat alkoholin maahantuontia Helsingin satamissa. Nyt heitä on vähemmän, joten esimerkiksi tehovalvontaiskuja tehdään vähemmän kuin ennen.
+
+Tammikuun ja kesäkuun välisenä aikana tuli otti kiinni 18 alkoholilastia, jotka siirrettiin veroharkintaan. Vielä pari vuotta sitten veroharkintaan siirrettiin yli 500 lastia vuodessa.
+
+Alkoholilasti siirretään veroharkintaan, jos tulli epäilee, että kaikkea ei ole tarkoitettu omaan käyttöön. Silloin alkoholista voi joutua maksamaan veroa.
+
+## Ahvenanmaa sai uusia asukkaita
+
+![Ahvenanmaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9567231)
+
+Avaa kuvien katselu
+
+Ahvenanmaan saariryhmä on osa Suomea.
+
+Ahvenanmaalle muutti viime vuonna ennätysmäärä ihmisiä. Ahvenanmaalle muutti yli 1000 ihmistä.
+
+Muuttajista 700 puhuu äidinkielenään ruotsia ja noin 100 suomea. Yli 200 muuttajaa puhuu äidinkielenään jotain muuta kuin suomea tai ruotsia.
+
+Ahvenanmaalla asuu yhteensä noin 30 000 ihmistä.
+
+## Sää muuttuu sateiseksi
+
+![Sääkartta kolmelle päivälle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9871412)
+
+Avaa kuvien katselu
+
+Pohjoisessa on aluksi poutaa, kun muualla maassa sataa. Kuva: Yle
+
+Lähipäivinä sataa paljon.
+
+Ylen meteorologi Kerttu Kotakorpi kertoo, että ensimmäinen saderintama tulee Suomeen lauantai-iltana. Tuolloin eniten vettä saadaan Lounais-Suomessa.
+
+Sen jälkeen sateet liikkuvat itään. Sunnuntaina eniten sataa kaakossa. Vettä tulee ehkä jopa 30 millimetriä, Kerttu Kotakorpi sanoo.
+
+Pohjoisessa on aluksi poutaa, mutta viikonlopun jälkeen sää muuttuu myös siellä sateiseksi. Ensi viikon puolivälissä Lapissa voi myös sataa lunta.
+
+Kerttu Kotakorpi sanoo, että lähipäivät ovat myös tuulisia.

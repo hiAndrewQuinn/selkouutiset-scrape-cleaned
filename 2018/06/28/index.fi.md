@@ -1,0 +1,7 @@
+# Torstai 28.6.2018 (tv)
+
+Hallitus jatkaa työttömyysturvan uudistamista. Suomen terveydenhuolto on maailman huippua. Jyrki Katainen jättää politiikan. Alvar Aallon suunnittelema Villa Skeppet avautui yleisölle. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Hallitus jatkaa työttömyysturvan uudistamista. Suomen terveydenhuolto on maailman huippua. Jyrki Katainen jättää politiikan. Alvar Aallon suunnittelema Villa Skeppet avautui yleisölle. Säätiedot.

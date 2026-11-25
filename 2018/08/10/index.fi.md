@@ -1,0 +1,69 @@
+# Perjantai 10.8.2018 (radio)
+
+Suomen Punainen Risti lähettää apua Lombokin maanjäristysalueelle. Punkit ovat levittäneet tänä kesänä vähemmän tauteja kuin viime kesänä. SDP on suurin puolue Ylen kannatuskyselyssä. Sää viilenee.
+
+## SPR auttaa Indonesiassa
+
+![Avustustyöntekijöitä romahtaneen moskeijan raunioilla Lombokilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10344312)
+
+Avaa kuvien katselu
+
+Maanjäristys tuhosi rakennuksia Lombokin saarella, Indonesiassa. Kuva: Adi Weda / EPA
+
+Suomesta lähetetään apua Indonesiaan. Suomen Punainen Risti eli SPR lähettää apua Lombokin maanjäristysalueelle.
+
+Lombokin saarella oli maanjäristys viime sunnuntaina. Maanjäristys tuhosi taloja, ja monet Lombokin asukkaat ovat ilman kotia. He tarvitsevat apua pian, koska heillä ei ole ruokaa tai paikkaa, jossa nukkua.
+
+Indonesian maanjäristyksessä kuoli yli 300 ihmistä.
+
+## Punkit levittäneet vähän tauteja
+
+![Punkki kävelee kädellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10331736)
+
+Avaa kuvien katselu
+
+Punkki on niin pieni, että ihmisen on vaikea nähdä sitä. Kuva: Petri Lassheikki / Yle
+
+Täällä Suomessa punkit ovat levittäneet tänä kesänä vähemmän tauteja kuin viime kesänä. Borrelioosia ja puutiaisaivokuumetta on ollut tänä kesänä vähän.
+
+Asiantuntijat eivät usko, että punkkeja on vähemmän. Punkit vain eivät ole olleet aktiivisia, koska kesä on ollut kuiva ja kuuma.
+
+Punkki on pieni hyönteinen. Se on tavallinen eläin Suomessa.
+
+Punkki on tosi pieni, vain 2 tai 3 millimetriä pitkä. Siksi ihmisen on vaikea nähdä punkkia.
+
+Punkki elää heinässä ja ruohossa. Se ei lennä, mutta se voi kiivetä ihmisen iholle. Iholla punkki imee verta, ja siksi se voi levittää tauteja.
+
+## SDP on suurin
+
+![Puoluekannatus graafi 8/2018](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10344650)
+
+Avaa kuvien katselu
+
+SDP, kokoomus ja keskusta saavat eniten kannatusta uudessa kyselyssä. Kuva: Yle Uutisgrafiikka
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Eniten kannatusta saa SDP eli sosiaalidemokraatit. Vähän yli 21 prosenttia kyselyn vastaajista kannatti sosiaalidemokraatteja.
+
+SDP on oppositiopuolue, eli se ei ole hallituksessa. Isot hallituspuolueet kokoomus ja keskusta saavat vähemmän kannatusta kuin SDP, vaikka niiden kannatus on kasvanut.
+
+Kokoomuksen kannatus on nyt melkein 20 prosenttia, ja keskustan kannatus on melkein 18 prosenttia.
+
+Suomessa on ensi vuonna vaalit. Silloin SDP, kokoomus ja keskusta kilpailevat siitä, mikä puolue on suurin ja saa pääministerin paikan.
+
+Samaan aikaan kun SDP:n kannatus on noussut, muiden oppositiopuolueiden kannatus on laskenut. Vihreiden, vasemmistoliiton ja perussuomalaisten kannatus on nyt pienempi kuin edellisessä kyselyssä.
+
+Kyselyn tarkat luvut löytyvät Ylen nettisivuilta.
+
+## Lämpötila laskee
+
+![Auringonottaja Solvikin uimarannalla Hämeenlinnassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10338283)
+
+Avaa kuvien katselu
+
+Hellepäivät ovat nyt ohi. Kuva: Mikko Stig / Lehtikuva
+
+Sää viilenee. Perjantai oli ehkä kesän viimeinen päivä, kun lämpötila oli noin 30 astetta.
+
+Viikonloppuna on ukkosia, ja tuuli on kovaa. Lämpötila putoaa noin 20 asteeseen.

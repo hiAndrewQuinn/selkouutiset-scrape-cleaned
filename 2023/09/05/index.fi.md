@@ -1,0 +1,83 @@
+# Radio | Selkouutiset | Torstai 31.8.2023
+
+Rasismin vastainen tiedonanto. Holokaustin kieltäminen. Ruoan hinta. Vammaispalvelulaki. Nimipäivät. Sääennuste.
+
+## Rasismin vastainen tiedonanto
+
+![Kokoomuksen puheenjohtaja, pääministeri Petteri Orpo kommentoi medialle tiedotustilaisuudessa, joka käsitteli tiedonantoa yhdenvertaisuuden, tasa-arvon ja syrjimättömyyden edistämiseksi, Helsingissä .](https://img.img-cdn.yle.fi/crop_extract,w_5110,h_2868,x_0,y_320/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116549964f07da7ba7c5/1693559342)
+
+Avaa kuvien katselu
+
+Pääministeri Petteri Orpo kertoi hallituksen tiedonannosta. Kuva: Markku Ulander / Lehtikuva
+
+Hallitus on hyväksynyt rasismin vastaisen tiedonannon.
+
+Se tarkoittaa, että hallitus on sopinut, miten hallitus torjuu rasismia.
+
+Pääministeri **Petteri Orpo** sanoo, että jokainen hallituksen ministeri irtisanoutuu rasismista ja jokainen ministeri sitoutuu työhön rasismia vastaan.
+
+## Holokaustin kieltäminen
+
+![flicka med ryggern mot kameran vid minnemärket över upproret i Treblinka 1943](https://img.img-cdn.yle.fi/crop_extract,w_4096,h_2304,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106480263d39c354f169/1674812563)
+
+Avaa kuvien katselu
+
+Treblinkan keskitysleiri Puolassa oli yksi paikoista, joissa juutalaisia surmattiin. Kuva: EPA-EFE
+
+Hallitus on kertonut uusista rasismin vastaisista toimista. Hallitus käynnistää ohjelman, jolla kehitetään tasa-arvoa ja yhdenvertaisuutta kaikissa kouluissa ja oppilaitoksissa.
+
+Tarkoitus on esimerkiksi saada maahanmuuttajaperheiden lapset osallistumaan varhaiskasvatukseen nykyistä enemmän.
+
+Hallitus haluaa myös estää vihatekoja juutalaisia, muslimeja, kristittyjä ja muita uskontoryhmiä vastaan. Tarkoitus on, että esimerkiksi holokaustin kieltämiseen puututaan lailla. Jotkut ihmiset kiistävät juutalaisten joukkotuhon eli holokaustin 2. maailmansodassa. Tarkoitus on, että jatkossa kiistäminen on laitonta.
+
+## Ruoan hinta
+
+![Asiakas kantaa ostoskoria ruokakaupassa.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-774563602b9bbe33527/1613471412)
+
+Avaa kuvien katselu
+
+Ruoan hinta on kallistunut, mutta kallistuminen on hidastunut hieman. Kuva: Tiina Jutila / Yle
+
+Ruoan hinta on kallistunut vuodessa paljon. Heinäkuussa ruoka maksoi yli 8 prosenttia enemmän, kuin viime vuoden heinäkuussa.
+
+Kallistuminen on kuitenkin hidastunut. Näin kertoo kauppojen järjestö PTY.
+
+Koko alkuvuonna eli tammikuusta heinäkuuhun ruoan hinta nousi melkein 13 prosenttia viime vuoden tammi-heinäkuuhusta. Heinäkuussa ruoan hinta nousi siis vähän hitaammin kuin aiemmin tänä vuonna.
+
+## Vammaispalvelulaki
+
+![Pyörätuolin renkaat lähikuvassa ja siinä istuvan henkilön jalat.](https://img.img-cdn.yle.fi/crop_extract,w_2014,h_1134,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114358864b500a12c54a/1693482950)
+
+Avaa kuvien katselu
+
+Vammaispalvelulaki tulee ehkä voimaan vuoden 2025 alussa. Kuva: Katja Halinen
+
+Hallitus haluaa lykätä lisää vammaispalvelulain voimaantuloa. Hallitus haluaa vielä muuttaa sitä, mitä asioita, henkilöitä tai organisaatioita laki koskee.
+
+Alun perin vammaispalvelulain piti tulla voimaan tänä syksynä. Hallitusneuvotteluissa sovittiin, että lakia lykätään 1 vuodella eli ensi vuoden syksyyn.
+
+Nyt hallitus haluaa siirtää vammaispalvelulakia vielä vähän niin, että laki tulee voimaan vuoden 2025 alussa.
+
+## Nimipäivät
+
+![Nimipäiväkalenteri](https://img.img-cdn.yle.fi/crop_extract,w_4128,h_2322,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-2026554ec8467137d2/1424786541)
+
+Avaa kuvien katselu
+
+Kalenteriin otetaan joka vuosi uusia nimiä. Kalenterista jää pois nimiä, joita ei ole paljon käytössä.  Kuva: Yle/Anna Keränen
+
+Suomalaiseen kalenteriin tulee taas uusia nimipäiviä. Helsingin yliopisto kertoo, että vuoden 2025 kalenteriin tulee 33 uutta nimeä.
+
+Osa nimistä on vanhoja nimiä, jotka palaavat kalenteriin tauon jälkeen. Tällaisia ovat esimerkiksi nimet Aamos, Linus ja Rolf.
+
+Suomalaiseen kalenteriin tulee myös kansainvälisiä nimiä. Tällaisia ovat esimerkiksi Amelia, Jare, Jasu, Kevin ja Neo.
+
+## Sää
+
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116574164f0a60854874/1693492780)
+
+Avaa kuvien katselu
+
+Perjantai on melko lämmin koko maassa.
+
+Perjantaina Lapissa sataa yleisesti vettä. Muualla tulee paikoin sadekuuroja. Lämpötila on noin 20 astetta, Lapissa on viileämpää.

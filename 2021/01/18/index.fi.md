@@ -1,0 +1,73 @@
+# Maanantai 18.1.2021 (radio)
+
+Pääministeri Sanna Marin ja presidentti Sauli Niinistö vaativat Aleksei Navalnyin vapauttamista. Oppivelvollisuusiän nouseminen tuo kunnille lisälaskun. Suomessa on alkanut koronarokotteen kakkosvaihe. Topelius-palkinto ja Arvid Lydecken -palkinto.
+
+## Aleksei Navalnyi otettiin heti kiinni Moskovassa
+
+![Aleksei Navalnyi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11742556)
+
+Avaa kuvien katselu
+
+Venäläinen oppositiojohtaja Aleksei Navalnyi Moskovan lentokentän bussissa 17.1. 2021. Kuva: Kirill Kudryavtsev / AFP
+
+Pääministeri Sanna Marin vaatii Twitterissä, että venäläinen oppositiopoliitikko Aleksei Navalnyi vapautetaan viipymättä.
+
+Navalnyi otettiin kiinni eilen Moskovassa, kun hän palasi Saksasta hoidosta. Navalnyi yritettiin tappaa hermomyrkyllä elokuussa.
+
+Marin kirjoitti, että Venäjän pitää tutkia Navalnyin myrkytys ja suojella opposition oikeuksia.
+
+Presidentti Sauli Niinistö sanoi Helsingin Sanomille, että kiinniotolle ei ole perusteita. Niinistö sanoi, että hän on lähestynyt asiassa Venäjän presidentti Vladimir Putinia.
+
+Navalnyin lehdistösihteeri kirjoitti Twitterissä, että Navalnyin oikeudenkäynti alkoi aamupäivällä poliisiasemalla Moskovan esikaupungissa.
+
+Venäjän rikosseuraamusvirasto syyttää, että Navalnyi olisi rikkonut aiemman ehdonalaisen tuomion ehtoja.
+
+Aleksei Navalnyi kehottaa venäläisiä lähtemään kaduille protestoimaan viranomaisia vastaan.
+
+## Maksuton lukio maksaa paljon kunnille
+
+![Porilainen Teppo Hynnä pelaamassa tietokoneella.](https://img.img-cdn.yle.fi/crop_extract,w_2304,h_1296,x_0,y_155/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7565615fe0adc06153d/1608560166)
+
+Avaa kuvien katselu
+
+Maksuttoman lukion tietokoneet maksavat kunnille paljon. Kuva: Kasper Heimolehto / Yle
+
+Oppivelvollisuusiän nouseminen tuo kunnille lisälaskun. Ensi syksynä oppivelvollisuusikä nousee 18 vuoteen.
+
+Syksyllä melkein 60 000 opiskelijaa saa maksuttoman opetuksen lukiossa tai ammattikoulussa.
+
+Kunnille tulee lisää maksettavaa esimerkiksi oppimateriaaleista. Monissa kouluissa joudutaan vähentämään muuta opetusta, ellei kunta maksa kuluja.
+
+Lukioissa suurin hankinta ovat tietokoneet. Koneen pitää olla sellainen, että sillä voi suorittaa ylioppilaskirjoitukset 3 vuoden kuluttua.
+
+## Toisen vaiheen koronarokotuksia on annettu
+
+![Sote-henkilöstölle annettiin Pfizerin koronavirusrokotteita Helsingissä 4. tammikuuta 2021. Sairaanhoitaja Paula valmisteli rokotteita takahuoneessa, eli sekoitti rokotetta ja keittosuolaliuosta valmiiksi ruiskuihin.](https://img.img-cdn.yle.fi/crop_extract,w_4986,h_2805,x_0,y_445/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7593665ff46a5bddbd8/1610339767)
+
+Avaa kuvien katselu
+
+ Viime viikolla annettiin noin 50 000 rokotetta. Kuva: Silja Viitala / Yle
+
+Suomessa on alkanut koronarokotteen kakkosvaiheen antaminen. Nämä rokotteet ovat Pfizerin ja Biontechin rokotteita.
+
+Ainakin Helsingin ja Uudenmaan sairaanhoitopiirissä toisten annosten antaminen alkoi maanantaina.
+
+Ensimmäisen vaiheen annoksia on annettu joulukuun lopulta alkaen. Rokotteita annettiin varsinkin terveydenhuollon henkilökunnalle. Rokote vaatii 2 annosta, joiden välillä pitää olla 3 - 4 viikkoa.
+
+Pfizerin ja Biontechin rokote antaa noin 95 prosentin suojan, kun molemmat annokset on annettu. Rokote suojaa koronavirustaudin vakavilta muodoilta.
+
+## Kirjallisuuspalkintoja kahdelle
+
+![Meri Luttinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11628810)
+
+Avaa kuvien katselu
+
+Esikoiskirjailija Meri Luttinen. Kuva: Riikka Vaahtera/WSOY
+
+Nuortenkirjallisuuden Topelius-palkinnon on saanut Meri Luttinen. Palkinto annettiin esikoisromaanista Myrskynsilmä.
+
+Lastenkirjallisuuden Arvid Lydecken -palkinnon on saanut Sari Peltoniemi teoksesta Täältä minä karkaan.
+
+Palkinnot jakaa Suomen Nuorisokirjailijat ry.
+
+Molempien palkintojen arvo on tänä vuonna sama kuin vuosiluku eli 2021 euroa.

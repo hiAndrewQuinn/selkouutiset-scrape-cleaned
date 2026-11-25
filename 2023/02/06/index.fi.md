@@ -1,0 +1,73 @@
+# Maanantai 6.2.2023 (radio)
+
+Maanjäristys aiheutti tuhoa Turkissa ja Syyriassa. Lähihoitajia siirtyy keikkatöihin. Tänään on saamelaisten kansallispäivä. Musoissa riittää kävijöitä. Säätiedot.
+
+## Turkin maanjäristys
+
+![Suuri joukko ihmisiä raivaa romahtanutta kerrostaloa.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_443/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106914363e0f77c5e277/1675687855)
+
+Avaa kuvien katselu
+
+Pelastustyöntekijät etsivät eloonjääneitä talon raunioista Diyarbakirissa Turkissa. Kuva: Refik Tekin / EPA
+
+Paljon ihmisiä on kuollut maanjäristyksissä Turkissa ja Syyriassa. Kuolonuhreja on löydetty jo yli 2300. Myös loukkaantuneita on tuhansia.
+
+Ensimmäinen järistys sattui aamuyöllä Kaakkois-Turkissa lähellä Syyrian rajaa. Päivällä voimakas jälkijäristys aiheutti lisää tuhoa. 
+
+Järistyksissä romahti paljon taloja, joten uhriluku voi nousta, kun pelastustyöt etenevät.
+
+EU lähettää Turkkiin pelastusryhmiä auttamaan maanjäristyksen uhreja. Myös esimerkiksi Ranska, Saksa ja Suomi ovat luvanneet antaa Turkille apua.
+
+## Lähihoitajia keikkatöihin
+
+![Essi Vartiainen laittaa maskin kasvoilleen ennen asiakaskäyntiä.](https://img.img-cdn.yle.fi/crop_extract,w_5328,h_2997,x_0,y_585/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106687563da4189f0e6b/1675250407)
+
+Avaa kuvien katselu
+
+Lähihoitaja Essi Vartiainen on nyt 6 viikon keikkatyössä Asikkalassa. Kuva: Antti Haanpää / Yle
+
+Monet lähihoitajat ovat siirtyneet tekemään keikkatyötä. Arviolta jo kymmenet tuhannet lähihoitajat tekevät keikkatyötä vuokrafirmojen kautta.
+
+Lähihoitajista on kova pula, ja heille on auki tuhansia työpaikkoja eri puolilla maata. Kun vakituisia hoitajia ei saada, työnantajat joutuvat palkkaamaan heitä henkilöstövuokrausfirmoista.
+
+Monet hoitajat ovat jättäneet jopa vakituisen työpaikan ja siirtyneet tekemään töitä vuokrafirmojen kautta. Keikkatyössä hoitajat voivat valita, milloin ja missä he työskentelevät. Vuokrafirmassa hoitajien palkka on myös parempi kuin julkisella puolella.
+
+Esimerkiksi lähihoitaja Essi Vartiainen kertoo, että keikkatyössä hän ansaitsee kuukaudessa noin 1000 euroa enemmän kuin vakituisessa työssä julkisella puolella..
+
+## Saamelaisten kansallispäivä
+
+![Saamelaiset viettävät kansallispäivää Kansalaistorilla.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_426/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106927063e114a84585a/1675695378)
+
+Avaa kuvien katselu
+
+Saamen lippu Helsingin Kansalaistorilla. Kuva: Antti Kolppo / Yle
+
+Tänään on vietetty saamelaisten kansallispäivää.
+
+Päivä alkoi lipunnostolla saamelaismuseo Siidassa Inarissa. Myös Helsingin Kansalaistorilla Saamen lippu nostettiin aamulla salkoon.
+
+Saamelaiset ovat alkuperäiskansa. Saamelaisilla on oma historia, kieli ja kulttuuri.
+
+Saamelaisia asuu Suomessa, Ruotsissa, Norjassa ja Venäjällä. Heitä on yhteensä ehkä jopa satatuhatta. Eniten saamelaisia on Norjassa.
+
+## Museovierailut
+
+![Näyttelyvieraat katsovat leopardia esittävää taulua.](https://img.img-cdn.yle.fi/crop_extract,w_5433,h_3056,x_0,y_492/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1048012639994e23692a/1671010525)
+
+Avaa kuvien katselu
+
+Museovieraita Kansallismuseon Gallen-Kallela-näyttelyssä viime joulukuussa. Kuva: Tiina Jutila / Yle
+
+Museot kiinnostavat ihmisiä.
+
+Suomen museoissa vierailtiin viime vuonna noin 6,9 miljoonaa kertaa. Museokäyntejä oli 2,5 miljoonaa enemmän kuin edellisenä vuonna, kertoo Museovirasto.
+
+Suosituimmat kohteet olivat Helsingin kaupunginmuseo, Amos Rex ja Kiasma.
+
+## Tiistain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688868)
+
+Avaa kuvien katselu
+
+Sää on lauhaa ja tuulista. Huomenna Huomenna on poutaa ja osittain aurinkoista. Lämpötila on -1 ja +3 asteen välillä.

@@ -1,0 +1,77 @@
+# Lauantai 28.4.2018 (radio)
+
+Presidentti Niinistön mielestä Etelä- ja Pohjois-Korean johtajien tapaaminen oli tärkeä. Venäläinen ydinvoimala on matkalla Itämerellä. Helsingissä kokeillaan uutta isoa bussia. Sauna on muotia Japanissa. Suomen Pikkuleijonat ovat päässeet MM-finaaliin.
+
+## Niinistö kommentoi Korea-tapaamista
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10183241)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö Ylen tv-studiolla. Kuva: Tiina Jutila / Yle
+
+Suomen presidentti Sauli Niinistö sanoo, että Etelä-Korean ja Pohjois-Korean johtajien tapaaminen oli tärkeä. Niinistön mielestä on hyvä, että Koreat pyrkivät rauhaan.
+
+Etelä-Korean presidentti Moon Jae-in ja Pohjois-Korean johtaja Kim Jong-un tapasivat perjantaina. He sanoivat, että maiden tavoitteena on rauhansopimus. Maat eivät ole tehneet rauhansopimusta Korean sodan jälkeen, joka oli yli 60 vuotta sitten.
+
+Niinistö kommentoi tapaamista lauantaina Ylen tv-ohjelmassa Ykkösaamu.
+
+## Ydinvoimala kulkee merellä
+
+![Pietarin kelluva ydinvoimala Akademik Lomonosov](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9747336)
+
+Avaa kuvien katselu
+
+Ydinvoimala lähti matkaan Pietarista. Kuva: Peter Kovalev / AOP
+
+Itämerellä liikkuu nyt harvinainen alus. Alus ei ole tavallinen laiva, se on ydinvoimala.
+
+Alus on venäläinen, ja sen nimi on Akademik Lomonosov. Se on maailman ainoa ydinvoimala, joka kelluu veden päällä. Se on 144 metriä pitkä ja 30 metriä leveä.
+
+Aluksen matka alkoi Pietarista ja jatkuu Itämereltä Norjan ohi Jäämerelle. Murmanskissa voimalaan ladataan ydinpolttoainetta. Aluksen päämäärä on Pevekin kaupunki Siperiassa. Siellä se tuottaa sähköä.
+
+Ympäristöjärjestöjen mielestä on huono asia, että Venäjä kuljettaa ydinvoimalaa merellä.
+
+## Uudenlainen bussi
+
+![Nivelbussi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10181993)
+
+Avaa kuvien katselu
+
+Tähän bussiin mahtuu melkein 130 matkustajaa. Kuva: Petri Saari
+
+Helsingissä kokeillaan uudenlaista bussia. Bussi on iso, siihen mahtuu melkein 130 matkustajaa.
+
+Uusi bussi muistuttaa raitiovaunua. Kuljettajalla on oma koppi bussin etuosassa.
+
+Matkustajat saavat kokeilla uutta bussia ilmaiseksi vappuna. Bussi kulkee vappuna Helsingissä Elielinaukiolta Kaivopuistoon. Bussi on helppo huomata, se on iso ja vihreä.
+
+## Japanilaisten saunaharrastus
+
+![Sauna-aiheisia teoksia kirjoittanut Katsuki Tanaka on nimetty Japanissa saunan suurlähettilääksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10177647)
+
+Avaa kuvien katselu
+
+Katsuki Tanaka on kirjoittanut saunasta japanilaisille. Kuva: Johanna Pohjola / Yle
+
+Sauna on nyt muotia Japanissa. Myös nuoret japanilaiset ovat kiinnostuneet saunasta. Sauna on trendikäs harrastus.
+
+Yksi syy saunabuumiin on kirjailija ja piirtäjä Katsuki Tanaka. Hän on tehnyt kirjoja saunasta, esimerkiksi mangasarjakuvan Sado eli Saunan tie.
+
+Tanakan mangasta on tullut japanin kieleen myös uusi sana. Kun japanilaisella on hyvä olo saunan jälkeen, hän sanoo "totonotta".
+
+Yle Uutisten yleiskielinen artikkeli Japanin saunoista
+
+## Pikkuleijonat MM-finaaliin
+
+![Suomen alle 18-vuotiaiden jääkiekkojoukkue juhlii.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10183477)
+
+Avaa kuvien katselu
+
+Pikkuleijonien pelaajat juhlivat lauantaina voittoa Ruotsista. Kuva: SJL
+
+Urheilua: Suomen Pikkuleijonat on päässyt MM-finaaliin. Pikkuleijonissa on alle 18-vuotiaita jääkiekon pelaajia.
+
+Suomi pääsi finaaliin, kun Pikkuleijonat voitti Ruotsin lauantaina. Jos Pikkuleijonat voittaa finaalin, Suomesta tulee poikien tämän vuoden maailmanmestari.
+
+Finaali pelataan sunnuntai-iltana.

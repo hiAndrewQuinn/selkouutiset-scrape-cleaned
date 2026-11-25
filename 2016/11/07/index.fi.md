@@ -1,0 +1,7 @@
+# Maanantai 7.11.2016 (tv)
+
+FBI lopettaa Hillary Clintonin sähköpostien tutkinnan. Isis yritetään saada pois Syyrian Raqqasta hyökkäyksellä. Venäläiset ovat alkaneet taas hankkia kiinteistöjä Suomesta. Etelä-Suomi on nauttinut aikaisin alkaneesta talvesta. Sää on talvista.
+
+Yle Uutiset selkosuomeksi
+
+FBI lopettaa Hillary Clintonin sähköpostien tutkinnan. Isis yritetään saada pois Syyrian Raqqasta hyökkäyksellä. Venäläiset ovat alkaneet taas hankkia kiinteistöjä Suomesta. Etelä-Suomi on nauttinut aikaisin alkaneesta talvesta. Sää on talvista.

@@ -1,0 +1,91 @@
+# Torstai 22.9.2022 (radio)
+
+Venäjän mielenosoitukset. Sairaahoitajakoulutuksen hakijamäärät. Deturin asiakkaiden ongelmat. Öljylaivan tulipalo. Para School Day. Sää.
+
+## Venäjän mielenosoitukset
+
+![Mellakkapoliisit taluttavat mielenosoittajaa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_135/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1011126632bcc0f908c2/1665915332)
+
+Avaa kuvien katselu
+
+Poliisi otti kiinni mielenosoittajia Venäjällä. Kuva: Alexander Nemenov / AFP
+
+Venäjällä on ollut mielenosoituksia.
+
+Mielenosoituksia oli keskiviikkona monissa Venäjän kaupungeissa. Poliisi otti kiinni noin 1500 mielenosoittajaa.
+
+Mielenosoitukset alkoivat presidentti Vladimir Putinin puheen jälkeen. Puheessa Putin sanoi, että Venäjä kutsuu armeijaan asevelvollisia venäläisiä.
+
+Venäjä aikoo kutsua armeijaan 300 000 ihmistä. Venäjä haluaa lisää sotilaita, koska sen sota Ukrainassa jatkuu.
+
+## Sairaanhoitajakoulutuksen hakijamäärät
+
+![Sairaanhoitaja Tuula Sorvari työskentelee teho-osastolla](https://img.img-cdn.yle.fi/crop_extract,w_4700,h_2644,x_0,y_294/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8669156167fc72404c6/1634893130)
+
+Avaa kuvien katselu
+
+Sairaanhoitaja työssä. Kuva: Arash Matin / Yle
+
+Hoitoala ei kiinnosta nuoria. Hakijoita ammattikorkeakoulujen sairaanhoitajakoulutukseen on vähemmän kuin ennen.
+
+Sairaanhoitajakoulutukseen oli tänä vuonna noin 2500 hakijaa. 2 vuotta sitten hakijoita oli 1200 enemmän.
+
+Tilanne huolestuttaa ammattikorkeakouluja. Hoitoalan huonot palkat voivat olla yksi syy, miksi ala ei kiinnosta nuoria.
+
+## Deturin asiakkaiden ongelmat
+
+![Turisteja rannalla Antalyassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9032846)
+
+Avaa kuvien katselu
+
+Turkki on suosittu lomakohde. Kuva: Tolga Bozoglu / EPA
+
+Suomalaisilla ja muilla pohjoismaalaisilla turisteilla on ollut ongelmia Turkissa.
+
+Turistien matkat on järjestänyt matkatoimisto Detur. Detur ei ole kuitenkaan maksanut turkkilaisille hotelleille turistien huoneita. Siksi hotellit ovat vaatineet turisteja maksamaan huoneista uudelleen.
+
+Detur sanoo, että matkatoimistoa ollaan myymässä. Siksi sillä on maksuhäiriöitä.
+
+Kuluttajavirasto selvittää tilannetta.
+
+## Öljylaivan tulipalo
+
+![Öljytankkeri Alexian kulkema reitti ja onnettomuuspaikka kartalla.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1011406632c3fa26413a/1663844593)
+
+Avaa kuvien katselu
+
+Kuva: Lähde: MarineTraffic, grafiikka: Samuli Niemi-hukkala / Yle
+
+Öljylaivalla syttyi torstaina tulipalo. Laiva oli merellä Viron ja Suomen välillä.
+
+Tulipalossa ei loukkaantunut kukaan.
+
+Tulipalo oli öljylaiva Alexialla, joka on 250 metriä pitkä. Alexia on matkalla Venäjältä Turkkiin.
+
+## Para School Day
+
+![Koululaiset kokeilevat pyörätuolikoripallon pelaamista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10793894)
+
+Avaa kuvien katselu
+
+Koululaiset pelaavat koripalloa pyörätuolissa. Kuva: Jarmo Nuotio / Yle
+
+Osa koululaisista tutustuu tällä viikolla paraurheiluun. Monissa ruotsinkielisissä kouluissa on tällä viikolla Para School Day.
+
+Koululaiset saavat itse kokeilla, miltä paraurheilu eli vammaisurheilu tuntuu. He esimerkiksi pelaavat koripalloa pyörätuolissa ja kokeilevat, millaista on pelata jalkapalloa, kun ei näe mitään.
+
+Kun koululaiset tutustuvat paraurheiluun, he oppivat, että ihmisiä on monenlaisia.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12635371)
+
+Avaa kuvien katselu
+
+Perjantaina aurinko paistaa maan keskiosassa ja vähän muuallakin.
+
+Enimmäkseen on poutaa, mutta Pohjois-Lapissa voi sataa vähän vettä.
+
+Lämpötila on perjantaina 10 ja 15 asteen välillä.
+
+Yöllä voi olla hallaa, eli lämpötila voi laskea maanpinnan lähellä nollan alapuolelle.

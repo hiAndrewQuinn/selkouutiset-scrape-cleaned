@@ -1,0 +1,71 @@
+# Lauantai 1.12.2018 (radio)
+
+USA:n entinen presidentti George Bush vanhempi on kuollut. Mielenosoitukset jatkuvat Ranskassa. Islanti on ollut itsenäinen maa tasan 100 vuotta. Kesärenkaita ei saa enää käyttää.
+
+## Presidentti Bush
+
+![George H. W. Bush kuvattuna vuonna 2013.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10535074)
+
+Avaa kuvien katselu
+
+George Bush vanhempi vuonna 2013. Kuva: Brendan Smialowski / AFP
+
+USA:n entinen presidentti George Bush vanhempi on kuollut. Hän oli 94-vuotias. Bush sairasti Parkinsonin tautia.
+
+Bush vanhempi oli USA:n presidentti vuodesta 1989 vuoteen 1993. Presidentti Bush vieraili myös Suomessa.
+
+Bushin perheessä on myös toinen presidentti. Bush vanhemman poika George Bush nuorempi oli presidentti vuosina 2001 - 2009.
+
+## Ranskan mielenosoitukset
+
+![Ranskan lippu liehuu savuisessa ilmassa Riemukaaren lähellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10535198)
+
+Avaa kuvien katselu
+
+Mielenosoittajia Parsiisissa. Kuva: Etienne Laurent / EPA
+
+Mielenosoitukset jatkuvat Ranskassa. Iso joukko ihmisiä osoitti mieltä lauantaina Ranskan pääkaupungissa Pariisissa. Myös muualla Ranskassa oli mielenosoituksia.
+
+Ranskassa on ollut mielenosoituksia jo yli 2 viikkoa. Ihmiset suuttuivat, kun hallitus päätti nostaa bensaveroa. Mielenosoittajat sanovat, että presidentti Emmanuel Macron on rikkaiden presidentti.
+
+Mielenosoittajat tunnetaan nimellä keltaliivit, koska monilla mielenosoittajilla on päällä keltaiset liivit. Poliisi epäilee, että poliittisen äärioikeiston ja äärivasemmiston ryhmiä on osallistunut mielenosoituksiin, koska ne haluavat tapella poliisin kanssa. Mielenosoitukset ovat olleet välillä väkivaltaisia.
+
+## Islanti 100 vuotta
+
+![MAtkailijoita Islannin luonnossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8528395)
+
+Avaa kuvien katselu
+
+Islannissa on kaunis luonto. Kuva: Yle
+
+Islanti on juhlinut itsenäisyyttä. Islanti on ollut itsenäinen maa tasan 100 vuotta.
+
+Ennen itsenäisyyttä Islanti oli osa Tanskaa. Itsenäisellä Islannilla oli aluksi yhteinen kuningas Tanskan kanssa. Vuonna 1944 Islanti sai oman presidentin.
+
+Myös Suomi on onnitellut Islantia. Ulkoministeriön rakennus Helsingissä valaistiin lauantaina Islannin väreillä eli sinisellä, punaisella ja valkoisella.
+
+Suomella on hyvät suhteet Islantiin, koska molemmat maat kuuluvat Pohjoismaihin. Islanti on pienin Pohjoismaa. Islannissa on noin 340 000 asukasta.
+
+## Talvirenkaat
+
+![Nastarenkaat ovat monien mielestä parhaat talvirenkaat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10461199)
+
+Avaa kuvien katselu
+
+Monien suomalaisten talvirenkaat ovat nastarenkaita. Kuva: Raimo Torikka / Yle
+
+Talvirenkaiden käyttöpakko on alkanut. Autoilija ei saa enää käyttää kesärenkaita.
+
+Autoissa pitää olla talvirenkaat joulukuun alusta helmikuun loppuun asti. Hyvä sää ei ole enää syy ajaa kesärenkailla.
+
+## Pakkassää
+
+![Jäätyvää Hietajärveä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10501972)
+
+Avaa kuvien katselu
+
+Kuva: Ismo Pekkarinen / AOP
+
+Sunnuntaina melkein koko maassa on vähän pakkasta. Lännessä ja pohjoisessa voi sataa vähän lunta.
+
+Maanantaina tuulee ja sataa. Lännessä sataa vettä tai räntää. Pohjoisessa voi sataa lunta.

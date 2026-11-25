@@ -1,0 +1,63 @@
+# Lauantai 3.12.2022 (radio)
+
+Sisäministeri Krista Mikkonen katujengeistä. Länsimetro. Lemmikkien leipäjono. Sää.
+
+## Sisäministeriä huolettaa jengiväkivalta
+
+![Krista Mikkonen.](https://img.img-cdn.yle.fi/crop_extract,w_5567,h_3131,x_0,y_267/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1043348638b0a7fc83f5/1671868115)
+
+Avaa kuvien katselu
+
+Sisäministeri Krista Mikkonen. Kuva: Tiina Jutila / Yle
+
+Sisäministeri Krista Mikkonen on huolissaan nuorten rikollisuudesta ja jengiväkivallasta Suomessa. 
+
+Mikkonen sanoi Ylen Ykkösaamun haastattelussa, että poliisin arvion mukaan Suomessa on noin 10 katujengiä, ja niihin kuuluu ehkä noin 200 ihmistä. Jengit tappelevat keskenään ja tekevät myös rikoksia.
+
+Sisäministeri sanoo, että jengirikollisuuden torjumiseksi tarvitaan poliiseja. Suomeen onkin tarkoitus saada 700 uutta poliisin virkaa vuoteen 2030 mennessä, Mikkonen sanoo.
+
+Mikkonen sanoo, että jengeissä ja niiden liepeillä on paljon nuoria, joilla on maahanmuuttajatausta. Hän sanoo, että kotouttamista pitää parantaa, jotta nuorten ei tarvitse etsiä hyväksyntää ja omaa paikkaa jengeistä.
+
+## Länsimetro valmistui
+
+![En metroskylt där man ser de västligaste stationerna på linjen: Stensvik, Esboviken och Sökö.](https://img.img-cdn.yle.fi/crop_extract,w_4581,h_2576,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1043320638ae61dc36a5/1670047521)
+
+Avaa kuvien katselu
+
+Metrokartassa on nyt 5 uutta asemaa. Kuva: Lehtikuva
+
+Pääkaupunkiseudulla on juhlittu Länsimetroa. Länsimetron jatko-osa Espoossa avattiin tänään.
+
+Ensimmäinen juna lähti Kivenlahden asemalta aamuvarhain, vähän ennen kello viittä. HSL kertoo, että juna oli täynnä matkustajia ja tunnelma oli riehakas. Metrolinjan toiseen päähän Helsingin Vuosaareen juna saapui vähän ennen kello kuutta.
+
+Länsimetron jatko-osa Matinkylästä Kivenlahteen on noin seitsemän kilometriä pitkä. Siinä on viisi uutta asemaa: Finnoo, Kaitaa, Soukka, Espoonlahti ja Kivenlahti.
+
+Laajentumisen jälkeen metrorataa on nyt Helsingissä ja Espoossa yhteensä 43 kilometriä ja asemia on yhteensä 30.
+
+## Leipäjono lemmikeille
+
+![Asta koira sai ruokaa pari kassillista lemmikkien ruoka-apu tapahtumassa 3.12 malmilla.](https://img.img-cdn.yle.fi/crop_extract,w_2736,h_1539,x_0,y_169/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1043376638b39aa66483/1670069662)
+
+Avaa kuvien katselu
+
+Kissoille ja koirille jaettiin ruoka-apua jo kuudetta kertaa. Kuva: Jaani Lampinen / Yle
+
+Helsingissä on jaettu ruoka-apua lemmikkieläimille. 
+
+Eläinsuojelujärjestö Rekku Rescue järjesti Lemmikkien leipäjono -tapahtuman Helsingin Malmilla. Apua kävi hakemassa noin 300 lemmikinomistajaa.
+
+Lemmikkieläinten ruoka on kallistunut paljon viime vuoden aikana. Esimerkiksi S- ja K-ryhmän kaupoissa lemmikkien ruoka on kallistunut noin 5-6 prosenttia viime vuodesta.
+
+Lemmikinomistajien talouden kiristyminen näkyy esimerkiksi siten, että eläinsuojeluun tulee enemmän avunpyytöjä kuin ennen.
+
+## Sunnuntain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12683386)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sunnuntaina on poutaa suuressa osassa maata. Idässä ja paikoin myös pohjoisessa voi kuitenkin sataa lunta.
+
+Lämpötila on -2 ja -7 asteen välillä. Lapissa on muutaman asteen kylmempää.

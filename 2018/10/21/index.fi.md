@@ -1,0 +1,69 @@
+# Sunnuntai 21.10.2018 (radio)
+
+Yhdysvaltain ja Venäjän kiista ydinaseista. Suomessa on huomenna lakko. Lemmikkien hoitoon menee rahaa. Yöllä on kova tuuli.
+
+## Yhdysvallat ja Venäjä kiistelevät sopimuksesta
+
+![Yhdysvaltain Donald Trump ja Venäjän Vladimir Putin tapasivat Helsingissä 16. heinäkuuta 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10314716)
+
+Avaa kuvien katselu
+
+Yhdysvaltain ja Venäjän presidentit tapasivat heinäkuussa Helsingissä. Kuva: Anatoli Maltsev / EPA
+
+Yhdysvallat ja Venäjä kiistelevät ydinasesopimuksesta. Sopimus kieltää keskipitkän kantomatkan ydinohjukset.
+
+Maat solmivat sopimuksen 30 vuotta sitten. Sopimus lopetti maiden välisen asevarustelukilpailun.
+
+Nyt Yhdysvallat sanoo, että se irtisanoo sopimuksen. Yhdysvallat sanoo, että Venäjä rikkoo sopimusta ja valmistaa aseita, jotka on kielletty.
+
+Venäjä uhkaa, että se kostaa, jos Yhdysvallat irtisanoo sopimuksen.
+
+Asiantuntijat sanovat, että Venäjä ei ole enää Yhdysvalloille niin tärkeä vastustaja. Kiina sen sijaan on iso ja tärkeä vastustaja.
+
+## Huomenna alkaa 2 päivän lakko
+
+![Lakkovahti-käsivarsinauha.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10454200)
+
+Avaa kuvien katselu
+
+Lakkovahti on työntekijä, joka seuraa, että tilanne pysyy rauhallisena lakon aikana. Kuva: Timo Jaakonaho / Lehtikuva
+
+Suomessa on huomenna maanantaina ja ylihuomenna tiistaina lakko.
+
+Lakossa on 10 000 työntekijää.
+
+Lakossa on työntekijöitä, jotka tekevät ruokaa päiväkodeissa, kouluissa ja hoitokodeissa. Lapset voivat tarvita eväät mukaan päiväkotiin ja kouluun.
+
+Lakossa on myös työntekijöitä, jotka ovat töissä kirjastoissa, uimahalleissa ja liikuntatiloissa.
+
+## Lemmikkien hoitoon käytetään paljon rahaa
+
+![Eläintenhoitaja Mari Weiden valmistelee Niisku-kissan leikattavaksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7843216)
+
+Avaa kuvien katselu
+
+Eläinlääkäri voi nykyään tehdä monimutkaisen leikkauksen lemmikille. Kuva: Pertti Huotari / Yle
+
+Suomalaiset käyttävät paljon rahaa sairaiden lemmikkieläinten hoitoon.
+
+Eläinlääketiede on kehittynyt. Nykyään eläinlääkäri voi tehdä vaikean leikkauksen lemmikille. Siksi lemmikkien hoitokulut ovat kasvaneet, vaikka lemmikkejä on yhtä paljon kuin ennen.
+
+Vain pieni osa lemmikin omistajista on ottanut vakuutuksen lemmikille. Suurin osa lemmikin omistajista maksaa hoitokulut itse.
+
+Jos lemmikki on vaikeasti sairas, sen hoito voi maksaa monta tuhatta euroa.
+
+## Yöllä on tuulista
+
+![Mies rantakallioilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10455975)
+
+Avaa kuvien katselu
+
+Ensi yönä merellä on tosi kova tuuli. Kuva: Vesa Moilanen / Lehtikuva
+
+Ensi yönä on kova tuuli. Tuuli alkaa yltyä jo illalla.
+
+Merellä myrskyää ja maalla tuuli on puuskaista Etelä- ja Keski-Suomessa.Tuuli voi aiheuttaa sähkökatkoja.
+
+Tuuli tyyntyy huomenna.
+
+Huomenna maanantaina taivas on selkeä ja sää poutainen.

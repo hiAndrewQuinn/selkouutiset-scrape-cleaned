@@ -1,0 +1,77 @@
+# Radio Selkouutiset perjantai 16.6.2023
+
+Hallitusohjelma. Petteri Orpo. Kanadan bussionnettomuus. Kuumuus ja terveys. Sää.
+
+## Hallitusohjelma
+
+![Nelikko siirtyi Säätytalolle Valtioneuvoston linnasta.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_473/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131201648c886be5e88/1687940177)
+
+Avaa kuvien katselu
+
+Puoluejohtajat matkalla uuden hallituksen tiedotustilaisuuteen. Kuva: Silja Viitala / Yle
+
+Suomi saa uuden hallituksen. Uuden hallituksen ohjelma esiteltiin perjantaina.
+
+Hallitukseen tulee 4 puoluetta, jotka ovat kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
+
+Näiden puolueiden puheenjohtajat kertoivat, että hallitus haluaa saada Suomen talouden kuntoon. Siksi hallitusohjelmassa on paljon säästöjä.
+
+Esimerkiksi asumistukia vähennetään. Eläkeläisten asumistuki ei kuitenkaan pienene.
+
+Lisäksi hallitusohjelma kiristää maahanmuuttoa. Esimerkiksi pysyvän oleskeluluvan ja Suomen kanslaisuuden ehdot tiukkenevat.
+
+Hallitus lupaa lisää rahaa erityisesti kouluille. Hallitus haluaa tukea lasten oppimista.
+
+Lisää rahaa menee myös poliisille. Tarkoitus on, että poliiseja palkataan lisää.
+
+## Petteri Orpo
+
+![Petteri Orpo puhuu ja viittilöi kädellään. Etualalla on median mikkejä.](https://img.img-cdn.yle.fi/crop_extract,w_3389,h_1906,x_524,y_218/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1129975648ab63cbadef/1686812345)
+
+Avaa kuvien katselu
+
+Petteri Orposta tulee Suomen seuraava pääministeri. Kuva: Silja Viitala / Yle
+
+Uuteen hallitukseen tulee 19 ministeriä. Se on sama määrä kuin edellisessä Sanna Marinin hallituksessa.
+
+Petteri Orposta tulee pääministeri. Orpo on kokoomuksen puheenjohtaja.
+
+Kokoomus voitti vaalit tänä keväänä, ja kokoomuksesta tuli eduskunnan suurin puolue. Siksi Orpo sai tehtävän koota maahan uusi hallitus.
+
+Orpolla on valtiotieteiden maisterin koulutus. Hän on aikaisemmin hoitanut esimerkiksi Suomen rahaministerin ja sisäministerin tehtäviä.
+
+Orpo on 53-vuotias. Hänellä on koti Turussa. Petteri Orpolla on vaimo, 2 lasta ja 2 koiraa.
+
+## Kanadan bussionnettomuus
+
+Kanadassa on tapahtunut paha bussionnettomuus. Ainakin 15 ihmistä kuoli onnettomuudessa. 10 ihmistä vietiin sairaalaan.
+
+Onnettomuus tapahtui, kun bussi ja kuorma-auto törmäsivät toisiinsa. Bussi syttyi törmäyksessä tuleen.
+
+Kanadan viranomaiset kertovat, että suurin osa bussin matkustajista oli vanhuksia.
+
+## Kuumuus ja terveys
+
+![Säähavaintoja perjantaina 16.6.2023. Kesän lämpimin päivä, Turussa mitattiin +29,7 astetta. ](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131192648c8325b213b/1686930273)
+
+Avaa kuvien katselu
+
+Perjantaina lämpötila oli etelässä melkein 30 astetta. Kuva: Matti Huutonen / Yle
+
+Suomessa on nyt kuumaa. Perjantaina lämpötila nousi etelässä lähelle 30 astetta.
+
+Kuuma sää rasittaa monien terveyttä. Erityisesti pienet lapset ja vanhukset voivat kärsiä kuumuudesta.
+
+Tärkeää on muistaa, että kuumalla säällä pitää juoda ja syödä tarpeeksi.
+
+## Sää
+
+![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131242648c91f321d9c/1686934028)
+
+Avaa kuvien katselu
+
+Sää on edelleen aurinkoista ja lämmintä.
+
+Lauantaina lämpötila on etelässä noin 25 astetta. Pohjoisessa lämpötila on noin 20 astetta.
+
+Lämmin sää jatkuu ensi viikolla. Sää on edelleen myös poutaista, vettä ei sada.

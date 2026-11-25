@@ -1,0 +1,91 @@
+# Lauantai 6.7.2019 (radio)
+
+Kaliforniassa oli maanjäristys. Varastohalli paloi Mikkelissä. Suomalaisia kannustetaan marjastamaan. Suomalaisille on tärkeää, että kesämökki on meren tai järven rannalla. Lauantaina on vietetty runon ja suven päivää. Lintujen laulu on alkanut jo vähentyä.
+
+## Maanjäristys Kaliforniassa
+
+![Kartta, jossa näkyy Ridgecrestin kaupungin sijainti Yhdysvalloissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10865086)
+
+Avaa kuvien katselu
+
+Järistyksen keskus oli lähellä Los Angelesia. Kuva: Tommi Pylkkö / Yle
+
+Kaliforniassa, USA:ssa, on tapahtunut maanjäristys. Järistys oli voimakas, sen voimakkuus oli 7,1.
+
+Kukaan ei todennäköisesti kuollut järistyksessä. Maanjäristyksen keskus oli 200 kilometrin päässä Los Angelesin kaupungista.
+
+Samalla alueella oli maanjäristys myös 2 päivää sitten. Tutkijat pelkäävät, että järistykset voivat jatkua.
+
+## Tulipalo Mikkelissä
+
+![Palomies ja -auto pelastusasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10636140)
+
+Avaa kuvien katselu
+
+Palomiehillä oli paljon työtä lauantaina Mikkelissä. Kuva: Emilia Malin / Yle
+
+Mikkelissä, Itä-Suomessa, on ollut iso tulipalo. Tuli poltti varastohallin.
+
+Kukaan ei loukkaantunut tulipalossa. Vahingot ovat kuitenkin suuret, noin 500 000 euroa.
+
+Varastossa oli paljon erilaisia koneita. Tulipalo alkoi ehkä traktorista, joka oli varaston pihalla.
+
+## Marjastuskaveri Facebookista
+
+![Nainen poimii mustikkaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9754924)
+
+Avaa kuvien katselu
+
+Marjastus on kivempaa, jos mukana on kaveri. Kuva: Ismo Pekkarinen / AOP
+
+Suomalaisia kannustetaan marjastamaan.
+
+Monet eivät marjasta, koska heillä ei ole marjastuskaveria. Siksi luonnontuotealan järjestö Arktiset Aromit auttaa ihmisiä löytämään marjastuskaverin.
+
+Järjestö aloitti Facebookissa kampanjan, jonka nimi on Marjakaverit. Sen avulla ihmiset voivat löytää marjastuskavereita ja sopia marjaretkistä.
+
+Suomen luonnossa kasvaa paljon marjoja. Ihmiset keräävät kuitenkin alle 10 prosenttia esimerkiksi metsien puolukoista ja mustikoista.
+
+## Kesämökin rauha
+
+![Kesämökki Ohtakarilla Kokkolassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10864867)
+
+Avaa kuvien katselu
+
+Vesi ja rauha ovat suomalaisille tärkeitä mökillä. Kuva: Ismo Pekkarinen / AOP
+
+Suomalaisille on tärkeää, että kesämökki on meren tai järven rannalla. Yli 80 prosenttia uuden kyselyn vastaajista piti tärkeänä, että mökki on veden äärellä.
+
+Myös oma rauha on suomalaisille tärkeää. Yli 70 prosenttia vastaajista haluaa olla mökillä omassa rauhassa.
+
+Suomalaiset eivät kaipaa mökillä naapureiden seuraa. Noin 70 prosenttia kyselyn vastaajista on sitä mieltä, että naapureiden seura ei ole tärkeää.
+
+Kyselyn teki Kunnallisalan kehittämissäätiö.
+
+## Runon ja suven päivä
+
+![Näkymä Ukko Kolilta, Pielinen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10865386)
+
+Avaa kuvien katselu
+
+Suvi eli kesä on suomalaisille runon aikaa. Kuva: Tiina Tuomaala / AOP
+
+Lauantaina on vietetty runon ja suven eli kesän päivää. Päivää vietetään 6. heinäkuuta, koska se on Eino Leinon syntymäpäivä.
+
+Kirjailija Eino Leino on Suomen kansallisrunoilija. Hän kuoli vuonna 1926.
+
+Runon ja suven päivä on liputuspäivä.
+
+## Lintujen laulu
+
+![Lintu lentää ruokintapaikalle syömään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10130721)
+
+Avaa kuvien katselu
+
+Linnut laulavat eniten kesän alussa. Kuva: Noora Haapaniemi / Yle
+
+Lintujen laulu alkaa jo vähentyä. Se on merkki siitä, että kesä on jo pitkällä.
+
+Linnut laulavat eniten kesän alussa.
+
+Nyt linnut hoitavat ja ruokkivat poikasia. Poikasia on paljon, koska kesäkuu oli lämmin.

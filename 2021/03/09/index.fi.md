@@ -1,0 +1,81 @@
+# Tiistai 9.3.2021 (radio)
+
+Etelä-Suomen lumipyryssä on ajettu paljon kolareita. Valmet Automotive palkkaa tuhat uutta työntekijää. Taloyhtiöt rakentavat sähköautojen latauspaikkoja. Liki puoli miljoonaa suomalaista on saanut koronarokotteen. Säätiedotus.
+
+## Lumipyry toi kolarisuman
+
+![Useita autoja ketjukolarissa Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11828318)
+
+Avaa kuvien katselu
+
+Turunväylällä Espoossa sattui kymmenien autojen ketjukolari.  Kuva: Silminnäkijän kuva
+
+Etelä-Suomessa on ajettu tänään paljon kolareita.
+
+Hollolassa ajettiin aamupäivällä kolari, jossa oli mukana 6 autoa. 7 ihmistä loukkaantui.
+
+Vantaalla rekka-auto putosi alas sillalta Hämeenlinnanvälylällä. Onnettomuudessa oli mukana myös 2 henkilöautoa. Rekan kuljettaja loukkaantui vakavasti.
+
+Turunvälylällä Espoossa ajettiin ketjukolari, jossa oli mukana useita kymmeniä autoja. Ainakin kymmenen ihmistä loukkaantui.
+
+Lisäksi on sattunut kymmeniä pienempiä kolareita, peräänajoja ja ulosajoja.
+
+Ajokeli Etelä-Suomessa on ollut vaarallisen huono. Tiet ovat jäisiä ja lunta on pyryttänyt koko päivän.
+
+## Valmet Automotive rekrytoi
+
+![Valmet Automotiven akkutehdas Salossa.](https://img.img-cdn.yle.fi/crop_extract,w_5889,h_3313,x_71,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6141965dd65455cb0eb/1615280396)
+
+Avaa kuvien katselu
+
+Valmet Automotiven akkutehdas Salossa.  Kuva: Valmet Automotive
+
+Autovalmistaja Valmet Automotive palkkaa paljon uusia työntekijöitä. Firma palkkaa noin tuhat uutta työntekijää ja toimihenkilöä.
+
+Uusia työntekijöitä tarvitaan auton- ja akunvalmistukseen. Työpaikat ovat Valmet Automotiven tehtailla Salossa ja Uudessakaupungissa.
+
+Firma kertoo, että lisää työntekijöitä tarvitaan, koska autojen ja akkujen tilausmäärät ovat kasvaneet nopeasti.
+
+## Latauspaikkoja sähköautoille
+
+![Sähköautoa laitetaan lataukseen.](https://img.img-cdn.yle.fi/crop_extract,w_6016,h_3384,x_0,y_432/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6953955efc859150fa9/1593607901)
+
+Avaa kuvien katselu
+
+Sähköautoa laitetaan lataukseen. Kuva: Arttu Timonen / Yle
+
+Taloyhtiöt rakentavat innokkaasti sähköautojen latauspaikkoja.
+
+Kiinteistöliitto kertoo, että latauspaikkoja rakentaa nyt noin 30 prosenttia taloyhtiöistä. Lisäksi monen taloyhtiön tärkein hanke lähivuosina on muuttaa pysäköintipaikat sähköautoille sopiviksi.
+
+Asumisen rahoitus- ja kehittämiskeskus ARA jakaa avustuksia latauspaikkojen rakentamiseen. Hakemuksia tulee niin paljon, että viime vuonna avustusrahat loppuivat kesken. Niin voi käydä myös tänä vuonna.
+
+## Koronarokotukset etenevät
+
+![Koronarokotuspaikan lasiovesta heijastuu maskipäisen ihmisen hahmo. Ovessa lukee teksti koronarokotus.](https://img.img-cdn.yle.fi/crop_extract,w_4293,h_2415,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-778387603767e07410f/1614244044)
+
+Avaa kuvien katselu
+
+9 prosenttia suomalaisista on saanut koronarokotteen. Kuva: Petteri Bülow / Yle
+
+Rokottaminen koronaa vastaa etenee.
+
+Terveyden ja hyvinvoinnin laitos kertoo, että yli 80-vuotiaista suomalaisista on rokotettu jo noin 65 prosenttia. Kaikista suomalaisista noin 9 prosenttia on saanut ainakin yhden rokotteen.
+
+Sosiaali- ja terveysministeriö ja THL sanovat, että kaikki aikuiset voivat saada ainakin ensimmäisen rokoteannoksen jo kesän aikana.
+
+Tänään on todettu noin 600 uutta koronatartuntaa ja 2 uutta koronakuolemaa.
+
+## Keskiviikon sää
+
+![Sääkartta keskiviikko 10.3.2021](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11828557)
+
+Avaa kuvien katselu
+
+Kuva: yle meteot
+
+Lumisade loppuu maan eteläosassa illan aikana. Yöllä on koko maassa selkeää ja pakkanen kiristyy.
+
+Keskiviikkoaamu on kylmä koko maassa. Idässä pakkasta on jopa yli 30 astetta.
+
+Päivällä sää on aurinkoista ja pakkanen heikkenee.

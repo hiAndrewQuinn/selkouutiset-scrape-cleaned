@@ -1,0 +1,97 @@
+# Tiistai 21.4.2020 (radio)
+
+Öljyn hinta. Etäpääsykokeet. Kesätapahtumat. Paikkalinnut. Säätietoja.
+
+## Raakaöljyn hinta on todella matala
+
+![Öljypumppuja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9598263)
+
+Avaa kuvien katselu
+
+Yhdysvalloissa on liikaa raakaöljyä. Kuva: Larry W. Smith / EPA
+
+Maailman taloudessa tapahtuu nyt erikoisia asioita.
+
+Yhdysvalloissa raakaöljyn hinta on todella matala. Eilen kävi niin, että hetken raakaöljyn hinta oli negatiivinen.
+
+Se tarkoittaa, että öljyn myyjä maksoi ostajalle öljyn ostamisesta.
+
+Kukaan ostaja ei halunnut ostaa raakaöljyä, koska ostajilla on jo kaikki varastot täynnä öljyä.
+
+Öljyä on nyt liikaa, koska koronapandemian takia sitä ei kuluteta yhtä paljon kuin yleensä.
+
+Voi olla, että raakaöljyn hinnan lasku näkyy myöhemmin myös huoltoasemilla.
+
+Bensan hinta laskee ehkä.
+
+Suomessa bensa, jota tankataan autoihin, on kallista. Suomen valtio laittaa bensan hintaan paljon veroa.
+
+## Korkeakoulujen etäpääsykokeet
+
+![Opiskejoita luennolla Helsingin kauppakorkeakoulussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10976088)
+
+Avaa kuvien katselu
+
+Tänä keväänä ei järjestetä isoja yhteisiä pääsykokeita. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Yliopistot ja ammattikorkeakoulut kertovat ensi viikolla, miten ne järjestävät pääsykokeet tänä keväänä.
+
+Yliopistot ja ammattikorkeakoulut eivät järjestä tavallisia pääsykokeita koronavirusepidemian takia.
+
+Pääsykokeet järjestetään etänä, ne tehdään siis verkossa.
+
+Pääsykokeiden järjestäminen etänä on monimutkaista.
+
+Järjestäjien pitää esimerkiksi miettiä, miten hakijat todistavat henkilöllisyyden.
+
+## Ruisrockia ei ole tänä kesänä
+
+![Festivaalipäivän kaunis ilta ja auringonlasku.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10865564)
+
+Avaa kuvien katselu
+
+Vuonna 2019 Ruisrockissa oli näin kaunis ilta. Kuva: Rosa Huuska / Yle
+
+Yksi iso kesätapahtuma on peruttu koronaviruksen takia.
+
+Turun Ruisrock kertoi tänään, että tapahtumaa ei tänä kesänä järjestetä.
+
+Ruisrock on Turussa aina heinäkuussa ja se on järjestetty jo 50 kertaa.
+
+Järjestäjät sanovat, että he eivät halua järjestää festivaalia, jos sitä ei voi tehdä turvallisesti
+
+## Linnut katoavat metsistä
+
+![Käpytikka puussa](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4463975a1e7adf83761/1511947431)
+
+Avaa kuvien katselu
+
+Käpytikka on Suomen yleisin tikkalintu. Kuva: Raine Martikainen
+
+Linnut ovat vähentyneet Suomen metsistä.
+
+Metsissä asuu paljon paikkalintuja. Paikkalinnut asuvat Suomessa koko vuoden.
+
+Paikkalinnut vähenevät, koska Suomessa kaadetaan paljon puita metsistä.
+
+Varsinkin Etelä-Suomen metsistä linnut ovat kadonneet.
+
+Esimerkiksi hömötiainen ja käpytikka ovat vähentyneet todella paljon.
+
+Etelä-Suomessa on vain vähän metsää, joka on suojeltu.
+
+Suojeltua metsää ei saa kaataa.
+
+## Huomenna on lämmin sää
+
+![Kevätkukkia siirtolapuutarhassa.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6657975e9ae561c997d/1587209622)
+
+Avaa kuvien katselu
+
+Lämmin kevätsää saa nyt luonnon kukkimaan. Kuva: Minna Rosvall / Yle
+
+Huomenna keskiviikkona on poutainen sää koko maassa.
+
+Maan etelä- ja keskiosassa voi olla jopa 15 astetta lämmintä.
+
+Maan pohjoisosassa lämpötila on 2 ja 8 asteen välillä.

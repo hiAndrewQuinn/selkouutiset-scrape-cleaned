@@ -1,0 +1,73 @@
+# Perjantai 2.7.2021
+
+Maahantulomalli. Jalkapalloturistien koronatartunnat. Intian koronatilanne. Nukkuminen kuumalla säällä. Sää jatkuu kuumana.
+
+## Maahantulomalli
+
+![Maskia käyttävä Suomeen saapuva lentomatkustaja Helsinki-Vantaan lentokentällä.](https://img.img-cdn.yle.fi/crop_extract,w_5005,h_2815,x_0,y_375/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82792060dee7cf265cd/1625221160)
+
+Avaa kuvien katselu
+
+Ulkomailta voi taas matkustaa Suomeen. Kuva: Teemu Salonen / Lehtikuva
+
+Suomi on päättänyt matkustamisen säännöistä.
+
+Eduskunta hyväksyi Suomen maahantulomallin perjantaina. Maahantulomalli määrää, miten ulkomailta saa matkustaa Suomeen korona-aikana.
+
+Matkustaja saa tulla Suomeen ilman koronatestejä, jos hän on saanut molemmat koronarokotukset. Matkustajan ei myöskään tarvitse mennä koronatestiin, jos hän on sairastanut koronataudin. Koronataudista ei saa olla aikaa yli 6 kuukautta.
+
+Lisäksi kaikki matkustajat pääsevät Suomeen ilman koronatestiä maista, joissa koronatilanne on tosi hyvä. Nyt sellaisia maita ovat esimerkiksi Saksa ja Italia.
+
+## Jalkapalloturistien koronatartunnat
+
+![jalkapallo kannattajat](https://img.img-cdn.yle.fi/crop_extract,w_4109,h_2311,x_0,y_212/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81959260c475e3be056/1623488037)
+
+Avaa kuvien katselu
+
+Kuva: Tomi Hänninen 
+
+Viranomaiset ovat nyt löytäneet koronatartunnat, jotka tulivat jalkapalloturistien mukana Pietarista Suomeen.
+
+Jalkapalloturistit saivat Pietarista noin 400 koronatartuntaa. Tartuntojen takia satoja ihmisiä on määrätty pysymään kotona karanteenissa.
+
+## Intian koronatartunnat
+
+![Pariskunta poseeraa valokuvaajalle saatuaan Covaxin koronavirusrokotteen Amritsarissa, Intiassa 30. toukokuuta 2021.](https://img.img-cdn.yle.fi/crop_extract,w_4848,h_2727,x_272,y_152/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81561760b9cee5286ab/1622790046)
+
+Avaa kuvien katselu
+
+Intilainen pariskunta meni valokuvaan koronarokotuksen jälkeen. Kuva: Narinder Nanu / AFP
+
+Intian koronatilanne on huono. Intiassa on kuollut koronan takia jo yli 400 000 ihmistä.
+
+Intia on 3. maa, jossa on todettu näin paljon koronakuolemia. Myös USA:ssa ja Brasiliassa on todettu yli 400 000 koronakuolemaa.
+
+Asiantuntijat arvioivat, että Intiassa on koronakuolemia oikeasti paljon enemmän kuin tilastot kertovat.
+
+## Nukkuminen kuumalla säällä
+
+![Mies katsoo herätyskelloa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11202197)
+
+Avaa kuvien katselu
+
+Monet eivät pysty nukkumaan, jos on liian kuuma. Kuva: Thomas Baker / AOP
+
+Suomen kesä on ollut kuuma. Kuumalla säällä monet nukkuvat huonosti.
+
+Erikoislääkäri Anu Muraja-Murro kertoo, että kuumuus rasittaa sydäntä ja verenkiertoa myös yöllä. Sydämen pitää pumpata enemmän verta iholle, jotta keho viilenee. Siksi uni ei virkistä yhtä hyvin kuin tavallisesti.
+
+Muraja-Murro sanoo, että on tärkeää pitää makuuhuone viileänä. Päivällä ikkunat ja verhot pannaan kiinni, ja makuuhuone tuuletetaan vasta myöhään illalla.
+
+Illalla ei ole hyvä harrastaa kovaa liikuntaa tai syödä mausteisia ruokia, koska ne nostavat kehon lämpötilaa. Viileä suihku ennen nukkumaanmenoa voi auttaa nukkumaan paremmin, erikoislääkäri Anu Muraja-Murro sanoo.
+
+## Viikonlopun sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12007479)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Myös viikonlopun sää on aurinkoinen ja lämmin. Sää on myös poutainen eli vettä ei sada.
+
+Melkein koko maassa lämpötila on noin 30 astetta. Sää tuntuu tosi kuumalta.

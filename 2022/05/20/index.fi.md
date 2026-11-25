@@ -1,0 +1,69 @@
+# Perjantai 20.5.2022 (radio)
+
+Venäjä lopettaa kaasun tuonnin Suomeen. Venäjä perustaa tukikohtia maan länsiosiin. Valtio auttaa vesilintuja. Sää on enimmäkseen poutainen.
+
+## Kaasu Venäjältä
+
+![Kaasujalostamon piippuja ja rakennuksia harmaassa talvisäässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12423236)
+
+Avaa kuvien katselu
+
+Kuvassa Gazpromin kaasujalostamo Moskovan lähellä huhtikuun alussa. Kuva: Maxim Shipenkov / EPA
+
+Maakaasua ei pian enää tule Venäjältä Suomeen. Venäjä lopettaa kaasun tuonnin Suomeen lauantaina aamulla kello 7. Asiasta kertoo kaasuyhtiö Gasum. Syy on se, että Suomi ei suostu maksamaan Venäjälle kaasusta ruplilla.
+
+Suomen energiasta vain vähän yli 5 prosenttia on maakaasua. Maakaasua käyttää eniten teollisuus.
+
+Suomi vuokraa LNG-laivan, jotta kaasua on tulevaisuudessa tarpeeksi. Suomi vuokraa laivan USA:sta 10 vuodeksi. Laiva on käytössä ehkä ensi talvena. LNG-laivassa on maakaasua, joka on muutettu nesteeksi.
+
+## Venäjän tukikohdat
+
+![Vladimir Putin ja hänen takanaan puolustusministeri Sergei Shoigu.](https://img.img-cdn.yle.fi/crop_extract,w_3900,h_2193,x_0,y_266/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-95590262832d41ee547/1652764105)
+
+Avaa kuvien katselu
+
+Presidentti Vladimir Putin ja puolustusministeri Sergei Shoigu. Kuva: Kirill Kudryavtsev / AFP
+
+Venäjä perustaa uusia sotilasyksiköitä maan länsiosiin.
+
+Asiasta kertoo Venäjän puolustusministeri Sergei Shoigu. Hän sanoo, että uusien sotilasyksiköiden syy on Naton laajentuminen. Shoigu kertoo, että Venäjä perustaa tämän vuoden loppuun mennessä 12 uutta sotilasyksikköä.
+
+Suomi ja Ruotsi hakivat Naton jäseneksi virallisesti keskiviikkona.
+
+## Ukraina
+
+![Volodymyr Zelenskyi lähikuvassa. Hänellä on mikrofoni vasemmassa kädessä ja oikea ilmassa kasvojen edessä.](https://img.img-cdn.yle.fi/crop_extract,w_4472,h_2509,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9454636264638ed8d41/1650772805)
+
+Avaa kuvien katselu
+
+Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Sergey Dolzhenko / EPA
+
+Ukrainan presidentti Volodymyr Zelenskyi sanoo, että Venäjä on tuhonnut kokonaan Donbasin alueen Itä-Ukrainassa. Zelenskyi syyttää Venäjää pommituksista, joissa ei ole mitään järkeä.
+
+Zelenskyi sanoi videopuheessa myös, että 12 ihmistä kuoli järjettömässä pommituksessa torstaina.
+
+## Vesilinnut
+
+![punasotka](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5609695cd121ea381d0/1557209677)
+
+Avaa kuvien katselu
+
+Punasotkan kanta on romahtanut 30 vuodessa murto-osaan entisestä.  Kuva: Asko Hauta-Aho 
+
+Suomen valtio auttaa vesilintuja. Tarkoitus on, että lintujen katoaminen pysähtyy. Monia vesilintuja on paljon vähemmän kuin aikaisemmin.
+
+Suomen valtio rakentaa linnuille kosteikoita. Valtio myös korjaa vanhoja kosteikoita. Kosteikko on sellainen märkä alue luonnossa, joka on veden ja kuivan maan välissä. Kosteikot ovat tärkeitä vesilinnuille.
+
+Valtio myös pyydystää supikoiria ja minkkejä. Supikoira ja minkki ovat petoja, jotka tuhoavat lintujen pesiä. Supikoira ja minkki ovat vieraslajeja, eli ne eivät kuulu Suomen luontoon.
+
+## Sää
+
+![Meren rannalla on kaksi lintubongaria seuraamassa kevätmuuttoa kaukoputkineen](https://img.img-cdn.yle.fi/crop_extract,w_5476,h_3080,x_0,y_114/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-955506628209c5e1a18/1652690157)
+
+Avaa kuvien katselu
+
+Lintubongarit seuraavat lintujen kevätmuuttoa. Kuva: Pyry Sarkiola / Yle
+
+Sää on viikonloppuna enimmäkseen poutainen. Lapissa sataa paikoin vettä.
+
+Päivälämpötila on 11 ja 18 asteen välillä, Pohjois-Lapissa 7 ja 12 asteen välillä. Yöllä lämpötila on enimmäkseen 0 ja +6 asteen välillä.

@@ -1,0 +1,67 @@
+# Perjantai 27.4.2018 (radio)
+
+Etelä-Korean ja Pohjois-Korean johtajat ovat tavanneet. Perjantaina on vietetty Kansallista veteraanipäivää. Nettiriippuvuus on yleinen ongelma. Oulun Kärpät on jääkiekon Suomen mestari.
+
+## Koreat
+
+![Kim ja Moon halaavat hymyillen kokoushuoneessa. Kimillä on musta maolaishenkinen puku ja Moonilla tummansininen puku.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10181877)
+
+Avaa kuvien katselu
+
+Pohjois-Korean johtaja Kim Jong-un ja Etelä-Korean presidentti Moon Jae-in. Kuva: Korea Summit Press / Pool / EPA
+
+Etelä-Korean ja Pohjois-Korean johtajat ovat tavanneet. Etelä-Korean presidentti Moon Jae-in ja Pohjois-Korean johtaja Kim Jong-un tapasivat maiden rajalla, Etelä-Korean puolella.
+
+Johtajat sanoivat, että Korean niemimaalla alkaa rauhan aika. Tavoitteena on, että ydinaseet saadaan pois alueelta. Maat aikovat myös tehdä rauhansopimuksen.
+
+Etelä-Korean ja Pohjois-Korean välillä oli sota 1950-luvulla. Sodan jälkeen maat eivät tehneet rauhansopimusta.
+
+Korea hajosi 2 valtioksi 70 vuotta sitten.
+
+## Veteraanipäivä
+
+![Sotaveteraanin kunniamerkit rintamerkit rintamerkki kunniamerkki risti muistoristi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9585862)
+
+Avaa kuvien katselu
+
+Juhlapäivänä monella veteraanilla on kunniamerkkejä rinassa. Kuva: Carolus Manninen / Yle
+
+Täällä Suomessa on vietetty perjantaina Kansallista veteraanipäivää. Veteraanipäivän juhla oli Finlandia-talossa Helsingissä. Myös presidentti Sauli Niinistö osallistui juhlaan.
+
+Veteraanipäivää vietetään Suomen sotaveteraanien kunniaksi. Sotaveteraanit palvelivat Suomen armeijassa toisen maailmansodan aikana vuosina 1939–1945.
+
+Viime vuonna oli elossa noin 15 000 sotaveteraania. Useimmat veteraanit ovat jo yli 90-vuotiaita.
+
+## Nettiriippuvuus
+
+![Lapsi käyttää älypuhelinta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10167891)
+
+Avaa kuvien katselu
+
+Jo lapselle voi kehittyä nettiriippuvuus. Kuva: Vesa Moilanen / Lehtikuva
+
+Nettiriippuvuus on uusi ongelma myös Suomessa.
+
+Nettiriippuvuus tarkoittaa, että ihminen seuraa nettiä koko ajan. Ihminen tuntee, että hänen on pakko tehdä niin.
+
+Nettiriippuvuus aiheuttaa esimerkiksi masennusta ja uniongelmia. Lisäksi se haittaa esimerkiksi oppimista.
+
+Nettiriippuvuutta on vaikea huomata. Esimerkiksi työpaikalla on paljon vaikeampi huomata nettiriippuvuutta kuin alkoholiriippuvuutta.
+
+Psykologeilla on koko ajan enemmän potilaita, jotka kärsivät nettiriippuvuudesta. Monet potilaat ovat lapsia ja nuoria.
+
+## Mestari Kärpät
+
+![Veini Vehviläinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10180515)
+
+Avaa kuvien katselu
+
+Maalivahti Veini Vehviläinen nostaa voittopokaalia. Kuva: Tomi Hänninen
+
+Vielä urheilu-uutinen: Jääkiekon uusi Suomen mestari on Oulun Kärpät. Mestari selvisi torstai-iltana, kun Kärpät voitti Tampereen Tapparan.
+
+Kärpät ja Tappara pelasivat 6 finaalipeliä. Kärpät oli parempi joukkue. Kärpät voitti 4 finaalipeliä ja Tappara 2.
+
+Kärpät voitti viimeisen finaalipelin 1 - 0. Kärppien voittomaalin tekijä oli Aleksi Mäkelä.
+
+Tärkeä rooli finaalipeleissä oli Kärppien maalivahdilla Veini Vehviläisellä. Viimeisessä finaalipelissä hän ei päästänyt Kärppien maaliin yhtään osumaa.

@@ -1,79 +1,55 @@
-# Uutisviikko selkosuomeksi | sunnuntai 8.11.2026
+# Selkouutiset | maanantai 9.11.2026
 
-USA:n vaalit. Puoluekannatus. Pommiuhkaukset. Venäjä jääkiekossa. Isänpäivä.
+YK:n ilmastokokous. Passit. Kruunusiltojen raitiotie. Postia joulupukille. Sää
 
-Kuuntele
+## Ilmastokokous
 
-Voit lukea uutiset samanaikaisesti alta.
+Aluksi ilmastoasiaa.
 
-## USA:n vaalit
+YK:n kansainvälinen ilmastokokous on alkanut Turkin Antalyassa.
 
-![Kartta välivaalien senaatin tuloksesta 2026.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17329456aeb326d7cae2/1793798841)
+Kokouksen pääteemaksi nousee ehkä tällä kertaa maailman sähköistyminen.
 
-Avaa kuvien katselu
+Se tarkoittaa, että puhtaan sähkön käyttöä lisätään esimerkiksi energiantuotannossa, teollisuudessa ja liikenteessä. Silloin myös ilmastopäästöt vähenevät.
 
-Kuva: Juha Rissanen / Yle
+## Passit
 
-Tällä viikolla on puhuttu paljon USA:n vaaleista. Vaaleissa demokraatit voittivat ja republikaanit hävisivät. Vaaleissa valittiin edustajia kongressiin eli USA:n eduskuntaan.
+Sitten uutinen passeista.
 
-USA:n presidentti **Donald Trump** on republikaani. Trump ei ollut vaaleissa ehdokkaana, mutta vaalitulos oli vastalause Trumpin politiikalle. Näin sanovat asiantuntijat.
+Poliisi varoittaa, että passin uusimisessa voi olla ruuhkaa ensi vuonna.
 
-Vaalitulos tarkoittaa, että Trumpin on vaikeampi saada läpi uusia lakeja kuin nyt. Trumpilla on yhä paljon valtaa USA:n ulkopolitiikassa.
+Ruuhkaa odotetaan, koska yli miljoonan suomalaisen passi vanhenee vuonna 2027.
 
-## Puoluekannatus
+Poliisi sanoo, että passi kannattaa uusia jo talvella ennen kesän lomakautta.
 
-![SDP jatkaa kannatuskyselyn kärjessä 22,9 prosentilla ja PS toisena 16,7:lla. Kokoomuksen lasku jatkuu (15,4 %). Vasemmistoliitto ohitti 12,6 %:n kannatuksella jo keskustan. ](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17326826aeaf471ed13f/1793783274)
+## Kruunusiltojen raitiotie
 
-Avaa kuvien katselu
+Sitten kerromme raitiovaunuliikenteestä.
 
-Kuva: eduskunta, Petteri Sopanen / Yle, Silja Viitala / Yle ja Mårten Lampén / Yle, grafiikka: Nanna Särkkä / Yle
+Helsingissä juhlittiin viikonloppuna uutta raitiovaunureittiä. Reitti yhdistää Laajasalon kaupunginosan kantakaupunkiin.
 
-Yle julkaisi tällä viikolla puolueiden kannatuskyselyn.
+Reitti kulkee uusia Kruunusiltoja pitkin. Yksi niistä on Kruunuvuoren silta, joka on Suomen pisin silta. Se on yli kilometrin pituinen.
 
-Kysely kertoo, että Suomen suosituin puolue on edelleen SDP. SDP:n kannatus on 22,9 prosenttia. SDP on oppositiopuolue.
+Uudesta reitistä on sanottu, että se on ehkä maailman kaunein raitiovaunureitti.
 
-Sijalla 2 kyselyssä on hallituspuolue perussuomalaiset. Perussuomalaisten kannatus on 16,7 prosenttia. Kolmantena on kokoomus, jonka kannatus on 15,4 prosenttia. Kokoomuksen kannatus on nyt alempi kuin yli 30 vuoteen. Kokoomus on pääministeri **Petteri Orpon** puolue.
+## Postia joulupukille
 
-Seuraavina kyselyssä ovat vasemmistoliitto ja keskusta.
+Sitten aiheena on joulupukin posti.
 
-## Pommiuhkaukset
+Suomen posti on vienyt joulupukin postilaatikon Lontooseen. Postilaatikko on joulutorilla Leicester Squarella. Siihen voi jättää kirjeen ja lahjatoiveet joulupukille.
 
-![Viisi poliisia seisoo lentokentän edustalla lentoaseman sisäänkäynnin lähellä matkatavaravaunujen vieressä.](https://img.img-cdn.yle.fi/crop_extract,w_4135,h_2325,x_0,y_316/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17342496aedbb7902a6c/1793965008)
+**Isabella** toivoi pukilta tänä vuonna puista jäätelökauppalelua. **Talia** toivoi rahaa. **Sam** toivoi onnellisuutta ja Lego-lahjakorttia.
 
-Avaa kuvien katselu
+Suomen posti toi joulupukin postilaatikon Lontooseen, koska pukki saa joka vuosi paljon kirjeitä Britanniasta.
 
-Kuva: Liselotta Sabroe / AFP
+Kaikki eivät kuitenkaan tiedä oikeaa osoitetta. Moni lähettää postia pohjoisnavalle, vaikka Joulupukki asuu Korvatunturilla.
 
-Useille lentokoneille lähetettiin tällä viikolla pommiuhkauksia. Pommiuhkauksia lähetettiin lentokoneille eri puolilla Eurooppaa.
+## Tiistain sää
 
-Myös 2 Finnairin lentokonetta sai pommiuhkauksen.
+Vielä sääennuste.
 
-Lentokoneissa ei ollut pommeja. Koneet joutuivat tekemään hätälaskun uhkausten takia.
+Pohjoisessa on aurinkoista ja lämpötila jää selvästi pakkasen puolelle.
 
-Moni asiantuntija uskoo, että pommiuhkausten lähettäjä on Venäjä.
+Maan keskivaiheilla sataa vettä ja lunta.
 
-Pääministeri Petteri Orpo sanoo, että viranomaiset selvittävät tapahtumia.
-
-## Venäjä jääkiekossa
-
-![Jääkiekkojoukkue seisoo jäällä riveissä punaisissa pelipaidoissa, paidoissa on Venäjän vaakuna ja teksti &quot;Россия&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_4872,h_2740,x_0,y_300/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17313166ae76bdd5a37e/1793551386)
-
-Avaa kuvien katselu
-
-Kuva: Ondrej Deml / AOP
-
-Keskustelu Venäjästä ja jääkiekosta jatkui tällä viikolla. Viime viikolla kansainvälinen urheiluoikeus päätti, että Venäjä saa pelata jääkiekon MM-kisoissa ensi vuonna.
-
-Nyt moni maa on ilmoittanut, että Venäjää vastaan ei pelata. Myös Suomen jääkiekkoliitto ilmoitti, että Suomi ei pelaa Venäjän kanssa. Saman päätöksen tekivät esimerkiksi Ruotsi ja Tsekki.
-
-## Isänpäivä
-
-Tänään sunnuntaina on isänpäivä.
-
-Isänpäivää vietetään samaan aikaan myös Ruotsissa, Norjassa, Islannissa ja Virossa. Monissa muissa maissa isänpäivää vietetään kesällä.
-
-Isänpäivänä juhlitaan isiä ja isoisiä. Isänpäivä on liputuspäivä.
-
-Suomessa on yhteensä yli 1,3 miljoonaa isää.
-
-Tämä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
+Etelämpänä on lämpimämpää ja pilvistä.

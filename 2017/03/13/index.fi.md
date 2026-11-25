@@ -1,0 +1,71 @@
+# Maanantai 13.3.2017 (radio)
+
+Jussi Halla-aho yrittää päästä perussuomalaisten puoluejohtajaksi. Skotlanti järjestää ehkä uuden kansanäänestyksen itsenäisyydestä. Tukholmassa on vietetty Suomen talvisodan muistojuhlaa. Suomessa keskustellaan naisten ja miesten palkkaerosta. Ranuan eläinpuiston jääkarhun poikanen tulee ulos pesästä ehkä keskiviikkona.
+
+## Perussuomalaiset
+
+![Jussi Halla-Aho](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9426539)
+
+Avaa kuvien katselu
+
+Jussi Halla-aho. Kuva: Petteri Paalasmaa / AOP
+
+Jussi Halla-aho yrittää päästä perussuomalaisten puoluejohtajaksi. Europarlamentaarikko Halla-aho kertoi asian maanantaina.
+
+Halla-aho sanoi, että perussuomalaisten kannattajat ovat kansallismielisiä. Siksi myös puolueen pitää puolustaa suomalaisten etua. Halla-aho ei sanonut, pysyykö perussuomalaiset Suomen hallituksessa, jos hänet valitaan puoluejohtajaksi.      
+
+Perussuomalaisten johtajaksi on myös kolme muuta ehdokasta. Uusi puoluejohtaja valitaan kesällä. Nykyinen johtaja Timo Soini ei halua enää jatkaa puoluejohtajana.
+
+## Skotlanti
+
+![Skotlannin sijainti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8668260)
+
+Avaa kuvien katselu
+
+Skotlanti on osa Britanniaa. Kuva: Yle Uutisgrafiikka
+
+Skotlanti järjestää ehkä uuden kansanäänestyksen itsenäisyydestä.
+
+Skotlanti on Britannian osa, mutta Britannia eroaa Euroopan unionista ja suurin osa skotlantilaisista haluaa pysyä unionissa. Siksi Skotlanti miettii, kannattaako sen itsenäistyä.
+
+Skotlannissa oli kansanäänestys itsenäisyydestä noin 2 vuotta sitten. Silloin 55 prosenttia skotlantilaisista halusi pysyä Britannian osana.
+
+## Muistojuhla
+
+![ Tasavallan presidentti Sauli Niinistö ja kruununprinsessa Victoria ja prinssi Carl Philip puistossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9507291)
+
+Avaa kuvien katselu
+
+Suomen presidentti Sauli Niinistö ja Ruotsin kruununprinsessa Victoria.  Kuva: Tasavallan Presidentin Kanslia / Lehtikuva
+
+Presidentti Sauli Niinistö osallistuu tänään maanantaina talvisodan muistojuhlaan Tukholmassa Ruotsissa.
+
+Muistojuhla pidetään niiden ruotsalaisten kunniaksi, jotka taistelivat Suomen puolella sodassa Neuvostoliittoa vastaan. 1930- ja 1940-luvun sodissa Suomen armeijassa oli noin 10 000 vapaaehtoista ruotsalaista.  
+
+Myös Ruotsin kruununprinsessa Victoria ja prinssi Carl Philip osallistuvat Tukholman muistojuhlaan.
+
+## Palkkaero
+
+![Hoitaja palvelutalon asukkaan vuoteen vieressä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9128719)
+
+Avaa kuvien katselu
+
+Naiset ovat usein aloilla, joilla on pieni palkka. Kuva: Ere Ek / Yle
+
+Suomessa keskustellaan naisten ja miesten palkkaerosta.
+
+Naiset ansaitsevat Suomessa vähemmän kuin miehet. Kun miehet ansaitsevat euron, naiset ansaitsevat 83 senttiä.
+
+Naisten ja miesten palkkaero on pienentynyt, mutta hyvä kehitys on pysähtynyt. Palkkaero ei enää pienene.
+
+On monia syitä, miksi naiset ansaitsevat vähemmän kuin miehet. Naiset ovat usein aloilla, joilla palkat ovat pieniä. Naiset ovat myös enemmän perhevapailla, ja heillä on vähemmän työvuosia kuin miehillä. Miehillä on enemmän aikaa edetä hyväpalkkaisiin töihin.
+
+## Jääkarhu
+
+![Venus ja pentu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9479018)
+
+Avaa kuvien katselu
+
+Jääkarhu on hoitanut poikasta pesässä jo yli 3 kuukautta. Kuva: Ranua Zoo
+
+Vielä uutinen Ranuan eläinpuistosta. Jääkarhun pesän luukku avataan keskiviikkona. Silloin myös jääkarhun poikanen voi tulla ensimmäisen kerran ulos. Se on kasvanut pesässä yli 3 kuukautta.

@@ -1,0 +1,71 @@
+# Maanantai 12.12.2022 (radio)
+
+Etelä-Suomessa on myrsky. Ulkomaalaisten turistien määrä on pienempi kuin ennen koronaa. Tällä viikolla lähetetään paljon joulupostia. Lunta sataa myös tiistaina.
+
+## Talvimyrsky
+
+![Autoja talvisella tiellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12683994)
+
+Avaa kuvien katselu
+
+Arkistokuva. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Etelä-Suomessa on talvimyrsky. Lunta sataa paljon ja tuuli on kovaa. 
+
+Maanteillä ajokeli on lumisateen takia paikoin tosi huono. Poliisi sanoo, että maanteillä pitää ajaa hidasta vauhtia. Ohituksia kannattaa välttää.
+
+Ainakin Helsingin kaupungin ja Päijät-Hämeen pelastuslaitokset sanovat, että autolla ei kannata maanantai-iltana ajaa ollenkaan, ellei ole tärkeä syy.
+
+Myrskyn takia joitakin junavuoroja on peruttu. Finnair kertoo, että lentokoneet ovat aikataulusta myöhässä. Lentoja on ehkä myöhässä myös huomenna tiistaina.
+
+Myrsky kaataa ehkä puita sähkölinjoille. Tämän takia sähköt voivat mennä poikki.
+
+Jotkut hiihtokeskukset sulkivat laskettelurinteet myrskyn takia.
+
+## Ulkomaalaiset turistit
+
+![Ett Finnairflyg är på väg att landa vid Helsingfors-Vanda flygplats i solnedgången.](https://img.img-cdn.yle.fi/crop_extract,w_5759,h_3239,x_0,y_599/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10365306379fc14d4d18/1668938840)
+
+Avaa kuvien katselu
+
+Kuva: Esko Jämsä / AOP
+
+Suomessa käy vähemmän ulkomaalaisia turisteja kuin ennen koronaa. Ulkomaalaisia turisteja on tänä vuonna ollut Suomessa 30 prosenttia vähemmän kuin vuonna 2019. Varsinkin aasialaisia turisteja on Suomessa vähemmän kuin aikaisemmin. 
+
+Lappiin odotetaan joulun aikaan paljon turisteja ulkomailta. Lappiin tulee tänä vuonna paljon ihmisiä Euroopasta. Myös USA:sta matkustaa Lappiin enemmän ihmisiä kuin aikaisempina vuosina.
+
+## Jouluposti
+
+![Kuntalaisten lähettämää joulupostia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11702643)
+
+Avaa kuvien katselu
+
+Joulupostia. Kuva: Kemin kaupunki
+
+Suomalaiset lähettävät ennen joulua paljon joulupostia ja joulupaketteja. 
+
+Posti arvioi, että ihmiset lähettävät eniten paketteja tällä viikolla. Jo viime viikolla posti toimitti yhteensä 1,5 miljoonaa pakettia. Tämä on selvästi enemmän kuin tavallisella viikolla.
+
+## Pakkasennätys
+
+![Näkymä Utsjoelta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11165199)
+
+Avaa kuvien katselu
+
+Arkistokuva Utsjoelta. Kuva: Esko Jämsä / AOP
+
+Lapissa mitattiin maanantaina aamulla talven kylmin lämpötila. Savukosken Tulppiossa oli pakkasta 33,6 astetta. Monella muullakin mittauspaikalla Lapissa oli yli 30 astetta pakkasta.
+
+## Sää
+
+![Henkilö ylittää katua kahden lumiauran takaa lumipyryssä.](https://img.img-cdn.yle.fi/crop_extract,w_4279,h_2407,x_0,y_120/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-79086460657a3d7c768/1617265319)
+
+Avaa kuvien katselu
+
+Etelässä sataa lunta. Kuvituskuva. Kuva: Petteri Bülow / Yle
+
+Tiistaina sataa lisää lunta suuressa osassa maata. Lapissa on poutaa. 
+
+Lapissa on noin 20 astetta pakkasta. Muualla maassa pakkasta on noin 10 astetta. Sää on tuulinen, joten sää tuntuu tosi kylmältä.
+
+Ajokeli on huono tai erittäin huono Etelä-Suomessa ja myös monin paikoin Keski-Suomessa. Merellä on myrskyä tai tuuli on kovaa.

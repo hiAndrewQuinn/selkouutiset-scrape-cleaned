@@ -1,0 +1,69 @@
+# Keskiviikko 2.9.2020 (radio)
+
+Metsäfirmat tapasivat pääministeri Sanna Marinin. Koronatukia on jaettu firmoille yli miljardi euroa. Yle aloittaa uutiset lapsille. Sääennuste.
+
+## Metsäfirmat tapasivat pääministeri Marinin
+
+![Metsä Groupin pääjohtaja Ilkka Hämälä (vas) ja Metsäteollisuus ry:n toimitusjohtaja Timo Jaatinen saapumassa Valtionevostoon tapaamaan pääministeri Sanna Marinia keskiviikkona.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11523521)
+
+Avaa kuvien katselu
+
+Metsä Groupin pääjohtaja Ilkka Hämälä ja Metsäteollisuus ry:n toimitusjohtaja Timo Jaatinen tulivat tapaamaan pääministeri Sanna Marinia keskiviikkona. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Suomalaisten metsäfirmojen johtajat ovat tavanneet pääministeri **Sanna Marinin**. Metsäfirmoilla ja pääministeri Marinilla on ollut pieni riita siitä, saavatko metsäfirmat sulkea paperitehtaita.
+
+Metsäfirmojen johtajat sanovat, että tapaaminen pääministeri Sanna Marinin kanssa oli hyvä. Metsäfirmat uskovat, että Suomen hallitus ei vaikeuta metsäteollisuuden toimintaa.
+
+Metsäteollisuuden tilanne on paljon esillä, koska Metsäfirma UPM kertoi viime viikolla, että UPM lopettaa Kaipolan paperitehtaan toiminnan Jämsässä.
+
+## Koronatukia maksettu firmoille yli miljardi
+
+![Mobiilipelin pelaamista pelitapahtumassa Bangkokissa 2017.](https://img.img-cdn.yle.fi/crop_extract,w_4267,h_2400,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7072275f329fc3bf94b/1597153363)
+
+Avaa kuvien katselu
+
+Koronatukea ovat saaneet esimerkiksi pelifirmat. Kuva: Rungroj Yongrit/ EPA
+
+Suomi on antanut firmoille Business Finlandin kautta koronatukea tänä vuonna yli 900 miljoonaa euroa.
+
+Koronatukea ovat saaneet eniten kaupan ala, rakentaminen, ohjelmistoala ja peliala, matkailu- ja ravintola-ala ja luovat alat. Tukea firmojen kehittämiseen haki noin 30 000 projektia. Niistä noin 70 prosenttia sai tukea.
+
+Firmoille jakavat tukea myös ELY-keskukset. Ne ovat jakaneet koronatukea tänä vuona noin 300 miljoonaa euroa.
+
+## Ylen uutispalvelu lapsille on Yle Mix
+
+![Yle Mixin juontajat Jasmin Beloued ja Kiia Keskikylä](https://img.img-cdn.yle.fi/crop_extract,w_6500,h_3656,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7091975f3ba34564e4a/1598005041)
+
+Avaa kuvien katselu
+
+Yle Mixin juontajat Jasmin Beloued ja Kiia Keskikylä. Kuva: Ilmari Fabritius / Yle
+
+Yle aloittaa uuden uutispalvelun lapsille. Uutispalvelun nimi on Yle Mix. Se tarjoaa uutisia alakouluikäisille videoina.
+
+Yle Mixin videot näkyvät kanavissa, joita lapset käyttävät paljon eli Yle Areenassa, Youtubessa ja Tiktokissa.
+
+Yle Mixin uudet videot tulevat Yle Areenaan ja YouTubeen keskiviikkoisin ja perjantaisin iltapäivällä.
+
+Tutustu tästä Yle Mixin videoihin
+
+## Li Anderson saa vauvan
+
+![Opetusministeri Li Andersson työhuoneellaan 04.08.2020.](https://img.img-cdn.yle.fi/crop_extract,w_4016,h_2259,x_0,y_1876/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7051175f296e4d0f5b2/1599039903)
+
+Avaa kuvien katselu
+
+Opetusministeri Li Andersson työhuoneellaan 4.8.2020. Kuva: Hilma Toivonen / Yle
+
+Opetusministeri **Li Andersson** saa vauvan. Ministeri Li Andersson kertoo, että vauva syntyy vuoden lopussa, ehkä uudenvuoden aikaan.
+
+Li Andersson on vasemmistoliiton puheenjohtaja, kansanedustaja ja ministeri. Hän on naimisissa **Juha Pursiasen** kanssa. Lapsi on heille ensimmäinen.
+
+## Sää
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5379497"
+
+Avaa kuvien katselu
+
+Torstaina on paikoin puolipilvistä, paikoin sataa. Kuva: YLE / Sannimari Lehtilä
+
+Torstaina maan etelä- ja länsiosassa tulee sadekuuroja. Pohjois-Suomessa on selkeää ja ei sada. Lämpötila on 18...22 astetta. Pohjoisessa 15...19 astetta.

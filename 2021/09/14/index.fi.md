@@ -1,0 +1,69 @@
+# Tiistai 14.9.2021 (radio)
+
+Hallitus lieventää ravintoloiden rajoituksia. Suomen talous kasvaa nopeasti. Yli 50 asteen lämpötilat yleistyvät maapallolla.
+
+## Ravintoloiden koronarajoitukset
+
+![Kokki Henri Alèn ja kylmäkkö Saska Ruutiainen työskentelivät ravintola Pastiksen keittiössä.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82232160cb35e372f9c/1623930817)
+
+Avaa kuvien katselu
+
+Kokki Henri Alèn ja kylmäkkö Saska Ruutiainen valmistelivat illallista ravintola Pastiksen keittiössä 16. kesäkuuta. Kuva: Silja Viitala / Yle 
+
+Hallitus lieventää vähän ravintoloiden ja baarien koronarajoituksia. Suuressa osassa Suomea ravintolat saavat olla auki tunnin kauemmin kuin nyt. Uudet rajoitukset alkavat torstaina.
+
+Ravintolat sanovat, että hallituksen päätös on huono. Ravintoloiden mielestä rajoitukset pitää lopettaa kokonaan.
+
+## Rokotukset
+
+![Nuori poika istuu rokotettavana jumppasalissa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_266/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-852042613ab6e6514f1/1641616523)
+
+Avaa kuvien katselu
+
+Nuori poika istuu rokotettavana jumppasalissa. Kuva: Etienne Laurent / EPA
+
+2 koronarokotetta on saanut Suomessa nyt yli 64 prosenttia yli 12-vuotiaista ihmisistä.
+
+THL kertoo, että 2 rokotetta on saanut lähes 3,14 miljoonaa ihmistä.
+
+## Suomen talous
+
+![Ruokakoria kantava henkilö kauppakeskuksen liukuportaissa.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_148/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-771075601f8c19c2ef4/1734432105)
+
+Avaa kuvien katselu
+
+Suomen talous kasvaa nopeasti. Näin sanoo Pellervon taloustutkimus. Kuva: Tiina Jutila / Yle
+
+Suomen talous kasvaa nyt nopeasti. Näin sanoo Pellervon taloustutkimus.
+
+Pellervon taloustutkimus arvioi, että Suomen talous kasvaa tänä vuonna 3,7 prosenttia ja ensi vuonna 4 prosenttia.
+
+Maaliskuussa Pellervon taloustutkimus arvioi, että Suomen talous kasvaa tänä vuonna 2,5 ja ensi vuonna 3,5 prosenttia.
+
+Suomen talous kasvaa nyt nopeammin kuin tavallisesti. Kasvu voi hidastua, koska monessa työpaikassa on liian vähän työntekijöitä.
+
+## Putin karanteeniin
+
+![Vladimir Putin Valamossa](https://img.img-cdn.yle.fi/crop_extract,w_1242,h_699,x_0,y_755/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-845218612397380cd59/1629722716)
+
+Avaa kuvien katselu
+
+Venäjän presidentti Vladimir Putin. Kuva: EP​A/ALEXEI DRUZHININ / SPUTNIK / KREMLIN / POOL
+
+Venäjän presidentti Vladimir Putin jää karanteeniin. Syynä on, että Putinin lähipiirissä on koronatartunta.
+
+Putin tapasi maanantaina Moskovassa Syyrian presidentin Bashar al-Assadin. Putin on aikaisemmin ottanut koronarokotuksen.
+
+## Kuumuus
+
+![Henkilö makaa betonilla suihkulähteen alla.](https://img.img-cdn.yle.fi/crop_extract,w_4464,h_2511,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-85349661407c9e042d7/1631616277)
+
+Avaa kuvien katselu
+
+Cordobassa Espanjassa mitattiin elokuussa 44 - 46 asteen lämpötiloja. Kuva: Salas / EPA
+
+Maapallolla on yli 50 astetta lämmintä useammin kuin aikaisemmin. Näin kertoo Britannian yleisradioyhtiön BBC:n selvitys.
+
+Vuosina 2010-2019 maailmassa mitattiin yli 50 asteen lämpötila 26 kertaa vuodessa. Tämä on lähes 2 kertaa enemmän kuin vuosina 1980-2009.
+
+1980-luvun alussa yli 50 asteen lämpötiloja oli vain Lähi-idässä ja Persianlahden alueella. Myöhemmin yli 50 asteen lämpötiloja on ollut myös Pohjois-Afrikassa ja Kalifornian alueella Pohjois-Amerikassa. Tänä kesänä lämpötila nousi lähelle 50 astetta myös Kanadassa ja Etelä-Euroopassa.

@@ -1,0 +1,79 @@
+# Maanantai 15.3.2021 (radio)
+
+Nesteen uusi jalostamo. Astra Zenecan rokote. Työperäinen maahanmuutto. Ylioppilaskirjoitukset. Pääsykokeet.
+
+## Nesteen uusi jalostamo
+
+![Nesteen toimitalo Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11837463)
+
+Avaa kuvien katselu
+
+Nesteen pääkonttori on Espoossa. Kuva: Vesa Moilanen / Lehtikuva
+
+Öljyfirma Neste on valinnut uuden jalostamon rakennuspaikan. Jalostamo rakennetaan Hollantiin Rotterdamiin.
+
+Jalostamon rakennuspaikaksi oli ehdolla myös Porvoo Suomessa. Neste valitsi Rotterdamin, koska siellä on halvempaa rakentaa ja paremmat kulkuyhteydet.
+
+Neste sanoo, että myös raaka-aineiden saatavuus on Rotterdamissa Suomea parempi.
+
+## Astra Zenecan koronarokote
+
+![Astra Zenecan koronarokoteampulleja.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_173/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-779980603e1b48c6be6/1614683116)
+
+Avaa kuvien katselu
+
+Astra Zenecan rokotetta. Kuva: Jarkko Riikonen / Yle
+
+Lääkefirma Astra Zeneca sanoo, että sen koronarokote on turvallinen ihmisille. Monet Euroopan maat ovat keskeyttäneet rokotukset Astra Zenecan rokotteella.
+
+Astra Zeneca on tarkistanut yli 17 miljoonan rokotetun ihmisen tiedot Britanniassa ja EU-maissa.
+
+Astra Zeneca sanoo, että tiedoista ei ole löytynyt mitään näyttöä, että rokote aiheuttaa veritulppia.
+
+Myös Euroopan lääkevirasto sanoo, että Astra Zenacan rokotetta voi käyttää.
+
+## Suomi haluaa työperäistä maahanmuuttoa
+
+![Slushin vierailijoita hämärässä käytävässä jossa värivaloja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11366887)
+
+Avaa kuvien katselu
+
+Suomessa on pulaa osaajista esimerkiksi it-alalla ja terveydenhuollossa. Kuva: Tiina Jutila / Yle
+
+Suomi haluaa nopeuttaa työperäistä maahanmuuttoa. Työministeriö valmistelee työperäiselle maahanmuutolle pikakaistaa.
+
+Pikakaista tarkoittaa, että ulkomaiset erityisosaajat ja heidän perheet voivat saada Suomeen oleskelulupapäätöksen 14 vuorokaudessa.
+
+Suomessa on pulaa työvoimasta esimerkiksi it-alalla ja terveydenhuollossa. Työministeriö valmistelee myös kokeiluja, joilla houkutellaan Suomeen erityisosaajia USA:sta ja Intiasta.
+
+Suomi aikoo myös lyhentää työ- ja koulutusperustaisten oleskelulupien käsittelyaikaa.
+
+## Ylioppilaskirjoitukset alkavat
+
+![Ylioppilaskirjoitukset alkamassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6579883)
+
+Avaa kuvien katselu
+
+Ylioppilaskirjoitukset alkavat tiistaina. Kuva: Yle
+
+Kevään ylioppilaskirjoitukset alkavat huomenna tiistaina äidinkielen lukutaidon kokeella.
+
+Ylioppilastutkinnon kokeita järjestetään seuraavien 3 viikon aikana. Lukioissa noudatetaan koronaohjeita.
+
+Monet abiturientit ovat olleet omaehtoisessa karanteenissa, että he ovat pysyneet varmasti terveinä ennen yo-kirjoituksia.
+
+## Valintakokeet järjestetään lähikokeina
+
+![Jamkin pääkampus ulkoa talvella.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_469/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7721056022bc7ceaf5d/1612890011)
+
+Avaa kuvien katselu
+
+Jyväskylän ammattikorkeakoulu. Kuva: Petri Aaltonen / Yle
+
+Yliopistot ja ammattikorkeakoulut valmistautuvat kevään valitakokeisiin.
+
+Yliopistot ja ammattikorkeakoulut järjestävät kevään valintakokeet tavallisina lähikokeina, vaikka Suomessa on koronatilanne.
+
+Valintakokeissa on tarkat koronajärjestelyt, esimerkiksi turvavälit.
+
+Ammattikorkeakoulujen valintakoepäiviä on lisätty, että hakijat jakaantuvat useammalle päivälle.

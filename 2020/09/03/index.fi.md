@@ -1,0 +1,65 @@
+# Torstai 3.9.2020 (radio)
+
+SDP on yhä suurin puolue. Koronatilanne on Suomessa rauhallinen. Hallitus tekee päätöksiä matkailusta ensi viikolla. Suomalaiset matkustivat keväällä vain vähän.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## SDP on edelleen suosituin puolue
+
+![Puoluekannatus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11523924)
+
+Avaa kuvien katselu
+
+Kuva: Harri Vähäkangas / Yle
+
+SDP on yhä Suomen suosituin puolue. SDP:n kannatus on yli 21 prosenttia. Kannatus on laskenut 2 prosenttiyksikköä. SDP on pääministeri Sanna Marinin puolue.
+
+Ylen mittauksessa perussuomalaisia äänestäisi lähes 19 ja kokoomusta yli 18 prosenttia kyselyyn vastanneista. Molemmat ovat oppositiopuolueita.
+
+Vihreiden kannatus on alle 12 ja keskustan kannatus on yli 11 prosenttia. Vihreät ja keskusta ovat hallituksessa.
+
+## Koronatartuntojen määrä on vakaa
+
+![Kuvassa on koronavirustestausta Helsingissä elokuun lopulla vuonna 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7137625f4cf63c0bb23/1598879622)
+
+Avaa kuvien katselu
+
+Kuvassa on koronavirustestausta Helsingissä elokuun lopulla vuonna 2020. Kuva: Silja Viitala / Yle
+
+Viranomaiset kertovat, että koronatartuntojen määrä on pysynyt Suomessa tasaisena.
+
+Elokuun alussa tartuntoja oli enemmän kuin kesäkuussa ja heinäkuussa. Myöhemmin elokuussa tartuntojen määrä ei enää lisääntynyt.
+
+Suomessa on ollut sekä kotimaasta että ulkomailta tulleita tautitapauksia.
+
+Ihmisiä on altistunut koronavirukselle enemmän kuin aikaisemmin. Tartuntojen määrä ei ole silti noussut kovin paljon.
+
+## Hallitus tekee pian päätöksiä matkailusta
+
+![Pääministeri Sanna Marin puhui tiedotusvälineille saapuessaan hallituksen matkustusrajoituksia käsitteleviin neuvotteluihin Säätytalolle Helsingissä 3. syyskuuta ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11525185)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin puhui tiedotusvälineille saapuessaan hallituksen matkustusrajoituksia käsitteleviin neuvotteluihin Säätytalolle Helsingissä 3. syyskuuta. Kuva: Antti Aimo-Koivisto / Lehtikuva 
+
+Pääministeri Sanna Marin sanoo, että hallitus tekee ensi viikolla päätöksiä matkailusta. Päätöksillä on tarkoitus esimerkiksi auttaa Lappia. Lappi kärsii paljon siitä, että siellä on vain vähän matkailijoita.
+
+Tarkoitus on, että ihmiset voivat matkustaa Suomeen ilman karanteenia, jos koronatesti on negatiivinen.
+
+## Suomalaisten matkustaminen vähentyi
+
+![Autio Helsinki-Vantaan lentoasema.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_43/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6697165ea9a4c266861/1653986225)
+
+Avaa kuvien katselu
+
+Helsinki-Vantaan lentoasemalla oli hiljaista huhtikuun lopulla. Kuva: Tiina Jutila / Yle
+
+Suomalaiset matkustivat keväällä tosi vähän. Syynä on koronavirus.
+
+Tilastokeskus kertoo, että matkustaminen vähentyi paljon maaliskuun aikana. Kotimaassa matkoja tehtiin maaliskuussa ja huhtikuussa noin 50 prosenttia vähemmän kuin tavallisesti. Matkailu ulkomaille loppui lähes kokonaan.
+
+Maaliskuussa hallitus kehotti välttämään matkustamista. Uudenmaan rajat suljettiin maaliskuussa 2 viikoksi.
+
+Suomalaiset peruivat tai siirsivät huhtikuun ja syyskuun välisenä aikana 1,4 miljoonaa ulkomaanmatkaa.

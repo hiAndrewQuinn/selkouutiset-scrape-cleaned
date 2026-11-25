@@ -1,0 +1,57 @@
+# Maanantai 20.8.2018 (radio)
+
+Poliisilla on ollut kiireisiä aamuja uuden alkoholilain jälkeen. Koirien tekemät hyökkäykset ovat lisääntyneet. Yritykset ovat alkaneet kilpailla hyvistä työntekijöistä palkalla. Sillanpää ei valita huumetuomiosta.
+
+## Poliisi: uusi alkoholilaki on lisännyt töitä
+
+![Poliisiauton vilkut](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10350088)
+
+Avaa kuvien katselu
+
+Poliisi on ollut kiireinen, kun ravintolat menevät nykyään kiinni viideltä aamulla. Kuva: Milla Takala / Lehtikuva
+
+Poliisin hälytystehtävät ovat lisääntyneet alkuvuoden aikana. Poliisi kertoo, että se sai tammikuun ja heinäkuun välisenä aikana yli 12 000 hälytystä enemmän kuin samaan aikaan viime vuonna.
+
+Poliisi sanoo, että hälytysten määrän syy on uusi alkoholilaki. Uusi laki muutti ravintoloiden toimintaa maaliskuussa. Ne saivat oikeuden myydä alkoholia neljään asti aamulla.
+
+Kun ravintolat ovat menneet kiinni viideltä aamulla, on poliisilla ollut kiire. Hälytyksiä on tullut aamulla esimerkiksi humalaisista ja tappeluista. Poliisi sanoo, että hälytystehtäviä on tullut paljon enemmän kuin viime vuonna varsinkin viiden ja kuuden välisenä aikana.
+
+## Koirahyökkäyksiä enemmän kuin ennen
+
+![Laura Salmela leikkii koiransa kanssa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10350923)
+
+Avaa kuvien katselu
+
+Koiran kanssa on kiva leikkiä mutta joskus koira voi suuttua ja hyökätä. Kuva: Petteri Juuti / Yle
+
+Poliisi saa nykyään usein ilmoituksia koirien hyökkäyksistä. Poliisi kertoo, että se saa joka päivä muutaman ilmoituksen koiran hyökkäyksestä. Tilastot kertovat, että koirien tekemien hyökkäysten määrä on noussut melkein 800:n kertaan vuodessa. Muutama vuosi sitten hyökkäysten määrä oli noin 500.
+
+Myös vakuutusyhtiöt kertovat koiravammojen lisääntymisestä. Usein ilmoitetaan, että koira on hyökännyt toisen koiran kimppuun. Yhä useammin vakuutusyhtiölle ilmoitetaan myös siitä, että koira on purrut ihmistä.
+
+Asiantuntija sanoo, että kasvu johtuu useasta asiasta. Koiria on esimerkiksi paljon enemmän kuin ennen. Voi myös olla, että ihmiset sopivat aikaisemmin hyökkäysten seurauksista puhumalla eikä poliisille tehty ilmoitusta.
+
+## Yritykset kilpailevat työntekijöistä
+
+![Eeva Repo tutkii vihannespussia kaupassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10356715)
+
+Avaa kuvien katselu
+
+Hyvää työntekijää voidaan houkutellaan nykyään paremmalla palkalla. Kuva: Pekka Tynell / Yle
+
+Suomen hyvä talous näkyy nyt myös työpaikoilla. Yritykset valittavat, että on vaikeaa löytää hyviä työntekijöitä. Sen takia yritykset ovat alkaneet kilpailla palkalla.
+
+Esimerkiksi Lidl sanoo, että se maksaa enemmän palkkaa kuin sopimukset määräävät. Lidl uskoo, että jos se saa hyviä työntekijöitä, yhtiö saa lisää rahaa.
+
+Kaupan työntekijöiden ammattiliitto PAM on tyytyväinen, että työntekijä voi saada enemmän rahaa kuin vain minimipalkan.
+
+## Jari Sillanpään huumetuomio jää voimaan
+
+![Jari Sillanpää haastattelussa oikeussalin edessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10361157)
+
+Avaa kuvien katselu
+
+Jari Sillanpää sai tuomion viime perjantaina. Kuva: Yle
+
+Laulaja Jari Sillanpään huumetuomio jää voimaan. Syyttäjä on kertonut, että käräjäoikeuden tuomiosta ei valiteta.
+
+Jari Sillanpää tuomittiin 10 kuukauden ehdolliseen vankeuteen kahdesta huumerikoksesta. Tuomiossa sanotaan, että Sillanpää hankki kristalli-huumetta eli metamfetamiinia yhteensä 118 grammaa 4 viime vuoden aikana.

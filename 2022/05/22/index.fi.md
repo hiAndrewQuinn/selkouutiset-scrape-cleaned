@@ -1,0 +1,71 @@
+# Sunnuntai 22.5.2022 (radio)
+
+Suomen ja Turkin neuvottelut. Ruoka Ukrainan satamissa. Digipalvelut ja vanhukset. Sää.
+
+## Suomen ja Turkin neuvottelut
+
+![Ulkoministeri Pekka Haavisto Vihreiden puoluekokouksessa Joensuussa 22.5.2022](https://img.img-cdn.yle.fi/crop_extract,w_3408,h_1917,x_0,y_142/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-958615628a02d620357/1653211905)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto. Kuva: Jani Saikko / Yle
+
+Suomi haluaa selvittää ongelmat Turkin kanssa. Ulkoministeri Pekka Haavisto sanoo, että Suomen ja Turkin välillä tarvitaan lisää neuvotteluja.
+
+Suomi ja Turkki neuvottelevat Suomen Nato-jäsenyydestä. Suomi on hakenut jäsenyyttä puolustusliitto Natossa, mutta Turkki ei hyväksy Suomen hakemusta.
+
+Suomi pääsee Natoon vasta sitten, kun Suomen hakemus on hyväksytty kaikissa Nato-maissa, myös Turkissa.
+
+Turkin mielestä Suomi suojelee terroristeja. Turkki haluaa Suomelta tiukempia toimia esimerkiksi kurdien PKK-järjestöä vastaan.
+
+Ulkoministeri Haavisto muistuttaa, että PKK on jo Suomen mielestä terroristijärjestö. Lisäksi Suomi voi esimerkiksi luvata valvoa entistä paremmin, että Suomessa ei valmistella terroritoimia, Haavisto sanoo.
+
+Myös Ruotsilla on samanlaisia ongelmia Turkin kanssa. Suomi ja Ruotsi ovat hakeneet Naton jäsenyyttä yhdessä.
+
+## Ruoka Ukrainan satamissa
+
+![Volodymyr Zelenskyi lähikuvassa. Hänellä on mikrofoni vasemmassa kädessä ja oikea ilmassa kasvojen edessä.](https://img.img-cdn.yle.fi/crop_extract,w_4472,h_2509,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9454636264638ed8d41/1650772805)
+
+Avaa kuvien katselu
+
+Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Sergey Dolzhenko / EPA
+
+Ukrainan satamissa on paljon ruokaa, jota ei voida viedä ulkomaille sodan takia.
+
+Ukrainan presidentti Volodymyr Zelenskyi sanoo, että Ukrainan satamissa on 22 miljoonaa tonnia ruokaa. Venäjä estää ruuan viennin laivoilla. Lisäksi Venäjä varastaa ruokaa itselleen, Zelenskyi sanoo.
+
+Ukraina on tärkeä viljan ja ruokaöljyn tuottaja. Monissa maissa ruokaa on pian liian vähän, koska ruokakuljetukset Ukrainasta eivät toimi.
+
+Ukrainassa on ollut sota jo melkein 3 kuukautta. Venäjä hyökkäsi Ukrainaan helmikuun lopussa.
+
+## Digipalvelut ja vanhukset
+
+![Mies käyttää puhelimellaan pankkipalveluita.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_115/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9507866273c0960f065/1651753988)
+
+Avaa kuvien katselu
+
+Yli 80-vuotias Matti Nikola maksaa laskuja älypuhelimella. Kuva: Sakari Piippo / Yle
+
+Monet vanhukset jäävät digipalvelujen ulkopuolelle.
+
+Vanhusasiavaltuutettu Päivi Topo on huolissaan vanhuksista, jotka eivät käytä tietokonetta tai älylaitteita. He eivät pääse palveluihin, jotka on siirretty verkkoon.
+
+Topo sanoo, että ihmisten pitää saada tärkeät palvelut myös konttorissa tai puhelimessa.
+
+Topon mielestä asiasta tarvitaan laki. Lain pitää turvata, että kaikki voivat käyttää esimerkiksi pankkien, Kelan, verotoimiston ja poliisin palveluja, vanhusasiavaltuutettu Topo sanoo.
+
+## Sää
+
+![Sääkartta kolmelle päivälle](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-958661628a350f3701c/1653224784)
+
+Avaa kuvien katselu
+
+Kuva: Joonas Koskela / Yle
+
+Alkuviikko on poutainen, vettä ei sada.
+
+Sää on myös lämmin. Maanantaina lämpötila on etelässä noin 20 astetta.
+
+Tiistai on kesäinen päivä, ja aurinko paistaa suuressa osassa maata. Lämpötila on paikoin yli 20 astetta.
+
+Lämmin ja aurinkoinen sää jatkuu vielä keskiviikkona, mutta torstaina Suomeen tulee sateita ja sää viilenee.

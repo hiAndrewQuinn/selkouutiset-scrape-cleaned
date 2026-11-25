@@ -1,0 +1,91 @@
+# Lauantai 21.5.2022 (radio)
+
+Keskustelut Turkin kanssa. Venäjän maakaasu. Avioliitot. Saksan myrsky. Suomen sää.
+
+## Keskustelut Turkin kanssa
+
+![Recep Tayyip Erdoğan.](https://img.img-cdn.yle.fi/crop_extract,w_4979,h_2800,x_0,y_518/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9583046288c8c25da75/1653218655)
+
+Avaa kuvien katselu
+
+Turkin presidentti Recep Tayyip Erdoğan. Kuva: Stephanie Lecocq / EPA
+
+Suomen presidentti Sauli Niinistö ja Turkin presidentti Recep Tayyip Erdoğan ovat puhuneet puhelimessa. Presidentit puhuivat Suomen Nato-hakemuksesta.
+
+Erdoğan on soittanut myös Ruotsin pääministerille Magdalena Anderssonille. Suomi ja Ruotsi hakivat puolustusliitto Naton jäsenyyttä yhdessä tällä viikolla.
+
+Turkki on sanonut, että se ei halua Suomea ja Ruotsia Natoon. Turkin mielestä Suomi ja Ruotsi suojelevat kurditerroristeja.
+
+Turkki on Nato-maa, ja siksi se voi estää Suomen ja Ruotsin Nato-jäsenyyden. Nato voi ottaa uusia jäseniä vain, jos kaikki jäsenmaat sen hyväksyvät.
+
+Presidentti Niinistö sanoi presidentti Erdoğanille, että Suomi ei hyväksy terrorismia. Keskustelut Turkin kanssa jatkuvat.
+
+## Eduskunnan puhemiehen arvio
+
+![Eduskunnan puhemies Matti Vanhanen Ykkösaamun vieraana.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2800,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-958188628890bbdd92c/1653117357)
+
+Avaa kuvien katselu
+
+Eduskunnan puhemies Matti Vanhanen. Kuva: Henrietta Hassinen / Yle
+
+Eduskunnan puhemies Matti Vanhanen sanoo, että Suomen Nato-jäsenyys on varma. Vanhanen ei usko, että Turkki estää Suomen ja Ruotsin Nato-jäsenyyden.
+
+Vanhanen muistuttaa, että uusien jäsenmaiden hyväksyminen on kestänyt Natossa aina kauan.
+
+Puhemies Vanhanen oli tv-haastattelussa lauantaiaamuna.
+
+## Venäjän maakaasu
+
+![Gasstation i Räikkölä i Imatra den 12 maj 2022.](https://img.img-cdn.yle.fi/crop_extract,w_4665,h_2624,x_0,y_411/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-95766262874787d7532/1653032960)
+
+Avaa kuvien katselu
+
+Kaasuasema Imatralla. Kuva: Lehtikuva
+
+Maakaasua ei enää tule Venäjältä Suomeen.
+
+Venäjä lopetti kaasun tuonnin Suomeen lauantaiaamuna. Syy on se, että Suomi ei suostu maksamaan Venäjälle kaasusta ruplilla.
+
+Suomi saa kaasua kuitenkin tarpeeksi. Kaasua tulee nyt Baltiasta.
+
+Suomi myös vuokraa laivan, joka varastoi nestemäistä kaasua. Laiva on käytössä todennäköisesti jo ensi talvena.
+
+## Avioliitot
+
+![Hääpari kävelee käsi kädessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12453098)
+
+Avaa kuvien katselu
+
+Uusien avioliittojen määrä vähenee.
+
+Suomalaiset solmivat avioliittoja vähemmän kuin ennen. Viime vuonna Suomessa solmittiin avioliittoja vähiten yli 100 vuoteen.
+
+Avioliiton merkitys on Suomessa muuttunut. Nykyään monien nuorten mielestä parisuhdetta ei tarvitse vahvistaa avioliitolla.
+
+Viime vuosina hääjuhlia on ollut tavallista vähemmän myös koronan takia.
+
+## Saksan myrsky
+
+![Kaatunut puu Helsingin keskuspuistossa](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_479/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80801160a50728b9e93/1621430313)
+
+Avaa kuvien katselu
+
+Myrskytuuli voi repiä puita irti maasta. Kuvituskuva. Kuva: Antti Kolppo / Yle
+
+Saksassa on ollut kova myrsky. Myrskyn takia ainakin 1 ihminen on kuollut ja 40 ihmistä on loukkaantunut.
+
+Myrsky on irrottanut kattoja ja repinyt puita irti maasta. Lippstadtin kaupungissa romahti jopa kirkon torni.
+
+Myrsky on aiheuttanut miljoonien eurojen vahingot.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12456371)
+
+Avaa kuvien katselu
+
+Suomessa sää on poutainen, eli sateita ei tule. Lapissa voi kuitenkin tulla sadekuuroja.
+
+Lämpötila on noin 15 astetta suuressa osassa maata.
+
+Maanantaina sää vähän lämpenee, ja lämpötila voi nousta etelässä lähelle 20 astetta.

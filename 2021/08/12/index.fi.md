@@ -1,0 +1,80 @@
+# Torstai 12.8.2021
+
+Koronatartunnat. Koronarajoitukset. Budjettiehdotus. Afganistan. Sää.
+
+TV:n selkouutisilla on kesätauko 20.8. asti.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Koronatartunnat
+
+![Tornion terveystyöntekijät ottavat koronatestiä rajan ylittäjältä.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8407796113bb772d0e2/1628740301)
+
+Avaa kuvien katselu
+
+Kuva: Juuso Stoor / Yle
+
+Suomessa on ilmoitettu yli 1000 uutta koronatartuntaa.
+
+Uusia tartuntoja on 1024. Se on enemmän kuin koskaan ennen 1 päivässä.
+
+Koronatartuntoja saavat nyt eniten alle 30-vuotiaat. Monet nuoret eivät ole vielä saaneet koronarokotuksia, ja he tapaavat paljon muita ihmisiä.
+
+## Koronarajoitukset
+
+![Yleiskuva](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_34/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5076485b8facf696abc/1536142691)
+
+Avaa kuvien katselu
+
+Myös sisäliikunnassa pitää noudattaa turvavälejä. Kuva: Mikko Koski / Yle
+
+Helsingin seudulle tulee uusia koronarajoituksia.
+
+Yleisötilaisuuksiin saa osallistua sisällä vain 25 ihmistä. Ulkona tilaisuuksissa saa olla 50 ihmistä. Turvavälejä pitää noudattaa.
+
+Uusien rajoitusten takia loppuvat monet sisäharrastukset, joissa turvavälejä ei voida noudattaa. Esimerkiksi kaikkea joukkueurheilua ei voida järjestää.
+
+Uudet rajoitukset tulevat voimaan viikon päästä.
+
+## Budjettiehdotus
+
+![Vessan siivous halutaan jättää usein ammattilaiselle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5432161)
+
+Avaa kuvien katselu
+
+Esimerkiksi siivouspalvelun laskut vähentävät veroja. Kuva: YLE / Minna Rosvall
+
+Ehdotus valtion budjetista on valmis. Budjettiehdotus kertoo, miten valtio kerää ja käyttää rahaa ensi vuonna.
+
+Ministeri Annika Saarikko esitteli budjettiehdotuksen torstaina. Esimerkiksi palvelualan firmoille halutaan saada lisää asiakkaita verotuksen avulla. Ihmisten kannattaa ostaa palveluja, kun niiden laskut vähentävät ostajan veroja enemmän kuin ennen. Tällaisia palveluja ovat esimerkiksi lasten ja vanhusten hoito sekä siivous.
+
+Budjettiehdotuksessa valtion velka kasvaa ensi vuonna noin 6,5 miljardia euroa. Sen on kuitenkin vähemmän kuin vielä keväällä arvioitiin.
+
+Koko hallitus neuvottelee budjetista syyskuussa. Budjetti tulee voimaan, kun eduskunta hyväksyy sen.
+
+## Afganistan
+
+![Afganistanilainen sotilas katsoo räjähtänyttä autoa. ](https://img.img-cdn.yle.fi/crop_extract,w_3648,h_2052,x_0,y_217/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83578360ffcce13b7fe/1627376941)
+
+Avaa kuvien katselu
+
+Taistelut hallituksen ja Taliban-liikkeen välillä ovat kovia Afganistanissa. Kuva: Ghulamullah Habibi / EPA
+
+Tilanne Afganistanissa on vaikea. Äärijärjestö Taliban valtaa lisää alueita, kun ulkomaalaiset sotilaat poistuvat Afganistanista.
+
+Myös suomalaisia sotilaita on ollut rauhantyössä Afganistanissa 20 vuoden ajan. Nyt he ovat lähteneet pois maasta.
+
+Suomen hallitus aikoo tuoda Suomeen myös afganistanilaisia, jotka ovat tehneet Afganistanissa töitä Suomelle. Monet heistä pelkäävät Talibania.
+
+Vielä ei tiedetä, kuinka monta afganistanilaista Suomi evakuoi eli tuo pois Afganistanista.
+
+Monet maat, esimerkiksi USA, Saksa ja Britannia, ovat jo evakuoineet tuhansia afganistanilaisia työntekijöitä.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12057035)
+
+Avaa kuvien katselu
+
+Sää on sateinen. Perjantaina saadaan sadekuuroja ja lauantaina pitempiä sateita.
+
+Perjantaina sää on kuitenkin vielä lämmin. Lämpötila on etelässä yli 20 astetta.

@@ -1,0 +1,77 @@
+# Torstai 16.4.2020 (radio)
+
+Koronavirus leviää hoivakodeissa. Maailmassa on jo yli 2 miljoonaa koronavirustartuntaa. Lentokoneet ja junat tuovat suojavarusteita Kiinasta Suomeen. Tanskassa on juhlittu kuningattaren 80-vuotispäiviä. Helsinkiin satoi talven paksuin lumipeite.
+
+## Koronavirus pääsi hoivakoteihin
+
+![rollaattori käytävällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10639106)
+
+Avaa kuvien katselu
+
+Helsingin hoivakodeissa koronavirukseen on kuollut jo 48 vanhusta. Kuva: AOP
+
+Koronavirus jatkaa leviämistä Suomen hoivakodeissa.
+
+Helsingin hoivakodeissa on tähän mennessä kuollut yhteensä 48 asukasta koronavirukseen. Vielä viime viikolla kuolemantapauksia oli 9.
+
+Kiuruvedellä Pohjois-Savossa yhteensä 11 vanhusta on nyt kuollut koronavirukseen hoivakodissa. 9 vanhusta kuoli jo aiemmin ja 2 kuoli viime yönä.
+
+## Koronatartuntoja jo yli 2 miljoonaa
+
+![Koronvirussnäyte odottaa laboratoriotutkimusta drive-in testausasema Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11307560)
+
+Avaa kuvien katselu
+
+Koronavirusnäyte odottaa laboratoriotestausta. Kuva: Jussi Nukari / Lehtikuva
+
+Maailmassa on nyt todettu yli 2 miljoona koronavirustartuntaa. Eniten tartuntoja on Yhdysvalloissa, yli 600 000.
+
+Suomessa on nyt varmistettu noin 3370 koronavirustartuntaa. Koronavirukseen on meillä kuollut yhteensä 75 ihmistä.
+
+## Myös juna tuo suojavarusteita Kiinasta
+
+![Kiinasta saapunutta konttijunaa puretaan Vuosaaren satamassa 15.4.2020.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6644995e96cd414fc10/1586941744)
+
+Avaa kuvien katselu
+
+Kiinasta on tullut konttijuna Vuosaaren satamaan. Kuva: Ilkka Klemola / Yle
+
+Suomi on saanut lisää suojavarusteita Kiinasta.
+
+Rahtikone toi eilen Kiinasta Suomeen suojakäsineitä ja hengityssuojaimia. Huoltovarmuuskeskus kertoo, että seuraava varustelasti tulee ehkä viikonloppuna.
+
+Suojavarusteita tuodaan Kiinasta Suomeen myös junalla. Eilen tuli ensimmäinen erä junalla Vuosaaren satamaan Helsinkiin.
+
+Yhteen junaan mahtuu noin 50 tavarakonttia. Junassa voidaan siis tuoda tavaraa kerralla paljon enemmän kuin lentokoneessa. Junan tulo Kiinasta Suomeen kestää vähän alle 2 viikkoa.
+
+## Tanska juhli kuningatarta
+
+![Tanskan kuningatar Margareta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11309167)
+
+Avaa kuvien katselu
+
+Kuningatar Margareeta vilkuttaa Fredensborgin linnan ovelta. Kuva: Steinar Gestsson / AFP / Lehtikuva
+
+Tanskassa on tänään juhlittu kuningatar Margareetan syntymäpäivää. Margareeta täytti 80 vuotta.
+
+Koronaviruksen takia kuningatarta juhlittiin tällä kertaa etänä. Tasan kello 12 tanskalaiset menivät parvekkeelle tai pihalle ja lauloivat kuningattarelle perinteisen onnittelulaulun.
+
+Laulua johti suorassa tv-lähetyksessä Tanskan yleisradioyhtiön tyttökuoron johtaja Phillip Faber.
+
+Kuningatar kiitti esityksestä ja sanoi, että laulu meni suoraan sydämeen.
+
+## Pääkaupunkiseudulla talven lumiennätys
+
+![Varoitus huonosta ajokelistä Turunväylällä Vihdissä aamun räntäsateessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11307635)
+
+Avaa kuvien katselu
+
+Ajokeli Etelä- ja Länsi-Suomessa oli tänään huono. Kuva: Markku Ulander / Lehtikuva
+
+Etelä- ja Länsi-Suomessa on tänään pyryttänyt lunta.
+
+Yön ja aamun aikana lunta satoi monta senttiä. Esimerkiksi Helsingin Kaisaniemessä mitattiin tämän talven lumiennätys.
+
+Lumisade vaikeutti myös liikennettä. Tieliikennekeskus kertoo, että eteläisessä Suomessa sattui useita liikenneonnettomuuksia.
+
+Huomenna lunta sataa Pohjois- ja Itä-Suomessa.

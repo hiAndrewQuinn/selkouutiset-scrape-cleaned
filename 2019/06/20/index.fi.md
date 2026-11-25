@@ -1,0 +1,77 @@
+# Torstai 20.6.2019 (radio)
+
+Ruoka on kallista Suomessa. Ruotsi ottaa käyttöön muovipussiveron. Valepoliisi sai vankeutta vanhusten huijaamisesta. Rovaniemellä havaittiin uusi hyttyslaji. Etelä- ja Keski-Suomessa ei saa polttaa juhannuskokkoja.
+
+## Ruuan hinta
+
+![Ruoan hinta Suomessa, eurooppalaiseen hintatasoon verrattuna, grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10841022)
+
+Avaa kuvien katselu
+
+Suomessa ruoka on kalliimpaa kuin monessa muussa EU-maassa. Suomalainen maksaa ruuasta noin 20 prosenttia enemmän kuin muut EU-kansalaiset keskimäärin, kertoo uusi vertailu.
+
+Esimerkiksi hedelmät, vihannekset ja perunat maksavat Suomessa melkein 30 prosenttia enemmän kuin muissa EU-maissa keskimäärin. Vain rasva ja öljyt ovat Suomessa halvempia kuin muualla.
+
+EU-maiden vertailussa Suomi oli viime vuonna viidenneksi kalleimman ruuan maa. EU:n halvinta ruokaa syötiin Puolassa ja Romaniassa,
+
+Suomen palkkataso on kuitenkin 60 prosenttia korkeampi kuin EU:ssa keskimäärin.
+
+## Ruotsin muovipussivero
+
+![Nainen kantaa muovikasseissa ostoksia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10841605)
+
+Avaa kuvien katselu
+
+Jokainen ruotsalainen ostaa noin 83 muovipussia vuodessa.  Kuva: Francis Dean / AOP
+
+Ruotsi ottaa käyttöön muovipussiveron. Vero otetaan käyttöön ensi vuoden aikana.
+
+Verouudistuksen jälkeen normaalikokoinen muovipussi maksaa Ruotsissa 7 kruunua eli noin 65 senttiä.
+
+Muovipussiverolla aiotaan kerätä valtion kassaan noin 300 miljoonaa euroa.
+
+Veron tavoite on saada ruotsalaiset ostamaan vähemmän muovipusseja. Nykyään jokainen ruotsalainen ostaa keskimäärin 83 muovipussia vuodessa.
+
+## Valepoliisi huijasi vanhuksia
+
+![Poliisin varoitustarra.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10034545)
+
+Avaa kuvien katselu
+
+OIkea poliisi ei koskaan kysy keneltäkään verkkopankkitunnuksia. Kuva: Petri Lassheikki / Yle
+
+Päijät-Hämeen käräjäoikeus on tuominnut vankeuteen miehen, joka oli esiintynyt valepoliisina. Mies sai 17 rikoksesta vähän yli vuoden vankeustuomion.
+
+Mies esiintyi poliisina ja huijasi rahaa vanhuksilta. Hän onnistui huijaamaan vanhuksilta verkkopankkitunnuksia ja käteistä rahaa. Mies sai huijauksilla kymmeniätuhansia euroja.
+
+Huijauksen uhrit asuivat eri puolilla Suomea.
+
+## Uusi hyttyslaji
+
+![hyttysparvi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10202248)
+
+Avaa kuvien katselu
+
+Suomessa on nyt tunnistettu noin 40 hyttyslajia. Kuva: AOP
+
+Suomessa on havaittu uusi hyttyslaji. Uusi laji havaittiin Rovaniemellä.
+
+Hyttyslajin nimi on Aedes rossicus. Hyttyslaji on ehkä asunut Suomessa jo satoja vuosia, mutta se huomattiin vasta nyt. Tämän lajin hyttysiä on aiemmin havaittu Tornionjoen alaosassa Ruotsin puolella.
+
+Aedes rossicus viihtyy varjoisilla paikoilla ja tulva-alueilla. Se pistää ihmistä päiväsaikaan.
+
+Suomessa on yhteensä noin 40 hyttyslajia.
+
+## Juhannuskokot
+
+![Juhannuksen viettoa Seurasaaressa 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10841438)
+
+Avaa kuvien katselu
+
+Juhannuskokkoa eis apolttaa edes veden päällä, kun metsäpalovaroitus on voimassa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Moni juhannuskokko jää polttamatta tänä vuonna.
+
+Etelä- ja Keski-Suomessa on voimassa metsäpalovaroitus ja ruohikkopalovaroitus. Se tarkoittaa sitä, että näillä alueilla juhannuskokkoa ei saa polttaa. Kokkoa ei saa polttaa, vaikka sen rakentaa veden päälle.
+
+Juhannukselle on ennustettu sade- ja ukkoskuuroja. Ennusteen mukaan metsäpalovaroitusalue pysyy kuitenkin samana koko viikonlopun.

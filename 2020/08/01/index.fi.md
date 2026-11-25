@@ -1,0 +1,84 @@
+# Lauantai 1.8.2020 (radio)
+
+Monet koronarajoitukset loppuivat lauantaina. Tutkijat kehittävät koronarokotetta. Suomalainen äiti on tullut lasten kanssa al-Holin leiriltä takaisin Suomeen. Kaljakellunta oli taas Vantaanjoella. Sää on sateista.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Koronarajoituksia poistetaan
+
+![Provinssi 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10852824)
+
+Avaa kuvien katselu
+
+Tässä kesätapahtuma vuosi sitten. Tänä vuonna isot tilaisuudet on peruttu, mutta nyt niitä saa taas järjestää.  Kuva: Mirva Ekman / Yle
+
+Monet koronarajoitukset ovat loppuneet lauantaina eli elokuun 1. päivänä.
+
+Esimerkiksi isoja yleisötilaisuuksia voidaan taas järjestää. Tilaisuuksissa saa nyt olla yli 500 ihmistä.
+
+Koronarajoitukset ovat toimineet Suomessa hyvin. Uusia koronatartuntoja on tullut vain vähän. Siksi koronarajoituksia voidaan nyt purkaa.
+
+Jos koronatartuntoja alkaa tulla lisää, hallitus voi kiristää koronarajoituksia uudelleen.
+
+Vielä Suomen koronatilanne on hyvä. Lauantaina raportoitiin 11 uutta koronatartuntaa.
+
+## Koronarokotetta kehitetään
+
+![Lähikuva hoitajan hansikoidusta kädestä pistämässä rokotetta miehen karvaiseen olkavarteen. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11136428)
+
+Avaa kuvien katselu
+
+Koronarokotetta kehitetään monessa maassa. Kuva: Sabastien Nogier / EPA
+
+Eri maiden tutkijat yrittävät kehittää rokotetta koronaa vastaan. Koronavirus voidaan pysäyttää vain rokotteen avulla.
+
+Suomalainen koronarokote on valmis ehkä ensi vuoden syksyllä. Tutkijat alkavat testata koronarokotetta eläimillä jo lähipäivinä.
+
+Venäläinen koronarokote on jo melkein valmis. Venäjän terveysministeri kertoo, että koronarokotteen testit on tehty ja sitä aletaan antaa ihmisille ehkä jo tänä syksynä.
+
+## Suomalaisia palasi al-Holin leiriltä
+
+![Naisia ja lapsi Al-Holin leirillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11181421)
+
+Avaa kuvien katselu
+
+Olot al-Holin leirillä ovat huonot. Kuva: Otso Reunanen / Yle 
+
+Suomalainen äiti on tullut lasten kanssa al-Holin leiriltä takaisin Suomeen. Perhe palasi Suomeen lauantaina.
+
+Al-Holin leiri on Syyriassa. Leirillä asuu Isis-terroristien perheenjäseniä. Heidät kerättiin leirille sen jälkeen, kun Isis voitettiin.
+
+Al-Holin leirillä on myös Isis-perheiden suomalaisia naisia ja lapsia. Osa heistä on jo palannut Suomeen.
+
+Suomen poliisi tutkii kaikki suomalaiset naiset, jotka palaavat entiseltä Isisin alueelta. Poliisi haluaa tietää, ovatko naiset tehneet rikoksia. Lisäksi tutkitaan, onko naisista vaaraa Suomelle.
+
+Poliisi oli myös lauantaina vastassa naista, joka tuli al-Holin leiriltä Turkin kautta Suomeen.
+
+## Vantaanjoella oli Kaljakellunta
+
+![Kaljakellunta keräsi ihmisiä yhteen koronapandemiasta huolimatta Pohjois-Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11476035)
+
+Avaa kuvien katselu
+
+Koronan takia Kaljakelluntaan osallistui vähemmän ihmisiä kuin edellisinä vuosina. Kuva: Roni Rekomaa / Lehtikuva
+
+Helsingissä Vantaanjoella oli lauantaina paljon kumilauttoja. Ne osallistuivat Kaljakelluntaan.
+
+Kaljakellunta on järjestetty joka kesä jo yli 20 vuoden ajan. Idea on yksinkertainen: Ihmiset kelluvat kumilautoilla ja juovat kaljaa.
+
+Kaljakellunnalla ei ole virallista järjestäjää, mutta tapahtuma tuo Vantaanjoelle paljon ihmisiä.
+
+## Lähipäivinä sataa
+
+![Koiranulkoiluttaja sateisessa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11431883)
+
+Avaa kuvien katselu
+
+Kuva: Olivia Ranta / Lehtikuva
+
+Sää on lähipäivinä sateinen.
+
+Sunnuntaina sataa eniten Keski-Suomessa. Myös etelässä sataa vettä.
+
+Maanantaina Suomeen tulee uusia sateita lännestä.

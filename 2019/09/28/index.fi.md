@@ -1,0 +1,54 @@
+# Lauantai 28.9.2019 (radio)
+
+Turvapaikanhakijoiden oikeusturvaan lisätään rahaa. Armeijan ruokahävikki väheni. Turussa ajettiin kovaa. Uutisankkuri Kari Toivanen kuoli
+
+## Turvapaikkahakemusten käsittelyyn lisää rahaa
+
+![Maria Ohisalo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10964110)
+
+Avaa kuvien katselu
+
+Sisäministeri Maria Ohisalo (vihr.) Kuva: Pekka Tynell / Yle
+
+Sisäministeri, vihreiden puheenjohtaja \*\*Maria Ohisalo \*\*haluaa vahvistaa turvapaikanhakijoiden oikeusturvaa. Ohisalo sanoi TV1:n Ykkösaamu-ohjelmassa, että hallitus esittää lisärahaa turvapaikkahakemusten käsittelyyn. Tarkoitus on, että maahanmuuttovirasto saa lisärahaa yhteensä 26 miljoonaa euroa kahdelle seuraavalle vuodelle.
+
+Ministeri Ohisalo sanoo, että lisärahan avulla töihin voidaan palkata enemmän tulkkeja ja oikeusapua, jolloin turvapaikkahakemusten käsittely nopeutuu.
+
+## Ruokahävikki väheni armeijassa
+
+![Varusmiehet hakevat linjastolta ruokaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10642686)
+
+Avaa kuvien katselu
+
+Armeijassa tehdään joka päivä ruokaa noin 70 000 annosta. Kuva: Jarkko Riikonen / Yle
+
+Armeijassa menee aiempaa vähemmän ruokaa roskiin. Armeijan ruokahävikki on vähentynyt kolmen vuoden aikana 10 %.
+
+Armeijassa tehdään joka päivä ruokaa noin 70 000 annosta. Vuodessa armeijassa säästyy kymmeniä tuhansia annoksia ruokaa, koska hävikki on pienentynyt. Samalla säästyy paljon rahaa. Armeijassa on tehty paljon työtä kolmen vuoden ajan, että ruokahävikkiä on saatu vähennettyä.
+
+Ruokahävikkiä syntyy, jos ruoka ei ole syöjien mielestä hyvää ja sitä heitetään roskiin. Varusmiehet kertovat, että esimerkiksi eväspakkauksissa on paljon sellaisia tuotteita, jotka eivät ole hyvän makuisia tai joita ei tarvita ulkoharjoituksissa.
+
+## Turussa kaahattiin vaarallista ylinopeutta
+
+![Renkaan jälkiä valtatiellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7395998)
+
+Avaa kuvien katselu
+
+Tapahtumaan osallistui noin 100 autoa ja moottoripyörää. Kuva: Tapio Termonen / Yle
+
+Autojen ja moottoripyörien kokoontuminen on aiheuttanut poliisille paljon töitä  
+Turussa.
+
+Paljon autoja ja moottoripyöriä kokoontui perjantaina illalla Turun alueella. Kuljettajat ajoivat kovia ylinopeuksia ja tekivät vaarallisia ohituksia eri puolilla Turun seutua. Yksi kuljettaja lähti poliisia karkuun autolla ja ajoi ulos tieltä. Hän ei loukkaantunut vakavasti. Kokoontumisajoissa tapahtui myös peräänajoja. Kaikilla kuljettajilla ei ollut ajokorttia.
+
+Poliisi määräsi 19 kuljettajalle sakot tai ajokiellon vaarallisesta ajamisesta. Poliisi sanoo, että kokoontumiseen perjantaina Turussa osallistui noin 100 autoa tai moottoripyörää.
+
+## Uutisjuontaja Kari Toivonen on kuollut
+
+![Kari Toivonen vuonna 2005.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10995064)
+
+Avaa kuvien katselu
+
+Uutistoimittaja Kari Toivonen työskenteli Ylellä lähes 40 vuotta. Hän jäi eläkkeelle vuonna 2005. Kuva: Jyrki Lyytikkä / Yle
+
+Yleisradion tv-uutisten pitkäaikainen uutisjuontaja **Kari Toivonen** on kuollut. Toivonen kuoli pitkän sairauden jälkeen kotona tänään lauantaina aamulla. Hän oli 77-vuotias. Kari Toivonen oli töissä Yleisradiossa melkein 40 vuotta. Hän jäi eläkkeelle vuonna 2005.

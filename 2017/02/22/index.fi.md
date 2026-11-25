@@ -1,0 +1,61 @@
+# Keskiviikko 22.2.2017 (radio)
+
+Amnesty varoittaa vihapuheesta. Pankkien täytyy tuntea asiakkaat. Vastaanottokeskuksia suljetaan. Kiuruja on jo Suomessa.
+
+## Amnesty varoittaa vihapuheesta
+
+![Yhdysvaltain presidentti Donald Trump, Turkin presidentti Recep Tayyip Erdoğan ja ja Unkarin pääministeri Viktor Orban.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9472657)
+
+Avaa kuvien katselu
+
+Yhdysvaltain presidentti Donald Trump, Turkin presidentti Recep Tayyip Erdoğan ja Unkarin pääministeri Viktor Orbán. Kuva: Saul Loeb / AFP, Martti Kainulainen / Lehtikuva, Attila Kisbenedek / AFP
+
+Ihmisoikeusjärjestö Amnesty International sanoo, että poliitikkojen jyrkät puheet ovat vaarallisia ihmisoikeuksille. Amnesty sanoo, että viime vuonna vihapuhetta oli enemmän kuin moniin kymmeniin vuosiin.
+
+Amnestyn raportti kertoo, että poliitikoista varsinkin Donald Trump puhui paljon uhkakuvista. Myös esimerkiksi Turkin ja Unkarin johtajat pitävät jyrkkiä puheita, jotka ovat ihmisoikeuksien vastaisia. Esimerkiksi 36 maata on käännyttänyt turvapaikanhakijoita takaisin maihin, joissa heitä uhkaa väkivalta tai jopa kuolema.
+
+Amnesty moittii Suomea, koska Suomi esimerkiksi kiristi viime vuonna ehtoja perheenyhdistämisestä.
+
+## Pankin täytyy tuntea asiakkaat
+
+![Sampo Pankin avainlukulista on tietokoneen näppäimistön päällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5002815)
+
+Avaa kuvien katselu
+
+Pankit seuraavat esimerkiksi tavallisesta poikkeavia siirtoja verkkopankissa. Pankki yrittää estää muun muassa rahanpesua, jossa peitetään rahan laiton alkuperä.  Kuva: Yle
+
+Pankit kysyvät nyt monia tietoja asiakkailta.
+
+Kaikki Suomessa laillisesti asuvat saavat pankkipalveluja ja tunnukset verkkopankkiin. Laki tuli voimaan vuoden alussa. Myös Suomesta turvapaikan tai oleskeluluvan saaneet saavat verkkopankkitunnukset. He voivat todistaa oman henkilöllisyyden ulkomaalaisen henkilökortilla.
+
+Laki sanoo, että pankkien täytyy tuntea jokainen asiakas, koska verkkopankki kiinnostaa rikollisia ja terroristeja. Pankki esimerkiksi tutkii, jos pankkitileillä alkaa näkyä epäilyttäviä tilisiirtoja
+
+Suomessa on käytössä jo yli kuusi (6) miljoonaa verkkopankkitunnusta.
+
+## Vastaanottokeskuksia suljetaan
+
+![Vastaanottokeskus Turku.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8342333)
+
+Avaa kuvien katselu
+
+Vastaanottokeskuksista vähennetään 1100 majoituspaikkaa. Kuva: Jussi Vierimaa /SPR
+
+Maahanmuuttovirasto sulkee 11 vastaanottokeskusta. Ne sijaitsevat eri puolilla Suomea. Paikkoja vähenee yli tuhat (1000).
+
+Aikuisten ja perheiden vastaanottokeskuksia suljetaan neljä (4) ja alaikäisten keskuksia seitsemän (7). Maahanmuuttovirasto sanoo, että paikkoja on liikaa ja niiden pitäminen on kallista.
+
+Viime vuonna vähennettiin yli 22 000 majoituspaikkaa. Jos tulijoita tulee lisää, paikkoja voidaan lisätä.
+
+## Kevättä on jo ilmassa
+
+![Kiuru.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5326596)
+
+Avaa kuvien katselu
+
+Kuu kiurusta kesään, puoli kuutta peipposesta, sanoo vanha sananlasku. Sanotaan myös, ettei yksi pääsky kesää tee. Kuva: Luonto-Liitto
+
+Ensimmäiset kiurut ovat jo lentäneet Suomeen. Kiurua on pidetty tulevan kesän merkkinä. Vanha sananlasku alkaa sanoilla "kuu kiurusta kesään".
+
+Lintujärjestö Birdlife Suomi kertoo, että kiuruja on nähty Lounais-Suomessa Utön saarella ja Nakkilassa. Kiuruja on nähty myös Paimiossa, Porissa ja Kotkassa.
+
+Myös pulmusia ja uuttukyyhkyjä on saapunut etelärannikolle ja Länsi-Suomeen. Ensimmäiset lokit ovat ehtineet jo sisämaahan.

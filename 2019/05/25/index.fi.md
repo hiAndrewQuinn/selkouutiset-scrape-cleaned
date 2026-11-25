@@ -1,0 +1,87 @@
+# Lauantai 25.5.2019 (radio)
+
+Suomalaiset äänestävät eurovaaleissa sunnuntaina. Ranskassa tapahtui pommi-isku. Intialaiset kärsivät likaisesta ilmasta. Suomi pääsi jääkiekon MM-finaaliin. Viikonloppu on sateinen.
+
+## Eurovaalit sunnuntaina
+
+![Matti Rönkä ja Susanna Turunen tulosillan harjoituksissa. ](https://img.img-cdn.yle.fi/crop_extract,w_5922,h_3331,x_0,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5657955ce7eb3cd294e/1558703231)
+
+Avaa kuvien katselu
+
+Ylen tv-studiossa harjoiteltiin vaalilähetystä. Kuva: Karoliina Simoinen / Yle
+
+Eurovaalit ovat tänä viikonloppuna.
+
+Eurovaalit järjestetään kaikissa EU-maissa. Monissa maissa äänestetään sunnuntaina.
+
+Suomessa äänestyspaikat aukeavat sunnuntaina kello 9, ja ne menevät kiinni illalla kello 20.
+
+Eurovaaleissa EU-maiden kansalaiset valitsevat edustajat Euroopan parlamenttiin. Euroopan parlamentti säätää EU:n lakeja ja päättää esimerkiksi EU:n rahoista.
+
+Euroopan parlamentissa on yli 750 edustajaa. Suomalaiset valitsevat parlamenttiin 13 edustajaa.
+
+Yle kertoo sunnuntai-iltana, ketkä pääsevät Suomesta Euroopan parlamenttiin. Vaalilähetyksiä on radiossa, televisiossa ja netissä.
+
+## Pommi-isku Ranskassa
+
+![Moottoripyöräpoliisit saattavat ambulanseja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10801480)
+
+Avaa kuvien katselu
+
+Poliiseja ja ambulansseja räjähdyspaikalla. Kuva: Philippe Desmazes / AFP
+
+Ranskan poliisi etsii pommi-iskun tekijää.
+
+Ranskassa tapahtui pommi-isku perjantai-iltana. Kukaan ei kuollut iskussa, mutta yli 10 ihmistä loukkaantui.
+
+Pommi-isku tapahtui Lyonin kaupungissa. Lyonin keskustassa räjähti pakettipommi.
+
+Valvontakamera kuvasi miehen, joka jätti laukun räjähdyspaikalle. Kuvassa on noin 30-vuotias mies. Poliisi etsii kuvan miestä.
+
+## Intian ilmansaasteet
+
+![Keuhkolääkäri Arup Halder tutkii viisivuotiaan Arya Bosen nielua Intian Kolkatassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10800704)
+
+Avaa kuvien katselu
+
+Lääkäri tutkii lasta, joka on sairastunut ilmansaasteiden takia. Kuva: Jenny Matikainen / Yle
+
+Intialaiset kärsivät likaisesta ilmasta. Ilmassa on niin paljon saasteita, että monet sairastuvat.
+
+Yli miljoona intialaista kuoli ilmansaasteiden takia vuonna 2017.
+
+Lääkärit ja monet järjestöt toivovat, että Intiaan julistetaan hätätila ilmansaasteiden takia.
+
+## Suomi MM-finaaliin
+
+![Marko Anttila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10802040)
+
+Avaa kuvien katselu
+
+Marko Anttila teki Suomen voittomaalin. Kuva: Joe Klamar / AFP / Lehtikuva
+
+Suomen jääkiekkojoukkueen menestys MM-kilpailuissa jatkuu.
+
+Suomi voitti lauantaina Venäjän. Se tarkoittaa, että Suomi pelaa sunnuntaina loppuottelussa eli finaalissa.
+
+Loppuottelun voittaja on jääkiekon maailmanmestari. Loppuottelu pelataan sunnuntai-iltana.
+
+Lauantain peli oli jännittävä. Suomi ja Venäjä taistelivat ankarasti.
+
+Peli oli pitkään tasan 0-0. Viimeisessä erässä Suomen Marko Anttila teki kuitenkin maalin, ja Suomi pääsi MM-finaaliin.
+
+## Viileä viikonloppu
+
+![Miehet grillaavat sateessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8978831)
+
+Avaa kuvien katselu
+
+Kesä on kesä, vaikka sataa. Kuva: Mika Kanerva / Yle
+
+Viikonloppu on sateinen. Lauantaina on satanut vettä joka puolella Suomea.
+
+Ylen meteorologi Joonas Koskela kertoo, että sunnuntaina Suomeen tulee uusia sateita.
+
+Viikonloppu on myös viileä, eli lämpötila ei nouse korkealle. Lämpötila on etelässä 10 ja 15 asteen välillä, pohjoisessa 5 ja 10 asteen välillä.
+
+Myös ensi viikon alussa sää on melko viileä.

@@ -1,0 +1,70 @@
+# Sunnuntai 18.7.2021
+
+Rajuilma Riikka. Euroopan tulvien uhrit. Tulvien syy. Palkinto suomalaiselle elokuvalle.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Rajuilma Riikka
+
+![Tuulenpuuskat](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83295960f2caf9e6613/1626524677)
+
+Avaa kuvien katselu
+
+Riikan kovat tuulet kulkivat sunnuntain aikana Suomen yli.
+
+Suomessa on saatu sunnuntaina kovia ukkossateita. Ukkossateita on tuonut rajuilma Riikka.
+
+Riikka on kulkenut Suomen yli kohti itää. Illan aikana ukkossateet siirtyvät Venäjän puolelle.
+
+Riikan ukkossateet ovat olleet kovia. Esimerkiksi Kuopiossa satoi niin paljon, että sadevesi pääsi talojen kellareihin. Riikka on myös salamoinut kovasti.
+
+Rajuilma Riikan takia tuhannet kodit ovat olleet ilman sähköä.
+
+## Tulvien uhrit
+
+![Mies kahlaa kainaloitaan myöten ruskeassa vedessä. Ympärillä täysin tuhoutuneita autoja ja muuta roimaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12025376)
+
+Avaa kuvien katselu
+
+Pelastustyöntekijä Belgiassa. Kuva: Julian Warnard / EPA
+
+Euroopan tulva-alueella uhrien määrä kasvaa. Sunnuntaina kerrottiin, että tulvissa on kuollut melkein 200 ihmistä.
+
+Kuolleita voi olla vielä enemmän, koska satoja ihmisiä on kadonnut. Vielä ei tiedetä, ovatko he elossa vai kuolleet.
+
+Pelastustyöntekijät etsivät kuolleita esimerkiksi autoista, jotka ovat jääneet veden alle. Pelastustyöt jatkuvat vielä kauan.
+
+Tulvat ovat aiheuttaneet paljon vahinkoja Saksan länsiosassa ja Belgiassa. Nyt jokien vedenpinta on noussut myös muualla Saksassa ja Itävallassa.
+
+## Tulvien syy
+
+![Autot kelluvat tulvivassa Meuse-joessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12025221)
+
+Avaa kuvien katselu
+
+Euroopassa kysytään, onko tämä ilmastonmuutosta. Kuva: Philippe Bourguet / AOP
+
+Euroopassa kysytään nyt, mikä on tulvien syy. Tulvia on Euroopassa joka kesä, mutta nyt tulvat ovat paljon pahempia kuin tavallisesti.
+
+Jokien vesi on noussut ennätyskorkealle kovien sateiden takia. Joillakin alueilla on satanut 2 päivässä yhtä paljon kuin tavallisesti 2 kuukaudessa.
+
+Esimerkiksi Saksassa monet tutkijat ja poliitikot sanovat, että kovien sateiden ja tulvien syy on ilmastonmuutos. Ilmastonmuutoksen takia sään ääri-ilmiöt lisääntyvät.
+
+Se tarkoittaa, että tosi kuumia ja kuivia jaksoja ja myös tosi sateisia jaksoja on enemmän kuin ennen. Ne myös kestävät kauemmin kuin ennen.
+
+## Palkinto suomalaiselokuvalle
+
+![Näyttelijät Seidi Haarla ja Juri Borisov elokuvassa Hytti nro 6](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12025532)
+
+Avaa kuvien katselu
+
+"Hytti numero 6" kertoo suomalaisesta tytöstä ja venäläisestä miehestä, jotka tapaavat junassa. Kuva: Festival de Cannes
+
+Suomalainen elokuva on voittanut palkinnon Cannesin elokuvajuhlilla.
+
+Elokuvan nimi on "Hytti numero 6". Se voitti elokuvajuhlien toiseksi parhaan palkinnon eli Grand Prix -palkinnon.
+
+Elokuvan ohjaaja on Juho Kuosmanen. Kuosmanen toivoo, että palkinto nostaa esiin suomalaista osaamista elokuva-alalla.
+
+"Hytti numero 6" kertoo junamatkasta Venäjällä. Matkan aikana suomalainen opiskelijatyttö ja venäläinen mies tutustuvat toisiinsa. Tarina on suomalaisen kirjailijan Rosa Liksomin kirjasta.

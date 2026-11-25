@@ -1,0 +1,81 @@
+# Perjantai 5.2.2021 (radio)
+
+THL on kertonut, missä järjestyksessä riskiryhmiä rokotetaan koronaa vastaan. Koronaviruksen muunnokset leviävät maailmalla. Perjantaina on vietetty Runebergin päivää. Viikonloppuna on aurinkoista ja kylmää.
+
+## Koronarokotusten järjestys
+
+![Erkki Partanen sai koronavirusrokotteen Helsingissä 1. helmikuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7682606017dcdd9e499/1630559484)
+
+Avaa kuvien katselu
+
+Vanhusten koronarokotusten jälkeen alkavat riskiryhmien rokotukset. Kuva: Silja Viitala / Yle 
+
+Terveyden ja hyvinvoinnin laitos eli THL on antanut lisää tietoa koronarokotuksista.
+
+THL kertoi perjantaina, missä järjestyksessä alle 70-vuotiaiden koronarokotukset alkavat. Rokotukset alkavat riskiryhmistä.
+
+Koronarokotus annetaan ensin riskiryhmille, joilla on erittäin iso riski sairastua vakavaan koronaan. Heitä ovat esimerkiksi syöpäsairaat.
+
+Sen jälkeen rokotetaan muut riskiryhmät, esimerkiksi ihmiset, jotka käyttävät astmalääkkeitä säännöllisesti.
+
+Kunnat järjestävät koronarokotukset. Kunnat myös kertovat asukkaille, missä ja milloin rokotuksia annetaan.
+
+## Suomen koronaluvut
+
+![THL:n kyltti Mannerheimintiellä Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5172,h_2909,x_0,y_259/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6782355ec3516e816dd/1616069887)
+
+Avaa kuvien katselu
+
+Kuva: Tiina Jutila / Yle
+
+Terveyden ja hyvinvoinnin laitos eli THL on kertonut, että Suomesta on löydetty 401 uutta koronatartuntaa. Koronatartuntoja on Suomessa yhteensä melkein 47 000.
+
+THL kertoi myös, että uusia koronakuolemia on 4. Suomessa on kuollut yhteensä 692 ihmistä koronan takia.
+
+## Koronaviruksen muunnokset
+
+![Koronavirustestauksen opastusta Helsinki-Vantaan lentoasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11757376)
+
+Avaa kuvien katselu
+
+Koronaviruksen muunnosten leviämistä yritetään estää matkustusrajoituksilla. Kuva: Markku Ulander / Lehtikuva
+
+Koronaviruksen muunnokset leviävät maailmalla. Muunnoksia on löydetty myös Suomesta.
+
+Suomesta on löydetty noin 200 koronatartuntaa, joiden syy on koronaviruksen muunnos.
+
+Suomesta on löydetty eniten brittiläistä koronaviruksen muunnosta. Brittiläinen muunnos tarttuu helposti ja leviää nopeasti.
+
+Suomessa koronaviruksen muunnoksia on kuitenkin vähemmän kuin monissa muissa maissa. Suomessa on tiukat matkustusrajoitukset, jotta muunnoksia ei tule Suomeen matkustajien mukana.
+
+## Runebergin päivä
+
+![Kansalliskirjailija Johan Ludvig Runebergin patsas Pietarsaaressa, missä perhe asui vuosia.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6389745e3aae6d8724d/1580905816)
+
+Avaa kuvien katselu
+
+Kuva: Raila Paavola / Yle
+
+Perjantaina on vietetty Runebergin päivää.
+
+Johan Ludvig Runeberg on Suomen kansallisrunoilija. Suomen kansallislaulu Maamme on Runebergin runo.
+
+Runeberg eli 1800-luvulla. Hän oli ruotsinkielinen ja kirjoitti ruotsiksi.
+
+Runebergin päivää vietetään 5. helmikuuta, koska se on Runebergin syntymäpäivä. Runebergin päivä on liputuspäivä.
+
+Runebergin päivänä Suomessa syödään Runebergin torttuja. Suunnilleen samanlaisia torttuja Runeberg söi jo 170 vuotta sitten.
+
+## Viikonlopun sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11776187)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Viikonloppuna on aurinkoista ja kylmää. Pohjoisesta tulee Suomeen kylmää ilmaa.
+
+Pakkasta on päivällä 10 ja 15 asteen välillä, mutta tuuli tekee ilmasta vielä kylmemmän tuntuisen.
+
+Lunta voi sataa vähän, mutta muuten on aurinkoista.

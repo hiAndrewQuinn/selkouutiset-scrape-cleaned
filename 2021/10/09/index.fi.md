@@ -1,0 +1,83 @@
+# Lauantai 9.10.2021 (radio)
+
+Sairaanhoitajat. Koronatuet. Psykoterapiakeskus Vastaamo. Masennus. Hirvenmetsästys. Sääennuste.
+
+## Sairaanhoitajien työ
+
+![Carita Vuorenpää ja Lotta Lantto leikkausalihoitajat Jorvin sairaalan Anestesia- ja leikkausosasto K:n pesupaikalla.](https://img.img-cdn.yle.fi/crop_extract,w_2289,h_1288,x_337,y_87/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7023685f1ac4462499d/1598963857)
+
+Avaa kuvien katselu
+
+Sairaanhoitaja pukee suojavaatteita. Kuva: Henrietta Hassinen / Yle
+
+Sairaanhoitajia houkutellaan tekemään enemmän töitä.
+
+Hoitajista on pulaa sairaaloissa. Siksi hoitajia kutsutaan töihin ylimääräisiin työvuoroihin, joista heille maksetaan lisäkorvausta. Hoitajia pyydetään ylitöihin tai esimerkiksi hälytysvuoroon.
+
+Hoitajien järjestö Tehy sanoo, että tilanne ei ole hyvä. Tehy sanoo, että hoitajia pitää palkata enemmän sairaaloihin.
+
+## Koronatuet
+
+![Elinkeinoministeri Mika Lintilä Ykkösaamun vieraana 9. lokakuuta.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_202/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-86486661614228a5ba3/1633764134)
+
+Avaa kuvien katselu
+
+Elinkeinoministeri Mika Lintilä oli lauantaina Ylen haastattelussa.  Kuva: Petteri Sopanen / Yle
+
+Suomi järjestää firmoille viidennen avustuskierroksen. Firma voi hakea avustusta, jos firmalla on mennyt huonosti koronatilanteen takia.
+
+Avustuksia annetaan esimerkiksi tapahtumien järjestäjille ja ravintoloille.
+
+Elinkeinoministeri **Mika Lintilä** kertoi Ylen haastattelussa, että rahat viidenteen avustuskierrokseen on lisätty lisäbudjettiehdotukseen.
+
+## Psykoterapiakeskus Vastaamo
+
+![Vastaamon logo.](https://img.img-cdn.yle.fi/crop_extract,w_5195,h_2922,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7676376013b40835829/1611904070)
+
+Avaa kuvien katselu
+
+Pyskoterapiakeskus Vastaamon toiminta on loppunut. Kuva: Lehtikuva
+
+Psykoterapiakeskus Vastaamon konkurssipesä on laskenut, kuinka paljon potilaat voivat saada korvausta tietomurrosta.
+
+Tuhansien Vastaamon potilaiden tiedot varastettiin muutama vuosi sitten.
+
+Vastaamon toiminta on loppunut tänä vuonna konkurssiin. Vastaamon kokurssipesä arvioi, että potilaat, joiden tietoja varastettiin, voivat saada vahingonkorvausta enintään 2 500 euroa.
+
+## Masennus ja korona
+
+![Nainen rannalla keltaisessa toppatakissa katselee kohti horisonttia.](https://img.img-cdn.yle.fi/crop_extract,w_4869,h_2739,x_535,y_297/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80709460a281a118945/1624778676)
+
+Avaa kuvien katselu
+
+Korona-aika on lisännyt masennusta ja ahdistusta. Kuva: Petteri Bülow / Yle
+
+Koronatilanne on lisännyt ihmisten masennusta ympäri maailmaa. Tuore tutkimus kertoo, että ihmisiä, jotka kokivat ahdistusta tai masennusta, oli viime vuonna noin 25 prosenttia aiempaa enemmän.
+
+Erityisesti nuorten naisten ahdistus ja masennus lisääntyi viime vuonna koronatilanteen takia.
+
+Ahdistus ja masennus lisääntyivät paljon sellaisissa maissa, joissa oli tiukkoja koronarajoituksia ja vaikea koronatilanne.
+
+## Hirvenmetsästys
+
+![Hirvisonni](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-8895542269d32f13b/1411644763)
+
+Avaa kuvien katselu
+
+Hirvi. Kuva: Yle kuvakaappaus/Risto Salovaara
+
+Hirvenmetsästys on alkanut lauantaina koko maassa.
+
+Lapissa, Pohjois-Pohjanmaalla ja Kainuussa hirvenmetsästys alkoi jo aikaisemmin syksyllä. Nyt hirvenmetsästys laajeni myös muualle Suomeen.
+
+Syksyn ja talven hirvijahteihin on annettu melkein 42 000 hirvenkaatolupaa. Se on noin 13 prosenttia vähemmän kuin viime vuonna.
+
+## Sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12137073)
+
+Avaa kuvien katselu
+
+Sunnuntaina tulee sateita. Lapissa paistaa myös aurinko.
+
+Sunnuntaina sataa vettä Pohjois-Pohjanmaan ja Kainuun korkeudella. Etelämpänä Suomessa voi tulla sadekuuroja. Länsi-Lapissa paistaa välillä aurinko. Lämpötila on 10 ja 13 asteen välillä. Pohjoisessa on viileämpää.

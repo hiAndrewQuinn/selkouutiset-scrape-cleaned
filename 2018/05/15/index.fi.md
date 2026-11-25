@@ -1,0 +1,81 @@
+# Tiistai 15.5.2018 (radio)
+
+Opettajilla on enemmän stressiä kuin muilla. Poliisi tutkii romaniperheen kohtelun vantaalaisella huoltoasemalla. Presidentti Putin on avannut sillan Krimin niemimaan ja Venäjän välillä. Suomi voitti USA:n jääkiekon MM-kilpailuissa. Tiistaina mitattiin tämän kevään uusi lämpöennätys.
+
+## Opettajien stressi
+
+![Luokkahuone Konalan alakoulussa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10191699)
+
+Avaa kuvien katselu
+
+Koulupäivän jälkeen opettaja voi olla tosi väsynyt. Kuva: Elise Tykkyläinen / Yle
+
+Opettajilla on enemmän stressiä kuin muilla. Opetusalan Ammattijärjestö kysyi opettajilta, minkälaiset työolot heillä on.
+
+Noin 60 prosenttia vastaajista sanoi, että työtä on usein liian paljon. Esimerkiksi ammattikorkeakoulujen ja lukioiden opettajat ovat sitä mieltä, että heillä on liikaa työtä.
+
+Myös kiusaaminen on opettajien ongelma. Melkein 50 prosenttia opettajista sanoo, että heitä on kiusattu tai kohdeltu muuten huonosti viimeisen vuoden aikana.
+
+Myös väkivalta on tuttua opettajille. Noin 10 prosenttia opettajista on kokenut väkivaltaa.
+
+Yleensä oppilas kiusaa tai lyö opettajaa.
+
+## Romaniperheen kohtelu
+
+![Samira Lindeman (vas.) ja Anneli Lindeman.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10204721)
+
+Avaa kuvien katselu
+
+Huoltoasema ei myynyt bensaa Lindemanin perheelle. Kuva: Riku Roslund
+
+Poliisi tutkii romaniperheen kohtelun vantaalaisella huoltoasemalla. Huoltoasema ei myynyt bensaa romaniperheelle. Tilanteesta on video, joka on levinnyt netissä.
+
+Poliisi tutkii, syrjikö huoltoasema romaneja. Syrjintä on Suomessa rikos.
+
+## Krimin silta
+
+![Venäjän presidentti Vladimir Putin kuorma-auton ratin takana. Hytissä istuu myös kaksi muuta miestä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10206436)
+
+Avaa kuvien katselu
+
+Pressidentti Putin ajoi kuorma-autoa uudella sillalla. Kuva: Alexander Nemenov / EPA
+
+Venäjän presidentti Vladimir Putin on avannut tosi pitkän sillan. Silta on Krimin niemimaan ja Venäjän välillä.
+
+Uusi silta on pitempi kuin mikään muu silta Euroopassa. Se on melkein 20 kilometriä pitkä.
+
+Silta parantaa liikenneyhteyksiä Venäjän ja Krimin välillä. Venäjä valtasi Krimin niemimaan Ukrainalta vuonna 2014.
+
+Ukraina ja myös Euroopan unioni ja USA ovat sitä mieltä, että Venäjä teki väärin, kun se otti Krimin niemimaan itselleen. Siksi uusi silta on Ukrainan mielestä laiton.
+
+## Suomen jääkiekkopeli
+
+![Sebastian Aho](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10206605)
+
+Avaa kuvien katselu
+
+Sebastian Aho teki yhdessä pelissä 3 maalia. Kuva: Tomi Hänninen
+
+Suomi menestyy hyvin jääkiekon MM-kilpailuissa.
+
+Suomi voitti tiistaina USA:n. Suomi teki pelissä 6 maalia, ja USA teki 2 maalia.
+
+Suomen joukkueen sankari oli Sebastian Aho. Hän teki hattutempun eli 3 maalia samassa pelissä.
+
+Tiistain jälkeen mukana on enää 8 parasta joukkuetta. Seuraavat pelit ovat torstaina. Suomi pelaa silloin Sveitsiä vastaan.
+
+Sunnuntaina selviää, mikä maa on jääkiekon maailmanmestari tänä vuonna.
+
+## Kevään lämpöennätys
+
+![Auringonottaja Helsingissä 15. toukokuuta 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10206107)
+
+Avaa kuvien katselu
+
+Helsingissä oli tiistaina melkein 30 astetta lämmintä. Kuva: Markku Ulander / Lehtikuva
+
+Tämän kevään lämpöennätys on parantunut. Tiistaina Helsinki-Vantaan lentokentällä mitattiin 29,6 astetta.
+
+Tiistai oli jo 5. hellepäivä peräkkäin. Helteessä lämpötila on yli 25 astetta.
+
+Toukokuussa on harvoin niin lämmintä kuin nyt. Tavallisesti lämpötila on noin 15 astetta.

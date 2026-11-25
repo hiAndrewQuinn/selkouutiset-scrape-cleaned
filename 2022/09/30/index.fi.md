@@ -1,0 +1,71 @@
+# Perjantai 30.9.2022 (radio)
+
+Venäjä liitti Ukrainasta alueita Venäjään. Suomi sulki rajan venäläisiltä turisteilta. Energian kulutus väheni. Olkiluoto 3 ydinvoimala saavutti täyden tehon. Sääennuste.
+
+## Venäjä otti Ukrainan alueita
+
+![Vladimir Putin tapasi Venäjän turvallisuusneuvostoa videoneuvottelun kautta Kremlissä 29. syyskuuta 2022.](https://img.img-cdn.yle.fi/crop_extract,w_5808,h_3267,x_0,y_505/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1014743633664152e3c4/1664509348)
+
+Avaa kuvien katselu
+
+Venäjän presidentti Vladimir Putin piti puheen perjantaina päivällä. Kuva: Gavriil Grigorov / Kremlin Pool / Sputnik / EPA
+
+Venäjä on ilmoittanut, että Venäjä on liittänyt osia Ukrainasta Venäjään. Venäjän presidentti Vladimir Putin piti asiasta puheen perjantaina päivällä. Putin sanoi, että Luhanskin, Donetskin, Hersonin ja Zaporižžjan alueet ovat nyt osa Venäjää.
+
+Putin sanoi, että alueen ihmiset äänestivät asian puolesta. Ukraina ja muut Euroopan maat eivät hyväksy Venäjän ilmoitusta. Äänestys, jonka Venäjä järjesti, ei ollut oikea äänestys.
+
+EU-komission puheenjohtajan Ursula von der Leyen sanoo, että alueet kuuluvat aina Ukrainaan.
+
+Monet maat ovat ilmoittaneet, että eivät hyväksy, että Venäjä ottaa Ukrainalta alueita. Myös Suomi tuomitsee Venäjän ilmoituksen liittää Ukrainan alueita Venäjään.
+
+## Suomi sulki rajan venäläisten turismilta
+
+![Vaalimaan rajanylityspaikalla olevia ajoneuvoja.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_333/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10150806336cfe032a88/1664536878)
+
+Avaa kuvien katselu
+
+Uudet määräykset tulivat voimaan heti perjantaina yöllä. Kuva: Antro Valo / Yle
+
+Suomi on sulkenut rajan venäläisiltä turisteilta. Venäläiset saavat tulla Suomeen vain erityisestä syystä. Erityinen syy on esimerkiksi perhe, työ tai opiskelu Suomessa.
+
+Venäjältä ei saa tulla Suomeen enää turistimatkalle. Uusi määräys tuli voimaan keskiyöllä.
+
+Rajavartiolaitos on käänyttänyt perjantaina paljon venäläisiä, joilla ei ole oikeutta tulla Suomeen.
+
+## Energian kulutus väheni
+
+![Pristavla på en bensinstation.](https://img.img-cdn.yle.fi/crop_extract,w_1909,h_1073,x_2,y_86/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10028296311fdfe0e3e8/1662123692)
+
+Avaa kuvien katselu
+
+Bensiinin kulutus on vähentynyt, koska bensiini on kallistunut. Kuva: Jakob Lillas / Yle
+
+Energian kulutus on vähentynyt Suomessa. Energian kulutus väheni alkuvuonna eli tammi-kesäkuussa 10 prosenttia viime vuoden tammi-kesäkuusta.
+
+Polttoaineiden, maakaasun ja puupolttoaineiden kulutus väheni. Sähkön kulutus väheni noin 5 prosenttia.
+
+Energiankulutus on pienentynyt, koska sota Ukrainassa on vaikuttanut moniin asioihin. Esimerkiksi maakaasun tulo Venäjältä on loppunut. Bensiini on kallistunut ja siksi myös bensiinin kulutus on vähentynyt.
+
+## Olkiluoto 3 toimi täydellä teholla
+
+![bild av ett kärnkraftverk.](https://img.img-cdn.yle.fi/crop_extract,w_3731,h_2099,x_2,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98273662d173ef59c96/1657894076)
+
+Avaa kuvien katselu
+
+Uusi Olkiluoto 3 on kuvassa pyöreä rakennus. Kuva: Lucas Ekblad / Yle
+
+Olkiluodon uuden ydinvoimalan koekäyttö on edennyt uuteen vaiheeseen. Uusi Olkiluoto 3 ydinvoimala on saavuttanut ensimmäistä kertaa täyden tehon. Tehon nostaminen täyteen tehoon onnistui hyvin.
+
+Olkiluodon uusi ydinvoimala on tosi tärkeä Suomelle. Olkiluodossa on myös 2 vanhempaa voimalaa. Myös ne toimivat täydellä teholla. Olkiluodon ydinvoimalat tuottavat noin 40 prosenttia Suomen sähköstä.
+
+Uuden Olkiluoto 3 voimalan on tarkoitus aloittaa säännöllinen sähköntuotanto joulukuussa.
+
+## Sää
+
+![Lauantain sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12646123)
+
+Avaa kuvien katselu
+
+Pilvisyys vaihtelee lauantaina eli välillä myös aurinko voi paistaa. Välillä tulee sateta.
+
+Sää on lauantaina pilvistä tai puolipilvistä. Etenkin lännessä ja pohjoisessa tulee paikoin sadetta tai sadekuuroja. Lämpötila on 7 ja 13 asteen välillä, Lapissa on viileämpää.

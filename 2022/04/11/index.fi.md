@@ -1,0 +1,79 @@
+# Maanantai 11.4.2022 (radio)
+
+Kunta-alan lakot. Teräksestä pulaa. Lasten sotaleikit. Sukututkimuksen päivä. Sää.
+
+## Uusia lakkoja
+
+![Pulpetti Leppälän koulussa.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_94/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6721575eb3e10936f6c/1644405020)
+
+Avaa kuvien katselu
+
+Tampereen ja Kuopion koulut ovat kiinni tiistaina ja keskiviikkona. Kuva: Miikka Varila / Yle
+
+Kunta-alan lakot jatkuvat. Tämän viikon tiistaina ja keskiviikkona lakkoja on Tampereella ja Kuopiossa.
+
+Tampereen ja Kuopion koulut suljetaan tiistaina ja keskiviikkona, koska silloin myös opettajat ovat lakossa eli eivät tee työtä.
+
+Ensi viikolla lakkoja on Helsingin seudulla, jos kunta-alan palkoista ei pystytä sopimaan ennen sitä.
+
+Myös hoitajien lakkoon tulee mukaan uusia työntekijöitä ensi viikolla. Hoitajalakon piti kasvaa jo tällä viikolla, mutta hoitajajärjestöt halusivat antaa aikaa neuvotteluille. Neuvotteluiden tärkein asia ovat hoitajien palkat.
+
+## Teräksestä pulaa
+
+![työmaa](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8613986156ff32f3c60/1633091435)
+
+Avaa kuvien katselu
+
+Terästä tarvitaan esimerkiksi paalutuksessa. Kuva: Kaje Komulainen / Yle
+
+Rakennusalalla on ongelmia Ukrainan sodan takia. Rakennustyömaille on nyt vaikea saada materiaaleja.
+
+Erityisesti teräksestä on pulaa. Ennen sotaa noin 25 prosenttia työmaiden teräksestä tuotiin Venäjältä, Ukrainasta ja Valko-Venäjältä.
+
+Terästä tarvitaan jo rakentamisen alussa, kun rakennus paalutetaan. Jos terästä ei saada, rakentaminen voi pysähtyä.
+
+## Lasten sotaleikit
+
+![Kaksi poikaa leikkii palikoista rakennetuilla miekoilla.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_49/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-938037624c0d0216bc4/1649151624)
+
+Avaa kuvien katselu
+
+Lapset käsittelevät vaikeita asioita leikin avulla. Kuva: Ari Haimakainen / Yle
+
+Ukrainan sota voi näkyä myös lasten leikeissä.
+
+Professori Nina Sajaniemi sanoo, että lapset eivät voi käsittää sotaa. Siksi heidän pitää käsitellä asiaa leikin avulla.
+
+Kun lapset leikkivät sotaa ja tappamista, he käsittelevät ahdistusta ja pelkoa.
+
+Joskus aikuisten pitää kuitenkin puuttua lasten väkivaltaiseen leikkiin, professori Sajaniemi sanoo.
+
+Aikuisten pitää puuttua leikkiin, jos lapset esimerkiksi mainitsevat jonkin maan, jonka asukkaat he haluavat tappaa.
+
+## Sukututkimus
+
+![Digitoitu sivu kirkonkirjasta tietokoneen näytöllä.](https://img.img-cdn.yle.fi/crop_extract,w_4027,h_2265,x_4,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8754926183ca0e7d003/1636027871)
+
+Avaa kuvien katselu
+
+Kirkonkirjoja voi nykyään lukea omalta tietokoneelta. Kuva: Jarkko Heikkinen / Yle
+
+Tänään maanantaina on vietetty sukututkimuksen päivää. Päivän tapahtumissa ihmisille on kerrottu sukututkimuksesta.
+
+Monet suomalaiset harrastavat sukututkimusta. He haluavat tietää oman suvun historiasta. Uusien sukulaisten löytäminen menneisyydestä on monille hauska kokemus.
+
+Digitointi on helpottanut sukututkimusta. Sukututkijoiden ei tarvitse enää matkustaa ympäri Suomea, koska esimerkiksi kirkonkirjat löytyvät netistä.
+
+Suomessa sukututkijoilla on hyvät tietolähteet, koska kirkonkirjoihin on merkitty esimerkiksi syntyneet ja kuolleet jo satojen vuosien ajan.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12400358)
+
+Avaa kuvien katselu
+
+Tiistaina Lapissa tulee paikoin räntäkuuroja. Muualla maassa on poutaista.
+
+Maan etelä- ja keskiosassa on aurinkoista.
+
+Lämpötila on tiistaina etelässä 5 ja 10 asteen välillä, pohjoisessa 1 ja 5 asteen välillä.

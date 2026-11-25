@@ -1,0 +1,9 @@
+# Maanantai 11.12.2017 (tv)
+
+Pankkikonttorien määrä vähenee. Monet koululaiset toivovat todistukseen numeroita aikaisemmin kuin nyt. Milanon Suomi-koulu lähettää terveisiä Italiasta Suomeen.
+
+Yle Uutiset selkosuomeksi
+
+Pankkikonttorien määrä vähenee. Monet koululaiset toivovat todistukseen numeroita aikaisemmin kuin nyt. Milanon Suomi-koulu lähettää terveisiä Italiasta Suomeen.
+
+Tiistaina 12.12. televisiossa ei ole selkouutisia, koska TV1 näyttää keskustelua eduskunnasta. Radion selkouutiset tulevat normaalisti.

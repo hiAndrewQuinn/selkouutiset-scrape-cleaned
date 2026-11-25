@@ -1,0 +1,83 @@
+# Sunnuntai 5.3.2023 (radio)
+
+Kilpailukyky. Viron parlamenttivaalit. Merien suojelu. ADHD. Vetylentokoneet. Sää.
+
+## Suomen kilpailukyky
+
+![Olli Rehn.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1049732639d7b7baa978/1671265826)
+
+Avaa kuvien katselu
+
+Suomen Pankin pääjohtaja Olli Rehn. Kuva: Yle
+
+Asiantuntija sanoo, että uudet palkankorotukset eivät vaaranna suomalaisen työn kilpailukykyä. Näin sanoo Suomen Pankin pääjohtaja Olli Rehn, jota Yle haastatteli. 
+
+Monet uudet työehtosopimukset ovat voimassa 2 vuotta. Rehn sanoo, että 2 vuoden sopimus tuo tasapainoa ihmisten ostovoiman ja suomalaisen työn kilpailukyvyn välille. Rehn sanoo, että Suomen on tärkeää pitää huolta suomalaisen työn ja firmojen kilpailukyvystä.
+
+Suomen Pankin pääjohtaja Olli Rehn arvioi myös, että Euroopan keskuspankki nostaa taas korkoa ainakin maaliskuussa. 
+
+## Viron parlamenttivaalit
+
+![Viron parlamentin eli Riigikogun rakennus Tallinnassa Toompean kukkulalla.](https://img.img-cdn.yle.fi/crop_extract,w_2048,h_1152,x_0,y_368/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7583795fec659ce782d/1609328122)
+
+Avaa kuvien katselu
+
+Viron parlamenttitalo eli Riigikogu. Kuva: Rain Kooli / Yle
+
+Virossa on pidetty sunnuntaina parlamenttivaalit. Vaalihuoneistot sulkeutuivat kello 20. Melkein 50 prosenttia virolaisista äänesti ennakkoon. 
+
+Tutkimusfirmat kysyivät ennen vaaleja virolaisilta, mitä puoluetta he aikovat äänestää. Ennakkokyselyissä näyttää, että pääministeri Kaja Kallaksen reformipuolue on ehkä vaalivoittaja. Se saa ehkä noin 30 prosenttia äänistä. 
+
+Ensimmäisiä tuloksia Viron parlamenttivaaleista sadaan maanantaina.
+
+## Merien suojelu
+
+![Kultakalaparvi Punaisessameressä](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4528305a3e702f3333e/1514041508)
+
+Avaa kuvien katselu
+
+YK neuvotteli 15 vuotta valtamerien suojelusta. Kuva: Mohammed Al Momany/ Robesus Inc.
+
+YK on päässyt sopuun valtamerien suojelusta. 
+
+30 prosenttia avomerialueista muutetaan suojelualueiksi vuoteen 2030 mennessä. Tarkoitus on suojella merien herkkää ekosysteemiä. 
+
+YK:n jäsenmaat ovat neuvotelleet 15 vuotta avomerien suojelusta. Siksi on iso asia, että suojelusta syntyi nyt sopimus. 
+
+## Tarkkaavaisuushäiriö ADHD
+
+![Skylt med ADHD ](https://img.img-cdn.yle.fi/crop_extract,w_2952,h_1660,x_0,y_950/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-43129059ca55270f031/1506432361)
+
+Avaa kuvien katselu
+
+ADHD:n oireet tunnistetaan nykyään aiempaa paremmin. Kuva: Most Photos/DOC_PhotoStock
+
+ADHD:n eli tarkkaavaisuushäiriön diagnoosit ja ADHD:n lääkehoito ovat yleistyneet Suomessa nopeasti.
+
+Kela kertoo, että 10 vuotta sitten lääkekorvauksia sai ADHD-lääkkeistä noin 12 000 suomalaista. Viime vuonna lääkekorvauksia sai ADHD-lääkkeistä yli 80 000 suomalaista. 
+
+ADHD-oireet eivät ole lisääntyneet, mutta ADHD:n oireet tunnistetaan nykyään aiempaa paremmin.
+
+## Vetylentokoneet
+
+![ZeroAvian Dornier 228-potkuriturbiinikone, jonka vasenta potkuria pyörittää sähkömoottori. Se saa tarvittavan sähkön kahdesta vetypolttoainekennosta. ](https://img.img-cdn.yle.fi/crop_extract,w_1200,h_675,x_0,y_108/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-108004564009aac26a9b/1677761287)
+
+Avaa kuvien katselu
+
+Vetyä kehitetään lentokoneiden polttoainieeksi. Vety palaa puhtaasti. Kuva: ZeroAvia
+
+Lentokoneiden moottorit kehittyvät. Euroopassa ja USA:ssa on tehty tänä vuonna testilentoja vetymoottoreilla. 
+
+Testeissä todettiin, että vety sopii lentokoneiden polttoaineeksi. Tarkoitus on, että ensimmäiset matkustajalennot vetylentokoneilla tehdään Euroopassa noin 2 vuoden kuluttua.
+
+Myös suomalainen lentofirma Finnair osallistuu uusien vetylentokoneiden kehittämiseen. 
+
+## Sää
+
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689634)
+
+Avaa kuvien katselu
+
+Maanantaina on melko pilvistä tai puolipilvistä.
+
+Sää on maanantaina melko pilvinen. Paikoin sataa vähän lunta. Länsirannikolla ja idässä aurinko pääsee ehkä paistamaan välillä. Lämpötila on päivällä -2 ja -10 asteen välillä.

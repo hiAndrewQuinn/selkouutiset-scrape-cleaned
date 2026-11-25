@@ -1,0 +1,75 @@
+# Sunnuntai 11.4.2021 (radio)
+
+Suomalaisten säästöt. Koronarokotukset. Pyörämatkailu. Ranskan takatalvi. Sää.
+
+## Suomalaisten säästöt
+
+![Seteleitä lompakossa.](https://img.img-cdn.yle.fi/crop_extract,w_2688,h_1512,x_0,y_67/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7367855f9d0e8b455d0/1715416218)
+
+Avaa kuvien katselu
+
+Korona-aikana on ollut vaikea kuluttaa rahaa. Kuva: Tiina Jutila / Yle
+
+Suomalaisten säästöt ovat kasvaneet korona-aikana.
+
+Suomalaisten pankkitileillä on nyt miljardeja euroja enemmän kuin ennen koronaa. Syynä on se, että korona-aikana ihmisillä ei ole ollut yhtä paljon mahdollisuuksia kuluttaa rahaa kuin ennen.
+
+Asiantuntijat arvioivat, että koronan jälkeen rahaa käytetään taas enemmän. Koronarajoituksia todennäköisesti puretaan loppuvuoden aikana. Silloin ihmiset voivat taas syödä ravintolassa ja matkustaa ulkomaille.
+
+## Sunnuntain koronaluvut
+
+![Henok Woge](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11868881)
+
+Avaa kuvien katselu
+
+20 prosenttia suomalaisista on saanut koronarokotuksen. Kuva: Tiina Jutila / Yle
+
+Terveyden ja hyvinvoinnin laitos kertoo, että Suomessa on 346 uutta koronatartuntaa.
+
+Uusia koronatartuntoja oli myös sunnuntaina eniten Helsingin ja Uudenmaan alueella. Siellä uusia koronatartuntoja oli sunnuntaina melkein 200.
+
+Koronarokotukset etenevät. Jo noin 20 prosenttia suomalaisista on rokotettu koronaa vastaan ainakin kerran.
+
+## Pyörämatkailun suosio
+
+![Pyörämatkailu on suosittua Turun saaristossa.](https://img.img-cdn.yle.fi/crop_extract,w_5371,h_3021,x_8,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6854925ed8de4264cf3/1591271111)
+
+Avaa kuvien katselu
+
+Suomen kaunis luonto houkuttelee turisteja pyöräilemään. Kuva: Lassi Lähteenmäki / Yle
+
+Pyöräilyn suosio kasvaa turistien joukossa. Niin uskoo Visit Finland, joka edistää matkailua Suomeen.
+
+Pyöräily voi olla osa lomamatkaa Suomessa. Uskotaan, että koronan jälkeen ulkomaalaiset turistit kiinnostuvat Suomen rauhallisista matkakohteista.
+
+Pyöräily on hyvä yhdistää matkailuun Suomen kauniissa luonnossa. Sähköpyörien avulla myös iäkkäät turistit voivat nauttia pyöräilystä.
+
+## Ranskan takatalvi
+
+![Loiren laaksossa Saint Nicolas de Bourgueilissa sijaitsevalla viinitarhalla sytytettiin soihtuja ja hiilipannuja köynnösten väliin](https://img.img-cdn.yle.fi/crop_extract,w_4250,h_2391,x_0,y_219/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7932386071d3d982dc1/1618072841)
+
+Avaa kuvien katselu
+
+Viinintuottajat ovat yrittäneet tulien avulla pakkasen poissa viinimailta. Kuva: AOP
+
+Ranskassa on ollut tällä viikolla takatalvi. Lämpötila laski pakkasen puolelle. Pakkasta oli jopa 6 astetta.
+
+Takatalvi aiheuttaa vahinkoja Ranskan viinintuottajille. Takatalven takia sadosta tulee tänä vuonna pieni. Ranskan hallitus aikoo antaa viinintuottajille hätäapua.
+
+Pakkassää tuli Ranskassa huonoon aikaan. Ennen pakkasia Ranskassa oli kesäisen lämmintä. Siksi kasvit jo kasvoivat ja kukkivat, kun talvi tuli takaisin.
+
+## Maanantain sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11879118)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Täällä Suomessa maanantai on etelässä lämmin päivä. Lämpötila voi Etelä-Suomessa olla melkein 15 astetta.
+
+Länsi-Suomessa ja Keski-Suomessa sataa maanantaina. Sadealueella on kylmempää kuin etelässä. Keski-Suomessa voi jopa sataa paljon lunta.
+
+Tiistaina sää viilenee etelässä. Etelä-Suomen lämpötila on tiistaina alle 10 astetta.
+
+Tiistaina sade siirtyy kohti pohjoista, ja Lapissa voi sataa lunta.

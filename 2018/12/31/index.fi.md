@@ -1,0 +1,83 @@
+# Maanantai 31.12.2018 (radio)
+
+Vain 2 Manner-Suomen kuntaa pystyy laskemaan kunnallisveroa ensi vuonna. Pääministeri Juha Sipilä varoittaa uudenvuodentervehdyksessä vihapuheen levittämisestä. Euro täyttää huomenna uudenvuodenpäivänä 20 vuotta. Ensimmäisinä vuotta 2019 pääsivät juhlimaan Kiribatin atollivaltion asukkaat. (Uudenvuodenaattona ei ole selkouutisten radiolähetystä. Se löytyy kyllä Areenasta hakusanalla "Selkouutiset", ja sen voi kuunnella tällä nettisivulla. Selkouutiset toivottaa kaikille hyvää uutta vuotta.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Vain harva kunta laskee veroprosenttia
+
+![Kuvassa istuu miehiä ja naisia pöytien ääressä kaupunginvaltuuston salissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8460072)
+
+Avaa kuvien katselu
+
+Kunnanvaltuustot ja kaupunginvaltuustot päättävät, kuinka korkea kunnallisvero on. Kuvassa Kouvolan kaupunginvaltuusto. Kuva: Kirsi Partanen / Yle
+
+Vain 2 Manner-Suomen kuntaa pystyy laskemaan kunnallisveroa ensi vuonna. Toinen on Kustavi ja toinen Kitee, joka oli aikaisemmin kriisikunta.
+
+46:n kunnan kuntavero nousee vuodenvaihteessa. Se koskee puolta miljoonaa suomalaista.
+
+Kuntien kulut ovat kasvaneet odotuksia enemmän. Verotulot asukkailta ja yrityksiltä ovat kääntyneet laskuun.
+
+Monet kunnat ottavat velkaa, säästävät menoissa ja siirtävät investointeja.
+
+Kuntien keskimääräinen tuloveroprosentti on ensi vuonna vajaat 20 prosenttia. Suomessa on 311 kuntaa.
+
+## Sipilä varoittaa vihapuheesta
+
+![ Juha Sipilä ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10567516)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä. Kuva: Jussi Nukari / Lehtikuva
+
+Pääministeri Juha Sipilä sanoo uudenvuodentervehdyksessä, että vihapuheen levittäminen on Suomessa rikos.
+
+Sipilä viittaa seksuaalirikoksiin Oulussa. Ne kohdistuivat alaikäisiin, ja epäillyt ovat ulkomaalaistaustaisia.
+
+Pääministeri sanoo, että jokaisen Suomeen tulevan pitää noudattaa maan lakeja ja kunnioittaa toisten ihmisten koskemattomuutta.
+
+Sipilä korostaa, että epäiltyihin rikoksiin Oulussa ovat syyllistyneet yksilöt, eivät väestöryhmät.
+
+## Euro täyttää 20 vuotta
+
+![Euro-patsas Frankfurtissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10576427)
+
+Avaa kuvien katselu
+
+Kun euron käteisraha otettiin käyttöön, yhteisvaluutassa oli mukana 12 maata. Kuva: Anna Karismo, Yle
+
+Euro täyttää huomenna uudenvuodenpäivänä 20 vuotta.
+
+Yhteisvaluutta oli aluksi vain tilivaluutta. Setelit ja kolikot otettiin käyttöön 3 vuotta myöhemmin.
+
+Tällä hetkellä viralliseen euroalueeseen kuuluu 19 EU-valtiota.
+
+Euro on kohdannut paljon vaikeuksia. Ensin iski finanssikriisi, ja sitten tulivat Kreikan velkaongelmat. Nyt jännitetään Italian velkaantumista.
+
+Kriisit johtuvat esimerkiksi siitä, että euroalueesta puuttuu yhteinen finanssipolitiikka.
+
+## Uusivuosi on myrskyisä Suomessa
+
+![Ilotulitteita Sydneyn taivaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10576829)
+
+Avaa kuvien katselu
+
+Sydneyn ilotulitus Australiassa. Kuva: Brendan Esposito / EPA
+
+Maailma siirtyy jälleen uuteen vuoteen.
+
+Osassa Tyynenmeren saaria vuosi vaihtui jo kello 12 Suomen aikaa. Kiribatin atollivaltion asukkaat pääsivät juhlimaan vuotta 2019 ensimmäisinä.
+
+Monet kaupungit järjestävät uudenvuoden kunniaksi ison ilotulituksen. Espoon kaupunki järjestää ilotulituksen sijasta laservaloshow'n.
+
+Suomessa kansalaiset saavat ampua ilotulitteita vain kello 18:sta 2:een yöllä. Monien kuntien ja kaupunkien keskustassa ei saa ampua ilotulitteita ollenkaan.
+
+Useat pelastuslaitokset ovat antaneet suosituksen olla ampumatta raketteja myrskyisän sään takia. Ilotulittamisen turvallisena tuulirajana pidetään 14:ää metriä sekunnissa. Puuskittainen ja kova tuuli voi ohjata raketit väärään suuntaan.
+
+Talvimyrsky voi myös aiheuttaa sähkökatkoja.
+
+(Uudenvuodenaattona ei ole selkouutisten radiolähetystä. Se löytyy kyllä Areenasta hakusanalla "Selkouutiset", ja sen voi kuunnella tällä nettisivulla.
+
+Selkouutiset toivottaa kaikille hyvää uutta vuotta!

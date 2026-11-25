@@ -1,0 +1,69 @@
+# Tiistai 6.12.2022 (radio)
+
+Linnan juhlat. Itsenäinen Suomi 105 vuotta. Erilaisia itsenäisyyspäivän juhlia. Sää.
+
+## Linnan juhlat
+
+![Presidentinlinna juhlavalaistuksessa](https://img.img-cdn.yle.fi/crop_extract,w_5670,h_3189,x_0,y_9/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6193675de8adba56e05/1575529942)
+
+Avaa kuvien katselu
+
+Presidentinlinna juhlavalaistuksessa. Kuva: Pekka Tynell / YLE
+
+Suomessa on vietetty itsenäisyyspäivää.
+
+Itsenäisyyspäivän tärkein tapahtuma on juhla Presidentinlinnassa. Tänä vuonna Linnan juhlat taas järjestettiin.
+
+Vuosi sitten ja 2 vuotta sitten Linnan juhlia ei järjestetty koronan takia. Tänä vuonna presidentti Sauli Niinistö ja rouva Jenni Haukio kutsuivat Presidentinlinnaan noin 1300 vierasta.
+
+![Nainen istuu nojatuolissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12683644)
+
+Avaa kuvien katselu
+
+Jyväskyläläinen sairaanhoitaja Helena Pohjolainen sai Presidentiltä kutsun Linnan juhliin. Pohjolainen sanoo, että hän edustaa Linnan juhlissa myös kaikkia työkavereita. Kuva: Marja Roiha / Yle
+
+Vieraiden joukossa on esimerkiksi sairaanhoitajia ja muita terveydenhuollon työntekijöitä. Monet heistä saivat kutsun Linnan juhliin jo viime vuonna, mutta silloin juhlat siis peruttiin.
+
+Tavallisesti Linnan juhlien kunniavieraita ovat veteraanit ja lotat. He palvelivat Suomen armeijaa sodan aikana noin 80 vuotta sitten.
+
+Tänä vuonna veteraanit ja lotat juhlivat Presidentinlinnassa jo viime torstaina. Presidenttipari järjesti vanhoille veteraaneille ja lotille oman juhlan, jotta heidän ei tarvinnut pelätä koronatartuntaa.
+
+## Itsenäinen Suomi 105 vuotta
+
+![Itsenäisyyspäivän lipunnosto Helsingin Tähtitorninmäellä.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1044234638eeafe1a032/1670311850)
+
+Avaa kuvien katselu
+
+Suomen lippu nostettiin lipputankoon itsenäisyyspäivänä. Kuva: Petteri Lindholm / Yle
+
+Suomen itsenäisyyspäivä on aina joulukuun 6. päivä. Suomesta tuli itsenäinen maa joulukuun 6. päivä vuonna 1917 eli 105 vuotta sitten.
+
+Ennen kuin Suomesta tuli itsenäinen, Suomi oli osa Venäjän keisarikuntaa noin 100 vuoden ajan. Venäjän viimeinen keisari yritti tehdä suomalaisista venäläisiä. Suomalaiset halusivat kuitenkin olla suomalaisia ja päättää itse omista asioista. Siksi itsenäisyys on suomalaisille tosi tärkeä.
+
+Suurimman osan historiasta Suomi on ollut osa Ruotsia. Suomi oli osa Ruotsia yli 600 vuotta. Siksi Suomi ja Ruotsi ovat vielä nykyään hyvin samanlaisia maita.
+
+## Erilaisia itsenäisyyspäivän juhlia
+
+![Ihmisille jaetaan keittoa torilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12683662)
+
+Avaa kuvien katselu
+
+Itsenäisyyspäivän juhla köyhille Hakaniemen torilla. Kuva: Juha Kivioja / Yle
+
+Itsenäisyyspäivänä on järjestetty erilaisia juhlia eri puolilla Suomea. Halutaan, että kaikilla on mahdollisuus juhlia itsenäisyyspäivää.
+
+Esimerkiksi Helsingissä Hakaniemen torilla järjestettiin köyhien itsenäisyyspäivän juhla. Lisäksi Helsingin Pasilassa oli juhla kaikille, joilla ei ole asuntoa.
+
+Vantaalla järjestettiin iso monikulttuurinen itsenäisyyspäiväjuhla. Vantaan juhlassa juhlittiin myös uusia Suomen kansalaisia.
+
+Tampereella järjestettiin lasten itsenäisyyspäivän tanssiaiset. Tanssiaisissa lapset saivat tanssia, kuulla musiikkia ja nähdä sirkusesityksen.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12683648)
+
+Avaa kuvien katselu
+
+Itsenäisyyspäivää on vietetty talvisessa säässä. Lunta on satanut eri puolilla Suomea.
+
+Lumisateet jatkuvat myös keskiviikkona. Etelässä lunta sataa jopa 10 senttimetriä.

@@ -1,6 +1,5 @@
 {
    "source" : "fi",
-   "format" : "text",
    "q" : [
       "# Selkouutiset | tiistai 24.11.2026",
       "",
@@ -87,5 +86,6 @@
       "",
       "Melkein koko maassa on pakkasta."
    ],
-   "target" : "en"
+   "target" : "en",
+   "format" : "text"
 }

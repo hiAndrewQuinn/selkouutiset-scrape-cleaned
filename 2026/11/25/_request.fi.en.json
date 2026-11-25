@@ -1,5 +1,7 @@
 {
+   "target" : "en",
    "source" : "fi",
+   "format" : "text",
    "q" : [
       "# Selkouutiset | tiistai 24.11.2026",
       "",
@@ -85,7 +87,5 @@
       "Pohjoisessa sataa vähän lunta.",
       "",
       "Melkein koko maassa on pakkasta."
-   ],
-   "target" : "en",
-   "format" : "text"
+   ]
 }

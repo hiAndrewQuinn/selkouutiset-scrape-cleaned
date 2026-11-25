@@ -47,6 +47,37 @@ if [ "$1" = "--force" ]; then
   shift # Consume the --force argument so it doesn't interfere with other potential args (none currently)
 fi
 
+# --- Spending guards: what may be sent to the (paid) Translate API ---
+# TRANSLATE_FROM (YYYYMMDD): days before it are NEVER sent to the API. That
+# covers the 2016-2023 history backfill and any day the scraper later repairs.
+# Such days keep a translation they already have (or reuse an identical one
+# from another day, which is free); otherwise they stay Finnish-only and the
+# website says "no English translation". Every day up to 2026-11-25 was
+# translated when this freeze was set; only days from 2026-11-24 (still being
+# upgraded by the nightly scrape) onwards are translated as normal.
+TRANSLATE_FROM="${TRANSLATE_FROM:-20261124}"
+# MAX_API_TRANSLATIONS: hard cap on paid API calls per run (the connectivity
+# test excluded). A normal run needs 1-2 (today, plus yesterday when a late
+# scrape upgraded it). Anything beyond the cap is skipped and logged, never
+# sent, so a mistake can cost at most a few cents per run.
+MAX_API_TRANSLATIONS="${MAX_API_TRANSLATIONS:-3}"
+case "$TRANSLATE_FROM" in
+[0-9][0-9][0-9][0-9][0-1][0-9][0-3][0-9]) ;;
+*)
+  log_message "CRITICAL ERROR: TRANSLATE_FROM='$TRANSLATE_FROM' is not a YYYYMMDD date."
+  exit 1
+  ;;
+esac
+case "$MAX_API_TRANSLATIONS" in
+'' | *[!0-9]*)
+  log_message "CRITICAL ERROR: MAX_API_TRANSLATIONS='$MAX_API_TRANSLATIONS' is not a whole number."
+  exit 1
+  ;;
+esac
+api_translations_made=0
+api_translations_capped=0
+log_message "Spending guards: no API translation for days before $TRANSLATE_FROM; at most $MAX_API_TRANSLATIONS API translation(s) this run."
+
 # --- Ensure $HOME/.local/bin is in PATH for cron ---
 # This is to ensure tools like pandoc, installed in the user's local bin, are found
 # when the script is run via cron, which often has a minimal PATH.
@@ -75,7 +106,7 @@ fi
 # --- 0. Dependency Check ---
 log_message "Checking for required commands..."
 # Added curl, gcloud, sed.
-for cmd in git pandoc perl seq printf date basename hostname sha1sum awk sort curl gcloud sed; do
+for cmd in git pandoc perl seq printf date basename hostname sha1sum awk sort curl gcloud sed cmp mktemp grep; do
   if ! command -v "$cmd" >/dev/null 2>&1; then
     if [ "$cmd" = "hostname" ]; then
       log_message "WARNING: 'hostname' command not found. Using fallback '$HOSTNAME'."
@@ -279,6 +310,39 @@ else
   log_message "Submodule '$SUBMODULE_PATH' is already up-to-date. No changes to commit in the parent repository."
 fi
 
+# --- Translation twins: reuse a translation of identical Finnish text ---
+# Index "sha1 day-dir" of every day that has a translation, so a day whose text
+# matches one already translated (anywhere, not just the day before) copies
+# it instead of calling the API. Candidates are re-checked byte for byte.
+TWIN_INDEX=$(mktemp "${TMPDIR:-/tmp}/selkouutiset-twins.XXXXXX") # outside the repo: never committed
+trap 'rm -f "$TWIN_INDEX"' EXIT
+: >"$TWIN_INDEX"
+for resp in 20[0-9][0-9]/[0-1][0-9]/[0-3][0-9]/_response.fi.en.json; do
+  [ -s "$resp" ] || continue
+  d=${resp%/_response.fi.en.json}
+  if [ -f "$d/index.fi.md" ]; then
+    printf '%s %s\n' "$(sha1sum <"$d/index.fi.md" | awk '{print $1}')" "$d" >>"$TWIN_INDEX"
+  fi
+done
+log_message "Translation twins: indexed $(wc -l <"$TWIN_INDEX") translated day(s)."
+
+remember_translation() { # $1 = index.fi.md, $2 = day dir
+  printf '%s %s\n' "$(sha1sum <"$1" | awk '{print $1}')" "$2" >>"$TWIN_INDEX"
+}
+
+find_translated_twin() { # $1 = index.fi.md, $2 = this day's dir; prints a twin dir
+  [ -f "$1" ] || return 1
+  twin_sum=$(sha1sum <"$1" | awk '{print $1}')
+  for twin_dir in $(awk -v s="$twin_sum" '$1 == s {print $2}' "$TWIN_INDEX"); do
+    if [ "$twin_dir" = "$2" ]; then continue; fi
+    if [ -s "$twin_dir/_response.fi.en.json" ] && cmp -s "$1" "$twin_dir/index.fi.md"; then
+      echo "$twin_dir"
+      return 0
+    fi
+  done
+  return 1
+}
+
 # --- 2. Process HTML to Markdown, Generate Translation JSON, and Translate ---
 log_message "Starting HTML processing, JSON generation, and Translation..."
 
@@ -302,6 +366,7 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
 
       # --- ADDED: Initialize iteration-specific flags ---
       fi_md_generated_this_iteration=false
+      fi_md_content_changed=false # the Finnish text differs from before (not just rewritten)
       request_json_generated_this_iteration=false
       api_called_in_this_iteration=false
 
@@ -310,12 +375,50 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
       source_html_file_for_ops="$source_html_file_relative"      # Path for operations
 
       target_base_dir="${year_val}/${month_val}/${day_val}"
+      # The loop walks days in calendar order. Remember the day before, so a
+      # repeat day (Yle published nothing new) can reuse its translation.
+      prev_base_dir="${last_base_dir:-}"
+      last_base_dir="$target_base_dir"
       target_md_fi_file="${target_base_dir}/index.fi.md"
       processed_day_log_suffix="Day: $year_val/$month_val/$day_val, SrcHTML: '$source_html_file_for_ops'"
 
       if [ ! -f "$source_html_file_for_ops" ]; then
         log_message "Skipped MD: Source HTML file not found. $processed_day_log_suffix"
         continue
+      fi
+
+      # --- edition.json: which edition this day's page actually holds ---
+      # The scrape keeps one file per calendar day, holding the newest edition
+      # published on or before that day; on days Yle published nothing, that is
+      # the previous edition repeated. The website reads this file to label
+      # those repeats. The date is Yle's own schema.org datePublished (always
+      # Helsinki local time), the same anchor the scraper files by; the headline
+      # date is not used, because Yle's headlines carry typos.
+      target_edition_json_file="${target_base_dir}/edition.json"
+      tmp_edition_json_file="${target_edition_json_file}.tmp.$$"
+      mkdir -p "$target_base_dir"
+      # Days listed in the scrape's lost.txt had an edition that survives
+      # nowhere; the site greys them out as "lost media".
+      day_is_lost=0
+      if [ -f "$SUBMODULE_PATH/lost.txt" ] &&
+        grep -q "^${year_val}-${month_val}-${day_val}[[:space:]]" "$SUBMODULE_PATH/lost.txt"; then
+        day_is_lost=1
+      fi
+      if LOST="$day_is_lost" perl -0777 -ne '
+          my ($d) = /"datePublished":\s*"(\d{4}-\d{2}-\d{2})/ or exit 3;
+          my ($i) = /"\@id":\s*"(?:https:\/\/yle\.fi\/a\/)?((?:74|3)-\d+)"/;
+          my $lost = $ENV{LOST} ? q(, "lost": true) : q();
+          printf qq({"edition": "%s", "article": "%s"%s}\n), $d, ($i // ""), $lost;
+        ' "$source_html_file_for_ops" >"$tmp_edition_json_file"; then
+        if cmp -s "$tmp_edition_json_file" "$target_edition_json_file"; then
+          rm -f "$tmp_edition_json_file"
+        else
+          mv "$tmp_edition_json_file" "$target_edition_json_file"
+          log_message "EDITION: Wrote '$target_edition_json_file' ($(cat "$target_edition_json_file")). $processed_day_log_suffix"
+        fi
+      else
+        rm -f "$tmp_edition_json_file"
+        log_message "EDITION WARNING: No datePublished in source HTML; '$target_edition_json_file' not written. $processed_day_log_suffix"
       fi
 
       current_sha1=$(sha1sum "$source_html_file_for_ops" | awk '{print $1}')
@@ -400,6 +503,8 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
         tmp_md_file="${target_md_fi_file}.tmp.$$"
         if cat "$source_html_file_for_ops" |
           pandoc --from=html --to=commonmark --wrap=none |
+          perl -CSDA -pe 's{!\[[^\]]*\]\(data:image/svg\+xml;base64,[^)]*\)}{}g' |
+          perl -CSDA -ne 'print unless /^Artikkeli on yli (?:\d+ vuotta|vuoden) vanha\s*$/' |
           perl -CSDA -pe 's{src="data:image/svg\+xml;base64,[^"]*"}{}gi' |
           perl -CSDA -pe 's{<img\s+([^>]+)>}{ my $attrs_img = $1; my $src_img = ($attrs_img =~ m{src="([^"]*)"}i) ? $1 : undef; my $alt_img = ($attrs_img =~ m{alt="([^"]*)"}i) ? $1 : undef; (defined $src_img && defined $alt_img) ? sprintf("![%s](%s)", $alt_img, $src_img) : $& }gei' |
           perl -CSDA -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' |
@@ -407,9 +512,20 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
           perl -CSDA -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |
           perl -CSDA -0777 -pe 's/\n{3,}/\n\n/g' |
           perl -CSDA -0777 -pe 's/\s*$/\n/ if /./; $_ = "" if $_ eq "\n";' >"$tmp_md_file"; then
-          mv "$tmp_md_file" "$target_md_fi_file"
-          log_message "MD Success: Created/Updated '$target_md_fi_file'. $processed_day_log_suffix"
-          fi_md_generated_this_iteration=true
+          # Yle's page carries per-request bytes (build IDs, timestamps) that change
+          # the HTML's hash on every capture without changing the edition. Only a
+          # real change to the Markdown may cascade into a new (paid) translation.
+          if [ "$force_regeneration" != true ] && [ -f "$target_md_fi_file" ] && cmp -s "$tmp_md_file" "$target_md_fi_file"; then
+            rm -f "$tmp_md_file"
+            log_message "MD Unchanged: Regenerated FI MD is identical to '$target_md_fi_file'; keeping translation. $processed_day_log_suffix"
+          else
+            if [ ! -f "$target_md_fi_file" ] || ! cmp -s "$tmp_md_file" "$target_md_fi_file"; then
+              fi_md_content_changed=true
+            fi
+            mv "$tmp_md_file" "$target_md_fi_file"
+            log_message "MD Success: Created/Updated '$target_md_fi_file'. $processed_day_log_suffix"
+            fi_md_generated_this_iteration=true
+          fi
         else
           log_message "MD Failed: Pipeline error during FI MD generation for '$target_md_fi_file'. Temp file '$tmp_md_file' removed. $processed_day_log_suffix"
           rm -f "$tmp_md_file"
@@ -477,7 +593,8 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
                   format => "text",
               };
 
-              my $json_encoder = JSON::PP->new->utf8(1)->pretty(1);
+              # canonical: sorted keys, so identical content is identical bytes
+              my $json_encoder = JSON::PP->new->utf8(1)->pretty(1)->canonical(1);
               my $json_byte_string = $json_encoder->encode($data_to_encode);
 
               open(my $fh_out, ">:raw", $json_filepath)
@@ -508,18 +625,47 @@ PERL_SCRIPT_EOF
       if [ -f "$abs_target_request_json_file" ]; then
         translate_log_suffix="TargetEN_MD: '$target_en_md_file', from RequestJSON: '$abs_target_request_json_file'"
 
-        # --- ADDED: Delete cached response if forcing or if request JSON was new ---
-        if [ "$force_regeneration" = true ] && [ -f "$abs_target_response_json_file" ]; then
-          log_message "TRANSLATE Force API: --force used, deleting existing response cache '$abs_target_response_json_file'."
+        # A stored translation is thrown away only when the Finnish text it
+        # translates has actually changed. --force regenerates files but never,
+        # by itself, pays to translate an unchanged text again.
+        if [ "$fi_md_content_changed" = true ] && [ -f "$abs_target_response_json_file" ]; then
+          log_message "TRANSLATE Invalidate: Finnish text changed, so '$abs_target_response_json_file' no longer matches it; removing. $translate_log_suffix"
           rm -f "$abs_target_response_json_file"
-        elif [ "$request_json_generated_this_iteration" = true ] && [ -f "$abs_target_response_json_file" ]; then
-          log_message "TRANSLATE Force API: Request JSON was regenerated, deleting existing response cache '$abs_target_response_json_file'."
-          rm -f "$abs_target_response_json_file"
+          # Its English page translates the old text too; drop it so the site
+          # never shows English for a different edition. It is regenerated
+          # below whenever this day gets a translation again.
+          rm -f "$abs_target_en_md_file"
         fi
 
+        prev_md_fi_file="${prev_base_dir}/index.fi.md"
+        prev_response_json_file="${prev_base_dir}/_response.fi.en.json"
         if [ -f "$abs_target_response_json_file" ]; then
           log_message "TRANSLATE Skip API Call: Response file '$abs_target_response_json_file' already exists. Using cached response. $translate_log_suffix"
+        elif [ -n "$prev_base_dir" ] && [ -s "$prev_response_json_file" ] &&
+          cmp -s "$target_md_fi_file" "$prev_md_fi_file"; then
+          # A repeat day carries the previous day's edition, so its FI MD is
+          # byte-identical, and the request is built line for line from the MD.
+          # (Compare the MD, not the request JSON: older request files were
+          # written with Perl's randomised key order.) Holiday stretches repeat
+          # one edition for up to two weeks; translating each copy again would
+          # pay for the same text.
+          cp "$prev_response_json_file" "$abs_target_response_json_file"
+          api_called_in_this_iteration=true # the response is new to this day: regenerate EN MD
+          log_message "TRANSLATE Reused: FI MD identical to '$prev_md_fi_file'; copied its response. $translate_log_suffix"
+        elif reuse_dir=$(find_translated_twin "$target_md_fi_file" "$target_base_dir") && [ -n "$reuse_dir" ]; then
+          # The same edition was translated under another day (e.g. a late
+          # capture had filed it one day off before the scraper was fixed).
+          cp "$reuse_dir/_response.fi.en.json" "$abs_target_response_json_file"
+          api_called_in_this_iteration=true
+          log_message "TRANSLATE Reused: FI MD identical to '$reuse_dir/index.fi.md'; copied its response. $translate_log_suffix"
+        elif [ "${year_val}${month_val}${day_val}" -lt "$TRANSLATE_FROM" ]; then
+          log_message "TRANSLATE Frozen: day is before TRANSLATE_FROM=$TRANSLATE_FROM; never sent to the API, stays Finnish-only. $translate_log_suffix"
+        elif [ "$api_translations_made" -ge "$MAX_API_TRANSLATIONS" ]; then
+          api_translations_capped=$((api_translations_capped + 1))
+          log_message "TRANSLATE CAP: already made $api_translations_made API translation(s) this run (MAX_API_TRANSLATIONS=$MAX_API_TRANSLATIONS); NOT sending this one. It stays untranslated until a later run. $translate_log_suffix"
+          continue
         else
+          api_translations_made=$((api_translations_made + 1))
           log_message "TRANSLATE API Call: Response file '$abs_target_response_json_file' not found (or removed for refresh). Calling API. $translate_log_suffix"
           if [ -z "$ACCESS_TOKEN" ]; then
             log_message "TRANSLATE ERROR: Access token not available (gcloud auth failed). Cannot call API. $translate_log_suffix"
@@ -537,6 +683,7 @@ PERL_SCRIPT_EOF
             "https://translation.googleapis.com/language/translate/v2" >"$abs_target_response_json_file"; then
             log_message "TRANSLATE API Success: API call successful, response saved to '$abs_target_response_json_file'. $translate_log_suffix"
             api_called_in_this_iteration=true
+            remember_translation "$target_md_fi_file" "$target_base_dir"
           else
             CURL_API_EXIT_CODE=$?
             log_message "TRANSLATE API ERROR: curl command failed with exit code $CURL_API_EXIT_CODE. $translate_log_suffix"
@@ -710,5 +857,6 @@ else
   log_message "No uncommitted changes detected in the repository. Skipping git operations."
 fi
 
+log_message "Translate API usage this run: $api_translations_made paid translation(s) (cap $MAX_API_TRANSLATIONS), $api_translations_capped held back by the cap, plus the connectivity test."
 log_message "Script execution finished."
 exit 0

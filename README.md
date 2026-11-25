@@ -77,6 +77,39 @@ The bulk of this Git repo is contained in the `YYYY/MM/DD` folders. Each `YYYY/M
     }
     ```
 
+- `edition.json` says which Yle edition the day's page actually holds:
+  ```json
+  {"edition": "2025-12-23", "article": "74-20201299"}
+  ```
+  - The upstream scrape keeps exactly one page per calendar day, holding the newest edition Yle published **on or before** that day. On days Yle published nothing new (Christmas, Easter, some weekends) the page therefore repeats an earlier edition: `2025/12/25/edition.json` says `"edition": "2025-12-23"`.
+  - `edition` is Yle's own schema.org `datePublished` from the raw HTML (Helsinki time), the same date the scraper files by. The date printed in the headline is deliberately *not* used: Yle's headlines carry typos (`12.1.2023` on a 2024 edition, `28.5.20206`, a weekday a day off).
+  - `article` is the edition's Yle article ID; the edition is online at `https://yle.fi/a/<article>`.
+  - `"lost": true` is added when the day is listed in the scrape's [`lost.txt`](https://github.com/hiAndrewQuinn/selkouutiset-scrape/blob/main/lost.txt): Yle published an edition that day, but no copy survives anywhere, so the page holds the previous edition.
+  - The archive website reads this file to label repeat days ("Yle published no new edition on this day…") and lost days ("(lost media)") rather than guessing from the text.
+
+### What gets translated, and what it can cost
+
+`process.sh` only pays Google for a translation when there is genuinely new Finnish text to translate, and it has hard limits on top of that.
+
+**Spending guards** (environment variables, checked on every run and logged at the start and end):
+
+| variable | default | effect |
+|---|---|---|
+| `TRANSLATE_FROM` | `20261124` | Days **before** this date are never sent to the API. Every day up to 2026-11-25 was already translated when the freeze was set; everything earlier that has no translation (the 2016-2023 history backfill, and days the scraper later repaired) stays Finnish-only, and the website marks it "(no English translation)". |
+| `MAX_API_TRANSLATIONS` | `3` | Hard cap on paid API calls per run. A normal run needs 1-2 (today, plus yesterday when a late capture upgraded it). Anything over the cap is not sent (`TRANSLATE CAP` in the log) and is retried by a later run, so a mistake costs at most a few cents per run. |
+
+Besides those calls, every run sends one 5-character connectivity test before doing anything else (a negligible cost).
+
+**When a translation is reused, kept, or dropped:**
+
+- **Re-captures of the same edition.** The scraper captures up to three times a day, and Yle's pages carry per-request bytes (build IDs, timestamps), so the HTML hash changes on nearly every capture. If the regenerated `index.fi.md` is byte-identical to the existing one, the translation is kept and nothing downstream is regenerated (`MD Unchanged` in the log).
+- **Identical text anywhere.** When a day's `index.fi.md` is byte-identical to a day that already has a translation (the day before, for holiday repeats, or any other day, e.g. an edition the scraper once filed a day off), that `_response.fi.en.json` is copied instead of calling the API (`TRANSLATE Reused`). A two-week holiday stretch costs one translation, not fourteen. This applies before `TRANSLATE_FROM` too, since it is free.
+- **Changed text.** A translation is thrown away only when the day's Finnish text really changed (`TRANSLATE Invalidate`); its `index.en.md` goes with it, so the site never shows English for a different edition. Then: identical text elsewhere is reused; else a day before `TRANSLATE_FROM` stays Finnish-only (`TRANSLATE Frozen`); else it is translated, within the cap.
+- **`--force`** regenerates the Markdown and JSON, but no longer pays to re-translate unchanged text (it used to delete every response, which would have re-translated the whole archive).
+- Request JSON is written with sorted keys, so regenerating identical content gives identical bytes and no spurious git diff.
+
+To translate the backfill deliberately one day (about 2,600 days, roughly $130), lift both guards for one run, e.g. `TRANSLATE_FROM=20160901 MAX_API_TRANSLATIONS=3000 sh process.sh`. Nothing does this automatically.
+
 ⚠️: `index.source.md` doesn't actually clue you in as to _which_ translation was used to generate it. For this simple project that's not a big deal, because I'm not interested in running my JSON requests through `fi` then `ar` then `es` then `fr` then `en` just to mangle `index.en.md` up. But if you're doing something more complicated, you might want to keep track of this.
 
 ## Detailed instructions

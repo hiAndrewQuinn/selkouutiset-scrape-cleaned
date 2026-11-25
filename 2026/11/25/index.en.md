@@ -1,84 +1,77 @@
-# Clear News | Tuesday 24.11.2026
+# Clear News | Wednesday 25.11.2026
 
-Gulf of Finland. Suspension bridge. Snow. Wednesday's weather.
+Hazard bulletin. Russian ship. Women's futsal. Weather forecast.
 
-## Ukrainian attacks in the Gulf of Finland
+## New hazard information experiment
 
-First, news about security policy.
+First, news about hazard information.
 
-In Finland, there is a discussion about the Ukrainian attack in the Gulf of Finland.
+The new hazard information experiment was quite successful.
 
-Ukraine attacked a Russian ship over the weekend. The ship may have been carrying weapons.
+Finland again experimented with sending danger alerts to people's phones on Tuesday. Yle monitored the experiment in a shopping mall with a large crowd.
 
-Finland assisted in the ship's rescue efforts.
+The test message was sent at 12 noon. People's phones started beeping. However, it took up to tens of minutes for the message to reach some phones.
 
-Ukraine also attacked two Russian military ships off the coast of Libya.
+**Jouni Kempas** has two phones. One is on the Elisa network, and the other is on the Telia network. The message first arrived on his Telia phone.
 
-Ukraine is now capable of carrying out such precise strikes.
+*"Well, now it's starting to get annoying. It's available on Telia's network, but not yet on Elisa."*
 
-In Finland, there is a discussion about the Ukrainian attack in the Gulf of Finland.
+The new hazard information experiment was quite successful.
 
-Russia transports oil through the Baltic Sea and the Gulf of Finland. Therefore, there may be more attacks. Attacks also carry the risk of oil spills.
+The warning was now sent as a larger alert than last week. The warning was also heard on the radio and seen on television.
 
-Prime Minister **Petteri Orpo** says that Finland must prepare for such attacks.
+## Finland and the Russian ship
 
-*"Hopefully not, because when you get into these tight sea conditions in the Gulf of Finland, these are really risky."*
+Now news about security policy.
 
-## Suspension bridge accident
+The Finnish authorities acted correctly in the case of the Russian ship.
 
-Now the news about the bridge accident.
+This is what the Parliamentary Defense Committee says.
 
-A bridge accident occurred in Lieto, Southwest Finland, on Sunday.
+It heard from authorities on the matter on Tuesday.
 
-The cable of the suspension bridge broke, and the bridge tilted.
+The Chairman of the Defense Committee **Heikki Autto** spoke to the media in Parliament.
 
-There were 8 people on the bridge. 6 of them fell into the river. All the people on the bridge were between 60 and 80 years old.
+Ukraine attacked a Russian ship on Saturday in the Gulf of Finland.
 
-Everyone got out of the river on their own, and no one was seriously injured.
+The ship drifted into Finnish waters.
 
-**Terhi Näppäri-Kokkola** was on the bridge. This is how she describes the situation:
+The Finnish authorities acted correctly in the case of the Russian ship.
 
-*"First there was a terrible bang, and then the bridge collapsed, and people fell into the water. One was still there, and then he fell too."*
+Finland did not take possession of the ship, but instead released it back to Russia.
 
-The bridge was inspected last summer. At that time, the bridge was in good condition.
+The Defense Committee says that the solution was the right one because it was safe for Finland.
 
-A suspension bridge collapsed in Lieto on Sunday.
+## European Futsal Championships
 
-The police and the Accident Investigation Board will investigate the bridge on Monday.
+Finally, sports news.
 
-The police are investigating whether a crime should be suspected in the matter.
-Finally, news about snow.
+The Finnish women's futsal team will qualify for the European Championship for the first time.
 
-## Snow
+Finland defeated Norway 3–1 on Tuesday. The game was played in Nokia.
 
-Finally, news about snow.
+Finland's goals were scored by Stella Enwena, Anna-Kaisa Hannuksela and Sandra Lind.
 
-In Finland, snow has now fallen across almost the entire country.
+The victory secured Finland a place in the European Championship.
 
-The first snow also fell in Southern Finland on Monday.
+Finland also won the first game in Norway 3–1.
 
-There was only a little snow in the south, and it has already melted away in places.
+The Finnish women's futsal team qualifies for the European Championship for the first time.
 
-In Kauhava, South Ostrobothnia, there is over 40 centimeters of snow.
+Head coach Jaakko Laitinen is happy for the entire sport of futsal.
 
-These pictures are from Kainuu, where there is about 20 centimeters of snow.
+It's such a relief to have 10 years of work result in such a big reward.
 
-Snow has already fallen in almost the entire country in Finland.
+We've come a long way, and it's great to have a place that belongs to us.
 
-Many children and adults enjoy the snow.
+The European Futsal Championship will be played in March next year in Croatia.
 
-Children go sledding down the hill and make snowmen.
-
-The frost will keep the ground white for at least the rest of the week.
-
-## Wednesday's weather
+## Thursday's weather
 
 Still a weather forecast.
 
-On Wednesday, the sun will shine in the south, but it will be cloudy at times.
+The weather on Thursday will be sunny, meaning it will not rain.
 
-It is also cloudy in Central Finland.
+The sun is shining in most parts of the country.
 
-There is a little snow in the north.
-
-It's freezing almost all over the country.
+Temperatures are below freezing in almost the entire country.

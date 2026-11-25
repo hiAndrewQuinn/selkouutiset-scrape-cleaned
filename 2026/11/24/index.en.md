@@ -1,61 +1,84 @@
-# Clear News | Monday 23.11.2026
+# Clear News | Tuesday 24.11.2026
 
-A Russian cargo ship burned in the Gulf of Finland. Childhood obesity has not decreased. Finnish paintings are being restored at the Ateneum.
+Gulf of Finland. Suspension bridge. Snow. Wednesday's weather.
 
-## Drone strike at sea
+## Ukrainian attacks in the Gulf of Finland
 
-First, about maritime transport.
+First, news about security policy.
 
-A Russian cargo ship caught fire in Finnish waters over the weekend after being hit by a Ukrainian drone.
+In Finland, there is a discussion about the Ukrainian attack in the Gulf of Finland.
 
-The cargo ship is owned by a company that is under Russian administration.
+Ukraine attacked a Russian ship over the weekend. The ship may have been carrying weapons.
 
-The ship was damaged in Russian waters. It drifted into Finnish territory because it could no longer be steered.
+Finland assisted in the ship's rescue efforts.
 
-A Russian cargo ship caught fire in Finnish waters over the weekend.
+Ukraine also attacked two Russian military ships off the coast of Libya.
 
-The ship was towed away from Finnish territory.
+Ukraine is now capable of carrying out such precise strikes.
 
-Experts say that it is still safe to travel in the Gulf of Finland.
+In Finland, there is a discussion about the Ukrainian attack in the Gulf of Finland.
 
-## Childhood obesity has not decreased
+Russia transports oil through the Baltic Sea and the Gulf of Finland. Therefore, there may be more attacks. Attacks also carry the risk of oil spills.
 
-Then about childhood obesity.
+Prime Minister **Petteri Orpo** says that Finland must prepare for such attacks.
 
-Obesity and overweight are still common among Finnish children.
+*"Hopefully not, because when you get into these tight sea conditions in the Gulf of Finland, these are really risky."*
 
-25 percent of boys and 20 percent of girls are overweight or obese.
+## Suspension bridge accident
 
-This is according to recent statistics from the Finnish Institute for Health and Welfare.
+Now the news about the bridge accident.
 
-The statistics include children aged 2–16.
+A bridge accident occurred in Lieto, Southwest Finland, on Sunday.
 
-Obesity and overweight are still common among Finnish children.
+The cable of the suspension bridge broke, and the bridge tilted.
 
-THL says that regional differences are significant.
+There were 8 people on the bridge. 6 of them fell into the river. All the people on the bridge were between 60 and 80 years old.
 
-Overweight and obesity are most common in the welfare areas of South Ostrobothnia and Satakunta and rarest in Helsinki.
+Everyone got out of the river on their own, and no one was seriously injured.
 
-## Restoration of valuable paintings
+**Terhi Näppäri-Kokkola** was on the bridge. This is how she describes the situation:
 
-Then about art.
+*"First there was a terrible bang, and then the bridge collapsed, and people fell into the water. One was still there, and then he fell too."*
 
-Finland's valuable art is conserved through donations. Conservation means the restoration of a work of art.
+The bridge was inspected last summer. At that time, the bridge was in good condition.
 
-One of the paintings is very dear to Finns. The name of the painting is a picture from the book Fighting Capers. It was painted by **Ferdinand** **von** **Wright**.
+A suspension bridge collapsed in Lieto on Sunday.
 
-The painting is being restored at the Ateneum Art Museum in Helsinki.
+The police and the Accident Investigation Board will investigate the bridge on Monday.
 
-Finland's valuable art is conserved through fundraising donations. People can therefore donate money to restore works of art.
+The police are investigating whether a crime should be suspected in the matter.
+Finally, news about snow.
 
-The canvas of the famous painting is damaged and has holes in it. The conservator is repairing the holes and also the paint.
+## Snow
 
-## Weather
+Finally, news about snow.
+
+In Finland, snow has now fallen across almost the entire country.
+
+The first snow also fell in Southern Finland on Monday.
+
+There was only a little snow in the south, and it has already melted away in places.
+
+In Kauhava, South Ostrobothnia, there is over 40 centimeters of snow.
+
+These pictures are from Kainuu, where there is about 20 centimeters of snow.
+
+Snow has already fallen in almost the entire country in Finland.
+
+Many children and adults enjoy the snow.
+
+Children go sledding down the hill and make snowmen.
+
+The frost will keep the ground white for at least the rest of the week.
+
+## Wednesday's weather
 
 Still a weather forecast.
 
-Tomorrow it will be dry, meaning it won't rain.
+On Wednesday, the sun will shine in the south, but it will be cloudy at times.
 
-In the south it is cloudy and zero degrees Celsius.
+It is also cloudy in Central Finland.
 
-It is clear and colder in the north.
+There is a little snow in the north.
+
+It's freezing almost all over the country.

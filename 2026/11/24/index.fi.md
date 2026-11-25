@@ -1,61 +1,84 @@
-# Selkouutiset | maanantai 23.11.2026
+# Selkouutiset | tiistai 24.11.2026
 
-Venäläinen rahtialus paloi Suomenlahdella. Lasten lihavuus ei ole vähentynyt. Suomalaisia tauluja kunnostetaan Ateneumissa.
+Suomenlahti. Riippusilta. Lumi. Keskiviikon sää.
 
-## Drooni-isku merellä
+## Ukrainan iskut Suomenlahdella
 
-Aluksi meriliikenteestä.
+Aluksi uutinen turvallisuuspolitiikasta.
 
-Venäläinen rahtialus paloi Suomen merialueella viikonloppuna. Siihen osui Ukrainan drooni.
+Suomessa keskustellaan Ukrainan iskusta Suomenlahdella.
 
-Rahtialuksen omistaa yhtiö, joka on Venäjän hallinnon alaisuudessa.
+Ukraina iski venäläiseen laivaan viikonloppuna. Laiva kuljetti ehkä aseita.
 
-Alus vaurioitui Venäjän merialueella. Se ajautui Suomen alueelle, koska sitä ei enää voinut ohjata.
+Suomi auttoi laivan pelastustöissä.
 
-Venäläinen rahtialus paloi Suomen merialueella viikonloppuna.
+Ukraina iski myös Libyan rannikolla kahteen Venäjän armeijan laivaan.
 
-Alus hinattiin pois Suomen alueelta.
+Ukraina pystyy nyt tekemään tällaisia tarkkoja iskuja.
 
-Asiantuntijat sanovat, että Suomenlahdella voi yhä matkustaa turvallisesti.
+Suomessa keskustellaan Ukrainan iskusta Suomenlahdella.
 
-## Lasten lihavuus ei ole vähentynyt
+Venäjä kuljettaa öljyä Itämeren ja Suomenlahden kautta. Siksi iskuja voi tulla lisää. Iskuissa on myös öljyvahingon vaara.
 
-Sitten lasten lihavuudesta.
+Pääministeri **Petteri Orpo** sanoo, että Suomen pitää varautua tällaisiin iskuihin.
 
-Lihavuus ja ylipaino ovat yhä yleisiä suomalaisilla lapsilla.
+*”Toivottavasti ei, koska kun tullaan tähän ahtaaseen Suomenlahden meriolosuhteeseen, niin nämä ovat todella riskialttiita.”*
 
-25 prosenttia pojista ja 20 prosenttia tytöistä on ylipainoisia tai lihavia.
+## Riippusiltaonnettomuus
 
-Näin kertovat Terveyden ja hyvinvoinnin laitoksen tuoreet tilastot.
+Nyt uutinen siltaonnettomuudesta.
 
-Tilastoissa on mukana 2–16 -vuotiaita lapsia.
+Liedossa Varsinais-Suomessa tapahtui sunnuntaina siltaonnettomuus.
 
-Lihavuus ja ylipaino ovat yhä yleisiä suomalaisilla lapsilla.
+Riippusillan vaijeri katkesi, ja silta kääntyi vinoon.
 
-THL sanoo, että alueelliset erot ovat merkittäviä.
+Sillalla oli 8 ihmistä. 6 heistä putosi jokeen. Kaikki ihmiset sillalla olivat 60–80-vuotiaita.
 
-Ylipaino ja lihavuus on yleisintä Etelä-Pohjanmaan ja Satakunnan hyvinvointialueilla ja harvinaisinta Helsingissä.
+Kaikki pääsivät itse ylös joesta, eikä kukaan loukkaantunut vakavasti.
 
-## Arvokkaiden taulujen kunnostaminen
+**Terhi Näppäri-Kokkola** oli sillalla. Näin hän kertoo tilanteesta:
 
-Sitten taiteesta.
+*”Ensin kuului kauhea pamaus, ja sitten silta kaatui, ja ihmiset tippuivat veteen. Yksi oli vielä siinä, ja sitten hänkin tippui.”*
 
-Suomen arvokasta taidetta konservoidaan keräyslahjoitusten avulla. Konservointi tarkoittaa taideteoksen kunnostustyötä.
+Sillan kunto tarkastettiin viime vuoden kesällä. Silloin silta oli kunnossa.
 
-Yksi tauluista on suomalaisille todella rakas. Taulun nimi on kuva teoksesta Taistelevat metsot. Sen on maalannut **Ferdinand** **von** **Wright**.
+Liedossa tapahtui sunnuntaina riippusillan romahdus.
 
-Taulua kunnostetaan Ateneumin taidemuseossa Helsingissä.
+Poliisi ja Onnettomuustutkintakeskus tutkivat siltaa maanantaina.
 
-Suomen arvokasta taidetta konservoidaan keräyslahjoitusten avulla. Ihmiset voivat siis antaa rahaa taideteosten kunnostamiseen.
+Poliisi tutkii, pitääkö asiassa epäillä rikosta.  
+Lopuksi uutinen lumesta.
 
-Kuuluisan taulun kangas on vaurioitunut ja siinä on reikiä. Konservaattori korjaa reiät ja myös maalia.
+## Lumi
 
-## Sää
+Lopuksi uutinen lumesta.
+
+Suomessa on nyt satanut lunta lähes koko maassa.
+
+Myös Etelä-Suomeen satoi maanantaina ensilumi.
+
+Etelässä lunta tuli vain vähän, ja se on jo paikoin sulanut pois.
+
+Kauhavalla, Etelä-Pohjanmaalla, lunta on yli 40 senttimetriä.
+
+Nämä kuvat ovat Kainuusta, jossa lunta on noin 20 senttimetriä.
+
+Suomessa on jo satanut lunta lähes koko maassa.
+
+Monet lapset ja aikuiset iloitsevat lumesta.
+
+Lapset laskevat pulkkamäkeä ja tekevät lumiukkoja.
+
+Pakkanen pitää maan valkoisena ainakin loppuviikon.
+
+## Keskiviikon sää
 
 Vielä sääennuste.
 
-Huomenna on poutaa eli ei sada.
+Keskiviikkona aurinko paistaa etelässä, mutta välillä on pilvistä.
 
-Etelässä on pilvistä ja nolla astetta lämmintä.
+Myös Keski-Suomessa on pilvistä.
 
-Pohjoisessa on selkeää ja kylmempää.
+Pohjoisessa sataa vähän lunta.
+
+Melkein koko maassa on pakkasta.

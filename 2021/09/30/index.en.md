@@ -1,0 +1,75 @@
+# Thursday 30.9.2021 (radio)
+
+THL has issued a new mask recommendation. The environmental movement Elokapina is demonstrating in Helsinki. Finland's population will soon start to fall. Finland takes in Afghan refugees. The weather is cloudy.
+
+## THL's mask recommendation
+
+![Man in a black shirt, mask on his face, at a trade fair event. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_252/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-857056614b198072a9d/1632311817)
+
+Open image viewer
+
+A mask is still good to use indoors where there are many people. Photo: Marjut Suomi / Yle
+
+The Institute for Health and Welfare, THL, has issued a new mask recommendation.
+
+THL says that people can now consider for themselves when they use a mask. Using a mask is especially important for everyone who has not yet received 2 corona vaccinations.
+
+THL also says that it is good to wear a mask on buses and trains. The reason is that the number of passengers is increasing, as many employees end remote work and return to their workplaces.
+
+## Elokapina demonstration
+
+![In front of Parliament House there are Elokapina demonstrators and police in a wide overview.](https://img.img-cdn.yle.fi/crop_extract,w_4514,h_2539,x_0,y_275/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-860226615498f933904/1632934242)
+
+Open image viewer
+
+The demonstration stopped traffic on Mannerheimintie on Wednesday. Photo: Petteri Sopanen / Yle
+
+The environmental movement Elokapina is demonstrating in Helsinki. On Thursday the demonstrators have been in front of Parliament House.
+
+On Wednesday the demonstrators cut off traffic on Mannerheimintie near Parliament House. The police arrested more than 140 demonstrators who were disrupting traffic.
+
+The environmental movement Elokapina is demonstrating because of climate change. Elokapina wants the government to take climate change seriously and declare a climate emergency.
+
+## Finland's population
+
+![Baby going for an afternoon nap in a pram](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_614/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82973660e69a8f6f45b/1625726035)
+
+Open image viewer
+
+Too few babies are born in Finland. Photo: Jarkko Riikonen / Yle
+
+Finland's population will soon start to fall. Statistics Finland forecasts that Finland's population will start to fall a little over 10 years from now.
+
+Statistics Finland estimates that in 2034 Finland will have 5.6 million residents. After that the number of residents will decrease.
+
+The number of Finns is decreasing because few babies are born. Already now Finland's population is growing only because immigrants come to Finland.
+
+## Afghan quota refugees
+
+![Integration training for quota refugees in Ylitornio.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10953847)
+
+Open image viewer
+
+Finland takes in quota refugees every year. Photo: Jari Peltoperä / Yle
+
+Finland is taking in Afghan refugees.
+
+Next year Finland will take in at least 150 Afghan quota refugees. They will come to Finland from Iran.
+
+Quota refugees often come from a refugee camp. They have been granted refugee status by the UN, that is, the United Nations.
+
+Next year Finland will take in a total of 1,050 quota refugees from different countries. The number may still rise because of the Afghanistan crisis.
+
+Among next year's quota refugees there are also Syrians and Congolese.
+
+## Friday's weather
+
+![weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12123655)
+
+Open image viewer
+
+On Friday in the west and central parts of the country it rains a little. Elsewhere the weather continues cloudy, but mostly without rain.
+
+In the south of the country the weather warms up. The temperature is almost 15 degrees.
+
+At the weekend the southerly wind will strengthen and only a few showers will come.

@@ -1,0 +1,69 @@
+# Saturday 10.10.2020 (radio)
+
+The coronavirus situation has not affected conscription. The US presidential candidates' election debate was cancelled. Many people are spending the autumn holiday at their cottages. Moose hunting has started. The weather
+
+## The coronavirus situation does not affect conscription
+
+![In the conscription in Vihti on 4.10.2020, young people were waiting to get into an interview.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_319/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7262295f7a2fb1a1d93/1601843413)
+
+Open image viewer
+
+Young people are waiting for an interview at the conscription in Vihti on 4.10.2020. Photo: Katriina Laine / Yle
+
+Conscription continues normally in the army, even though coronavirus infections have increased in garrisons.
+
+Yle asked the army whether the coronavirus situation has affected conscription.
+
+At conscription, Finns are currently being assigned to military service for 2022. That is still more than a year away. The start dates of service have not been postponed because of the coronavirus situation.
+
+## The Trump and Biden election debate was cancelled
+
+![Donald Trump and Joe Biden on a TV screen. The White House in the background.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_117/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7280285f7f05c0673cb/1610784207)
+
+Open image viewer
+
+Donald Trump and Joe Biden in the election debate on 29.9. Photo: Xinhua / AOP
+
+The election debate between the presidential candidates in the USA, planned for next week, has been cancelled. The debate was cancelled because president **Donald Trump** does not want to take part in the debate. Trump does not want to take part in the debate because it was decided to hold it by remote connection.
+
+**Donald Trump** and **Joe Biden** were originally supposed to meet in an election debate in Miami, Florida.
+
+Because president Trump has a coronavirus infection, the USA does not want to hold a physical event now where the presidents and the audience gather.
+
+## Staying in Finland for the autumn holiday
+
+![Summer cottage in Kuusamo.](https://img.img-cdn.yle.fi/crop_extract,w_2555,h_1437,x_0,y_232/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6874515edf6947b3b73/1591699856)
+
+Open image viewer
+
+Many more cottages than usual have been rented. Photo: Ensio Karjalainen / Yle
+
+Many Finns are spending the autumn holiday in a new way. Many families are going to a cottage during the autumn holiday. More cottages than usual for October have been rented.
+
+Because of the coronavirus situation, Finns are not travelling abroad now. Also, only a few Finns are setting off on cruise ships.
+
+Schoolchildren's autumn holidays are next week and the week after that.
+
+## Moose hunting has started
+
+![Moose calf](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-8895542269d32f13b/1411644763)
+
+Open image viewer
+
+The moose is a large animal. A moose weighs 250–600 kg. Photo: Yle screenshot / Risto Salovaara
+
+Moose hunting has started across Finland on Saturday. About 48,000 moose hunting permits have been granted this year.
+
+There are about 90,000 moose in Finland. Hunting is used to manage the moose population, so that the number of moose does not grow too much.
+
+The moose hunting season lasts until the end of the year. Moose may still be hunted in January, but a dog may not be used to help then.
+
+## The weather
+
+![Raindrops in a window](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8360765)
+
+Open image viewer
+
+A rain area is gradually spreading from the southwest to the southern and central parts of the country. In the northern part of the country it temporarily clears up.  Photo: Hanne Leiwo / Yle
+
+On Sunday it rains in many places in the southern and central parts of the country. In Lapland it is dry, i.e. it does not rain. The temperature is between 6 and 14 degrees. It is warmest in Southern Finland.

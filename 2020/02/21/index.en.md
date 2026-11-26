@@ -1,0 +1,73 @@
+# Friday 21.2.2020 (radio)
+
+France has brought its own citizens and citizens of other countries home from Wuhan. Germany is adding security measures in public places. A factory that makes chemicals for batteries will be built in Sotkamo. International Mother Language Day was celebrated on Friday.
+
+## A flight from Wuhan to Paris
+
+![Health care staff are treating sick people in a hospital in Wuhan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11203525)
+
+Open image viewer
+
+Traffic to Wuhan is cut off, because there are many coronavirus patients in the city. Photo: Yuan Zheng / EPA
+
+A group of Europeans has got back home from Wuhan, China. On Friday France brought its own citizens and citizens of other countries home from Wuhan by plane. There were also Finns on the flight.
+
+Normal transport links to Wuhan are cut because of the coronavirus. The spread of the coronavirus to the rest of the world is meant to be stopped. On Friday France only took people on the flight who have no symptoms of the coronavirus.
+
+The flight landed in Paris on Friday. There were 28 French citizens on the plane and 36 citizens of other countries.
+
+## Security measures in Germany
+
+![Horst Seehofer.](https://img.img-cdn.yle.fi/crop_extract,w_3152,h_1773,x_0,y_163/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6454685e4fad08da53b/1582280013)
+
+Open image viewer
+
+German Interior Minister Horst Seehofer. Photo: Armando Babani / EPA
+
+Germany is adding security measures in public places. For example, railway stations, airports and mosques are being guarded better than usual. There are more police visible than usual everywhere in Germany.
+
+Germany is adding security measures because of the events in Hanau. The shooter killed 9 people in Hanau on Wednesday. He attacked 2 hookah cafés where there were many immigrants.
+
+German Interior Minister Horst Seehofer says that the shooter carried out a racist terror attack. In Seehofer's view, racism is a danger to the whole of Germany. That is why security measures are being increased.
+
+## Factory for battery chemicals in Sotkamo
+
+![Construction site of the Terrafame battery chemicals plant.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6437615e4b98d3ed28f/1635334942)
+
+Open image viewer
+
+The factory in Sotkamo will be ready in about a year. Photo: Mari Jäntti / Yle
+
+A factory that makes chemicals for batteries will be built in Sotkamo. Batteries are needed, for example, for electric cars.
+
+The factory is being built on the area of the mining company Terrafame. Metals are got from the mine, and they are processed in the factory.
+
+The factory will become one of the world's biggest producers of nickel sulphate. When the factory is ready, it will produce nickel sulphate for a million electric car batteries every year.
+
+The factory will start producing chemicals for batteries in about a year. Batteries will not be made in the factory. The chemicals will be sold to battery makers abroad.
+
+## Mother Language Day
+
+![Reading circle in a mother tongue lesson.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9217264)
+
+Open image viewer
+
+Mother tongue is part of identity. Photo: Juha Kemppainen / Yle
+
+International Mother Language Day was celebrated on Friday. Each person's mother tongue is important to them.
+
+About 6000 languages are spoken in the world. However, more than 40 percent of the languages are in danger of disappearing.
+
+Every second week one language dies in the world. History, culture and identity also die with the language.
+
+## The weather at the weekend
+
+![Rubber boots in a puddle of water.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11212310)
+
+Open image viewer
+
+Rubber boots will be needed on Saturday. Photo: Hanna Matikainen / Lehtikuva
+
+Saturday is a rainy day in Southern and Central Finland. It may rain a lot.
+
+On Sunday the rain will stop and the weather will even be sunny.

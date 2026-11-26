@@ -1,0 +1,63 @@
+# Saturday 2.11.2019 (radio)
+
+Psychiatric problems in children are increasing. Demonstrations against Turkey in EU countries. Donating a kidney has become easier. All Saints' Day is celebrated on Saturday.
+
+## Children's psychiatric problems are increasing
+
+![Third-graders at Tuomela school](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9088095)
+
+Open image viewer
+
+Teaching has changed. Many group tasks are done at schools, and not everyone always has their own classroom. Photo: Timo Leponiemi / Yle
+
+Psychiatric problems have become more common in children.
+
+Yle has found out that more primary school-aged children go to a doctor because of psychiatric problems than before. The number has doubled in five years.
+
+Doctors say that children may not be sicker than before. School has changed. At schools there is not always a classroom of one's own or a desk of one's own. Schools do a lot of group work, and children have to learn things on their own.
+
+Doctors say that a new kind of school may not suit all children.
+
+## Demonstrations against Turkey in many cities
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5779236"
+
+Open image viewer
+
+The demonstrators say that the EU must do something so that Turkey stops its attack on Syria. Photo: YLE
+
+Demonstrations were held in Finland on Saturday because of Turkey's Syria operation.
+
+There have been demonstrations in Turku, Tampere, Kokkola and Helsinki.
+
+The demonstrators say that the EU must do something so that Turkey stops its military operation in Syria. The demonstrators say that Finland must ban arms sales from Finland to Turkey.
+
+Demonstrations were also held on Saturday in other European countries, calling for Turkey to stop its attack on Syria and for the EU to do something.
+
+## A kidney donation saved a friend
+
+![Operating theatre](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10923778)
+
+Open image viewer
+
+A kidney transplant is carried out in an operation at the hospital. Photo: Jyrki Lyytikkä / Yle
+
+The first kidney transplant for a friend has been done in Finland. Until now, a kidney could only be donated to a relative. The law has changed. Now a kidney may also be donated to a friend or a stranger. A kidney can also be donated anonymously, that is, the patient is not told who donated the kidney.
+
+The first kidney transplant for a friend was done at Helsinki University Hospital on Thursday. The operation went well.
+
+A kidney transplant can save a patient whose own kidneys do not work.
+
+## All Saints' Day and Halloween
+
+![Candles and lanterns at Kalevankangas cemetery in Tampere at Christmas 2001.](https://img.img-cdn.yle.fi/crop_extract,w_1937,h_1090,x_0,y_233/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4519325a3a618ab34f5/1513775674)
+
+Open image viewer
+
+On All Saints' Day, candles are lit on graves and dead friends or relatives are remembered. Photo: Arja Lento / Yle
+
+All Saints' Day was celebrated on Saturday. On All Saints' Day, Finns remember dead relatives and friends. Many people take candles to the graves.
+
+All Saints' Day is also the day of remembrance for the martyrs, saints and the departed of Christianity. All Saints' Day is an old festival.
+
+Many people also celebrate Halloween this weekend. The Halloween celebration has come to Finland from America. Children in particular like Halloween. Halloween decorations include, for example, pumpkins and ghosts.

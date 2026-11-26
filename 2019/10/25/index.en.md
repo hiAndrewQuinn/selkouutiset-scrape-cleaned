@@ -1,0 +1,67 @@
+# Friday 25.10.2019 (radio)
+
+University students are interested in entrepreneurship. Finns commit homicides while drunk. Taxi prices to be made clearer. Turkey sent Syrian refugees into the attack area. An autumn storm is blowing in Finland.
+
+## Many students are interested in entrepreneurship
+
+![The library of the University of Helsinki](https://img.img-cdn.yle.fi/crop_extract,w_3919,h_2204,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-7838258d4e4d13d42e/1571910657)
+
+Open image viewer
+
+Students in the library. Photo: Henrietta Hassinen / Yle
+
+Many university students want to get a job as entrepreneurs. The students say that if you have your own company, you can decide about your work yourself. An entrepreneur can work alone, or can hire people to work.
+
+About 30% of university students want to become entrepreneurs. It is new that many students want to become entrepreneurs.
+
+## Homicides are committed while drunk
+
+![A man in the picture is shadow boxing with himself.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10038578)
+
+Open image viewer
+
+Alcohol and violence often go together in Finland. Photo: Raila Paavola / Yle
+
+Finns commit fewer homicides while drunk than before. About 50% of homicides are committed while drunk. Earlier the figure was 75%.
+
+A homicide means that a person kills another person or does something so that another person dies.
+
+In Finland, more homicides are committed while drunk than in the other Nordic countries. Researchers say that alcohol and violence often go together in Finland.
+
+## Better price lists for taxis
+
+![Taxi meter.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10258020)
+
+Open image viewer
+
+The price of a taxi trip must be clearly stated. Photo: Toni Pitkänen / Yle
+
+Taxi price labelling will improve in February. The prices of taxi trips must be stated more clearly than before. Taxis are supervised by the Finnish Transport and Communications Agency. It has given instructions that the prices of taxi trips must be stated in the same way in all taxis.
+
+Right now, different taxis have different price lists. It is hard for the customer to see what a trip costs. In February, a regulation comes into force that the price of a taxi trip must be visible outside the taxi in the same way in all taxis.
+
+## Amnesty: Turkey sent refugees back to Syria
+
+![Turkey attacked Syria. The picture shows the Syrian city of Ras al-Ain, located near the border, at the start of the attack on 10 October.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_132/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6000285da48b4ca9e12/1571319496)
+
+Open image viewer
+
+Turkey attacked Syria the week before last. Photo: Sedat Suna / EPA
+
+Turkey sent many Syrian refugees to Syria before Turkey attacked there. The human rights organisation Amnesty says that Turkey forced hundreds of Syrian refugees to leave Turkey and go back to Syria before the attack. The area where the refugees went was dangerous, because Turkey attacked there.
+
+The human rights organisation Amnesty says that a person who is looking for safety must not be sent to a dangerous place.
+
+## An autumn storm in Finland
+
+![Cars in snowfall](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10580609)
+
+Open image viewer
+
+A lot of snow is falling in Northern Lapland. Next week the weather will get colder in Southern Finland too. Photo: Simo Pitkänen / Yle
+
+In Finland, there is a storm in the evening and at night.
+
+In Northern Lapland, a lot of snow is also falling on Saturday and driving conditions are poor. In Southern Finland, it will rain at night and on Saturday. The wind is strong in the evening and at night.
+
+There are big waves at sea, because it is blowing hard.

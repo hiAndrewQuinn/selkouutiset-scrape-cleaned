@@ -1,0 +1,66 @@
+# Sunday 15.8.2021
+
+Afghanistan. Domestic violence. Home sales. Credit register. The weather forecast.
+
+The TV plain-language news is on summer break. The plain-language news will be back on TV on Monday 23.8.
+The radio plain-language news is made every day, also in the summer.
+
+## The situation in Afghanistan
+
+![Foreign Minister Pekka Haavisto](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_192/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-84161361168fd41fe4c/1628868621)
+
+Open image viewer
+
+Foreign Minister Pekka Haavisto says that the situation in Afghanistan is changing quickly. Photo: Heikki Saukkomaa / Lehtikuva
+
+In Afghanistan many countries have started to evacuate their embassies in the capital, Kabul.
+
+Finland too is evacuating, that is, taking to safety, the staff of the Finnish embassy. Finland's Foreign Minister **Pekka Haavisto** says that evacuation is difficult, because the Taliban attack is advancing so quickly.
+
+Afghanistan's president **Ashraf Ghani** said on Sunday that he is giving up power.
+
+## Domestic violence among older people
+
+![In the illustrative picture a person's hand is pressed against glass.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11606933)
+
+Open image viewer
+
+Domestic violence among older people can continue for a long time. Photo: Emmi Korhonen / Lehtikuva
+
+Violence is common in the relationships of older people, that is, old people. However, domestic violence among older people is talked about little. The cause of the violence may be some illness or heavy use of alcohol.
+
+The Finnish Institute for Health and Welfare says that domestic violence among older people can continue for a very long time, even for decades.
+
+In young people's relationships, violence often does not continue that long. Many young people leave a violent relationship or seek help.
+
+## Digital home sales
+
+![Sales contract for a flat on a table](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10592201)
+
+Open image viewer
+
+Not all home sales can yet be done digitally. Photo: AOP
+
+The corona situation has increased digital home sales. In a digital home sale, the seller and buyer of a flat do not need to go to a bank branch.
+
+A home sale can be done at home on your own computer, at a time that suits you. That is why digital home sales have increased a lot during the corona era.
+
+Not all home sales can yet be done digitally. The share certificates of many flats are not yet in digital form. It will still take many years before the housing company share certificates of all flats have been changed to digital ones.
+
+## Positive credit register
+
+![Credit cards in a wallet](https://img.img-cdn.yle.fi/crop_extract,w_3895,h_2191,x_0,y_469/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6608195e85c282e206a/1691153351)
+
+Open image viewer
+
+Banks and credit companies also grant, for example, credit cards. Photo: Petteri Sopanen / Yle
+
+A positive credit register is coming to Finland. The idea is that banks and credit companies get the information on all the loans and incomes of loan applicants. Then banks and credit companies know how big a loan can be given to a person.
+
+The Tax Administration keeps the register. The positive credit register is intended to come into use in 2024.
+
+The government will give Parliament a proposal about the register in the autumn.
+
+## Weather
+
+On Monday it is partly cloudy or cloudy. In places there will be showers and thunderstorms. In Lapland it is dry, that is, no rain falls. The temperature is between 16 and 21 degrees. In Lapland it is a little cooler.

@@ -1,0 +1,65 @@
+# Thursday 3.9.2020 (radio)
+
+The SDP is still the biggest party. The corona situation in Finland is calm. The government is making decisions about tourism next week. Finns travelled very little in the spring.
+
+Listen
+
+You can read the news at the same time below.
+
+## The SDP is still the most popular party
+
+![Party support](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11523924)
+
+Open image viewer
+
+Photo: Harri Vähäkangas / Yle
+
+The SDP is still the most popular party in Finland. The support for the SDP is over 21 percent. Support has dropped by 2 percentage points. The SDP is the party of Prime Minister Sanna Marin.
+
+In Yle's survey, almost 19 percent of those who answered would vote for the Finns Party, and over 18 percent for the National Coalition. Both are opposition parties.
+
+Support for the Greens is under 12 percent and support for the Centre is over 11 percent. The Greens and the Centre are in the government.
+
+## The number of corona infections is stable
+
+![Corona virus testing in Helsinki at the end of August 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7137625f4cf63c0bb23/1598879622)
+
+Open image viewer
+
+Corona virus testing in Helsinki at the end of August 2020. Photo: Silja Viitala / Yle
+
+Authorities say that the number of corona infections has stayed steady in Finland.
+
+At the beginning of August there were more infections than in June and July. Later in August the number of infections no longer increased.
+
+In Finland there have been disease cases both from within the country and from people who came from abroad.
+
+More people have been exposed to the coronavirus than before. Still, the number of infections has not risen very much.
+
+## The government will soon make decisions about tourism
+
+![Prime Minister Sanna Marin spoke to the media on arriving at the negotiations on travel restrictions at the Säätytalo in Helsinki on 3 September.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11525185)
+
+Open image viewer
+
+Prime Minister Sanna Marin spoke to the media on arriving at the negotiations on travel restrictions at the Säätytalo in Helsinki on 3 September. Photo: Antti Aimo-Koivisto / Lehtikuva
+
+Prime Minister Sanna Marin says that the government will make decisions about tourism next week. The decisions are meant to help Lapland, for example. Lapland is suffering a lot because it has only a few tourists.
+
+The idea is that people can travel to Finland without quarantine if their corona test is negative.
+
+## Finns travelled less
+
+![Empty Helsinki-Vantaa airport.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_43/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6697165ea9a4c266861/1653986225)
+
+Open image viewer
+
+It was quiet at Helsinki-Vantaa airport at the end of April. Photo: Tiina Jutila / Yle
+
+Finns travelled really little in the spring. The reason is the coronavirus.
+
+Statistics Finland says that travel decreased a lot during March. Within the country, trips in March and April were about 50 percent fewer than usual. Travel abroad almost completely stopped.
+
+In March the government advised people to avoid travelling. The borders of Uusimaa were closed for 2 weeks in March.
+
+Between April and September, Finns cancelled or moved 1.4 million trips abroad.

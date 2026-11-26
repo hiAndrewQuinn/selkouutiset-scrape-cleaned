@@ -1,0 +1,71 @@
+# Wednesday 3.3.2021 (radio)
+
+Coronavirus infections. Army. Belarus. Paper industry. School transport. Weather forecast.
+
+## Coronavirus infections
+
+![A woman in black with a black face mask speaks outdoors with many microphones in front of her. Prime Minister Sanna Marin (SDP) comments on the meeting with the parliamentary groups on 25 February 2021.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_264/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-77858360379b3ecb58e/1614257136)
+
+Open image viewer
+
+Prime Minister Sanna Marin asks Finns to avoid contacts. Photo: Lehtikuva
+
+Coronavirus infections have increased faster than before. In Finland almost 800 new coronavirus infections have been found on Wednesday. 4 new coronavirus deaths have been reported.
+
+The government met on Wednesday evening. The government is considering what measures are needed in Finland so that the spread of the coronavirus can be prevented.
+
+Prime Minister **Sanna Marin** asks Finns to avoid all contacts, that is, meeting other people.
+
+## Coronavirus infections in the army
+
+![Basic training of the Finnish Defence Forces in Santahamina.](https://img.img-cdn.yle.fi/crop_extract,w_5519,h_3104,x_0,y_198/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7589895ff3055ade681/1609764305)
+
+Open image viewer
+
+Basic training of the Finnish Defence Forces in Santahamina. Photo: Jyrki Lyytikkä / Yle
+
+Coronavirus infections are now also increasing in the Defence Forces, that is, in the army. More than 70 people have fallen ill with the coronavirus in the Defence Forces.
+
+About 700 people have been exposed. Most infections are in the garrisons of southern Finland.
+
+## Finland and Belarus
+
+![Svjatlana Tsikhanouskaya, a politician of the Belarusian opposition movement.](https://img.img-cdn.yle.fi/crop_extract,w_5997,h_3373,x_0,y_187/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-779835603d16b5c8e2b/1614616602)
+
+Open image viewer
+
+Svjatlana Tsikhanouskaya visited Finland. Photo: Benjamin Suomela / Yle
+
+Finland will not become a mediator in the situation in Belarus. The leader of the Belarusian opposition, **Svjatlana Tsikhanouskaya**, proposed a mediator role for Finland.
+
+In an interview with Yle she hoped that Finland would act as a mediator between the Belarusian opposition, President **Aleksandr Lukashenko** and Russia.
+
+Finnish Foreign Minister **Pekka Haavisto** says that Finland will not become a mediator in the matter. Haavisto says that the situation is an internal matter of Belarus.
+
+## Paper industry
+
+![Paper rolls on a conveyor.](https://img.img-cdn.yle.fi/crop_extract,w_5547,h_3120,x_0,y_841/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7530995fd25439b670a/1639485647)
+
+Open image viewer
+
+Paper rolls at a paper mill. Photo: Petri Aaltonen / Yle
+
+The coronavirus situation has sped up the shrinking of Finland's paper industry. The coronavirus has reduced sales of printing paper and writing paper by about 20 percent. Less paper is used in remote work than before.
+
+Paper sales have been falling for a long time, by about 5 percent a year.
+
+Paper is produced in the world more than demand requires. The sector has about 10 percent overcapacity, even though paper production has been reduced.
+
+## School transport
+
+![School transport sign.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10410212)
+
+Open image viewer
+
+School transport sign. Photo: Toni Pitkänen / Yle
+
+In future, school transport will also be available for second-level schools. Vocational school and upper secondary school pupils will get the opportunity for school transport. Vocational schools and upper secondary schools are second-level educational institutions.
+
+The law on school transport is being changed. In future, second-level students can also get transport to school. Transport can be given if the distance to school is at least 7 kilometres.
+
+School transport is meant to help getting to school especially in the countryside.

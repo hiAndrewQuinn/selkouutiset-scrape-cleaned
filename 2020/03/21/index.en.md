@@ -1,0 +1,75 @@
+# Saturday 21.3.2020 (radio)
+
+The coronavirus has claimed the first death in Finland. There are already more than 500 coronavirus infections in Finland. The Prime Minister says that people's movement may be restricted further. The coronavirus is also spreading quickly around the world. Yle is publishing information about the coronavirus in other languages too.
+
+## Finland's first coronavirus death
+
+![A sign of the Finnish Institute for Health and Welfare.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11269515)
+
+Open image viewer
+
+The Finnish Institute for Health and Welfare reported that the coronavirus has claimed the first death in Finland. Photo: Antti Aimo-Koivisto / Lehtikuva
+
+The coronavirus has caused the first death in Finland.
+
+THL, the National Institute for Health and Welfare, says that the patient died yesterday. The death happened in the area of the Helsinki and Uusimaa hospital district.
+
+THL says that the patient was very old. More information about the patient will not be given, to protect privacy.
+
+## The number of infections is growing in Finland
+
+![Espoo's Samaria health centre, which works as a pandemic centre.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11262085)
+
+Open image viewer
+
+The pandemic centre at Samaria health centre in Espoo. Photo: Henrietta Hassinen / Yle
+
+In total at least 520 coronavirus infections have now been found in Finland, says THL, the National Institute for Health and Welfare.
+
+On Friday 53 new coronavirus infections were found in the Helsinki and Uusimaa hospital district. That is the biggest number of infections found in one day so far.
+
+Chief physician of infectious diseases Asko Järvinen says that in the Helsinki and Uusimaa hospital district about 350 coronavirus tests were done on Friday. About 16 percent of the samples were positive.
+
+## The government may tighten movement restrictions
+
+![Prime Minister Sanna Marin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11269237)
+
+Open image viewer
+
+Prime Minister Sanna Marin. Photo: Tiina Jutila / Yle
+
+Prime Minister Sanna Marin says that people's movement can be restricted further if the coronavirus situation in Finland gets worse.
+
+The Prime Minister said on TV1's Ykkösaamu programme that the government can restrict movement from Uusimaa to the rest of Finland. Most coronavirus infections are in Uusimaa, that is, in the capital region.
+
+The government can also tighten the ban on going outside, if it seems that people do not follow it. At the moment, public gatherings of more than 10 people are banned. In addition, people over 70 have been asked to stay at home as much as possible.
+
+## The coronavirus is spreading around the world
+
+![On Monday the pedestrian street Corso Vittorio Emanuele in central Milan was deserted.](https://img.img-cdn.yle.fi/crop_extract,w_3067,h_1725,x_5,y_557/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6514635e668372b57a3/1583776734)
+
+Open image viewer
+
+On Monday the pedestrian street in central Milan, Italy, was deserted. Photo: Giulia Costetti / EPA
+
+The coronavirus is still spreading quickly in various parts of the world.
+
+In total at least 270,000 coronavirus infections have now been found. More than 11,000 people have died of the virus.
+
+The virus has hit China, Italy and Iran the hardest. In Italy more than 4,000 people have already died of the virus. That is more than in China, where the virus started in December.
+
+China, on the other hand, says that no new local coronavirus infections have been detected in the country for 3 days.
+
+## Yle tells about the coronavirus epidemic in many languages
+
+![Picture of the coronavirus. The text says in Arabic: Information about the coronavirus in Arabic.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11268797)
+
+Open image viewer
+
+Yle reports on the coronavirus also in Arabic, for example. Photo: Maiju Hakalahti / Yle
+
+Yle News is starting to publish information about the coronavirus epidemic in other languages as well as in Finnish.
+
+Information about the coronavirus epidemic will be published in Arabic, Somali, Kurdish and Persian.
+
+The service starts at yle.fi/coronainfo. News and short information pieces will be published on the pages as text and video.

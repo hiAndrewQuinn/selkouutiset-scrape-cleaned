@@ -1,0 +1,61 @@
+# Thursday 21.5.2020 (radio)
+
+There has been a violent storm in Bangladesh and India. The corona situation makes the work of farms and garden farms harder. The popularity of English in schools is growing. Today is International Accessibility Day.
+
+## A violent storm hit Bangladesh and India
+
+![In the picture, waves hit the harbour in Chennai, India.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11360742)
+
+Open image viewer
+
+Waves hit the breakwater of the Kasimedu fishing harbour in Chennai, India. Photo: Arun Sankar / AFP
+
+A violent storm has hit Bangladesh and India. News agencies reported on Thursday afternoon that about 100 people have died. The number of dead may be much higher as more information comes in.
+
+The storm that hit Bangladesh and India has caused a lot of damage. The storm has caused floods and broken houses and people's homes.
+
+A very large number of people are now looking for shelter. Millions of people have been left without electricity.
+
+## The corona situation makes farm work harder
+
+![Strawberries in a growing tunnel](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10918950)
+
+Open image viewer
+
+Strawberries in a growing tunnel. Photo: Ville Viitamäki / Yle
+
+The corona situation makes the work of many farms and garden farms in Finland harder. For example, it has been difficult for them to get seasonal workers.
+
+Many farms and garden farms also say it has been hard to get enough respirators and protective gloves. The farms need respirators to protect workers from, for example, dust or mould.
+
+The corona situation has not made it much harder to get seeds, fertilisers or animal feed. Trade in products also continues as normal on many farms and garden farms.
+
+## The popularity of English in schools is growing
+
+![Classroom](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11267763)
+
+Open image viewer
+
+Primary school pupils in a lesson. Photo: Jarkko Riikonen / Yle
+
+The popularity of English in schools is growing. Last year (2019), over 80% of primary school pupils studied English as their first foreign language. The share grew quite a lot from the previous year (2018), when it was 71%.
+
+Just under 20% of primary school pupils studied Swedish as a foreign language last year. About 4% of primary school pupils studied German.
+
+Teaching of a foreign language now starts in school earlier than before. Teaching of the first foreign language starts already in the first grade.
+
+## Accessibility Day reminds us about access to digital services
+
+![Outi Huusko works as a sign language interpreter at government events.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11297580)
+
+Open image viewer
+
+The government's press conferences are interpreted into sign language. Photo: Laura Kotila / Government Communications Department
+
+Today, Thursday, International Accessibility Day is being celebrated.
+
+Accessibility Day reminds us that digital services must be available to everyone. Websites or mobile applications must be made so that, for example, blind people, deaf people and older people can also understand what is said in them.
+
+Yle offers accessibility in many ways. Programmes are interpreted into sign language and subtitled, for example. Yle also makes news in clear language for radio and television.
+
+These Clear News can also be read as text on Yle's website at yle.fi/selkouutiset.

@@ -1,0 +1,71 @@
+# Saturday 1.12.2018 (radio)
+
+The former president of the USA, George Bush Senior, has died. Protests continue in France. Iceland has been an independent country for exactly 100 years. Summer tyres may no longer be used.
+
+## President Bush
+
+![George H. W. Bush photographed in 2013.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10535074)
+
+Open image viewer
+
+George Bush Senior in 2013. Photo: Brendan Smialowski / AFP
+
+The former president of the USA, George Bush Senior, has died. He was 94 years old. Bush had Parkinson's disease.
+
+Bush Senior was the president of the USA from 1989 to 1993. President Bush also visited Finland.
+
+There is another president in the Bush family. Bush Senior's son, George Bush Junior, was the president from 2001 to 2009.
+
+## Protests in France
+
+![The French flag flutters in smoky air near the Arc de Triomphe.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10535198)
+
+Open image viewer
+
+Protesters in Paris. Photo: Etienne Laurent / EPA
+
+Protests continue in France. A large group of people protested on Saturday in the capital of France, Paris. There were also protests elsewhere in France.
+
+In France there have been protests for more than 2 weeks. People got angry when the government decided to raise the petrol tax. The protesters say that President Emmanuel Macron is the president of the rich.
+
+The protesters are known as the yellow vests, because many protesters are wearing yellow vests. The police suspect that groups from the political far right and far left have taken part in the protests, because they want to fight with the police. The protests have sometimes been violent.
+
+## Iceland 100 years
+
+![Tourists in the Icelandic nature.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8528395)
+
+Open image viewer
+
+Iceland has beautiful nature. Photo: Yle
+
+Iceland has been celebrating its independence. Iceland has been an independent country for exactly 100 years.
+
+Before independence, Iceland was part of Denmark. The independent Iceland at first had a shared king with Denmark. In 1944 Iceland got its own president.
+
+Finland has also congratulated Iceland. The building of the Ministry for Foreign Affairs in Helsinki was lit on Saturday in the colours of Iceland, that is, blue, red and white.
+
+Finland has good relations with Iceland, because both countries belong to the Nordic countries. Iceland is the smallest Nordic country. Iceland has about 340,000 inhabitants.
+
+## Winter tyres
+
+![Studded tyres are, for many, the best winter tyres.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10461199)
+
+Open image viewer
+
+Many Finns' winter tyres are studded tyres. Photo: Raimo Torikka / Yle
+
+The requirement to use winter tyres has begun. Drivers may no longer use summer tyres.
+
+Cars must have winter tyres from the beginning of December to the end of February. Good weather is no longer a reason to drive on summer tyres.
+
+## Frost weather
+
+![Freezing Lake Hietajärvi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10501972)
+
+Open image viewer
+
+Photo: Ismo Pekkarinen / AOP
+
+On Sunday there is a little frost in almost the whole country. In the west and north it may snow a little.
+
+On Monday it is windy and rainy. In the west it rains or sleets. In the north it may snow.

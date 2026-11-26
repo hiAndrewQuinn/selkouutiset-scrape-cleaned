@@ -1,61 +1,59 @@
-# Maanantai 20.1.2020 (radio)
+# Tiistai 21.2.2020 (radio)
 
-Irakilaiset hakevat Suomen kansalaisuutta enemmän kuin ennen. Norjan oikeistopopulistit jättävät hallituksen. Miljardööreillä on yhä enemmän rahaa verrattuna muihin. Lapissa on paikoin jo lähes metri lunta.
+Käteisellä maksetaan enää vähän. Koronavirus leviää Kiinassa. Poliisille lisää haalarikameroita. Helsinki on Euroopan vilkkain satama.
 
-## Irakilaiset hakevat entistä useammin Suomen kansalaisuutta
+## Käteismaksut vähenevät
 
-![Turvapaikanhakijoita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10601748)
-
-Avaa kuvien katselu
-
-Turvapaikanhakijoita. Kuva: Milla Vahtila / Yle
-
-Irakilaiset hakevat useammin Suomen kansalaisuutta kuin ennen. Viime vuonna Suomen kansalaisuutta haki noin 1 600 irakilaista, kun vuonna 2018 Irakin kansalaiset jättivät alle 1000 hakemusta.
-
-Vuonna 2015 Suomeen tulleet ihmiset voivat nyt hakea Suomen kansalaisuutta. Suomeen tuli vuonna 2015 yli 32 000 turvapaikanhakijaa. Heistä suuri osa oli irakilaisia.
-
-Suomessa tehtiin viime vuonna alle 2 500 uutta turvapaikkahakemusta. Eniten uusia turvapaikanhakijoita tuli Venäjältä ja Turkista.
-
-## Norjan oikeistopopulistit lähtevät hallituksesta
-
-![Siv Jensen.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6330435e25a1b5f0b55/1579524670)
+![Kuvassa asiakas maksaa kaupan itsepalvelukassalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10617452)
 
 Avaa kuvien katselu
 
-Edistyspuolueen puheenjohtaja Siv Jensen on toiminut valtiovarainministerinä. Kuva: Cornelius Poppe / EPA
+Suurin osa ihmisistä maksaa kaupassa kortilla. Kuva: Heini Holopainen / Yle
 
-Norjan oikeistopopulistinen edistyspuolue eroaa hallituksesta. Ero liittyy Isis-taistelijan perheeseen, joka tuotiin Syyriasta Norjaan.
+Ihmiset maksavat käteisellä rahalla vähemmän kuin aikaisemmin. Käteisen rahan käyttö on vähentynyt paljon 10 vuodessa.
 
-Edistyspuolue ei hyväksy sitä, että norjalais-pakistanilainen nainen päästettiin viime viikolla Norjaan al-Holin leiriltä. Nainen on ollut naimisissa 2 Isis-taistelijan kanssa. Naisen lapsi on vakavasti sairas.
+Käteistä rahaa käyttää nyt noin 10 prosenttia suomalaisista. Vielä 10 vuotta sitten käteistä käytti noin 30 prosenttia suomalaisista.
 
-Edistyspuolue sanoi, että vain sairas lapsi saa tulla Norjaan. Nainen ei suostunut tähän.
+Nyt maksetaan paljon esimerkiksi pankkikortilla. Asiantuntijat sanovat, että silloin ei aina huomaa rahan kulumista yhtä hyvin, kuin jos maksaa käteisellä.
 
-Nainen, viisivuotias poika ja kolmevuotias tytär tulivat Norjaan lauantaina. Nainen otettiin kiinni lentokentällä Oslossa. Viranomaiset epäilevät, että nainen on osallistunut terroristijärjestön toimintaan.
+## Koronavirus leviää Kiinassa
 
-## Miljardöörien määrä on kaksinkertaistunut
-
-![Oxfam](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10088600)
+![Kiinan pääkaupungissa Pekingissä turistit vierailevat Taivaallisen rauhan aukiolla tavalliseen tapaan. Mies puki ylleen hengityssuojaimen. Maassa on vahvistettu reilut 200 uutta koronavirustartuntaa, kolme ihmistä on kuollut tautiin.](https://img.img-cdn.yle.fi/crop_extract,w_6319,h_3554,x_0,y_663/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6331765e25d49b7cf51/1579592852)
 
 Avaa kuvien katselu
 
-Avustusjärjestö Oxfam kartoittaa eriarvoistumista. Kuva: Andy Rain / EPA
+Mies puki hengityssuojaimen Kiinan pääkaupungissa Pekingissä. Kuva: EPA
 
-Maailmassa on entistä enemmän superrikkaita ihmisiä eli miljardöörejä. Miljardöörien määrä on kaksinkertaistunut 10 vuoden aikana. Nyt heitä on maailmassa 2150.
+Kiinassa on tapahtunut lisää koronavirus-tartuntoja. Uusia tartuntoja on 80. Tautiin, jonka koronavirus aiheuttaa, on sairastunut melkein 300 ihmistä. Tautiin on kuollut jo 6 ihmistä.
 
-Kansalaisjärjestö Oxfam on laskenut, että miljardööreillä on enemmän rahaa kuin 60 prosentilla maailman muista ihmisistä. Maailman 22 rikkainta miestä omistaa enemmän kuin kaikki Afrikan naiset yhteensä.
+Kiinalaiset matkustavat nyt paljon, koska monet menevät sukulaisten luo viettämään kiinalaista uutta vuotta. Kiinassa ja muissa Aasian maissa on aloitettu matkustajien kuumeen mittaus esimerkiksi lentokentillä, rautatieasemilla ja bussiasemilla. Kuumeiset ihmiset voidaan tunnistaa lämpökameroilla.
 
-## Lapissa on paikoin melkein metri lunta
+Maailman terveysjärjestö WHO järjestää keskiviikkona hätäkokouksen koronaviruksen leviämisen takia.
 
-![person med snöskyffel invid bil](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_381/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4611155a73095e6a8c5/1517488599)
+## Poliisille haalarikamerat koko Suomeen
+
+![haalarikamera poliisilla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9580397)
 
 Avaa kuvien katselu
 
-Lapissa on paikoin lähes metri lunta. Kuva: Christoffer Westerlund / Yle
+Haalarikamera kuvaa saman, mitä poliisi näkee.  Kuva: Berislav Jurišić / Yle
 
-Lappiin satoi paljon lunta viikonloppuna. Lunta on satanut joissakin paikoissa yli 20 senttiä.
+Poliisi ottaa haalarikamerat käyttöön koko maassa. Poliisin haalariin kiinnitetään pieni kamera, joka kuvaa videolle, mitä poliisin edessä näkyy.
 
-Eniten lunta satoi Posiolla, 23 senttiä. Tornioon ja Ranualle lunta tuli 19 senttiä.
+Haalarikamera lisää poliisin turvallisuutta. Moni on rauhallisempi, kun tietää, että poliisin haalarikamera kuvaa. Poliisi voi käyttää videokuvaa todisteena, jos videolle tallentuu esimerkiksi tappelu tai joku hyökkää poliisia kohti.
 
-Eniten lunta koko Suomessa on Sodankylässä. Ilmatieteen laitos kertoo, että Sodankylän Vuotsossa on 97 senttiä lunta.
+Haalarikameroita on kokeiltu Helsingin poliisilaitoksella 4 vuotta. Tänä vuonna haalarikamerat hankitaan kaikille Suomen poliisilaitoksille.
 
-Vain sentin vähemmän lunta eli 96 senttiä on Sallan Naruskalla. 95 sentin lumensyvyys on mitattu Kittilän Pokassa.
+## Helsinki on Euroopan vilkkain satama
+
+![Helsingin Eteläsatamssa risteilyaluksia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11069064)
+
+Avaa kuvien katselu
+
+Laivoja Helsingin Etelä-Satamassa. Kuva: Henrietta Hassinen / Yle
+
+Helsingin satama on Euroopan vilkkain matkustajasatama. Sen kautta kulki viime vuonna yli 12 miljoonaa laivamatkustajaa. Se on enemmän kuin muissa Euroopan satamissa. Helsingin satama on ollut Euroopan vilkkain matkustajasatama nyt 3 vuotta.
+
+Suurin osa Helsingin sataman matkustajista menee Tallinnaan tai tulee Tallinnasta. Myös Tukholmaan kulkee paljon matkustajia joka päivä.
+
+Helsingin satamassa kävi viime vuonna myös paljon ulkomaalaisia risteilylaivoja. Niitä kävi yli 300.

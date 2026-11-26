@@ -1,71 +1,69 @@
-# Lauantai 7.1.2023 (radio)
+# Sunnuntai 8.1.2022 (radio)
 
-Koronatilanne. Päivystysten ruuhkat. Puhemieskiista USA:ssa. Sähkötuki. Pakkasennätys. Sääennuste.
+Vartijoiden toiminta. Yksinäisyys. Sälenin turvallisuuskokous. Vihannesten syönti. Sääennuste.
 
-## Koronatilanne ja Kiinan-lennot
+## Vartijoiden toiminta kauppakeskuksessa
 
-![Perhe- ja peruspalveluministeri Krista Kiuru.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_446/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105656063b92ac8b40dd/1673079701)
-
-Avaa kuvien katselu
-
-Perhe- ja peruspalveluministeri Krista Kiuru oli lauantaina vieraana Ylen Ykkösaamu -ohjelmassa.  Kuva: Petteri Sopanen / Yle
-
-Perhe- ja peruspalveluministeri Krista Kiuru sanoo, että Suomi haluaa torjua mahdollista uutta koronaviruksen tautiaaltoa. Kiuru muistuttaa, että koronapotilaat ovat kuormittaneet syksyn aikana terveydenhuoltoa. 
-
-Kiuru sanoo, että Kiinan koronatilanteesta ja uudesta virusmuunnoksesta ei ole saatu tarpeeksi tietoa. Siksi Kiinan-lentojen matkustajille tarvitaan koronarajoituksia. 
-
-Kiinan-lentojen matkustajilta aletaan pian vaatia negatiivista koronatestitodistusta. Kiuru sanoo, että määräys tulee voimaan mahdollisimman pian. Perhe- ja peruspalveluministeri Krista Kiuru oli lauantaina vieraana Ylen Ykkösaamu -ohjelmassa. 
-
-## Päivystysten ruuhkat
-
-![Harmaan rakennuksen seinässä lukee Tays päivystys Acuta.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_489/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1047960639987b134bf8/1671006231)
+![Ihmisiä Ison Omenan käytävällä.](https://img.img-cdn.yle.fi/crop_extract,w_5015,h_2820,x_456,y_464/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105677863babeca5578d/1673964182)
 
 Avaa kuvien katselu
 
-Monilla alueilla on ollut ruuhkaa päivystyksissä. Siksi odotusajat voivat olla tosi pitkiä. Kuva: Marjut Suomi / Yle
+Poliisi epäilee, että naisen kuolema voi johtua vartijoiden toiminnasta. Kuva: Jouni Immonen / Yle
 
-Terveydenhuollon päivystysten ruuhkat jatkuvat. Päivystyksiä kuormittaa esimerkiksi pula vanhusten jatkohoitopaikoista. Jatkohoitopaikkoja on liian vähän. Siksi päivystyksiin tulee potilaita, joita ei pystytä hoitamaan muualla. 
+Poliisi tutkii kauppakeskuksen vartijoiden toimintaa Espoossa. Lauantaina kauppakeskus Isossa Omenassa kuoli nainen, jonka vartijat ottivat kiinni. 
 
-Esimerkiksi Pohjois-Pohjanmaan hyvinvointialue aikoo vähentää palveluasumispaikkoja ja sairaalapaikkoja, koska hyvinvointialue haluaa säästää rahaa. 
+Poliisi kertoi sunnuntaina päivällä, että poliisi epäilee vartijoita kuolemantuottamuksesta.
 
-Myös muilla hyvinvointialueilla mietitään keinoja säästää. 
+Monet ihmiset ovat kertoneet, että vartijat pitivät naista maassa pitkään. Nainen meni elottomaksi ja häntä yritettiin elvyttää, mutta nainen kuoli. 
 
-## USA:n edustajainhuone
+## Yksinäisyys
 
-![Kevin McCarthy kädet levällään.](https://img.img-cdn.yle.fi/crop_extract,w_4553,h_2561,x_0,y_268/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105641963b72c8f6f437/1672948992)
-
-Avaa kuvien katselu
-
-Uusi puhemies on republikaani Kevin McCarthy. Kuva: Michael Reynolds / EPA
-
-USA:n edustajainhuone on valinnut uuden puhemiehen. Uusi puhemies on republikaani **Kevin McCarthy.** 
-
-Puhemiehen valitseminen oli harvinaisen vaikeaa ja valitseminen kesti 5 päivää. USA:n edustajainhuone äänesti puhemiehestä 15 kertaa. 
-
-Edustajainhuone säätää USA:ssa lakeja. Edustajainhuoneen puhemies on USA:n hallinnon kolmanneksi korkein virka. Korkeampia virkoja ovat vain presidentti ja varapresidentti. 
-
-## Sähkötuki
-
-![Tampereen sähkölaitoksen lasku.](https://img.img-cdn.yle.fi/crop_extract,w_4259,h_2395,x_10,y_42/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1031122636a54c17e08f/1680684775)
+![Nainen istuu järven jäällä.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_272/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-775224602d2e2eced00/1613574292)
 
 Avaa kuvien katselu
 
-Sähkötukea voi saada yli 400 euron sähkölaskuun. Kuva: Matias Väänänen / Yle
+Korona-aika lisäsi ihmisten yksinäisyyttä. Kuva: Mimmi Nietula / Yle
 
-Kela on julkaissut lomakkeen, jolla voi hakea tukea kalliisiin sähkölaskuihin. Tukea myönnetään pienituloisille. 
+Monet suomalaiset kokevat yksinäisyyttä. Tutkimus kertoo, että voimakasta yksinäisyyttä kokee 20 prosenttia ihmisistä. Varsinkin lasten ja nuorten kokema yksinäisyys lisääntyi paljon korona-aikana. Näin tapahtui, koska ihmisten piti välttää muiden ihmisten tapaamista. 
 
-Sähkötukea voi saada tammikuulta, helmikuulta ja maaliskuulta. Kelan sähkötukea voi saada, jos sähkölasku on yli 400 euroa kuukaudessa. 400 euroa ylittävään määrään voi saada tukea 60 prosenttia. 
+Professori Niina Junttila tutkii yksinäisyyttä. Junttila on huolissaan siitä, että monilla suomalaisilla yksinäisyyden tunne ei ole helpottanut, vaikka koronarajoitukset on poistettu. 
 
-Hakemuksen liitteeksi tarvitaan sähkölasku. Sähkötuen hakemuslomake on julkaistu Kelan verkkosivuilla. 
+Syy on ehkä se, että ihmiset ovat tottuneet välttämään kokoontumisia ja muita ihmisiä.
+
+## Sälenin turvallisuuskokous
+
+![Pekka Haavisto](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105676063baba404872e/1673181784)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto puhui Sälenin turvallisuuskokouksessa Ruotsissa. Kuva: Lehtikuva
+
+Ruotsissa on alkanut perinteinen Sälenin turvallisuuskokous. Tänä vuonna kokouksen tärkein puheenaihe on Ruotsin ja Suomen Nato-jäsenyys. 
+
+Kokoukseen osallistuvat esimerkiksi Ruotsin pääministeri, Naton pääsihteeri ja Suomen ulkoministeri Pekka Haavisto. Ulkoministeri Haavisto sanoi kokouksessa, että Suomi ja Ruotsi liittyvät Natoon yhdessä. Suomi ei halua liittyä Natoon ilman Ruotsia. 
+
+Turkki ja Unkari eivät ole vielä hyväksyneet Suomen ja Ruotsin Nato-jäsenyyttä. 
+
+## Kasvisten syönti
+
+![Ruokakaupan vihannesosasto yleiskuva 28.12.2016](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3076,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-722145864b51f49dc5/1482995051)
+
+Avaa kuvien katselu
+
+Ruoan kallistuminen voi lisätä eriarvoistumista. Kuva: Ilkka Klemola / Yle
+
+Ruoan hinnan nousu vaikuttaa suomalaisten ruokavalintoihin. Esimerkiksi S-ryhmän kaupoissa vihannesten, hedelmien ja juuresten osuus ihmisten ostoksista on vähentynyt viime elokuusta alkaen. Syy on ehkä hintojen kallistuminen. 
+
+Viime vuoden lopussa vihannesten, hedelmien ja juuresten osuus ostoksista oli 15 prosenttia. Aiemmin osuus on ollut 17 prosenttia.
+
+Ravitsemustieteen professori Maijaliisa Erkkola on huolissaan, että eriarvoisuus voi lisääntyä, jos joidenkin ihmisten pitää säästää kasvisten syönnistä. 
 
 ## Sää
 
-![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687486)
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687521)
 
 Avaa kuvien katselu
 
-Lännestä tulee lumisade sunnuntaina.
+Lännessä ja pohjoisessa pyryttää lunta.
 
-Talven pakkasennätys on rikkoutunut Muoniossa. Muonion kirkonkylän havaintoasemalla oli lauantaina aamulla pakkasta 34,8 astetta. 
-
-Sunnuntaina on pilvistä. Lännessä alkaa sataa lunta. Aivan idässä aurinko voi vielä paistaa välillä. Lämpötila on -5 ja -15 asteen välillä.
+Maanantaina melkein koko Suomessa sataa lunta. Lännessä ja pohjoisessa lunta voi pyryttää runsaasti. Etelässä ja lännessä lämpötila -1 ja -5 asteen välillä. Pohjoisessa ja idässä lämpötila on -8 ja -12 asteen välillä.

@@ -1,7 +1,83 @@
-# Torstai 18.1.2018 (tv)
+# Perjantai 19.1. 2018 (radio)
 
-Presidenttiehdokkaat vastasivat kyselyymme. Sää
+Politiikan tutkijat arvioivat presidentti Niinistön ensimmäistä kautta. Oikeus käsitteli Anneli Auerin korvauksia. Suomessa halutaan, että äidit imettävät vauvoja enemmän ja pitempään. Suomen liikkuvin kunta on Asikkala. Viikonloppu on talvinen.
 
-Yle Uutiset selkosuomeksi
+Tutkijat arvioivat Niinistöä
 
-Presidenttiehdokkaat vastasivat kyselyymme. Sää
+![Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9957544)
+
+Avaa kuvien katselu
+
+Sauli Niinistö Kuva: AOP
+
+Sauli Niinistön ensimmäinen kausi presidenttinä loppuu pian.
+
+Yle pyysi politiikan tutkijoita arvioimaan Niinistön työtä.
+
+Tutkijat kehuvat Niinistöä siitä, että hän on tavannut maailman johtajia. Niinistö on tavannut Yhdysvaltojen, Kiinan ja Venäjän johtajat. Tutkijoiden mielestä se on hyvä asia, koska Suomi on pieni maa.
+
+Niinistö saa kritiikkiä siitä, että hän on puhunut epäselvästi joistakin asioista. Tutkijoiden mielestä presidentin puheet on joskus ymmärretty monella eri tavalla.
+
+Niinistö aloitti presidenttinä vuonna 2012. Hän pyrkii uudelleen presidentiksi.
+
+Oikeus päätti Auerin korvauksista
+
+![Anneli Auer](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9268604)
+
+Avaa kuvien katselu
+
+Anneli Auer Kuva: Jarno Kuusinen / AOP
+
+Oikeus on käsitellyt Anneli Auerin korvauksia.
+
+Anneli Auerin oikeusjutusta on puhuttu Suomessa paljon.
+
+Nyt oikeus on päättänyt, että valtio maksaa Auerille noin 23 000 euroa lisää korvauksia.
+
+Auer oli vankilassa oman aviomiehen murhasta. Myöhemmin oikeus totesi, että Auer oli syytön. Siksi Auer on jo saanut noin 500-tuhatta euroa korvauksia.
+
+Anneli Auer halusi korvauksia paljon enemmän eli yhteensä 2,5 miljoonaa euroa.
+
+Suomi kannustaa äitejä imettämään
+
+![vauva sylissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10025963)
+
+Avaa kuvien katselu
+
+Äitejä kannustetaan imettämään. Kuva: Elise Tykkyläinen / Yle
+
+Suomessa halutaan, että äidit imettävät vauvoja enemmän ja pitempään.
+
+Terveyden ja hyvinvoinnin laitos haluaa, että äidit saavat enemmän tukea vauvan imettämiseen. Tukea ja ohjausta annetaan esimerkiksi synnytyssairaaloissa ja neuvoloissa.
+
+Tarkoituksena on, että vauvat saavat vain äidinmaitoa ensimmäiset 6 kuukautta.
+
+Monet tutkimukset kertovat, että äidinmaito on tärkeää vauvan terveydelle.
+
+Suomen liikkuvin kunta valittiin
+
+![Asikkalan kunnan edustajat juhlivat Suomen liikkuvin kunta -palkintoa yhdessä Vuoden urheilijan, Iivo Niskanen kanssa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10030627)
+
+Avaa kuvien katselu
+
+Asikkalan kunnan edustajat juhlivat muiden palkinnonsaajien kanssa Urheilugaalassa 18.1. 2018. Kuva: Tomi Hänninen / Yle
+
+Suomen liikkuvin kunta on Asikkala.
+
+Kuntaliitto järjesti Suomen liikkuvin kunta kilpailun ensimmäistä kertaa.
+
+Asikkala on palkannut liikunnanohjaajia ja antaa tietoa liikunnasta. Liikuntaa voi harrastaa ilmaiseksi kunnan liikuntatiloissa.
+
+Asikkalan kunta on Etelä-Suomessa, Lahden lähellä.
+
+Kilpailuun osallistui 100 kuntaa.
+
+Sää jatkuu lumisena
+
+![Hiihtäjiä Ahveniston moottoriradalla Hämeenlinnassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10031419)
+
+Avaa kuvien katselu
+
+Hiihtokelit ovat alkaneet. Kuva: Ville Välimäki / Yle
+
+Viikonloppu on talvinen. Pakkasta ja lunta on koko maassa. Viikonloppuna lunta sataa vielä lisää. Ensi viikon alussa lumisateet vähenevät, mutta pakkanen kiristyy.

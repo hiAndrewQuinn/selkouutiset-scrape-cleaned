@@ -1,73 +1,65 @@
-# Lauantai 31.3.2018 (radio)
+# Tiistai 3.4.2018 (radio)
 
-Pohjois-Karjalassa on romahtanut kolme kattoa lumen takia. Etelä- ja Keski-Suomessa on tosi huono ajokeli maanantaina, kun moni ajaa pääsiäislomalta takaisin kotiin. Kesämökkivero on noussut nopeasti. Nobel-palkittu Malala Yousafzai on käynyt kotiseudulla Pakistanissa ensimmäistä kertaa sen jälkeen, kun häntä ammuttiin siellä yli viisi vuotta sitten. Yhdysvallat aikoo kysyä sosiaalisen median käytöstä melkein kaikilta, jotka hakevat viisumia Yhdysvaltoihin.
+Ravintololoiden työoloissa puutteita. Etninen profilointi on yleistä. Tammerkoski tyhjennettiin siltatyön vuoksi. Koivun siitepölyä tulee paljon. Kevät on myöhässä.
 
-## Liikaa lunta katoilla
+Ravintolat saivat paljon huomautuksia työoloista
 
-![Vanhan kaupan katto romahtanut](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10141157)
-
-Avaa kuvien katselu
-
-Entisen kaupan katto romahti Joensuussa lauantaina. Kuva: Yle / Tapio Laakkonen
-
-Pohjois-Karjalassa on romahtanut eilen ja tänään yhteensä kolme kattoa.
-
-Katoilla on niin paljon lunta, että ne eivät kestä. Lauantaina romahti ruokakaupan katto Joensuussa. Perjantaina Nurmeksessa ja Kontiolahdella putosi alas varaston katto. Kukaan ei ole loukkaantunut onnettomuuksissa.
-
-Pelastuslaitos suosittelee, että ihmiset käyvät pudottamassa lunta pois katoilta Itä-Suomessa.
-
-## Maanantaina vaarallinen keli
-
-![lumipyryä turuntiellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10052669)
+![mies tekee pizzaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10142664)
 
 Avaa kuvien katselu
 
-Maanantaina voi sataa lunta jopa 20 senttiä Etelä-Suomessa. Kuva: Heikki Saukkomaa
+Vain harvassa ravintolassa kaikki oli kunnossa. Kuva: AOP
 
-Helsingin pelastuslaitos suosittelee, että ihmiset palaavat kotiin pääsiäislomalta jo sunnuntaina.
+Ravintoloiden työoloissa on puutteita. Esimerkiksi työterveyshuoltoa ei ole aina järjestetty ravintolan työntekijöille. Keittiössä voi olla liian kuuma tai lattia on liukas. Palkkaa ei aina makseta tarpeeksi tai työsopimuksia ei ole tehty oikein.
 
-Monilla on vielä maanantaina vapaapäivä, mutta silloin Etelä- ja Keski-Suomessa on tosi huono ajokeli. Lunta sataa paljon ja tuulee kovaa. Etelä-Suomeen sataa maanantaina ehkä jopa 20 senttiä lunta. Maantiellä täytyy ajaa hitaasti ja varovasti.
+Viranomaiset tarkastivat paljon ravintoloita. Vain harvassa ravintolassa kaikki oli kunnossa.
 
-## Mökkivero nousee
+Etninen profilointi on yleistä
 
-![kesämökki järven rannalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10120164)
-
-Avaa kuvien katselu
-
-Kesämökkivero on keskimäärin noin 250 euroa vuodessa. Kuva: Jari Hautalan kotialbumi
-
-Kesämökkivero on noussut paljon 2000-luvulla.
-
-Esimerkiksi Raaseporissa ja Porvoossa mökistä täytyy maksaa kiinteistöveroa noin 500 - 600 euroa vuodessa. Koko Suomen keskiarvo on noin 250 euroa vuodessa.
-
-Kunnat ovat keränneet mökkiveroa vajaat 30 vuotta. Nyt kunnat keräävät sitä noin kolminkertaisesti alkuun verrattuna.
-
-## Malala kävi kotona
-
-![Malala Yousafzai](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10141080)
+![Poliisi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10142402)
 
 Avaa kuvien katselu
 
-Malala Yousafzai. Kuva: Sashenka Gutierrez / EPA
+Etninen profilointi on Suomessa kielletty. Kuva: Emilia Malin / Yle
 
-Nobelin rauhanpalkinnon voittaja, pakistanilainen Malala Yousafzai on palannut kotikaupunkiinsa.
+Moni maahanmuuttaja kohtaa Suomessa etnistä profilointia. Monet kertoivat tutkimuksessa, että poliisit, vartijat tai kaupan myyjät katsovat usein ulkomaalaiselta näyttäviä ihmisiä tarkkaan.
 
-Yousafzai on Mingoran kaupungissa nyt ensimmäistä kertaa sen jälkeen kuin häntä ammuttiin siellä. Äärijärjestö Talebanin asemies ampui 15-vuotiasta tyttöä päähän vuonna 2012. Yousafzai loukkaantui vakavasti.
+Ihmiset kertoivat, että etenkin vartijoiden toiminta on usein epämiellyttävää. Etninen profilointi on Suomessa kielletty.
 
-Malala Yousafzai tunnetaan maailmalla siitä, että hän puolustaa tyttöjen koulunkäyntiä ja muita lasten oikeuksia. Hän sai Nobelin rauhanpalkinnon vuonna 2014, nuorempana kuin kukaan muu.
+Tammerkoski tyhjennettiin
 
-Malala Yousafzai vierailee kotimaassa Pakistanissa neljä päivää. Mingorassa hän kävi entisessä kodissa ja tapasi lapsuudenystäviä.
-
-## Lisää tietoja viisuminhakijoista
-
-![Yhdysvaltain Suomen suurlähetystön viisumiohjeistus tietokoneen näytöllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10141076)
+![Tammerkoski on tyhjennetty Hämeensillan remontin takia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10142481)
 
 Avaa kuvien katselu
 
-Yhdysvallat tiukentaa viisumin saantia. Kuva: Tiina Jutila / Yle
+Koski ilman vettä on jännittävän näköinen Tampereen keskustassa. Kuva: Jussi Mansikka / Yle
 
-Yhdysvallat aikoo vaatia lähes kaikilta viisuminhakijoilta tietoja sosiaalisen median käytöstä.
+Tampereella on alkanut iso korjaustyö kaupungin keskustassa. Tammerkoski on tyhjennetty vedestä, koska Hämeensilta korjataan. Silta on 90 vuotta vanha. Sillan kivet puretaan ja laitetaan sitten takaisin paikoilleen. Työ kestää 18 kuukautta.
 
-Yhdysvaltojen ulkoministeriö ehdottaa, että viisuminhakijalta vaaditaan lista sosiaalisen median palveluista, joita hän käyttää. Lisäksi häneltä kysytään kaikki puhelinnumerot, sähköpostiosoitteet ja ulkomaanmatkat 5 vuoden ajalta. Tarkoituksena on esimerkiksi löytää ääriliikkeiden kannattajat.
+Tammerkoski on tyhjennetty vedestä, koska Hämeensillan alle rakennetaan korjaustelineet. Samalla kosken pohjasta kerätään pois roskaa.
 
-Uusi käytäntö koskee arviolta yli 10:tä miljoonaa ihmistä joka vuosi. Suomalaiset matkailijat eivät tarvitse viisumia Yhdysvaltoihin.
+Monen mielestä koski ilman vettä on jännittävän näköinen Tampereen keskustassa.
+
+Koivun siitepölyä tulee paljon
+
+![Koivun kukintoja. Tämä kuva on otettu alkukesällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9143044)
+
+Avaa kuvien katselu
+
+Koivuissa on nyt paljon hedenorkkoja. Kuva: AOP
+
+Koivun siitepölykaudesta tulee tänä keväänä hankala allergikoille. Koivuissa on nyt paljon hedenorkkoja, joista siitepöly tulee. Hedenorkkoja on paljon koivuissa, jotka kasvavat lämpimillä paikoilla pihoissa ja asuinalueilla.
+
+Kotimaiset koivut alkavat kukkia yleensä toukokuun alussa. Sitä ennen Suomeen tulee koivun siitepölyä ulkomailta tuulten mukana.
+
+Kevät tulee hitaasti
+
+![Puistomaisemaa Ruskeasuo keskuspuisto Helsinki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10123752)
+
+Avaa kuvien katselu
+
+Edellisen kerran maaliskuu oli kylmempi viisi vuotta sitten. Kuva: Derrick Frilund / Yle
+
+Kevät on myöhässä. Kevät tulee hitaasti, koska ilma on tavallista kylmempää. Maaliskuu oli suuressa osassa Suomea 2-5 astetta tavallista kylmempi.
+
+Ilmatieteen laitoksen mukaan kevät on noin viikon tai kaksi viikkoa normaalia aikataulua jäljessä.

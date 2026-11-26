@@ -1,81 +1,71 @@
-# Sunnuntai 18.3.2018 (radio)
+# Maanantai 19.3. 2018 (radio)
 
-Helsingissä keskustellaan Pohjois-Koreasta. Venäläiset ovat äänestäneet presidentinvaaleissa. Turkin armeija on vallannut syyrialaisen Afrinin kaupungin. Paralympialaiset ovat loppuneet Etelä-Korean Pyeongchangissa. Talvisää jatkuu.
+Elokuvaohjaaja Aku Louhimiestä syytetään näyttelijöiden huonosta kohtelusta. Viisi kaupunkia aloittaa kielikokeilun. Moni saa ilmaisia punkkirokotuksia. Tänään on tasa-arvon päivä.
 
-## Koreoiden edustajat Helsingissä
+## Suomalaista ohjaajaa syytetään huonosta kohtelusta
 
-![Choi Kang Il Pekingin lentokentällä 18. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10121997)
-
-Avaa kuvien katselu
-
-Pohjois-Korean edustaja matkusti Pekingin kautta Helsingin tapaamiseen. Kuva: Reuters-TV
-
-Pohjois-Korean ja Etelä-Korean edustajat keskustelevat Helsingissä.
-
-Maat eivät ole virallisesti kertoneet tapaamisesta. Media on kuitenkin kertonut, että Koreat keskustelevat ainakin ydinaseista.
-
-Ydinaseet ovat yksi syy siihen, että tapaaminen kiinnostaa kansainvälistä mediaa. Pohjois-Korea on kehittänyt ydinaseita, ja siksi sen välit Etelä-Korean ja USA:n kanssa ovat huonot.
-
-Maiden välejä yritetään parantaa, ennen kuin Pohjois-Korean johtaja Kim Jong-un ja USA:n presidentti Donald Trump ehkä tapaavat myöhemmin tänä keväänä.
-
-## Venäläiset valitsevat presidentin
-
-![Ihmisiä laittamassa äänestyslipukkeita vaaliuurnaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10122005)
+![Tuntematon Sotilas -elokuvan kuvaukset Suomenlinnassa. Kuvassa ohjaaja Aku Louhimies.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10115484)
 
 Avaa kuvien katselu
 
-Venäläiset äänestivät sunnuntaina presidentinvaaleissa. Kuva: Igor Kovalenko / AOP
+Ohjaaja Aku Louhimies Kuva: Pasi Murto / AOP
 
-Venäläiset ovat äänestäneet presidentinvaaleissa. Venäläiset valitsevat presidentin seuraavien 6 vuoden ajaksi.
+Elokuvaohjaaja Aku Louhimiestä syytetään näyttelijöiden huonosta kohtelusta.
 
-Vaaleissa oli 8 ehdokasta. Myös Venäjän nykyinen presidentti Vladimir Putin oli ehdokkaana.
+Jotkut tunnetut näyttelijät kertovat, että Aku Louhimies on kohdellut näyttelijöitä huonosti. Näyttelijät sanovat, että Louhimies on pakottanut heitä tekemään asioita, joita he eivät halunneet tehdä. Tätä mieltä ovat monet naisnäyttelijät.
 
-Käytännössä on varmaa, että Putin voittaa vaalit. Suurin osa venäläisistä kannattaa Putinia.
+Aku Louhimies sanoo, että hän ei hyväksy minkäänlaista syrjintää tai kiusaamista. Hän on pahoillaan, jos näyttelijät ovat voineet huonosti.
 
-Venäjällä monet miettivät jo, mitä tapahtuu seuraavissa presidentinvaaleissa. Ne ovat vuonna 2024, ja silloin Putin ei ole enää ehdokkaana.
+Aku Louhimies ohjaa elokuvia. Hän on ohjannut esimerkiksi elokuvan Tuntematon sotilas. Elokuvan on nähnyt jo yli miljoona katsojaa.
 
-## Turkki valtasi Afrinin
+## Viisi kaupunkia kielikokeilussa
 
-![Afrinin alueelta paenneita siviilejä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10121712)
-
-Avaa kuvien katselu
-
-Ihmiset pakenevat Afrinin alueelta. Kuva: Aref Tammawi / EPA
-
-Uutinen Syyriasta.
-
-Turkin armeija on vallannut syyrialaisen Afrinin kaupungin. Afrin on Pohjois-Syyriassa, melko lähellä Turkkia.
-
-Afrin on ollut tähän asti kurdien hallussa. Turkin mielestä kurditaistelijat ovat terroristeja.
-
-Afrinin kaupungista on paennut paljon ihmisiä. Viime päivinä noin 200 000 ihmistä on lähtenyt pois Afrinista.
-
-## Paralympialaiset loppuivat
-
-![Matti Suur-Hamari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10119770)
+![Kirjoittava käsi ruotsinkirjan päällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5477337)
 
 Avaa kuvien katselu
 
-Matti Suur-Hamari voitti 2 mitalia paralympialaisissa. Kuva: Harri Kapustamäki / Paralympiakomitea
+Kokeiluun osallistuminen on vapaaehtoista. Kuva: YLE
 
-Paralympialaiset ovat loppuneet Etelä-Korean Pyeongchangissa. Eri maiden vammaisurheilijat kilpailivat talviurheilulajeissa yli viikon ajan.
+Suomessa alkaa kielenopiskelun kokeilu.
 
-Suomi sai Pyeongchangin paralympialaisissa 3 mitalia. Lumilautailija Matti Suur-Hamari voitti yhden kultamitalin ja yhden pronssimitalin. Hiihtäjä Ilkka Tuomisto toi Suomelle yhden pronssimitalin.
+Viisi kaupunkia aloittaa kouluissa kokeilun, jossa ruotsin kieltä ei tarvitse opiskella. Oppilaan pitää valita tilalle joku muu ulkomainen kieli. Kielikokeilussa on mukana noin 450 oppilasta, jotka menevät kuudennelle luokalle. He ovat 12-vuotiaita.
 
-Suomi oli mitalitilastossa sijalla 16. Paras maa oli USA.
+Kokeilussa ovat mukana kaupungit Jämsä, Pieksämäki, Rovaniemi, Savonlinna ja Ylöjärvi.
 
-Paralympialaiset järjestettiin samassa paikassa kuin olympialaiset helmikuussa. Paralympialaisissa oli mukana 670 urheilijaa.
+Ruotsi on Suomessa toinen virallinen kieli ja sitä on ollut pakko opiskella.
 
-## Talvinen sää jatkuu
+## Ilmaisia punkkirokotuksia
 
-![Ylimmät lämpötilat maanantaista keskiviikoon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10122114)
+![Punkki kävelee kyynärtaipeella kesäkuussa 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9723221)
 
 Avaa kuvien katselu
 
-Kevät ei vielä näy lämpötiloissa. Kuva: Yle Sää
+Punkkeja on melkein koko Suomessa. Kuva: Veikka Mäki
 
-Viikko alkaa talvisessa säässä.
+Monet ihmiset voivat saada ilmaisen punkkirokotuksen.
 
-Maanantaina lämpötila on etelässä noin nolla astetta, pohjoisessa on vähän pakkasta. Tiistaina ja keskiviikkona pakkasta on koko maassa. Pohjoistuulen takia sää tuntuu kylmältä.
+Rokotteesta ei tarvitse maksaa, jos asuu tai oleskelee alueella, jossa on paljon punkkeja.
 
-Lunta sataa maanantaina Etelä-Suomessa. Pohjois-Suomessa voi sataa paljon lunta viikon puolivälissä.
+Ilmaisen punkkirokotuksen voi saada, jos oleskelee joissakin paikoissa Lappeenrannassa, Kemissä, Raahessa ja Kotkassa. Aikaisemmin ilmainen rokotus on annettu Ahvenanmaalla, Paraisilla tai Simossa.
+
+Punkit voivat levittää tauteja, kuten puutiaisaivokuumetta ja borrelioosia.
+
+Punkit viihtyvät pensaikoissa ja heinikoissa. Punkki on levinnyt melkein koko Suomeen.
+
+Terveyden ja hyvinvoinnin laitos ilmoittaa joka vuosi riskialueet, joissa voi saada ilmaisia rokotuksia.
+
+## Minna Canth ja tasa-arvo
+
+![Kanttila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7810420)
+
+Avaa kuvien katselu
+
+Minna Canthin kotitalo on Kuopiossa. Kuva: Pertti Huotari / Yle
+
+Tänään vietetään Minna Canthin ja tasa-arvon päivää.
+
+Minna Canth eli 1800-luvulla. Hän oli suomalainen kirjailija ja vaikuttaja.
+
+Minna Canth kirjoitti paljon naisen elämästä. Hän halusi parantaa esimerkiksi tyttöjen koulutusta ja oli tärkeä henkilö suomenkielisen koulutuksen kehittämisessä.
+
+Minna Canth on ensimmäinen suomalainen nainen, jolla on oma liputuspäivä.

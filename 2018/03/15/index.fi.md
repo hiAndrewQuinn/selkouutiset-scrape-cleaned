@@ -1,71 +1,107 @@
-# Keskiviikko 14.3.2018 (radio)
+# Torstai 15.3. 2018 (radio)
 
-Eduskunta on keskustellut sote-uudistuksesta. Suomi on maailman onnellisin maa. Brittiläinen tiedemies Stephen Hawking on kuollut. Hiihtäjä Ilkka Tuomisto sai pronssimitalin paralympialaisissa.
+Jäänmurtajien lakko peruuntuu. Pullovesissä on mikromuoveja. Äitiyspakkaukset uudistuvat. Katoilla on paljon lunta Itä-Suomessa. VR teki ennätystuloksen. Ford jatkaa autojen testaamista Suomessa. Vaasassa liikkui yöllä susi.
 
-## Sote-keskustelu
+## Jäänmurtajien lakkoa ei tule
 
-![eduskuntasali](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10117090)
-
-Avaa kuvien katselu
-
-Eduskunta keskusteli sote-uudistuksesta. Kuva: Yle
-
-Eduskunta on keskustellut sote-uudistuksesta. Sote tarkoittaa sosiaalipalveluja ja terveyspalveluja.
-
-Hallitus ehdottaa valinnanvapautta sote-palveluihin. Se tarkoittaa, että ihminen saa itse valita, mistä hän hakee hoitoa. Hän voi valita julkiset tai yksityiset palvelut.
-
-Oppositiopuolueet sanovat, että valinnanvapaus tulee kalliiksi ja asiakkaiden maksut nousevat. Hallitus sanoo, että valinnanvapaus ei nosta hintoja.
-
-Hallitus haluaa, että eduskunta hyväksyy sote-lait kesäkuussa.
-
-## Onnellinen Suomi
-
-![Mies ui avannossa Helsingin Hernesaaressa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10115791)
+![Jäänmurtaja Urho satamassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10100693)
 
 Avaa kuvien katselu
 
-Suomalaiset ovat onnellisia. Kuva: Martti Kainulainen / Lehtikuva
+Kuva: Risto Koskinen / Yle
 
-Suomi on maailman onnellisin maa.
+Jäänmurtajien lakko peruuntuu.
 
-Tieto on YK:n onnellisuusraportista. YK eli Yhdistyneet kansakunnat julkaisee raportin joka vuosi. Raportin nimi on englanniksi The World Happiness Report.
+Jäätä veden pinnalta särkevät laivat eli jäänmurtajat ja monitoimimurtajat eivät mene lakkoon, koska työtä koskeva kiista on sovittu.
 
-YK tutki yli 150 maassa, kuinka onnellisia ihmiset ovat. Tutkijat selvittivät esimerkiksi, kuinka pitkään ihmiset elävät ja onko maassa korruptiota. Tutkimuksessa oli mukana ensimmäistä kertaa myös maahanmuuttajia.
+Työriidan osapuolet ovat hyväksyneet valtakunnansovittelijan Minna Helteen antaman sovintoehdotuksen.
 
-Suomi oli tutkimuksen paras maa. Onnellisia maita ovat myös muut Pohjoismaat. Suomen jälkeen tulivat Norja, Tanska ja Islanti.
+Muovin hiukkasia tutkitaan
 
-## Stephen Hawking
-
-![Stephen Hawking](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10115729)
+![vesipulloja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9958684)
 
 Avaa kuvien katselu
 
-Stephen Hawking jaksoi tehdä työtä, vaikka hänellä oli vaikea sairaus. Kuva: Andrew Cowie / AFP
+Pullovesistä on löytynyt pieniä muovin hiukkasia. Asiasta kertoo kansainvälinen tutkimus. Kuva: Mikko Koski / Yle
 
-Sitten uutisia tiedemaailmasta.
+Maailman terveysjärjestö tutkii pienien muovin hiukkasten eli mikromuovien vaikutuksia terveyteen.
 
-Brittiläinen tiedemies Stephen Hawking on kuollut. Hän oli 76-vuotias.
+Mikromuovit ovat hyvin pieniä muovin hiukkasia, joita ei näe paljaalla silmällä. Maailman terveysjärjestö tutkii mikromuoveja, koska niitä on löytynyt pullovesistä.
 
-Hawking oli fyysikko. Hän tutki avaruutta. Hawking halusi kertoa myös tavallisille ihmisille, mitä ovat esimerkiksi avaruuden mustat aukot.
+Vielä ei tiedetä, vaikuttavatko mikromuovit ihmiseen. Siksi asiaa tutkitaan.
 
-Hawkingilla oli hyvä huumorintaju. Hän oli mukana myös hauskoissa tv-ohjelmissa, esimerkiksi Simpsoneissa.
+Uusi äitiyspakkaus
 
-Hawking teki paljon työtä, vaikka hänellä oli paha sairaus. Sairauden takia Hawking kulki pyörätuolilla.
-
-## Suomelle pronssimitali
-
-![Ilkka Tuomisto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9464698)
+![Äitiyspakkauksen uusia tavaroita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10116741)
 
 Avaa kuvien katselu
 
-Hiihtäjä Ilkka Tuomisto. Kuva: Lehtikuva / Handout
+Äitiyspakkauksessa on nyt vauvalle myös lautanen, lusikat, huopatossut ja lapasen pidikkeet. Kuva: Petra Ristola / Yle
 
-Lopuksi urheilua.
+Äitiyspakkaukset uudistuvat.
 
-Suomi on saanut pronssimitalin paralympialaisissa. Paralympialaisissa kilpailevat vammaisurheilijat.
+Äitiyspakkauksissa on nyt enemmän tavaraa kuin ennen. Uusia vauvan tavaroita ovat esimerkiksi huopatossut, lautanen ja lusikat.
 
-Suomi sai pronssimitalin, kun hiihtäjä Ilkka Tuomisto oli kolmas 1,5 kilometrin pystyhiihdossa. Myös kanadalainen hiihtäjä sai pronssimitalin, koska hän tuli maaliin yhtä aikaa Tuomiston kanssa.
+Kela alkaa jakaa uusia pakkauksia toukokuussa. Äiti voi valita, ottaako hän pakkauksen vai raha-avustuksen.
 
-Kilpailun voittaja oli kazakstanilainen hiihtäjä. Hän sai kultamitalin. Hopeamitali meni japanilaiselle hiihtäjälle.
+Äitiyspakkauksia on jaettu äideille ja vauvoille jo 80 vuotta.
 
-Talvilajien paralympialaiset ovat Etelä-Koreassa, Pjongchangissa. Samassa paikassa järjestettiin myös olympialaiset helmikuussa.
+Katoilla paljon lunta
+
+![Tavanomaista suurempi lumimäärä Lapissa voi näkyä myös katoilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10012053)
+
+Avaa kuvien katselu
+
+Talojen katoilla on paljon lunta. Kuva: Raimo Torikka / Yle
+
+Suomen itäosassa talojen katoilla on paljon lunta.
+
+Pohjois-Karjalan alueella katoilla on normaalia enemmän lunta. Isojen hallirakennusten katot eivät ehkä kestä, jos lunta on liikaa. Isojen hallien omistajien kannattaa ottaa lunta pois katoilta.
+
+Ainakin yksi katto on sortunut jo painavan lumen takia.
+
+Omakotitalojen katot kestävät lumen painon paremmin.
+
+VR paransi tulostaan
+
+![juna asemalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9531250)
+
+Avaa kuvien katselu
+
+VR kertoo, että junalla matkustaminen on lisääntynyt. Kuva: Varpu Helpinen / Yle
+
+Junayhtiö VR on tehnyt paremman tuloksen, kuin koskaan ennen.
+
+Yhtiön liikevoitto kasvoi yli kaksinkertaiseksi edellisvuodesta ja oli nyt yli 110 miljoonaa euroa.
+
+Junalla matkustaminen lisääntyi 8 prosenttia. Ihmiset tekivät viime vuonna noin 127 miljoonaa matkaa.
+
+Ford testaa autoja Suomessa
+
+![Kuvassa autovalmistaja Fordin logo. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9542776)
+
+Avaa kuvien katselu
+
+Ford testaa autoja Rovaniemellä, Songan kylässä. Kuva: Cj Gunther / EPA
+
+Autoja valmistava Ford jatkaa autojen testaamista Suomessa.
+
+Autoja testataan Rovaniemellä, Songan kylässä.
+
+Tänä talvena testataan melkein 200 autoa. Myös erilaisia autojen polttoaineita tutkitaan.
+
+Vaasassa nähty susi
+
+![Susi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8913022)
+
+Avaa kuvien katselu
+
+Kuvan susi asuu Ranuan eläinpuistossa. Kuva: Ismo Pekkarinen / AOP
+
+Vaasan keskustassa liikkui yöllä susi.
+
+Poliisi kertoo, että susi kulki Vaasan kaupungin keskustassa viime yönä kello kahdelta.
+
+Useat ihmiset näkivät suden.
+
+Poliisipartio kävi häätämässä suden kauemmaksi keskustasta.

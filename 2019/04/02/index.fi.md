@@ -1,63 +1,63 @@
-# Maanantai 1.4.2019 (radio)
+# Tiistai 2.4. (radio)
 
-Terrorismia on rahoitettu veropetoksilla. EU haluaa pidentää kodinkoneiden käyttöikää. Lähimaksun yläraja nousee. Tänään on kerrottu aprillipiloja.
+Britannian Brexit-ongelmat jatkuvat. Suomessa myydään enemmän asuntoja. Euroopassa on vähemmän vankeja. Suomessa ei ole tarpeeksi lääkäreitä. Poliisi valtoo autojen nopeuksia. Helsingin kaupunkipyörät ovat maailman suosituimmat.
 
-## Terrorismin rahoitus
+## Britannian Brexit-ongelmat jatkuvat
 
-![Taistelija](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10713236)
-
-Avaa kuvien katselu
-
-Suomalaiset vierastaistelijat ovat hankkineet rahaa esimerkiksi veropetoksilla.  Kuva: Yle / Uutisgrafiikka
-
-Terrorismia on rahoitettu Suomessa yritystoiminnalla ja talousrikoksilla.
-
-Ylen MOT-ohjelma on tutkinut terrorismin rahoitusta yhteistyössä muiden eurooppalaisten yleisradioyhtiöiden kanssa.
-
-Suomalaiset vierastaistelijat ovat esimerkiksi perustaneet pöytälaatikkofirmoja eli firmoja, joilla ei ole toimintaa. Firmojen avulla he ovat tehneet veropetoksia ennen lähtöään maasta. Rahaa on hankittu myös lahjoituksilla. Samanlaisia rahoituskeinoja on käytetty ympäri Eurooppaa.
-
-Poliisi arvioi, että Suomesta on viime vuosina lähtenyt Syyrian ja Irakin konfliktialueille yli 80 ihmistä. Osa heistä on liittynyt terroristijärjestö Isisin riveihin.
-
-## Kodinkoneiden kestävyys
-
-![Vanha kodin yleiskone käytössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10714642)
+![Michel Barnier](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10718494)
 
 Avaa kuvien katselu
 
-Tämä yleiskone toimii hyvin, vaikka se on jo yli 40 vuotta vanha. Kuva: Yle
+Michel Barnier Kuva: Stephanie Lecocq / EPA
 
-EU haluaa parantaa kodinkoneiden kestävyyttä ja käyttöikää.
+Britannian ero EU:sta ilman sopimusta on hyvin lähellä. Näin sanoo EU:n pääneuvottelija Michel Barnier. Britannian parlamentti hylkäsi eilen illalla jälleen 4 vaihtoehtoa sille, miten Britannia eroaa EU:sta. Parlamentti ehkä myös äänestää 4. kerran erosopimuksesta, jonka Britannian hallitus on neuvotellut EU:n kanssa. Jos parlamentti ei hyväksy sopimusta, Britannian täytyy erota ilman sopimusta 10 päivän kuluttua. Se on huono vaihtoehto Britannian ja Euroopan taloudelle.
 
-EU vaatii, että kaikki uudet sähkölaitteet pitää pystyä korjaamaan. Niihin pitää myös löytyä varaosia.
+## Asuntoja myydään enemmän
 
-EU valmistelee asiasta direktiiviä. Se tulee voimaan ehkä vuonna 2021.
-
-## Lähimaksun yläraja
-
-![Maksukorttia käytetään kaupan kassalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7735709)
+![avaimet pöydällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10635078)
 
 Avaa kuvien katselu
 
-Kun asiakas maksaa lähimaksulla, hänen ei tarvitse näppäillä kortin tunnuslukua. Kuva: Antti Aimo-Koivisto / Lehtikuva
+Kuva: AOP
 
-Lähimaksun yläraja nousee tämän kevään aikana. Lähimaksun yläraja on tähän saakka ollut 25 euroa. Nyt se nousee 50 euroon.
+Suomessa myydään ja ostetaan asuntoja enemmän kuin aikaisemmin. Tammikuussa, helmikuussa ja maaliskuussa asuntokauppojen määrä kasvoi erityisesti Pääkaupunkiseudulla ja Turun seudulla. Erityisen suosittuja ovat asunnot, joihin on hyvät liikenneyhteydet.
 
-Lähimaksu tarkoittaa sitä, kun asiakkaan maksukortti luetaan langattomasti kaupan kassalla. Kortti viedään kassalla lähelle maksupäätettä. Asiakkaan ei tarvitse näppäillä kortin tunnuslukua.
+## Euroopassa on vähemmän vankeja
 
-## Aprillipäivän pilat
-
-![Kuvakaappaus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10716449)
+![Vanki katselee kalteri-ikkunasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8275583)
 
 Avaa kuvien katselu
 
-Itä-Uuudenmaan poliisi kertoo aprillitviitissä, että univormujen uusi pinkki ja metallinhohtoinen pinta parantaa poliisin työturvallisuutta. Kuva: Twitter
+Kuva: Sini Salmirinne / Yle
 
-Tänään on vietetty aprillipäivää.
+Euroopan vankiloissa on vähemmän vankeja kuin aikaisemmin. Vankien määrä alkoi laskea vuonna 2012. Euroopan Neuvosto sanoo, että Euroopassa jokaisesta 100 000 asukkaasta 102,5 on vankeja. Suomessa vankien määrä väheni 10 prosentilla, mikä on neljänneksi eniten koko Euroopassa. Vielä Suomea enemmän vankien määrä väheni Romaniassa, Bulgariassa ja Norjassa.
 
-Huhtikuun 1. päivä on aina aprillipäivä. Silloin tehdään aprillipiloja eli yritetään juksata ihmisiä uskomaan joku hassu juttu.
+## Suomeen tarvitaan lääkäreita
 
-Aprillipiloja tekevät tavalliset ihmiset, mutta esimerkiksi myös sanomalehdet, eri firmat ja viranomaiset voivat tehdä aprillipiloja.
+![Stetoskooppi lääkärin käsissä.](https://img.img-cdn.yle.fi/crop_extract,w_4113,h_2314,x_0,y_244/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-65475580de70b87954/1529046208)
 
-Esimerkiksi Helsingin poliisi on tänään kertonut, että se on hankkinut huumemuulin. Poliisi kertoo, että tosi hyvän hajuaistin avulla muuli löytää ihmisten hallusta ruohoa. Suomessa sana ruoho voi tarkoittaa myös marihuanaa.
+Avaa kuvien katselu
 
-Tampereen kaupunki taas kertoo, että Turun funikulaari eli rinnehissi tuodaan Pispalan harjulle. Funikulaari maalataan pinkiksi ja sen kylkeen varataan paikka Tampereen jääkiekkojoukkueiden logoille.
+Kuva: Alex Proimos
+
+Suomessa ei ole tarpeeksi lääkäreitä. Eniten lääkäreitä puuttuu Kainuusta. Siellä lääkäreitä pitäisi olla 20 prosenttia enemmän kuin nyt. Lääkäriliitto kertoo, että kaupungissa koko elämänsä eläneitä lääkäreitä on vaikea houkutella töihin maaseudulle. Koko Suomessa tarvitaan yli 200 kokoaikaista lääkäriä lisää.
+
+## Poliisi valvoo ylinopeuksia
+
+![Poliisi nopeusvalvonnassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9737585)
+
+Avaa kuvien katselu
+
+Kuva: Mauri Ratilainen / AOP
+
+Poliisi valvoo autojen nopeuksia huomenna erityisen tarkasti. Nopeuksia valvomassa ovat kaikki Suomen poliisilaitokset. Valvonnan avulla poliisi haluaa vähentää ylinopeuksia. Ylinopeuden ajaminen on usein liikenneonnettomuuden syynä.
+
+## Helsingin kaupunkipyörät ovat suosittuja
+
+![Pääkaupunkiseudun kaupunkipyörä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10718841)
+
+Avaa kuvien katselu
+
+Kuva: Matti Myller / Yle 
+
+Helsingin kaupunkipyörät ovat maailman suosituimmat. Kansainvälisessä vertailussa oli mukana noin 50 kaupunkia eri puolilta maailmaa. Vertailussa laskettiin, kuinka monta kertaa yhdellä kaupunkipyörällä ajetaan yhden päivän aikana. Helsingissä matkojen määrä oli suurin. Kaupunkipyöriä voi käyttää Helsingissä ja Espoossa. Kaupunkipyöriä voi käyttää, jos rekisteröityy käyttäjäksi. Käytöstä täytyy myös maksaa vähän.

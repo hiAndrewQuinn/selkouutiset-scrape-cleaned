@@ -1,67 +1,55 @@
-# Perjantai 16.3.2018 (radio)
+# Lauantai 18.3.2018 (radio)
 
-Lukiolaisten ruotsin kielen taito on huonontunut. Helsingin kaupunki alkaa ehkä kertoa kaupungin päätöksistä myös selkokielellä. Uusi jalankulkusilta romahti USA:ssa. Suomen kielen professorit ovat huolissaan siitä, että monet suomalaiset tutkijat kirjoittavat vain englanniksi.
+Keskustelut Pohjois-Koreasta jatkuvat Suomessa. Kiteellä toimii hiihtokoulu turvapaikanhakijalapsille. Runoilija Heli Laaksonen on testannut suomen kielen uusia sanoja.
 
-## Lukiolaisten huono ruotsin taito
+## Keskustelut Pohjois-Koreasta jatkuvat
 
-![Lukiolaisia ylioppilaskirjoituksissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6800708)
-
-Avaa kuvien katselu
-
-Ylioppilaskokeissa ruotsi ei ole enää pakollinen aine. Kuva: Yle
-
-Lukiolaisten ruotsin kielen taito on huonontunut.
-
-Suurin osa suomenkielisistä lukiolaisista ei enää suorita ruotsin kielen koetta ylioppilaskokeissa. Ruotsin koe oli pakollinen vuoteen 2004 asti.
-
-Huono ruotsin kielen taito haittaa opintoja lukion jälkeen, koska ruotsin kieli on osa opintoja korkeakouluissa.
-
-## Helsinki harkitsee selkokieltä
-
-![Suldaan Said.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7841907)
+![Helsinki kauppatori](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10121587)
 
 Avaa kuvien katselu
 
-Suldaan Said Ahmed teki aloitteen selkokielen käytöstä. Kuva: Kalevi Rytkölä / Yle
+Helsinki on paikka tärkeälle tapaamiselle. Kuva: Sergio Azenha / AOP
 
-Helsingin kaupunki alkaa ehkä kertoa kaupungin päätöksistä myös selkokielellä.
+Suomessa järjestetään tärkeä tapaaminen sunnuntaina. Tapaaminen liittyy Pohjois-Korean tilanteeseen. Suomi ei itse osallistu tapaamiseen.
 
-Helsingin valtuustossa tehtiin tällä viikolla aloite eli ehdotus selkokielen käytöstä. Valtuustossa poliitikot päättävät kaupungin asioista.
+Sunnuntaina Suomeen tulee myös Pohjois-Korean edustajia. Viime päivinä Pohjois-Korean tilanteesta on neuvoteltu Ruotsissa.
 
-Aloitteen tekijä on vasemmistoliiton Suldaan Said Ahmed. Monet muiden puolueiden poliitikot kannattivat aloitetta.
+Pohjois-Korean tilanne on vaikea, koska maa on riidellyt Etelä-Korean ja USA:n kanssa. Ne eivät pidä siitä, että Pohjois-Korea on kehittänyt ydinasetta.
 
-Aloitteessa sanotaan, että jokaisen helsinkiläisen pitää saada tietoa kaupungin päätöksistä ja toiminnasta. Siksi kaupungin pitää kertoa päätöksistä myös selkokielellä.
+Pohjois-Korean johtaja Kim Jong-un ja USA:n presidentti Donald Trump aikovat tavata tänä keväänä.
 
-Aloitteessa sanotaan myös, että kaupungin pitää kertoa tärkeistä päätöksistä myös suurimmilla vierailla kielillä.
+## Hiihtokoulu turvapaikanhakijalapsille
 
-Kaupunki selvittää asiaa, ja asiasta päätetään myöhemmin.
-
-## Onnettomuus USA:ssa
-
-![Floridan kansainvälisen yliopiston romahtaneeseen kävelysilta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10120400)
+![Kansainvälisen hiihtokoulun lapsia Kiteellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10117626)
 
 Avaa kuvien katselu
 
-Uusi kävelysilta romahti autojen päälle. Kuva: Joe Raedle / AFP
+Abdullah, Fatima ja muut turvapaikanhakijalapset tykkäävät hiihtää. Kuva: Tanja Perkkiö / Yle
 
-USA:ssa on tapahtunut epätavallinen onnettomuus. Jalankulkijoiden silta romahti tien päälle, ja autoja jäi sillan alle. Ainakin 6 ihmistä kuoli.
+Sitten Kiteelle, Itä-Suomeen.
 
-Silta oli uusi. Se ei ollut vielä käytössä.
+Kiteellä toimii hiihtokoulu turvapaikanhakijoille. Hiihtokoulussa käy lapsia, jotka asuvat Kiteen vastaanottokeskuksessa.
 
-Silta rakennettiin uudella tekniikalla. Sillan osia tehtiin muualla, ja ne tuotiin valmiina työmaalle. Siksi silta valmistui nopeasti.
+Tällä viikolla hiihtokoululaiset pääsivät vierailulle ampumahiihdon maailmacup-kilpailuihin. Kilpailut olivat 100 kilometrin päässä Kontiolahdessa.
 
-Silta oli Miamissa, Floridan kansainvälisen yliopiston vieressä. Silta rakennettiin erityisesti opiskelijoita varten. Ajatus oli, että opiskelijat pääsevät yliopistosta opiskelija-asuntoihin turvallisesti ison autotien yli.
+Vierailu järjestyi, koska Kaisa Mäkäräinen on lasten kummiurheilija. Mäkäräinen on kuuluisa ampumahiihtäjä. Lapset myös tapasivat Mäkäräisen, joka on heidän suuri idoli.
 
-## Suomen kieli asema tieteessä
+Kiteen hiihtokoululaiset ovat saaneet sukset ja hiihtovaatteet Kansainväliseltä hiihtokoululta. Se on järjestö, joka auttaa turvapaikanhakijalapsia kotoutumaan Suomen talveen.
 
-![Kurssikirjoja Tiedekirjasto Tritoniassa Vaasassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9302375)
+## Uudet sanat runoilijan testissä
+
+![Runoilija Heli Laaksonen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10120531)
 
 Avaa kuvien katselu
 
-Tiedekirja on usein englanninkielinen, vaikka kirjoittaja on suomalainen. Kuva: Jussi Laine/Yle
+"Sydäniskuri" on Heli Laaksosen mielestä hyvä sana. Kuva: Pipsa Uutto / Yle
 
-Tarvitaanko tiedettä suomen kielellä? Yle Uutiset kysyi asiaa suomen kielen professoreilta.
+Suomen kieli saa tänä vuonna virallisesti 600 uutta sanaa. Ne pääsevät kielitoimiston sanakirjaan. Kielitoimisto huolehtii suomen kielestä.
 
-Professorit ovat huolissaan siitä, että monet suomalaiset tutkijat kirjoittavat vain englanniksi. Professorit sanovat, että esimerkiksi suomen kielen sanasto ei kehity, jos suomea ei käytetä tieteessä. Tärkeää on myös, että kaikki suomalaiset saavat tietoa tieteen tuloksista.
+Yle Uutiset pyysi runoilija Heli Laaksosta testaamaan uusia sanoja. Laaksonen kirjoittaa runoja murteella, ja hän rakastaa suomen kielen sanoja.
 
-Suomalaiset tutkijat kirjoittavat englanniksi esimerkiksi tekniikan ja lääketieteen alalla. Niin he saavat lukijoita monista maista.
+Kun Laaksonen testaa uusia sanoja, hän miettii, mitä sana tarkoittaa ja miltä sana kuulostaa.
+
+Laaksonen tykkää monesta uudesta sanasta. Sellainen on esimerkiksi "sydäniskuri". Laaksonen on aina iloinen, kun vieraskielisen sanan tilalle löytyy suomenkielinen sana. Suomalaisen on paljon helpompi sanoa "sydäniskuri" kuin "defibrillaattori". Se on ollut laitteen nimi tähän asti. "Sydäniskuri" myös kertoo hyvin, että laite käynnistää sydämen sähköiskuilla.
+
+Laaksonen ei tykkää vieraskielisistä uusista sanoista. Suomalaisen on vaikea tietää, mitä ne tarkoittavat. Esimerkiksi "drooni" pääsee nyt kielitoimiston sanakirjaan. Se tarkoittaa pientä helikopterin näköistä laitetta. Ehdotan "droonin" tilalle sanaa "minikopteri", runoilija Laaksonen sanoo.

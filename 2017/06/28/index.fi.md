@@ -1,89 +1,87 @@
-Teemu Selänne
+# Keskiviikko 28.6.2017 (radio)
 
-# Tiistai 27.6.2017 (radio)
+Kaupankäynti hiljenee kylmänä kesänä. Tietokonevirus leviää. Pizzapalosta epäillyt miehet halutaan vangita. Poliisin helikopteri hyökkäsi Venezuelassa. Kodinkoneiden paloturvallisuus.
 
-Perussuomalaisten ryhmä sai kansanedustajan takaisin. Yhdysvalloissa muslimien maahantulokielto väliaikaisesti voimaan. Maahanmuuttovastainen leiri purettiin Helsingissä. Google sai jättisakot EU:lta. Mummot ja papat ovat tärkeitä lastenhoidossa. Jääkiekkoilija Teemu Selänne sai merkittävän huomionosoituksen.
+## Kylmä sää haittaa kauppojen ja ravintoloiden kesämyyntiä
 
-![Teemu Selänne.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9691243)
-
-Avaa kuvien katselu
-
-Teemu Selänne. Kuva: AOP
-
-- 
-
-  
-
-  Jan Fredriksson
-
-  
-
-  
-
-27.6.2017 17:52
-
-## Perussuomalaiset sai takaisin kansanedustajan
-
-![Arja Juvonen saapui perussuomalaisten eduskuntaryhmän kokoukseen Helsingissä 13. kesäkuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9671523)
+![Ihmisiä jäätelökioskilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8978844)
 
 Avaa kuvien katselu
 
-Kansanedustaja Arja Juvonen palasi perussuomalaisiin. Kuva: Jussi Nukari / Lehtikuva
+Jäätelö käy kaupaksi, kun kesä on lämmin. Kuva: Ismo Pekkarinen / AOP
 
-Perussuomalaisten eduskuntaryhmä on kasvanut 1 kansanedustajalla. Kansanedustaja Arja Juvonen palaa perussuomalaisten eduskuntaryhmään.
+Jäätelökioskeissa ja kesäkahviloissa on hiljaista, koska kesä on ollut kylmä.
 
-Juvonen erosi ryhmästä puoluekokouksen jälkeen. Puolueesta lähti samalla noin 20 kansanedustajaa, jotka perustivat Uusi vaihtoehto -ryhmän. Juvonen ei liittynyt itse mihinkään, mutta päätti nyt palata takaisin perussuomalaisiin.
+Ne eivät saa tänä kesänä tarpeeksi rahaa.
 
-Perussuomalaiset siirtyivät oppositioon hallituskriisin jälkeen. Ryhmässä on nyt 17 kansanedustajaa.
+Myös kauppojen ja ravintoloiden omistajat ovat huolissaan.
 
-## USA:n maahantulokielto muslimeille tuli väliaikaisesti voimaan
+Kesävaatteita, rantaleluja ja puutarhatuotteita on ostettu kaupasta vain vähän. Myös grillimakkaraa on ostettu vähemmän kuin viime vuonna.
 
-![Yhdysvaltain korkeimman oikeuden tuomarit.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9651026)
+Matkatoimistot ovat kuitenkin tyytyväisiä. Ne ovat myyneet paljon ulkomaanmatkoja tänä kesänä. Moni suomalainen lähtee ulkomaille, koska Suomessa on niin kylmä. 
 
-Avaa kuvien katselu
+## Tietokonevirus Petja leviää maailmalla
 
-Korkein oikeus sallii maahantulokiellon väliaikaisesti.  Kuva: Shawn Thew / EPA
-
-Yhdysvaltain korkein oikeus on antanut luvan rajoittaa 6 muslimimaan kansalaisten maahantuloa. Maahantulokielto estää osittain matkustamisen Iranista, Jemenistä, Libyasta, Somaliasta, Sudanista ja Syyriasta  USA:han. Korkein oikeus sanoo, että kielto ei kuitenkaan koske niitä ihmisiä, joilla on esimerkiksi perhe Yhdysvalloissa.
-
-Kielto kestää 90 päivän ajan. Samalla maahantulokielto estää kaikkien pakolaisten vastaanoton 120 päivän ajan. Päätös on väliaikainen, koska korkein oikeus tekee lopullisen päätöksen maahantulokiellosta vasta syksyllä. Maahantulokielto on ollut tärkeä asia presidentti Donald Trumpille.
-
-## Suomi Ensin -leiri purettiin
-
-![Poliisi purki Suomi ensin -mielenosoituksen Helsingin Rautatientorilla 26. kesäkuuta 2017. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9691108)
+![Petyan esittämä kiristysviesti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9694015)
 
 Avaa kuvien katselu
 
-Poliisi otti kiinni 4 mielenosoittajaa.  Kuva: Emmi Korhonen / Lehtikuva
+Haittaohjelmalla yritetään kiristää tietokoneen omistajaa. Haittaohjelma lukitsee koneen ja vaatii maksua siitä, että lukitus poistetaan. Kuva: Viestintavirasto
 
-Maahanmuuttovastainen Suomi Ensin -leiri on purettu Helsingin Rautatientorilla. Asiasta päättivät poliisi ja Helsingin kaupunki, koska mielenosoittajat ovat pahoinpidelleet ihmisiä. Esimerkiksi viikonloppuna poliisi sai tiedon 3 pahoinpitelystä.
+Tietokoneisiin on levinnyt paha virus eli haittaohjelma. Uutta haittaohjelmaa sanotaan Petjaksi.
 
-Leirin purkaminen herätti vastarintaa ja poliisi otti kiinni 4 mielenosoittajaa.
+Haittaohjelman avulla on tehty kyberhyökkäyksiä etenkin yritysten tietokoneisiin.
 
-Rautatientorilla on ollut myös turvapaikanhakijoiden leiri, joka saa jäädä sinne.
+Haittaohjelmalla voi lukita tietokoneen ja vaatia koneen omistajalta rahaa.
 
-## Google sai jättisakot EU:lta
+Haittaohjelman käyttö alkoi Ukrainassa ja Venäjällä. Sitä on havaittu myös Yhdysvalloissa ja Länsi-Euroopassa.
 
-![Kilpailuasioiden komissaari Margrethe Vestager.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9692321)
+Myös Suomessa on havaintoja Petja-haittaohjelmasta.
 
-Avaa kuvien katselu
+## Poliisi esittää vangitsemisia pizzeriapalosta
 
-EU antoi isot sakot Googlelle.  Kuva: Olivier Hoslet / EPA
-
-Hakukonefirma Google on saanut suuret sakot Euroopan Unionilta. Google joutuu maksamaan 2,4 miljardin eli 2 400 miljoonan euron sakot kilpailusääntöjen rikkomisesta. Sakko on EU:n historian suurin.
-
-EU:n mielestä Google on nostanut verkkohauissa omaa Google Shopping -palveluaan hakutulosten kärkeen. Tämä on estänyt reilua kilpailua.
-
-Google ei hyväksy sakkoa.
-
-## Jääkiekkoilija Teemu Selänteelle suuri huomionosoitus
-
-![Teemu Selänne](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9691227)
+![Pizzeriassa syttyi sunnuntai-iltana tulipalo, joka oli polttopulloisku kertoo poliisi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9689953)
 
 Avaa kuvien katselu
 
-Teemu Selänne.  Kuva: Lehtikuva
+Poliisi otti pizzerian palon jälkeen kiinni kaksi miestä. Heitä esitetään nyt vangittaviksi. Kuva: Vesa Moilanen / Lehtikuva
 
-Suomen ehkä tunnetuin jääkiekkoilija Teemu Selänne on valittu Pohjois-Amerikan ammattilaisliigan NHL:n kunniagalleriaan eli Hockey Hall of Fameen. Huomionosoitus on merkittävä, koska aikaisemmin vain 1 suomalainen eli Jari Kurri on päässyt tähän galleriaan.
+Poliisi esittää, että kaksi miestä vangitaan Espoon pizzeriapalon takia.
 
-Teemu Selänne pelasi urallaan 1451 ottelua NHL:ssä ja teki 684 maalia. Hän voitti urallaan kerran mestaruuden eli Stanley Cupin vuonna 2007.
+Paloa tutkitaan törkeänä tuhotyönä.
+
+Tulipalo syttyi sunnuntai-iltana Espoon Kyyhkysmäessä, kun pizzerian ikkunaan heitettiin polttopullo.
+
+Ravintola tuhoutui palossa.
+
+## Poliisi hyökkäsi helikopterilla Venezuelassa
+
+![Venezuelan pääkaupungissa Caracasissa tulitettiin helikopterista maan sisäministeriötä ja heitettiin kranaatteja korkeimman oikeuden rakennusta päin tiistaina 27. kesäkuuta 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9694642)
+
+Avaa kuvien katselu
+
+Venezuelassa poliisi kertoo, että hän hyökkäsi helikopterilla maan hallintorakennuksia vastaan. Kuva: Caraota Digital / Reuters
+
+Venezuelan pääkaupungissa Caracasissa on tulitettu hallintorakennuksia poliisin helikopterista.
+
+Poliisihelikopterista heitettiin kranaatteja korkeimman oikeuden rakennusta päin ja ammuttiin sisäministeriötä, kertovat Venezuelan viranomaiset.
+
+Entinen poliisilentäjä Oscar Perez sanoo videolla, että hän teki iskun. Perez ja joukko sotilaita, poliiseja ja siviilejä vastustavat Venezuelan presidenttiä.
+
+Venezuelassa on ollut pitkään levotonta. Siellä on ollut paljon mielenosoituksia presidenttiä vastaan.
+
+## Kodinkone voi aiheuttaa tulipalon
+
+![Pelastuspäällikkö Jyri Silmäri lähestyy paloa sammutuspeiton suojassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6391247)
+
+Avaa kuvien katselu
+
+Sammutuspeitto on hyvä väline pienen tulipalon sammuttamisessa. Kuva: Paavo Koponen / Yle
+
+Kodin sähkölaitteet eli kodinkoneet voivat aiheuttaa tulipalon. Esimerkiksi leivänpaahdin tai pyykkikone voivat syttyä palamaan.
+
+Pelastuslaitos sanoo, että kodinkone kannattaa sammuttaa itse, jos se syttyy palamaan. Palokunta ei ehkä ehdi ajoissa paikalle.
+
+Pienen palon voi sammuttaa nopeasti esimerkiksi sammutuspeitolla tai vaahtosammuttimella. 
+
+Pelastuslaitos sanoo, että kodinkoneet kannattaa pitää puhtaina ja ehjinä. Silloin ne eivät syty helposti palamaan.

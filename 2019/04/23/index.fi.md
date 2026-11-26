@@ -1,69 +1,69 @@
-# Maanantai 22.4.2019 (radio)
+# Tiistai 23.4. (radio)
 
-Sri Lankan hallitus syyttää terrori-iskuista paikallista radikaalia muslimiryhmää. Tv-koomikko Volodymyr Zelenskyi on voittanut Ukrainan presidentinvaalit. Ongelmat sisäilmassa aiheuttavat vuokralaisille suurta haittaa. Myös kotieläimet kärsivät ylipainosta.
+Eduskunta aloitti tänään. Edellinen pääministeri jatkaa tavallisena kasanedustajana. Työnantajat eivät tue ulkomaalaisten kielten opiskelua. Sri Lankan pommi-iskujen syy ehkä kosto. Samsungin uuden puhelimen julkaisu siirtyy. Tänään on ollut yli 20 astetta lämmintä.
 
-## Sri Lanka epäilee iskuista muslimiterroristeja
+## Uusi eduskunta
 
-![Pelastustyöntekijöitä, poliiseja tutkijoita ja kaaosta kirkossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10750194)
-
-Avaa kuvien katselu
-
-Pelastustyöntekijöitä Sri Lankassa. Kuva: EPA
-
-Sri Lankan hallitus syyttää sunnuntain terrori-iskuista paikallista radikaalia NTJ-muslimiryhmää. Hallituksen edustaja sanoi, että itsemurhapommittajat ovat olleet todennäköisesti srilankalaisia.
-
-Ainakin 24 ihmistä on otettu kiinni iskujen takia. Pääkaupunki Colombossa sattui tänään uusi räjähdys, kun poliisi yritti purkaa autosta räjähdettä.
-
-Terrori-iskujen sarjassa kuoli ainakin 290 ihmistä ja 500 ihmistä sai vammoja. Iskuja tehtiin kirkkoihin ja luksushotelleihin. Uhrien joukosta ei ole löytynyt suomalaisia.
-
-Suomen ulkoministeriö sanoo, että tarpeetonta matkustamista Sri Lankaan pitää välttää. Suomi muutti matkustusohjetta yhdessä muiden Pohjoismaiden kanssa.
-
-Suositus on voimassa ainakin muutaman päivän.
-
-## Volodymyr Zelenskyi voitti Ukrainan presidentinvaalit
-
-![Volodymyr Zelensky i](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10750373)
+![Uusien kansanedustajien ilmoittautuminen eduskuntatalolla 18. huhtikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10750907)
 
 Avaa kuvien katselu
 
-Vaalivoittaja Volodymyr Zelenskyi piti lehdistötilaisuuden kampanjatoimistollaan sunnuntaina. Kuva: Genya Savilov / AFP / Lehtikuva
+Uusien kansanedustajien ilmoittautuminen. Kuva: Mauri Ratilainen / AOP
 
-Ukrainassa on onniteltu tv-koomikko Volodymyr Zelenskyiä vaalivoitosta presidentinvaaleissa. Zelenskyi sai yli 70 prosenttia äänistä.
+Uusi eduskunta eli Suomen parlamentti on aloittanut tänään. Ensimmäinen eduskunnan istunto on huomenna. Eduskuntaan valittiin vaaleissa 200 uutta kansanedustajaa vähän yli viikko sitten. Eduskunnan kolme suurinta puoluetta ovat SDP, Perussuomalaiset ja kokoomus.
 
-Nykyinen presidentti Petro Poroshenko on myöntänyt vaalitappion. Virallinen vaalitulos tulee vasta vapun alla.
+## Keskustan puheenjohtaja jatkaa tavallisena kansanedustajana
 
-Zelenskyillä juristin koulutus. Hän lupaa aloittaa uudistuksia muun muassa terveydenhuollossa.
-
-Zelenskyi sanoo myös, että hän haluaa vauhdittaa Minskin sopimusta. Minskin sopimus tähtää Itä-Ukrainan sodan lopettamiseen.
-
-## Sisäilmaongelmat ovat kohtuuttomia vuokralaisille
-
-![Hometta ja sisäilmaongelmia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5432121)
+![Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10751244)
 
 Avaa kuvien katselu
 
-Näyttö sisäilmaongelmasta kuuluu vuokralaiselle. Kuva: Yle
+Juha Sipilä saapui keskustan eduskuntaryhmän järjestäytymiskokoukseen tiistaina. Kuva: Markku Ulander / Lehtikuva
 
-Kuluttajaliitto sanoo, että ongelmat sisäilmassa aiheuttavat vuokralaisille kohtuuttomia tilanteita.
+Edellinen pääministeri ja Keskustan puheenjohtaja Juha Sipilä jatkaa tavallisena kansanedustajana. Sipilä sanoo, että hän ei ole kiinnostunut muista tehtävistä.
 
-Jos asunnossa epäillään sisäilmaongelmaa, vuokralaisen täytyy todistaa se.
+Aikaisemmin Sipilä sanoi, että hän eroaa keskustapuolueen puheenjohtajan tehtävästä. Syy eroon on se, että keskusta hävisi eduskuntavaaleissa. Keskusta valitsee uuden puheenjohtajan syyskuussa.
 
-Kunnan tarkastajalle on kuitenkin kuukausien jonot. Yksityinen tutkimus on kallis, eikä kaikilla vuokralaisilla ole tutkimukseen rahaa.
+## Työnantajat eivät tue kieliopintoja
 
-Vuokralaisella on oikeus purkaa vuokrasopimus, jos asumisesta aiheutuu terveydelle vaaraa.
-
-## Kotieläimetkin kärsivät ylipainosta
-
-![Hevonen syö kuivaheinää](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10353542)
+![Opettaja luokan edessä. SPR:n vapaaehtoinen auttaja Eelis Lajunen saa kieliopinnot tuntumaan leikiltä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8748436)
 
 Avaa kuvien katselu
 
-Kuva: Marjut Suomi / Yle
+SPR:n vapaaehtoinen auttaja Eelis Lajunen saa kieliopinnot tuntumaan leikiltä. Kuva: Sasha Silvala / Yle
 
-Liikalihavuus ja diabetes uhkaavat myös kotieläimiä ja lemmikkieläimiä. Eläinlääkäri Jaakko Väyrynen arvioi, että koirista ehkä jopa puolet voi kärsiä ylipainosta.
+Työn vuoksi Suomeen muuttaneet henkilöt eivät saa työnantajalta tukea suomen tai ruotsin opiskeluun.Ammattiliitto SAK on tehnyt selvityksen. Selvitykseen haastateltiin työpaikkojen luottamushenkilöitä.
 
-Lemmikeillä on samoja elintasosairauksia kuin ihmisillä. Sairauksia ovat diabeteksen lisäksi nivelvaivat, virtsatievaivat ja sydänvaivat.
+Luottamushenkilöistä yli puolet kertoi, että heidän työpaikoillaan on ulkomaalaisia työntekijöitä. Työpaikoista vain kuusi prosenttia antaa työntekijöiden opiskella suomea tai ruotsia työajalla.
 
-Lemmikit saavat liikaa makupaloja ja liian vähän liikuntaa. Lemmikit ovat kerrostaloissa ja kaupunkien keskustoissa lihavampia kuin muualla.
+## Sri Lankan iskut ehkä kosto
 
-Myös hevoset kärsivät ylipainosta. Hevonen käyttää suuren osan ajasta syömiseen. Lisäksi kuivaheinä sisältää runsaasti sokeria. Siksi hevoset tarvitsevat paljon liikuntaa.
+![Srilankalainen lapsi katselee muistokynttilöitä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10751595)
+
+Avaa kuvien katselu
+
+Srilankalaiset ovat pitäneet muistotilaisuuksia terrori-iskujen uhreille eri puolilla maailmaa. Kuva: Rizwan Tabassum / AFP
+
+Sri Lankan tehtyjen pommi-iskujen syynä saattoi olla kosto. Sri Lankan apulaispuolustusministeri sanoo, että pommi-iskuilla ehkä kostettiin Uudessa-Seelannissa tehty terrori-isku. Uudessa-Seelannissa aseistautunut mies hyökkäsi moskeijaan ja surmasi 50 ihmistä
+
+Ministeri sanoo, että mukaan iskut teki kaksi paikallista ääri-islamilaista järjestöä. Sri Lankassa tehtiin sunnuntaina monta pommi-iskua kirkkoihin ja hotelleihin. Iskuissa on kuollut yli 300 ihmistä, joista suurin osa srilankalaisia.
+
+## Samsung lykkää puhelimen julkaisua
+
+![DJ Koh esitteli uuden Galaxy-mallin, jonka erikoisuutena on taitettava näyttö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10656299)
+
+Avaa kuvien katselu
+
+Johtaja DJ Koh esitteli San Franciscossa 20. helmikuuta uuden Galaxy-mallin, jonka erikoisuutena on taitettava näyttö.  Kuva: Samsung
+
+Samsung julkaisee vasta myöhemmin uuden älypuhelimen, jossa on taittuva näyttö. Uuden puhelimen piti tulla kauppoihin Yhdysvalloissa perjantaina. Suunnitelmaa muutettiin, koska monien testipuhelinten näytöt menivät helposti rikki. Puhelin on ensimmäinen myyntiin tuleva älypuhelin, jossa on taittuva näyttö. Korealainen Samsung on maailman suurin matkapuhelinten valmistaja.
+
+## Lämpötila ylitti 20 astetta
+
+![ Mies vauhdissa sähköpotkulaudalla lämmittävässä kevätauringossa Helsingin Merisatamassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10751691)
+
+Avaa kuvien katselu
+
+Kuva: Markku Ulander / Lehtikuva
+
+Kevätaurinko on nostanut Suomessa lämpötilan yli 20 asteeseen ensimmäisen kerran tänä keväänä. Lämpimintä oli Kouvolassa. Siellä lämpöä oli iltapäivällä 20,4 astetta. Yli 20 asteen lämpötiloja on ollut myös useilla muilla paikkakunnilla.

@@ -1,67 +1,67 @@
-# Lauantai 13.4.2019 (radio)
+# Sunnuntai 14.4.2019 (radio)
 
-Sunnuntaina on eduskuntavaalien vaalipäivä. Eduskuntavaaleissa on paljon myös maahanmuuttajataustaisia äänestäjiä. Finnairin lentokone teki hätälaskun Tukholmaan. Järvien jäät ovat jo heikkoja.
+Suomessa on järjestetty eduskuntavaalit. Vaalitulos on tasainen. Voittajia ovat vasemmistopuolueet ja vihreät. Myös perussuomalaiset menestyivät hyvin. Suurin häviäjä on keskusta. Urheilua: Suomi sai MM-hopeaa naisten jääkiekossa.
 
-## Vaalipäivä
+## Oppositiopuolueet menestyivät vaaleissa
 
-![Nainen kirjoittamassa ehdokkaansa numeroa äänestyslipukkeeseen.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4519575a3a64f011fc9/1513776439)
-
-Avaa kuvien katselu
-
-Sunnuntaina on aika valita, ketä äänestää. Kuva: Tero Kyllönen / Yle
-
-Sunnuntaina on eduskuntavaalien vaalipäivä. Vaaleissa on yhteensä noin 2500 ehdokasta. Heistä 200 pääsee eduskuntaan.
-
-Äänestyspaikat ovat sunnuntaina auki kello 9-20. Vaalipäivänä jokaisen pitää äänestää siinä paikassa, joka lukee äänioikeusilmoituksessa. Ilmoitus on tullut kotiin postissa.
-
-Äänestäjällä pitää olla mukana henkilöllisyystodistus, esimerkiksi passi, henkilökortti tai ajokortti.
-
-Yle kertoo sunnuntai-iltana, miten vaaleissa käy. Vaaleja voi seurata televisiosta, radiosta ja netistä.
-
-Sitä ennen voi vielä katsoa Ylen vaalikeskusteluja osoitteessa yle.fi/vaalit. Esimerkiksi Selkokielisestä vaalikeskustelusta on apua kaikille, jotka vielä miettivät, mitä puoluetta äänestää.
-
-## Maahanmuuttajataustaiset äänestäjät
-
-![Maahanmuuttajanuoria Itäkeskuksen kauppakeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10694132)
+![Antti Rinne SDP:n vaalivalvojaisissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10738765)
 
 Avaa kuvien katselu
 
-Monilla maahanmuuttajataustaisilla suomalaisilla on oikeus äänestää. Kuva: Milla Vahtila / Yle
+SDP:n puheenjohtaja Antti Rinne voitti vaalit. Kuva: Jyrki Lyytikkä / Yle
 
-Eduskuntavaaleissa on paljon maahanmuuttajataustaisia äänestäjiä.
+Suomessa on järjestetty vaalit. Suomalaiset valitsivat 200 kansanedustajaa Suomen parlamenttiin eli eduskuntaan.
 
-Noin 100 000 maahanmuuttajataustaista voi äänestää näissä vaaleissa. Noin 7000 maahanmuuttajataustaista suomalaista saa äänestää nyt ensimmäistä kertaa.
+Vaalitulos on tasainen. Suurista puolueista SDP, perussuomalaiset ja kokoomus saivat melkein yhtä paljon ääniä.
 
-Eduskuntavaaleissa saavat äänestää vain Suomen kansalaiset.
+Voidaan sanoa, että vaalien voittajia ovat vasemmistopuolueet ja vihreät. SDP on ehkä uuden eduskunnan suurin puolue. Myös vasemmistoliitto ja vihreät saavat enemmän kansanedustajia kuin edellisissä vaaleissa 4 vuotta sitten.
 
-## Hätälasku Tukholmaan
+Vasemmistopuolueet ja vihreät ovat olleet oppositiossa. Ne eivät ole olleet hallituksessa. Siksi ne ehkä saivat ääniä ihmisiltä, jotka eivät ole olleet tyytyväisiä hallitukseen.
 
-![Finnairin Airbus A321 nousemassa ilmaan Helsinki-Vantaan lentoasemalta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8769797)
+## Pääministerin puolue hävisi vaalit
 
-Avaa kuvien katselu
-
-Kuva: Markku Ojala / AOP
-
-Finnairin lentokone on tehnyt hätälaskun. Lentokone teki hätälaskun Tukholmaan lauantaina aamupäivällä.
-
-Lentokoneessa huomattiin vika, kun se oli matkalla Helsingistä Englannin Manchesteriin. Vika oli paineistuksessa. Siksi lentokone laskeutui jo Tukholmaan.
-
-Kone laskeutui normaalisti. Matkustajilla ei ollut hätää, kukaan ei loukkaantunut.
-
-Finnair lähetti Helsingistä toisen koneen Tukholmaan, ja matkustajat pääsivät jatkamaan matkaa.
-
-## Heikot jäät
-
-![Sulaa jäänpintaa Vierumäellä Heinolassa 29. maaliskuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10737639)
+![Juha Sipilä eduskuntavaalien median tulosillassa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10738941)
 
 Avaa kuvien katselu
 
-Järvenjäät ovat jo heikkoja. Kuva: Vesa Moilanen / Lehtikuva
+Keskustan puheenjohtaja Juha Sipilä hävisi vaalit. Kuva: Martti Kainulainen / Lehtikuva
 
-Monet järvet ovat vielä jäässä, mutta jää on jo heikkoa.
+Vaalien häviäjä on keskusta. Keskusta on pääministeri Juha Sipilän puolue. Keskusta on ollut eduskunnan ja hallituksen suurin puolue, mutta nyt keskustan kansanedustajien määrä vähenee.
 
-Kuopiossa sattui lauantaina epätavallinen onnettomuus. Koira putosi oman kodin rannassa jään läpi järveen. Koiran naisomistaja lähti pelastamaan koiraa ja putosi itse jäihin.
+Toinen iso hallituspuolue eli kokoomus menestyi paremmin kuin keskusta. Kokoomus menestyi näissä vaaleissa suunnilleen yhtä hyvin kuin edellisissä eduskuntavaaleissa.
 
-Seuraavaksi naisen mies lähti pelastamaan vaimoa. Myös mies putosi jäihin.
+Kolmas hallituspuolue eli siniset häviää vaalit. Se ei saa yhtään kansanedustajaa uuteen eduskuntaan. Sininen puolue syntyi noin 2 vuotta sitten, kun perussuomalaiset-puolue hajosi.
 
-Mies sai kuitenkin koiran, vaimon ja lopuksi itsensä ylös järvestä. Loppu hyvin, kaikki hyvin.
+Perussuomalaiset on ollut viime vuodet oppositiossa. Nyt perussuomalaiset menestyivät hyvin, ja siitä tulee yksi uuden eduskunnan suurista puolueista.
+
+## Eduskunta päättää Suomen laeista
+
+![Eduskunnan kyselytunti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10667524)
+
+Avaa kuvien katselu
+
+Eduskunta päättää Suomen asioista. Kuva: Yle 
+
+Eduskunnassa on siis 200 kansanedustajaa. Kansanedustajilla on tärkeitä tehtäviä.
+
+Kansanedustajat päättävät, mitä lakeja Suomessa on. He päättävät myös siitä, mihin valtio käyttää rahaa.
+
+Eduskunnan päätökset vaikuttavat kaikkien suomalaisten elämään.
+
+## Suomi sai MM-hopeaa
+
+![USA maailmanmestari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10739236)
+
+Avaa kuvien katselu
+
+USA voitti Suomen loppuottelussa. Kuva: Lehtikuva
+
+Vielä urheilua: Suomi on saanut MM-hopeaa naisten jääkiekossa. Suomi hävisi loppuottelussa USA:lle.
+
+Peli oli jännittävä. Kun peliaika loppui, tilanne oli 1 - 1. Sen jälkeen alkoi jatkoaika. Jatkoajan voittaa se, joka tekee ensimmäisen maalin.
+
+Suomi teki maalin, ja suomalaiset juhlivat jo voittoa, mutta tuomarit eivät hyväksyneet maalia.
+
+Jatkoaika loppui ilman maalia. Seurasi rangaistuslaukauskilpailu. Siinä USA oli parempi kuin Suomi.
+
+USA sai siis MM-kultaa ja on maailmanmestari. Suomi jäi hopealle.

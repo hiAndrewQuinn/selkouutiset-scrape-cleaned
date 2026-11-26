@@ -1,0 +1,75 @@
+# Friday 21.10.2022 (radio)
+
+Stora Enso. Coronavirus. House prices. Eurovision. Weather.
+
+## Stora Enso
+
+![Stora Enso paperboard production at the Nuottasaari mill in Oulu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12664145)
+
+Open image viewer
+
+Packaging is made from paperboard. Photo: Paulus Markkula / Yle
+
+Forestry company Stora Enso is renewing the Oulu paper mill. Stora Enso will use one billion euros for the renewal.
+
+The money will be used for an old paper machine that is no longer in use. The paper machine will be converted into a paperboard machine. After the change, the machine will make paperboard, from which packaging is made.
+
+Stora Enso says that environmentally friendly packaging is now sold a lot. Its sales are growing more than sales of plastic packaging.
+
+## Coronavirus
+
+![Mäkikylä wastewater treatment plant in Kouvola.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_325/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7173005f5a06190f642/1640691891)
+
+Open image viewer
+
+From wastewater it is possible to study how much coronavirus is in circulation. Photo: Antro Valo / Yle
+
+There is now a lot of coronavirus in the whole of Finland. This is what the Finnish Institute for Health and Welfare, THL, says.
+
+The amount of coronavirus can be studied from wastewater. THL says that the amount of coronavirus in wastewater has grown. That means that the number of corona infections has also grown.
+
+There is now as much coronavirus in circulation as there was in the first half of this year. In the summer there was less coronavirus.
+
+Corona cases have increased this autumn across the whole of Europe.
+
+## House prices
+
+![Three people at a flat viewing.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10878105)
+
+Open image viewer
+
+Many Finns want to buy their own flat. Photo: Elisa Kinnunen / Yle
+
+House prices may fall. Banks predict that house prices will fall by 1 to 5 percent next year. The reason is that the economic situation is changing.
+
+During the corona time people wanted more space because of remote work. At the same time, interest rates on loans were low. That is why there were many buyers of flats, and house prices rose.
+
+Now interest rates are rising, and a housing loan is becoming more expensive. People have less money to buy a flat.
+
+That is why house prices may fall. That is good news for those who decide to buy a flat. They may be able to negotiate the price of the flat down.
+
+## Eurovision
+
+![Kalush Orchestra. The band members hold the Ukrainian flag and the Eurovision trophy.](https://img.img-cdn.yle.fi/crop_extract,w_3072,h_1728,x_0,y_320/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9554336281c980d1c2f/1653880903)
+
+Open image viewer
+
+Ukraine won Eurovision last spring. Photo: Alessandro Di Marco / EPA
+
+3 countries will be left out of next year's Eurovision. North Macedonia, Montenegro and Bulgaria have announced that they will not take part in the Eurovision song contest.
+
+The reason is money. Countries pay a participation fee for Eurovision. Money is also spent on travel and on the performance itself.
+
+The next Eurovision will be held in England, in Liverpool. Ukraine won the previous Eurovision, but it cannot host Eurovision because of the war.
+
+## Weather
+
+![weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12664896)
+
+Open image viewer
+
+At the weekend there will be snowfall in Northern Lapland and poor driving conditions. On Saturday it may rain a little in the east.
+
+Otherwise the weather is dry and cloudy. Sunday is a sunnier day.
+
+In the north the temperature during the day is close to zero and at night there is frost. In the south it is 10 degrees warm during the day and at night the temperature is close to zero degrees.

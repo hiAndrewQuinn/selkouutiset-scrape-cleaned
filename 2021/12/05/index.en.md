@@ -1,0 +1,79 @@
+# Sunday 5.12.2021 (radio)
+
+The Foreign Minister's corona infection. Attitudes to corona vaccines. The volcanic eruption in Indonesia. Independence Day. Weather.
+
+## The Foreign Minister's corona infection
+
+![Pekka Haavisto](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_97/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88828361ac4fde9fc1e/1638682656)
+
+Open image viewer
+
+Foreign Minister Pekka Haavisto. Photo: Gints Ivuskans / AFP
+
+Foreign Minister Pekka Haavisto has a corona infection.
+
+Haavisto has no symptoms, but he had a corona test because he planned to leave on a work trip. Now the work trip is cancelled because of the corona infection, and Haavisto is working remotely at home.
+
+The other ministers in the government have also been told to have a corona test because of the Foreign Minister's corona infection.
+
+Prime Minister Sanna Marin already had a corona test on Sunday. The result was negative, that is, no corona infection was found. Marin will have a corona test again on Monday.
+
+## Attitudes to corona vaccines
+
+![Pfizer corona vaccine doses](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8373466104e6574674d/1627711184)
+
+Open image viewer
+
+Supporters of the Finns Party are the most opposed to corona vaccines. Photo: Minna Rosvall / Yle
+
+Supporters of different parties have different attitudes to corona vaccines. This is what a new study says.
+
+Supporters of the Finns Party oppose corona vaccines more than others. 12 per cent of the Finns Party's supporters do not intend to get a corona vaccine.
+
+Supporters of the other big parties have a positive attitude to corona vaccines. Most of them have already had the corona vaccine.
+
+## The volcanic eruption in Indonesia
+
+![A person looks at an ash cloud erupting from a volcano.](https://img.img-cdn.yle.fi/crop_extract,w_4647,h_2613,x_0,y_100/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88817561ab6b40e390d/1638624186)
+
+Open image viewer
+
+Mount Semeru is erupting in Indonesia. Photo: Agung Supriyanto / AFP
+
+In Asia, Indonesia has a big volcanic eruption. Hot lava erupts from the volcano, and smoke and ash clouds rise into the sky.
+
+More than 10 people have died in the volcanic eruption. In addition, about 40 people have been burned. Thousands of people have fled the volcanic eruption.
+
+Indonesia is in an area where volcanic eruptions often happen. Indonesia has almost 130 active volcanoes. Now the Semeru volcano is erupting.
+
+## Independence Day
+
+![Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_extract,w_5802,h_3264,x_2,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8807526194f38aaf0f5/1641030877)
+
+Open image viewer
+
+President Sauli Niinistö will be seen on TV1 on the evening of Independence Day. Photo: Benjamin Suomela / Yle
+
+On Monday Finland celebrates Independence Day. 6 December is Finland's Independence Day.
+
+The corona situation affects how Independence Day is celebrated. For example, the reception at the Presidential Palace has been cancelled because of the corona situation. So this year people will not see the president couple shaking hands with guests.
+
+However, Yle is broadcasting a programme from the Presidential Palace on the evening of Independence Day. The programme also includes a conversation with President Sauli Niinistö and Mrs Jenni Haukio.
+
+Yle's Independence Day programmes can be followed on television, on the radio and on Yle Areena.
+
+## Frost
+
+![weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12218284)
+
+Open image viewer
+
+The frost continues on Monday.
+
+Sunday has been a cold day. There is a frost warning across the whole of Finland.
+
+On Sunday morning in Utsjoki in northern Lapland it was 34 degrees of frost.
+
+In eastern Finland too, in some places it was more than 30 degrees of frost. In southern Finland it was between 15 and 20 degrees of frost.
+
+Independence Day is also being celebrated in cold frosty weather.

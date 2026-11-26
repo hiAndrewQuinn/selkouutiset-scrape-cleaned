@@ -1,0 +1,71 @@
+# Sunday 31.5.2020 (radio)
+
+Many corona restrictions change on Monday. Violent protests have continued in the USA. New road signs will start to appear along roads in June. Sunday was the no-smoking day.
+
+## Corona restrictions
+
+![Outside door of a youth centre.](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_504/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6687995ea7e665a4520/1602244312)
+
+Open image viewer
+
+Youth centres open their doors on Monday. Photo: Anne-Maria Niskanen / Yle
+
+Many corona restrictions change on Monday, that is, on 1 June. The restrictions are no longer as strict as before.
+
+A new thing, for example, is that now 50 people may gather, that is, come to the same event. Until now, at most 10 people have been allowed to gather.
+
+Restaurants also open on Monday. However, restaurants may not let in as many customers as before.
+
+From Monday onwards, museums, youth centres and hobby facilities, for example, may also be open. Sports competitions may also be organised.
+
+The corona restrictions can be eased, because the corona situation in Finland is good. There are few new infections and deaths.
+
+The authorities are following the corona situation closely. If the number of corona cases starts to grow, the restrictions may be tightened again.
+
+It is important that people still follow the corona guidelines. For example, good hand hygiene and safety distances are important.
+
+## Finns from al-Hol
+
+![Women and a child at the al-Hol camp.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11181421)
+
+Open image viewer
+
+The al-Hol refugee camp holds families of Isis terrorists. Photo: Otso Reunanen / Yle
+
+A group of Finns has come back to Finland from a Syrian refugee camp.
+
+On Sunday Finland brought 3 families to Finland via Turkey. The children of the families are under 10 years old.
+
+The families were at the al-Hol refugee camp in Syria. Many family members of Isis terrorists live in the camp.
+
+About 40 Finnish women and children have been in the camp. In Finland there has been a dispute about whether they should be brought back to Finland.
+
+## USA protests
+
+![At the White House a protester has raised a sign that reads "Stop killing us" on 30 May 2020.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6831615ed337b79c797/1590900825)
+
+Open image viewer
+
+Protesters are protesting against police violence. Photo: Jim Lo Scalzo / EPA
+
+Violent protests have continued in the USA.
+
+Protesters have broken windows and looted shops. People have even died in connection with the protests.
+
+The protests started after a Black man died because of police violence.
+
+Many Americans were angry, because in their view the police treat Black people worse than white people.
+
+## New road signs
+
+![New pedestrian crossing sign](https://img.img-cdn.yle.fi/crop_extract,w_6016,h_3384,x_0,y_320/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6827545ed0e45875969/1590748280)
+
+Open image viewer
+
+This is what the new pedestrian crossing sign looks like. Photo: Timo Leponiemi / Yle
+
+In June, new road signs will start to appear along the roads. The Road Traffic Act is changing, and 50 new or newly designed road signs will come into use.
+
+For example, the pedestrian crossing sign is being redesigned. On the old sign, the figure walking across the pedestrian crossing looks like a man. On the new sign, the figure on the pedestrian crossing is one whose gender or age cannot be known.
+
+All road signs are still such that it is easy for the viewer to understand what the sign means.

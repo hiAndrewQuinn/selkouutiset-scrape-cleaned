@@ -1,0 +1,79 @@
+# Tuesday 22.9.2020 (radio)
+
+Foreigners do not always dare to apply for unemployment benefit. Unemployment has grown. PVL must be dissolved. There are more than 100 new corona infections in Finland. The accessibility directive comes into force.
+
+## Unemployment has grown
+
+![Building work on an apartment block.](https://img.img-cdn.yle.fi/crop_extract,w_3587,h_2018,x_0,y_376/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6689505ea80c6d06f00/1588072177)
+
+Open image viewer
+
+Photo: Henrietta Hassinen / Yle
+
+The number of unemployed people grew last month by a quarter compared with a year ago.
+
+Statistics Finland says that in August there were about 210,000 unemployed people. That is over 42,000 more than at the same time a year ago.
+
+The unemployment rate was 7.7 percent, when a year earlier it was about 6.
+
+About 60,000 people were laid off.
+
+## Foreigners do not dare to talk about unemployment
+
+![Window cleaning.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11433984)
+
+Open image viewer
+
+Photo: Tiina Jutila / Yle
+
+Foreigners in Finland do not always dare or know how to apply for unemployment benefit. The Finnish Immigration Service may cancel a residence permit if it receives information about unemployment.
+
+Jobs, for example in cleaning and in the restaurant sector, have decreased because of the corona. However, this does not show in the unemployment statistics.
+
+There are over 10,000 foreigners in Finland with a residence permit for employees.
+
+## The Supreme Court dissolved PVL
+
+![A procession of the Nordic Resistance Movement in Hakaniemi in 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10533870)
+
+Open image viewer
+
+A procession of PVL. Photo: Jyrki Lyytikkä / Yle
+
+The Supreme Court has ordered that the neo-Nazi organisation the Nordic Resistance Movement, PVL, must be dissolved.
+
+The court says that almost all of the organisation's activity has been against the law. It has violated basic rights and human rights. In addition, it has incited hatred against a group of people and used violence.
+
+The Supreme Court says that the activity of PVL was an abuse of freedom of association and freedom of speech.
+
+The National Police Board demanded that the organisation be dissolved. The district court and the court of appeal also took the same position. The Supreme Court had already earlier ordered PVL to stop its activities temporarily.
+
+However, members of the organisation have continued neo-Nazi activity. At least some of the members are now working under the name Kohti vapautta.
+
+## There are 149 new corona infections in Finland
+
+![A nurse speaks to a customer in a car at the Eksote drive-in corona sample point in Lappeenranta.](https://img.img-cdn.yle.fi/crop_extract,w_2869,h_1614,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7207535f64935a51d30/1600776279)
+
+Open image viewer
+
+Corona testing in Lappeenranta. Photo: Mikko Savolainen / Yle
+
+149 new coronavirus infections have been found in Finland, the Finnish Institute for Health and Welfare reports.
+
+In six cities more than 10 infections were reported on Tuesday. The most new infections were found in Jyväskylä. The change from yesterday is 29 new cases.
+
+In Lahti 16 infections were reported, in Vantaa 14, in Tampere and Helsinki 13, and in Mikkeli 12.
+
+## Digital services must be accessible
+
+![Nordea's mobile banking login window.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11223568)
+
+Open image viewer
+
+Nordea's digital banking service. Photo: Heikki Saukkomaa / Lehtikuva
+
+From Wednesday, digital services must be accessible. Pages and apps must be such that everyone can use and understand them. For example, speech and subtitles can be used as help.
+
+This is set by the European Union's accessibility directive. It applies to all public organisations and to many associations and companies.
+
+For example, internet banking is a digital service.

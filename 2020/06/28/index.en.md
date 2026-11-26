@@ -1,0 +1,70 @@
+# Sunday 28.6.2020 (radio)
+
+A tax on burning wood is proposed. EU countries are negotiating travel restrictions. There are 10 million corona infections in the world. Finns are satisfied with the government's handling of corona. It will rain in Western Finland on Monday.
+
+## The TV Clear News has a summer break and will continue on 17.8. The radio Clear News is made every day, including in summer.
+
+## A tax on burning wood is proposed
+
+![Wood being chipped.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7134969)
+
+Open image viewer
+
+Wood is made into chips, which are burned at a power plant. Photo: Mari Pekkanen / Yle
+
+An expert proposes a tax on burning wood in energy plants. The chairman of Finland's Climate Panel, **Markku Ollikainen**, says that a tax must be set on burning wood in heating plants and power plants.
+
+Ollikainen says that there will not be enough wood for burning when Finland stops burning coal and reduces the burning of peat. Ollikainen says that big cities must find new fuels.
+
+Energy companies do not want a tax on burning wood. The energy companies say that Finland must support energy companies so that they can use new technology, for example ground heat and waste heat recovery.
+
+## EU negotiates travel restrictions
+
+![Automatic passport checking machines for people arriving in Finland at Helsinki-Vantaa airport.](https://img.img-cdn.yle.fi/crop_extract,w_4256,h_2394,x_0,y_412/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5041905b7a825fa6cc5/1534755486)
+
+Open image viewer
+
+Automatic passport checking machines at Helsinki-Vantaa airport. Photo: Kalevi Rytkölä / Yle
+
+EU countries have negotiated about travel restrictions over the weekend. EU countries want to reduce travel restrictions at the beginning of July. EU countries have to agree on which countries outside the EU people may come to the EU area from.
+
+Travel to the EU area will be allowed from countries where the corona situation is good and there are few infections. The EU will decide on the countries early in the week.
+
+## 10 million corona infections
+
+![Corona test.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11419431)
+
+Open image viewer
+
+Corona testing in Florida in the USA. Photo: Octavio Jones / AFP
+
+The number of corona infections in the whole world is now 10 million.
+
+The worst situation is in the USA. 25% of the world's corona infections, that is 2.5 million, are in the USA. The second worst situation is in Brazil. Brazil has over 1.3 million corona infections.
+
+In Finland there are few corona infections. No new corona infections were reported in Finland on Sunday. On Saturday 7 new infections were reported.
+
+## Finns are satisfied with the government's corona measures
+
+![The government press briefing on the introduction of the Emergency Powers Act and border control on 17 March 2020.](https://img.img-cdn.yle.fi/crop_extract,w_6440,h_3623,x_137,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6898855ee7a806a1861/1592240250)
+
+Open image viewer
+
+The government has held many press briefings. Photo: Lauri Heikkinen / Prime Minister's Office
+
+Most Finns are satisfied with the government's actions in the corona crisis.
+The magazine Maaseudun Tulevaisuus asked people about this.
+
+76% of Finns think the government has handled the corona situation well.
+
+The older people are the most satisfied. Of Finns over 64, 85% think the government has succeeded in handling the corona crisis.
+
+## Weather
+
+![Clouds in blue sky.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11276847)
+
+Open image viewer
+
+On Monday cloudiness increases in Western Finland and it will rain.
+
+On Monday it is cloudy in Western Finland and it will rain. In the east and north it is still sunny and dry. The temperature is 20...25 degrees, and in the north 17...22 degrees.

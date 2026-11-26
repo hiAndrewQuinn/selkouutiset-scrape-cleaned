@@ -1,0 +1,71 @@
+# Thursday 26.3.2020 (radio)
+
+The borders of Uusimaa may close during Friday. The government is planning a separate support package for farm entrepreneurs. The average monthly pension of Finns has risen above 1,700 euros for the first time. The corals of Australia's Great Barrier Reef are doing worse than before.
+
+## Uusimaa is closing
+
+![Military police practised subduing suspects in a joint combat exercise of the Guards Jäger Regiment and the Uusimaa Brigade in Tuusula on 29 November 2011.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11276299)
+
+Open image viewer
+
+The Defence Forces are giving the police help, in other words conscripts for work. Here a military policeman is monitoring traffic.  Photo: Vesa Moilanen / Lehtikuva
+
+The borders of Uusimaa may close already during tomorrow, Friday, because of the coronavirus.
+
+You may not go from Uusimaa to other regions, and nobody may go from elsewhere to Uusimaa. However, everyone has the right to return home. The government's decision still needs to be approved by Parliament.
+
+The police will set up closing points at the borders of the regions. The police say that they will also monitor even very small roads.
+
+The police will also monitor public transport. Buses will be stopped at the borders of the region. The police will also monitor the platforms of railway stations and train stations, and trains.
+
+Everyone who crosses the border will be checked. They must give the police an explanation of why they are crossing the border. The reason must be important. For example, trips to summer cottages are not allowed.
+
+Hundreds of conscripts from the army will come to help the police monitor traffic.
+
+## Support is being considered for agriculture
+
+![Cows in a cowshed.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10756533)
+
+Open image viewer
+
+The coronavirus is also visible in the economy of farms. Photo: Malin Valtonen / Yle
+
+The government is planning a separate support package for farm entrepreneurs. About 15 million euros of loan guarantees may be available for food production.
+
+The support package is meant to support farms that have temporary payment difficulties because of the corona.
+
+At the same time, the aim is to make sure that food production continues in Finland.
+
+In the coming harvest season it will be difficult to get workers. The coronavirus is closing borders, and it is difficult to get foreign workers.
+
+## The average pension rose above 1,700 euros
+
+![Chinese pensioners doing water aerobics in a senior centre in Beijing, China, in June 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11163741)
+
+Open image viewer
+
+The livelihood of pensioners has improved as the pension has risen. Photo: How Hwee Young / EPA
+
+The average monthly pension of Finns has risen above 1,700 euros for the first time. The Finnish Centre for Pensions reports this.
+
+The average total pension is 1,716 euros per month. That is almost 40 euros more than in 2018.
+
+For men it was over 1,900 euros, and for women about 1,500 euros.
+
+## The Great Barrier Reef is still getting worse
+
+![Great Barrier Reef.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10947416)
+
+Open image viewer
+
+The Great Barrier Reef in Australia is getting worse all the time. Photo: EPA
+
+The corals of Australia's Great Barrier Reef are doing worse than before.
+
+Water that is too warm has caused damage to the corals. Large areas of the coral reef have turned pale. This has already happened for the 3rd time in 5 years.
+
+The extent of the damage is not known yet. When the reef's corals turned pale in 2016 and 2017, about half of the shallow-water corals died.
+
+The UN climate panel says that about 90 percent of the world's coral reefs could die. This will happen if the average temperature of the Earth rises by more than 1.5 degrees compared with pre-industrial times.
+
+The Great Barrier Reef in Australia is the largest coral reef in the world. It is located off the north-east coast of Australia. Its status on the UNESCO World Heritage List is under threat.

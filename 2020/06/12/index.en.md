@@ -1,0 +1,91 @@
+# Friday 12.6.2020 (radio)
+
+There are very few new corona cases. Amusement parks are opening again. Many people have worked from home. A timber store burned in Vantaa. A new Finnish record was set in the high jump. The weekend will be warm.
+
+## Corona cases
+
+![Nurse goes to the intensive care unit at Central Finland Central Hospital.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11397353)
+
+Open image viewer
+
+There are no longer many corona patients in hospitals. Photo: Tommi Anttonen / Lehtikuva
+
+There are very few new corona cases in Finland.
+
+The Finnish Institute for Health and Welfare (THL) said on Friday that only 9 new corona infections have been found in Finland. In total, just over 7,000 people in Finland have caught the coronavirus.
+
+On Friday, no new corona deaths were reported. The coronavirus has killed 325 people in Finland.
+
+## Amusement parks
+
+![Linnanmäki entrance](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11396037)
+
+Open image viewer
+
+The gates of Linnanmäki were closed in the spring. Photo: Kimmo Brandt / AOP
+
+Amusement parks around Finland are open again. Amusement parks may be open because the government has removed corona restrictions.
+
+Linnanmäki in Helsinki opened today, Friday. Särkänniemi in Tampere opens on Saturday.
+
+Because of corona, amusement parks are taking fewer customers at once than before.
+
+## Remote work
+
+![Man laughs at a computer at home.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11302711)
+
+Open image viewer
+
+Many people think remote work has gone well. Photo: Tiina Jutila / Yle
+
+Many Finns have worked from home because of corona.
+
+A new survey says 40 per cent of Finns worked from home at the beginning of June. 75 per cent of the survey respondents thought that work went just as well as before the corona era.
+
+Remote work has been more common in big cities than in small places.
+
+## Fire in a timber store
+
+![Timber store of K-Rauta at Vantaanportti burning, fire engines present.](https://img.img-cdn.yle.fi/crop_extract,w_3941,h_2217,x_0,y_739/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6887275ee2e0cdd1a05/1591935685)
+
+Open image viewer
+
+A timber store burned in Vantaa. Photo: Sampo Kiviniemi
+
+There was a big fire in Vantaa. The fire was at a hardware store.
+
+The timber store of the hardware shop caught fire during the night between Thursday and Friday. Nobody was hurt in the fire, but the damage may be several million euros.
+
+Firefighting has continued all day Friday. There have been many fire engines and firefighters on the scene.
+
+The police suspect that someone started the fire on purpose. The police are investigating.
+
+## New record in the high jump
+
+![Kristian Pulli](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11398231)
+
+Open image viewer
+
+Kristian Pulli jumped a Finnish record. Photo: Tapio Nevalainen / SUL
+
+Also in sports: a new Finnish record has been set in the high jump.
+
+High jumper Kristian Pulli jumped a record height on Thursday in Espoo. Pulli jumped 8 metres and 27 centimetres.
+
+The result is 5 centimetres better than the previous Finnish record.
+
+## Weekend weather
+
+![Aavaranta beach in Joensuu in sunny weather.](https://img.img-cdn.yle.fi/crop_extract,w_3024,h_1701,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6889775ee35e749e28e/1591959255)
+
+Open image viewer
+
+The weather is beautiful at the weekend. Photo: Panu Vatanen / Yle
+
+It is warm weather in Finland now. At the weekend the weather will get warmer.
+
+On Saturday the sun will shine across the whole country. The temperature will rise to between 20 and 26 degrees.
+
+Sunday is also a warm and sunny day, but it may rain a little in Northern Lapland.
+
+So the sun will shine at the weekend, and the Finnish Meteorological Institute warns of strong UV radiation. Summer is already so far along that it is good to protect your skin with sunscreen.

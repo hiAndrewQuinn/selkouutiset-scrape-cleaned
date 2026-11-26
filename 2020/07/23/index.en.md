@@ -1,0 +1,62 @@
+# Thursday 23.7.2020 (radio)
+
+TV Clear News has a summer break. It will continue on 17.8.
+Radio Clear News is made every day, also in the summer.
+
+## Finland brings back travel restrictions
+
+![Travel traffic starts again between Estonia and Finland. Guidelines are given.](https://img.img-cdn.yle.fi/crop_extract,w_3841,h_2161,x_0,y_198/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6762455ebd51c9a7dd7/1589466170)
+
+Open image viewer
+
+Because of the corona situation, people may enter Finland freely only from some countries.  Photo: Katriina Laine / Yle
+
+Finland is changing its travel restrictions. Finland will bring back travel restrictions on traffic from Austria, Slovenia and Switzerland next Monday. The number of corona infections has grown again in these countries. That is why the travel restriction will be brought back.
+
+Finland is removing travel restrictions for some travellers from Asian countries. For example, people may come to Finland again from China, Japan and Thailand.
+
+## Finland negotiates in Iraq
+
+![Pekka Haavisto and Fuad Hussein](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11462537)
+
+Open image viewer
+
+Foreign Ministers Pekka Haavisto and the Iraqi politician Fuad Hussein met in Baghdad on Thursday. Photo: Murtaja Lateef / EPA
+
+Finland's Foreign Minister **Pekka Haavisto** has travelled on a visit to Iraq. Haavisto will talk with Iraq's leaders about matters between Finland and Iraq. Haavisto and Iraq's leaders may talk about, for example, the return of refugees.
+
+Foreign Minister Pekka Haavisto will also meet Finnish soldiers in Iraq, who are there in the crisis management forces. Haavisto will also officially open Finland's embassy in Baghdad.
+
+## Blue-green algae is at a normal level
+
+![Blue-green algae in Lake Saimaa](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6923425ef1ff499f52a/1592918134)
+
+Open image viewer
+
+Blue-green algae in a lake Photo: Kare Lehtonen/Yle
+
+The amount of blue-green algae in lakes and the sea has increased now in July. In some lakes there is a lot of blue-green algae. In sea areas there is not as much blue-green algae now, because the wind has mixed the sea water.
+
+The Environment Agency says that the blue-green algae situation in lakes and the sea is now normal, because in July the amount of blue-green algae always increases.
+
+## Many people visit Koli
+
+![Holidaymakers go to the top of Ukko-Koli to admire the views and take photos. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_743/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6972295f05bb097cde4/1594214618)
+
+Open image viewer
+
+Holidaymakers go to the top of Ukko-Koli to admire the views and take photos.  Photo: Jaana Kainulainen / Yle
+
+Many Finnish travellers are visiting Koli National Park in Lieksa on their summer holiday now. In July, 20% more people have visited Koli than usually in July. More than 1,000 people have visited Koli every day.
+
+Never before have so many people visited Koli every day. There are not enough parking spaces for all the cars, because there are so many visitors. At the popular photo spots on Koli there is a queue.
+
+## The weather
+
+![Kaunissaari outdoor area.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10285487)
+
+Open image viewer
+
+Cloudiness on Friday varies. It will rain a lot in the west. Photo: Esko Jämsä / AOP
+
+On Friday it will rain a lot in the west. Elsewhere there will be rain showers and the cloudiness varies, that is, at times there are many clouds, at times the sun may shine. The daytime temperature on Friday is between 15 and 20 degrees.

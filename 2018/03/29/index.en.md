@@ -2,6 +2,6 @@
 
 Kokoomus is the largest party in Yle's new poll. Many shops are open during Easter too. Nobel Peace Prize winner Malala Yousafzai is visiting Pakistan. You can go cross-country skiing at Easter, because there is still snow in almost the whole country. The weather.
 
-Yle News in plain Finnish
+Clear News
 
 Kokoomus is the largest party in Yle's new poll. Many shops are open during Easter too. Nobel Peace Prize winner Malala Yousafzai is visiting Pakistan. You can go cross-country skiing at Easter, because there is still snow in almost the whole country. The weather.

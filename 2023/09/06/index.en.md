@@ -1,0 +1,71 @@
+# Radio Clear News Wednesday 6.9.2023
+
+Parliament. Nordea's growth forecast. Finnair. Heat. The weather.
+
+## Parliament
+
+![People gathered on the steps of a large stone building.](https://img.img-cdn.yle.fi/crop_extract,w_5376,h_3025,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116727664f5da50bec37/1693835586)
+
+Open image viewer
+
+Parliament building. Photo: Mimmi Nietula / Yle
+
+Parliament has discussed the government's statement, in which the government told about its actions against racism. In the discussion, representatives of the opposition parties doubted whether the government is seriously working against racism.
+
+The opposition parties SDP, the Greens and the Left Alliance are proposing a vote of no confidence in the government. The opposition party Centre accepts the government's statement.
+
+Parliament will vote on confidence in the government and the ministers on Friday.
+
+## Nordea on Finland's economy
+
+![Nordea bank office, with a sign that says Nordea.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_259/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115026664c8e69db2194/1690887891)
+
+Open image viewer
+
+Nordea bank forecasts that Finland's economic growth will be zero. Photo: Sonja Sajavaara / Yle
+
+Nordea bank forecasts that Finland's economic growth will be zero this year and next year. Nordea estimates that Finland's gross domestic product will stay unchanged in 2023 and 2024.
+
+Nordea forecasts that inflation will fall to 2.1 percent next year. At the moment, inflation, that is, the rise in prices, is much faster than this.
+
+## Finnair
+
+![A Finnair plane in the blue sky.](https://img.img-cdn.yle.fi/crop_extract,w_4329,h_2435,x_405,y_240/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115654864db05e72b971/1692075554)
+
+Open image viewer
+
+A Finnair aeroplane. Photo: Esko Jämsä / AOP
+
+The number of passengers on Finnair planes rose in August, when compared with August 2022.
+
+Finnair carried about 976 000 passengers in August, which is about 10 percent more than in 2022. However, almost 9 percent fewer people flew on Finnair planes in August than in July.
+
+Finnair says that the closure of Russian airspace shows in the Asia traffic. Russian airspace was closed after Russia attacked Ukraine. Because of this, Finnair has to fly to Asia on a longer route than before.
+
+## Heat
+
+![A road sign in English warning of extreme heat. In the background a dry and sunny desert can be seen.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114341564b421e461e8b/1689527349)
+
+Open image viewer
+
+A sign warns of extreme heat in Death Valley, California (16.7.2023). Photo: Reuters
+
+This year is the hottest of all time. The Copernicus service, which follows the EU's climate change, says that, for example, August of this year was the hottest in the whole measurement history.
+
+During the summer, heat, drought and forest fires troubled many countries, for example in Southern Europe.
+
+Heat records were also measured in India and Japan. In the USA, in Phoenix, the capital of the state of Arizona, the temperature rose above 43 degrees on 18 days in a row.
+
+Sea water also warmed more this summer than before.
+
+## The weather
+
+![Berry pickers in a field. A summer dry day.](https://img.img-cdn.yle.fi/crop_extract,w_5389,h_3031,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135154649ad5061c9b1/1687869675)
+
+Open image viewer
+
+The weather is dry. Photo: Jani Saikko / Yle
+
+The weather is dry and sunny across almost the whole country.
+
+The night temperature is between 1 and 10 degrees. The daytime temperature on Thursday is mostly between 14 and 18 degrees; in Northern Lapland it is cooler in places.

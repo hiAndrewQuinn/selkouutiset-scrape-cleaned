@@ -1,0 +1,81 @@
+# Radio | Clear News | Tuesday 3.10.2023
+
+Food prices. Criminal gangs. Espoo power cut. UMK final. The weather.
+
+## Food prices
+
+![Fruit and vegetable department of Prisma in Kuopio. A woman takes bananas into a bag.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_758/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107003163e35512a5bb5/1675843027)
+
+Open image viewer
+
+Food may even get a little cheaper next year. Photo: Jukka Eskanen
+
+The rise in food prices has slowed down. This is what Pellervo Economic Research estimates.
+
+This year prices will rise 8.5 percent from last year. Next year prices may fall by about 2 percent.
+
+For example, the prices of bread, meat, milk, cheese and eggs may fall next year.
+
+Pellervo Economic Research estimates, however, that food will not become as cheap again as it was about 2 years ago. At that time food was 20 percent cheaper than now.
+
+## Criminal gangs
+
+![Criminologist Maria Normann assesses Swedish gang violence in the A-studio.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1180271651b0e5e37417/1696272040)
+
+Open image viewer
+
+Researcher Maria Normann hopes that Finland learns from Sweden's mistakes.
+
+Swedish criminal groups, that is criminal gangs, also operate in Finland. The Finnish police suspect that a Swedish criminal gang has brought drugs into Finland.
+
+Senior Detective Inspector Timo Kilpeläinen told Yle that this criminal gang is very violent and commits all kinds of crimes.
+
+In Finland the drugs have gone to Finnish gangs, which have sold the drugs here.
+
+According to researcher Maria Normann, it is important that Finland learns from Sweden's mistakes.
+
+Normann reminds that Swedish criminal gangs now also include children and young people.
+
+Normann hopes that no one in Finland is left outside society. If a young person becomes marginalised, it is easy for the gang to lure them into crimes.
+
+## Espoo power cut
+
+![Graphic shows the area affected by the Espoo power cut at 2 pm on a map.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1180574651bf9cdd7986/1696333454)
+
+Open image viewer
+
+Photo: Samuli Huttunen / Yle, Mapcreator, OpenStreetMap
+
+There has been a big power cut in Espoo. More than 25 000 homes were without electricity on Tuesday afternoon.
+
+The power cut was in West Espoo. For example, the shopping centre Lippulaiva was closed because of the power cut.
+
+Espoo's metro traffic operated as normal even during the power cut.
+
+## UMK final
+
+![UMK24 search image, showing people dancing and the UMK logo.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115725064dc7fddd19be/1704860516)
+
+Open image viewer
+
+Photo: Miikka Varila/Mika Hokkanen/Yle
+
+The UMK final will be held in Tampere next year. UMK, that is the New Music Contest, ends at the Tampere Arena on 10 February.
+
+More than 400 songs were sent to the New Music Contest. 7 competitors got into the final, that is, the final competition. The names of the competitors will be announced in January.
+
+In UMK the Finnish representative for the Eurovision Song Contest is chosen. The winner of the contest last time was Käärijä. Käärijä placed second in the Eurovision Song Contest.
+
+## The weather
+
+![Wednesday's weather map.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1180720651c2b0cad25f/1696344879)
+
+Open image viewer
+
+On Wednesday it rains in the eastern part of the country. Also in Southern Lapland there will be showers. Elsewhere it is dry.
+
+The wind is gusty on the south coast and in the east. The temperature is around 10 degrees, in Lapland it is colder.
+
+On Thursday the rain stops and the weather is dry, in the north even sunny.
+
+Towards the end of the week cool air flows into Finland, and temperatures fall across the whole country. The temperature is also below 10 degrees in the south.

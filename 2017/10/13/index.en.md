@@ -2,6 +2,6 @@
 
 In Finland there are families without papers. The police may start to investigate whether tobacco companies have killed people with light cigarettes. Finnish schoolchildren have had free school meals for almost 70 years. The weather.
 
-Clear News in plain Finnish
+Clear News
 
 In Finland there are families without papers. The police may start to investigate whether tobacco companies have killed people with light cigarettes. Finnish schoolchildren have had free school meals for almost 70 years. The weather.

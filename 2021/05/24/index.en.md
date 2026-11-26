@@ -2,6 +2,6 @@
 
 Belarus. Immigrants. Amusement parks. Weather.
 
-Yle News in plain Finnish
+Clear News
 
 Belarus. Immigrants. Amusement parks. Weather.

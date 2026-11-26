@@ -2,6 +2,6 @@
 
 Ceilings in schools have failed. A record number of women managers in listed companies. Metals can be recovered from waste incineration ash. Airbnb is removing accommodation in Länsiranta.
 
-Yle News in Clear Finnish
+Clear News
 
 Ceilings in schools have failed. Listed firms have a record number of women managers. Metals can be recovered from waste incineration ash. Airbnb is removing accommodation in Länsiranta.

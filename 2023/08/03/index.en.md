@@ -1,0 +1,81 @@
+# Radio Clear News Thursday 3.8.2023
+
+Party support poll. Presidential race. Tax refunds. Barbie film. Weather.
+
+## Party support
+
+![Party support in September 2023](https://img.img-cdn.yle.fi/crop_extract,w_2006,h_1128,x_0,y_152/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115062864ca2a202446c/1691046539)
+
+Open image viewer
+
+Photo: Nanna Särkkä / Yle
+
+The opposition party SDP has risen to become the most popular party in Finland. This is what Yle's new party support survey says.
+
+The support for the SDP is now just under 23 percent.
+
+Next come the government parties, the National Coalition Party and the Finns Party. The support for both is just under 20 percent.
+
+The support for the National Coalition Party and the Finns Party has fallen since the previous measurement. Both parties have lost support especially among women.
+
+## Presidential elections
+
+![Mika Aaltola looks straight at the camera in Pori's Raatihuone park with his hand on his chin.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_322/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114418364b66bf6bb3e7/1690971511)
+
+Open image viewer
+
+Mika Aaltola, director of the Finnish Institute of International Affairs, is running for president. Photo: Katja Halinen / Yle
+
+The campaigning for the presidential election is slowly starting.
+
+Today, Mika Aaltola, director of the Finnish Institute of International Affairs, said that he is joining the presidential race. An electoral association has been set up for Aaltola's candidacy and campaign.
+
+Also in the presidential race are the former foreign minister Pekka Haavisto and the governor of the Bank of Finland, Olli Rehn. Both have an electoral association, but the Greens also support Haavisto, and the Centre Party supports Rehn.
+
+The Finns Party will probably choose Parliament's Speaker, Jussi Halla-aho, as its presidential candidate. MP Harry Harkimo is the candidate of the Nyt movement.
+
+More new candidates are still expected, because, for example, the National Coalition Party and the SDP have not yet announced their own candidates.
+
+The presidential election will be held in January.
+
+## Tax refunds
+
+![Twenty-euro banknotes.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_18/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4582295a6238b6b1438/1543917044)
+
+Open image viewer
+
+Almost 2 million people received tax refunds today. Photo: Henrietta Hassinen / Yle
+
+Many people have received tax refunds today. The Tax Administration has paid tax refunds to almost 2 million people. The average tax refund is 400 to 500 euros.
+
+The Tax Administration pays tax refunds every month from July to December. The payment day depends on when the customer's taxation is completed.
+
+A tax refund is received if too much tax was paid last year.
+
+## Barbie film
+
+![Barbie looks at Barbieland and waves.](https://img.img-cdn.yle.fi/crop_extract,w_3737,h_2103,x_262,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114160664aea552527d0/1692422056)
+
+Open image viewer
+
+The Barbie film interests audiences. Photo: Courtesy Warner Bros. Pictures
+
+The Barbie film has attracted a lot of audiences in Finland in a short time.
+
+The Barbie film's premiere was 2 weeks ago, on 21 July. So far more than 300,000 viewers have seen the film, which means that it has had an average of about 23,000 viewers every day.
+
+Barbie is currently the most watched film of this year in Finland.
+
+## Friday's weather
+
+![Friday's weather map](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115147564cba62c3bbff/1691068101)
+
+Open image viewer
+
+Photo: Yle
+
+The weather is rainy.
+
+On Friday there will be showers and thunderstorm showers across the whole country.
+
+The temperature is between 17 and 23 degrees.

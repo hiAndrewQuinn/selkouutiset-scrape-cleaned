@@ -1,0 +1,81 @@
+# Saturday 12.11.2022 (radio)
+
+Retaking of Kherson in Ukraine. Government infighting. Finns' concerns. Power cuts. Warm November. Weather forecast.
+
+## Retaking of Kherson
+
+![People hold Ukrainian flags in their hands. It is dark.](https://img.img-cdn.yle.fi/crop_extract,w_6960,h_3915,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1033258636f50a7c2f4f/1668239614)
+
+Open image viewer
+
+In Ukraine people have celebrated that Ukraine got the Kherson region back. Photo: Ukrinform/Shutterstock/All Over Press
+
+Ukrainians have celebrated the retaking of the city of Kherson. Ukrainian troops arrived in Kherson on Friday.
+
+Many Western countries have praised the fact that Russia withdrew from Kherson. Kherson is located in Southern Ukraine. In the Kherson region Ukraine has once again raised Ukrainian flags on the flagpoles.
+
+British Defence Minister Ben Wallace says that Russia's withdrawal from Kherson is a big failure for Russia. Wallace says that because of this, many Russians may also start to take a more negative view of the war in Ukraine.
+
+## The National Coalition Party criticises the government's infighting
+
+![National Coalition Party leader Petteri Orpo](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_230/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1033261636f569f28d7d/1668251860)
+
+Open image viewer
+
+National Coalition Party leader Petteri Orpo. Photo: Petteri Sopanen / Yle
+
+National Coalition Party leader Petteri Orpo criticises the government for poor performance. Orpo was a guest on Yle's Ykkösaamu programme on Saturday. Orpo said that the government cannot work well, because there are many disputes in the government over important matters.
+
+This week the government has argued about the Sámi Parliament Act. Previously the government argued about the restoration of nature. Within the government there is also a dispute about paying the care debt and agricultural subsidies.
+
+National Coalition Party leader Petteri Orpo said that now difficult times are being lived through. That is why it is a bad thing for Finland if the government cannot work well. The National Coalition Party is an opposition party, that is, it is not in the government.
+
+## Finns' concern about inflation
+
+![Various breakfast foods in a wheel. The graphic shows how the price of the following foods has risen: cheese +25%, egg +35%, margarine +26%, fresh vegetables +8.7%](https://img.img-cdn.yle.fi/crop_extract,w_3455,h_1943,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10305726368f201ec762/1667822185)
+
+Open image viewer
+
+Inflation, that is, the rise in prices, is now fast. For example, these breakfast products have become much more expensive. Photo: Asmo Raimoaho / Yle
+
+Finns are worried about inflation, that is, the rising of prices. A new study says that 80 percent of Finns are worried about inflation and the price of energy, and about whether there will be enough energy.
+
+Many Finns are also worried about the adequacy of social and health care services, Russia's military activity and Finland's indebtedness.
+
+The survey was commissioned by the Local Government Development Foundation. The survey also shows that the fewest Finns are worried about climate change, a rise in interest rates and an increase in unemployment.
+
+## Power cuts
+
+![Trees fallen on top of cars in an apartment block car park.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_524/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1033339636fb8070f251/1668266162)
+
+Open image viewer
+
+The wind has knocked down many trees. Photo: Timo Sihvonen / Yle
+
+The weather on Saturday has been windy. The wind has knocked down trees and cut power in different parts of Finland.
+
+In the afternoon about 13,000 homes were without electricity. There have been power cuts in about 70 municipalities.
+
+## Warm weather
+
+![Hepatica flower](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10748712)
+
+Open image viewer
+
+Hepaticas can flower in autumn too, if the weather is very warm. Photo: Ismo Pekkarinen / AOP
+
+The weather is now very warm for November. On Åland the temperature was 15 degrees on Saturday. In Helsinki too the temperature was over 14 degrees.
+
+Usually in November it is much cooler in Finland.
+
+## Weather forecast
+
+![Sunday's weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12676372)
+
+Open image viewer
+
+On Sunday it is mostly sunny.
+
+On Sunday it is mostly sunny. The weather also cools down.
+
+In the south and centre of the country the temperature is between +2 and +8 degrees, in the north between +2 and -10 degrees.

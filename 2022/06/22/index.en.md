@@ -1,0 +1,85 @@
+# Wednesday 22.6.2022 (radio)
+
+Fennovoima layoffs. Foreign-language speakers in elections. Earthquake in Afghanistan. Checks in Midsummer traffic. Midsummer weather.
+
+## Fennovoima
+
+![Entrance gate of the Hanhikivi power plant construction site in Pyhäjoki.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80164660901833abab4/1620057852)
+
+Open image viewer
+
+Construction work at the nuclear power plant in Pyhäjoki has ended. Photo: Timo Nykyri / Yle
+
+Fennovoima is laying off about 350 workers.
+
+Fennovoima is a Finnish energy company. It intended to build a nuclear power plant, that is, an atomic power plant, in Pyhäjoki in Northern Finland.
+
+Now Fennovoima is laying off almost all workers, because the construction of the nuclear power plant in Pyhäjoki has been stopped.
+
+The reason is that Fennovoima is ending cooperation with the Russian Rosatom. The plan was that Rosatom would supply the nuclear power technology to Pyhäjoki.
+
+Fennovoima said in the spring that the work with Rosatom had gone badly. Russia's war in Ukraine made the situation worse.
+
+## Foreign-language speakers in elections
+
+![Training, Sharangan Kenganathan, Tamil school.](https://img.img-cdn.yle.fi/crop_extract,w_5235,h_2944,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97224062af3506af76c/1655649717)
+
+Open image viewer
+
+Vantaa resident Sharangan Kenganathan is interested in politics. Photo: Thomas Hagström / Yle
+
+Foreign-language speakers rarely vote in Finnish elections. They also rarely stand as candidates in elections. The data is from a report by the Ministry of Justice.
+
+The report hopes that parties invite foreign-language speakers to take part in activities. The report also says that more information about elections is needed in plain Finnish and in foreign languages.
+
+In Finland there are already almost 500,000 foreign-language residents. The mother tongue of foreign-language speakers is something other than Finnish or Swedish.
+
+There are differences between language groups in voting. For example, Somali speakers vote more often than Russian speakers.
+
+## Earthquake in Afghanistan
+
+![Earthquake location marked on a map of Afghanistan.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97343762b2c42030624/1655895448)
+
+Open image viewer
+
+Photo: Otso Ritonummi / Yle
+
+There has been an earthquake in Afghanistan.
+
+Up to 1000 people died in the earthquake. Several hundred are injured.
+
+The earthquake broke houses. Many were trapped in the ruins of the houses.
+
+The earthquake happened on Wednesday in Eastern Afghanistan, near the Pakistan border.
+
+## Checks in Midsummer traffic
+
+![A police officer hands a breathalyser device towards the driver from the car's side window.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82271060cc511492ce2/1624002908)
+
+Open image viewer
+
+The breath test shows whether the driver has drunk alcohol. Photo: Timo Nykyri / Yle
+
+The police are monitoring traffic at Midsummer. The police check that drivers are in good driving condition on roads and waters.
+
+The police carry out breath tests on drivers of cars and boats. The breath test shows whether the driver has drunk alcohol.
+
+The police start monitoring on Thursday, that is, before the Midsummer weekend. The monitoring continues until next Wednesday.
+
+In Finland every year there are traffic accidents caused by alcohol.
+
+## Midsummer weather
+
+![Midsummer 2022 is warm and sunny across the whole country.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12506069)
+
+Open image viewer
+
+The Midsummer weekend is beautiful. Photo: Joonas Koskela / Yle
+
+Midsummer will be warm and sunny.
+
+On Friday, that is Midsummer Eve, heat will come to Finland, and the temperature will rise above 25 degrees. The heat continues throughout the Midsummer weekend.
+
+Yle meteorologist Joonas Koskela says that Sunday is the warmest day of the Midsummer weekend. The temperature may be as high as over 30 degrees.
+
+The nights are also warm at Midsummer.

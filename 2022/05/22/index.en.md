@@ -1,0 +1,71 @@
+# Sunday 22.5.2022 (radio)
+
+Talks between Finland and Turkey. Food in Ukraine's ports. Digital services and the elderly. The weather.
+
+## Talks between Finland and Turkey
+
+![Foreign Minister Pekka Haavisto at the Green League party congress in Joensuu on 22.5.2022](https://img.img-cdn.yle.fi/crop_extract,w_3408,h_1917,x_0,y_142/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-958615628a02d620357/1653211905)
+
+Open image viewer
+
+Foreign Minister Pekka Haavisto. Photo: Jani Saikko / Yle
+
+Finland wants to solve the problems with Turkey. Foreign Minister Pekka Haavisto says that more talks are needed between Finland and Turkey.
+
+Finland and Turkey are negotiating about Finland's NATO membership. Finland has applied for membership of the military alliance NATO, but Turkey does not accept Finland's application.
+
+Finland will only get into NATO when its application has been accepted in all NATO countries, also in Turkey.
+
+Turkey thinks that Finland protects terrorists. Turkey wants tougher action from Finland, for example against the Kurdish PKK organisation.
+
+Foreign Minister Haavisto reminds that Finland already considers the PKK a terrorist organisation. In addition, Finland can, for example, promise to monitor even better that no terrorist acts are being prepared in Finland, Haavisto says.
+
+Sweden also has similar problems with Turkey. Finland and Sweden have applied for NATO membership together.
+
+## Food in Ukraine's ports
+
+![Volodymyr Zelenskyy in close-up. He has a microphone in his left hand and his right hand is in the air in front of his face.](https://img.img-cdn.yle.fi/crop_extract,w_4472,h_2509,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9454636264638ed8d41/1650772805)
+
+Open image viewer
+
+Ukraine's President Volodymyr Zelenskyy. Photo: Sergey Dolzhenko / EPA
+
+There is a lot of food in Ukraine's ports that cannot be exported abroad because of the war.
+
+Ukraine's President Volodymyr Zelenskyy says that there are 22 million tonnes of food in Ukraine's ports. Russia blocks food exports by ships. In addition, Russia is stealing food for itself, Zelenskyy says.
+
+Ukraine is an important producer of grain and cooking oil. In many countries food will soon be too scarce, because food transports from Ukraine do not work.
+
+The war in Ukraine has already lasted almost 3 months. Russia attacked Ukraine at the end of February.
+
+## Digital services and the elderly
+
+![A man uses banking services on his phone.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_115/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9507866273c0960f065/1651753988)
+
+Open image viewer
+
+Matti Nikola, over 80, pays bills with a smartphone. Photo: Sakari Piippo / Yle
+
+Many elderly people are left outside digital services.
+
+Elderly Affairs Ombudsman Päivi Topo is worried about elderly people who do not use a computer or smart devices. They cannot get to services that have been moved online.
+
+Topo says that people must be able to get important services also at an office or by phone.
+
+According to Topo, a law is needed on the matter. The law must ensure that everyone can use, for example, the services of banks, Kela, the tax office and the police, Elderly Affairs Ombudsman Topo says.
+
+## The weather
+
+![Weather map for three days](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-958661628a350f3701c/1653224784)
+
+Open image viewer
+
+Photo: Joonas Koskela / Yle
+
+The early part of the week is dry, no rain falls.
+
+The weather is also warm. On Monday the temperature in the south is about 20 degrees.
+
+On Tuesday it is a summery day, and the sun shines in most of the country. The temperature is over 20 degrees in places.
+
+The warm and sunny weather continues on Wednesday, but on Thursday rains will come to Finland and the weather will cool.

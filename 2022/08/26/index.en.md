@@ -1,0 +1,77 @@
+# Friday 26.8.2022 (radio)
+
+There was a dangerous situation at the Zaporizhzhia nuclear power plant. People criticise social assistance. Upper secondary school students get tired at school. HJK qualified for the Europa League. The weather is dry.
+
+## The Zaporizhzhia nuclear power plant
+
+![Satellite image showing smoke and the Zaporizhzhia nuclear power plant.](https://img.img-cdn.yle.fi/crop_extract,w_10007,h_5628,x_0,y_875/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9995746307a76002036/1661446161)
+
+Open image viewer
+
+Satellite image showing smoke and the Zaporizhzhia nuclear power plant. Photo: EU Copernicus Sentinel-2 imagery / REUTERS
+
+In Ukraine, at the Zaporizhzhia nuclear power plant there was a dangerous situation on Thursday. The nuclear power plant was briefly disconnected from the electricity grid. It is dangerous when a nuclear power plant is disconnected from the electricity grid.
+
+Ukraine's President Volodymyr Zelenskyy says that a serious accident was close. Zelenskyy blames Russia for the dangerous situation.
+
+Zaporizhzhia is the biggest nuclear power plant in Europe. The nuclear power plant is in an area that is under the control of Russian soldiers. Ukraine demands that the Russian soldiers leave the area.
+
+## Social assistance
+
+![A person stands in front of an instruction at Kela's window that tells about different service numbers.](https://img.img-cdn.yle.fi/crop_extract,w_5267,h_2963,x_0,y_263/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7675056012d5fd2ab39/1611847671)
+
+Open image viewer
+
+In an online survey by Yle, social assistance is described as a pit that you cannot climb out of. Illustrative image from a Kela office in Porvoo. Photo: Tiina Jutila / Yle
+
+Yle asked people's opinions on social assistance. The survey was made to people who have received social assistance.
+
+Many people say that at the moment social assistance is bad. People want changes to social assistance. People want, for example, to work more so that social assistance is kept.
+
+A person's reputation is ruined if they receive social assistance. This is what many people say in Yle's survey.
+
+About 400,000 people in Finland receive social assistance.
+
+## Studying at upper secondary school
+
+![Matriculation examination at Kaleva upper secondary school.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_376/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-928108623044a96cf05/1663146305)
+
+Open image viewer
+
+As many as 62 percent of upper secondary school students feel that studying is heavy. A picture of the Finnish language writing exam at Kaleva upper secondary school in Tampere in March. Photo: Miikka Varila / Yle
+
+Students get tired at upper secondary school. The survey says that in the view of many upper secondary school students studying is heavy. This is what 62 percent of upper secondary school students say.
+
+Every 3rd upper secondary school student wants more support for studying than now. Upper secondary school students' studies progress more slowly than before. The reason for this is tiredness and, for example, distance teaching.
+
+However, a large part of upper secondary school students say that the teaching is good.
+
+The Upper Secondary School Students' Union says that more guidance counsellors and special education teachers are needed in upper secondary schools.
+
+## HJK into the Europa League
+
+![HJK's David Browne (left) and Silkeborg's Sebastian Jörgensen fight in the Europa League match.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_104/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9995936307b6e7618f8/1661450024)
+
+Open image viewer
+
+HJK's David Browne (left) and Silkeborg's Sebastian Jörgensen fight in the Europa League match. Photo: EPA-EFE/All Over Press
+
+Now sports.
+
+Helsinki's HJK gets into the Europa League football competition. On Thursday HJK knocked the Danish Silkeborg out of the next round and qualified for the Europa League group stage.
+
+In the same group as HJK are the Italian AS Roma, the Spanish Real Betis and the Bulgarian Ludogorets.
+
+HJK has played in the Europa League group stage once before.
+
+## The weather
+
+![Many people at the Tuomiojärvi beach on a sunny summer day.](https://img.img-cdn.yle.fi/crop_extract,w_4881,h_2745,x_13,y_259/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97577762bc09380cd7b/1656496198)
+
+Open image viewer
+
+People at the Tuomiojärvi beach on a sunny summer day. Photo: Jarkko Riikonen / Yle
+
+Still a weather forecast.
+
+On Saturday it is dry in almost the whole country. On the coast of Western Finland and in Western Lapland a little rain falls. The temperature is mostly between 15 and 25 degrees.

@@ -1,0 +1,76 @@
+# Tuesday 9.8.2022
+
+Minister of Economic Affairs Mika Lintilä wants to cut VAT on electricity. Inflation affects Finns' consumption. Many train trips were made in July. The weather is dry.
+
+TV's Clear News has a summer break 6.6.–12.8.
+Read and listen to the radio broadcast here.
+
+## Electricity taxation
+
+![Mika Lintilä.](https://img.img-cdn.yle.fi/crop_extract,w_4992,h_2808,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98775162e2728ade7f3/1659007700)
+
+Open image viewer
+
+Minister of Economic Affairs Mika Lintilä. Photo: Roni Rekomaa / Lehtikuva
+
+The Minister of Economic Affairs wants to lower electricity taxation. Minister of Economic Affairs Mika Lintilä says that a cut in VAT is the best way to lower the price of electricity.
+
+The VAT on electricity is now 24 percent. Lintilä proposes that the tax is lowered to 10 percent, for example.
+
+Lintilä says that an upper limit cannot be put on the price of electricity. The reason is that after that no country may bring electricity to Finland.
+
+Electricity is now really expensive. Next winter electricity will cost even more than now.
+
+## Finns' consumption
+
+![A car is being refuelled.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_298/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98817862e3b64c0c50b/1671079230)
+
+Open image viewer
+
+People are driving less by car than before, because petrol is expensive. Photo: Aalto Puutio / Yle
+
+Finns consume less than before. The reason is that the prices of goods and services have risen.
+
+The survey says that people drive less by car than before. Over 50 percent of motorists drive less, because petrol is expensive. Many cycle more than before.
+
+People try to save on grocery shopping. Many also go to a café or restaurant less than before.
+
+The rise in prices affects 15–24-year-old young people the most. Of them 65 percent consume less than before.
+
+## Russia's attack on Ukraine
+
+![Ukrainian soldiers patrol in the Donbas in eastern Ukraine in May.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99158162f0bfe721499/1659945055)
+
+Open image viewer
+
+Ukrainian soldiers patrol in the Donbas in eastern Ukraine in May. Photo: Diego Herrera Carcedo / AOP
+
+In Ukraine, Russia moved soldiers to defence in southern Ukraine at the weekend. A Ukrainian counter-attack is under way in southern Ukraine. This is reported by British intelligence.
+
+At the same time Russia is still also attacking in the Donetsk region. The Russian forces have only advanced a little.
+
+## Train journeys
+
+![A train stands on the tracks.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_393/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98064162cc25d46d3df/1657546389)
+
+Open image viewer
+
+A train stands on the tracks. Photo: Minna Aula / Yle
+
+People travelled a lot by train in July.
+
+In total 1.4 million train journeys were made in Finland in July. This is 46 percent more than in July last year. People travelled by train in July more than ever before in 1 month.
+
+Compared with June, the number of passengers on trains increased most in July between Helsinki and Seinäjoki.
+
+## The weather
+
+![Gravel path at Pyhä-Nattanen on a sunny summer day.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98933762e8e6e57b1e8/1659430749)
+
+Open image viewer
+
+Gravel path on a sunny summer day. Photo: Maiju Saijets / Yle
+
+The weather is dry in almost the whole of Finland. In many places it is also clear. In Lapland it rains now and then.
+
+On Wednesday in the daytime the temperature is between 19 and 24 degrees.

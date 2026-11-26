@@ -1,0 +1,67 @@
+# Thursday 8.8.2019 (radio)
+
+A new report says that the temperature of the Earth has risen. Russian President Vladimir Putin is visiting Finland at the end of August. Support for the government parties has risen a little. A care place has been set up for Saimaa ringed seal pups, that is, cubs.
+
+## The climate is warming
+
+![Rainforest being burned to clear land for cattle farming in the state of Pará, Brazil.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10911366)
+
+Open image viewer
+
+The climate warms as forests decrease. Photo: Dylan Garcia / AOP
+
+A new report on climate change has been published. The report was made by the IPCC, the Intergovernmental Panel on Climate Change.
+
+The report says that the temperature of the Earth has risen. The average temperature on land has risen by a little over 1.5 degrees in just over 100 years. If sea areas are included, the temperature has risen by about 1 degree.
+
+There are many reasons for the warming of the climate. One reason is that people are destroying forests. For example, forests are burned and pasture land for cattle takes their place.
+
+Food production warms the climate. The report demands that people eat less meat and throw less food in the bin.
+
+Climate change already shows on Earth, for example, in that heatwaves are hotter and longer than before. Because of climate change, not everyone has enough food and clean water.
+
+## Putin is coming for a visit
+
+![Sauli Niinistö and Vladimir Putin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10914186)
+
+Open image viewer
+
+President Niinistö and Putin met in April in St Petersburg. Photo: Anatoly Maltsev / EPA
+
+Russian President Vladimir Putin will soon visit Finland. Putin is coming to Finland at the end of August.
+
+Putin will meet President Sauli Niinistö in Finland. The presidents intend to discuss relations between Finland and Russia and international matters.
+
+## The Finns Party has the most support
+
+![Party support](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10911885)
+
+Open image viewer
+
+There have not been big changes in party support. Photo: Kerttu Kamula / Yle
+
+Yle has again asked Finns which party they support.
+
+The most support goes to the Finns Party. About 20 per cent of respondents support the Finns Party.
+
+The second most support goes to the National Coalition Party. Support for the National Coalition is almost 17 per cent.
+
+The Finns Party and the National Coalition are opposition parties, that is, they are not in the government.
+
+Support for the government parties has risen a little in total. The largest government party is the SDP. Its support is about 16 per cent.
+
+The support figures for all parties can be found at yle.fi.
+
+## A care place has been set up for ringed seal pups
+
+![A pup receiving food through a tube at the beginning of its treatment.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10913723)
+
+Open image viewer
+
+A pup in its new care place. Photo: Petri Vironen / Yle
+
+A care place has been set up for Saimaa ringed seal pups, that is, cubs. Pups in poor condition can now get care in Puumala, Saimaa.
+
+The founders of the care place are volunteer vets. The care place opened on Tuesday, and the first patient arrived the same day.
+
+The pups are released into the wild when they are healthy. People want to save the Saimaa ringed seal pups, because the Saimaa ringed seal is a rare animal.

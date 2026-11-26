@@ -1,0 +1,77 @@
+# Tuesday 26.02.2019 (radio)
+
+The leaders of the USA and North Korea will meet in Vietnam. Unemployment has decreased. There are now many cases of norovirus. Heavy screen time affects the development of young children. Krista Pärmäkoski was close to a medal at the ski world championships.
+
+## Trump and Kim
+
+![Kim Jong-un at Dong Dang railway station.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10663818)
+
+Open image viewer
+
+Kim Jong-un travelled to Vietnam by train. Photo: EPA
+
+The leaders of the USA and North Korea will meet in Vietnam. US President Donald Trump and North Korean leader Kim Jong-un arrived in Hanoi, the capital of Vietnam, on Tuesday.
+
+Trump and Kim will meet on Wednesday and Thursday. The meeting will discuss North Korea's nuclear weapons. The USA hopes that North Korea will give up its nuclear weapons.
+
+This is the second meeting of Trump and Kim. They met for the first time last summer.
+
+## Unemployment
+
+![Door of a TE Office](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10163735)
+
+Open image viewer
+
+The number of unemployed job seekers has decreased. Photo: Minna Rosvall / Yle
+
+Unemployment has decreased.
+
+At the end of January there were a little over 250,000 unemployed job seekers at the TE Offices. That is more than 30,000 fewer than a year ago.
+
+## Norovirus
+
+![Hands being washed with water.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8910546)
+
+Open image viewer
+
+Good hand hygiene is important when norovirus is going around. Photo: Jyrki Lyytikkä / Yle
+
+There is now a lot of stomach flu in Finland, caused by norovirus. The January and February statistics show 900 norovirus cases.
+
+The Finnish Institute for Health and Welfare says that norovirus is common in winter and spring. Norovirus causes stomach pain, vomiting and fever.
+
+The best way to prevent stomach flu is to wash your hands with water and soap at least after using the toilet and before eating. Hand sanitiser does not kill norovirus.
+
+## Screen time
+
+![A child looks at a tablet screen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9326254)
+
+Open image viewer
+
+It is not good for a child to stare at a screen too much. Photo: Toni Pitkänen / Yle
+
+A young child's development may slow down if they spend a lot of time in front of the television and smart devices. This is what a Canadian study says.
+
+The study found that screen time already affects the development of 2-year-old children. Screen time means the time a child spends with various devices.
+
+A lot of screen time shows in tests of 5-year-olds. Then, for example, a child's social skills may be a little worse if they have spent a lot of time with devices.
+
+## Ski world championships
+
+![Krista Pärmäkoski.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10664147)
+
+Open image viewer
+
+Krista Pärmäkoski. Photo: Lehtikuva / Heikki Saukkomaa
+
+The ski world championships have continued in Seefeld, Austria. On Tuesday the Finns were nervous about the women's 10-kilometre race.
+
+Finland's Krista Pärmäkoski finished 4th in the race. Pärmäkoski missed the bronze medal by only 1.4 seconds.
+
+The winner of the race and world champion was Norway's Therese Johaug.
+
+## Weather
+
+On Wednesday the weather is sunny in the south. In Lapland it is snowing. On Thursday it will also snow in the south.
+
+On Wednesday the temperature is above zero in almost the whole country. On Thursday the weather turns colder.

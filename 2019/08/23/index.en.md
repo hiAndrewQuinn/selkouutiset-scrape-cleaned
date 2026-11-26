@@ -1,0 +1,69 @@
+# Friday 23.8.2019 (radio)
+
+Rain has disrupted traffic in the Helsinki region. Pasila's new railway station opens in October. London Zoo is weighing thousands of animals. Because of the dry summer there are few mushrooms in the forests.
+
+## Friday's rain
+
+![Railway station metro platform flooded on 23 August after heavy rain.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10935239)
+
+Open image viewer
+
+Water stopped metro traffic in central Helsinki. Photo: Ulla Malminen / Yle
+
+It has rained a lot on Friday.
+
+In the Helsinki region the rain has disrupted traffic. For example, the metro has not run through central Helsinki, because rainwater got into the metro's technical rooms.
+
+Yle meteorologist Matti Huutonen estimates that in the Helsinki region it may rain in one day as much as usually falls in a month.
+
+Elsewhere in Finland too, Friday has been a very rainy day.
+
+## Pasila station
+
+![A train passes under the Tripla towers in Pasila.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10829059)
+
+Open image viewer
+
+Pasila's new railway station is soon ready. Photo: Liisa Takala / Yle
+
+The new Pasila railway station will open in Helsinki in 2 months' time.
+
+Construction work in Pasila has continued for 6 years, and a temporary station has been in use for 2 years. Now passengers will have a brand-new station building.
+
+In October the Tripla shopping centre will also open. In addition to the shopping centre, Tripla will contain, for example, a hotel and offices.
+
+Helsinki already has many shopping centres. Shopkeepers nevertheless believe that there will be enough customers for Tripla too. Many people move around in Pasila, because there are many jobs in the area.
+
+## London Zoo
+
+![Frog in a spoon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6788169)
+
+Open image viewer
+
+Photo: Eurovision
+
+In Britain, London Zoo is now busy. The zoo is weighing thousands of animals.
+
+London Zoo has almost 20,000 animals, but the zoo does not need to weigh every single animal. Sometimes it is enough that only one of a group of similar animals is weighed.
+
+The animals are weighed by luring them onto the scales with food. The weighing operation continues for a week.
+
+London Zoo is the world's oldest scientific zoo. It weighs the animals every year. An animal's weight is good to know, for example, so that the keeper can give it the right amount of medicine.
+
+London Zoo also tells the weighing data to other zoos around the world.
+
+## Forest mushrooms
+
+![A large chanterelle in hand.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9832901)
+
+Open image viewer
+
+Chanterelle is a delicious mushroom. Photo: Tommi Parkkinen / Yle
+
+There are few mushrooms in Finnish forests now. The reason is drought.
+
+Researcher Risto Jalkanen says that July was so hot and dry that mushrooms have not grown. Jalkanen says that there are few mushrooms across Finland.
+
+Jalkanen estimates that this is an unusually poor mushroom year. There were as few mushrooms about 30 years ago, in 1987.
+
+The situation may still improve. Especially in Southern Finland mushrooms may still come up, Jalkanen says. If the autumn weather is normal, mushrooms can be picked until November.

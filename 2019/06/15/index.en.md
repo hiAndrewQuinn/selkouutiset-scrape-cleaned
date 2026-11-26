@@ -1,0 +1,63 @@
+# Saturday 15.6.2019 (radio)
+
+Equality for women and girls in Finland is good, but not excellent. Maria Ohisalo was elected chairman of the Greens. An aerobatic display can be seen in the Turku sky. Just a few thousand steps a day improves the health of an older person.
+
+## Equality works well in the Nordic countries
+
+![Women sitting at a table in a park in summer.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10821395)
+
+Open image viewer
+
+Equality for women and girls works well in the Nordic countries, but not excellently. Photo: AOP
+
+Finland is the second most equal country in the world. The children's rights organisation Plan says that only Denmark is ahead of Finland in gender equality. Sweden and Norway come after Finland.
+
+The children's rights organisation Plan has studied how gender equality works in different countries. Plan's report says that a lot more work must still be done to improve equality.
+
+About 1.4 billion girls and women, that is, 40 per cent of all the world's girls and women, live in countries where equality works very poorly. Equality works worst in Niger, Yemen, the Republic of the Congo and the Democratic Republic of the Congo.
+
+About 8 per cent of the world's girls and women live in countries that received a good grade. No country received an excellent grade.
+
+## The Greens got a new chairman
+
+![Outgoing Green leader Pekka Haavisto congratulates Maria Ohisalo on being chosen as the new leader.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10833749)
+
+Open image viewer
+
+The Greens' former chairman Pekka Haavisto congratulates the new chairman Maria Ohisalo. Photo: Roni Rekomaa / Lehtikuva
+
+The Greens have chosen a new chairman. Interior Minister Maria Ohisalo was chosen as the new chairman. Ohisalo had no rival candidates.
+
+Maria Ohisalo is 34 years old and from Helsinki. She has a doctorate in social sciences and has studied poverty, for example.
+
+Ohisalo has previously been the Greens' deputy chairman.
+
+## The aviation association celebrates in Turku
+
+![Turku Airshow at Turku airport](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10833848)
+
+Open image viewer
+
+The aviation association's celebration show brought thousands of people to Turku airport. Photo: Petra Ristola / Yle
+
+The Finnish Aeronautical Association is turning 100 years old this year. The birthday is being celebrated all weekend at Turku airport.
+
+Today in the sky there was, for example, aerobatic flying, rescue helicopters and formation flying. The programme is the same tomorrow, Sunday, too.
+
+In Turku you can also see the fighter jets of 5 different manufacturers, from among which the new fighters for the Finnish Air Force will be chosen. The Air Force's current Hornet aircraft will be retired by 2030.
+
+## Walking is good for health
+
+![Two seniors Nordic walking.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9883636)
+
+Open image viewer
+
+Walking is also good exercise for older people. Photo: Iuliia Mazur / AOP
+
+Walking just a few thousand steps every day is enough to improve the fitness and health of older women.
+
+A new American study says that older women do not need to walk 10,000 steps a day. Already 4,000 steps is enough to improve the health of older women, says the medical journal JAMA Internal Medicine.
+
+The study included 17,000 women who were about 70 years old. The women's movement was tracked, for example, with pedometers.
+
+Many studies have shown that walking is beneficial for health. However, it has been unclear how many steps a day is a good amount for older people.

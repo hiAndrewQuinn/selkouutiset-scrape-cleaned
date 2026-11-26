@@ -1,0 +1,75 @@
+# Sunday 10.3.2019 (radio)
+
+There is too little dead wood in commercial forests. A serious air accident has happened in East Africa. 30 people were injured in severe turbulence on a Turkish Airlines flight. Delayed contact allergy troubles many people.
+
+## Species are at risk because there is too little dead wood
+
+![Broken branches in the forest.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10661523)
+
+Open image viewer
+
+There must be much more rotting wood in the forest than there is now. It is important for many species. Photo: Jaana Polamo / Yle
+
+There is too little dead wood in commercial forests. Dead wood is dead tree wood that rots.
+
+Dead wood is formed if some trees are left to rot in the forests. There is too little dead wood, because too many trees are felled.
+
+About 5,000 species in the forests need dead wood. Ten times the current amount of dead wood is needed.
+
+Researchers say that at the moment almost no dead wood is left in the forests. That is why about 10 percent of forest species are endangered, that is, at risk of disappearing.
+
+The latest estimate shows that endangered species are most common in forests. About 30 percent of these species are in old forests.
+
+## 157 people died in a plane crash in Ethiopia
+
+![Map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10681806)
+
+Open image viewer
+
+Graphic: Yle News Graphics
+
+A serious air accident has happened in East Africa. An Ethiopian Airlines plane crashed on its way to Nairobi in Kenya.
+
+The plane left Ethiopia's capital, Addis Ababa. The plane crashed 6 minutes after take-off.
+
+![Rescue teams collecting the bodies of passengers and belongings at the crash site in Ethiopia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10681963)
+
+Open image viewer
+
+Rescue teams collect the bodies and belongings of passengers at the crash site in Ethiopia. Photo: Michael Tewelde / AFP
+
+Ethiopia's state television said that no one survived. There were 157 people on the plane. Passengers were from 33 countries.
+
+A Swedish website followed the flight's movements. The website says that the plane flew unsteadily right after take-off.
+
+The aircraft was put into service last October. Ethiopia's prime minister has expressed condolences to the families of the victims.
+
+## 30 people were injured in turbulence on a flight
+
+![aircraft cabin and flight attendant](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10325068)
+
+Open image viewer
+
+The picture is not from the flight the news is about. Photo: AOP
+
+30 people were injured in severe turbulence on a Turkish Airlines flight. The plane was on its way from Istanbul to New York.
+
+Severe air pockets suddenly began about half an hour before landing. However, the plane landed without problems.
+
+All the injured were taken to hospital. Passengers had bruises, wounds and broken bones.
+
+## Delayed allergy affects one in five
+
+![Atopic skin itches in dry winter weather.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5097601)
+
+Open image viewer
+
+Delayed contact allergy shows on the skin. Photo: Yle
+
+Delayed, that is slow, contact allergy troubles many people. In it, a substance causes a rash when the substance touches the skin.
+
+About 20 percent suffer from delayed contact allergy. The rash starts about 8 hours after exposure. In addition, the allergy intensifies within a few days. Women suffer from it more often than men.
+
+Thousands of chemicals can cause delayed contact allergy. The most common cause is nickel.
+
+This is said by a Nordic study. Finns were not part of the study. However, the researchers believe that the condition is just as common in Finland too.

@@ -1,0 +1,85 @@
+# Saturday 27.7.2019 (radio)
+
+Hungary's prime minister criticises Finland. A man died from police bullets. Today is sauna day. Heat threatens Greenland. In Finland the heat ends.
+
+## Hungary's prime minister criticises Finland
+
+![Viktor Orban](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10809516)
+
+Open image viewer
+
+Hungarian Prime Minister Viktor Orbán Photo: Stephanie Lecocq / EPA
+
+The Hungarian prime minister has given a speech in which he harshly criticised Finland. Prime Minister Viktor Orbán said that Finland is a hypocritical country.
+
+Orbán believes that Finland has a bad judicial system and therefore Finland cannot criticise Hungary.
+
+Finland and other EU member states believe that the judicial system in Hungary is not reliable. Other countries fear that politicians in Hungary interfere in the workings of the judicial system.
+
+The Hungarian prime minister is criticising Finland because Finland is now the country holding the EU presidency.
+
+The EU has said that Hungary may lose EU funding if it does not respect the basic principles of democracy.
+
+## A man died in Helsinki
+
+![Police logo, a police officer in uniform](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10442811)
+
+Open image viewer
+
+It is very rare in Finland for police to shoot. Photo: Tiina Jutila / Yle
+
+One man died today in Helsinki when the police shot at him.
+
+The police received an alarm because sounds of a fight could be heard from a private flat. There was a man in the flat who behaved threateningly and pointed a gun at the police.
+
+The police fired 2 shots at the man.
+
+It is very rare in Finland for the police to use a gun when they arrest a person.
+
+## Today we go to the sauna
+
+![A man sits on a sauna bench with a ladle in his hand.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10268075)
+
+Open image viewer
+
+Water is thrown on the hot sauna stove. Photo: Toni Pitkänen / Yle
+
+Today is a special sauna day.
+
+Sauna Day celebrates Finnish sauna culture.
+
+Finland wants sauna bathing, that is, going to the sauna, to be something that all people in the world connect with Finland.
+
+There are about 2.3 million saunas in Finland.
+
+## The heat is melting Greenland's ice
+
+![Remnants of an ice sheet floating in water.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6998436)
+
+Open image viewer
+
+The heat is melting Greenland's continental ice. Photo: Greenpeace
+
+Europe has had intense heat. The European heat wave is now moving north and towards Greenland.
+
+Meteorologists say that next week in Greenland it will be 10 degrees warmer than it usually is there.
+
+The UN world organisation warns that the heat wave is melting Greenland's continental ice sheet very quickly.
+
+Greenland's continental ice sheet is the second largest in the world.
+
+## Finland's weather is cooling
+
+![Adults and children swimming at sunset.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10839899)
+
+Open image viewer
+
+Swimming cools you down in the heat. Photo: Ismo Pekkarinen / AOP
+
+The heat in Finland will end soon.
+
+Tomorrow, Sunday, it is already cooler in Northern Finland. In Northern Finland the temperature is between 15 and 20 degrees.
+
+In Southern Finland there will still be heat tomorrow. In Southern Finland the temperature is over 30 degrees.
+
+Next week the weather will cool down across the whole country.

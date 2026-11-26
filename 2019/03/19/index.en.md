@@ -1,0 +1,71 @@
+# Tuesday 19.3.2019 (radio)
+
+Parliament has stopped work. Workers marched out of Stora Enso's factory in Oulu. The investigation into the shooting in the Netherlands continues. The storm damage in Mozambique is very large. On Equality Day, Minna Canth was remembered.
+
+## Parliament has stopped work
+
+![MPs leaving parliamentary work, SDP's Eero Heinäluoma (left) and the National Coalition's Pertti Salolainen (right), talk with SDP chairman Antti Rinne in the Parliament canteen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10697053)
+
+Open image viewer
+
+SDP's Eero Heinäluoma and the National Coalition's Pertti Salolainen are leaving Parliament. SDP's Antti Rinne listens in the middle of the mood of those leaving. Photo: Antti Aimo-Koivisto / Lehtikuva
+
+Parliament, the Finnish parliament, has ended its session, that is, it has stopped its work. Now the election break has begun. The new Parliament will meet after the parliamentary elections, on 24 April.
+
+Many long-serving MPs have left parliamentary work altogether. Those who ended their parliamentary work include, for example, Sirkka-Liisa Anttila, Mauri Pekkarinen, Pertti Salolainen and Seppo Kääriäinen.
+
+During the four years, Parliament completed more than 900 laws. More than 40 law projects were also dealt with in Parliament, but they did not come into force. Much of it was related to the social and health care reform, sote, or the regional reform.
+
+## Workers march out of Stora Enso's factory in Oulu
+
+![According to the chief shop steward, only people responsible for safety and the environment arrive for work.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10696110)
+
+Open image viewer
+
+Workers marched out of the factory and set up strike guards at the gate. Photo: Paulus Markkula / Yle
+
+Employees of the Oulu factory of the forest company Stora Enso have left the workplace because of the decision to reduce the number of workers.
+
+The workers organised the walkout because they oppose the job cuts. The workers will be away for two days.
+
+Stora Enso said yesterday that it wants to change the factory's operations and reduce the number of workers.
+
+## The investigation into the Dutch shooting continues
+
+![Rescue workers at the scene.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10696037)
+
+Open image viewer
+
+The shooting on the tram has shocked people. Photo: Robin van Lonkhuijsen / EPA
+
+In the Netherlands, the shooting that took place yesterday in the city of Utrecht is being investigated. Three people died and many were injured when a man shot people on a tram.
+
+The police arrested the shooter. He comes from Turkey. The police have also detained two other people for questioning. It is not yet known why the shooting happened.
+
+The police are investigating whether the shooter had a terrorist motive.
+
+## Storm damage in Mozambique is very large
+
+![Aerial image from the aid organisation Care showing the situation in the village of Praia Nova in central Mozambique on Sunday.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10697079)
+
+Open image viewer
+
+The storm has caused great damage in Mozambique. Photo: Josh Estey / Care / EPA
+
+The UN estimates that the severe storm that hit Mozambique in Africa may be the worst weather disaster in the southern hemisphere. The UN says that the disaster is getting worse, because it keeps raining in the area.
+
+The government of Mozambique says that up to 100,000 people need help immediately. The severe storm hit Mozambique last week. Sea water flooded deep inland, and rivers flooded in the heavy rain.
+
+The UN estimates that the storm has affected the lives of at least 2.5 million people.
+
+## Minna Canth was remembered on Equality Day
+
+![Minna Canth](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5825526)
+
+Open image viewer
+
+Minna Canth. Photo: Finnish Heritage Agency
+
+Today has been Equality Day. Equality Day is celebrated in Finland on Minna Canth's birthday. Today it is 175 years since her birth.
+
+Minna Canth spoke in favour of equality, and wanted to promote education, for example. She was, among other things, a writer, a newspaper editor and an entrepreneur. Minna Canth wrote plays, novellas and short stories.

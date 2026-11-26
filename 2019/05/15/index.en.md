@@ -1,0 +1,67 @@
+# Wednesday 15.5.2019 (radio)
+
+Advance voting for the EU elections has started. One person wrote ten laudaturs. Two people died in a bad crash. A Monet painting was sold for a record price. Look Away did not reach the Eurovision final.
+
+## Advance voting for the EU elections has started
+
+![Advance polling place in the post office](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10783950)
+
+Open image viewer
+
+The EU elections are very close. You can already go and vote now. Photo: Heikki Saukkomaa / Lehtikuva
+
+Advance voting for the EU elections has started. During the day it looked as if more voters were on the move than in the EU elections 5 years ago on the first voting day. Voting was busiest during the day in Helsinki and quietest in the Vaasa electoral district.
+
+You can vote in advance in the EU elections until next Tuesday, for example in shopping centres, town halls and post offices. In the EU elections the candidates are the same across the whole country.
+
+The election is held next week, on Sunday. Finns will elect 13 representatives to the European Parliament. You can look for a suitable candidate, for example, in Yle's election machine at vaalikone.yle.fi.
+
+## One person wrote ten laudaturs
+
+![Young woman with a student cap on her head](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_146/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5079605b910936e9d5b/1536231896)
+
+Open image viewer
+
+In Finland the sign of a matriculated student is the white cap. Photo: Henrietta Hassinen / Yle
+
+Today the results of the matriculation examinations were announced. The best grade in the matriculation examination is laudatur. This spring five people wrote 8 laudaturs.
+
+One person wrote as many as 10 laudaturs. It is Amanda Sandelin from the Swedish-language upper secondary school in Kauniainen.
+
+About 40,000 pupils took part in this spring's matriculation examination. The exams were held in March. Now more than 25,000 people will pass the matriculation examination. They will be celebrated on the first day of June. The new graduates receive a white cap.
+
+## Two people died in a bad crash
+
+![Traffic accident in Simo on 15.5.2019](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10783906)
+
+Open image viewer
+
+Main road 4 was closed when two people died in a crash between a car and a lorry in Simo, south-west Lapland. Photo: Jutta Huovinen / Yle
+
+Two people have died in a bad crash in Lapland. The accident happened in the morning in Simo, on main road 4. In the accident, a car and a lorry drove head-on into each other.
+
+According to the police, the drivers of both the lorry and the car died. The authorities had to close the main road because of the accident. It has been closed for a long time on Wednesday.
+
+## A Monet painting sold for a top price
+
+![Painting displayed on the wall.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10784314)
+
+Open image viewer
+
+Claude Monet's painting Meules. Photo: Justin Lane / EPA
+
+In New York in the United States, 98 million dollars was paid for a painting by the French painter Claude Monet. Never before in the world has so much been paid for a Monet painting.
+
+The price is also very high for the whole art world. There is also a work from the same series of paintings in Finland. It is in the town of Mänttä, in the Serlachius Museum of Art.
+
+## Look Away did not reach the Eurovision final
+
+![Darude and Sebastian Rejman](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10783159)
+
+Open image viewer
+
+Darude and Sebastian Rejman's song Look Away did not reach the Eurovision final in Tel Aviv, Israel. Photo: Thomas Hanses
+
+Finland will not be seen in this year's Eurovision final. Finland's Eurovision representatives Darude and Sebastian Rejman performed yesterday, Tuesday, in the semi-final. Finland's performance of Look Away was not chosen for the final.
+
+The performance was about climate change. The Finnish representatives were disappointed.

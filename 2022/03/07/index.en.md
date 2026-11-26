@@ -1,0 +1,91 @@
+# Monday 7.3.2022 (radio)
+
+The Ukraine crisis. Corona patients in hospitals. Finland's Paralympic medals. Mosquitoes. Weather.
+
+## The Ukraine crisis
+
+![An old woman in a wheelchair with her helper, and other fleeing Ukrainians on a train station platform.](https://img.img-cdn.yle.fi/crop_extract,w_3104,h_1746,x_0,y_68/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-924449622484cd11ef7/1646560563)
+
+Open image viewer
+
+Ukrainian refugees. Photo: Sergei Dolzhenko / EPA
+
+The war in Ukraine continues. Russia attacked Ukraine 12 days ago.
+
+The UN, the United Nations, said on Monday that about 1.7 million Ukrainians have fled abroad because of the war. Most of them have fled to the neighbouring country Poland.
+
+Life in Ukraine is hard because of Russia's attack. Many Ukrainians have no water, electricity or heat.
+
+Ukrainian authorities estimated on Monday that about 650,000 Ukrainians are without electricity. Many homes have no heating.
+
+This week the weather in Ukraine gets colder. At night it is as cold as 15 degrees below zero, and the temperature stays below zero during the day too.
+
+## Corona patients
+
+![Monitoring screen of the intensive care unit of Turku University Hospital.](https://img.img-cdn.yle.fi/crop_extract,w_4927,h_2771,x_0,y_402/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89224661b9a74dd13f2/1639732039)
+
+Open image viewer
+
+Intensive care needs many nurses and equipment. Photo: Arash Matin / Yle
+
+The number of corona patients has risen in Finland's hospitals.
+
+There are now 845 patients with corona in hospital care. About 50 corona patients are receiving intensive care.
+
+Over 22,000 new coronavirus infections were recorded over the weekend.
+
+## Paralympic medals
+
+![Matti Suur-Hamari is in the lead in the Paralympic final.](https://img.img-cdn.yle.fi/crop_extract,w_7568,h_4257,x_0,y_968/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9247036225d11d1dd9e/1646645581)
+
+Open image viewer
+
+Matti Suur-Hamari crosses the finish line first in the final. Photo: OIS/Thomas Lovelock/Shutterstock/All Over Press
+
+Finland has won medals at the Beijing Paralympics.
+
+Matti Suur-Hamari won the gold medal in snowboard cross. In the final, the riders from the USA, Australia and China finished behind Suur-Hamari.
+
+![Santeri Kiiveri skis down a slalom slope.](https://img.img-cdn.yle.fi/crop_extract,w_5439,h_3059,x_0,y_283/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9246456225bd3ebef25/1646640499)
+
+Open image viewer
+
+Santeri Kiiveri. Photo: Getty Images
+
+Finland's Santeri Kiiveri was second best in the super combined competition and won a silver medal.
+
+The Paralympics are held in Beijing now, now that the Olympics have already ended.
+
+Para-athletes compete in the Paralympics. For example, Suur-Hamari lost his left leg in a motorcycle accident in 2009.
+
+Since then Suur-Hamari has won 2 Paralympic golds and 3 World Championship golds.
+
+## Mosquitoes
+
+![Mosquito on skin.](https://img.img-cdn.yle.fi/crop_extract,w_1664,h_936,x_0,y_156/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4659925a8c193f76ca0/1519130987)
+
+Open image viewer
+
+Photo: Miika Silfverberg
+
+Next summer there may be many mosquitoes in Finland. This is the estimate of biologist Kimmo Saarinen.
+
+There is a lot of snow in the whole of Finland now. When the snow melts in spring, many puddles may appear in the forests. That is a good thing for mosquitoes, which lay their eggs in water.
+
+If there are many mosquitoes, that is good news for birds. Birds like to eat mosquitoes.
+
+For people, mosquitoes are a nuisance. Mosquitoes suck people's blood, and a mosquito bite can irritate the skin.
+
+## Weather
+
+![Weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12347460)
+
+Open image viewer
+
+A snowfall area moves east across the country during Tuesday night.
+
+On Tuesday snow still falls in the east. Elsewhere it is dry, and in Lapland also sunny.
+
+After Tuesday the weather is dry and fairly sunny across the whole country.
+
+The temperature in the south is a little above zero, and in the north it is a little frosty.

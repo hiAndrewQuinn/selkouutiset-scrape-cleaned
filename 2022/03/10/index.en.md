@@ -1,0 +1,89 @@
+# Thursday 10.3.2022 (radio)
+
+The number of refugees from Ukraine is growing. Niinistö will talk with Putin tomorrow. Parliament is considering Finland's NATO membership. The corona pandemic is easing. Santeri Kiiveri has already won a second medal at the Paralympics. Weather.
+
+## Ukraine
+
+![A small girl sits on a mattress on the floor. She is photographed with her back to the camera. On the bed there is a pillow with a dog on it.](https://img.img-cdn.yle.fi/crop_extract,w_5576,h_3136,x_335,y_611/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922373621f0d0b7fdbf/1646202204)
+
+Open image viewer
+
+Ukrainian refugees have been housed in a sports hall in Poland. Photo: STELLA Pictures/ddp/abaca press
+
+The number of refugees from Ukraine is growing.
+
+The UN refugee agency says that 2.3 million people have already fled Ukraine abroad because of the war. Most of them have fled to Poland.
+
+Ukraine and Russia have again negotiated a ceasefire today. No agreement was reached on the matter.
+
+This time the negotiations were held in Turkey. At the negotiating table this time sat Russia's Foreign Minister Sergei Lavrov and Ukraine's Foreign Minister Dmytro Kuleba.
+
+## Call to Putin
+
+![President Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9263316229ce0d184ed/1646908387)
+
+Open image viewer
+
+President Sauli Niinistö. Photo: Silja Viitala / Yle
+
+Finland's President Sauli Niinistö will talk on the phone with Russia's President Vladimir Putin tomorrow. The initiative for the call came from President Niinistö.
+
+President Niinistö says that, for example, the French president has hoped that Niinistö keeps in contact with Putin.
+
+Yesterday German Chancellor Olaf Scholz talked on the phone with Putin. Scholz and Putin discussed, for example, the humanitarian situation in Ukraine.
+
+## NATO and Finland
+
+![Plenary chamber.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90986061fa9a9eb536e/1645625593)
+
+Open image viewer
+
+Parliament is discussing Finland's security this spring. Photo: Silja Viitala / Yle
+
+President Niinistö and the leadership of the parliamentary parties have discussed Finland's security policy. After the discussions Niinistö said that Finland's security solutions will be made after careful assessment.
+
+Prime Minister Sanna Marin said yesterday that Parliament will decide during the spring or early summer whether Finland will apply to become a member of the NATO military alliance. Before the decision, a broad report will be made on the effects of Russia's military actions on, for example, Finland's security and security of supply.
+
+President Niinistö said that it is also good to find out what Finns think about NATO membership.
+
+## Corona is easing
+
+![A nurse watches a corona patient through glass.](https://img.img-cdn.yle.fi/crop_extract,w_4354,h_2449,x_0,y_174/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-884329619ff71bcc671/1637874541)
+
+Open image viewer
+
+A nurse monitors a corona patient. Photo: Jaani Lampinen / Yle
+
+The worst phase of the corona pandemic is beginning to be over in Finland, estimates the National Institute for Health and Welfare.
+
+There are now just under 700 corona patients in hospitals. Although the number is large, only some of the patients have ended up in hospital precisely because of corona. Many of them need treatment for some other illness.
+
+The number of corona patients in intensive care has not grown.
+
+THL, however, reminds that the coronavirus will not disappear completely. That is why new epidemic waves may come in the future too.
+
+## Paralympic gold
+
+![Santeri Kiiveri celebrates the Paralympic gold medal.](https://img.img-cdn.yle.fi/crop_extract,w_2845,h_1600,x_0,y_663/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9263436229cfc750a8a/1646907449)
+
+Open image viewer
+
+Alpine skier Santeri Kiiveri. Photo: Getty Images
+
+Finland's Santeri Kiiveri has won gold at the Paralympics in Beijing.
+
+Kiiveri won the gold medal in the giant slalom. The race was close, because Kiiveri won by 0.04 seconds from the USA's Thomas Charles Walsh.
+
+This medal is already Kiiveri's second at these Games. On Monday he won silver in the super combined competition.
+
+## Friday's weather
+
+![Finland's weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12352764)
+
+Open image viewer
+
+Photo: Yle
+
+Tomorrow the weather is mostly dry. The sunniest is in the west and south-west.
+
+The temperature during the day is between zero and +6 degrees.

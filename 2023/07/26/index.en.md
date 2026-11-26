@@ -1,0 +1,69 @@
+# Radio Clear News Wednesday 26.7.2023
+
+Forest fires in the Mediterranean. Presidential elections. Fire on a ship. Weather.
+
+## Forest fires in the Mediterranean
+
+![Police and local residents putting out a forest fire in Palermo, Italy, on 25 July.](https://img.img-cdn.yle.fi/crop_extract,w_3072,h_1728,x_0,y_246/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114736364bfec6d8bf5f/1690311817)
+
+Open image viewer
+
+Forest fires are being put out in Palermo. Photo: EPA-EFE
+
+Forest fires are spreading in the countries of the Mediterranean. In Sicily, Italy, there are forest fires near the city of Palermo. In Palermo people are advised to stay indoors because of the forest fires.
+
+In Palermo more than 200 people have had to go to hospital because they breathed in smoke.
+
+In Sicily at least three people have died because of the forest fires.
+
+In Algeria in North Africa there are forest fires on the coast. More than thirty people have died in the forest fires in Algeria. Many of the dead are soldiers who tried to put out the fires.
+
+In Croatia, forest fires are being put out near the city of Dubrovnik. There are many tourists in Dubrovnik.
+
+Intense heat is making the forest fires worse.
+
+## Presidential elections
+
+![The presidential official residence](https://img.img-cdn.yle.fi/crop_extract,w_5254,h_2953,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-83612592edae8d6bf2/1496242992)
+
+Open image viewer
+
+The president's official residence is located in Mäntyniemi in Helsinki. Photo: Toni Määttä / Yle
+
+There are only half a year left until the presidential election. Although there is little time, not all the big parties yet have their own presidential candidate.
+
+The National Coalition Party is the biggest party in Parliament, but the National Coalition Party does not yet have a candidate. The SDP is also a big party, but the SDP will only decide on its candidate in the autumn.
+
+Researchers think it is bad if parties have their presidential candidates only a little before the election.
+
+The world has changed a lot, now that Finland has joined NATO and Russia is waging war in Europe. The presidential candidates must properly discuss these matters before the presidential election.
+
+Researchers say that there is not enough time for election debates if the parties nominate candidates too late.
+
+## Fire on a ship
+
+![Map showing where Ameland is located in the Netherlands.](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_607,x_0,y_84/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114743264c0b53044b03/1690350957)
+
+Open image viewer
+
+A cargo ship is burning near the coast of the Netherlands. Photo: Henrietta Hassinen / Yle, MapCreator, OpenStreetMap
+
+A large cargo ship is burning at sea near the Dutch coast. It has 3,000 cars on board.
+
+The fire on the ship broke out last night. The fire spread so fast that some crew members jumped from the ship into the sea. One person died.
+
+The fire on the ship may last for many days. It may have started in an electric car.
+
+The cargo ship was on its way from Germany to Egypt.
+
+## Weather
+
+![Weather map.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114786364c12eb12b080/1690382047)
+
+Open image viewer
+
+Photo: Yle
+
+On Thursday it rains almost everywhere in the country, but not on the south coast.
+
+The temperature is 17 to 23 degrees.

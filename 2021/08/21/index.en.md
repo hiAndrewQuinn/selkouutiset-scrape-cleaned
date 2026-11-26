@@ -1,0 +1,72 @@
+# Saturday 21.8.2021
+
+The situation in Afghanistan. Corona vaccinations. Summer holidays. Heavy rain. Weather forecast.
+
+The TV plain-language news is on summer break. The plain-language news continues on TV again on Monday 23.8.
+The radio plain-language news is made every day, also in the summer.
+
+## Finns in Kabul
+
+![Foreign Minister Pekka Haavisto.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1993,x_0,y_166/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8447546120eb1170a0e/1629553407)
+
+Open image viewer
+
+Foreign Minister Pekka Haavisto. Photo: Lauri Heino / Lehtikuva
+
+Finnish soldiers have arrived at Kabul airport in Afghanistan. The soldiers protect the evacuation of Finns from Kabul. It has not been said how many soldiers went to Kabul.
+
+Finland has already evacuated 50 people from Afghanistan. Foreign Minister **Pekka Haavisto** says that Finland has evacuated the staff of the Finnish embassy and people who have worked for Finland.
+
+Finland continues the evacuations. Finland now has 5 Finnish officials at Kabul airport helping with the evacuation.
+
+## Taking it easy after a corona vaccination
+
+![Conscripts loading a car](https://img.img-cdn.yle.fi/crop_extract,w_960,h_540,x_0,y_89/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-843731611e0e882d978/1629359958)
+
+Open image viewer
+
+The Defence Forces do not do heavy work right after vaccination. Photo: Karelia Brigade
+
+The Finnish Institute for Health and Welfare recommends that after a corona vaccination it is good to avoid heavy physical exertion.
+
+That is why in the Finnish army soldiers are released from heavy tasks for 3 days after the vaccination.
+
+The recommendation has been given because in the USA young men have sometimes had heart muscle inflammation after vaccination. It is very rare. The recommendation has been given to be on the safe side.
+
+## No summer holidays taken
+
+![Summer cottage in Ruovesi](https://img.img-cdn.yle.fi/crop_extract,w_2883,h_1622,x_0,y_86/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5196855bd713ed19657/1540822074)
+
+Open image viewer
+
+Many Finns like to be on holiday at a summer cottage. Photo: Arja Lento
+
+Not all Finns take their summer holiday from work. Some employees want the holiday to be paid to them in money.
+
+In some companies there is a practice that holidays are not taken. Holidays are often left untaken, for example, in law firms, advertising agencies and restaurant companies.
+
+The South Finland Regional State Administrative Agency says that the situation is a problem. The law says that a person must have at least a 12-day holiday from work. Not all holiday may be exchanged for money.
+
+## Heavy rain in Helsinki
+
+![Pedestrians in the rain in Ruoholahti in Helsinki on 21 August.](https://img.img-cdn.yle.fi/crop_extract,w_5302,h_2982,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8447336120bdf4732d6/1629535782)
+
+Open image viewer
+
+Water fell quickly in large amounts. Photo: Teemu Salonen / Lehtikuva
+
+The heavy rain has caused a lot of work for the rescue department in Helsinki. In Helsinki it rained very much and very quickly in the morning.
+
+Water flooded, for example, into house cellars. Water also flooded roads and construction sites. The rescue department got many alarms to help.
+
+Thunder also caused a power cut. Because of that, some of Helsinki's district heating plants stopped.
+
+## Weather
+
+![Sunday's weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12067888)
+
+Open image viewer
+
+On Sunday it rains in many areas.
+
+On Sunday the weather is quite cloudy. In many areas there will be rain. In the western part of the country and in Northern Lapland it is dry, that is, no rain falls. The temperature is between 12 and 18 degrees. In Lapland it is cooler.

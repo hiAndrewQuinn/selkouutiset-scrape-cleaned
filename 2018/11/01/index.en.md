@@ -1,0 +1,67 @@
+# Thursday 1.11.2018 (radio)
+
+Pekka Haavisto is running for chair of the Greens. A Finnish e-sports player has earned over a million euros in a year. Europe's tallest flagpole has been put up in Hamina. There is a lot of heat in the oceans.
+
+## The candidates to lead the Greens
+
+![Pekka Haavisto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10474852)
+
+Open image viewer
+
+Pekka Haavisto. Photo: Jarno Kuusinen / AOP
+
+MP Pekka Haavisto is running for chair of the Greens. Haavisto announced his candidacy on Twitter.
+
+Haavisto is the second candidate running for chair of the Greens. MP Outi Alanko-Kahiluoto has also said that she wants to lead the Greens.
+
+The Greens will choose a successor to chair Touko Aalto on Saturday. Aalto has left the post because of severe exhaustion.
+
+## An e-sports player's income of millions
+
+![Lasse Urpalainen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9773424)
+
+Open image viewer
+
+MATUMBAMAN Lasse Urpalainen. Photo: Richard Stanway / TeamLiquidPro
+
+A record has been set in Finnish e-sports, that is, electronic sports.
+
+For the first time, a Finnish e-sports player has earned over a million euros. E-sports world champion Lasse Urpalainen earned a total of 1.8 million euros last year.
+
+The income of millions is mainly prize money. 23-year-old Urpalainen is known in e-sports by the name MATUMBAMAN.
+
+Urpalainen pays his taxes to Finland. For example, many ice hockey players and Formula drivers live abroad and pay their taxes there.
+
+E-sports games are often entertainment games that are played on a computer or a games console.
+
+## Hamina's big flagpole
+
+![A 100-metre white flagpole lying at full length on a sandy field in Hamina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10486746)
+
+Open image viewer
+
+The 100-metre-long flagpole was difficult to put up. Photo: Pyry Sarkiola / Yle
+
+A big flagpole has been put up in Hamina in Eastern Finland. The flagpole is the tallest in Europe. It is 100 metres high.
+
+Putting it up did not succeed on Wednesday because the wind was too strong. Now the pole is standing. 2 cranes were needed to put it up.
+
+The flagpole has been assembled from 11 parts. They were made in St Petersburg in Russia.
+
+## The heat of the oceans
+
+![A wavy sea](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10486907)
+
+Open image viewer
+
+The oceans are heat stores. Photo: B. Jack Pan / Scripps Institution of Oceanography
+
+A new study says that there is a lot of heat in the oceans.
+
+There is 60 percent more heat in the oceans than was thought. That means that global warming is clearly already far along. The heat has not disappeared into space after all, as had been hoped.
+
+Information about the heat of the seas has been incomplete because it has been collected in a reliable way for only about 10 years.
+
+The American Princeton University carried out an international study. In it, the researchers used a new kind of research method. It gives precise information about the temperatures of sea water.
+
+The new information gives a frightening picture of how fast global warming is.

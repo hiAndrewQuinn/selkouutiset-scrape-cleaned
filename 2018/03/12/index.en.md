@@ -1,0 +1,63 @@
+# Monday 12.3.2018 (radio)
+
+Finland won gold at the Paralympics. Finnish broiler chicken meat can also contain harmful bacteria. Free upper secondary education goes to Parliament for consideration. Disability cards can be applied for in May.
+
+Listen
+
+You can read the news below at the same time.
+
+## Finland won gold at the Paralympics
+
+![Matti Suur-Hamari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10112950)
+
+Open image viewer
+
+The gold medal was the first for Matti Suur-Hamari and for the whole Finnish team at the Paralympics in South Korea. Photo: Riku Valleala / Lehtikuva
+
+Finland has won its first gold medal at the Paralympics in South Korea.
+
+Matti Suur-Hamari from Rovaniemi won gold in snowboard cross. In the final, the Finn beat the American Keith Gabel, who fell early in the run.
+
+Suur-Hamari will still compete in the slalom on Friday.
+
+## Broiler chicken can contain harmful bacteria in Finland too
+
+![chicken meat being cut](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10112004)
+
+Open image viewer
+
+When you handle broiler chicken meat, you must be careful and wash your hands and the chopping board well. It is a good idea to cut chicken on its own board. Photo: AOP
+
+There are a lot of harmful bacteria in broiler chicken meat. The bacteria can cause infections that familiar antibiotics do not cure. Such bacteria are ESBL bacteria.
+
+A report by the European food safety authority says that the amount of harmful bacteria in broiler chicken meat has increased. They are ordinary gut bacteria, but they have developed resistance to antibiotics. The problem is caused by antibiotics being used too much.
+
+Finnish broiler chicken meat is the cleanest in the report. Still, in Finland more than 20 per cent of broiler chicken meat contains ESBL bacteria. In Belgium, for example, these bacteria are in practically all broiler chicken meat.
+
+The ways to fight the bacteria are old: meat and vegetables are cut on different chopping boards, hands are washed well, and the oven is heated hot. All this is more and more important. Researchers predict that in 2050, 10 million people in the world will die of various infections if antibiotics no longer work.
+
+## Free upper secondary education moved forward to Parliament
+
+![A pile of books on a checkout counter.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9764450)
+
+Open image viewer
+
+Studying in upper secondary school is expensive because textbooks cost a lot. Photo: Jussi Mansikka / Yle
+
+Free upper secondary education goes to Parliament for consideration. A citizens' initiative reached 50,000 signatures at the weekend.
+
+The initiative demands that people should not have to pay for upper secondary studies. For example, upper secondary school costs a young person thousands of euros, because books are expensive. The costs of vocational studies are different in different fields.
+
+One of the starters of the initiative was Save the Children Finland.
+
+## EU disability cards can be ordered in May
+
+![Screenshot from the website of the Service Foundation for People with an Intellectual Disability. Symbol and text: Equality, inclusion, activity - disability card.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8834983)
+
+Open image viewer
+
+The EU disability card comes into use in Finland in May. The card is applied for from Kela, and after that the client orders the card from its supplier.
+
+The disability card is a voluntary card that costs money. It helps disabled people communicate and take part in Finland and other EU countries. By showing the card, a disabled person can ask for help, for example on journeys, at events and in services.
+
+For a disability card, a decision granted by the municipality or Kela is needed. In Finland there are about 300,000 people who have the right to a disability card.

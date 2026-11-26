@@ -1,0 +1,61 @@
+# Saturday 3.3.2018 (radio)
+
+Väyrynen was expelled from the Citizens' Party. The archbishop wants a discussion about the church. A big outage in Nordea's services. Following the spring begins.
+
+## The Citizens' Party expelled Paavo Väyrynen
+
+![Paavo Väyrynen gestures with his hands.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10100685)
+
+Open image viewer
+
+Paavo Väyrynen was expelled from the party that he founded himself. Photo: Aleksi Tuomola / Lehtikuva
+
+The Citizens' Party has expelled MEP Paavo Väyrynen from the party. According to the Citizens' Party, the reason for the expulsion is, for example, Väyrynen's use of money.
+
+In the party's opinion, money has been used wrongly. The Citizens' Party also wanted to expel Väyrynen because Väyrynen is trying to become chair of another party, the Centre Party. The chair of the Citizens' Party, Sami Kilpeläinen, says that the misuse of money is linked to Väyrynen's presidential election campaign.
+
+Paavo Väyrynen says that the expulsion decision is illegal. In his opinion, the reasons for the expulsion are fabricated, that is, made up.
+
+MEP Paavo Väyrynen founded the Citizens' Party himself. The party was founded 2 years ago.
+
+## The new archbishop wants to discuss the church
+
+![Tapio Luoma](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10066008)
+
+Open image viewer
+
+Archbishop Tapio Luoma wants to discuss the role of the church. Photo: Yle
+
+The new leader of the Lutheran Church of Finland, Archbishop Tapio Luoma, wants to discuss the tasks of the church. The church chose Luoma as archbishop on Thursday.
+
+Tapio Luoma visited Yle's morning TV. He said that the discussion about, for example, marrying gay couples will certainly continue.
+
+## Big service outages at Nordea
+
+![A man uses Nordea's online bank.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10095533)
+
+Open image viewer
+
+Nordea's online bank is out of use for many hours on Sunday. Photo: Henrietta Hassinen / Yle
+
+A large part of Nordea Bank's services do not work on Sunday. For example, the online bank cannot be used. Many Nordea payment cards do not work properly for several hours.
+
+According to Nordea, the disruptions are caused by an exercise. The bank is practising how it can work when something unexpected happens.
+
+There are outages and disruptions in the services on Sunday between four in the morning and 16:00. There are disruptions in Nordea's services abroad too.
+
+## The coming of spring is being followed again
+
+![A blueberry is in flower.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8873601)
+
+Open image viewer
+
+This year, the Spring Watch looks closely at when the blueberry flowers in different parts of Finland. Photo: Ismo Pekkarinen / AOP
+
+Finns are again invited to follow how spring moves forward. The Finnish Nature League's Spring Watch campaign has started again.
+
+Spring Watch means that everyone can look for signs of spring in nature and report them to the Nature League. The league's website has a place where you can report, for example, sightings of the first ants.
+
+This year there are 5 species that are followed really closely. They are the hedgehog, the bat, the flowering of the blueberry, the grass snake and the common swift.
+
+Spring Watch continues until early June. Sightings can be reported at kevatseuranta.fi.

@@ -1,0 +1,59 @@
+# Friday 3.3.2017 (radio)
+
+There has been a strike in the aviation sector. The backlog at Kela is driving people to bread queues. The municipal elections are soon. Finland is helping with return flights of asylum seekers.
+
+## There is industrial action in the aviation sector
+
+![It is calm at the airport.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9490704)
+
+Open image viewer
+
+There was a short strike at Helsinki-Vantaa Airport on Friday, when the aviation union IAU held industrial action. Photo: Tiina Länkinen / Yle
+
+On Friday there was a short strike in the aviation sector at Helsinki-Vantaa Airport. It slowed down, for example, security checks and baggage handling. Passengers were warned about queues.
+
+It has been agreed that there will be mediation in the dispute again on Tuesday, unless the situation changes over the weekend.
+
+On Monday morning there may be a new strike. It will affect Helsinki-Vantaa and other big airports.
+
+## The Kela backlog is putting people in a tight spot
+
+The backlog in Kela's services continues. Applications for social assistance have moved from municipalities to Kela, and payments are late.
+
+Many people have gone to get free food from bread queues, because their money has run out. In Helsinki, for example, maybe 200 more people than usual visit the bread queues.
+
+Kela promises that the processing of applications will run smoothly in April.
+
+## The municipal elections will be held in April
+
+![Turku city council](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5871903)
+
+Open image viewer
+
+The Turku city council chamber. Photo: Sami Tammi/YLE
+
+In Finland you can soon vote in elections. There are municipal elections in spring. In the municipal elections a council is chosen for every municipality in Finland.
+
+The council is the municipality's own parliament. The municipal council decides on the municipality's money matters, for example how schools operate. It also takes care of children's day care and how the municipal library works. The council also decides on sports facilities, for example swimming halls.
+
+Municipal election day is Sunday 9 April. If you want, you can vote already before election day in advance voting. Finland has almost 900 places where you can vote in advance.
+
+A foreigner can also vote in the municipal elections if they have had a home municipality in Finland for 2 years.
+
+If you have the right to vote, you get a notice of your voting right in the post. More information about the municipal elections is available at selkokeskus.fi.
+
+## Return flights are monitored
+
+![A monitor of humane removal from the country.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9477001)
+
+Open image viewer
+
+Return flight monitors make sure that the asylum seeker's human rights are not put at risk. The police must not use excessive force on the flight. Sedatives may be given only if the asylum seeker gives permission. Photo: Markku Pitkänen / Yle
+
+Other EU countries have asked Finland for help with return flights of asylum seekers. The flights return people  who have not got asylum.
+
+For example, last year the police removed over 6,000 people from the country.
+
+The monitors watch  that human rights are respected in the returns. The monitors follow the person all the way to the country of departure, for example Afghanistan. A monitoring trip can last many days.
+
+The monitors write a report about the trip, which can be used to improve the police's work. Monitoring became mandatory on Frontex return flights at the start of the year.

@@ -1,0 +1,75 @@
+# Wednesday 24.1.2018 (radio)
+
+Snowfall has disrupted traffic. Prosecutor General Matti Nissinen may be dismissed. Vocational education is changing. Finns are developing alternatives to plastic. A new cold record for this winter was set on Wednesday morning.
+
+## Snowfall
+
+![A pedestrian in the snowfall.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10038160)
+
+Open image viewer
+
+The snowfall disrupted traffic. Photo: Derrick Frilund / Yle
+
+Snowfall has disrupted traffic on Wednesday.
+
+At Helsinki-Vantaa airport, flights were cancelled because of the bad weather. Some of the flights were late.
+
+Many trains were also late on Wednesday. The snowfall caused problems for the equipment on the railways.
+
+In Helsinki the trams were also late because of the snowfall.
+
+## The Prosecutor General
+
+![Matti Nissinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10029901)
+
+Open image viewer
+
+Prosecutor General Matti Nissinen. Photo: Markku Pitkänen / Yle
+
+The news has again told about prosecutor Matti Nissinen. Nissinen is Finland's most important prosecutor, that is, the Prosecutor General.
+
+Nissinen may get fired. The Ministry of Justice thinks that Nissinen cannot continue in the work of a prosecutor, because he has been sentenced to a fine.
+
+Nissinen ordered training for his own workplace. The training was bought from a company that was owned by Nissinen's brother. So Nissinen got a fine.
+
+The Finnish government will decide on Thursday whether it dismisses Nissinen.
+
+## Vocational education
+
+![Antonia Korhonen and Taneli Ylinen assess a student's work.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10035838)
+
+Open image viewer
+
+Hairdressing teaching at Stadin ammattiopisto (Helsinki Vocational College). Photo: Mårten Lampén / Yle
+
+Vocational education is changing. A new law came into force at the beginning of the year. For example, students now learn more at workplaces than before.
+
+The authorities have assessed the new vocational education for the first time. They say that the direction is right.
+
+However, the assessors suggest that cooperation between schools should be increased. They also hope for money to train teachers and workplace instructors.
+
+## Alternatives to plastic
+
+![Jaakko Kaminen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10036621)
+
+Open image viewer
+
+Jaakko Kaminen, the head of Welmu International, presents a new kind of cling film. Photo: Kimmo Hiltunen / Yle
+
+Plastic waste is a big problem. Plastic packaging in particular pollutes nature.
+
+The Technical Research Centre VTT got an award at the World Economic Forum on Tuesday. The Finnish VTT makes packaging material from pulp that can replace plastic. Pulp is made from wood. So VTT's new material does not stay in nature like plastic does.
+
+Finnish companies are also developing new packaging materials. In Finland, for example, a cling film has been developed that disappears completely in nature. Coffee cups and hamburger packaging have been made from cardboard, that is, thick paper. They have no plastic at all.
+
+## Cold record
+
+![Ritakoski](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10038487)
+
+Open image viewer
+
+On Wednesday morning there was still hard frost. Photo: Petri Kivimäki /Yle
+
+This winter's cold record was beaten on Wednesday morning. In the far north, in Nellim in Inari, it was minus 36.8 degrees.
+
+In the next few days the cold record will not be beaten. The weather will get warmer, and there will be above-zero temperatures in almost the whole country. There will be frost only in Lapland.

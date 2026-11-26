@@ -1,0 +1,67 @@
+# Wednesday 15.1.2020 (radio)
+
+There are still problems in elderly care. Hundreds of giant lorries are already driving on Finland's roads. Catering services throw away a lot of food. The National Archives want to find out the fate of Finns in the Soviet Union.
+
+## Problems in elderly care
+
+![Customers of the Pauliina care home had to eat from disposable dishes because of a burst pipe.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10885832)
+
+Open image viewer
+
+Authorities still receive many notifications about problems in elderly care homes. Photo: Toni Pitkänen / Yle
+
+The problems in elderly care continue, even though a year has already passed since the care home scandal.
+
+Last January it came out that many elderly care homes had a lot of problems. The authorities even stopped the operations of 2 care homes, because the safety of the patients was in danger.
+
+The authorities still receive many notifications, especially that care homes have too few carers. Notifications are also made about the quality of care, for example.
+
+A year ago, notifications came from the relatives of the elderly. Now the notifications are made especially by care home workers.
+
+Recently notifications about problems in home care for the elderly have increased.
+
+## Giant lorries on Finland's roads
+
+![A giant lorry turns nimbly at junctions, because the rear axles of the trailers help the turn.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8495124)
+
+Open image viewer
+
+Giant lorries are longer than ordinary lorries. Photo: Erno Serkosalmi / Yle
+
+Giant lorries are becoming more common on Finland's traffic.
+
+The Finnish Transport and Communications Agency Traficom says that perhaps about 300 giant lorries are driving on Finland's main roads. Giant lorries mostly drive long freight routes.
+
+Giant lorries are longer than ordinary lorries. A giant lorry can be as long as about 34 metres.
+
+## Food waste from catering services
+
+![Efforts are being made to find ways to fight food waste in schools.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10711410)
+
+Open image viewer
+
+The most food waste comes from canteen restaurants. Photo: Joonas Nieminen / Yle
+
+Catering services throw away over 60 million kilos of food every year.
+
+A new study by the Natural Resources Institute Finland, Luke, says that the canteen restaurants, that is, the buffets, produce the most food waste. Luke said that food waste comes especially from canteen restaurants that offer several dishes every day.
+
+About 10 per cent of the food in canteen restaurants ends up as waste.
+
+According to Luke, restaurants often make and order extra food to be on the safe side, so that the food does not run out part-way through.
+
+## Finns in Stalin's purges
+
+![Josef Stalin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11158968)
+
+Open image viewer
+
+Soviet leader Josef Stalin. Photo: AOP
+
+The National Archives want to find out the fate of Finns in the Soviet Union in Stalin's time. The National Archives propose that the fate of Finns be investigated in a 5-year research project.
+
+The National Archives want to study the period from the Russian Revolution of 1917 to 1953, when Stalin died.
+
+The aim of the research is to create a database of Finns who lived in Russia before the revolution. The database will gather information about what happened to them after the revolution.
+
+Millions of people died while Josef Stalin led the Soviet Union. It is thought that perhaps as many as 20,000 Finns died in Stalin's purges.

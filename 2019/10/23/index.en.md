@@ -1,0 +1,87 @@
+# Wednesday 23.10.2019 (radio
+
+British police found 39 dead people in a lorry. Finland's membership of the European Union cost Finland 580 million euros last year. Looking for a parking space takes working time from home care workers. Many people have visited the Tripla shopping centre. The clocks are turned to winter time at the weekend, and at the same time the weather gets colder.
+
+## Bodies in the lorry.
+
+![Authorities investigating the lorry in Grays, England, on 23 October.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11033163)
+
+Open image viewer
+
+Police are investigating the lorry in England. Photo: Reuters
+
+Sad news has come from Britain. British police found 39 dead people in a lorry.
+
+The lorry was found near London, in Essex. The vehicle was in an industrial area.
+
+The police have started murder investigations. The police have arrested the driver of the lorry. The driver is from Northern Ireland.
+
+The police do not yet know who the dead are or what country they come from. The police will continue their investigation.
+
+## EU payments
+
+![An EU flag painted on the face of a young woman.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10134733)
+
+Open image viewer
+
+Photo: Stephanie Lecoqo / EPA
+
+Finland's membership of the European Union cost Finland 580 million euros last year. That is how much more Finland paid to the EU than it got money from the EU.
+
+Hungary, Lithuania and Latvia get the most from the EU, if EU funding is compared with the countries' incomes.
+
+## Parking problems of home care
+
+![Hands of a middle-aged person and an elderly person.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10404679)
+
+Open image viewer
+
+Parking problems can reduce a home care nurse's time with an elderly person. Photo: Pixabay
+
+Looking for a parking space takes working time from home care workers. The time is taken away from nursing work.
+
+The situation may improve when the new Road Traffic Act comes into force. The intention is that the new law will come into force next summer.
+
+The new law is to be written so that home care workers can leave the car near the customer's home. They also do not need to pay a parking fee.
+
+## Tripla attracts interest
+
+![Inside the new Tripla shopping centre.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11023568)
+
+Open image viewer
+
+The Tripla shopping centre in Pasila, Helsinki. Photo: Petteri Juuti / Yle
+
+Helsinki's new shopping centre Tripla is interesting to people. During the first 4 days, more than half a million people visited Tripla. Tripla opened last Thursday.
+
+There are about 250 shops in Tripla. Tripla is in the same place as Pasila's new station.
+
+## Autumn is ending
+
+![Autumnal Näsinkallio in Tampere.](https://img.img-cdn.yle.fi/crop_extract,w_2400,h_1350,x_0,y_124/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5977545d9c82bd44cc1/1570538222)
+
+Open image viewer
+
+The autumn colours will soon be gone. Photo: Jussi Mansikka / Yle
+
+Autumn is nearly over.
+
+On the night between Friday and Saturday, a storm will move across Finland. The wind will blow so hard that the colourful leaves of the trees will fall.
+
+When the wind has blown the autumn colours away, the weather will get colder. The temperature will drop across Finland at the weekend. In the south the temperature is at zero, elsewhere it is below freezing.
+
+In Northern Finland, a thick layer of snow may fall on Saturday. Elsewhere it will be fair, that is, no snow or rain will fall.
+
+The weather may be so cold that it may be a good idea to change to winter tyres next week.
+
+## Winter time begins
+
+![A clock is being moved.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11032026)
+
+Open image viewer
+
+Next weekend an extra hour will be added to Sunday morning. Photo: Ismo Pekkarinen / AOP
+
+Winter is approaching. You can also notice it from the fact that on the night between Saturday and Sunday, we switch from summer time to winter time, that is, normal time.
+
+Then the clocks are moved one hour back. The end of summer also has some good in it: on Sunday morning you can sleep one hour longer.

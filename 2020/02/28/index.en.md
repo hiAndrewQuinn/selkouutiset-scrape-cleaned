@@ -1,0 +1,73 @@
+# Friday 28.2.2020 (radio)
+
+Refugees hope that the border from Turkey to Europe will open. The coronavirus has spread to new countries. There are many ways to try to avoid the coronavirus. Kalevala Day was celebrated on Friday.
+
+## The border between Turkey and the EU
+
+![Migrants leaving in a rubber boat from Turkey to Greece.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11233895)
+
+Open image viewer
+
+Refugees at the border between Turkey and the EU. Photo: AFP
+
+Turkey may be letting refugees into Europe. This kind of information was going around on Friday. However, Turkey says that the information is not true.
+
+There are about 4 million refugees in Turkey who have fled the war. The EU does not want the refugees to continue from Turkey to the European side.
+
+The European Union has an agreement with Turkey that Turkey will not let refugees into the EU area. Turkey says that it is keeping to the agreement.
+
+There are already refugees at the border between Turkey and the EU who hope that the border to Europe will open.
+
+## The coronavirus is spreading
+
+![The face of a woman wearing a protective face mask.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11234071)
+
+Open image viewer
+
+A woman in Belarus. Photo: Tatjana Zenkovich / EPA
+
+The coronavirus is spreading around the world. In Europe the virus has now also spread to the Netherlands, Lithuania and Belarus.
+
+In Africa the coronavirus is now also south of the Sahara, after a coronavirus infection was found in Nigeria.
+
+New Zealand also reported the country's first coronavirus infection.
+
+In total, more than 80,000 people have already got the coronavirus infection. Most of them are in China.
+
+## Protecting yourself from the coronavirus
+
+![Washing hands.](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5946925d8e2e2859e92/1569599120)
+
+Open image viewer
+
+It is good to wash your hands with soap often. Photo: Esa Huuhko/Yle
+
+In Finland there is not much coronavirus. On Friday evening the third coronavirus case in Finland was found.
+
+The patient is in Helsinki, and he got the infection from Italy. There are quite many coronavirus cases in Italy.
+
+It is good to remember that there are many ways to try to avoid the coronavirus.
+
+THL, the National Institute for Health and Welfare, says that the most important thing is to wash your hands with soap often enough. Hands should be washed every time you come in from outside. Hands must also be washed after coughing, sneezing and blowing your nose.
+
+It is better to cough and sneeze into a paper tissue than into a cloth handkerchief. After use, the tissue must be thrown away.
+
+You should also not touch your own face, because there may be virus on your hands. Hands stay cleaner if, for example, you keep gloves in your hand on the bus.
+
+Nodding your head is now a better way to greet another person than shaking hands.
+
+Information about the coronavirus in plain Finnish
+
+## Kalevala Day
+
+![Old Kalevala books with leather covers.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11233822)
+
+Open image viewer
+
+The Kalevala is Finland's national epic. Photo: Antti Aimo-Koivisto / Lehtikuva
+
+Kalevala Day was celebrated on Friday. The Kalevala is Finland's national epic.
+
+The Kalevala contains old folk poems. Elias Lönnrot collected the folk poems on the journeys that he made in the 1800s.
+
+The first version of the Kalevala was published in 1835. The Kalevala became such an important part of Finnish culture that Kalevala Day is also the day of Finnish culture.

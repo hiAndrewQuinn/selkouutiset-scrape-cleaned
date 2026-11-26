@@ -1,0 +1,71 @@
+# Tuesday 22.10.2019 (radio)
+
+The postal strike may start next month. Employment has improved slightly again. Immigrants are being trained in North Savo directly for companies' needs. Writer and poet Aila Meriluoto has died.
+
+Listen
+
+You can read the news at the same time below.
+
+## PAU may start a strike in November
+
+![Sara Luostainen / postal worker / postal worker / Pasila 11.10.2019](https://img.img-cdn.yle.fi/crop_extract,w_4886,h_2748,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5993205da09844e484e/1570805868)
+
+Open image viewer
+
+Postal workers may be on strike in November. Photo: Jouni immonen / Yle
+
+The postal strike may start next month.
+
+The employees' union PAU, that is, the Union of Postal and Logistics Sector, is organising a wide industrial action. PAU wants to speed up the negotiations on the collective agreement. The collective agreement decides on things such as pay and working hours.
+
+PAU says that Posti wants to move postal workers to a cheaper agreement. The employers' organisation Palta says that Posti's competitiveness must be secured.
+
+Posti's delivery, processing and transport will be on strike for 2 weeks in November, if no agreement is found before then. The strike may start on Monday 11 November.
+
+## Employment has improved
+
+![café](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_314/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5020395b6adcb2cfa7c/1533730086)
+
+Open image viewer
+
+Employment has improved slightly, but there is still a way to go to the government's goal. Photo: Henrietta Hassinen / Yle
+
+Employment has improved slightly again.
+
+In September there were 40,000 more people at work than in September last year. Statistics Finland says that the employment rate was 72.8 percent.
+
+The unemployment rate was 6.7 percent.
+
+The government's goal is that the employment rate is 75 percent by the end of 2023.
+
+## Immigrants to be trained for companies in North Savo
+
+![doing pipe renovation work](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9840984)
+
+Open image viewer
+
+In all professions and jobs, good Finnish language skills are not essential. Photo: AOP
+
+Immigrants will start being trained in North Savo directly for companies' needs. Involved are the vocational institutes of Savo and Upper Savo, and the vocational institute for the cultural sector, Ingmanedu.
+
+The teaching is aimed at fields where there is a shortage of workers. In addition, in these fields good Finnish language skills are not an absolute requirement.
+
+Often, immigrants' studies and finding work have been slowed down by poor Finnish. Now the strict language requirements are going to be relaxed. Teacher Jyri Kokkonen from the Savo vocational institute says that you will learn the language if you have the enthusiasm to work.
+
+Cooperation is expected from companies. For example, the company Jokiväri already has 3 immigrants working for it. The firm is doing pipe renovation work in an apartment block in Kuopio.
+
+## Poet Aila Meriluoto has died
+
+![Writer and poet Aila Meriluoto](https://img.img-cdn.yle.fi/crop_extract,w_2816,h_1584,x_0,y_246/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5839595d566f248ccc9/1565945675)
+
+Open image viewer
+
+Writer Aila Meriluoto. Photo: Yle/Atro Lahtela
+
+The Finnish poet and writer Aila Meriluoto has died. She was 95 years old. Meriluoto was a central figure in the change of Finnish lyric poetry.
+
+Meriluoto's first poetry collection was Lasimaalaus, in 1946. Meriluoto published many poetry collections and a few novels. She also translated a lot of literature.
+
+Meriluoto received many awards. She was given 3 State Literature Prizes and the Pro Finlandia medal.
+
+Aila Meriluoto is remembered for her marriage to the poet Lauri Viita. Meriluoto wrote a biography of Viita.

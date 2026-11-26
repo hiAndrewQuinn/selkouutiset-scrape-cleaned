@@ -1,0 +1,71 @@
+# Saturday 25.1.2020 (radio)
+
+The Kurdish administration is ready to put foreign Isis fighters and the women of the al-Hol camp on trial. Finns were asked what prevents them from finding work. Finland's credit rating has fallen slightly. Denmark is trying a 4-day working week.
+
+## Kurdish administration trials and Isis fighters
+
+![Prisoners in a cramped cell.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11175616)
+
+Open image viewer
+
+Yle visited a prison in the Kurdish area that holds over 5,000 Isis prisoners. Photo: Antti Kuronen / Yle
+
+The Kurdish administration is ready to put foreign Isis fighters and the women of the al-Hol camp on trial.
+
+The Kurdish administration of north-east Syria has given information about its legal measures. Charges can be brought on the spot without an international criminal court.
+
+Women from al-Hol may end up in court if they are suspected of crimes or if they have taken part in Isis activities.
+
+Yle has interviewed a Kurdish politician. He says that the trials are going to be held in co-operation with the home countries of the accused. That is why negotiations are also going to be held with Finland. There are Finnish women and their children at al-Hol.
+
+## Finns' views on the obstacles to employment
+
+![Two men working at a machine workshop.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11146910)
+
+Open image viewer
+
+Photo: Mårten Lampén / Yle
+
+Finns have been asked what things prevent employment, that is, getting a job.
+
+In Finland not everyone wants to move to another area for work. 80 per cent of Finns say that this is the biggest obstacle to employment.
+
+The Municipal Sector Development Foundation asked Finns about obstacles to employment. Over 70 per cent consider the reason to be that there is no work in their own area. In addition, many have been trained for the wrong work.
+
+Only about 30 per cent believe that too high wage costs are an obstacle to employment.
+
+The majority of the unemployed and students would rather choose unemployment than any job. In contrast, the majority of all respondents are ready to take any job if the alternative is unemployment.
+
+## Finland's credit rating fell
+
+![The office of the credit rating agency Fitch Ratings in New York.](https://img.img-cdn.yle.fi/crop_extract,w_4738,h_2665,x_0,y_267/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6351605e2c082d30735/1707557159)
+
+Open image viewer
+
+The credit rating agency Fitch Ratings changed the outlook for Finland's credit rating from positive to stable on Friday. In the file picture, the company's office in New York. Photo: Andrew Gombert / EPA
+
+Finland's credit rating has fallen slightly. A credit rating is an assessment of how well a country is doing with money matters.
+
+The credit rating agency Fitch Ratings has lowered Finland's credit rating, and now the rating is stable. Earlier the rating was positive. The credit rating is, however, still at the level AA+.
+
+One reason for the fall is, for example, that Finland's economic growth has slowed.
+
+The assessments of Finland's government by the 3 big credit rating agencies are now the same.
+
+## Denmark is trying a 4-day working week
+
+![Street view in Odsherred](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11172102)
+
+Open image viewer
+
+A street view in Odsherred. In Denmark, 2 other municipalities, Syddjurs and Norddjurs, also intend to start working-hours trials. Photo: Malin Palm
+
+Denmark is trying a 4-day working week. 300 employees of Odsherred municipality are taking part in the trial.
+
+The municipality believes that a shorter working week improves wellbeing at work. Wellbeing can increase work productivity, that is, work becomes more efficient.
+
+Residents have been happy, even though there is nobody from the administration present on Fridays. During the trial the municipality's customer service has been open for longer between Monday and Thursday.
+
+Employees' working week is 37 hours in total.
+
+The trial lasts 3 years. University researchers are measuring work wellbeing and work productivity.

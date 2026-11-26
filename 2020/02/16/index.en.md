@@ -1,0 +1,65 @@
+# Sunday 16.2.2020 (radio)
+
+Storm Dennis has hit Europe. It is also raining and windy in Finland. More people have died of the coronavirus in China. Stopping smoking improves the health of the bronchial tubes.
+
+## The storm in Europe
+
+![People walk in windy storm weather in Bournemouth.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11211418)
+
+Open image viewer
+
+The weekend has been rainy and windy in different parts of Europe. The picture is from Britain. Photo: Neil Hall / EPA
+
+The storm has hit Europe this weekend. The storm has been named Dennis. It has brought strong winds and rain.
+
+In Britain at least 2 people have died during the storm. Both were men, and they drowned in the sea.
+
+In part of Britain, as much rain fell on Saturday as usually falls in a whole month. Because of the storm, flights were cancelled in Britain and trains were late.
+
+It has also rained a lot in Sweden. Maybe more rain will fall than usually falls in the whole of February. Train traffic has been stopped in part of southern Sweden because of the storm.
+
+## The storm in Finland
+
+![Pedestrian at Merihaka in Helsinki on 10 February 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11200960)
+
+Open image viewer
+
+This winter there has been more wind and rain than usual. Photo: Hanna Matikainen / Lehtikuva
+
+Storm Dennis also affects the weather in Finland. However, in Finland the storm is not as strong as in Britain and Sweden.
+
+The weather is still windy and rainy. The strongest winds blow over the northern sea areas, that is, the Gulf of Bothnia and the Kvarken. The storm winds arrive there late on Sunday evening.
+
+Almost everywhere in Finland the rain is water. A lot of rain falls, especially in the south near the sea. Only in Lapland does it snow.
+
+## The victims of the coronavirus
+
+![A subway worker wearing a protective face mask and eyewear disinfects a subway carriage in Beijing, China, 10 February 2020. Major China&#39;s cities began going back to work after the Lunar New Year holiday, which was extended in an attempt to contain the spread of the deadly coronavirus across the country.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11211289)
+
+Open image viewer
+
+Because of the coronavirus, places in China are being cleaned all the time. Here, the subway is being cleaned. Photo: Roman Pilipey / EPA
+
+More people have died of the coronavirus in China. In total, about 1700 have died already. Most of the new deaths have happened in Hubei province.
+
+The coronavirus started to spread in December, from Hubei province and its capital, Wuhan. Almost 70,000 people have got the coronavirus infection. However, the growth in the number of infections has slowed a little in recent days.
+
+The coronavirus causes symptoms similar to flu, for example coughing and fever. It is dangerous for people who also have another illness, for example asthma or a heart disease.
+
+THL explains the coronavirus in plain language
+
+## Stopping smoking
+
+![Close-up of a person smoking, seen as a silhouette.](https://img.img-cdn.yle.fi/crop_extract,w_2202,h_1239,x_0,y_55/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6299095e1882948693d/1578666150)
+
+Open image viewer
+
+Smoking damages the lungs. Photo: Nella Nuora / Yle
+
+Stopping smoking improves the health of the bronchial tubes. This is what a new study says, which was published in the scientific journal Nature.
+
+Smoking damages the cells of the bronchial tubes. Cigarette smoke causes gene changes in the cells. The result can be cancer.
+
+When a person stops smoking, healthy cells start to replace the sick cells of the bronchial tubes. Then the risk of cancer also gets smaller.
+
+It is estimated that 1.8 million people in the world die of lung cancer every year. In Finland, about 5000 people die every year of diseases caused by tobacco.

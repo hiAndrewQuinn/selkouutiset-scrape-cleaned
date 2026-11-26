@@ -1,0 +1,87 @@
+# Radio | Clear News | Wednesday 21.6.2023
+
+Olli Rehn. Speaker of Parliament. Government programme. Meat eating. Summer solstice. The weather forecast.
+
+## Olli Rehn's presidential candidacy
+
+![Olli Rehn held a press conference in the Hall of Fame room of Bolt Arena.](https://img.img-cdn.yle.fi/crop_extract,w_3500,h_1968,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11331136492bc473f042/1687338148)
+
+Open image viewer
+
+Olli Rehn. Photo: Silja Viitala / Yle
+
+The Governor of the Bank of Finland, **Olli Rehn**, is standing as a candidate in next year's presidential election. Olli Rehn is a member of the Centre Party.
+
+Rehn said on Wednesday that he is aiming to become president through a voters' association. The voters' association must collect 20,000 supporters so that the voters' association can nominate a presidential candidate.
+
+Rehn says that he will stop working as Governor of the Bank of Finland for the duration of his candidacy for president.
+
+Pekka Haavisto and Harry Harkimo have previously announced their candidacy for president. The presidential election will be held in January.
+
+## Speaker of Parliament
+
+![Jussi Halla-aho.](https://img.img-cdn.yle.fi/crop_extract,w_6955,h_3912,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11333356492e8da96abb/1687349894)
+
+Open image viewer
+
+Jussi Halla-aho is the new Speaker of Parliament. Photo: Benjamin Suomela / Yle
+
+Parliament has chosen a new Speaker and deputy speakers. The new Speaker of Parliament is the Finns Party MP **Jussi Halla-aho**.
+
+Halla-aho is 52 years old. He is a Doctor of Philosophy and an MP for the third term. Halla-aho has also been a member of the European Parliament.
+
+Halla-aho is known especially for his speeches and writings that criticise immigration. Halla-aho told Parliament that he considers the wide right of speech of MPs important.
+
+The National Coalition MP **Paula Risikko** was chosen as deputy speaker of Parliament. The SDP MP **Tarja Filatov** was chosen as the second deputy speaker. Filatov was already the second deputy speaker before, so she will continue in the job.
+
+## Criticism of the government programme
+
+![Parliament building in Helsinki.](https://img.img-cdn.yle.fi/crop_extract,w_4288,h_2412,x_0,y_221/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-1788531971ed50d15/1549442912)
+
+Open image viewer
+
+Parliament House. Photo: Yle/Touko Yrttimaa
+
+Parliament has started its work with the new government. The opposition criticised the new government's programme in Parliament. The opposition parties are the parties that are not in the government.
+
+Many opposition MPs made speeches criticising the government. Representatives of the opposition say that the government is cutting from low-income earners and unemployed people, but high-income earners are getting tax cuts.
+
+The government parties defend the government programme. The government parties say that savings must be made in public finances.
+
+## Meat eating
+
+![The picture shows a meat counter at the Prisma in Tripla, Pasila, Helsinki, in July 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_306/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6955225efd511b846f5/1639640140)
+
+Open image viewer
+
+Meat eating has been falling for many years. Photo: Silja Viitala / Yle
+
+Finns are eating less meat. On average, a Finn ate about 77 kilos of meat last year.
+
+Meat eating fell by 2 per cent from the year before. This is what the Natural Resources Institute Finland says.
+
+Meat eating has fallen for many years in a row.
+
+## Summer solstice
+
+![The summer night sun shines on the Torne river in Korpikylä in Tornio. Sweden is on the other side of the river.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97813562c3efc6443a5/1657008207)
+
+Open image viewer
+
+In the north the sun now shines at night too. Photo: Pirkko Kukko-Liedes / Yle
+
+Today, Wednesday, is the summer solstice.
+
+In the northern hemisphere it is the longest day of the year. North of the Arctic Circle, for example in Lapland, the sun does not set at night. In southern Finland the day is about 19 hours long.
+
+On Thursday the days start to get shorter again.
+
+## The weather
+
+![Thursday's weather map.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113347164931b92ac32a/1687362484)
+
+Open image viewer
+
+On Thursday it is still warm.
+
+On Thursday it is still mostly dry and sunny. However, showers and thunder showers may come in different parts of the country. The temperature is between 20 and 30 degrees.

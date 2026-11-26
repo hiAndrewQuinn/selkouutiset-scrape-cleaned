@@ -1,0 +1,75 @@
+# Radio Clear News Monday 10.7.2023
+
+NATO summit. Sweden's NATO membership. Preparations for Biden's visit. Helsinki Cup. The weather.
+
+## NATO summit
+
+![A waving emoji with the text NATO! in a blue speech bubble on a billboard.](https://img.img-cdn.yle.fi/crop_extract,w_5213,h_2932,x_14,y_329/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114030764abafd31acae/1688974041)
+
+Open image viewer
+
+The NATO summit is in Vilnius, Lithuania. Photo: Celestino Arce / AOP
+
+The NATO defence alliance summit begins tomorrow, Tuesday. The meeting is held in the Lithuanian capital Vilnius, and it lasts 2 days.
+
+Finland is taking part in the summit for the first time as a member country. Finland became a NATO member country in April this year.
+
+President Sauli Niinistö represents Finland at the NATO summit. Foreign Minister Elina Valtonen and Defence Minister Antti Häkkänen are also at the meeting.
+
+At the NATO summit they will talk, for example, about Sweden's NATO membership. Sweden has applied for NATO membership, but the NATO countries Turkey and Hungary have not yet approved Sweden joining.
+
+## Sweden's NATO membership
+
+![Recep Tayyip Erdogan.](https://img.img-cdn.yle.fi/crop_extract,w_4128,h_2322,x_0,y_145/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114051764ac0b3b613b3/1688996741)
+
+Open image viewer
+
+Turkish President Recep Tayyip Erdoğan. Photo: Ozan Koze / Lehtikuva
+
+The leaders of NATO, Sweden and Turkey will discuss Sweden's NATO membership on Monday. The leaders meet before the NATO summit, which starts on Tuesday.
+
+Turkish President Recep Tayyip Erdoğan says that he supports Sweden's NATO membership, if the European Union continues negotiations on Turkey's EU membership.
+
+NATO Secretary General Jens Stoltenberg says that Sweden's NATO membership and Turkey's EU membership are not connected to each other.
+
+Turkey became a candidate for membership of the European Union more than 20 years ago, but the negotiations on membership have not moved forward.
+
+## Preparations for Biden's visit
+
+![Joe Biden steps off Air Force One on 6 July 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5742,h_3229,x_0,y_414/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114013564a9e0a28eb8b/1688854817)
+
+Open image viewer
+
+US President Joe Biden. Photo: JIM LO SCALZO / EPA-EFE
+
+After the NATO summit, President Joe Biden travels to Finland. On Thursday in Helsinki, Biden meets President Sauli Niinistö and the prime ministers of the other Nordic countries.
+
+The security measures are big when President Biden comes to Finland. As many as 700 people will come to Finland with Biden.
+
+The Finnish police are also preparing for Biden's visit. Police officers will also come to Helsinki from elsewhere in Finland, so that there are certainly enough police officers.
+
+The police remind people that Biden's visit affects traffic in Helsinki. Traffic in the centre of Helsinki will be blocked at times on Thursday, and some of the streets in the centre will be closed completely.
+
+## Helsinki Cup
+
+![Two children play football at the Hesa Cup.](https://img.img-cdn.yle.fi/crop_extract,w_4951,h_2784,x_0,y_84/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114042064abe5b148dab/1688987122)
+
+Open image viewer
+
+Here a Taiwanese and a Finnish team are playing. Photo: Roni Rekomaa / Lehtikuva
+
+The Helsinki Cup football tournament has started. The players of the Helsinki Cup are aged 7–18.
+
+This year about 27,000 players are taking part in the Helsinki Cup. There are about 1,800 teams.
+
+The Helsinki Cup lasts 6 days.
+
+## The weather
+
+![Tuesday's weather map.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114054864ac2139df1a0/1689002335)
+
+Open image viewer
+
+On Tuesday it is warm and sunny all over the country. The temperature is 21–26 degrees, and it is warmest in the north.
+
+On Wednesday the weather warms up in the south too, and in places there may be a heat wave, that is, at least 25 degrees.

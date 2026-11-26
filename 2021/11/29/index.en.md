@@ -1,0 +1,83 @@
+# Monday 29.11.2021 (radio)
+
+The corona situation is getting worse. The Omicron variant may also be in Finland. Omicron worries the world. Sweden got a prime minister again. Scam messages on mobile phones. The weather is cold.
+
+## Corona situation
+
+![A nurse watches a corona patient through the glass.](https://img.img-cdn.yle.fi/crop_extract,w_4354,h_2449,x_0,y_174/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-884329619ff71bcc671/1637874541)
+
+Open image viewer
+
+The number of intensive care patients is growing. Photo: Jaani Lampinen / Yle
+
+The corona situation is getting worse. Since Friday, more than 3 300 new corona infections have been found in Finland.
+
+The number of corona patients in intensive care is growing. Over the weekend 7 new patients had to go into intensive care. There are now 51 corona patients in intensive care.
+
+There are already so many corona patients in intensive care that the treatment of other patients may have to be moved.
+
+## Omicron variant
+
+![Corona guidance and air passengers at Helsinki-Vantaa airport.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_46/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88507761a2203e60943/1638015087)
+
+Open image viewer
+
+People who come to Finland from Africa will be ordered to a health check at Helsinki-Vantaa airport. Photo: Emmi Korhonen / Lehtikuva
+
+The new Omicron corona variant may also already have come to Finland.
+
+In Finland, 2 corona patients are being tested, who may have the Omicron variant. Both patients have met foreign people, from whom they may have caught the infection.
+
+THL, the Finnish Institute for Health and Welfare, says that it will take a few days before it is known whether Finns have the Omicron corona infection.
+
+## Omicron worries the world
+
+![People queue for a corona testing place at Munich airport.](https://img.img-cdn.yle.fi/crop_extract,w_2500,h_1406,x_0,y_54/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88522961a30ec89c01d/1638076217)
+
+Open image viewer
+
+People are queuing for a corona test at an airport in Germany. Photo: Philipp Guelland / AOP
+
+The World Health Organization WHO warns that the Omicron variant can spread easily to different parts of the world.
+
+The European Centre for Disease Prevention and Control also warns that Omicron may quickly increase corona infections in Europe.
+
+Many countries around the world have introduced new travel restrictions. Finland has also restricted arrivals to Finland from Africa.
+
+## Sweden's prime minister vote
+
+![Magdalena Andersson.](https://img.img-cdn.yle.fi/crop_extract,w_5293,h_2977,x_0,y_119/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88564761a4d188aad4d/1638199622)
+
+Open image viewer
+
+Magdalena Andersson. Photo: Adam Ihse / AFP
+
+The Swedish parliament has chosen a prime minister for Sweden again. The Swedish parliament chose **Magdalena Andersson** as prime minister again. Andersson's party is the Social Democrats.
+
+The Swedish parliament already chose Andersson as prime minister last week. At that time, however, Magdalena Andersson almost had to resign straight away, because the parties had a quarrel about the budget.
+
+Now Magdalena Andersson has been chosen again as Sweden's prime minister.
+
+## Scam messages
+
+![A scam text message on a phone.](https://img.img-cdn.yle.fi/crop_extract,w_1853,h_1040,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88557661a4bbb5a19a0/1638185978)
+
+Open image viewer
+
+It is not worth opening links in strange messages. Photo: Yle
+
+Many scam messages still come to Finnish mobile phones. The messages started to arrive last week.
+
+The messages, for example, ask people to download a program with which they can listen to a voice message. In reality the program is malware, which steals information from the phone.
+
+The Cyber Security Centre says that links in strange messages must not be opened.
+
+## Weather
+
+![Tuesday's weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12209148)
+
+Open image viewer
+
+It is frosty across the whole country.
+
+On Tuesday it snows in the east and north. Elsewhere it is dry, and in the west the sun also shines. The temperature is between -5 and -15 degrees, and in the north between -10 and -25 degrees.

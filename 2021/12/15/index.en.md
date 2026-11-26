@@ -1,0 +1,71 @@
+# Wednesday 15.12.2021 (radio)
+
+Children's fitness. The corona situation. Corona pass in restaurants. Forest biodiversity. The presidents of Russia and China held talks. Weather forecast
+
+## Children's fitness
+
+Children's and young people's fitness is getting worse. Children's fitness is followed every year with measurements at schools. New results from this autumn's measurements are now available.
+
+Especially the endurance of 8th graders has fallen over the last 2 years. Many children's core muscle fitness has weakened compared with the results of earlier years.
+
+Experts say that poor fitness can harm the health and stamina of many children.
+
+## The corona situation
+
+There are again many new corona infections. On Wednesday more than 2200 new corona infections were reported. The figures also include information from Wednesday morning.
+
+In 2 weeks about 20 000 new corona infections have come, that is, about 4 400 infections more than in the 2 previous weeks.
+
+There are 314 corona patients in hospital care, that is 25 more than on Monday. There are 46 corona patients in intensive care.
+
+## Corona pass in restaurants
+
+![A person preparing dinner at a restaurant with dark wooden furniture and a bar counter.](https://img.img-cdn.yle.fi/crop_extract,w_3681,h_2070,x_190,y_265/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-879259618e778760d3d/1636726726)
+
+Open image viewer
+
+Mara recommends the use of a corona pass in restaurants. Photo: Carl Fahllund/Yle
+
+The hotel and restaurant association Mara recommends that all restaurants and events introduce the corona pass. The reason is the Omicron variant, which is spreading quickly.
+
+Mara recommends that its restaurants and events also introduce the corona pass in areas where there are no corona restrictions at the moment.
+
+The hotel and restaurant association Mara hopes that restaurants may not face as many restrictions if restaurants require a corona pass from customers.
+
+## Cutting of diverse forests
+
+![A harvester moves through a snowy forest](https://img.img-cdn.yle.fi/crop_extract,w_2000,h_1125,x_0,y_103/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-775145602d1aa45c9d8/1708593301)
+
+Open image viewer
+
+Forest machine at work. (Archive photo) Photo: Pasi Takkunen / Yle
+
+In Finland a lot of forests are cut down that are important for nature's biodiversity. This comes out in Yle's investigation.
+
+In some regions more than 40 per cent of clear-cuts are made in forests that are important for nature's biodiversity. Diverse forests are home to many different plants and animals.
+
+The chair of Finland's nature panel, Janne Kotiaho, says that the protection of forests must be increased, so that forests are not destroyed too much.
+
+## The presidents of Russia and China talked
+
+![Vladimir Putin holds a meeting by video with Xi Jinping.](https://img.img-cdn.yle.fi/crop_extract,w_3356,h_1887,x_0,y_105/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89232961b9bfbbe5cc0/1639563286)
+
+Open image viewer
+
+Photo: Mikhail Metzel / AFP
+
+The President of Russia, Vladimir Putin, and the President of China, Xi Jinping, have talked on a video call.
+
+The presidents of Russia and China talked about world affairs, for example tensions in Europe, the USA and the military alliance NATO.
+
+Russia hopes that NATO will not expand to the east.
+
+## Weather
+
+![Thursday's weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12232400)
+
+Open image viewer
+
+On Thursday it is mostly dry, that is, it does not rain.
+
+On Thursday it is mostly cloudy and dry, that is, it does not rain. The sun also gets through to shine at times. In the south it is a few degrees above zero. In the north it is frosty.

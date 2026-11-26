@@ -2,6 +2,6 @@
 
 The number of immigrant students is growing quickly in vocational education in Helsinki. Payment will change in the coming years. The bus stops in Houtskär are beautiful and colourful. Early potatoes are coming to the shops. The weather.
 
-Yle News in plain Finnish
+Clear News
 
 The number of immigrant students is growing quickly in vocational education in Helsinki. Payment will change in the coming years. The bus stops in Houtskär are beautiful and colourful. Early potatoes are coming to the shops. The weather.

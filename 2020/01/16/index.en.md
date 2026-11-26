@@ -2,7 +2,7 @@
 
 The price of pulp has fallen. In Vantaa a bus with no driver is being tested. A film has been made about the life of the Finnish artist Helene Schjerfbeck. Weather forecast.
 
-Clear News from Yle
+Clear News
 
 The price of pulp has fallen. In Vantaa a bus with no driver is being tested. A film has been made about the life of the Finnish artist Helene Schjerfbeck. Weather forecast.
 

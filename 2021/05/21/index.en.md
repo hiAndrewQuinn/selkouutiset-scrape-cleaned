@@ -2,6 +2,6 @@
 
 Locomotive drivers. Safety. Eurovision. Weather.
 
-Yle News in plain Finnish
+Clear News
 
 Locomotive drivers. Safety. Eurovision. Weather.

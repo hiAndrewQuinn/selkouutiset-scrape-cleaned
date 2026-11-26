@@ -2,6 +2,6 @@
 
 Advance voting. Insects. Archaeology. Weather.
 
-Yle News in plain Finnish
+Clear News
 
 Advance voting. Insects. Archaeology. Weather.

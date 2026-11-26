@@ -1,73 +1,72 @@
-# Tiistai 5.7.2022
+# Keskiviikko 5.7.2022
 
-Naton tarkkailijajäsenyys. Liittymiskeskustelut. Hoitajapula. Ravintoloiden verovilppi. Sääennuste.
+Koronarokotukset. Antibiootit. Uudet autot. Eino Leino. Sää.
 
 TV:n selkouutisilla on kesätauko 6.6.–12.8.
 Lue ja kuuntele radiolähetys tästä.
 
-## Suomen Nato-jäsenyys
+## Koronarokotukset
 
-![Pekka Haavisto, Jens Stoltenberg ja Magdalena Andersson seisovat puhujanpönttöjen takana.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_453/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97818862c40a733341c/1657016017)
-
-Avaa kuvien katselu
-
-Suomen Ulkoministeri Pekka Haavisto, Naton pääsihteeri Jens Stoltenberg ja Ruotsin ulkoministeri Ann Linde allekirjoitustilaisuudessa Brysselissä. Kuva: Kenzo Tribouillard / AFP
-
-Suomi ja Ruotsi on hyväksytty puolustusliitto Naton tarkkailijajäseniksi. Suomi ja Ruotsi allekirjoittivat tiistaina Brysselissä liittymispöytäkirjat Natoon.
-
-Suomi ja Ruotsi pääsevät nyt osallistumaan Naton kokouksiin, mutta ne eivät voi vielä äänestää Naton kokouksissa. Varsinainen Naton jäsenyys vaatii, että kaikki 30 Naton jäsenmaata hyväksyvät Suomen ja Ruotsin jäsenyyden.
-
-Monet maat ovat luvanneet hyväksyä jäsenyyden nopeasti. Joissakin maissa asian käsittely voi kestää useita kuukausia.
-
-## Nato-keskustelut
-
-![Pekka Haavisto tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97822362c41558e2e2e/1657017736)
+![Vuoronumerotelineessä oleva kyltti, joka kertoo koronarokotuksista.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_409/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97834262c43c9f72cc1/1657027812)
 
 Avaa kuvien katselu
 
-Ulkoministeri Pekka Haavisto sanoo, että keskustelut etenivät nopeasti. Kuva: Kenzo Tribouillard / AFP
+4. koronarokotuksia lisätään syksyllä. Kuva: Minna Rosvall / Yle
 
-Suomen keskustelut Natoon liittymisestä etenivät tiistaina nopeasti. Ulkoministeri Pekka Haavisto sanoo, että liittymiskeskusteluihin oli varattu 4 tuntia, mutta liittymiskeskusteluihin kului vain 2 tuntia.
+Neljänsiä koronarokotuksia lisätään. Terveyden ja hyvinvoinninlaitos THL laajentaa suositusta siitä, kenelle annetaan 4. koronarokotus.
 
-Naton pääsihteeri Jens Stoltenberg on tyytyväinen, että Suomi ja Ruotsi liittyvät puolustusliitto Natoon. Stoltenberg on myös iloinen, että Suomi ja Ruotsi ovat päässeet sopimukseen Turkin kanssa.
+Uusi suunnitelma on, että 15. elokuuta alkaen 4. koronarokotusta suositellaan 65 vuotta täyttäneille. Syyskuun alusta alkaen 4. koronarokotusta suositellaan 60 vuotta täyttäneille ja kaikille 12–59 -vuotiaille, jotka kuuluvat taudin vakavaan riskiryhmään.
 
-Turkki vastusti aluksi Suomen ja Ruotsin Nato-jäsenyyttä, mutta lopetti vastustamisen neuvottelujen jälkeen.
+THL kertoi suunnitelmasta keskiviikkona. THL vahvistaa neljänsien koronarokotuksien suosituksen myöhemmin kesällä.
 
-## Hoitajapula
+## Antibiootit hoivakodeissa
 
-![Hoiva-avustajana Attendo Vanamon hoivakodissa Kemijärvellä työskentelevä Donna Cosio seisoo hoivakodin oleskelutilassa taustallaan maisemaseinä.](https://img.img-cdn.yle.fi/crop_extract,w_5548,h_3120,x_0,y_269/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97603962bc4dae658cd/1656507915)
-
-Avaa kuvien katselu
-
-Donna Cosio tuli Suomeen Filippiineiltä. Hän hoitaa vanhuksia Kemijärvellä.  Kuva: Elina Ervasti / Yle
-
-Suomessa on kova pula hoitajista. Myös uusi hoitajamitoitus lisää hoitajien tarvetta sairaaloissa ja hoivakodeissa. Siksi hoitajia rekrytoidaan Suomeen aiempaa enemmän ulkomailta.
-
-Esimerkiksi terveysalan vuokratyöfirma Mehiläinen HSS tuo tänä vuonna Suomeen noin 500 hoiva-avustajaa ja ensi vuonna noin 1000 hoiva-avustajaa. Vuokratyöfirma Barona tuo tänä vuonna Suomeen 500 hoitajaa.
-
-Hoitajia palkataan Suomeen kaukaa, esimerkiksi Filippiineiltä ja Intiasta.
-
-## Ravintoloiden verovilppi
-
-![Avoin kaupan kassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/17-63453392b6ecb7a3/1396859430)
+![lääkepurkki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10010895)
 
 Avaa kuvien katselu
 
-Verohallinto suosittelee, että ravintolassa ei makseta käteisellä. Kuva: YLE
+Terveysministeriö haluaa rajoittaa antibioottien käyttöä. Kuva: AOP
 
-Verohallinto on löytänyt ravintola-alalta paljon verovilppiä. Tarkastuksissa selvisi, että ravintola-alalla on maksamatta veroja melkein 20 miljoonaa euroa vuoden 2017 jälkeen.
+Uusi laki rajoittaa antibioottien saatavuutta hoivakodeissa. Hoivayksiköt eivät saa enää elokuusta alkaen pitää antibiootteja lääkevarastoissa, koska lääkkeiden säilytykseen tarvitaan lupa.
 
-Summasta 8 miljoonaa euroa on maksamatta jääneitä firmojen tuloveroja. Verohallinto löysi yhteensä 40 miljoonaa euroa tuloja, jotka oli salattu verohallinnolta.
+Rajoituksen syy on, että Sosiaali- ja terveysministeriö haluaa, että antibiootteja käytetään vastuullisesti. Lääkärit sanovat, että muutos on huono, koska se voi hidastaa lääkityksen aloittamista hoivakodeissa.
 
-Verohallinto suosittelee, että ihmiset eivät maksa ravintolassa käteisellä. Kuitista on hyvä tarkastaa, että kuittiin on merkitty kaikki tuotteet, joita asiakas on ostanut ravintolasta.
+Jos vanhus tarvitsee hoivakodissa antibioottikuurin hän voi nyt saada sen nopeasti. Jatkossa lääkkeet pitää ehkä hakea kaukaa tai vanhus pitää lähettää päivystykseen, että hän saa antibiootteja.
+
+## Uusien autojen rekisteröinti
+
+![Sininen sähköauto latauksessa autoliikkeessä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_475/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-93609062459a7e7482a/1657187085)
+
+Avaa kuvien katselu
+
+Komponenttipula haittaa autokauppaa, koska autoja saadaan tehaasta aiempaa vähemmän. Kuva: Mimmi Nietula / Yle
+
+Uusien autojen rekisteröinti on vähentynyt. Uusia henkilöautoja rekisteröitiin kesäkuussa noin 25 prosenttia vähemmän kuin viime vuoden kesäkuussa.
+
+Uusien autojen rekisteröintiä eli käyttöönottoa on vähentänyt komponenttipula. Autotehtaat eivät pysty valmistamaan tarpeeksi autoja, koska autotehtaat eivät saa tarpeeksi komponentteja. Komponentteja tarvitaan auton elektroniikassa.
+
+Autojen rekisteröinnit ovat vähentyneet myös koko alkuvuonna eli tammi-kesäkuussa 23 prosenttia. Uusia autoja rekisteröitiin Suomessa tammi-kesäkuussa 43 500 kappaletta.
+
+## Runon ja suven päivä
+
+![Eino Leinon patsas](https://img.img-cdn.yle.fi/crop_extract,w_3264,h_1836,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-29863559ab8de77486/1436203493)
+
+Avaa kuvien katselu
+
+Eino Leinon patsas on Esplanadin puistossa Helsingissä. Patsaan on veistänyt Lauri Leppänen.  Kuva: Lotta Emanuelsson
+
+Keskiviikkona on vietetty Eino Leinon päivää. Kirjailija **Eino Leino** syntyi heinäkuun 6. päivä vuonna 1878.
+
+Eino Leino kirjoitti paljon runoja. Siksi Eino Leinon päivä on myös runon ja suven eli kesän päivä. Eino Leinon ja Runon ja suven päivä on liputuspäivä.
+
+Keskiviikkona jaettiin myös Eino Leinon palkinto. Tänä vuonna Eino Leinon Seura antoi palkinnon runoilija kirjailija **Kaiho Niemiselle**.
 
 ## Sää
 
-![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12524602)
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12526424)
 
 Avaa kuvien katselu
 
-Keskiviikkona tulee sadekuuroja.
+Torstaina tulee sadekuuroja.
 
-Sää viilenee. Keskiviikkona pilvisyys lisääntyy ja sadekuuroja tulee monin paikoin.  
-Lämpötila on 17 ja 23 asteen välillä.
+Torstaina koko maassa tulee sadekuuroja. Lämpötila on 16 ja 22 asteen välillä.

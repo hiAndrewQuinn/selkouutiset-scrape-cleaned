@@ -1,81 +1,87 @@
-# Lauantai 30.4.2022 (radio)
+# Sunnunta 1.5.2022 (radio)
 
-Vappuaatto. Perussuomalaiset. Tupakkalaki. Etelä-Aasian kuumuus. Suomen sää.
+Vappupäivä. Vaaratilanne Helsingissä. Poliittinen vappu. Työnhaku. Id-juhla. Sää.
 
-## Vapunvietto
+## Vappupäivä
 
-![Statyn Havis Amanda iklädd en vit studentmössa. I bakgrunden syns ett vimmel av människor.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_346/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6675315ea1a987e3fd4/1587653075)
-
-Avaa kuvien katselu
-
-Manta saa ylioppilaslakin aina vappuaattona. Kuva: Lehtikuva
-
-Suomessa vietetään vappua.
-
-Vappua vietetään taas samalla tavalla kuin ennen koronaa. 2 edellisenä vuonna järjestettiin etäjuhlia koronan takia.
-
-Nyt ihmiset ovat taas kokoontuneet juhlimaan vappua yhdessä. Vappuaaton tapahtumia on järjestetty monissa kaupungeissa.
-
-Vappuaatto on erityisesti opiskelijoiden juhlapäivä. Vappuaaton tunnetuin tapahtuma on Helsingin kauppatorilla, jossa Havis Amandan eli Mantan patsas sai taas ylioppilaslakin kello 18.
-
-Mantan saa ylioppilaslakin aina opiskelijoilta. Tänä vuonna Manta sai lakin Helsingin yliopiston opiskelijoilta.
-
-## Perussuomalaiset
-
-![Puheenjohtaja Riikka Purra perussuomalaisten puoluevaltuuston kokouksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_177/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948465626cfd807a67a/1651310160)
+![Juhlijoita kerääntyi Senaatintorille Mantan lakituksen jälkeen Helsingissä vappuaattona.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_285/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948653626da5c5303aa/1651353084)
 
 Avaa kuvien katselu
 
-Perussuomalaisten puheenjohtaja Riikka Purra. Kuva: Antti Aimo-Koivisto / Lehtikuva
+Vappu vietettiin taas yhdessä, ei etänä. Kuva: Henrietta Hassinen / Yle
 
-Perussuomalaiset haluaa, että Suomi liittyy puolustusliitto Natoon. Perussuomalaisten puolue päätti asiasta lauantaina.
+Vapunvietto on jatkunut sunnuntaina. Vappupäivä on aina 1. päivä toukokuuta.
 
-Puolueista SDP ja vasemmistoliitto eivät ole vielä kertoneet, kannattavatko ne Nato-jäsenyyttä. Muut puolueet ovat valmiita siihen, että Suomi hakee jäsenyyttä Natossa.
+Vappu on suomalaisille kevään, ylioppilaiden ja työläisten juhla.
 
-Suomessa keskustellaan puolustusliitto Natosta Ukrainan sodan takia. Euroopan turvallisuustilanne muuttui, kun Venäjä hyökkäsi Ukrainaan.
+Tänä vuonna suomalaiset ovat juhlineet vappua vilkkaasti.
 
-Monien mielestä Suomi on paremmassa turvassa, jos Suomi on Natossa. Natossa on 30 jäsenmaata.
+Vappuaattona lauantaina juhlat jatkuivat myöhään yöhön asti, koska ravintolat olivat taas auki. Korona-aikana vappua ei voitu juhlia ravintoloissa.
 
-Suomi päättää ehkä jo toukokuussa, hakeeko se Naton jäsenyyttä vai ei.
+Poliisi kertoo, että nyt vappu oli vilkas eri puolilla Suomea.
 
-## Tupakkalaki
+## Vaaratilanne Helsingissä
 
-![Naisen käsi, jossa sormien välissä palava savuke.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11960038)
-
-Avaa kuvien katselu
-
-Tupakkalaki suojelee lapsia. Kuva: Petteri Bülow / Yle
-
-Tupakointi leikkikentillä ja uimarannoilla kielletään.
-
-Uusi tupakkalaki tulee voimaan sunnuntaina. Se kieltää tupakoinnin leikkikentillä ja määrää, että kesällä ei saa tupakoida yleisillä uimarannoilla.
-
-Näin halutaan suojella lapsia tupakansavulta.
-
-## Etelä-Aasian kuumuus
-
-![Ihminen kävelee valtavassa jätekasassa.](https://img.img-cdn.yle.fi/crop_extract,w_6008,h_3372,x_0,y_627/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948423626c16d0465d6/1651251054)
+![Päälleajajan auto keula rytyssä Pohjoisesplanadilla.](https://img.img-cdn.yle.fi/crop_extract,w_5808,h_3267,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948589626d674b878bb/1651338423)
 
 Avaa kuvien katselu
 
-Palomies intialaisella kaatopaikalla. Kuva: Idrees Mohammed / EPA
+Mies ajoi mustalla Mercedeksellä. Kuva: Henrietta Hassinen / Yle
 
-Etelä-Aasiassa on kuumaa. Intiassa ja Pakistanissa lämpötila on yli 40 astetta.
+Helsingissä vappuaattoa häiritsi mies, joka ajoi autolla kovaa vauhtia kaupungin keskustassa. Mies ajoi Pohjoisesplanadilla, jossa on vappuaattona aina paljon ihmisiä.
 
-Kuuman sään takia esimerkiksi ilmastointilaitteita käytetään paljon. Sähköstä on jo pulaa, ja Intian pääkaupungissa Delhissä varoitetaan sähkökatkoksista.
+Mies törmäsi Pohjoisesplanadilla toiseen autoon. Kolarissa loukkaantui miehen lisäksi 2 muuta ihmistä. Lisäksi mies törmäsi moneen autoon, joihin tuli kolhuja.
 
-Kuuma sää aiheuttaa myös terveysongelmia. Myös monet lapset ovat sairastuneet kuuman sään takia.
+Mies on 33-vuotias. Epäillään, että hän vaaransi monien ihmisten turvallisuuden. Poliisi tutkii tapausta.
 
-Tilannetta pahentaa se, että joissakin kaupungeissa on syttynyt tulipalo kaatopaikalla. Esimerkiksi Delhissä palaa jätevuori, joka on 60 metriä korkea.
+## Poliittinen vappu
+
+![Pääministeri Sanna Marin turkulaisten ja turvamiesten ympäröimänä. Etualalla nainen onttaa melfietä pääministerin kanssa.](https://img.img-cdn.yle.fi/crop_extract,w_3192,h_1792,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948738626e69a51a2b0/1651488289)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin SDP:n vappujuhlassa. Kuva: Lassi Lähteenmäki / Yle
+
+Puolueiden puheenjohtajat ovat pitäneet puheita myös tänä vappuna.
+
+Esimerkiksi SDP:n puheenjohtaja, pääministeri Sanna Marin puhui Turussa. Marin sanoi, että Suomen turvallisuus ja viesti rauhasta ovat nyt tärkeitä. Marin viittasi Venäjän sotaan Ukrainassa.
+
+Oppositiopuolueiden vappupuheissa on kritisoitu hallitusta. Esimerkiksi perussuomalaisten puheenjohtaja Riikka Purra sanoi, että valtion menot ovat kasvaneet liikaa ja verot ovat liian korkeita. Purra vaati verojen alentamista. Hän puhui Helsingissä.
+
+## Työnhaku
+
+![Ansiopäivärahakemuslomaketta täytetään.](https://img.img-cdn.yle.fi/crop_extract,w_4470,h_2514,x_0,y_864/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6999965f10638921bbe/1620050667)
+
+Avaa kuvien katselu
+
+Toivotaan, että työttömät löytävät työtä helpommin uuden mallin avulla. Kuva: Tiina Jutila / Yle
+
+Työttömien työnhakuun tulee muutoksia maanantaista alkaen.
+
+Uudessa työnhaun mallissa työttömiin pidetään enemmän yhteyttä kuin ennen. Työnhakija tapaa virkailijan 2 viikon välein 3 ensimmäisen kuukauden aikana.
+
+Hallitus uskoo, että näin työttömät löytävät töitä paremmin.
+
+## Id-juhla
+
+![Id al-Fitr.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10256993)
+
+Avaa kuvien katselu
+
+Erilaiset herkut kuuluvat id-juhlaan. Kuva: Ronnie Holmberg / Yle
+
+Suomen muslimit valmistautuvat id-juhlan viettoon. Id-juhlaa vietetään, kun paastokuukausi ramadan loppuu.
+
+Tänä vuonna id-juhla on nyt toukokuun alussa. Muslimit viettävät sitä perheen parissa. Id-juhlaan kuuluu hyvä ruoka, ja ainakin lapset saavat lahjoja.
 
 ## Sää
 
-![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12424598)
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12425060)
 
 Avaa kuvien katselu
 
-Suomessa vappua vietetään viileässä säässä.
+Vielä sääennuste.
 
-Sunnuntaina eli vappupäivänä lämpötila on 5 ja 10 asteen välillä suuressa osassa maata.
+Maanantai on tuulinen päivä. Keski- ja Pohjois-Suomeen tulee vesi- ja lumisateita. Pohjois-Lapissa voi sataa lunta yli 10 senttimetriä.
 
-Maanantaina vesi- ja lumisateita tulee Keski- ja Pohjois-Suomeen.
+Lämpötila on etelässä vähän yli 10 astetta vielä maanantaina, mutta tiistaina sää kylmenee koko maassa.

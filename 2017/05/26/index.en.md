@@ -1,0 +1,73 @@
+# Friday 26.5.2017 (radio)
+
+In Finland about one in six people live at risk of poverty or social exclusion. Asylum seekers are being used as free labour. Home prices are rising moderately. More people have been arrested in Britain because of the terrorist attack. A forest fire warning is in force in most of the country.
+
+## 17 percent of people living in Finland are at risk of poverty
+
+![Bread queue.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8545878)
+
+Open image viewer
+
+Poverty can be seen, for example, in food queues. Photo: Jussi Laine / Yle
+
+In Finland about one in six people live at risk of poverty or social exclusion. EU statistics say that in 2014 about 900,000 people in Finland were at risk, which is 17 percent of the population.
+
+In Finland the share is lower than the European Union average.
+
+In all of Europe the risk of poverty or exclusion was highest in Macedonia, Serbia, Romania and Bulgaria.
+
+## Asylum seekers are working without pay
+
+![The agreement defines the work trial as &quot;unpaid activity under the reception centre, comparable to work and study activities&quot;.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9630544)
+
+Open image viewer
+
+The Regional State Administrative Agency for Southern Finland found agreements held by asylum seekers that described an unpaid work trial.
+
+Asylum seekers have started to be exploited as free labour.
+
+The Regional State Administrative Agency has made inspections and found workplaces where asylum seekers are working without pay. The work may have lasted many months. The authorities say that the cases may point to widespread exploitation.
+
+Inspector Katja-Pia Jenu noticed in a restaurant in Lahti that all the employees were asylum seekers from a reception centre. Since the autumn they had been working in the restaurant without pay.
+
+## Home prices are rising moderately
+
+![The floor plan of a home at a viewing.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9578839)
+
+Open image viewer
+
+The rise in home prices is now moderate. Photo: Tiina Jutila / Yle
+
+Home prices will rise by 1.5 percent on average this year and next year. In the capital the rise is about 3 percent.
+
+The Mortgage Society of Finland says that prices are rising moderately because more new homes are coming.
+
+But strong demand can be seen in the fact that in growth centres you can no longer bargain the price down as much as before.
+
+## Terrorism investigations continue in Britain
+
+![The police have continued searches related to the Manchester attack.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9632270)
+
+Open image viewer
+
+The police have continued searches related to the Manchester attack. Photo: Dave Warren / AOP
+
+In Britain the police have made a new arrest in Manchester because of Monday's terrorist attack. The police have now arrested a total of 10 people in the investigation.
+
+The police bomb squad has examined a building in the town of Wigan near Manchester. Nearby residential buildings were evacuated, but later the residents were allowed to return home.
+
+Britain has strengthened security measures on trains because of the terrorist threat.
+
+## It is now very dry
+
+![Warning map 26 May. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9633134)
+
+Open image viewer
+
+Only the north-east corner of the country has no forest fire warning. Photo: Yle
+
+It is now very dry in almost the whole country. The Finnish Meteorological Institute says that a warning of forest fires and grass fires is in force in almost the whole country.
+
+During a forest fire warning, making open fires is forbidden. The rescue services say that brushwood and rubbish must not be burned until the dry spell ends. For example, in Pirkanmaa forest or land has burned every day.
+
+In the southern and central parts of the country and in Lapland there has been exceptionally little rain this month. In Lapland the snow has already melted from sunny places. Dry grass has been revealed under the snow, and it catches fire easily.

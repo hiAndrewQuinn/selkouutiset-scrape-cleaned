@@ -1,0 +1,27 @@
+# Tuesday 15.8.2017 (radio)
+
+Train drivers are on strike. 18-year-old men are being called up for military service. The Iraqi army is preparing for an attack. Nigeria is trying out recycling food. Facebook's Marketplace is coming to Finland.
+
+## Train drivers are on strike today
+
+Train drivers have been on strike today.  Passenger trains have not run at all.  The train drivers have promised that they will go back to work at midnight.  After that, trains will run normally again.
+
+## 18-year-old men are being called up for military service
+
+The Finnish Defence Forces are calling men up for military service. This year, men born in 1999 who are Finnish citizens are being called up. They have received a letter about it.
+
+At the call-up event, the man's health is examined. He can also say which garrison he wants to go to. At the call-up event, a man can also say if he does not want to do military service, for example because of his religion. In Finland, military service can also be done without a weapon.
+
+## The Iraqi army is preparing for an attack
+
+In Iraq, the army plans to attack the terrorist organisation ISIS. The army plans to attack the city of Tal Afar. ISIS has held the city. The city is near the Syrian border.  The Iraqi air force has bombed ISIS targets.
+
+## Food is being recycled in Nigeria
+
+In Nigeria, West Africa, recycling food is being tried out. A shopkeeper can announce on a website that they can donate food. Charities then take the food to people who need help.
+
+A shopkeeper cannot sell a product if its best before date has already passed. Often, however, the product can be used perfectly well. In Nigeria, a lot of food is thrown in the bin or left on the street to rot.
+
+## Facebook's Marketplace is coming to Finland
+
+Soon, the marketplace function of the social network Facebook can also be used in Finland. Facebook has its own marketplace, where you can buy and sell things. It is called Marketplace. It could not be used in Finland before.

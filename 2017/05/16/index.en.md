@@ -1,0 +1,65 @@
+# Tuesday 16.5.2017 (radio)
+
+Finland has arranged interviews in Lebanon for family members of Syrians. There is a shortage of cooks in Finland. Finnish higher education institutions are starting to charge fees to students who come from outside Europe. The frequencies of some TV channels change on Wednesday.
+
+## Family members of Syrians
+
+![The Finnish Immigration Service logo on the outside wall of a building](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8514134)
+
+Open image viewer
+
+The Finnish Immigration Service decides on residence permits. Photo: Yle
+
+There are Syrians living in Finland who find it hard to bring their family members to Finland. The problem is that Finland interviews the family members of Syrians in Ankara, the capital of Turkey. Finland has an embassy there.
+
+But you cannot get from Syria to Ankara without permission from Turkey. If you do not get permission, family reunification does not work.
+
+Finland has tried to solve the problem and this year has also arranged interviews in Lebanon. It is easier to get from Syria to Lebanon than to Turkey.
+
+A group of Finnish officials travelled to Lebanon twice in the winter to interview family members of Syrians. After that the Finnish Immigration Service has been able to process the applications for family reunification.
+
+Over 3000 Syrians live in Finland.
+
+## There is work for cooks
+
+![Petri Aaltonen / Yle](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9517599)
+
+Open image viewer
+
+A cook's work is not easy.
+
+There is a shortage of cooks in Finland. For example, in March there were 1500 open jobs for cooks.
+
+Cook and teacher Mikael Eskman trains cooks. He says that new cooks find work.
+
+But a cook's work is hard, and the pay is quite low. An ordinary cook gets about 11 or 12 euros an hour. The work is often part-time.
+
+For these reasons it is hard to find cooks, even though there are thousands of unemployed cooks in Finland.
+
+## Higher education fees for foreigners
+
+![Australian Kim Allanson is one of the first two students who pay tuition fees for studying in Finland.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9610916)
+
+Open image viewer
+
+Australian Kim Allanson pays for studying in Finland. Photo: Antti Kolppo / Yle
+
+Finnish higher education institutions are starting to charge fees to some students. Students have to pay for their studies if they come from outside Europe. Fees for new students start in the autumn.
+
+Australian Kim Allanson and Chinese Bao Mu are the first students who pay for studying in Finland. They study at Haaga-Helia's Porvoo campus, where fees were already introduced in January. Allanson and Mu pay 8500 euros for one academic year. They are happy with the teaching.
+
+Higher education institutions are planning yearly fees for foreign students that are between 4000 and 25000 euros.
+
+## TV channel frequencies change
+
+![A television aerial on a roof.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9041470)
+
+Open image viewer
+
+A TV aerial on the roof of a house. Photo: Risto Koskinen / Yle
+
+Finally, some information about television channels. The frequencies of some TV channels change on Wednesday.
+
+If your home has a TV aerial, you may need to search for the channels again. Some TV sets can search for the channels automatically. But there may be fewer channels than before.
+
+If your home has cable TV, the channels do not change.

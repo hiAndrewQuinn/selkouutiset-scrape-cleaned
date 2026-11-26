@@ -1,0 +1,53 @@
+# Friday 5.5.2017 (radio)
+
+Asylum decisions for Afghans. Illegal entries across the eastern border. New ministers. Chinese passenger plane.
+
+Listen
+
+You can read the news at the same time below.
+
+## Changes to asylum decisions
+
+![The Supreme Administrative Court in Helsinki on 18 January 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8605575)
+
+Open image viewer
+
+The Supreme Administrative Court made rulings that affect the asylum decisions for Afghans. Photo: Martti Kainulainen / Lehtikuva
+
+The decisions on Afghan asylum seekers are changing in Finland. The court has decided that in some cases some Afghan asylum seekers must be given protection in Finland.
+
+The court decided four cases. In two cases it decided that the asylum seekers cannot be sent back to Afghanistan. The court's decision means that in the future the authorities will decide on asylum in similar cases the way the court did.
+
+In one decision it was stated that an asylum seeker cannot be sent back, because his home area is not safe. In addition, his life there is very difficult. In the other case the court decided that an Afghan family may stay in Finland, because the family has no relatives in Afghanistan, for example. The family has lived almost the whole time in Iran.
+
+## Attempts to bring people to Finland across the eastern border
+
+![Border zone sign](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9595746)
+
+Open image viewer
+
+The authorities say that people should not try to bring people into Finland illegally. Most are caught. Photo: Tommi Parkkinen / Yle
+
+The authorities have noticed a new criminal phenomenon on Finland's eastern border. People have tried to bring others into Finland illegally, that is criminally, through Russia. The people who have tried to bring them to Finland are people who have asylum in Finland.
+
+Often the aim is to get relatives, for example, into Finland. However, according to the authorities, people should not try to bring people into Finland illegally. It usually does not succeed. Most people are caught already in Russia. If someone tries to bring a person into Finland illegally, there will be a punishment.
+
+## The government's 3 new ministers
+
+![Minister of Agriculture and Forestry Jari Leppä, Justice Minister Antti Häkkänen and Minister of European Affairs, Culture and Sport Sampo Terho took the oath of office and the judicial oath at the plenary session of the Government in Helsinki on 5 May.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9596948)
+
+Open image viewer
+
+Jari Leppä, Antti Häkkänen and Sampo Terho took the ministerial oath. Photo: Martti Kainulainen / Lehtikuva
+
+President Sauli Niinistö has appointed 3 new ministers.
+
+The Minister of Agriculture and Forestry is Centre MP Jari Leppä, the Minister of European Affairs, Sport and Culture is Finns Party MP Sampo Terho, and the Justice Minister is National Coalition MP Antti Häkkänen.
+
+In Prime Minister Juha Sipilä's government there are now 17 ministers in total.
+
+## China built its own passenger plane
+
+For the first time a large passenger plane made in China has flown in China. The Chinese C919 aircraft first took to the sky from Shanghai airport and flew for about an hour.
+
+The Chinese passenger plane can carry almost 170 passengers. China hopes that the aircraft will be a new competitor to the passenger planes of Airbus and Boeing, which are made in Europe and the USA.

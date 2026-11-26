@@ -1,0 +1,83 @@
+# Friday 14.7.2017 (radio)
+
+Student housing benefit is changing. Sweden has celebrated the birthday of the Crown Princess. An Iraqi man is being deported from Finland back to Iraq, because he beat up his own sister. The ride buddy at Linnanmäki takes a child onto a ride if the child's parent does not dare. It is hot weather in Southern Europe.
+
+## Student housing benefit
+
+![Living room of a small flat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9722860)
+
+Open image viewer
+
+A big part of students' money goes on housing. Photo: Edit Lindblad / Yle
+
+Student housing benefit is changing.
+
+Now students get a housing supplement. It is part of the study grant. The housing supplement of the study grant ends in August.
+
+After that, students get the normal housing benefit. Housing benefit is applied for from Kela.
+
+The change means that most students will get more support than now. Usually the support grows by about 700 euros a year.
+
+However, students may get less support than now, if they live together with a partner without being married. The income of the cohabiting partner affects the amount of housing benefit.
+
+## Victoria's celebrations
+
+![Princess Victoria with her family](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9723737)
+
+Open image viewer
+
+Crown Princess Victoria (on the right) together with her family. Photo: AOP
+
+There are celebrations in Sweden, Finland's neighbouring country.
+
+Crown Princess Victoria turned 40 on Friday. Victoria will become the ruler of Sweden after King Carl Gustaf.
+
+The celebrations started in Stockholm, the capital of Sweden. The Crown Princess rode in a carriage in central Stockholm and greeted Swedes.
+
+On Friday evening the celebrations continue on the island of Öland. There is the Swedish royal family's summer castle.
+
+The royal family of the neighbouring country also interests many Finns. Finland was part of Sweden for over 600 years, until 1809.
+
+## Crime and deportation
+
+![Law book.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8857034)
+
+Open image viewer
+
+The court found that the convicted man must have known that his act would lead to the victim's death. Archive picture. Photo: Yle
+
+An Iraqi man is being deported from Finland back to Iraq, because he beat up his own sister. The court decided on the matter on Friday.
+
+In the man's opinion, there were cultural reasons for the violence. However, the court says that violence cannot be justified by culture. Finnish law and international agreements forbid it.
+
+A foreigner can be deported from Finland if they commit a crime in Finland.
+
+## Linnanmäki ride buddies
+
+![Linnanmäki ride buddy Tea Laine.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9717765)
+
+Open image viewer
+
+Linnanmäki ride buddy Tea Laine. Photo: Riku Tonttila / Yle
+
+A trip to Linnanmäki may be the best day of the summer for a child.
+
+An adult may feel sick on the rides. Then they can get help from the ride buddies at Linnanmäki.
+
+A ride buddy can go on the ride with the child, if the child's parent does not dare.
+
+Ride buddy Tea Laine says that the work of a ride buddy is fun. The days on the rides with children are the best working days of the summer, she says.
+
+## Hot Southern Europe
+
+![People cool off at a fountain in Seville, Spain, on 13 July.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9723303)
+
+Open image viewer
+
+Spaniards in the hot city of Seville. Photo: Jorge Guerrero / AFP
+
+It is hot in Southern Europe.
+
+The weather is so hot that some tourist sites have been closed. For example, in Greece the Acropolis hill in Athens was closed for a while.
+
+In July, many cities in Spain have been hotter than ever before. For example, in the capital Madrid the temperature has been over 40 degrees.

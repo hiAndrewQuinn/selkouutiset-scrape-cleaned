@@ -1,0 +1,71 @@
+# Friday 28.4.2017 (radio)
+
+The Ministry of Finance has raised its forecast for Finland's economic growth. Births lost out to deaths last year. Pope Francis has arrived for a visit to Egypt. The stone men at Helsinki's railway station have got masks. Early potatoes are growing, but slowly.
+
+## Finland's economy looks set to pick up
+
+![People on escalators.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9490586)
+
+Open image viewer
+
+The Ministry of Finance says that growth in consumption shows people's trust in the economy. This can be seen, among other things, in shops. Photo: Henrietta Hassinen / Yle
+
+The Ministry of Finance has raised its forecast for Finland's economic growth.
+
+The ministry predicts that Finland's economy will grow by 1.2 percent this year. In December the forecast was about one percent.
+
+The government has estimated that its goals will come true if Finland's economy grows by 2 percent. The government is aiming for an employment rate of 72 percent. The employment rate is the percentage of the population who are in work. In March the employment rate was 69.2 percent.
+
+## Deaths exceeded births
+
+![Seinäjoki cemetery still has room.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5444123)
+
+Open image viewer
+
+In Finland 53,923 people died last year. Photo: YLE / Vesa Ylipelkonen
+
+For the first time, the number of births has fallen below the number of deaths. Statistics Finland says that last year almost 54,000 people died, which is the largest number since the war year 1944.
+
+Before this, a similar thing had been seen only during the civil war and the Winter War, in the years 1918 and 1940.
+
+Even though fewer children are born, people in Finland will not run out. The situation is balanced by more people moving into the country.
+
+## The Pope visits Egypt
+
+![Pope Francis leaving for Egypt at Fiumicino airport in Italy on 28 April.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9587573)
+
+Open image viewer
+
+Pope Francis leaving for Egypt at Fiumicino airport in Italy. Photo: Telenews / EPA
+
+Pope Francis has arrived for a visit to Egypt. The visit lasts 2 days. At the start of the visit the Pope intends to meet the leaders of Egypt's Christian and Muslim communities. After that he is due to visit a church that was hit in December.
+
+The visit comes only a few weeks after bomb attacks on two churches of Coptic Christians. More than 40 people died in the attacks. Egypt's churches have been placed under special surveillance.
+
+The Pope hopes that the visit will give support to the Christians of the region and bring a message of caring brotherhood to Muslims.
+
+## The stone men got masks
+
+![The stone statues of Helsinki's main railway station received KISS face paint on 28 April 2017. To celebrate the May Helsinki concert of the hard rock band KISS, VR is giving four KISS fans the chance to paint a face of one of the KISS members on a 3D-printed mask. The masks will decorate the stone men from the end of April until 5 May.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9586796)
+
+Open image viewer
+
+VR is celebrating the Helsinki concert of the rock band Kiss. VR let four fans paint Kiss-style masks for the stone men. Photo: Vesa Moilanen / Lehtikuva
+
+The statues of Helsinki's main railway station, that is the stone men, have got masks. The stone men got masks because the rock band Kiss is performing in Helsinki next week.
+
+The railway company VR held a competition for the masks.
+
+The statues were completed in 1914. The original name of the statues is Lantern Bearers, and they were made by the sculptor Emil Wikström.
+
+## Early potatoes are a worry again this spring
+
+![Potatoes](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9586946)
+
+Open image viewer
+
+The potatoes were planted in Rymättylä in South-West Finland about five weeks ago. The potato grows under a cover. Photo: Lassi Lähteenmäki / Yle
+
+An unusually cold spring has slowed the growth of early potatoes, that is new potatoes. However, the potato survives the cold when it is grown under a cover. For example, in Rymättylä the first potatoes were planted in the ground more than 5 weeks ago.
+
+Every spring people guess when new potatoes can be put on the festive table. Farmer Anssi Leinonen thinks that potatoes may be available for the graduation weekend at the end of May.

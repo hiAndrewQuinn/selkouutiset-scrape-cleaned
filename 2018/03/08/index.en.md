@@ -1,0 +1,69 @@
+# Thursday 8.3.2018 (radio)
+
+The government gave Parliament a proposal for the social and health care law. Finnish women have a good education. In Finland there are many funerals with not a single guest. Swedes have a positive attitude towards Finland.
+
+## The reform of health services
+
+![Anu Vehviläinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10107522)
+
+Open image viewer
+
+Ministers Anu Vehviläinen and Annika Saarikko told about the government's plans for social and health care on Thursday. Photo: Jussi Nukari / Lehtikuva
+
+The social and health care reform is moving forward. "Sote" means social services and health services.
+
+On Thursday, the government gave a bill to Parliament. The subject of the bill is freedom of choice.
+
+The government proposes that a person can choose for themselves where they get care. They can choose public or private services. The price is the same for the client.
+
+The aim is that people get care faster than now. But in the future too, a professional in the field will assess what services a person needs.
+
+Parliament will probably decide in June whether it approves the government's proposal.
+
+The social and health care reform has been talked about in Finland for a long time. Social services and health services must be reformed so that there is enough money for good services all over Finland in the future too.
+
+## Women's level of education
+
+![A female student sits at a table reading a book and taking notes. On the table, a bag and a water bottle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5249585)
+
+Open image viewer
+
+In Finland, most students in higher education are women. Photo: YLE
+
+Finnish women have a good education.
+
+The economic organisation OECD compared the level of education of women in different countries. Finnish women have the third best education. Only in Canada and Israel do women have a better education than in Finland.
+
+A little over 50 per cent of Finnish women have had higher education. The statistics then include people over 25.
+
+Today women in Finland are better educated than men. About 60 per cent of those who complete a higher education degree are women.
+
+## Funerals without guests
+
+![A cross on a coffin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9831264)
+
+Open image viewer
+
+Sometimes there is not a single guest at a funeral. Photo: Ismo Pekkarinen / AOP
+
+Many lonely people die in Finland.
+
+Last year, at the funerals of more than 200 Finns, there was not a single guest. The information comes from the statistics of the Lutheran Church of Finland.
+
+Big cities have the most funerals where there is not a single guest. In Helsinki, the Oulunkylä chapel has its own slot every week for funerals where there are no guests.
+
+## What Swedes know about Finland
+
+![Tove Jansson ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9942151)
+
+Open image viewer
+
+Swedes know Tove Jansson, the writer of the Moomin books. Photo: Pekka Elomaa
+
+The people of Finland's neighbouring country Sweden have a positive attitude towards Finland.
+
+A new study says that a little over 70 per cent of Swedes have a positive attitude towards Finland. About 50 per cent of Swedes think that Finland is a modern country.
+
+The study also says that Swedes know quite little about Finland. But many want to know more.
+
+So what things about Finland are familiar to Swedes? At least the sauna, Sibelius and the Moomins.

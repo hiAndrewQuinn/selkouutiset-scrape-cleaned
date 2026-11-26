@@ -1,75 +1,87 @@
-# Radio Selkouutiset torstai 24.8.2023
+# Radio | Selkouutiset | Sunnuntai 27.8.2023
 
-Prigožin. Ukrainan itsenäisyyspäivä. Wilma Murto. Lasten pyöräily. Sää.
+Lapsiperheköyhyys. Sari Essayah. Jevgeni Prigožin. Sauli Niinistö. Selkouutiset. Sääennuste.
 
-## Wagner-johtaja kuoli
+## Lapsiperheköyhyys
 
-![Jevgeni Prigozinin yksityiskone tulessa Tverin alueella Moskovan lähellä.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116170364e717e4e1b35/1692866621)
-
-Avaa kuvien katselu
-
-Wagner-johtaja Jevgeni Prigožinin yksityiskone putosi maahan ja syttyi tuleen.  Kuva: @grey_zone / AOP
-
-Venäjällä on sattunut lentoturma. Palkkasotilasyhtiö Wagner kertoo, että sen johtaja Jevgeni Prigožin on kuollut turmassa.
-
-Prigožinin yksityislentokone syöksyi eilen maahan matkalla Moskovasta Pietariin. Koneessa oli yhteensä 10 ihmistä.
-
-Vielä ei tiedetä, miksi lentokone putosi. Wagneriin liitetty kanava viestipalvelu Telegramissa väittää, että kone ammuttiin alas.
-
-Jevgeni Prigožin johti kesäkuussa Wagnerin kapinaa Venäjän johtoa vastaan. Hän kuitenkin keskeytti kapinan pian sen alkamisen jälkeen.
-
-## Ukrainan itsenäisyyspäivä
-
-![Poika heiluttaa Ukrainan lippua tienvarressa kypärä päässään panssariajoneuvon ajaessa ohi.](https://img.img-cdn.yle.fi/crop_extract,w_5731,h_3223,x_0,y_477/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136911649fce965e369/1688195819)
+![Tiina Ristikari, Itlan tutkimusprofessori, lapsiperheköyhyys, asiantuntija, saunalahti, espoo, ](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_144/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116031464e4865ab1ef2/1692698263)
 
 Avaa kuvien katselu
 
-Venäjän hyökkäys Ukrainaan on kestänyt jo 1,5 vuotta. Kuva: Celestino Arce / AOP
+Itlan tutkimusprofessori Tiina Ristikari. Kuva: Markku Rantala / Yle
 
-Ukrainassa on vietetty tänään itsenäisyyspäivää. Tämä on jo toinen itsenäisyyspäivä sodan keskellä, sillä Venäjän hyökkäyksestä Ukrainaan on kulunut nyt puolitoista vuotta.
+Lapsiperheköyhyys on lisäänytynyt Suomessa. Kahdessa vuodessa köyhien lasten määrä on kasvanut noin 30 000 lapsella. Köyhässä perheessä elää melkein 125 000 lasta.
 
-Suomessa on muistettu Ukrainan itsenäisyyspäivää esimerkiksi liputtamalla Helsingin Senaatintorilla ja ulkoministeriössä. Ulkoministeriön rakennus myös valaistaan illalla Ukrainan lipun väreillä.
+Monien köyhien lapsiperheiden huoli omasta taloudesta kasvaa, koska hinnat ja korot nousevat ja esimerkiksi työttömyys lisääntyy.
 
-Helsingin keskustassa pidettiin kansalaistapahtuma Ukrainan tueksi.
+Lastensäätiö Itlan tutkimusprofessori **Tiina Ristikari** sanoo, että hallituksen pitää huomata lapsiperheiden tilanne. Ristikari toivoo, että hallitus ei tee leikkauksia, jotka vaikeuttavat lapsiperheiden taloutta.
 
-## Wilma Murto
+## Kristillisdemokraattien presidenttiehdokas
 
-![Wilma Murto voitti MM-mitalin ensimmäisenä suomalaisena seiväshyppääjänä.](https://img.img-cdn.yle.fi/crop_extract,w_4563,h_2554,x_0,y_95/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116156064e6ead7a04dd/1692855067)
-
-Avaa kuvien katselu
-
-Seiväshyppääjä Wilma Murto voitti MM-pronssia. Kuva: Christian Petersen/Getty Images
-
-Seiväshyppääjä Wilma Murto on voittanut Suomen ensimmäisen mitalin yleisurheilun MM-kisoissa Unkarissa. Murto voitti pronssia eli hän oli 3. illan seiväsfinaalissa.
-
-Wilma Murron mitali on Suomelle ensimmäinen mitali MM-tasolla 8 vuoteen. Se on myös Suomen kaikkien aikojen ensimmäinen mitali seiväshypyssä MM-kisoissa.
-
-Edellisen kerran Suomi sai mitalin MM-kisoissa vuonna 2015, kun Tero Pitkämäki sai pronssia keihäänheitossa.
-
-## Lasten pyöräily
-
-![Pieni tyttö taluttaa pyörää pyöräilykypärä päässä. ](https://img.img-cdn.yle.fi/crop_extract,w_3101,h_1744,x_13,y_108/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115982264e33ec7e06e3/1692614953)
+![Maa- ja metsätalousministeri ja kristillisdemokraattien presidenttiehdokas Sari Essayah, Kristillisdemokraattien puoluekokous 2023,](https://img.img-cdn.yle.fi/crop_extract,w_5987,h_3362,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116317264eb02ba15097/1693123790)
 
 Avaa kuvien katselu
 
-Alva Koskela oppi ajamaan pyörää 4-vuotiaana. Kuva: Kalle Niskala / Yle
+Kristillisdemokraattien puheenjohtaja ja presidenttiehdokas Sari Essayah. Kuva: Hans-peter Dhuy / Yle
 
-Suomalaislapset oppivat pyöräilemään aiempaa nuorempina. Suomalaislapset oppivat nyt pyöräilemään keskimäärin vähän alle 5-vuotiaana.
+Kristillisdemokraattien presidenttiehdokas on puolueen puheenjohtaja **Sari Essayah**. Kristillisdemokraattien puoluekokous valitsi Essayahin presidenttiehdokkaaksi sunnuntaina. Essayahilla ei ollut vastaehdokkaita.
 
-Lapset oppivat pyöräilemään aikaisemmin, koska potkupyörät ovat yleistyneet. Potkupyörässä ei ole polkimia, vaan lapsi potkii jaloilla vauhtia maasta.
+Sari Essayah on ollut kristillisdemokraattien puheenjohtaja vuodesta 2015.
 
-Potkupyörä harjoittaa lapsen kehonhallintaa ja tasapainoa. Ne ovat taitoja, joita tarvitaan, kun ajetaan oikealla pyörällä. '
+Hän on myös nykyisen hallituksen maa- ja metsätalousminiseri.
 
-Lapsi voi aloittaa potkupyöräilyn heti, kun hän osaa kävellä ja juosta.
+## Jevgeni Prigožinin kuolema
 
-## Perjantain sää
-
-![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116202764e7518f4d36c/1692881336)
+![Ett foto av Wagnergruppens ledare Prigozjin med gevär i handen, fotot omgivet av röda nejlikor.](https://img.img-cdn.yle.fi/crop_extract,w_5363,h_3017,x_0,y_42/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116296464e968781a0fb/1693018408)
 
 Avaa kuvien katselu
 
-Kuva: Yle
+Monet asiantuntijat uskovat, että Prigozhinin kuolema oli salamurha. Kuva: EPA
 
-Koko maassa saadaan huomenna sadekuuroja tai sadetta.
+Venäjä vahvistaa, että keskiviikon lento-onnettomuudessa kuoli palkka-armeija Wagnerin johtaja **Jevgeni Prigožin**. Venäjän tutkintakomitea sanoo, että dna-tutkimus vahvistaa, että yksi kuolleista on Jevgeni Prigozhin.
 
-Lämpötila on päivällä 16 ja 21 asteen välillä, Lapissa on vähän viileämpää.
+Myös Venäjän lentoliikennevirasto sanoo, että koneen matkustajalista täsmää vainajiin, jotka löydettiin onnettomuuspaikalta.
+
+Lentokone, joka kuljetti Prigožinia ja 9 muuta henkilöä, syöksyi keskiviikkona maahan Venäjällä. Länsimaiden asiantuntijat uskovat, että putoaminen oli salamurha.
+
+## Presidentti Niinistö
+
+![Sauli Niinistö toimittajian ja kuvaajien ympäröimänä.](https://img.img-cdn.yle.fi/crop_extract,w_3983,h_2241,x_0,y_207/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116323564eb3a4c7be39/1693142685)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö kävelytapahtumassa Töölönlahdella Helsingissä sunnuntaina. Kuva: Silja Viitala / Yle
+
+Presidentti **Sauli Niinistö** haastaa suomalaisia liikkumaan ja keskustelemaan. Presidentti osallistui sunnuntaina Helsingin Töölönlahdella kävelytapahtumaan.
+
+Tapahtumassa ihmiset saivat kävellä ja jutella presidentti Niinistön kanssa.
+
+Presidentti Niinistö sanoo, että ihmisten on tärkeää keskustella asioista ja ymmärtää muita ihmisiä. Niinistö sanoo, että jo lyhyt kävely tuottaa hyvää oloa ja virkistää ajattelua.
+
+## Selkouutisten TV-lähetykset
+
+![Toimittajat Pälvi Tammi ja Pertti Seppä. ](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5142835bb5ce8fa54f4/1538641629)
+
+Avaa kuvien katselu
+
+Selkouutisia toimittavat esimerkiksi Pälvi Tammi ja Pertti Seppä. Kuva: Henrietta Hassinen / Yle
+
+Selkouutisten TV-lähetykset jatkuvat huomenna maanantaina. TV:n selkouutiset on ollut kesätauolla.
+
+Yle uutiset selkosuomeksi nähdään TV1:ssä arkisin kello 16.40.
+
+Lähetyksen voi katsoa myös Yle Areenassa ja selkouutisten nettisivulta yle.fi/selkouutiset.
+
+## Sää
+
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116330064eb5f7282fc4/1693147022)
+
+Avaa kuvien katselu
+
+Vettä voi sataa paljon maan eteläosissa.
+
+Maanantaina maan etelä- ja keskiosaan sataa vettä. Paikoin voi sataa paljon.
+
+Pohjoisessa on poutaista eli ei sada, mutta pilvisyys lisääntyy.
+
+Lämpötila on 16 ja 21 asteen välillä.

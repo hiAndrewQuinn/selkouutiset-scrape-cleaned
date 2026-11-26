@@ -1,81 +1,81 @@
-# Radio | Selkouutiset | perjantai 20.10.2023
+# Radio Selkouutiset tiistai 24.10.2023
 
-Suomalaisten elinikä. Ukrainan talvi. Alkoholi. Uusi taidenäyttely. Sää.
+Silakka. Tasa-arvo. Merionnettomuus. Maailman vanhin koira. Sää.
 
-## Suomalaisten elinikä
+## Silakka
 
-![Keskosena syntynyt neljä päivää vanha poikavauva Naistenklinikalla 20. lokakuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5926,h_3333,x_0,y_627/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1189260653274af892fa/1709120310)
-
-Avaa kuvien katselu
-
-Vastasyntynyt vauva. Kuva: Silja Viitala / Yle
-
-Suomalaisten elinikä kääntyi viime vuonna laskuun. Tutkijoiden mukaan suomalaisten elinikä lyheni viime vuonna puoli vuotta.
-
-Niin paljon ihmisten elinikä ei ole lyhentynyt Suomessa pitkään aikaan.
-
-Tutkijat sanovat, että on vaikea tietää, miksi elinikä lyheni. Syy voivat olla sydän- ja verisuonitaudit. Syy voi myös olla yksinäisyys.
-
-Asiasta saadaan tulevaisuudessa enemmän tietoa.
-
-## Ukrainan talvi
-
-![Nainen Kiovassa valmistaa ruokaa pimeässä keittiössä.](https://img.img-cdn.yle.fi/crop_extract,w_4955,h_2787,x_0,y_130/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1030195636771a03c924/1697800468)
+![Kuolleita silakoita.](https://img.img-cdn.yle.fi/crop_extract,w_4920,h_2767,x_0,y_410/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117830965154524db691/1695990796)
 
 Avaa kuvien katselu
 
-Kiovalainen koti lokakuussa 2022. Ukrainassa on paljon sähkökatkoja.  Kuva: EPA-EFE/All Over Press
+Silakan pyyntikiintiötä pienennetään, sillä silakkasaaliit ovat huonontuneet. Kuva: Markku Ulander / Lehtikuva
 
-Ukrainassa tämä talvi on vaikea. Se on ehkä vaikeampi kuin viime talvi. Venäjä on tuhonnut Ukrainaa niin, että monen kaupungin lämmitys ja sähköt eivät toimi hyvin.
+Euroopan unionissa on päästy sopuun kalastuksesta. EU:n maatalous- ja kalastusneuvosto on päättänyt uudet kalastuskiintiöt.
 
-Ukrainalaiset ovat korjanneet osan lämmityksestä ja sähköistä mutta eivät kaikkea.
+Silakan kalastusta jatketaan normaalisti, mutta kalakiintiöiden pitää olla kohtuullisia.
 
-YK eli Yhdistyneet kansakunnat -järjestö sanoo, että sähkölaitokset toimivat paljon huonommin kuin ennen sotaa.
+Aiemmassa esityksessä silakan kalastus kiellettiin. Se herätti paljon huolta Suomessa. Kalatalouden keskusliitosta kerrotaan, että EU:n komissio tulkitsi tieteellisiä tutkimuksia tiukasti.
 
-Tutkijat sanovat, että Venäjä yrittää tuhota kaupunkien sähkölaitokset ja lämmityslaitokset. Venäjä toivoo, että pian ukrainalaiset eivät jaksa enää taistella.
+Nyt silakan kalastus siis jatkuu Suomen lähivesillä, mutta kiintiötä leikataan. Esimerkiksi Pohjanlahdella silakkakiintiö pienenee 31 prosenttia. Itämeren pääaltaalla ja Suomenlahdella kiintiö pienenee 43 prosenttia.
 
-## Alkoholi
+Vähennyksen tarkoitus on suojella silakkaa, jonka kanta on heikentynyt.
 
-![Alkoholijomia nostetaan koriin.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_468/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117046764ff0544dad8c/1694434689)
+Suomen maatalousministeri Sari Essayah sanoo, että EU:n uusi päätös on vastuullinen. Päätös on myös sellainen, jota Suomi halusi.
 
-Avaa kuvien katselu
+## Merionnettomuus
 
-Alkoholia voi ensi vuonna ehkä tilata kaupasta kotiin. Kuva: Isto Matias Janhunen / Yle
-
-Suomalaiset voivat pian tilata alkoholia kotiin, jos hallituksen suunnitelma toteutuu.
-
-Ihmiset saavat tulevaisuudessa tilata alkoholia kotiin esimerkiksi kaupasta, ravintolasta tai Alkon myymälästä.
-
-Kotiin saa tilata alkoholijuomia, joissa on alkoholia enintään 8 prosenttia.
-
-Nykyään alkoholia saa tilata ulkomailta mutta Suomesta.
-
-Hallitus miettii myös, saako viiniä tulevaisuudessa myydä ruokakaupassa. Nykyään viiniä saa myydä vain Alkon myymälässä.
-
-## Uusi taidenäyttely
-
-![Henkilöitä katsoo Claude Monetin teosta taidemuseossa.](https://img.img-cdn.yle.fi/crop_extract,w_5987,h_3367,x_0,y_161/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1187665652e918078eea/1706189686)
+![Kartalla Saksalle kuuluvat Helgolandin ja Langeoogin saaret Pohjanmerellä. ](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_607,x_0,y_304/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-119031565377a53aa4a3/1698137121)
 
 Avaa kuvien katselu
 
-Kuva Ateneumin uudesta taidenäyttelystä. Kuva: Henrietta Hassinen / Yle
+Alkuillasta oli vielä epäselvää, miten laivojen yhteentörmäys tapahtui. Kuva: Harri Vähäkangas / Yle, MapCreator, OpenStreetMap
 
-Ateneumin taidemuseossa Helsingissä avataan tänään perjantaina uusi taidenäyttely.
+2 rahtilaivaa on törmännyt varhain tiistaiaamuna Pohjanmerellä.
 
-Näyttelyssä on impressionistien 1800-luvun ja 1900-luvun alun taidetta
+Alkuillan tiedot kertoivat, että 1 ihminen on löytynyt kuolleena, 2 on pelastettu ja 4 on yhä kadoksissa. Tiedot voivat vielä muuttua.
 
-Impressionismi on taidesuunta, joka syntyi Ranskassa. Impressionistit maalasivat paljon ulkoilmassa.
+Onnettomuus tapahtui lähellä Helgolandin saarta, joka kuuluu Saksalle. Illalla ei vielä tiedetty, miten yhteentörmäys tapahtui.
 
-Impressionismi vaikutti myös joihinkin suomalaisiin taiteilijoihin. Suomalaiset alkoivat tehdä värikkäämpiä tauluja.
+Kadonneiden etsinnän lisäksi lentokoneesta tarkkaillaan, vuotaako aluksista öljyä Pohjanmereen.
 
-Näyttelyssä on kuuluisien ulkomaalaisten taiteilijoiden tauluja ja suomalaisten taiteilijoiden tauluja.
+## Tasa-arvo Suomessa
+
+![Piirroskuvituksessa on punaisella taustalla eri värisiä ylioppilaslakkeja. Keskellä on keltaisia tulppaaneja.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1106069644bb97bb0863/1682684500)
+
+Avaa kuvien katselu
+
+Suomessa pitää vielä parantaa tasa-arvoa koulutuksessa. Kuva: Venla Tirkkonen / Yle
+
+Suomi on sijoittunut kahdeksanneksi sukupuolten tasa-arvovertailussa EU:ssa. Suomi sijoittui vertailussa EU:n keskiarvon yläpuolelle.
+
+Vertailussa mitattiin tasa-arvoa muun muassa työmarkkinoilla, terveydenhuollossa ja vallankäytössä. Suomen pisteet nousivat terveyden ja työn alueella.
+
+Sen sijaan eriytyminen eli segregaatio koulutuksessa ja vapaa-ajassa laski pisteitä.
+
+Vertailun kärkeen sijoittui Ruotsi, toiseksi Alankomaat ja kolmanneksi Tanska.
+
+## Maailman vanhin koira
+
+![Koira kävelee talon edustalla.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1190400653790edd4521/1698140513)
+
+Avaa kuvien katselu
+
+Bobi kuvattiin helmikuussa kotinsa takapihalla Conqueirosin kylässä. Kuva: Patricia De Melo Modeira / AFP
+
+Maailman vanhin koira Bobi on kuollut. Koira kuoli kotioloissa Portugalissa lauantaina, kertoi Britannian yleisradioyhtiö BBC.
+
+Puhdasrotuinen alentejonkoira oli 31 vuoden ja 165 päivän ikäinen.
+
+Edellinen ennätys ehti olla voimassa lähes 100 vuotta. Vuonna 1939 Australiassa Bluey-koira kuoli 29 vuoden ja 5 kuukauden iässä.
 
 ## Sää
 
-![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-118929465327a235415e/1697806919)
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11906636537dbd68ea8e/1698159618)
 
 Avaa kuvien katselu
 
 Kuva: Yle
 
-Lauantaina ei sada. Lämpötila on -3:n ja +5 asteen välillä. Kylmintä on pohjoisessa.
+Keskiviikon sää on suuressa osassa maata poutainen eli ei sada. Länsi-Lapissa voi sataa ehkä vähän lunta.
+
+Lämpötila on etelässä ja lännessä vähän plussan puolella. Idässä ja pohjoisessa on pakkasta.

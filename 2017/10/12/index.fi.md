@@ -1,63 +1,69 @@
-# Tiistai 10.10.2017 (radio)
+# Torstai 12.10.2017 (radio)
 
-Vankiloihin on salakuljetettu huumeita kauko-ohjattavilla koptereilla. Kevitsan kaivoksesta pääsee metalleja pohjaveteen. Eeva Kilpi on saanut arvokkaan kirjallisuuspalkinnon. Pohjois-Lappiin voi sataa ensilumi.
+Ylen kyselyssä Sauli Niinistö on presidenttikisan ylivoimainen suosikki. Ulkoministeriö kutsuu Turkin suurlähettilään keskusteluun suomalaistoimittajan tuomion takia. Turun joukkopuukotuksesta epäilty määrättiin mielentilatutkimukseen. Suomalaiset muistavat koulussa luetuista kirjoista parhaiten Tuntemattoman sotilaan. Barcelonan Suomi-koulu lähettää terveisiä.
 
-## Kauko-ohjattavilla koptereilla on salakuljetettu huumeita
+## Sauli Niinistö johtaa ylivoimaisesti presidenttikisaa
 
-![Radio-ohjattava kuvauskopteri.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7858055)
-
-Avaa kuvien katselu
-
-Kauko-ohjattavilla koptereilla tehdään esimerkiksi ilmakuvauksia. Kuva: Ilkka Kemppinen / Yle
-
-Suomen vankiloihin yritetään salakuljettaa huumeita kauko-ohjattavilla koptereilla eli droneilla.
-
-Toukokuussa erään vankilan pihalle laskeutui kauko-ohjattava kopteri, josta riippui siiman päässä sukka. Sukan sisältä löytyi kännykkä, laturi sekä suuri määrä huumetabletteja.
-
-Vankiloissa on 2 viime vuoden aikana havaittu monia salakuljetusyrityksiä.
-
-Suomen laki estää epäilyttävien koptereiden ottamisen kiinni. Teknisesti se kyllä on mahdollista. Kopterit toimivat radiosignaalilla, joka voidaan havaita ja kaapata.
-
-## Kevitsan kaivoksesta valuu metalleja pohjaveteen
-
-![Kevitsan kaivos, Sodankylä, Lappi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9874688)
+![Presidentinvaalit 2018](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9878151)
 
 Avaa kuvien katselu
 
-Kuva: Eemil Friman / Yle
+Ylen seuraavat presidenttikyselyt julkistetaan marraskuussa ja tammikuussa.
 
-Kevitsan kaivoksesta Sodankylässä pääsee metalleja pohjaveteen. Kevitsa on Suomen suurin kaivos, ja sen omistaa ruotsalainen Boliden. Kevitsan päätuotteet ovat nikkeli ja kupari.
+Presidentti Sauli Niinistö on presidentinvaalien ylivoimainen suosikki. Näin kertoo Ylen kannatuskysely. Niinistöä kannattaa nyt 76 prosenttia vastaajista. Toisella sijalla on vihreiden ehdokas Pekka Haavisto, joka sai 14 prosentin kannatuksen. Muiden ehdokkaiden kannatus oli 1 - 3 prosenttia.
 
-Jo ennen kaivosta Kevitsan alueen joistakin pohjavesistä mitattiin nikkeliä. Syynä pidettiin luonnon nikkeliesiintymää. Nyt nikkelipitoisuus ylittää rajan, joka on sallittu talousvedelle.
+Presidentinvaalien ensimmäinen kierros on tammikuussa.
 
-Boliden kiistää, että kyse olisi pohjaveden pilaamisesta. Boliden kuitenkin myöntää, että pohjavedessä on selviä muutoksia. Konsultti tekee parhaillaan firmalle arviota riskeistä pohjavedelle. Luvassa on myös suunnitelma, jolla voidaan parantaa pohjaveden laatua.
+## Ulkoministeriö kutsuu Turkin suurlähettilään keskusteluun
 
-Valvova viranomainen ei osaa vielä sanoa, onko tilanne vakava.
-
-## Eeva Kilpi sai arvokkaan kirjallisuuspalkinnon
-
-![Eeva Kilpi vastaanottaa Nummisuutarin Eskon käsipuolessa Suomalaisen Kirjallisuuden Seuran (SKS) Aleksis Kiven rahaston palkinnon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9875161)
+![Toimittaja Ayla Albayrak.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9878062)
 
 Avaa kuvien katselu
 
-"Olen itse haavoittunut sielultani sodan ja oman pakolaisuuteni takia. Siksi minulla on avoin mieli vastaanottaa pakolaisia Suomeen", Eeva Kilpi sanoo. Kuva: Markku Ulander / Lehtikuva
+Ayla Albayrak Kuva: Juha Heikanen / Yle
 
-Kirjailija Eeva Kilpi on saanut Suomen vanhimman kirjallisuuspalkinnon. Kilpi sai Suomalaisen Kirjallisuuden Seuran Aleksis Kiven rahaston palkinnon. Palkintosumma on 25 000 euroa. Palkintolautakunta sanoo, että Kilpi on tehnyt monipuolisen ja yhteiskunnallisesti merkittävän elämäntyön.
+Suomen ulkoministeriö kutsuu Turkin suurlähettilään keskusteluun. Syy on se, että suomalaistoimittaja on saanut Turkissa vankeustuomion. Presidentti Sauli Niinistö ja ulkoministeri Timo Soini ovat sopineet keskustelusta. Lisäksi presidentti Niinistö lähettää kirjeen Turkin presidentille Recep Tayyip Erdoganille.
 
-Laatokan Karjalassa vuonna 1928 syntynyt Kilpi on kirjoittanut paljon karjalaisuudesta ja evakoista. Hän käsitteli aihetta jo 1960-luvulla, jolloin aihe oli poliittisesti arkaluontoinen.
+Ayla Albayrak sai Turkissa noin kaksi (2) vuotta vankeutta, koska hän teki töitä Turkin kurdialueella. Albayrak työskentelee tällä hetkellä New Yorkissa.
 
-Palkinnon perusteluissa sanotaan, että Kilven teokset ovat nyt hyvin ajankohtaisia. Ne antavat äänen sodan jaloista lähteneille. Kilpi sanoo, että koska hän on itse evakko, hänen on vaikea käsittää vihamielistä ja jopa väkivaltaista suhtautumista pakolaisiin.
+## Turun puukotusiskusta epäilty määrättiin mielentilatutkimukseen
 
-## Pohjois-Lapissa voi sataa ensilumi
-
-![Autoja tiellä pimeässä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9481461)
+![kynttilöitä turun kauppatorilla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9879345)
 
 Avaa kuvien katselu
 
-Keskiviikkoaamuna selviää, onko Pohjois-Lappiin satanut niin paljon lunta, että se täyttää ensilumen määritelmän. Kuva: Sointu Ketola
+Turun tori täyttyi kukista pian joukkopuukotuksen jälkeen elokuussa. Kuva: Vesa Moilanen / Lehtikuva
 
-Pohjois-Lappiin sataa ehkä paikoin ensilumi illan ja yön aikana.
+Käräjäoikeus on määrännyt Turun joukkopuukotuksesta epäillyn marokkolaismiehen mielentilatutkimukseen. Käräjäoikeus kertoo, että mies pyysi mielentilatutkimusta itse.
 
-Ilmatieteen laitos arvioi, että lumimäärä ei kuitenkaan ole kovin suuri. Lunta sataa ehkä muutama senttimetri.
+Abderrahman Bouananea epäillään kahdesta (2) murhasta, jotka on tehty terroristisessa tarkoituksessa. Lisäksi häntä syytetään kahdeksasta (8) murhan yrityksestä. Puukotukset tapahtuivat 18. elokuuta.
 
-Ensilumi on satanut, kun aamun mittauksessa on vähintään sentti lunta.
+Poliisin esitutkinta tapahtuneesta on vielä kesken.
+
+## Suomalaiset muistavat koulusta Tuntemattoman sotilaan
+
+![Pentti Siimes (korpraali Määttä), Åke Lindman (alikersantti Lehto) ja Kaarlo Halttunen (sotamies Oskari Rahikainen) elokuvassa Tuntematon sotilas.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8817906)
+
+Avaa kuvien katselu
+
+Kaarlo Halttunen, Åke Lindman ja Pentti Siimes Edvin Laineen elokuvassa Tuntematon sotilas vuodelta 1955. Kuva: Suomen Filmiteollisuus Oy, Edvin Laine.
+
+Väinö Linnan Tuntematon sotilas on kirja, jonka suomalaiset muistavat parhaiten kouluajalta.
+
+Yle Uutiset pyysi suomalaisia muistelemaan kirjoja, joita luettiin äidinkielen tunnilla. Kyselyyn tuli melkein 270 vastausta.
+
+Monille vastaajille sotilaiden kohtalot ovat jääneet mieleen. Kirjan lukeminen teini-ikäisenä saattoi kuitenkin tuntua järkyttävältä.
+
+Väinö Linnan Tuntematon sotilas ilmestyi vuonna 1954. Kirja kertoo konekiväärikomppanian kokemuksista jatkosodassa.
+
+## Barcelonan Suomi-koulun terveiset
+
+![Barcelonan suomikoululaisten keksimiä sanoja, jotka oppilaiden mielestä kertovat ja kuvaavat Suomea.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9879503)
+
+Avaa kuvien katselu
+
+Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa.
+
+Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
+
+Uusimmat terveiset tulevat Espanjasta, Barcelonan Suomi-koulusta.

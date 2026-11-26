@@ -1,77 +1,89 @@
-# Radio Selkouutiset perjantai 9.6.2023
+# Radio Selkouutiset sunnuntai 11.6.2023
 
-Hallitusneuvottelut. Ukrainan tulva. Teknologiateollisuuden työntekijäpula. Suomen kieli Viron kouluissa. Sää.
+RKP:n puheenjohtaja. Kanadan maastopalot. Pakistanin rankkasateet. Mansikkasato. Valas. Sää.
 
-## Hallitusneuvottelut
+## RKP:n puheenjohtaja
 
-![Petteri Orpo kävelee ulkona ja ohikulkija moikkaa häntä. Taustalla on Suomen pankin pääkonttori.](https://img.img-cdn.yle.fi/crop_extract,w_4907,h_2760,x_213,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125140647ec49ea226a/1686316652)
-
-Avaa kuvien katselu
-
-Hallitusneuvottelujen vetäjä Petteri Orpo. Kuva: Antti Aimo-Koivisto / Lehtikuva
-
-Hallitusneuvottelut voivat olla valmiit ensi viikon lopulla. Näin sanoo hallitusneuvottelujen vetäjä Petteri Orpo.
-
-Orpo kertoi perjantaina, että puolueet neuvottelevat vielä joistakin vaikeista asioista. Hallitusneuvotteluissa ovat mukana kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
-
-Orpo sanoo, että puolueiden pitää neuvotella vielä esimerkiksi sosiaali- ja terveyspalveluista. Erityisen vaikea on päättää rahoista, joita palveluihin tarvitaan.
-
-## Ukrainan tulva
-
-![Pelastustyöntekijä nostaa vanhaa naista veneestä rannalle.](https://img.img-cdn.yle.fi/crop_extract,w_5524,h_3093,x_0,y_345/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11267096481b4cb5f399/1686322850)
+![Anna-Maja Henriksson.](https://img.img-cdn.yle.fi/crop_extract,w_2904,h_1633,x_0,y_145/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11280706485a1c623bb0/1686479500)
 
 Avaa kuvien katselu
 
-Pelastustyöt Ukrainan tulva-alueella jatkuvat. Kuva: Mykola Tymchenko / EPA
+RKP:n puheenjohtaja Anna-Maja Henriksson. Kuva: Bengt Östling / Yle
 
-Ukrainan tulvassa on kuollut ihmisiä. Kuolleiden määrä on ainakin yli 10. Ihmisiä on myös kadonnut tulvan takia.
+Anna-Maja Henriksson jatkaa RKP:n puheenjohtajan tehtävässä.
 
-Tulvan syy on se, että iso Kahovkan pato meni rikki tiistaina. Siksi Dnepr-joki tulvii. Ukraina sanoo, että Venäjä tuhosi padon.
+RKP:n puoluekokous valitsi Henrikssonin puheenjohtajaksi sunnuntaina. Muita ehdokkaita ei ollut.
 
-Pelastustyöt tulva-alueella jatkuvat. Myös Suomi lähettää alueelle apua, esimerkiksi ruokaa ja tarvikkeita juomaveden puhdistamista varten.
+Henriksson on ollut RKP:n puheenjohtaja vuodesta 2016 lähtien.
 
-## Työntekijäpula
+Henriksson on ollut monta vuotta myös Suomen oikeusministeri.
 
-![Kaksi henkilöä työskentelee laboratoriossa.](https://img.img-cdn.yle.fi/crop_extract,w_5868,h_3300,x_0,y_367/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125900648070df6c5e5/1686139180)
+## Kanadan maastopalot
 
-Avaa kuvien katselu
-
-Teknologiateollisuudessa on monenlaisia työpaikkoja. Kuva: Sasha Silvala / Yle
-
-Teknologiateollisuudessa tarvitaan lisää työntekijöitä.
-
-Esimerkiksi hitsaajia ja koneistajia on liian vähän. Myös automaation, robotiikan ja tekoälyn osaajia tarvitaan lisää.
-
-Monet teknologia-alan firmat sanovat, että ne eivät voi kasvattaa bisnestä, koska niillä ei ole tarpeeksi työntekijöitä.
-
-Arvioidaan, että teknologiateollisuudessa tarvitaan tulevina vuosina yli 100 000 uutta työntekijää.
-
-## Suomen kieli Viron kouluissa
-
-![Viron yläasteilla ja lukioissa käytettävä Suomen kielen oppikirja avattuna.](https://img.img-cdn.yle.fi/crop_extract,w_1083,h_608,x_0,y_90/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112287364785486901f1/1685607879)
+![Ilmakuva metsäpalosta.](https://img.img-cdn.yle.fi/crop_extract,w_5104,h_2871,x_1,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112781364845d5e52e23/1686820309)
 
 Avaa kuvien katselu
 
-Suomen opiskelu on nyt suosittua Virossa. Kuva: Rain Kooli / Yle
+Kanadassa palaa metsää ja muuta maastoa laajoilla alueilla. Kuva: AFP
 
-Suomen kielen suosio kasvaa Viron kouluissa. Monissa Viron peruskouluissa ja lukioissa oppilaat valitsevat nyt suomen toiseksi vieraaksi kieleksi.
+Maastopalot jatkuvat Kanadassa. Maastoa ja metsää palaa jo noin 400 paikassa.
 
-Monet oppilaat valitsevat suomen, koska he eivät halua enää opiskella venäjää. Venäjän kielen suosio on laskenut tosi paljon, sen jälkeen kun Venäjä aloitti sodan Ukrainassa.
+Tuli uhkaa jo monien kanadalaisten koteja. Siksi monta tuhatta kanadalaista on jättänyt kodin ja lähtenyt pakoon maastopaloja.
 
-Virolaisten mielestä suomea on helppo oppia, koska viro ja suomi ovat sukukieliä. Siksi kielet ovat melko samanlaisia.
+Kanadan viranomaiset sanovat, että maastopalot ovat nyt pahempia kuin koskaan ennen. Maastopaloja on myös isolla alueella eri puolilla Kanadaa.
 
-Vielä 30 vuotta sitten monet virolaiset osasivat jonkin verran suomea, koska he katsoivat paljon Suomen televisiota. Nykyään suosituin vieras kieli Virossa on englanti.
+Maastopalojen savu on levinnyt Kanadasta myös USA:n puolelle. Viime päivinä esimerkiksi New Yorkissa oli niin paljon savua, että ihmisten oli parempi pysyä sisällä.
+
+## Pakistanin rankkasateet
+
+![Miestä kuljetetaan paareilla sairaalaan. Sairaalan oven ympärillä toistakymmentä ihmistä.](https://img.img-cdn.yle.fi/crop_extract,w_3880,h_2182,x_0,y_290/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11280026484d53b0b031/1686427299)
+
+Avaa kuvien katselu
+
+Ihmisiä on kuollut ja loukkaantunut Pakistanin rankkasateissa. Kuva: Noman Khan / EPA
+
+Pakistanissa on ollut kovia sateita ja tuulia. Rankkasade ja myrskytuuli iskivät Pakistaniin lauantaina.
+
+Pakistanin viranomaiset kertovat, että noin 30 ihmistä kuoli rankkasateen takia. Kuolleiden joukossa on myös lapsia. Loukkaantuneita on paljon.
+
+Sateet ovat tehneet myös paljon vahinkoja. Esimerkiksi taloja on romahtanut rankkasateen takia.
+
+## Mansikkasato
+
+![Mansikka varressa.](https://img.img-cdn.yle.fi/crop_extract,w_1723,h_967,x_0,y_144/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10976706435564757156/1681217423)
+
+Avaa kuvien katselu
+
+Mansikat kypsyvät lämpimässä säässä nopeasti. Kuva: Erkki Suonio
+
+Suomen mansikkasato kypsyy pian. Mansikat kypsyvät nyt nopeasti, koska sää lämpenee.
+
+Suomalaisia mansikoita tulee enemmän myyntiin jo noin 2 viikon kuluttua eli juhannuksen aikaan.
+
+Arvioidaan, että mansikan hinta on tänä kesänä korkeampi kuin viime vuonna.
+
+## Valas
+
+![Kartassa Turun ja Ahvenanmaan saaristo, Kökar, Eckerö, Maarianhamina ja Turku.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11280826485b48c22a7a/1686484170)
+
+Avaa kuvien katselu
+
+Valas nähtiin viikonloppuna Eckerön ja Kökarin lähellä Ahvenanmaalla. Kuva: Leena Luotio / Yle
+
+Suomen merialueella liikkuu iso valas. Kalastajat ovat nähneet valaan Ahvenanmaan lähellä.
+
+Asiantuntijat arvioivat, että valas on ehkä ryhävalas. Ryhävalas painaa usein noin 30 000 kiloa ja on noin 15 metriä pitkä.
 
 ## Sää
 
-![Lähivuorokausien sää on koko maassa aurinkoinen ja lämmin.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112758764832529720ac/1686316447)
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11280936485df82f2dea/1686495159)
 
 Avaa kuvien katselu
 
-Kuva: Anniina Valtonen/Yle
+Sää lämpenee.
 
-Sää on poutaista ja aurinkoista. Sää myös lämpenee.
+Maanantaina lämpötila on yli 20 astetta suuressa osassa maata.
 
-Lauantaina lämpötila on 15 ja 20 asteen välillä. Sunnuntaina lämpötila on yli 20 astetta.
+Tiistaina lämpötila nousee etelässä jopa 25 asteeseen, keskiviikkona jopa 27 asteeseen. Etelään on siis luvassa hellettä. Rannikolla on vähän viileämpää, koska meri viilentää ilmaa.
 
-Ensi viikolla mitataan jo hellelukemia, jolloin lämpötila on vähintään 25 astetta.
+Pohjoisessa lämpötilat ovat alempia kuin etelässä. Lapissa lämpötila on maanantaina noin 20 astetta ja tiistaina Lapin lämpötila putoaa 10 ja 15 asteen välille.

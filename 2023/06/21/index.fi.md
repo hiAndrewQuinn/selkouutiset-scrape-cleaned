@@ -1,83 +1,87 @@
-# Radio | Selkouutiset | Tiistai 20.6.2023
+# Radio | Selkouutiset | Keskiviikko 21.6.2023
 
-Uusi hallitus. Työssä käyvien osuus. Säästäminen. Raskaussyrjintä. Tasa-arvoinen avioliittolaki. Sääennuste.
+Olli Rehn. Eduskunnan puhemies. Hallitusohjelma. Lihansyönti. Kesäpäivän seisaus. Sääennuste.
 
-## Uusi hallitus aloitti
+## Olli Rehnin presidenttiehdokkuus
 
-![Suomen uusi hallitus 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_400/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11328246491b9e31f6ff/1687271941)
-
-Avaa kuvien katselu
-
-Uudessa hallituksessa on 19 ministeriä. Kuva: Antti Aimo-Koivisto / Lehtikuva
-
-Suomi on saanut uuden hallituksen. Presidentti **Sauli Niinistö** myönsi tiistaina eron Sanna Marinin hallitukselle. Sen jälkeen presidentti Niinistö nimitti uuden hallituksen.
-
-Uutta hallitusta johtaa **Petteri Orpo**. Orpo on kokoomuksen puheenjohtaja. Hän on myös uuden hallituksen pääministeri.
-
-Uudessa hallituksessa on 19 ministeriä. Uuden hallituksen ministerit ovat kokoomuksesta, perussuomalaisista, kristillisdemokraateista ja ruotsalaisesta kansanpuolueesta eli RKP:sta. Uudet ministerit vannoivat tiistaina virkavalan tai virkavakuutuksen.
-
-## Työssäkäynti
-
-![En kvinna står och plockar plastdelar från ett rullande band vid en robot i en fabrik.](https://img.img-cdn.yle.fi/crop_extract,w_3740,h_2104,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97031462a99187b7025/1655280455)
+![Olli Rehn piti tiedotustilaisuuden Bolt Arenan Hall of Fame -tilassa.](https://img.img-cdn.yle.fi/crop_extract,w_3500,h_1968,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11331136492bc473f042/1687338148)
 
 Avaa kuvien katselu
 
-Työssä käyvien osuus kasvaa. Kuva: Anna Wikman / Yle
+Olli Rehn. Kuva: Silja Viitala / Yle
 
-Työssä käyvien suomalaisten osuus kasvaa vähitellen. Toukokuussa töissä kävi 74,3 prosenttia työikäisistä suomalaisista.
+Suomen Pankin pääjohtaja **Olli Rehn** asettuu ehdolle ensi vuoden presidentinvaaleihin. Olli Rehn on keskustapuolueen jäsen.
 
-Osuus kasvoi hieman edellisestä kuusta eli huhtikuusta.
+Rehn kertoi keskiviikkona, että hän pyrkii presidentiksi valitsijayhdistyksen kautta. Valitsijayhdistyksen pitää kerätä 20 000 kannattajaa, että valitsijayhdistys voi asettaa presidenttiehdokkaan.
 
-Viime vuoden toukokuussa työssä käyvien osuus oli 73,8 prosenttia, eli työssä käyvien osuus on noussut vuodessa puoli prosenttiyksikköä.
+Rehn sanoo, että hän lopettaa työn Suomen Pankin pääjohtajana presidenttiehdokkuuden ajaksi.
 
-## Säästöt
+Ehdokkuudesta presidentiksi ovat ilmoittaneet aiemmin Pekka Haavisto ja Harry Harkimo. Presidentinvaali järjestetään tammikuussa.
 
-![Ihmisiä täynnä oleva hiekkaranta](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_36/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6943385ef9a8fb4dcd7/1593420079)
+## Eduskunnan puhemies
 
-Avaa kuvien katselu
-
-Monet suomalaiset säästävät esimerkiksi lomamatkoista. Kuva: Andy Rain 7 EPA
-
-Suomalaiset säästävät nyt monista asioista. Syy on hintojen kallistuminen.
-
-Kuluttajaliitto on kysynyt suomalaisilta, mistä he ovat säästäneet tänä vuonna. Yli puolet suomalaisista on säästänyt ravintolakäynneistä, ruokakauppakuluista ja lomamatkoista.
-
-Vähän alle puolet suomalaisista on vähentänyt autolla ajamista. Noin 15 prosenttia on säästänyt lääkekuluista.
-
-## Raskaussyrjintä
-
-![Raskausvatsa neulepaidan alla. Nainen ja mies pitelevät käsiään sen päällä.](https://img.img-cdn.yle.fi/crop_extract,w_5178,h_2912,x_0,y_355/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106486563d3a76b7ce17/1674817048)
+![Jussi Halla-aho.](https://img.img-cdn.yle.fi/crop_extract,w_6955,h_3912,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11333356492e8da96abb/1687349894)
 
 Avaa kuvien katselu
 
-Tehy sanoo, että terveydenhuoltoalalla on raskaussyrjintää. Kuva: Meri Lantela / Yle
+Jussi Halla-aho on eduskunnan uusi puhemies. Kuva: Benjamin Suomela / Yle
 
-Sosiaali- ja terveysalalla on raskaussyrjintää. Näin kertoo sairaanhoitajien järjestö Tehy. Raskaussyrjintä tarkoittaa, että ihmiselle ei esimerkiksi tarjota töitä, kun hän tulee raskaaksi.
+Eduskunta on valinnut uuden puhemiehen ja varapuhemiehet. Eduskunnan uusi puhemies on perussuomalaisten kansanedustaja **Jussi Halla-aho**.
 
-Työnantaja voi myös pyytää, että ihminen tulee heti äitiysloman jälkeen takaisin töihin.
+Halla-aho on 52-vuotias. Hän on filosofian tohtori ja kolmannen kauden kansanedustaja. Halla-aho on ollut myös europarlamentaarikko.
 
-Raskaussyrjintä koskee määräaikaisia työntekijöitä, joita ei aina oteta uudestaan töihin raskauden takia. Raskaussyrjintä on laitonta.
+Halla-aho tunnetaan erityisesti maahanmuuttokriittisistä puheista ja kirjoituksista. Halla-aho sanoi eduskunnalle, että hän pitää tärkeänä kansanedustajien laajaa puheoikeutta.
 
-## Viron tasa-arvoinen avioliittolaki
+Eduskunnan varapuhemieheksi valittiin kokoomuksen kansanedustaja **Paula Risikko**. Toiseksi varapuhemieheksi valittiin SDP:n kansanedustaja **Tarja Filatov**. Filatov oli jo aiemmin toinen varapuhemies, eli hän jatkaa tehtävässä.
 
-![Sateenkaarilippu liehuu.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_178/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7493405fc7e0df56a78/1656299805)
+## Hallitusohjelman arvostelu
+
+![Riksdagshuset i Helsingfors](https://img.img-cdn.yle.fi/crop_extract,w_4288,h_2412,x_0,y_221/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-1788531971ed50d15/1549442912)
 
 Avaa kuvien katselu
 
-Tasa-arvoinen avioliittolaki sallii homoparien avioliiton. Kuva: Petteri Bülow / Yle
+Eduskuntatalo. Kuva: Yle/Touko Yrttimaa
 
-Viro on hyväksynyt tasa-arvoisen avioliittolain. Tasa-arvoinen avioliittolaki tarkoittaa, että kaksi miestä tai kaksi naista voi mennä naimisiin keskenään. He saavat myös adoptoida yhteisiä lapsia.
+Eduskunta on aloittanut työn uuden hallituksen kanssa. Oppositio arvosteli eduskunnassa uuden hallituksen hallitusohjelmaa. Oppositiopuolueita ovat puolueet, jotka eivät ole hallituksessa.
 
-Tasa-arvoinen avioliittolaki tulee voimaan Virossa ensi vuonna. Viron parlamentissa lain puolesta äänesti 55 kansanedustajaa. Lakia vastaan äänesti 34 kansanedustajaa.
+Monet opposition kansanedustajat käyttivät puheenvuoroja, joissa arvosteltiin hallitusta. Opposition edustajat sanovat, että hallitus leikkaa pienituloisilta ja työttömiltä, mutta hyvätuloiset saavat verokevennyksiä.
 
-Viro on ensimmäinen Keski-Euroopan maa, joka sallii samaa sukupuolta olevien henkilöiden mennä naimisiin.
+Hallituspuolueet puolustavat hallitusohjelmaa. Hallituspuolueet sanovat, että julkisessa taloudessa pitää tehdä säästöjä.
+
+## Lihansyönti
+
+![Kuvassa on lihatiski Helsingissä Pasilan Triplan Prismassa heinäkuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_306/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6955225efd511b846f5/1639640140)
+
+Avaa kuvien katselu
+
+Lihansyönti on vähentynyt jo monta vuotta. Kuva: Silja Viitala / Yle
+
+Suomalaisten lihansyönti vähenee. Keskimäärin suomalainen söi viime vuonna lihaa noin 77 kiloa.
+
+Lihansyönti väheni edellisvuodesta 2 prosenttia. Näin kertoo Luonnonvarakeskus.
+
+Lihansyönti on vähentynyt monta vuotta peräkkäin.
+
+## Kesäpäivänseisaus
+
+![Kesäyön aurinko paistaa Tornionjoella Tornion Korpikylässä. Joen toisella puolella sijaitsee Ruotsi.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97813562c3efc6443a5/1657008207)
+
+Avaa kuvien katselu
+
+Aurinko paistaa pohjoisessa nyt myös yöllä. Kuva: Pirkko Kukko-Liedes / Yle
+
+Tänään keskiviikkona on kesäpäivänseisaus.
+
+Pohjoisella pallonpuoliskolla on vuoden pisin päivä. Napapiirin pohjoispuolella, esimerkiksi Lapissa, aurinko ei laske yöllä. Etelä-Suomessa päivän pituus on noin 19 tuntia.
+
+Torstaina päivä alkaa taas lyhentyä.
 
 ## Sää
 
-![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11328276491bfd8aeea9/1687273470)
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113347164931b92ac32a/1687362484)
 
 Avaa kuvien katselu
 
-Sää on suureassa osassa maata kuumaa.
+Torstaina on edelleen lämmintä.
 
-Keskiviikkona maan etelä- ja keskiosassa on hellettä ja poutaa. Pohjoisessa on pilvistä ja tulee sadekuuroja. Lämpötila on enimmäkseen 25 ja 30 asteen välillä. Pohjoisessa on viileämpää. Kuuminta on maan etelä- ja länsiosissa.
+Torstaina on vielä enimmäkseen poutaista ja aurinkoista. Sade- ja ukkoskuuroja voi kuitenkin tulla eri puolilla maata. Lämpötila on 20 ja 30 asteen välillä.

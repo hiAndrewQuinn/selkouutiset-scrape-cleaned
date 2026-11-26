@@ -1,83 +1,81 @@
-# Radio Selkouutiset perjantai 15.9.2023
+# Radio Selkouutiset lauantai 16.9.2023
 
-Kielto venäläisille autoille. Ruotsin kuninkaan juhlat. Libyan tulvat. Ruuan hinta. Sää.
+Asuntolainat. Nato. Korkeakoulut. Vaarallinen koira. Sää.
 
-## Kielto venäläisille autoille
+## Asuntolainat
 
-![Auto pysäköitynä syksyisenä puolipilvisenä päivänä Niiralan raja-aseman edessä Pohjois-Karjalan Tohmajärvellä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_293/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117271665044a1ee61a2/1694780305)
-
-Avaa kuvien katselu
-
-Venäjän rekisterikilvillä ei enää tulla rajan yli Suomeen. Kuva: Ari Haimakainen / Yle
-
-Suomi kieltää venäläisten henkilöautojen pääsyn maahan.
-
-Kielto tulee voimaan nopeasti, jo perjantaina keskiyöllä. Sen jälkeen henkilöautoa ei enää päästetä Suomeen, jos siinä on Venäjän rekisterikilvet.
-
-Kielto ei kuitenkaan koske EU-maiden kansalaisia, jotka asuvat Venäjällä.
-
-Kielto vähentää Suomen ja Venäjän välistä rajaliikennettä. Näin on tarkoitus vähentää pakotteiden kiertämistä.
-
-Euroopan unioni on määrännyt pakotteita, jotka esimerkiksi rajoittavat kauppaa Venäjän kanssa. Pakotteiden syy on Venäjän sota Ukrainassa.
-
-## Ruotsin kuninkaan juhlat
-
-![Ruotsin kuningatar Silvia ja Karl XVI Kustaa istuvat vierekkäin kultaisilla tuoleilla.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11725486504289e34aae/1694771862)
+![Kahdenkymmenen ja viidenkymmenen euron seteleitä pino.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_500/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115736264dc9af93278e/1692179692)
 
 Avaa kuvien katselu
 
-Kuningas Kaarle Kustaa ja kuningatar Silvia. Kuva: Claudio Bresciani / Lehtikuva
+Asuntolainojen korot ovat nousseet. Kuva: Henrietta Hassinen / Yle
 
-Ruotsissa on juhlittu kuningas Kaarle Kustaata. Hän on nyt ollut Ruotsin kuningas tasan 50 vuotta.
+Ihmiset maksavat asuntolainaa takaisin nopeammin kuin ennen.
 
-Kaarle Kustaasta tuli Ruotsin kuningas 15. syyskuuta 1973. Kuningas oli silloin 27-vuotias.
+Pankit kertovat, että ongelmat asuntolainan maksussa eivät ole lisääntyneet, vaikka korot ovat nousseet.
 
-Kuninkaan juhlia on vietetty Tukholman kuninkaanlinnassa koko perjantaipäivä. Myös Suomen presidentti Sauli Niinistö ja rouva Jenni Haukio ovat olleet mukana juhlissa.
+Sen sijaan suomalaiset maksavat asuntolainoja nopeammin. Ihmiset maksavat asuntolainoja säästöillä, joita tuli koronapandemian aikana.
 
-Suomella ja Ruotsilla on läheiset suhteet. Suomi oli osa Ruotsin kuningaskuntaa noin 600 vuotta.
+## Nato
 
-Kuningas Kaarle Kustaa on vieraillut Suomessa usein. Ensi viikolla Ruotsin kuningasperheen vierailut Suomeen jatkuvat.
-
-Kaarle Kustaan tytär kruununprinsessa Victoria vierailee Suomessa ensi keskiviikkona ja torstaina.
-
-## Libyan tulvat
-
-![Maisema tulvan runtelemasta kaupungista. ](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_700/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117175365029d0ab1f96/1717407706)
+![Finlands och Natos flaggor.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_500/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10421866388837d94603/1669891021)
 
 Avaa kuvien katselu
 
-Tulvat tekivät paljon tuhoa Libyassa. Kuva: Mohamed Shalash / EPA
+Suomen lippu ja Naton lippu. Kuva: PX_MEDIA
 
-Pohjois-Afrikan Libyassa on epäselvää, kuinka paljon tuhoa tulvat ovat tehneet. Näin sanoo YK eli Yhdistyneet kansakunnat.
+Suomalaiset eivät ole keskustelleet tarpeeksi Natosta. Näin sanoo maanpuolustuskorkeakoulun professori **Tommi Koivula**.
 
-YK arvioi, että melkein 300 000 lasta kärsii tuhoista Libyan itäosissa.
+Suomi liittyi sotilasliitto Natoon viime keväänä. Päätös liittyä Natoon tehtiin nopeasti, kun Venäjä hyökkäsi Ukrainaan.
 
-Tulvien syy on myrsky, joka iski Libyaan sunnuntaina. Myrsky rikkoi patoja, ja siksi vesi syöksyi kaupunkien kaduille.
+Professori Koivula sanoo, että se oli Suomen historiassa iso muutos. Kiire oli kuitenkin niin kova, että asiasta ei keskusteltu kovin paljon.
 
-Tulvissa on kuollut monta tuhatta ihmistä. Lisäksi monet libyalaiset ovat ilman kotia.
+Esimerkiksi se on Suomelle uusi asia, että Suomella on vastuu myös muiden Naton jäsenmaiden turvallisuudesta. Historiassa suomalaiset ovat ajatelleet, että Suomella on vastuu vain omasta turvallisuudesta.
 
-## Ruuan hinta
+Myös se, että Naton ydinaseet ovat nyt osa Suomen turvallisuutta, on uusi ja iso asia.
 
-![Ruokakorissa muun muassa olutta, kahvipaketti, energiajuomatölkki, eineslaatikko, maitopurkki ja paketti terveyssiteitä.](https://img.img-cdn.yle.fi/crop_extract,w_5822,h_3274,x_6,y_518/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11719296502d92c56668/1719924643)
+## Korkeakoulut
+
+![Opiskelijoita opiskelemassa kirjastossa.](https://img.img-cdn.yle.fi/crop_extract,w_3840,h_2160,x_0,y_150/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6216845df153652ff41/1576097038)
 
 Avaa kuvien katselu
 
-Ruoka on kallistunut tänä ja viime vuonna. Kuva: Janne Körkkö / Yle
+Korkeakouluihin pyrkii tänä syksynä 56 000 opiskelijaa. Kuva: Shutterstock 
 
-Hinnat ovat nousseet Suomen ruokakaupoissa. Ruoka on nyt noin 15 prosenttia kalliimpaa kuin viime vuoden alussa.
+Korkeakouluihin pyrkii enemmän ihmisiä kuin vuosi sitten.
 
-Eri tuotteiden hinnat ovat kuitenkin nousseet eri vauhtia. Maitotuotteet ovat kallistuneet yli 20 prosenttia, mutta esimerkiksi olut on kallistunut vain 6 prosenttia.
+Tänä syksynä korkeakouluihin pyrkii 56 000 ihmistä. Se on melkein 13 000 enemmän kuin viime syksynä.
 
-Viime kuukausina ruuan hinnan nousu on kuitenkin vähän hidastunut.
+Korkeakouluja ovat yliopistot ja ammattikorkeakoulut.
+
+Eniten kilpaillaan sellaisista ammattikorkeakoulujen paikoista, joissa opetus on englannin kielellä.
+
+Niihin paikkoihin pyrkii paljon ihmisiä, jotka haluavat tulla ulkomailta Suomeen opiskelemaan.
+
+## Vaarallinen koira
+
+![Koira istuu studion lattialla.](https://img.img-cdn.yle.fi/crop_extract,w_4891,h_2751,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11728796505487f28549/1694845292)
+
+Avaa kuvien katselu
+
+Amerikanbully XL -koira. Kuva: AOP
+
+Britannia kieltää vaarallisen amerikkalaisen koirarodun. Koirarodun nimi on amerikanbully XL.
+
+Britannia kielsi amerikanbully XL -koirat torstaina. Aiemmin samana päivänä kaksi amerikanbully XL -koiraa hyökkäsi miehen kimppuun. Mies kuoli.
+
+Myös kaksi muuta ihmistä on kuollut samanlaisten koirien hyökkäyksessä.
+
+Suomessa ei ole amerikanbully XL-koiria
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11728386504747104e21/1694790816)
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11729646505c0a78d89f/1694875853)
 
 Avaa kuvien katselu
 
-Lauantaina etelässä on aurinkoista ja lämmintä, maan keskivaiheilla sataa vettä ja Lapissa on pilvistä.
+Kuva: Yle
 
-Lämpötila on lauantaina 8 ja 18 asteen välillä.
+Sunnuntain aikana sataa suuressa osassa maata.
 
-Sunnuntaina Suomeen tulee uusia sateita.
+Lämpötila o on pohjoisen 6 asteen ja etelän 16 asteen välillä.

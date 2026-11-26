@@ -1,69 +1,99 @@
-# Lauantai 29.8.2020 (radio)
+# Maanantai 31.8.2020 (radio)
 
-Lauantaina juhlittiin ylioppilaita. Uudet hävittäjät maksavat paljon. Suomen Luonnon -päivä. Venetsialaiset-juhla päättää kesämökkikauden. Sunnuntaina tulee sadekuuroja.
+Koronavilkku puhelimeen. Kuhmossa paljon tartuntoja. Isoja korona-altistuksia. Lapin matkailu kärsii. Uusia opiskelupaikkoja. Sää muuttuu aurinkoiseksi.
 
-## Kevään ylioppilaita juhlittiin
+## Koronavilkun voi ladata puhelimeen
 
-![ylioppilaslakki](https://img.img-cdn.yle.fi/crop_extract,w_3822,h_2150,x_0,y_836/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6727655eb5404130e7a/1588942773)
-
-Avaa kuvien katselu
-
-Ylioppilasjuhlat siirtyivät keväältä elokuun loppuun. Kuva: Jani Aarnio / Yle
-
-Suomessa on tänään lauantaina juhlittu kevään ylioppilaita. Ylioppilasjuhlia ei voitu järjestää keväällä koronatilanteen takia. Monet lukiot siirsivät ylioppilasjuhlat syksyyn.
-
-Ylioppilasjuhlissa on ollut erityisjärjestelyitä. Esimerkiksi osallistujamäärää rajoitettiin monilla kouluilla, että ihmiset voivat pitää turvavälit.
-
-Kaikilla paikkakunnilla ylioppilasjuhlia ei järjestetty, koska koronatartunnat ovat taas lisääntyneet.
-
-## Hävittäjät maksavat paljon
-
-![Suomen HX-hävittäjähankeen ehdokkaat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10984492)
+![Koronavilkku-sovellus puhelimessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11519205)
 
 Avaa kuvien katselu
 
-Ehdokkaat Suomen uudeksi hävittäjäksi. Kuva: AOP, kuvankäsittely Juha Rissanen / Yle
+Koronavilkku on sovellus, jonka voi ladata ilmaiseksi puhelimeen. Kuva: Silja Viitala / Yle
 
-Uudet hävittäjät maksavat Suomelle ehkä enemmän, kuin mitä Suomi on varannut hävittäjiin rahaa. Suomi on pyytänyt tarjouksen 64 hävittäjästä 5 eri firmalta.
+Nyt jokainen voi ladata omaan puhelimeen Koronavilkun.
 
-Tarjouskierroksia on ollut kaksi. Kaikkien firmojen hinta on molemmilla tarjouskierroksilla ollut enemmän kuin 10 miljardia euroa, jonka Suomi on asettanut rajaksi.
+Koronavilkun avulla yritetään estää koronaviruksen leviämistä.
 
-Kolmas ja viimeinen tarjouskierros on ensi vuonna. Silloin Suomi päättää, mitä hävittäjiä Suomi ostaa, kuinka monta ja paljonko Suomi niistä maksaa.
+Koronavilkku on sovellus, joka toimii puhelimessa. Sovellus voi antaa käyttäjälle tiedon, jos käyttäjä on altistunut koronavirukselle.
 
-## Suomen Luonnon -päivä
+Sovellus kertoo myös, miten pitää toimia, jos on saanut tartunnan.
 
-![Suppilovahvero](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9832903)
+Sovelluksella voi myös ilmoittaa muille, jos on itse saanut tartunnan. Tartunnasta voi ilmoittaa nimettömästi.
 
-Avaa kuvien katselu
+## Kuhmossa paljon koronatartuntoja
 
-Suppilovahvero on hyvä ruokasieni. Kuva: Tommi Parkkinen / Yle
-
-Tänään lauantaina vietetään Suomen luonnon päivää. Suomen luonnon päivänä on erilaisia tapahtumia.
-
-Esimerkiksi Nuku yö ulkona -kampanja kannustaa ihmisiä nukkumaan yön ulkona, esimerkiksi teltassa. Suomen luonnon päivänä suositellaan myös liputusta.
-
-Tänään on myös valtakunnallinen sienipäivä. Marttaliitto kannustaa suomalaisia keräämään ja syömään sieniä.
-
-## Venetsialaiset päättää kesän
-
-![Kuvassa valoesityksen tulihahmoja veden äärellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10943055)
+![Ravintola Eskobar Kuhmossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11518603)
 
 Avaa kuvien katselu
 
-Venetsialaisten valoesityksiä veden äärellä. Kuva: Markku Saari / Yle
+Ravintola Kuhmossa on suljettu koronan takia. Kuva: Elisa Kinnunen / Yle
 
-Tänä viikonloppuna juhlitaan kesämökkikauden ja veneilykauden päättymisen juhlaa. Juhlia sanotaan venetsialaisiksi. Nyt on elokuun viimeinen viikonloppu ja kesä päättyy.
+Itä-Suomessa Kuhmon kaupungin ympäristössä on todettu yhtäkkiä paljon koronatartuntoja.
 
-Monet ihmiset sytyttävät rantaan nuotioita ja lyhtyjä. Ne näyttävät kauniilta, kun ilta hämärtyy. Joillakin paikkakunnilla on ilotulitus.
+Tartuntoja on jo 18. 160 ihmistä on altistunut koronalle eli he ovat voineet saada tartunnan.
 
-## Sää
+Sairastuneet ovat nuoria aikuisia.
 
-![Sininen taivas aurinko ja pilviä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10786511)
+Kuhmon alueella on nyt tiukkoja koronarajoituksia.
+
+## Isoja korona-altistuksia eri puolilla maata
+
+![Älä tule ravintolaan, jos sinulla on koronaoireita -kyltti ravintola Sohvin ovessa Jyväskylässä.](https://img.img-cdn.yle.fi/crop_extract,w_3840,h_2160,x_0,y_276/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6880125ee0b355e3b2b/1591785566)
 
 Avaa kuvien katselu
 
-Sunnuntaina voi olla myös paljon pilviä. Voi myös olla puolipilvistä, jolloin aurinko välillä näkyy. Kuva: Esko Jämsä / AOP
+Yksi ihminen, jolla on koronatartunta, voi altistaa monta kymmentä ihmistä tartunnalle. Kuva: Simo Pitkänen / Yle
 
-Sunnuntaina sää on puolipilvinen tai pilvinen. Lähinnä maan etelä- ja kaakkoisosassa sekä pohjoisessa tulee sadekuuroja.
+Tänään on eri puolilta Suomea kerrottu isoista korona-altistuksista.
 
-Lämpötila on sunnuntaina 15 ja 20 asteen välillä, aivan pohjoisessa 10 ja 15 asteen välillä
+Esimerkiksi Jyväskylässä Keski-Suomessa on käynyt niin, että isoissa tapahtumissa on ollut joku ihminen, jolla on todettu koronatartunta.
+
+Tällaisessa tapauksessa voi käydä niin, että monta kymmentä ihmistä joutuu 2 viikon karanteeniin.
+
+## Lapin matkailu kärsii koronan takia
+
+![Kiinalaisturisteja poroajelulla Rovaniemellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9515874)
+
+Avaa kuvien katselu
+
+Porosafari on turistien yleinen huvi Lapissa. Kuva: AOP
+
+Lapissa iso matkailufirma joutuu ehkä irtisanomaan työntekijöitä.
+
+Lapland Hotelsin emoyhtiö aloittaa yhteistoimintaneuvottelut. Neuvottelut voivat vaikuttaa 2000 ihmisen työpaikkaan.
+
+Matkailufirmalla on mennyt huonosti koronapandemian ja koronarajoitusten takia.
+
+Matkailu työllistää Lapissa paljon ihmisiä.
+
+Lapissa on yleensä talvella paljon kausityöntekijöitä. Nyt heille ei ole töitä, kun turisteja ei tule ulkomailta.
+
+## Korkeakouluihin enemmän opiskelijoita
+
+![Radiotekniikan opiskelua Metropolia-ammattikorkeakoulussa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11462859)
+
+Avaa kuvien katselu
+
+Opiskelijoita otetaan enemmän ammattikorkeakouluihin ja yliopstoihin. Kuva: Roni Rekomaa / Lehtikuvaa
+
+Opetusministeriö on päättänyt, että korkeakouluihin otetaan lisää opiskelijoita.
+
+Lähivuosina ammattikorkeakoulut saavat ottaa melkein 4000 opiskelijaa enemmän.
+
+Yliopistot saavat ottaa yli 6000 opiskelijaa enemmän.
+
+Opiskelijoita otetaan lisää esimerkiksi sairaanhoitaja-, lääkäri- ja opettajakoulutukseen.
+
+## Sää lämpenee
+
+![Sääkuva:Jämsänkoski 25.9.2019, sumu nousee syysaamuna järvenpinnasta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11008275)
+
+Avaa kuvien katselu
+
+Yöt viilenevät, mutta päivällä on vielä lämmintä. Kuva: Hannu Laitonen
+
+Sää lämpenee. Huomenna tiistaina aurinko paistaa, vain Lapin pohjoisosassa on pilvistä ja voi sataa vettä.
+
+Ensi yönä voi olla hallaa.
+
+Lämpötila voi siis laskea nollan alapuolelle maanpinnan tasalla.

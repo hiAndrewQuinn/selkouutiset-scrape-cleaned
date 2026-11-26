@@ -1,69 +1,83 @@
-# Radio Selkouutiset keskiviikko 28.6.2023
+# Radio Selkouutiset lauantai 1.7.2023
 
-Elinkeinoministeri Junnila. Vaalien äänestys. Nuorisorikollisuus. Vanhusten kotihoito. Sää.
+Opposition kritiikki. Pride-kulkue. Kenian liikenneonnettomuus. Ranskan mielenosoitukset. Suviseurat. Sää.
 
-## Elinkeinoministeri Junnila
+## Opposition kritiikki
 
-![Elinkeinoministeri, perussuomalaisten Vilhelm Junnila eduskunnan täysistunnon jälkeen Helsingissä 28. kesäkuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135640649c20073ee73/1688117301)
-
-Avaa kuvien katselu
-
-Elinkeinoministeri, perussuomalaisten Vilhelm Junnila eduskunnan täysistunnon jälkeen Helsingissä 28. kesäkuuta 2023. Kuva: Eeva-Maria Brotherus / Lehtikuva
-
-Perussuomalainen elinkeinoministeri Vilhelm Junnila on saanut eduskunnan luottamuksen. Eduskunta äänesti käytännössä siitä, voiko Junnila olla elinkeinoministeri.
-
-Junnila sai eduskunnan äänestyksessä luottamuksen äänin 95–86. Tyhjiä ääniä oli 3. Äänestyksestä oli poissa 15 kansanedustajaa.
-
-Vihreät, vasemmistoliitto ja SDP vaativat elinkeinoministeri Vilhelm Junnilan eroa. Syynä ovat Junnilan äärioikeistoon liittyvät puheet. Junnila myös osallistui tapahtumaan, jolla oli yhteys äärioikeistoon.
-
-## Eduskuntavaalien äänestys
-
-![Täysistuntosali.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131012648c4c350d7cf/1686917217)
+![Vilhelm Junnila puhuu puhujan korokkeella. Toisella puolella jokea Junnilan taustalla on mustiin vaatteisiin pukeutuneiden ihmisten rivi.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_1,y_323/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135364649bc4ef459b4/1688028318)
 
 Avaa kuvien katselu
 
-Ihmisen sukupuoli, ikä ja koulutus vaikuttavat vaaleissa paljon puolueen valintaan. Kuvituskuva. Kuva: Silja Viitala / Yle
+Vilhelm Junnilan puheissa on ollut sanoja, joita myös natsit käyttävät. Kuva: Roni Lehti / Lehtikuva
 
-Åbo Akademi on tutkinut eduskuntavaalien äänestystä. Tutkimus kertoo, että yli 30 prosenttia työikäisistä miehistä äänesti vaaleissa perussuomalaisia.
+Oppositiopuolueet kritisoivat hallitusta ministeri Vilhelm Junnilan tapauksessa. Oppositiopuolueet eivät ole mukana hallituksessa.
 
-Ihmisen sukupuoli, ikä ja koulutus vaikuttavat paljon puolueen valintaan. Miehistä noin 50 prosenttia äänesti perussuomalaisia tai kokoomusta. Naisten joukossa oli eniten SDP:n kannattajia.
+Hallitus ei vaatinut Junnilaa eroamaan, vaikka Junnilan puheissa on ollut natsien sanoja. Siksi hallitus toimi opposition mielestä väärin.
 
-Perussuomalaiset oli suosituin puolue kaikissa muissa ikäryhmissä, paitsi yli 65-vuotiaissa.
+Perussuomalaisten Junnila päätti itse erota elinkeinoministerin tehtävästä perjantaina.
 
-## Nuorisorikollisuus
+## Pride-kulkue
 
-![Lapsiasiavaltuutettu Elina Pekkarinen.](https://img.img-cdn.yle.fi/crop_extract,w_5304,h_2983,x_0,y_2305/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135284649b123219b7f/1694531019)
-
-Avaa kuvien katselu
-
-Lapsiasiavaltuutettu Elina Pekkarinen. Kuva: Rinna Härkönen / Yle
-
-Lapsiasiavaltuutettu arvostelee uuden hallituksen suunnitelmia siitä, miten nuorisorikollisuutta torjutaan. Lapsiasiavaltuutettu Elina Pekkarinen sanoo, että nuorten rikollisuutta pitää torjua enemmän jo etukäteen.
-
-Pekkarinen korostaa, että lapsiperheiden köyhyyttä pitää vähentää. Pekkarisen mielestä uuden hallituksen ohjelma ei vähennä lapsiperheiden köyhyyttä, vaan lisää sitä.
-
-Poliisi kertoo, että alle 15-vuotiaat tekevät enemmän rikoksia kuin aikaisemmin.
-
-## Vanhusten kotihoito
-
-![Vanhuksen käsi, jossa turvaranneke](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_312/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11336506493fd189c90e/1698058728)
+![Helsinki Pride -kulkue Senaatintorilla.](https://img.img-cdn.yle.fi/crop_extract,w_3464,h_1948,x_0,y_360/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113718264a024363860a/1719193489)
 
 Avaa kuvien katselu
 
-Vanhusten kotihoito on vähentynyt. Kuvituskuva. Kuva: Juha Kemppainen / Yle
+Pride-kulkueessa oli noin 100 000 ihmistä. Kuva: Benjamin Suomela / Yle
 
-Terveyden ja hyvinvoinnin laitos THL on huolissaan siitä, että vanhukset saavat vähemmän kotihoitoa kuin aikaisemmin. Vanhusten kotihoito on nyt vähentynyt 1. kerran, vaikka vanhuksia on enemmän kuin ennen.
+Helsingissä on järjestetty Pride-kulkue. Ihmiset kulkivat Senaatintorilta Kaivopuistoon, jossa järjestettiin puistojuhla.
 
-Varsinkin Helsingissä hoitajat käyvät vanhusten kotona vähemmän kuin aikaisemmin. THL pelkää, että jotkut vanhukset jäävät ilman hoitoa.
+Pride-kulkue on Helsinki Pride -viikon päätapahtuma. Tänä vuonna tapahtumaan osallistui jopa 100 000 ihmistä.
+
+Helsinki Pride on suuri ihmisoikeustapahtuma. Sen teemana ovat seksuaalivähemmistöjen ja sukupuolivähemmistöjen oikeudet.
+
+Pride-kulkue muistuttaa, että kaikilla on oikeus olla oma itsensä. Vielä noin 50 vuotta sitten homoseksuaaliset teot olivat Suomessa rikos.
+
+## Kenian onnettomuus
+
+Afrikan Keniassa on tapahtunut paha liikenneonnettomuus. Yli 50 ihmistä kuoli ja yli 30 ihmistä loukkaantui onnettomuudessa.
+
+Onnettomuus tapahtui Länsi-Keniassa. Kuorma-auto ajoi ulos tieltä ja törmäsi autoihin ja jalankulkijoihin.
+
+## Ranskan mielenosoitukset
+
+![Mielenosoittajia kadulla Ranskan Marseillessa 30. kesäkuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_485/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136871649f183d61936/1688148115)
+
+Avaa kuvien katselu
+
+Mielenosoitukset ovat jatkuneet jo monta yötä. Kuva: Christophe Simon / AFP
+
+Mielenosoitukset ovat jatkuneet Ranskassa. Perjantain ja lauantain välisenä yönä poliisi otti kiinni yli 1300 mielenosoittajaa.
+
+Monet ranskalaiset ovat suuttuneet poliisin väkivallan takia. 17-vuotias poika kuoli tiistaina, kun poliisi ampui hänet liikennevalvonnan aikana.
+
+Poika oli algerialaistaustainen arabi. Hänet haudattiin lauantaina.
+
+## Suviseurat
+
+![Suviseurat Kauhavalla 2023, kuvassa seurakenttää torstai-iltana 29.6.2023.](https://img.img-cdn.yle.fi/crop_extract,w_5565,h_3130,x_0,y_579/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136800649ed1cc8e61b/1688130051)
+
+Avaa kuvien katselu
+
+Suviseuroihin on tullut 75 000 ihmistä. Kuva: Suviseurat, kuvapalvelu
+
+Kauhavalla järjestetään tänä viikonloppuna Suviseurat. Suviseurat on lestadiolaisten kesäjuhla.
+
+Lestadiolaiset ovat yksi Suomen kirkon herätysliikkeistä. Lestadiolainen herätysliike on vahva erityisesti Pohjois-Suomessa.
+
+Lestadiolaisten mielestä raskauden ehkäisy on väärin. Siksi perheet ovat isoja.
+
+Myös Suviseurat on iso tapahtuma. Tapahtumaan osallistuu noin 75 000 ihmistä.
 
 ## Sää
 
-![Asuntoautoja leirintäalueella aurinkoisena päivänä.](https://img.img-cdn.yle.fi/crop_extract,w_1612,h_907,x_12,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11335796493e996880d6/1687415806)
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113720064a03cab81d72/1688222932)
 
 Avaa kuvien katselu
 
-Sää jatkuu lämpimänä. Kuvituskuva. Kuva: Maija Tuunila / Yle
+Heinäkuu on alkanut sateisessa säässä.
 
-Sää on yöllä poutainen. Torstaina päivällä monin paikoin tulee sade- ja ukkoskuuroja varsinkin Itä-Suomessa ja Pohjois-Suomessa.
+Esimerkiksi Helsingin seudulla satoi lauantaina enemmän kuin koko kesäkuun aikana.
 
-Yölämpötila on 10 ja 16 asteen välillä. Torstaina päivälämpötila on 21 ja 27 asteen välillä. Pohjois-Lapissa lämmintä on paikoin alle 20 astetta.
+Ylen meteorologi Anne Borgström kertoo, että kesäkuu oli epätavallisen kuiva.
+
+Sateet jatkuvat myös sunnuntaina. Lämpötila on etelässä noin 20 astetta, pohjoisessa on viileämpää.

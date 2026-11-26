@@ -1,83 +1,67 @@
-# Radio | Selkouutiset | Torstai 31.8.2023
+# Radio. Selkouutiset. Lauantai 2.9.2023
 
-Rasismin vastainen tiedonanto. Holokaustin kieltäminen. Ruoan hinta. Vammaispalvelulaki. Nimipäivät. Sääennuste.
+RKP. SDP. Suomen ja Ruotsin maaottelu. Sää.
 
-## Rasismin vastainen tiedonanto
+## RKP
 
-![Kokoomuksen puheenjohtaja, pääministeri Petteri Orpo kommentoi medialle tiedotustilaisuudessa, joka käsitteli tiedonantoa yhdenvertaisuuden, tasa-arvon ja syrjimättömyyden edistämiseksi, Helsingissä .](https://img.img-cdn.yle.fi/crop_extract,w_5110,h_2868,x_0,y_320/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116549964f07da7ba7c5/1693559342)
-
-Avaa kuvien katselu
-
-Pääministeri Petteri Orpo kertoi hallituksen tiedonannosta. Kuva: Markku Ulander / Lehtikuva
-
-Hallitus on hyväksynyt rasismin vastaisen tiedonannon.
-
-Se tarkoittaa, että hallitus on sopinut, miten hallitus torjuu rasismia.
-
-Pääministeri **Petteri Orpo** sanoo, että jokainen hallituksen ministeri irtisanoutuu rasismista ja jokainen ministeri sitoutuu työhön rasismia vastaan.
-
-## Holokaustin kieltäminen
-
-![flicka med ryggern mot kameran vid minnemärket över upproret i Treblinka 1943](https://img.img-cdn.yle.fi/crop_extract,w_4096,h_2304,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106480263d39c354f169/1674812563)
+![Anna-Maja Henriksson Ylen studiossa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_370/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116650764f2e4dd1b642/1693643295)
 
 Avaa kuvien katselu
 
-Treblinkan keskitysleiri Puolassa oli yksi paikoista, joissa juutalaisia surmattiin. Kuva: EPA-EFE
+RKP:n puheenjohtaja Anna-Maja Henriksson Ylen haastattelussa lauantaina. Kuva: Antti Haanpää / Yle
 
-Hallitus on kertonut uusista rasismin vastaisista toimista. Hallitus käynnistää ohjelman, jolla kehitetään tasa-arvoa ja yhdenvertaisuutta kaikissa kouluissa ja oppilaitoksissa.
+Hallitukseen osallistuminen on ollut RKP:lle vaikeaa. Näin sanoo puolueen puheenjohtaja Anna-Maja Henriksson.
 
-Tarkoitus on esimerkiksi saada maahanmuuttajaperheiden lapset osallistumaan varhaiskasvatukseen nykyistä enemmän.
+Henriksson kertoo Ylen haastattelussa, että RKP:ssä on keskusteltu jopa siitä, lähteekö puolue pois hallituksesta. Henriksson toivoo, että hallitukseen tulee työrauha ja hallitus voi aloittaa syksyn työt.
 
-Hallitus haluaa myös estää vihatekoja juutalaisia, muslimeja, kristittyjä ja muita uskontoryhmiä vastaan. Tarkoitus on, että esimerkiksi holokaustin kieltämiseen puututaan lailla. Jotkut ihmiset kiistävät juutalaisten joukkotuhon eli holokaustin 2. maailmansodassa. Tarkoitus on, että jatkossa kiistäminen on laitonta.
+RKP on riidellyt hallituksessa erityisesti perussuomalaisten kanssa. Perussuomalaisten ministerien vanhat rasistiset kirjoitukset huononsivat puolueiden välejä.
 
-## Ruoan hinta
+Tällä viikolla hallitus sai valmiiksi tiedonannon rasismista. Tiedonannossa hallitus kertoo, miten se aikoo taistella rasismia vastaan. Tiedonanto on kaikkien hallituspuolueiden yhteinen kirjoitus.
 
-![Asiakas kantaa ostoskoria ruokakaupassa.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-774563602b9bbe33527/1613471412)
+Eduskunta käsittelee hallituksen tiedonantoa ensi viikolla. Henriksson toivoo, että RKP:n kansanedustajat tukevat silloin hallitusta.
 
-Avaa kuvien katselu
+## SDP
 
-Ruoan hinta on kallistunut, mutta kallistuminen on hidastunut hieman. Kuva: Tiina Jutila / Yle
-
-Ruoan hinta on kallistunut vuodessa paljon. Heinäkuussa ruoka maksoi yli 8 prosenttia enemmän, kuin viime vuoden heinäkuussa.
-
-Kallistuminen on kuitenkin hidastunut. Näin kertoo kauppojen järjestö PTY.
-
-Koko alkuvuonna eli tammikuusta heinäkuuhun ruoan hinta nousi melkein 13 prosenttia viime vuoden tammi-heinäkuuhusta. Heinäkuussa ruoan hinta nousi siis vähän hitaammin kuin aiemmin tänä vuonna.
-
-## Vammaispalvelulaki
-
-![Pyörätuolin renkaat lähikuvassa ja siinä istuvan henkilön jalat.](https://img.img-cdn.yle.fi/crop_extract,w_2014,h_1134,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114358864b500a12c54a/1693482950)
+![Mikkel Näkkäläjärvi, Nasima Razmyar, Niina Malm, Matias Mäkynen, Nasima Razmyar ja Antti Lindtman.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_428/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116665064f32473a477c/1693662413)
 
 Avaa kuvien katselu
 
-Vammaispalvelulaki tulee ehkä voimaan vuoden 2025 alussa. Kuva: Katja Halinen
+SDPP:n puoluesihteeri Mikkel Näkkäläjärvi (vasemmalla) ja puheenjohtaja Antti Lindtman (oikealla). Lindtmanin vieressä ensimmäinen varapuheenjohtaja Nasima Razmyar. Kuva: Silja Viitala / Yle
 
-Hallitus haluaa lykätä lisää vammaispalvelulain voimaantuloa. Hallitus haluaa vielä muuttaa sitä, mitä asioita, henkilöitä tai organisaatioita laki koskee.
+SDP:n puoluekokous on jatkunut Jyväskylässä.
 
-Alun perin vammaispalvelulain piti tulla voimaan tänä syksynä. Hallitusneuvotteluissa sovittiin, että lakia lykätään 1 vuodella eli ensi vuoden syksyyn.
+Lauantaina puoluekokous valitsi puoluesihteerin ja varapuheenjohtajat. SDP:n uusi puoluesihteeri on Mikkel Näkkäläjärvi, ja ensimmäinen varapuheenjohtaja on nyt Nasima Razmyar.
 
-Nyt hallitus haluaa siirtää vammaispalvelulakia vielä vähän niin, että laki tulee voimaan vuoden 2025 alussa.
+SDP sai uuden puheenjohtajan jo perjantaina, kun puheenjohtajan paikalle valittiin Antti Lindtman.
 
-## Nimipäivät
+Lindtman alkaa nyt johtaa SDP:n työtä yhdessä puoluesihteerin ja varapuheenjohtajien kanssa. SDP on suurin oppositiopuolue, eli puolue ei ole hallituksessa.
 
-![Nimipäiväkalenteri](https://img.img-cdn.yle.fi/crop_extract,w_4128,h_2322,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-2026554ec8467137d2/1424786541)
+## Maaottelu
+
+![Elmo Lakka ylittää aidan.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1992,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1003182631494b542375/1662293244)
 
 Avaa kuvien katselu
 
-Kalenteriin otetaan joka vuosi uusia nimiä. Kalenterista jää pois nimiä, joita ei ole paljon käytössä.  Kuva: Yle/Anna Keränen
+Suomen ja Ruotsin yleisurheilijat kohtaavat maaottelussa joka vuosi. Maaottelu järjestetään vuorotellen Ruotsissa ja Suomessa. Tämä kuva on viime vuodelta. Kuva: Matti Raivio / All Over Press
 
-Suomalaiseen kalenteriin tulee taas uusia nimipäiviä. Helsingin yliopisto kertoo, että vuoden 2025 kalenteriin tulee 33 uutta nimeä.
+Suomen ja Ruotsin yleisurheilijat kilpailevat tänä viikonloppuna maaottelussa. Yleisurheilun maaottelu järjestetään tänä vuonna Tukholmassa.
 
-Osa nimistä on vanhoja nimiä, jotka palaavat kalenteriin tauon jälkeen. Tällaisia ovat esimerkiksi nimet Aamos, Linus ja Rolf.
+Suomen ja Ruotsin maaottelu on vanha perinne. Ensimmäisen kerran maaottelu järjestettiin melkein 100 vuotta sitten, vuonna 1925.
 
-Suomalaiseen kalenteriin tulee myös kansainvälisiä nimiä. Tällaisia ovat esimerkiksi Amelia, Jare, Jasu, Kevin ja Neo.
+Naisurheilijat tulivat maaotteluun mukaan 70 vuotta sitten. Yleisurheilun maaottelu Suomen ja Ruotsin välillä järjestetään joka vuosi.
+
+Viime vuosina Ruotsi on ollut maaottelussa parempi. Suomen naiset voittivat Ruotsin viimeksi vuonna 2015. Suomen miesten edellinen voitto tuli vuonna 2018.
+
+Ylen kanavilta voi seurata, miten maaottelussa käy tänä vuonna.
 
 ## Sää
 
-![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116574164f0a60854874/1693492780)
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116666364f32ed72e1d3/1693658890)
 
 Avaa kuvien katselu
 
-Perjantai on melko lämmin koko maassa.
+Sunnuntaina sateet vähenevät. Sadekuuroja tulee kuitenkin eri puolilla maata, erityisesti Länsi-Suomessa.
 
-Perjantaina Lapissa sataa yleisesti vettä. Muualla tulee paikoin sadekuuroja. Lämpötila on noin 20 astetta, Lapissa on viileämpää.
+Maanantaina Suomeen tulee uusia sateita. Sateen jälkeen Suomeen virtaa kuivempaa ilmaa.
+
+Lämpötila on 15 ja 20 asteen välillä. Lapissa on maanantaina kylmempää.

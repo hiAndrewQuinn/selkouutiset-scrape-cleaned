@@ -1,77 +1,87 @@
-# Radio Selkouutiset perjantai 9.6.2023
+# Radio Selkouutiset tiistai 13.6.2023
 
-Hallitusneuvottelut. Ukrainan tulva. Teknologiateollisuuden työntekijäpula. Suomen kieli Viron kouluissa. Sää.
+Terveydenhuolto. Verohuijaukset. Sähköautot. Elintarvikkeet. Sää.
 
-## Hallitusneuvottelut
+## Terveydenhuolto
 
-![Petteri Orpo kävelee ulkona ja ohikulkija moikkaa häntä. Taustalla on Suomen pankin pääkonttori.](https://img.img-cdn.yle.fi/crop_extract,w_4907,h_2760,x_213,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125140647ec49ea226a/1686316652)
-
-Avaa kuvien katselu
-
-Hallitusneuvottelujen vetäjä Petteri Orpo. Kuva: Antti Aimo-Koivisto / Lehtikuva
-
-Hallitusneuvottelut voivat olla valmiit ensi viikon lopulla. Näin sanoo hallitusneuvottelujen vetäjä Petteri Orpo.
-
-Orpo kertoi perjantaina, että puolueet neuvottelevat vielä joistakin vaikeista asioista. Hallitusneuvotteluissa ovat mukana kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
-
-Orpo sanoo, että puolueiden pitää neuvotella vielä esimerkiksi sosiaali- ja terveyspalveluista. Erityisen vaikea on päättää rahoista, joita palveluihin tarvitaan.
-
-## Ukrainan tulva
-
-![Pelastustyöntekijä nostaa vanhaa naista veneestä rannalle.](https://img.img-cdn.yle.fi/crop_extract,w_5524,h_3093,x_0,y_345/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11267096481b4cb5f399/1686322850)
+![Hammaslääkärin sormet ja työkalu potilaan suussa sekä potilas gynekologin tuolissa. ](https://img.img-cdn.yle.fi/crop_extract,w_1237,h_695,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112854664871e6575970/1686576859)
 
 Avaa kuvien katselu
 
-Pelastustyöt Ukrainan tulva-alueella jatkuvat. Kuva: Mykola Tymchenko / EPA
+Kuva: Anne Mattsson, Mostphotos
 
-Ukrainan tulvassa on kuollut ihmisiä. Kuolleiden määrä on ainakin yli 10. Ihmisiä on myös kadonnut tulvan takia.
+Ihmisoikeusjärjestö Amnesty International arvostelee Suomen julkista terveydenhuoltoa.
 
-Tulvan syy on se, että iso Kahovkan pato meni rikki tiistaina. Siksi Dnepr-joki tulvii. Ukraina sanoo, että Venäjä tuhosi padon.
+Järjestö sanoo, että oikeus terveyteen ei ole yhdenvertaista. Amnesty sanoo, että Suomi rikkoo maan velvoitteita ihmisoikeuksiin.
 
-Pelastustyöt tulva-alueella jatkuvat. Myös Suomi lähettää alueelle apua, esimerkiksi ruokaa ja tarvikkeita juomaveden puhdistamista varten.
+Amnestyn raportti kertoo, että Suomessa on liian vähän esimerkiksi seksuaaliterveyden palveluja. Esimerkiksi gynekologin vastaanotto on usein yksityisellä puolella.
 
-## Työntekijäpula
+Suomi on kuitenkin sitoutunut poistamaan syrjintää, joka perustuu sukupuoleen.
 
-![Kaksi henkilöä työskentelee laboratoriossa.](https://img.img-cdn.yle.fi/crop_extract,w_5868,h_3300,x_0,y_367/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125900648070df6c5e5/1686139180)
+Ongelmia on myös hammashoidossa ja mielenterveyden hoidossa.
 
-Avaa kuvien katselu
+Amnesty sanoo, että Suomen julkinen terveydenhuolto on heikentynyt jo pitkään.
 
-Teknologiateollisuudessa on monenlaisia työpaikkoja. Kuva: Sasha Silvala / Yle
+## Huijaukset Verohallinnon nimissä
 
-Teknologiateollisuudessa tarvitaan lisää työntekijöitä.
-
-Esimerkiksi hitsaajia ja koneistajia on liian vähän. Myös automaation, robotiikan ja tekoälyn osaajia tarvitaan lisää.
-
-Monet teknologia-alan firmat sanovat, että ne eivät voi kasvattaa bisnestä, koska niillä ei ole tarpeeksi työntekijöitä.
-
-Arvioidaan, että teknologiateollisuudessa tarvitaan tulevina vuosina yli 100 000 uutta työntekijää.
-
-## Suomen kieli Viron kouluissa
-
-![Viron yläasteilla ja lukioissa käytettävä Suomen kielen oppikirja avattuna.](https://img.img-cdn.yle.fi/crop_extract,w_1083,h_608,x_0,y_90/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112287364785486901f1/1685607879)
+![Henkilö katsoo vero.fi-sivustoa tietokoneen ruudulta.](https://img.img-cdn.yle.fi/crop_extract,w_2991,h_1682,x_112,y_15/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7368125f9d36951db80/1666765174)
 
 Avaa kuvien katselu
 
-Suomen opiskelu on nyt suosittua Virossa. Kuva: Rain Kooli / Yle
+Kuva: Tiina Jutila / Yle
 
-Suomen kielen suosio kasvaa Viron kouluissa. Monissa Viron peruskouluissa ja lukioissa oppilaat valitsevat nyt suomen toiseksi vieraaksi kieleksi.
+Verohallinto varoittaa, että sen nimissä on lähetetty huijausviestejä. Viesteissä luvataan veronpalautuksia.
 
-Monet oppilaat valitsevat suomen, koska he eivät halua enää opiskella venäjää. Venäjän kielen suosio on laskenut tosi paljon, sen jälkeen kun Venäjä aloitti sodan Ukrainassa.
+Viestit eivät ole verottajalta.
 
-Virolaisten mielestä suomea on helppo oppia, koska viro ja suomi ovat sukukieliä. Siksi kielet ovat melko samanlaisia.
+Liikkeellä on kahdenlaisia huijauksia. Asiakkaille on lähetetty huijaavia tekstiviestejä tai sähköposteja. Lisäksi verkossa on huijaussivu, joka näyttää Omavero-palvelulta.
 
-Vielä 30 vuotta sitten monet virolaiset osasivat jonkin verran suomea, koska he katsoivat paljon Suomen televisiota. Nykyään suosituin vieras kieli Virossa on englanti.
+Viesteissä pyydetään klikkaamaan linkkiä ja pyydetään pankkitietoja tai henkilötietoja.
+
+Verohallinto neuvoo, että viestit pitää tuhota välittömästi. Viestissä olevia linkkejä ei pidä avata.
+
+Huijauksia on nyt liikkeellä, koska pian maksetaan veronpalautuksia.
+
+## Sähköautot
+
+![Valkoisen sähköauton perä. Latausluukku on auki ja autossa on kiinni latauspistooli.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2268,x_0,y_661/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-103379463723c75cfb11/1668431539)
+
+Avaa kuvien katselu
+
+Kuva: Mika Moksu / Yle 
+
+Autoalan tiedotuskeskus ennustaa, että Suomessa on vuonna 2040 yli 1,5 miljoonaa sähköautoa.
+
+Jo vuoteen 2025 mennessä 42 prosenttia uusista autoista on Suomessa sähköautoja.
+
+Viime vuonna sähköauton keskihinta oli noin 50 000 euroa.
+
+## Elintarvikkeet
+
+![Mies, jonka selässä lukee tulli, seisoo selkä kohti kameraa. Hän katselee autoa, joka on pysähtynyt hänen eteensä. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_697/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9981366304aca4b0675/1661250849)
+
+Avaa kuvien katselu
+
+Kuva: Noora Palola / Yle
+
+Tulli epäilee, Suomeen tuodaan elintarvikkeita väärin.
+
+Yksityishenkilöt ovat tuoneet ruokaa yksityisesti mutta myyneet ruoan eteenpäin. Ruokaa on tuotu Euroopan unionin ulkopuolelta.
+
+Tulli epäilee, että ruokaa on käytetty esimerkiksi ravintoloissa.
+
+Tulli sanoo, että tällaisella toiminnalla yritetään välttää veroja. Lisäksi ruuan turvallisuutta ei valvota.
+
+Elintarvikkeista on muun muassa löydetty kiellettyjä lisäaineita.
 
 ## Sää
 
-![Lähivuorokausien sää on koko maassa aurinkoinen ja lämmin.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112758764832529720ac/1686316447)
+![Sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1129122648887f00f0a2/1686669343)
 
 Avaa kuvien katselu
 
-Kuva: Anniina Valtonen/Yle
+Keskiviikkona sää on aurinkoinen.
 
-Sää on poutaista ja aurinkoista. Sää myös lämpenee.
+Lämpötila kohoaa 25 asteen vaiheille. Pohjoisessa on pari astetta viileämpää.
 
-Lauantaina lämpötila on 15 ja 20 asteen välillä. Sunnuntaina lämpötila on yli 20 astetta.
-
-Ensi viikolla mitataan jo hellelukemia, jolloin lämpötila on vähintään 25 astetta.
+Ylä-Lapissa lämpötila on noin 16 astetta.

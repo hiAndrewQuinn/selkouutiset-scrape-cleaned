@@ -1,69 +1,85 @@
-# Lauantai 29.7.2017 (radio)
+Merivartiostot
 
-Lapsia kaapataan ulkomaille entistä enemmän. Posti kärsii ruuhkista. Pohjois-Korea teki taas ohjuskokeen. Roolipelaajat ovat koolla Ropeconissa.
+# Sunnuntai 30.7.2017 (radio)
 
-## Lapsikaappaukset
+Venäjän laivasto juhli Pietarissa. Merivartioston kesä on kiireinen. Hyvä lukko voi pysäyttää pyörävarkaan. Lähipäivien sää on vaihtelevaa, mutta lämmintä.
 
-![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9746321)
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9747357)
 
 Avaa kuvien katselu
 
 Kuva: Yle Uutisgrafiikka
 
-Lapsikaappausten määrä Suomessa on kasvanut.
+- 
 
-Suomesta ulkomaille kaapattuja, alle 16-vuotiaita lapsia oli viime vuonna yhteensä 46. Se on suurin määrä 10 vuoteen.
+  
 
-Lapsikaappaus tarkoittaa sitä, että lapsi on viety pois vakituisesta asuinmaasta ilman huoltajan lupaa. Tavallisesti lapsen kaappaa toinen vanhemmista.
+  Merja Windia
 
-Lapsikaappaus kriminalisoitiin Suomessa vuonna 2006 eli lapsen kaappaaminen on lain mukaan rikos.
+  
 
-Viime vuosina Suomesta on kaapattu lapsia eniten Ruotsiin, Espanjaan ja Viroon.
+  
 
-## Postin ruuhkat
+30.7.2017 17:28
 
-![Postin logo toimistorakennuksen edustalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7966774)
+## Venäjällä juhlittiin laivastoa
 
-Avaa kuvien katselu
-
-Posti ei ole enää ainoa firma, joka jakaa kirjepostia. Kuva: Yle
-
-Posti on ruuhkautunut tämän vuoden aikana pahasti. Posti sanoo, että ruuhka johtuu kirjepalvelujen vapautumisesta viime vuonna.
-
-Kirjeitä voi nyt jakaa Postin lisäksi myös yli 10 muuta jakeluyhtiötä. Jos muut yhtiöt jakavat kirjeet vääriin osoitteisiin, kuluttajat usein palauttavat kirjeet postiin.
-
-Posti sanoo, että alkuvuoden aikana sille on palautettu kymmeniätuhansia kirjeitä, jotka kuuluvat jakeluyhtiöiden vastuulle. Sen takia ruuhka postissa on kasvanut koko ajan.
-
-Postilaatikkoon saa palauttaa vain ne kirjeet, jotka posti on jakanut. Muiden palauttamiseen täytyy kysyä neuvoa jakeluyhtiöltä.
-
-## Pohjois-Korean ohjuskoe
-
-![Miehet kävelevät tv-screenin ohi, jossa näkyy Kim Jong-Unin kasvot.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9747741)
+![laivat ajavat avatun sillan ohi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9748633)
 
 Avaa kuvien katselu
 
-Pohjois-Korean johtaja Kim Jong-un sanoo, että ohjuskoe oli vakava varoitus Yhdysvalloille. Kuva: Kimimasa Mayama / EPA
+Venäjän laivaston alukset purjehtiivat paraatissa pitkin Neva-jokea. Kuva: Alexander Zemlianichenko / EPA
 
-Pohjois-Korea on tehnyt uuden ohjuskokeen.
+Venäjällä on vietetty laivaston päivää. Laivaston päivän päätapahtuma oli tällä kertaa Pietarissa.
 
-Pohjois-Korea laukaisi illalla ohjuksen, joka lensi noin 1000 kilometriä ja putosi sitten Pohjois-Japanin vesille. Pohjois-Korea sanoo, että se testasi mannertenvälistä ohjusta ja että koe onnistui hyvin.
+Neva-joella nähtiin suuri laivastoparaati, jossa oli mukana kymmeniä laivoja, sukellusveneitä, lentokoneita ja helikoptereita. Paraatiin osallistui myös noin 5000 sotilasta.
 
-Tämä oli 11. ohjuskoe, jonka Pohjois-Korea teki tänä vuonna.
+Paraatin vetonaula oli maailman suurin ydinsukellusvene Dmitri Donskoi.
 
-Ranska haluaa, että YK:n turvallisuusneuvosto määrää uusia pakotteita Pohjois-Korealle ohjuskokeen takia.
+## Merivartioston kesä on kiireinen
 
-## Ropecon
-
-![sulkiin ja turkiksiin pukeutunut nainen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9748037)
+![Luutnantti Santeri Laitanen ohjaa venettä pysähtymään pistokoetta varten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9748199)
 
 Avaa kuvien katselu
 
-Barbara Dubrovskaja tuli Ropecon-roolipelitapahtumaan Virosta. Kuva: Linda Manner / Lehtikuva
+Merivartiosto tehtäviin kuuluu myös veneturvallisuuden valvonta Kuva: Pekka Tynell / Yle
 
-Roolipelaamisen harrastajat ovat kokoontuneet Ropecon-tapahtumaan Helsingin Messukeskukseen. Tapahtumaan osallistuu viikonlopun aikana tuhansia innokkaita pelaajia.
+Kesä on Suomenlahden merivartiostolle kiireistä aikaa.
 
-Ropeconissa voi pelata esimerkiksi kortti- tai lautapelejä tai osallistua larppiin eli live-roolipeliin. Larppi on melkein kuin teatteria, sillä siinä pelaajat pukeutuvat roolivaatteisiin ja esittävät eri pelihahmoja.
+Esimerkiksi tänä kesänä merivartiostoa on tarvittu apuun, kun Helsingin edustalla on sattunut tavallista enemmän kanoottien kaatumisia ja veneiden yhteentörmäyksiä.
 
-Tänä vuonna suosittuja peliteemoja ovat esimerkiksi vampyyrit ja maailma maailmanlopun jälkeen.
+Suomenlahden merivartiostolla on vuosittain noin 1000 meripelastutehtävää. Niistä suurin osa on kesällä.
 
-Ropecon on järjestetty vuodesta 1994 lähtien.
+Sää vaikuttaa paljon pelastustehtävien määrään. Hyvällä säällä merelle lähtee paljon veneilijöitä, ja silloin myös pelastustehtäviä on enemmän kuin huonolla säällä.
+
+Kapteeniluutnantti Oiva Juntunen on iloinen siitä, että nykyään melkein kaikki veneilijät käyttävät pelastusliivejä.
+
+## Hyvä lukko voi pysäyttää pyörävarkaan
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9747357)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Jos omistat polkupyörän, siihen kannattaa ostaa hyvä lukko. Muuten pyörä voi kadota pyörävarkaiden mukaan.
+
+Poliisi sanoo, että esimerkiksi monet vaijerilukot pyörävarkaan on helppo katkaista työkalujen avulla. Ketjulukon katkaiseminen on vaikeampaa, mutta siinäkin varas voi onnistua.
+
+Poliisin mielestä kaarimallinen U-lukko on ehkä paras suoja pyörälle. Jos pyörän lukitsee U-lukolla ylhäältä rungosta esimerkiksi johonkin kaiteeseen, varkaan on tosi vaikea katkaista lukkoa.
+
+Pyöriä varastetaan eniten kesällä. Poliisi kertoo, että Helsingissä varkaat vievät paljon etenkin Jopo-merkkisiä pyöriä.
+
+## Kesä jatkuu vielä
+
+![Salamointia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5391987)
+
+Avaa kuvien katselu
+
+Etelä-Suomessa voi maanantaina jyrähtää ukkonen. Kuva: Yle
+
+Elokuu alkaa ylihuomenna tiistaina lämpimässä säässä.
+
+Ylen meteorologi Joonas Koskela kertoo, että lämpötilat ovat melkein koko maassa 20 ja 24 asteen välillä. Vain Pohjois-Lapissa on koleaa, lämpötila on alle 10 astetta.
+
+Alkuviikon sää on myös vaihtelevaa. Välillä sataa vettä ja välillä paistaa aurinko. Joonas Koskela sanoo, että maan eteläosassa voi maanantaina tulla sadetta ja ukkosta. Tiistaina sateet siirtyvät pohjoiseen.

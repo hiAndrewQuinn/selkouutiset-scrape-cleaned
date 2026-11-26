@@ -1,73 +1,73 @@
-# Radio Selkouutiset perjantai 18.8.2023
+# Radio Selkouutiset tiistai 22.8.2023
 
-Sähköongelmat. Koronarokote. Mikkelin kouluruoka. Sää.
+Asuminen kallistuu. Hallitus ja ammattiliitot. Venäjä ja Suomi. Sää.
 
-## Sähköongelmat
+## Asuminen kallistuu
 
-![loviisan ydinvoimala](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6563585e778155d66cd/1584890254)
-
-Avaa kuvien katselu
-
-Loviisan ydinvoimala. Kuva: Markku Rantala / Yle
-
-Suomen sähkön tuotannossa on lähitulevaisuudessa ongelmia. Siksi sähkön hinta voi vaihdella paljon.
-
-Ongelmia on kolme.
-
-Ensimmäinen on, että perjantaina yöllä Olkiluodon ydinvoimalan yhteen reaktoriin tuli vika. Reaktori ei siksi tuota sähköä. Vikaa korjataan
-
-Toinen ongelma on, että Loviisan ydinvoimalaa huolletaan. Siksi Loviisan ydinvoimala tuottaa sähköä normaalia vähemmän.
-
-Kolmas ongelma on, että Ruotsista tulee Suomeen normaalia vähemmän sähköä, koska energiayhtiöt tekevät huoltotöitä ja korjaustöitä.
-
-Sähkön hinta voi lähitulevaisuudessa nousta ja laskea nopeasti.
-
-## Koronarokote
-
-![Iäkästä miestä rokotetaan](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-960295628e059985933/1654146961)
+![Asemantorni II -kerrostalo Oulun Rautatienkadulla.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115634764da06775ffe3/1692010407)
 
 Avaa kuvien katselu
 
-Syksyllä koronarokotteen saavat 65 vuotta täyttäneet. Kuva: Paulus Markkula / Yle
+Asumisen hinta nousee. Kuva: Taneli Kärki / Yle
 
-Ikäihmisille annetaan syksyllä taas koronarokote.
+Asuminen kallistuu tänä vuonna. Joidenkin suomalaisten asuminen kallistuu enemmän ja joidenkin vähemmän.
 
-Terveysviranomaiset suosittelevat, että koronarokote annetaan 65-vuotiaille ja sitä vanhemmille. Lisäksi koronarokote annetaan riskiryhmille.
+Eniten asuminen kallistuu, jos on asuntolainaa.
 
-Maailmalla leviää uusi koronaviruksen muoto. Terveysviranomaiset sanovat, että uusi muoto ei ole vaarallisempi kuin vanhat muodot. Sitä tarkkaillaan silti.
+Tutkijat laskevat, että kerrostalossa asunnossa, jossa on asuntolainaa, asuminen kallistuu 15 prosenttia.
 
-Uusi koronaviruksen muoto leviää ainakin Israelissa, Tanskassa ja USA:ssa.
+Tilanne on parempi, jos asuu vuokralla. Silloin asuminen kallistuu vain vähän.
 
-Koronaviruksen uusi muoto ei kuitenkaan ole Suomen koronarokotusten syy.
+Asuntolainat kallistuvat koska korot ovat nousseet.
 
-## Mikkelin kouluruoka
+Vuokrat eivät kallistu yhtä paljon. Kaupungeissa on paljon tyhjiä vuokra-asuntoja. Siksi vuokria ei voi korottaa kovin paljon.
 
-![Tortilla-annos koululaisen lounastarjottimella. ](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_239/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80806260a511816cecb/1693906591)
+Samaan aikaan avoimien työpaikkojen määrä vähentyy. Se voi tarkoittaa, että työttömyys kasvaa myöhemmin tänä vuonna.
+
+## Hallitus ja ammattiliitot
+
+![Tehy ja Super järjestivät mielenosoituksen sateisena perjantaina Helsingissä syyskuussa.](https://img.img-cdn.yle.fi/crop_extract,w_4987,h_2805,x_0,y_528/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1009037632466dae428c/1663330669)
 
 Avaa kuvien katselu
 
-Kuvassa tortilla ja kasvistäyte. Kuva: Yle / Mikko Koski
+Ammattiliittojen mielenosoitus vuonna 2022. Kuva: Silja Viitala / Yle
 
-Mikkelissä yli 400 koululaista on saanut ruokamyrkytyksen oireita. Oireet aiheutti kouluruoka.
+Hallituksen ja ammattiliittojen välit ovat huonot. Ammattiliitot vastustavat hallituksen suunnitelmia, jotka heikentävät työntekijän asemaa.
 
-Koululaiset söivät keskiviikkona tortilloja, joissa oli kasvistäyte. Samaa ruokaa syötiin 14 koulussa.
+Hallitus aikoo esimerkiksi heikentää työttömyysturvaa ja työntekijöiden lakko-oikeutta.
 
-Tortillat tulivat EU:n alueelta. Kasvistäytteen teki yksi keittiö Mikkelissä. Annoksia oli yli 4 000.
+Hallitus haluaa lisäksi helpottaa työntekijän irtisanomista ja heikentää sairauspoissaolon ehtoja.
 
-Jotkut oppilaat sanoivat, että ruoka maistui oudolta, ehkä saippualta.
+Hallitus aikoo neuvotella suunnitelmista ammattiliittojen kanssa. Ammattiliitot eivät usko, että neuvottelut auttavat.
 
-Oppilaiden oireita ovat esimerkiksi mahakipu, pahoinvointi ja päänsärky. Joillakin on myös kuumetta tai ripulia.
+Ammattiliitot sanovat, että ne yrittävät estää hallituksen suunnitelmat. Ne valmistautuvat syksyllä lakkoihin ja muihin vastatoimiin.
 
-Kukaan ei ole joutunut sairaalaan oireiden takia. Viranomaiset tutkivat ruokaa, jota oppilaat söivät. He yrittävät selvittää, mikä on oireiden syy.
+## Venäjä ja Suomi
+
+![Sauli Niinistö puhuu suurlähettiläskokouksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_420/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116020464e465bc745a1/1692690956)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö puhui suurlähettiläille eli diplomaateille. Kuva: Markku Ulander / Lehtikuva
+
+Venäjä luo Suomesta viholliskuvaa, sanoo presidentti Sauli Niinistö. Se tarkoittaa, että venäläiset poliitikot levittävät Suomesta väärää tietoa venäläisille.
+
+Presidentti Niinistö puhui asiasta tiistaina ulkomaalaisille diplomaateille.
+
+Niinistön mukaan venäläiset poliitikot väittävät venäläisille, että Suomi tahtoo Venäjälle pahaa.
+
+Niinistön mukaan Venäjä voi myös tehdä Suomelle monenlaista kiusaa.
+
+Niinistön mukaan maailma on entistä enemmän jakautunut. Siksi on tärkeää, että Suomi huolehtii omasta turvallisuudestaan.
 
 ## Sää
 
-![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115900264df78940ce4c/1692367029)
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116060364e4c93266a3a/1692715358)
 
 Avaa kuvien katselu
 
 Kuva: Yle
 
-Etelä-Suomessa voi lauantaina sataa ja ukkostaa. Lapissa voi olla vähän sadekuuroja.
+Keskiviikkona sää on samanlainen kuin se oli tiistaina. Sadekuuroja voi tulla.
 
-Lämpötila on 18 ja 21 asteen välillä. Lapissa on kylmempää.
+Lämpötila on 16 ja 21 asteen välillä.

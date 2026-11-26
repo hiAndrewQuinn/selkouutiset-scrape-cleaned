@@ -1,65 +1,75 @@
-# Perjantai 3.11.2017 (radio)
+# Maanantai 6.11.2017 (radio)
 
-Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä. Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Lauantaina vietetään pyhäinpäivää.
+USA:n puolustusministeri on vierailulla Suomessa. Kansainvälinen media on saanut salaisia tietoja veroparatiiseista. Monet kunnat antavat vanhuksille liukuesteet kenkiin ilmaiseksi. Suomessa on metsästetty tänä vuonna yli 230 karhua. Maanantaina on vietetty ruotsalaisuuden päivä.
 
-## Ihmisten salakuljetus
+## Mattis Suomessa
 
-![Rajavartija passi raja passin tarkistus raja-asema Imatran raja-asema](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7732162)
-
-Avaa kuvien katselu
-
-Rajavartiolaitos on tutkinut ihmisten salakuljetusta. Kuva: Yle
-
-Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ihmisiä tuotiin Suomeen esimerkiksi Venäjän kautta.
-
-Viranomaiset epäilevät, että rikollisjärjestön toiminta jatkui monta vuotta. Suomeen tuotiin 15 ihmistä ja muualle Eurooppaan yli 150 ihmistä.
-
-Suomen viranomaisilla oli kesällä iso operaatio rikollisjärjestöä vastaan. Operaation aikana otettiin kiinni venäläinen mies.
-
-Asiaa tutkitaan nyt syyttäjänvirastossa.
-
-## Emmauksen työrinki
-
-![Hyväntekeväisyyskirpputoreille lahjoitettu tavara on entistä huonokuntoisempaa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8800539)
+![ Puolustusministeri James Mattis ja Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9918460)
 
 Avaa kuvien katselu
 
-Emmaus-järjestö auttaa ihmisiä saamaan työtä Ahvenanmaalla. Kuva: Jaani Lampinen / Yle 
+Puolustusministeri James Mattis ja presidentti Sauli Niinistö. Kuva: Heikki Saukkomaa / Lehtikuva
 
-Ruotsinkielisellä Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä.
+USA:n puolustusministeri on vierailulla Suomessa. Ministeri James Mattis tapasi maanantaina presidentti Sauli Niinistön.
 
-Emmaus on auttanut jo monia, esimerkiksi romanialaisia ja bulgarialaisia. Järjestöllä on työrinki, jonka kautta EU-kansalaiset voivat saada työtä.
+Niinistö ja Mattis keskustelivat Presidentinlinnassa. He tapasivat myös toimittajia.
 
-Ahvenanmaalaisten on helppoa tarjota työtä, koska Emmauksen työrinki hoitaa työnantajan velvollisuudet, esimerkiksi sosiaalimaksut.
+Ministeri Mattis sanoi, että USA:n suhde Suomeen on nyt vahvempi kuin koskaan ennen. Mattis myös onnitteli Suomea, koska itsenäinen Suomi täyttää tänä vuonna 100 vuotta.
 
-Romanialainen Amdreea Docuta on saanut siivoustyötä työringin kautta. Nyt Docuta opettelee ruotsia, koska hän haluaa opiskella keittiöapulaiseksi.
+## Veroparatiisit
 
-Emmauksen työrinki on toiminut 2 vuotta, ja se on auttanut melkein 50 ihmistä.
-
-## Nimien taivutus
-
-![Valtiovarainministeri Petteri Orpo Ylen haastattelussa 27.06.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9693014)
+![Joku oli kirjoittanut Nordean Helsingin Aleksanterikadun pankkikonttorin eteen liiduilla veroparasiitti-sanan tiistaina 6. huhtikuuta 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8793276)
 
 Avaa kuvien katselu
 
-Ministeri Orvon vai Orpon hymy? Kuva: Derrick Frilund / Yle
+Ihmiset voivat suuttua, jos he epäilevät jotakin firmaa suhteesta veroparatiisiin. Kuva: Yle
 
-Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Tavoite on, että nimiä taivutetaan samalla tavalla kuin muita sanoja. Silti jotkut taivuttavat esimerkiksi etunimen Satu muotoon "Sadun" ja toiset muotoon "Satun".
+Kansainvälinen media on saanut salaisia tietoja veroparatiiseista.
 
-Asiantuntija Ulla Onkamo sanoo, että molemmat muodot ovat oikein, kun kysymys on nimestä.
+Esimerkiksi monet firmat siirtävät toimintaa ja rahaa maihin, joissa niiden ei tarvitse maksaa veroja ehkä ollenkaan. Tällaisia maita sanotaan veroparatiiseiksi.
 
-Onkamon mielestä on kohteliasta kuulla, mitä nimen omistaja ajattelee. Esimerkiksi ministeri Petteri Orpo toivoo, että lehdet kirjoittavat "Orpon", eivät "Orvon".  Toivetta noudatetaan ja olen siitä tyytyväinen, ministeri Orpo sanoo.
+Uudet tiedot auttavat selvittämään, miten firmat välttävät veroja. Toiminta voi olla laillista, mutta se vähentää aina jonkin maan verotuloja. Joskus toiminta on laitonta, esimerkiksi korruptiota.
 
-## Pyhäinpäivä
+Uudet tiedot kertovat myös poliitikkojen suhteista veroparatiiseihin. Tärkeitä suomalaisia poliitikkoja ei tiedoista löydy.
 
-![Hautakynttilä haudalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8417441)
+## Liukuesteet vanhuksille
+
+![Keskien liukueste pöydällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9918631)
 
 Avaa kuvien katselu
 
-Pyhäinpäivänä haudoille sytytetään kynttilöitä. Kuva: Nina Keski-Korpela / Yle
+Liukueste kiinnitetään kenkään. Kuva: Hannu Harhama / Yle
 
-Lauantaina vietetään pyhäinpäivää. Pyhäinpäivänä suomalaiset muistavat kuolleita sukulaisia ja ystäviä. Siksi haudoille viedään kynttilöitä.
+Talvi tulee, ja monet vanhukset pelkäävät kaatumista. Vanhus voi loukkaantua tosi pahasti, jos hän kaatuu jäisellä kadulla.
 
-Pyhäinpäivä aiheuttaa muutoksia liikenteeseen. Esimerkiksi Helsingin seudulla lähijunat, bussit ja raitiovaunut noudattavat lauantaina sunnuntaiaikatauluja.
+Monet kunnat haluavat auttaa vanhuksia. Ne antavat vanhuksille liukuesteet ilmaiseksi. Liukuesteet kiinnitetään kenkiin. Periaate on vähän sama kuin auton talvirenkaissa.
 
-VR:n kaukojunat kulkevat pyhäinpäivänä normaalisti, mutta kaukobussien aikatauluissa on muutoksia. Kaukobussien lähtöajat kannattaa tarkistaa Matkahuollon nettisivulta.
+Kuntien kannattaa antaa liukuesteet vanhuksille ilmaiseksi, koska niin ne voivat vähentää lääkärikuluja.
+
+## Karhunmetsästys
+
+![Karhu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9642017)
+
+Avaa kuvien katselu
+
+Karhujen määrä on kasvanut. Kuva: Ismo Pekkarinen / AOP
+
+Suomessa on metsästetty tänä vuonna yli 230 karhua. Se on yli 50 karhua enemmän kuin viime vuonna.
+
+Karhuja on voitu metsästää enemmän kuin ennen, koska karhujen määrä on kasvanut. Ennen kuin tämän vuoden metsästys alkoi, Suomessa oli noin 1700 yli vuoden vanhaa karhua.
+
+Eniten karhuja ammuttiin Itä-Suomessa.
+
+## Ruotsalaisuuden päivä
+
+![Taiteilija Tove Jansson valokuvattuna vuonna 1991.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7402578)
+
+Avaa kuvien katselu
+
+Tove Jansson kirjoitti Muumi-kirjat ruotsiksi. Kuva: Seppo Sarkinen / Yle
+
+Maanantaina on vietetty ruotsalaisuuden päivää. Silloin juhlitaan ruotsin kieltä, joka on Suomen toinen virallinen kieli.
+
+Ruotsalaisuuden päivä eli ruotsiksi Svenska dagen on aina marraskuun 6. päivä. Päivää on vietetty jo yli 100 vuoden ajan.
+
+Noin 300.000 suomalaista puhuu äidinkielenä ruotsia. Monet kuuluisat suomalaiset ovat ruotsinkielisiä. Esimerkiksi Tove Jansson kirjoitti Muumi-kirjat ruotsiksi.

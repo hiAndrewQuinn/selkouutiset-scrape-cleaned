@@ -1,7 +1,7 @@
-# Keskiviikko 21.2.2018 (tv)
+# Perjantai 23.2.2018 (tv)
 
-Suomelle pronssia naisten jääkiekossa. Ulkomaiset asunto-sijoittajat tulivat Suomeen. Opinto-ohjaaja kokeilee ammattikoulua. Biohajoavia pakkauksia muovista. Säätiedot.
+Aikuisten unettomuutta voidaan hoitaa unikoulussa. Tutkijat uskovat musiikin auttavan aivovammapotilaita. Perinteiset lentoyhtiöt ja halpalentoyhtiöt toimivat samalla tavalla. Jääkarusellit pyörivät taas. Kylmä sää jatkuu.
 
 Yle Uutiset selkosuomeksi
 
-Suomelle pronssia naisten jääkiekossa. Ulkomaiset asunto-sijoittajat tulivat Suomeen. Opinto-ohjaaja kokeilee ammattikoulua. Biohajoavia pakkauksia muovista. Säätiedot.
+Aikuisten unettomuutta voidaan hoitaa unikoulussa. Tutkijat uskovat musiikin auttavan aivovammapotilaita. Perinteiset lentoyhtiöt ja halpalentoyhtiöt toimivat samalla tavalla. Jääkarusellit pyörivät taas. Kylmä sää jatkuu..

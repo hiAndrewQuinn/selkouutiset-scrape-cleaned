@@ -1,67 +1,85 @@
-# Lauantai 2.9.2017 (radio)
+# Maanantai 4.9.2017 (radio)
 
-SDP valitsi presidenttiehdokkaan. Houstonin tulvat helpottavat. Britanniassa naiset taistelutehtäviin. Koripallo on nyt suosittua Suomessa. Suuri avaruuskivi ohittaa maapallon.
+Monen suomalaisyrityksen tietoturva on heikko. Valtakunnansyyttäjää epäillään rikoksesta. Kiukaista pitää tehdä turvallisempia. Harvey-myrsky tuli kalliiksi. Ranuan jääkarhu sai nmen.
 
-## SDP:lle presidenttiehdokas
+## Yritysten tietoturva
 
-![Tuula Haatainen poseeraa tultuaan valituksi demareiden presidenttiehdokkaaksi SDP:n ylimääräisessä puoluevaltuuston kokouksessa Jyväskylässä lauantaina 2. syyskuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9812760)
-
-Avaa kuvien katselu
-
-Tuula Haatainen on SDP:n presidenttiehdokas Kuva: Tommi Anttonen / Lehtikuva
-
-SDP eli sosiaalidemokraattinen puolue on valinnut oman presidenttiehdokkaan. Hän on Tuula Haatainen, joka on tällä hetkellä SDP:n kansanedustaja. Haatainen on 57-vuotias. Hän on ollut aikaisemmin esimerkiksi sosiaali- ja terveysministerinä. Haatainen haluaa nostaa vaaleissa esille suomalaisten hyvinvoinnin.
-
-Presidentinvaaleissa on paljon ehdokkaita. Myös nykyinen tasavallan presidentti Sauli Niinistö haluaa jatkaa tehtävässä.
-
-Presidentinvaalit ovat ensi vuoden alussa.
-
-## Houstonin tulvat hellittävät
-
-![Mies tarkastelee kotinsa keittiötä tulvan jälkeen Houstonin alueella ennen evakuointia, Teksasissa, Yhdysvalloissa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9810134)
+![Tietokoneen näppäimet](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9724428)
 
 Avaa kuvien katselu
 
-Ihmisten kodit ovat kärsineet pahoin tulvissa. Kuva: Tannen Maury / EPA-EFE
+Rikolliset kalastelevat yrityssalaisuuksia esimerkiksi puhelimen, sähköpostin ja sosiaalisen median kautta. Kuva: Henrietta Hassinen / Yle
 
-Ihmiset ovat päässeet takaisin koteihinsa Houstonin tulva-alueella Yhdysvalloissa. Tulvat jatkuvat kuitenkin vielä Houstonin länsi- ja itäpuolella. Yli 40 000 ihmistä on ollut tulvien takia hätämajoituksessa.
+Monet suomalaiset yritykset eivät osaa suojautua yritysvakoilua vastaan.
 
-Texasin osavaltion kuvernööri sanoo, että tuhojen korjaaminen kestää monta vuotta ja rahaa tarvitaan ainakin 125 miljardia dollaria. Presidentti Donald Trump käy lauantaina uudelleen vierailemassa tuhoalueella.
+Tietoturvayhtiö Silverskin testasi suomalaisyritysten suojautumista. Testissä oli mukana esimerkiksi pörssiyhtiöitä, pienyrityksiä ja julkishallintoa.
 
-## Britanniassa naiset pääsevät taistelutehtäviin
+Runsaat 30 prosenttia yrityksistä sai testissä huonon arvosanan. Suunnilleen saman verran oli niitä, joiden tietoturva oli hyvällä tasolla.
 
-![naissotilas miesten kanssa rivissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9812520)
+Testissä yritettiin saada selville yrityssalaisuuksia puhelimen, sähköpostin ja sosiaalisen median kautta. Lisäksi joidenkin yritysten toimitiloihin tunkeuduttiin.
 
-Avaa kuvien katselu
+Keinot olivat samoja, joita myös rikolliset käyttävät.
 
-Naiset pääsevät taistelutehtäviin Britanniassa Kuva: Andy Rain / EPA
+## Valtakunnansyyttäjän rikosepäily
 
-Britanniassa naiset pääsevät ensi vuonna asevoimien taistelutehtäviin. Ensi vuonna naisia otetaan ainakin ilmavoimien ja laivaston jalkaväkijoukkoihin. Hallitus päätti aikaisemmin, että naisia voidaan palkata kaikkiin sotilastehtäviin.
-
-Muutosta on myös vastustettu. Entinen sotilaskomentaja sanoo, että naiset ovat heikkoja ja he eivät sovi taistelutehtäviin. Esimerkiksi taistelupakkaus painaa 45 kiloa. Tutkimuksissa on huomattu, että naiset loukkaantuvat myös miehiä herkemmin. Naisten pitää siksi selvitä tiukoista fyysisistä testeistä ennen kuin he pääsevät taistelutehtäviin. 
-
-## Koripallo kiinnostaa suomalaisia
-
-![Lauri Markkanen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9806983)
+![Valtakunnansyyttäjä Matti Nissinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9235472)
 
 Avaa kuvien katselu
 
-Lauri Markkanen on Suomen koripallotähti Kuva: Tomi Hänninen
+Valtakunnansyyttäjä Matti Nissinen. Kuva: Juha Kivioja / Yle
 
-Koripallo on nyt Suomessa tosi suosittu urheilulaji. Pelaajalisenssin eli kilpailuluvan on hankkinut jo 19 000 harrastajaa. Määrä on kasvanut yli 3 000 muutamassa vuodessa.
+Valtakunnansyyttäjä Matti Nissistä epäillään rikoksesta. Hän on saanut syytteen virkavelvollisuuden rikkomisesta.
 
-Koripallon suosio on kasvanut, koska Suomen maajoukkue on menestynyt hyvin. Lisäksi Lauri Markkanen pääsi pelaamaan ammattilaisliiga NBA:han ja tämä on lisännyt lajin suosiota.
+Nissinen tilasi syyttäjille koulutusta firmalta, jonka johdossa on Nissisen veli. Koulutus maksoi yli 70 000 euroa.
 
-Suomessa on parhaillaan koripallon Euroopan-mestaruuskisat. Suomi voitti ensimmäisessä pelissään Ranskan jatkoajalla.
+Nissinen sanoo, että hän on ollut huolimaton. Hän kuitenkin sanoo, että ei ole tehnyt rikosta.
 
-## Suuri asteroidi ohittaa maapallon
+## Kiukaiden turvallisuus
 
-![Kuvituskuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9769389)
+![sähkökiuas](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9801791)
 
 Avaa kuvien katselu
 
-Asteroidi ohittaa maan läheltä.  Kuva: NASA / JPL-Caltech 
+Sähkökiuas lämmittää saunaa kerrostalossa. Kuva: Ismo Pekkarinen / AOP
 
-Suuri asteroidi eli avaruuden kivi liikkuu maapallon ohi. Asteroidi kulkee niin läheltä maapalloa, että sen näkee kaukoputkella.
+Onnettomuustutkintakeskus sanoo, että saunan kiukaiden turvallisuutta pitää parantaa.
 
-Asteroidi on yli 4 kilometriä pitkä.
+Onnettomuustutkintakeskus sanoo, että kiuasvalmistajien pitää lisätä kiukaiden turvaominaisuuksia. Myös kiukaiden käyttöohjeista pitää tehdä selkeämmät.
+
+Onnettomuustutkintakeskuksen ohjeet johtuvat tulipalosta, joka syttyi Helsingin Vuosaaressa viime vuonna. Palo sai alkunsa saunan sähkökiukaasta.
+
+Tulipalossa kuoli 4 ihmistä.
+
+## Harvey-myrskyn vahingot
+
+![Harveyn tuhoamia rakennuksia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9807503)
+
+Avaa kuvien katselu
+
+Yli 200 000 kotia vaurioitui Harvey-myrskussä. Kuva: Malcolm McClendon / EPA-EFE 
+
+Harvey-myrsky aiheutti Yhdysvalloissa isot taloudelliset vahingot. Myrsky aiheutti vahinkoa ainakin 150 miljardin euron edestä.
+
+Viranomaiset sanovat, että yli 200 000 kotia on vaurioitunut.
+
+Hätämajoituksessa on yhä melkein 40 000 ihmistä Texasin ja Louisianan osavaltioissa.
+
+## Ranuan jääkarhunpentu
+
+![Ranuan jääkarhunpentu Sisu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9814235)
+
+Avaa kuvien katselu
+
+Ranuan jääkarhu sai nimen Sisu. Kuva: Ranuan eläinpuisto
+
+Etelälappilaisen Ranuan eläinpuiston jääkarhunpentu on saanut nimen. Pennun nimeksi tuli Sisu.
+
+Pennun nimi ratkaistiin yleisökilpailun avulla. Kilpailuun tuli yli 18 000 ehdotusta.
+
+Sisu-nimeä ehdotti melkein sata ihmistä. Suosittuja nimiä olivat myös Lumi, Sulo ja Pyry.
+
+------------------------------------------------------------------------
+
+Selkouutisten nettisivuilla jatkuu sarja Suomalainen juttu. Sarjan aiheena on tällä kertaa koira. Koirasta on tullut suomalaisille tärkeä perheenjäsen, johon käytetään aikaa ja rahaa. 
+
+Suomi 100: Suomalainen juttu. Koira.

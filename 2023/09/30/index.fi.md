@@ -1,73 +1,71 @@
-# Radio | Selkouutiset | torstai 28.9.2023
+# Radio Selkouutiset lauantai 30.9.2023
 
-Opiskelijoiden protestit. Asuntojen hinnat. Suomen opiskelu. Nälkäpäivä-keräys. Sää.
+Hallituskysely. Työntekijöiden mielenilmaukset. Opintolainat. Vuoristo-Karabah. Sää.
 
-## Opiskelijoiden protestit
+## Hallituskysely
 
-![Opiskelijat osoittavat mieltään Helsingin yliopiston päärakennuksella. ](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117857765157d81bc4ab/1696425290)
-
-Avaa kuvien katselu
-
-Kuva: Matti Myller / Yle
-
-Opiskelijoiden protesti jatkuu Helsingissä. Opiskelijat ovat vallanneet Helsingin yliopiston päärakennuksen. Protesti on jatkunut jo 10 päivää.
-
-Opiskelijat saivat jatkaa protestia myös tänään torstaina, vaikka yliopiston päärakennuksessa järjestetään tärkeä tilaisuus. Tilaisuuteen osallistuu myös presidentti Sauli Niinistö.
-
-Opiskelijoiden protestit ovat levinneet myös muihin oppilaitoksiin Suomessa. Opiskelijat ovat vihaisia, koska hallitus aikoo vähentää rahamäärää, joka menee esimerkiksi opintotukeen ja asumistukeen.
-
-## Asuntojen hinnat
-
-![Uusi kerrostalo Lappeenrannan keskustassa koulukadulla.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117019364fea93aeac72/1694415990)
+![Pääministeri Petteri Orpo ja valtiovarainministeri Riikka Purra eduskunnan kyselytunnilla Helsingissä 21. syyskuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_4476,h_2517,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1175445650c5c7153778/1695308947)
 
 Avaa kuvien katselu
 
-Asuntojen hinnat ovat laskeneet. Kuva: Mikko Savolainen / Yle
+Pääministeri Petteri Orpo ja valtiovarainministeri Riikka Purra eduskunnan kyselytunnilla Helsingissä 21. syyskuuta 2023. Kuva: Markku Ulander / Lehtikuva
 
-Asuntojen hinnat ovat laskeneet Suomessa. Vanhat osakeasunnot olivat elokuussa yli 6 prosenttia halvempia kuin vuotta aikaisemmin. Näin kertoo Tilastokeskus.
+Moni ihminen epäilee, että hallitus ei saa Suomen asioita kuntoon. Melkein 50 prosenttia suomalaisista uskoo, että hallitus hajoaa ennen vuoden 2027 eduskuntavaaleja. Näin kertoo kysely.
 
-Eniten hinnat laskivat Helsingin seudulla. Siellä vanhat osakeasunnot halpenivat yli 8 prosenttia vuodessa.
+Vain 9 prosenttia ihmisistä uskoo, että Petteri Orpon hallitus hoitaa Suomen asioita tosi hyvin. Kyselyn vastaajista 20 prosenttia arvioi, että hallitus onnistuu melko hyvin.
 
-Asuntojen hinnat ovat laskeneet kerrostaloissa enemmän kuin rivitaloissa.
+Enemmistö ihmisistä ei luota myöskään opposition vaihtoehtoihin. Kyselyn vastaajista 31 prosenttia uskoo, että oppositiolla on hyviä vaihtoehtoja hallituksen politiikalle. Opposition vaihtoehtoja epäilee 38 prosenttia ihmisistä.
 
-## Suomen opiskelu
+## Työntekijöiden mielenilmaukset
 
-![Wassana Khangkheree ottaa kuvan tilanteesta josta haluaa keskustella työssäohjaajan kanssa.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1176997651281c53db59/1695712190)
-
-Avaa kuvien katselu
-
-Wassana Khangkheree opiskeli suomea kuvaamalla omaa työtä. Kuva: Jukka Lehto / Yle
-
-Helsingissä kokeillaan uutta tapaa opiskella suomea. Siinä maahanmuuttaja ei istu luokkahuoneessa. Hän aloittaa opinnot työpaikalla.
-
-Työpaikalla maahanmuuttaja kuvaa omaa työtä ja keskustelee kuvista opettajan kanssa. Näin työpaikan sanat ja tehtävät tulevat tutuiksi.
-
-Uutta opiskelutapaa kokeilee joukko opiskelijoita elintarvikealalta ja päiväkodeista. Esimerkiksi Wassana Khangkheree oppi työn ja suomen kielen päiväkodissa. Nyt hänellä on siellä työpaikka.
-
-Khangkhereelle uudenlainen opiskelu sopi hyvin. Hän muistaa ja oppii paremmin, kun saa liikkua ja työskennellä lasten kanssa.
-
-## Nälkäpäivä-keräys
-
-![Nuori mies kerää kadulla rahaa lippaaseen Nälkäpäivä-keräyksen aikana.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_33/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7150305f50d764610f6/1695912960)
+![Mies seisoo kädet puuskassa väkijoukon edessä ulosmarssin aikana.](https://img.img-cdn.yle.fi/crop_extract,w_5498,h_3092,x_14,y_184/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11771516512aebb78b3f/1695723574)
 
 Avaa kuvien katselu
 
-Nälkäpäivä-keräys järjestetään joka syksy. Kuva: FRK/ www.malkamaki.com
+Kuva Rovaniemeltä 26.9.2023 BPR:n pihalta, jossa on Teollisuusliiton ja PRO:n ulosmarssi. Kuva: Juuso Stoor / Yle
 
-Suomen Punaisen Ristin Nälkäpäivä-keräys on alkanut. Punainen Risti kerää rahaa, jotta se voi auttaa ihmisiä hätätilanteissa.
+Työntekijöiden mielenilmaukset jatkuvat ensi viikolla.
 
-Punainen Risti kertoo, että apua tarvitaan nyt esimerkiksi Libyassa tulvien takia. Apua tarvitaan myös Marokossa, jossa oli iso maanjäristys.
+Teollisuusliitto järjestää tunnin ulosmarsseja keskiviikkona 23 työpaikalla Keski-Suomen ja Vaasan vaalipiirien alueilla. Myös ammattiliitto Pro järjestää mielenilmauksia lähinnä länsirannikolla ja Keski-Suomessa samaan aikaan.
 
-Nälkäpäivän kerääjät liikkuvat nyt kaduilla. He keräävät rahaa lauantaihin asti.
+Lisäksi palvelualojen työntekijöillä on mielenilmauksia keskiviikkona ja torstaina.
+
+Mielenilmausten tarkoituksena on vaikuttaa Suomen hallituksen päätöksiin, jotka koskevat esimerkiksi ihmisten työehtoja ja sosiaaliturvaa.
+
+## Opintolainat
+
+![Henkilö menossa Kelan toimistton.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2806,x_10,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99386462f76f43175e9/1660383993)
+
+Avaa kuvien katselu
+
+Kelan Kampin toimisto Helsingissä 13. elokuuta 2022. Kuvituskuva. Kuva: Henrietta Hassinen / Yle
+
+Opiskelijoilla on vaikeuksia maksaa takaisin opintolainoja.
+
+Kela on maksanut tänä vuonna paljon lainoja takaisin pankeille opiskelijoiden puolesta. Valtio takaa opiskelijan opintolainan. Siksi Kelan pitää maksaa pankille takaisin opiskelijan laina, jos opiskelijalla ei ole rahaa maksaa lainaa takaisin.
+
+Kela maksoi pankeille yli 40 miljoonaa euroa opintolainoja heinäkuun loppuun mennessä. Se on enemmän kuin koko viime vuonna yhteensä.
+
+Monella opiskelijalla on vähemmän rahaa kuin ennen. Hinnat ovat nousseet nopeasti ja lainoista pitää maksaa enemmän korkoa kuin aikaisemmin.
+
+## Vuoristo-Karabah
+
+![Kartalla Vuoristo-Karabah.](https://img.img-cdn.yle.fi/crop_extract,w_1330,h_742,x_0,y_290/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11772796512cf134f9f1/1695731507)
+
+Avaa kuvien katselu
+
+Kartalla Vuoristo-Karabah. Kuva: Liveuamap, Harri Vähäkangas / Yle, MapCreator, OpenStreetMap
+
+YK sanoo, että yli 100 000 ihmistä on lähtenyt pakoon Vuoristo-Karabahista Azerbaidzhanin hyökkäyksen jälkeen. Tämä tarkoittaa sitä, että melkein kaikki alueen armenialaiset ovat nyt lähteneet pakoon kotoa.
+
+Azerbaidzhan hyökkäsi Vuoristo-Karabahin alueelle viime viikolla. Azerbaidzhanilla ja Armenialla on ollut kauan riitaa Vuoristo-Karabahin alueesta.
 
 ## Sää
 
-![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11786746515948f156bc/1695913134)
+![Sääkartat 1.10. - 3.10.2023](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117946865181364737d3/1696076676)
 
 Avaa kuvien katselu
 
-Perjantaina pohjoisessa sataa vähän vettä. Etelässä on poutaa eli ei sada. Melkein koko maassa on pilvistä.
+Kuva: Matti Huutonen / Yle
 
-Lämpötila on perjantaina maan etelä- ja keskiosassa yli 15 astetta. Pohjoisessa lämpötila on alle 15 astetta.
-
-Syyskuu on ollut lämpimämpi kuin tavallisesti, mutta viikonloppuna sää alkaa viiletä.
+Sunnuntaina sataa monin paikoin vettä. Lämpötila on päivällä 10 ja 15, pohjoisessa 5 ja 10 asteen välillä.

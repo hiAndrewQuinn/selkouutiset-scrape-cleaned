@@ -1,79 +1,61 @@
-# Radio Selkouutiset perjantai 21.7.2023
+# Radio Selkouutiset tiistai 25.7.2023
 
-Lintuinfluenssa. Riikka Purra. Sähköpotkulaudat. Ravustus. Sää.
+Rasismi ja suomalaiset. Helsingin vuokrankorotukset. Merien lämpötila. Sää.
 
-## Lintuinfluenssa
+## Rasismi ja suomalaiset
 
-![Kukko ja kanoja ulkoaitauksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_393/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97092362aae1e897332/1655366969)
-
-Avaa kuvien katselu
-
-Kukko ja kanoja. Kuva: Mikko Savolainen / Yle
-
-Suomessa yritetään estää lintuinfluenssan leviäminen kanoihin. Luonnossa lintuinfluenssa on jo tappanut paljon lintuja.
-
-Viranomaiset ovat määränneet, että joillakin alueilla kanat täytyy pitää sisätiloissa. Jos kanat ovat ulkona, tila täytyy suojata verkolla.
-
-Uudet määräykset koskevat kanaloita Länsi-Suomessa.
-
-Lisäksi viranomaiset muistuttavat kaikkia siitä, että kuolleisiin lintuihin ei saa koskea. Jos luonnosta löytyy monta kuollutta lintua, asiasta on hyvä kertoa viranomaisille.
-
-## Riikka Purra
-
-![Pustaan pukuun pukeutunut ihminen pitää kansiota kädessään.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_426/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114580864ba50da9a613/1689932217)
+![Suomen lippu liehuu lipputangossa.](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_254/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-109371864299d750639e/1687524993)
 
 Avaa kuvien katselu
 
- Vetoomuksessa on yli 120 000 allekirjoitusta. Kuva: Roni Rekomaa / Lehtikuva
+Suomalaisilla on erilaisia mielipiteitä rasismista. Kuva: Tiina Grönroos / Yle
 
-Monet suomalaiset haluavat, että Riikka Purra eroaa ministerin tehtävästä.
+Suhde rasismiin jakaa suomalaisia nykyään tosi paljon, kertoo Ylen uusi kysely.
 
-Eduskunta sai perjantaina vetoomuksen Purran erosta. Vetoomuksessa on noin 120 000 allekirjoitusta.
+Noin puolet suomalaisista sanoo, että suomalaiset eivät ota rasismia tarpeeksi vakavasti. Noin puolet on eri mieltä. He sanovat, että suomalaiset ottavat rasismin tarpeeksi vakavasti.
 
-Allekirjoittajat haluavat, että Purra eroaa vanhojen kirjoitusten takia. Purran vanhat kirjoitukset ovat rasistisia.
+Naiset ja miehet ajattelevat asiasta usein eri tavalla. Naisista noin 60 prosenttia sanoo, että rasismi pitää ottaa vakavammin. Miehistä niin sanoo vain noin 30 prosenttia.
 
-Riikka Purra on perussuomalaisten puheenjohtaja. Hän hoitaa hallituksessa valtiovarainministerin eli rahaministerin tehtävää.
+Perussuomalaisten kannattajat ajattelevat asiasta eri tavalla kuin muiden puolueiden kannattajat. Perussuomalaisten kannattajista vain 2 prosenttia ajattelee, että rasismi pitää ottaa Suomessa vakavammin.
 
-## Sähköpotkulauta
+## Helsingin vuokrankorotukset
 
-![Sähköpotkulauta pysäköitynä keskelle kevyen liikenteen väylää Jyväskylän Lutakossa.](https://img.img-cdn.yle.fi/crop_extract,w_4094,h_2303,x_503,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113730964a1958e9d7d8/1688311277)
-
-Avaa kuvien katselu
-
-Kuva: Heli Kaski / Yle
-
-Sähköpotkulaudat ovat yleistyneet.
-
-Sähköpotkulautoja käytetään paljon nyt myös pienissä kaupungeissa. Isoissa kaupungeissa sähköpotkulaudat ovat olleet tavallisia jo aikaisemmin.
-
-Myös sairaalat eri puolilla Suomea ovat huomanneet sähköpotkulautojen yleistymisen. Ne ovat saaneet potilaita, jotka ovat loukanneet itsensä sähköpotkulaudalla.
-
-Tavallisesti sähköpotkulaudalla joutuu onnettomuuteen nuori mies, joka on juonut alkoholia. Onnettomuudessa vammoja tulee yleensä päähän.
-
-## Ravustus
-
-![Kuorensa vaihtaneita täplärapuja](https://img.img-cdn.yle.fi/crop_extract,w_4624,h_2601,x_0,y_434/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83388060f7c5932453d/1627567181)
+![Kerrostaloja Helsingissä Jätkäsaaressa](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2806,x_10,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98931562e8dc3c83f00/1659428335)
 
 Avaa kuvien katselu
 
-Ravut ovat monien herkkua. Kuva: Timo Leponiemi / Yle
+Kaupungin vuokra-asuntoihin tulee isoja vuokrankorotuksia. Kuva: Henrietta Hassinen / Yle
 
-Rapujen pyynti eli ravustus on alkanut tänään perjantaina. Suomen vesistä pyydystetään jopa 6 miljoonaa rapua joka vuosi.
+Helsingin kaupungin vuokra-asuntoihin tulee iso vuokrankorotus ensi vuoden alussa. Kaupunki korottaa vuokria keskimäärin 10 prosenttia. Joissain kaupungin vuokra-asunnoissa korotus voi olla pienempi, joissain isompi.
 
-Rapujen pyydystäjiä eli ravustajia on Suomessa noin 100 000. Rapuja saa pyydystää vain vesialueen omistajan luvalla, ja alle 65-vuotiaiden aikuisten pitää myös maksaa kalastonhoitomaksu.
+Kaikkein isoimmat korotukset voivat olla monta sataa euroa kuukaudessa. Se on ongelma, koska kaupungin vuokra-asunnoissa asuu paljon ihmisiä, joilla on pienet tulot.
 
-Rapujen pyynti jatkuu lokakuun loppuun asti.
+Kaupunki tekee isot vuokrankotukset, koska kaupungilla on paljon velkaa ja korot nousevat. Kaupunki tarvitsee rahaa, jotta se pystyy maksamaan velat ja velkojen korot.
+
+Helsingin kaupungin vuokra-asunnoissa asuu 92 000 ihmistä.
+
+## Merien lämpötila
+
+![Alla torskar](https://img.img-cdn.yle.fi/crop_extract,w_2045,h_1147,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-839025319739aa96cc/1645800597)
+
+Avaa kuvien katselu
+
+Turska on siirtynyt pohjoiseen. Kuva: Peter Östlund
+
+Merien lämpötila nousee nopeasti. Atlantin valtameri on nyt joissain paikoissa ennätyslämmin.
+
+Se on iso ongelma merieläimille. Esimerkiksi monet kalat eivät voi elää liian lämpimässä vedessä, koska niille ei ole lämpimässä vedessä ruokaa.
+
+Jotkut kalat ovat siirtyneet pohjoiseen, koska vesi on siellä kylmempää. Esimerkiksi turska ja makrilli ovat kaloja, jotka ovat siirtyneet lähemmäs pohjoisnapaa.
+
+Meret lämpenevät, koska ihmisen toiminta on muuttanut ilmastoa.
 
 ## Sää
 
-![Kuvassa näkyy lauantain, sunnuntain ja maanantain sääkartat.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114606064ba8adfe9539/1689946886)
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114732564bfdd5f219d0/1690295678)
 
 Avaa kuvien katselu
 
-Kuva: Elias Paakkanen / Yle
+Kuva: Yle
 
-Lauantaina vettä sataa idässä ja maan keskivaiheilla. Pohjoisessa on pilvistä ja viileää, etelässä on aurinkoista ja lämmintä.
-
-Lämpötila on lauantaina pohjoisessa noin 15 astetta, etelässä noin 20 astetta.
-
-Myös sunnuntaina ja maanantaina maan keskivaiheilla sataa vettä. Sadealueen pohjoispuolella sää on viileää, mutta etelässä on lämpimämpää.
+Keskiviikkona sataa monessa paikassa. Etelä-Suomessa voi olla ukkosta. Lämpötila on 16–23 astetta.

@@ -1,73 +1,61 @@
-# Keskiviikko 10.1.2018 (radio)
+# Torstai 11.1.2018 (radio)
 
-Hallitus haluaa taas tiukentaa työttömyysturvaa. Poliisi tutkii tietomurtoa suomalaisessa metsäyhtiössä. Ruotsissa on puhjennut tuhkarokkoepidemia. Pakolaisten määrä on vähentynyt tosi paljon. Kaupat kokeilevat äly-ostoskärryjä. Radion sinfoniaorkesteri aloittaa oman Beethoven-festivaalin.
+Teknillinen osaaminen Suomessa rapistuu. Kotimaan junamatkustus kasvoi viime vuonna. erveyskeskuksiin pääsee hoitoon nyt helpommin kuin ennen. Kofeiinin mittaaminen voi auttaa Parkinsonin taudin tunnistamisessa.
 
-## Työttömyysturva
+## Teknillinen osaaminen uhkaa heiketä
 
-![lomake ja kynä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9936530)
-
-Avaa kuvien katselu
-
-Työttömyysturvaa aiotaan tiukentaa. Kuva: Ismo Pekkarinen / AOP
-
-Hallitus haluaa tiukentaa työttömyysturvaa. Hallitus haluaa, että työtön hakee vähintään yhtä työpaikkaa joka viikko. Muuten hän voi menettää työttömyyskorvauksen 60 päiväksi. Työttömyysturvan ehdot tiukkenivat edellisen kerran viime viikolla, jolloin voimaan tuli niin sanottu aktiivimalli.
-
-## Tietomurto
-
-![Tietokoneen näippäimet muodostavat sanan murto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5448272)
+![Uusi raitiovaunu on ulkoväreiltään tuttu keltavihreä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6167949)
 
 Avaa kuvien katselu
 
-Suomalaiseen metsäfirmaan on ehkä tehty tietomurto. Kuva: YLE Uutisgrafiikka
+Transtech rakentaa raitovaunuja. Firma tarvitsee paljon lisää teknillisen mekaniikan työntekijöitä. Kuva: Harri Oksanen / Yle
 
-Poliisi tutkii tietomurtoa suomalaisessa metsäfirmassa. Joku on ehkä saanut yhteyden Metsä Group-yhtiön tietokoneisiin ja vienyt niistä tietoja.
+Suomalaisissa vientifirmoissa ja yliopistoissa pelätään, että teknillinen osaaminen Suomessa rapistuu. Esimerkiksi tekniikan alan professoreiden määrä on vain puolet aiemmasta. 
 
-Metsä Group julkaisi eilen tulostietoja varmuuden vuoksi. Yhtiö halusi julkistaa tiedot etuajassa, jotta mahdollinen tietomurtautuja ei voi käyttää niitä väärin.
+Firmojen on jo nyt vaikea löytää Suomesta huippuosaajia töihin. Silloin Suomen kilpailukyky on vaarassa. Suuri osa Suomen viennistä perustuu mekaniikan osaamiseen. Noin puolet tavaraviennistä on esimerkiksi moottoreita, paperikoneita tai voimalaitoksia.
 
-## Tuhkarokkoepidemia
+Vienti on myös suomalaisen hyvinvoinnin taloudellinen perusta.
 
-![Tuhkarokko-rokote.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7823802)
+## Junamatkustus on lisääntynyt
 
-Avaa kuvien katselu
-
-Rokotus suojaa tuhkarokolta. Kuva: Reuters
-
-Ruotsissa Göteborgin kaupungissa on puhjennut tuhkarokkoepidemia. Tuhkarokkoon on sairastunut kuukauden aikana jo 22 ihmistä. Lääkärit uskovat, että potilaita tulee vielä lisää, koska tuhkarokko tarttuu tosi helposti.
-
-Tuhkarokon oireita ovat korkea kuume, nuha, yskä ja ihottuma. Tuhkarokko voi aiheuttaa myös vakavia jälkitauteja kuten esimerkiksi keuhkokuumeen. Ruotsalaisista 98 prosenttia on joko sairastanut tuhkarokon tai saanut rokotuksen sitä vastaan.
-
-## Siirtolaiset
-
-![Turvapaikanhakijoita saapui Kreikan Lesboksen saarelle 9. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8905695)
+![VR:n logo rautatieaseman ovessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9988792)
 
 Avaa kuvien katselu
 
-Monet siirtolaiset tulevat Välimeren yli Kreikkaan. Kuva: Kay Nietfeld / EPA
+Kuva: Ismo Pekkarinen / AOP
 
-Eurooppaan tulleiden siirtolaisten ja pakolaisten määrä on vähentynyt tosi paljon. Viime vuonna Eurooppaan tuli noin 170 000 pakolaista. Se on 50 prosenttia vähemmän kuin edellisenä vuonna. Silloin siirtolaisia ja pakolaisia tuli noin 360 000.) Euroopan maat ottavat nyt vastaan vähemmän siirtolaisia, kuin ennen.
+Kotimaan junamatkustus kasvoi viime vuonna. Matkustus kasvoi kahdeksan (8) prosenttia. 
 
-## Älyostoskärry
+Liikennefirma VR kertoo, että syynä ovat lippujen hintojen lasku, reittien nopeudet sekä junavuorojen määrän kasvu.
 
-![Älyostoskärryssä on ostospääte ja viivakoodinlukija.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6487736)
+Kotimaan kaukojunaliikenteessä tehtiin viime vuonna 12,5 miljoonaa matkaa. Yhtiö kertoo, että Helsinki - Oulu-välillä matkustus kasvoi jopa 48 prosenttia. 
 
-Avaa kuvien katselu
+## Lääkärille pääsy on hieman helpottunut
 
-Ostoskärry neuvoo asiakasta kaupassa. Kuva: Kalle Heikkinen / Yle
-
-Kaupat kokeilevat uudenlaisia äly-ostoskärryjä. Älyostoskärryissä on tablettitietokone. Älyostoskärry auttaa löytämään tuotteen, jota asiakas etsii.
-
-Kärryn tabletin avulla voi etsiä myös ruokaohjeita. Laite näyttää silloin, mitä aineita ruokaan tarvitaan ja mistä ne kaupassa löytyvät. Kärry tietää, missä päin kauppaa se on, ja osaa ohjata oikeaan suuntaan. Älyostoskärryt on keksinyt suomalainen firma. Se myy niitä myös ulkomaille.
-
-## Beethoven-festivaali
-
-![Beethovenin muotokuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5799206)
+![Lääkäri kävelee terveyskeskuksen käytävällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9759211)
 
 Avaa kuvien katselu
 
-Beethoven sävelsi ylsi 200 teosta. Kuva: Public Domain
+Lääkäripulassa on suuria alueellisia eroja. Kuva: Mikael Kokkola / Yle
 
-Radion sinfoniaorkesteri aloittaa tänään ensimmäisen oman festivaalin. Festivaalin teema on säveltäjä Ludwig van Beethoven.
+Terveyskeskuksiin pääsee hoitoon nyt helpommin kuin ennen. Hoitoon pääsy on helpottunut hieman kolmen vuoden aikana. 
 
-Beethoven oli saksalainen säveltäjä, joka eli 1700 ja 1800 -lukujen vaihteessa. Hän on yksi musiikkihistorian kuuluisimmista säveltäjistä. Hän sävelsi yli 200 teosta.
+Lääkäriliiton väestökyselyssä 41 prosenttia sanoo, että lääkärin ajanvarausvastaanotolle pääsyssä on ongelmia. Edellisessä kyselyssä kolme vuotta sitten osuus oli 48 prosenttia. 
 
-Radion sinfoniaorkesterin Beethoven-festivaali kestää 2 viikkoa. Festivaalin konsertit voi kuunnella Yle Radio 1:ssä ja Yle Areenassa.
+Terveyskeskuksissa on edelleen pulaa lääkäreistä. Lääkäreistä puuttui viime vuonna melkein viisi (5) prosenttia. Se on vähän enemmän kuin vuonna 2016. Lokakuussa oli täyttämättä noin 190 lääkärin tehtävää.
+
+Suurin pula lääkäreistä on Kainuussa, Itä-Savossa, Vaasassa ja Etelä-Savossa. Nykyään joka viides lääkärin tehtävä hoidetaan sijaisilla.
+
+## Kofeiini voi auttaa tunnistamaan Parkinsonin taudin
+
+![Kahvinpuruja kahvimitassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9238796)
+
+Avaa kuvien katselu
+
+Kofeiinia on muun muassa kahvissa. Kuva: Ismo Pekkarinen / Yle
+
+Kofeiinin mittaaminen verestä voi auttaa Parkinsonin taudin tunnistamisessa. Jo aikaisemmin on tiedetty, että paljon kahvia juovilla on pienempi riski sairastua Parkinsonin tautiin kuin niillä, jotka eivät nauti kofeiinia.
+
+Uusi tutkimus kertoo, että Parkinson-potilaiden veressä kofeiinipitoisuus ei kuitenkaan nouse tavalliseen tapaan. Tieto voi auttaa, kun potilaalta diagnosoidaan Parkinsonin tautia. 
+
+Suomessa Parkinsonin tautia sairastaa noin 14 000 ihmistä. Tauti on parantumaton hermostollinen sairaus, jonka syytä ei tunneta. Tauti aiheuttaa esimerkiksi vapinaa, lihasjäykkyyttä ja liikkeiden hidastumista. Yleensä tauti todetaan 50 - 70-vuotiailla.

@@ -1,69 +1,65 @@
-# Radio Selkouutiset sunnuntai 7.5.2023
+# Radio Selkouutiset maanantai 8.5.2023
 
-Autokauppa. Norjalainen lohi. Lintukilpailu. Kaakkois-Aasian kuumuus. Sää.
+Hallitusneuvottelut. Aalto-yliopisto. Vuoden selväsanainen -kilpailu. Sää.
 
-## Autokauppa
+## Hallitusneuvottelut
 
-![Auton tuulilasissa lappu &quot;Varausmaksu maksettu&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_4412,h_2481,x_14,y_293/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11089906454a1f93731d/1683269097)
-
-Avaa kuvien katselu
-
-Autokauppa on hiljaista. Kuvituskuva. Kuva: Antti Haanpää / Yle
-
-Ihmiset ostavat nyt vähemmän autoja kuin aikaisemmin. Autoala ennustaa, että uusia autoja ostetaan tänä vuonna melkein yhtä vähän kuin 90-luvun lamavuosina. Ihmisillä on vähemmän rahaa kuin ennen, koska hinnat ovat nousseet.
-
-Uusi auto maksaa keskimäärin lähes 40 000 euroa. Ihmiset ostavat nyt halvempia ja vanhempia autoja kuin aiemmin. Autoalan arvio kertoo, että autokaupan keskihinta on noin 8000 euroa.
-
-## Norjalainen lohi
-
-![Kirjolohifileitä Kuopion Prisman kalatiskillä.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105570363b55c092bea4/1672830141)
+![Anna-Maja Henriksson, Petteri Orpo, Riikka Purra ja Sari Essayah.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_580/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11092426454d708b3ca5/1683281878)
 
 Avaa kuvien katselu
 
-Lohi on nyt kallista. Kuva: Antti Karhunen / Yle
+RKP:n, kokoomuksen, perussuomalaisten ja kristillisdemokraattien puheenjohtajat hallitusneuvotteluissa. Kuva: Petteri Sopanen / Yle
 
-Norjalainen lohi maksaa nyt paljon Suomen kaupoissa. Lohi maksaa paljon enemmän kuin syksyllä. Norjalaisen lohen kilohinta voi olla kaupan kalatiskillä jopa 40 euroa, kun syksyllä kilo lohta maksoi alle 10 euroa.
+Hallitusneuvottelujen toinen viikko on alkanut. Hallitusneuvotteluissa ovat mukana kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
 
-Ihmiset ovat alkuvuoden aikana ostaneet vähemmän kalaa kuin aikaisemmin. Kalakauppiaat arvioivat, että kesällä lohi maksaa taas vähemmän kuin nyt.
+Hallitusneuvottelujen vetäjä Petteri Orpo kertoo, että puolueet ovat puhuneet myös neuvottelujen pelisäännöistä. Syy on se, että puolueiden välillä on ollut ilkeää kirjoittelua sosiaalisessa mediassa.
 
-## Tornien taiston tuloksia
+Esimerkiksi perussuomalaiset poliitikot ovat kirjoittaneet ilkeästi RKP:stä. RKP:n puheenjohtaja Anna-Maja Henriksson muistutti maanantaina, että neuvottelijoiden pitää kunnioittaa toisiaan.
 
-![Lintutorni syksyisessä metsässä.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_420/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10189536343eaabeddec/1665395475)
+## Aalto-yliopisto
 
-Avaa kuvien katselu
-
-Lintutorni. Kuva: Kirsi Lönnblad / Yle
-
-Lauantaina oli lintukilpailu Tornien taisto. Kilpailuun osallistui yli 3 000 ihmistä eri puolilla Suomea. Mukana oli yli 300 lintutornia.
-
-Eniten erilaisia lintulajeja tunnistettiin Kristiinankaupungin Siipyyssä. Siellä ihmiset näkivät yhteensä 108 eri lintulajia.
-
-Kilpailun aikana kaikki osallistujat näkivät yhteensä yli 200 eri lintulajia.
-
-Harvinaisin lintu oli amerikanmustalintu. Lintu nähtiin Kokkolassa. Amerikanmustalintu on nähty Suomessa aikaisemmin vain 10 kertaa.
-
-## Kaakkois-Aasian kuumuus
-
-![Joukko ihmisiä kävelee hiekkaisella tiellä kantaen säkkejä pään päällä ja käsissään. ](https://img.img-cdn.yle.fi/crop_extract,w_2047,h_1149,x_0,y_274/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10978136436347181c07/1681274064)
+![Aalto-yliopiston logo ja teksti Kauppakorkeakoulu graniittiseinässä.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-877710618a8f5df1562/1636471514)
 
 Avaa kuvien katselu
 
-Kaakkois-Aasiassa on nyt erittäin kuuma. Kuvituskuva. Kuva: EPA-EFE
+Kauppakorkeakoulu on osa Aalto-yliopistoa. Kuva: Petteri Bülow / Yle
 
-Kaakkois-Aasiassa sää on erittäin kuuma.
+Aalto-yliopisto on rikkonut lakia. Näin sanoo apulaisoikeuskansleri Mikko Puumalainen.
 
-Vietnamissa mitattiin lauantaina 44,1 asteen lämpötila. Tämä on uusi ennätys Vietnamissa. Viranomaiset ovat sanoneet, että ihmisten kannattaa pysyä sisällä. Vietnamin pääkaupungin Hanoin kaduilla on ollut vain vähän ihmisiä.
+Englannin kieli on syrjäyttänyt suomen kielen joissakin Aalto-yliopiston koulutuksissa. Tämä on laitonta, sanoo apulaisoikeuskansleri Puumalainen.
 
-Thaimaassa lämpötila oli lauantaina 44,6 astetta ja Myanmarissa 43,8 astetta. Myös Intiassa ja Bangladeshissa lämpötila on paljon korkeampi kuin tavallisesti tähän aikaan vuodesta.
+Puumalainen muistuttaa, että englantia ei saa käyttää opetuksessa niin paljon, että suomen kielen käyttö opetuksessa loppuu.
+
+## Vuoden selväsanainen -kilpailu
+
+![Opiskelija töissä Spesia Puodissa.](https://img.img-cdn.yle.fi/crop_extract,w_4548,h_2558,x_0,y_149/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6451845e4e953426ce8/1582210057)
+
+Avaa kuvien katselu
+
+Ammattiopisto Spesia on yksi finalisti Vuoden selväsanainen -kilpailussa. Kuva: Jarkko Riikonen / Yle
+
+Vuoden selväsanainen -kilpailun finalistit on julkaistu. Vuoden selväsanainen -kilpailussa etsitään ihmistä tai järjestöä, joka on parhaiten edistänyt selkokieltä.
+
+Finaaliin eli loppukilpailuun pääsi 3 kilpailijaa. Finalistit ovat Ammattiopisto Spesia, Selkovantaalainen-lehti ja Tampereen yliopiston tutkimusprojekti selkoruotsista.
+
+Ammattiopisto Spesian opiskelijat tarvitsevat erityistä tukea. Spesiassa tehdään selkokielisiä opetusmateriaaleja ja käytetään selkokieltä myös opetuksessa.
+
+Selkovantaalainen on ensimmäinen selkokielinen paikallislehti. Selkovantaalainen tulee ilmaiseksi kaikkiin vantaalaisiin koteihin. Selkokielinen tieto on tärkeää Vantaalla, jossa puhutaan paljon eri kieliä.
+
+Tampereen yliopiston tutkimusprojekti selkoruotsista haluaa parantaa niiden ihmisten tilannetta, jotka tarvitsevat selkoruotsia. On tärkeää muistaa myös selkoruotsi, kun puhutaan selkokielen tarpeesta Suomessa.
+
+Selkokielen päivänä eli 29. toukokuuta selviää, kuka finalisteista voittaa kilpailun ja on Vuoden selväsanainen.
 
 ## Sää
 
-![Lähikuvassa vaahteran kukkia.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_685/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11095466455f876ed2ee/1683538334)
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1110433645918ac24d57/1683560648)
 
 Avaa kuvien katselu
 
-Sää on paikoin aurinkoinen. Kuva: Sebastian Backman / Yle
+Sää on poutaista ja monin paikoin aurinkoista.
 
-Sää on enimmäkseen poutainen. Aurinko paistaa välillä Etelä-Suomessa ja Keski-Suomessa.
+Tiistaina sää lämpenee. Lämpötila on maan keskiosissa noin 17 astetta.
 
-Lämpötila on yöllä -3 ja +3 asteen välillä. Maanantaina päivällä lämpötila on +10 ja +17 asteen välillä.
+Loppuviikolla sää lämpenee lisää. Lämpötila nousee lähelle 20 astetta.
+
+Rannikoilla meren lähellä on kylmempää, koska merivesi on vielä kylmää. Meri viilentää myös ilmaa.

@@ -1,77 +1,81 @@
-# Radio Selkouutiset perjantai 9.6.2023
+# Radio Selkouutiset torstai 15.6.2023
 
-Hallitusneuvottelut. Ukrainan tulva. Teknologiateollisuuden työntekijäpula. Suomen kieli Viron kouluissa. Sää.
+Stora Enso. Korot. Suomen talous. EM-jalkapallo. Sää.
 
-## Hallitusneuvottelut
+## Stora Enso
 
-![Petteri Orpo kävelee ulkona ja ohikulkija moikkaa häntä. Taustalla on Suomen pankin pääkonttori.](https://img.img-cdn.yle.fi/crop_extract,w_4907,h_2760,x_213,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125140647ec49ea226a/1686316652)
-
-Avaa kuvien katselu
-
-Hallitusneuvottelujen vetäjä Petteri Orpo. Kuva: Antti Aimo-Koivisto / Lehtikuva
-
-Hallitusneuvottelut voivat olla valmiit ensi viikon lopulla. Näin sanoo hallitusneuvottelujen vetäjä Petteri Orpo.
-
-Orpo kertoi perjantaina, että puolueet neuvottelevat vielä joistakin vaikeista asioista. Hallitusneuvotteluissa ovat mukana kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
-
-Orpo sanoo, että puolueiden pitää neuvotella vielä esimerkiksi sosiaali- ja terveyspalveluista. Erityisen vaikea on päättää rahoista, joita palveluihin tarvitaan.
-
-## Ukrainan tulva
-
-![Pelastustyöntekijä nostaa vanhaa naista veneestä rannalle.](https://img.img-cdn.yle.fi/crop_extract,w_5524,h_3093,x_0,y_345/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11267096481b4cb5f399/1686322850)
+![Stora Enson tehdas. Piipusta nousee savua.](https://img.img-cdn.yle.fi/crop_extract,w_5128,h_2884,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1130008648abd0ec1383/1686817372)
 
 Avaa kuvien katselu
 
-Pelastustyöt Ukrainan tulva-alueella jatkuvat. Kuva: Mykola Tymchenko / EPA
+Stora Enso sulkee Sunilan sellutehtaan. Kuva: Roni Rekomaa / Lehtikuva
 
-Ukrainan tulvassa on kuollut ihmisiä. Kuolleiden määrä on ainakin yli 10. Ihmisiä on myös kadonnut tulvan takia.
+Metsäfirma Stora Enso aikoo vähentää työntekijöitä.
 
-Tulvan syy on se, että iso Kahovkan pato meni rikki tiistaina. Siksi Dnepr-joki tulvii. Ukraina sanoo, että Venäjä tuhosi padon.
+Stora Enso aikoo esimerkiksi sulkea Sunilan sellutehtaan. Tehdas on Kotkan kaupungissa.
 
-Pelastustyöt tulva-alueella jatkuvat. Myös Suomi lähettää alueelle apua, esimerkiksi ruokaa ja tarvikkeita juomaveden puhdistamista varten.
+Stora Enso suunnittelee, että Sunilan sellutehtaan toiminta loppuu vielä tämän vuoden aikana. Suunnitelma koskee 250 työntekijää Kotkassa.
 
-## Työntekijäpula
+Stora Enso sulkee toimintoja myös ulkomailla eli Alankomaissa, Puolassa ja Virossa. Lisäksi Stora Enso vähentää toimistotyöntekijöitä.
 
-![Kaksi henkilöä työskentelee laboratoriossa.](https://img.img-cdn.yle.fi/crop_extract,w_5868,h_3300,x_0,y_367/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125900648070df6c5e5/1686139180)
+Stora Enson suunnitelmat voivat tarkoittaa sitä, että yhteensä yli 1000 työntekijää jää ilman työpaikkaa.
 
-Avaa kuvien katselu
+## Korot
 
-Teknologiateollisuudessa on monenlaisia työpaikkoja. Kuva: Sasha Silvala / Yle
-
-Teknologiateollisuudessa tarvitaan lisää työntekijöitä.
-
-Esimerkiksi hitsaajia ja koneistajia on liian vähän. Myös automaation, robotiikan ja tekoälyn osaajia tarvitaan lisää.
-
-Monet teknologia-alan firmat sanovat, että ne eivät voi kasvattaa bisnestä, koska niillä ei ole tarpeeksi työntekijöitä.
-
-Arvioidaan, että teknologiateollisuudessa tarvitaan tulevina vuosina yli 100 000 uutta työntekijää.
-
-## Suomen kieli Viron kouluissa
-
-![Viron yläasteilla ja lukioissa käytettävä Suomen kielen oppikirja avattuna.](https://img.img-cdn.yle.fi/crop_extract,w_1083,h_608,x_0,y_90/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112287364785486901f1/1685607879)
+![EKP:n päärakennus Main-joen yli kuvattuna. Kuvassa mukana rautatiesilta.](https://img.img-cdn.yle.fi/crop_extract,w_5954,h_3349,x_0,y_184/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89561061c31173ea8e4/1640174088)
 
 Avaa kuvien katselu
 
-Suomen opiskelu on nyt suosittua Virossa. Kuva: Rain Kooli / Yle
+EKP:n päärakennus on Frankfurtissa Saksassa. Kuva: Esa Syväkuru / Yle
 
-Suomen kielen suosio kasvaa Viron kouluissa. Monissa Viron peruskouluissa ja lukioissa oppilaat valitsevat nyt suomen toiseksi vieraaksi kieleksi.
+Euroopan keskuspankki eli EKP nostaa korkoja. EKP kertoi torstaina, että se nostaa ohjauskorkoja 0,25 prosenttiyksikköä.
 
-Monet oppilaat valitsevat suomen, koska he eivät halua enää opiskella venäjää. Venäjän kielen suosio on laskenut tosi paljon, sen jälkeen kun Venäjä aloitti sodan Ukrainassa.
+Korkojen avulla EKP taistelee inflaatiota eli hintojen nousua vastaan. EKP on nostanut korkoja jo viime kesästä lähtien.
 
-Virolaisten mielestä suomea on helppo oppia, koska viro ja suomi ovat sukukieliä. Siksi kielet ovat melko samanlaisia.
+EKP:n korkopäätökset ovat vaikuttaneet myös monien asuntolainojen korkoihin. Monen kodin menot ovat kasvaneet, kun asuntolainan korko on noussut ja lainan hoitaminen on kalliimpaa kuin ennen.
 
-Vielä 30 vuotta sitten monet virolaiset osasivat jonkin verran suomea, koska he katsoivat paljon Suomen televisiota. Nykyään suosituin vieras kieli Virossa on englanti.
+## Suomen talous
+
+![Ihmisiä kauppakeskuksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2806,x_0,y_214/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9361156245a2f6dcdae/1648813483)
+
+Avaa kuvien katselu
+
+Talous kasvaa, jos ihmiset kuluttavat rahaa. Kuva: Henrietta Hassinen / Yle
+
+Suomen talous ei kasva tänä vuonna. Näin arvioi valtiovarainministeriö, joka valmistelee Suomen talouspolitiikkaa.
+
+Talous ei kasva tänä vuonna, koska hinnat ja korot ovat nousseet.
+
+Ensi vuonna hintojen nousu kuitenkin hidastuu ja ihmisillä on taas varaa kuluttaa rahaa enemmän. Siksi talous alkaa kasvaa ensi vuonna.
+
+Vuonna 2025 talous kasvaa vielä nopeammin, valtiovarainministeriö arvioi. Yksi syy siihen on ympäristöystävällisen tekniikan yleistyminen.
+
+## EM-jalkapallo
+
+![Huuhkajat lämmittelee.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_376/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1129979648ab771185a2/1686812551)
+
+Avaa kuvien katselu
+
+Suomen jalkapallomaajoukkue eli Huuhkajat. Kuva: Lehtikuva
+
+Suomella on tärkeä jalkapallo-ottelu perjantaina. Suomi pelaa EM-karsintaottelun Sloveniaa vastaan.
+
+EM-karsinnoissa selviää, mitkä maat pääsevät Euroopan mestaruuskilpailujen lopputurnaukseen.
+
+Suomi on tähän mennessä voittanut karsinnoissa Pohjois-Irlannin ja hävinnyt Tanskalle.
+
+Suomen ja Slovenian jalkapallo-ottelu pelataan perjantaina Helsingin Olympiastadionilla.
+
+Jalkapallon Euroopan mestaruuskilpailut järjestetään 4 vuoden välein. Seuraava EM-lopputurnaus on vuoden päästä Saksassa.
 
 ## Sää
 
-![Lähivuorokausien sää on koko maassa aurinkoinen ja lämmin.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112758764832529720ac/1686316447)
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1130616648b317682f7f/1686843792)
 
 Avaa kuvien katselu
 
-Kuva: Anniina Valtonen/Yle
+Sää on aurinkoista.
 
-Sää on poutaista ja aurinkoista. Sää myös lämpenee.
+Lämpötila on etelässä yli 25 astetta. Lapissa on viileämpää ja lämpötila on alle 20 astetta.
 
-Lauantaina lämpötila on 15 ja 20 asteen välillä. Sunnuntaina lämpötila on yli 20 astetta.
-
-Ensi viikolla mitataan jo hellelukemia, jolloin lämpötila on vähintään 25 astetta.
+Myös viikonloppuna on lämmintä ja aurinkoista. Viikonloppuna sää lämpenee myös Lapissa.

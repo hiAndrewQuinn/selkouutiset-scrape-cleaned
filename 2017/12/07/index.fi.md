@@ -1,71 +1,71 @@
-# Sunnuntai 3.12.2017 (radio)
+# Torstai 7.12.2017 (radio)
 
-Suomalaiset kannattavat maahanmuuttoa. SuomiKamut. Sote-uudistus. Laura Huhtasaari. Yöllä voi nähdä superkuun.
+Tuulivoimalat aiheuttavat luultua vähemmän lintukuolemia. Politico uskoo, että Jyrki Kataisella on paljon vaikutusvaltaa. Helsingin Lauttasaaressa liikkui lippuvaras. TV-katsojat äänestivät linnanjuhlien kauneinta pukua. Terveisiä Australian Suomi-koulusta.
 
-## Maahanmuuton kannattajien määrä on kasvanut
+## Tuulivoimalat ja lintukuolemat
 
-![Savon ammatti- ja aikuisopisto edelläkävijä maahanmuuttajien osaamisen kartoituksessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9563441)
-
-Avaa kuvien katselu
-
-Maahanmuuton kannattajia on nyt enemmän kuin vastustajia. Kuva: Heli Laitinen
-
-Suomalaiset tuntuvat nyt suhtautuvan maahanmuuttoon myönteisesti. Sanomalehti Helsingin Sanomat kertoo, että lähes puolet suomalaisista haluaa Suomeen enemmän maahanmuuttajia. Lehden kyselyssä 47 prosenttia vastaajista sanoi, että maahanmuuttajia voi tulla enemmän.
-
-Maahanmuuttoa vastustavia on nyt vähemmän kuin sen kannattajia. Maahanmuuttoa vastusti 41 prosenttia kyselyn vastaajista.
-
-Helsingin Sanomat kertoo, että vuonna 2010 maahanmuuton vastustajia oli selvästi enemmän.
-
-## Suomen Punainen Risti auttaa löytämään ystävän
-
-![Lasipurkkeja, joissa on sisällä joulukoristeita ja metallilankakahva. Yhden purkin kyljessä on arabiankielistä tekstiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9952403)
+![tuulivoimala](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9811050)
 
 Avaa kuvien katselu
 
-Näin joulun alla ystävän kanssa voi vaikka askarrella. Kuva: Anniina Wallius / Yle
+Tuulivoimalan roottori on vaarallinen linnuille. Kuva: Ismo Pekkarinen / AOP
 
-Moni Suomeen tullut ulkomaalainen on löytänyt ystävän Suomen Punaisen Ristin avulla. Suomen Punainen Risti järjestää SuomiKamu-toimintaa.
+Tuulivoimalat aiheuttavat luultua vähemmän lintukuolemia. Luonnontieteellisen museon tutkija Kalle Meller sanoo, että kunkin tuulivoimalan roottoriin törmää ehkä pari lintua vuodessa.
 
-Siinä oleskeluluvan saanut ja vapaaehtoinen suomalainen voivat etsiä ystävää, jonka kanssa voi vaikka käydä kahvilla tai kävelyllä.
+Kun tuulivoimaloita alettiin rakentaa Suomeen, uskottiin, että lintukuolemia sattuu paljon enemmän.
 
-Suomalaisen ystävän tuki on tärkeää varsinkin silloin, kun oleskeluluvan saaja muuttaa vastaanottokeskuksesta omaan kotiin.
+Tutkija Kalle Meller sanoo, että esimerkiksi pikkulinnut lentävät yleensä niin korkealla, että ne harvoin osuvat voimalan roottoreihin.
 
-## Sote-uudistus valmistuu, sanoo pääministeri
+## Politico-lehti arvioi Jyrki Kataista
 
-![Pääministeri Juha Sipilä ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960612)
-
-Avaa kuvien katselu
-
-Pääministeri Juha Sipilä  Kuva: Jussi Nukari / Lehtikuva
-
-Pääministeri Juha Sipilä sanoo, että hallitus saa sosiaali- ja terveyspalvelujen uudistuksen ajoissa valmiiksi.
-
-Sote-uudistuksen tekeminen on ollut vaikeaa, koska siihen liittyy monia lakeja.
-
-Pääministeri Juha Sipilä sanoi tänään sunnuntaina, että hallituspuolueet keskusta, kokoomus ja siniset saavat uudistuksen tehtyä.
-
-## Perussuomalaisten presidenttiehdokas
-
-![Perussuomalaisten presidenttiehdokas Laura Huhtasaari oli tavattavissa Hakaniementorilla sunnuntaina 3. joulukuuta 2017. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960623)
+![Jyrki Katainen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9642760)
 
 Avaa kuvien katselu
 
-Laura Huhtasaari on perussuomalaisten presidenttiehdokas. Kuva: Martti Kainulainen / Lehtikuva 
+Politico-lehden mielestä Jyrki Kataisella on paljon vaikutusvaltaa Euroopan tulevaisuuteen. Kuva: Yle
 
-Perussuomalaisten presidenttiehdokas Laura Huhtasaari on aloittanut vaalikampanjan. Huhtasaaren presidentinvaalikampanjan iskulause on Suomi takaisin.
+Politiikan erikoislehti Politico kirjoittaa, että EU-komission varapuheenjohtaja Jyrki Katainen on yksi Euroopan vaikutusvaltaisimmista ihmisistä.
 
-Hänellä on tähän asti ollut kannatuskyselyissä vain vähän kannatusta.
+Politico on tehnyt listan ihmisistä, jotka lehden mielestä vaikuttavat ensi vuonna kaikkein eniten Euroopan tulevaisuuteen. Jyrki Katainen on listalla 7.
 
-## Tänä yönä voi nähdä superkuun
+Politico kirjoittaa, että Kataisella on suuri rooli EU-komissiossa. Kataisen vastuulla ovat esimerkiksi EU:n puolustusyhteistyö ja talous- ja rahaliiton täydentäminen.
 
-![Kuu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960398)
+## Varas vei Suomen lippuja
+
+![Suomen lippuja liehuu saloissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6405527)
 
 Avaa kuvien katselu
 
-Sunnuntain ja maanatain välisenä yönä voi nähdä superkuun. Kuva: Ernie Wright / NASA Goddard's Scientific Visualization Studio
+25 Suomen lippua katosi lipputangoista Helsingin Lauttasaaressa. Kuva: Yle
 
-Tänä yönä kannattaa kurkata taivaalle. Pilvien välistä saattaa näkyä täysikuu, joka on hieman suurempi ja kirkkaampi kuin yleensä. Nyt on superkuun aika.
+Helsingin Lauttasaaressa varastettiin itsenäisyyspäivänä iso määrä Suomen lippuja. Eri taloyhtiöiden lipputangoista varastettiin yhteensä 25 lippua, kertoo Vattuniemen kiinteistönhoidon huoltomies.
 
-Superkuu tarkoittaa sitä, että Maa, Aurinko ja Kuu ovat suorassa linjassa ja tämän lisäksi Kuu on vielä radallaan lähimpänä Maata.
+Liput vietiin iltahämärissä. Sitä ei tiedetä, kuka liput vei ja miksi.
 
-Tämä on tänä vuonna ainoa yö, jolloin voi nähdä superkuun.
+Taloyhtiöt voivat tehdä varkaudesta rikosilmoituksen poliisille. Lipun varastamisesta tai häpäisystä voidaan tuomita sakkoihin.
+
+## Linnanjuhlien kaunein puku
+
+![Minttu ja Kimi Räikkönen Linnan juhlissa 6.12.2017](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9965446)
+
+Avaa kuvien katselu
+
+Minttu ja Kimi Räikkönen linnanjuhlissa. Kuva: AOP
+
+Itsenäisyyspäivän juhlaohjelmat keräsivät suuren tv-yleisön. Ylen kanavilla itsenäisyysjuhlaa katsoi 3,6 miljoonaa ihmistä. 
+
+Eniten tv-katsojia kiinnosti presidentin vastaanotto itsenäisyyspäivän iltana.
+
+Tänä vuonna suomalaiset saivat äänestää, kenellä juhlavieraista oli kaunein puku. Ylen nettiäänestyksessä eniten ääniä sai Minttu Räikkösen juhlapuku. Minttu Räikkönen on kilpa-autoilija Kimi Räikkösen vaimo.
+
+## Terveisiä maapallon toiselta puolelta!
+
+![Lapset istuvat pöydän ääressä pelaamassa Afrikan tähti -lautapeliä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9966206)
+
+Avaa kuvien katselu
+
+Sydneyn suomikoululaiset pelaavat Afrikan tähteä, joka on suomalainen lautapeli.
+
+Suomi-koulut eri puolilta maailmaa ovat tämän vuoden aikana lähettäneet onnitteluvideoita satavuotiaalle Suomelle.
+
+Uusimmat terveiset tulevat  Australiasta, Sydneyn Suomi-koulusta.

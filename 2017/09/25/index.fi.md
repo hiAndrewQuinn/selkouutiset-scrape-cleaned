@@ -1,75 +1,67 @@
-# Lauantai 23.9.2017 (radio)
+# Maanantai 25.9.2017 (radio)
 
-Suomessa keskustellaan siitä, pitääkö presidentin olla syntynyt Suomen kansalaiseksi. Laura Huhtasaari on perussuomalaisten presidenttiehdokas. Saksassa on sunnuntaina parlamenttivaalit. Maahanmuuttajalapset oppivat lukemaan ja kirjoittamaan yhtä hyvin kuin suomalaiset lapset. Sää on lämmin.
+Poliisi on kertonut lisää tietoja viime perjantain puukotustapauksesta. Irakissa kurdit ovat äänestäneet itsenäisyydestä. Suomessa halutaan, että isät käyttävät isomman osan perhevapaista. Mustikan hinta nousee.
 
-## Presidentin syntyperävaatimus
+## Puukotustapaus
 
-![Presidentinlinna ja Tuomiokirkko.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9641821)
-
-Avaa kuvien katselu
-
-Nykyään presidentiksi voi päästä vain, jos on syntynyt Suomen kansalaiseksi. Kuva: Henrietta Hassinen / Yle
-
-Suomessa keskustellaan siitä, pitääkö presidentin syntyperävaatimus poistaa. Syntyperävaatimus tarkoittaa, että presidentiksi voi päästä vain ihminen, joka on syntynyt Suomen kansalaiseksi.
-
-Monien mielestä vaatimus syrjii maahanmuuttajia. Esimerkiksi sellaiset poliitikot kuin Nasima Razmyar tai Ozan Yanar eivät voi pyrkiä presidentiksi, koska heillä on maahanmuuttajatausta. He eivät olleet Suomen kansalaisia, kun he syntyivät.
-
-Presidentin syntyperävaatimuksen poistamista on ehdottanut kansanedustaja Pilvi Torsti. Myös monet muut ovat sitä mieltä, että vaatimus on vanhanaikainen. Asiasta päättää Suomen parlamentti eli eduskunta.
-
-## Perussuomalaisten presidenttiehdokas
-
-![Laura Huhtasaari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9848199)
+![Poliiseja ja ambulanssi eduskunnan edustalla Helsingissä perjantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9846465)
 
 Avaa kuvien katselu
 
-Laura Huhtasaari on perussuomalaisten presidenttiehdokas. Kuva: Antti Aimo-Koivisto / Lehtikuva
+Poliisiauto ja ambulanssi eduskuntatalon edessä perjantaina 22.9. Kuva: Jussi Nukari / Lehtikuva
 
-Perussuomalaiset-puolue on päättänyt, kuka on puoleen presidenttiehdokas. Ehdokas on Laura Huhtasaari.
+Poliisi on kertonut lisää tietoja viime perjantain puukotustapauksesta. Silloin 2 nuorta miestä löi itseään puukolla eduskuntalon portailla Helsingissä.
 
-Huhtasaari on perussuomalaisten varapuheenjohtaja. Huhtasaari ei halua, että Suomeen tulee paljon maahanmuuttajia. Hän vastustaa myös islamia.
+Poliisi kertoo nyt, että miehet olivat turvapaikanhakijoita. Teon syy liittyy turvapaikan hakemiseen.
 
-Presidentinvaalit järjestetään tammikuussa. Vaaleissa on monta ehdokasta.
+Poliisi kertoo myös, että miehet ovat noin 20-vuotiaita. Poliisi ei kuitenkaan kerro, mistä maasta miehet ovat tulleet Suomeen.
 
-Myös nykyinen presidentti Sauli Niinistö haluaa jatkaa presidentin työssä. Mielipidekyselyt ennustavat, että suomalaiset valitsevat Niinistön uudelleen presidentiksi.
+Miehet eivät loukkaantuneet pahasti. He pääsivät pois sairaalasta lauantaina.
 
-## Vaalit Saksassa
+Poliisi jatkaa tilanteen selvittämistä yhdessä Maahanmuuttoviraston kanssa.
 
-![Saksan liittokansleri Angela Merkel puhui lehdistölle G20-kokouksen päätteeksi Hampurissa 8. heinäkuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9830260)
+## Irakin kurdit
 
-Avaa kuvien katselu
-
-Saksan liittokansleri Angela Merkel. Kuva: Daniel Kopatsch / EPA 
-
-Saksassa on sunnuntaina parlamenttivaalit.
-
-Mielipidekyselyt ennustavat, että kristillisdemokraatit voittavat vaalit. Kristillisdemokraattien johtaja on Angela Merkel.
-
-Merkel on myös liittokansleri eli Saksan poliittinen johtaja. Jos kristillisdemokraatit voittavat vaalit, Merkel jatkaa liittokanslerina.
-
-Saksan vaalit kiinnostavat myös muita Euroopan maita, koska Saksa on Euroopan unionin suurin maa.
-
-## Lukemaan ja kirjoittamaan oppiminen
-
-![Syyrialaisperhe.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9841636)
+![Irakin Kurdistan äänestää parhaillaan itsenäistymisestä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9850432)
 
 Avaa kuvien katselu
 
-Vanhemmat Salah Bitar ja Marina Bsis, lapset Muhammed Bitar ja Zamzam Bitar. Kuva: Janne Ahjopalo / Yle
+Irakin kurdit äänestivät itsenäisyydestä.
 
-Maahanmuuttajalapset oppivat lukemaan ja kirjoittamaan yhtä hyvin kuin suomalaiset lapset. Asiaa on tutkinut Riitta Sikiö.
+Irakissa kurdit ovat äänestäneet itsenäisyydestä. Osa kurdeista haluaa, että kurdit perustavat oman valtion Pohjois-Irakiin.
 
-Sikiö sanoo, että maahanmuuttajalapset oppivat paremmin, jos vanhemmat kannustavat heitä.
+Irakin kurdijohtajat aikovat aloittaa neuvottelut Irakin hallituksen kanssa, jos enemmistö kurdeista haluaa omaa valtiota.
 
-Yle tapasi Joensuussa syyrialaisen Bitarin perheen, jossa lapsia kannustetaan oppimaan. Koko perhe opettelee suomea yhdessä. Vanhemmat käyvät suomen kursseilla ja lapset ovat koulussa.
+Irakin hallitus ei hyväksy äänestystä.
 
-On hauskaa, että opettelemme samoja asioita, perheen äiti Marina Bsis kertoo.
+Kurdeja asuu myös Irakin naapurimaissa Turkissa ja Iranissa. Siksi Turkin ja Iranin hallitukset eivät halua, että Irakiin syntyy kurdivaltio.
 
-## Lämmin sää
+## Perhevapaat
 
-![Ruskan alkua Kaivopuistossa, lehtiä lähikuvassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9848310)
+![Isä ja lapsi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9828503)
 
 Avaa kuvien katselu
 
-Kaunis sää kutsuu nyt ulkoilemaan. Kuva: Heikki Saukkomaa / Lehtikuva
+Myös isät halutaan perhevapaille. Kuva: AOP
 
-Sää on lämmin. Melkein koko maassa lämmintä on 15 ja 20 asteen välillä. Lämmin sää jatkuu koko syyskuun lopun.
+Suomessa toivotaan, että isät käyttävät perhevapaita enemmän kuin nyt. Siksi Suomen hallitus aikoo uudistaa perhevapaat.
+
+Työntekijöiden ja työnantajien järjestöt sanovat, että hallituksen pitää varata isompi osa perhevapaista isille. Naisten tasa-arvo työelämässä paranee, jos myös isät hoitavat lapsia.
+
+Järjestöt ovat kuitenkin huolissaan siitä, ehditäänkö uudistus tehdä tarpeeksi huolellisesti. Hallitus haluaa, että uudistus otetaan käyttöön jo vuoden 2019 alussa.
+
+## Mustikka
+
+![mustikan poimintaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9754922)
+
+Avaa kuvien katselu
+
+Suomen metsissä kasvaa terveellisiä mustikoita. Kuva: Ismo Pekkarinen / AOP
+
+Mustikan hinta on noussut ja nousee lisää. Syy on se, että mustikoita on saatu tänä vuonna vain vähän, mutta ostajia on paljon.
+
+Mustikka on suosittu marja monissa maissa. Esimerkiksi japanilaiset ja kiinalaiset syövät mustikoita, koska mustikka on tosi terveellistä.
+
+Tänä vuonna mustikan sato on kuitenkin ollut huono ympäri maailmaa. Esimerkiksi USA:ssa ja Itä-Euroopassa mustikoita on kasvanut vähemmän kuin tavallisesti.
+
+Suomessa mustikat kypsyivät myöhään eikä sato ollut iso. Se on harmi, koska mustikan hinta nousee melko varmasti monta kymmentä prosenttia.

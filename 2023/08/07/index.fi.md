@@ -1,79 +1,63 @@
-# Radio Selkouutiset perjantai 4.8.2023
+# Radio Selkouutiset maanantai 7.8.2023
 
-Sähkönsiirto. Lintuinfluenssa. Opiskelija-asunnot. Merien lämpötila. Sää.
+Kännykät kouluissa. Myrsky. Pankkihuijaus. Sää.
 
-## Sähkönsiirto
+## Kännykät kouluissa
 
-![Caruna Oy:n sähkölinja Posiolla.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115159364cbed36b6812/1691086752)
-
-Avaa kuvien katselu
-
-Sähköverkkofirma omistaa aina paikallisen sähkön jakeluverkon, jolla sähkö siirretään koteihin ja muihin kiinteistöihin. Sähköverkkofirmaa ei siksi voi vapaasti valita. Kuva: Raimo Torikka / Yle
-
-Asiakkaat joutuvat maksamaan sähkönsiirrosta eniten Kainuussa ja Pohjois-Pohjanmaalla Kajave Oy:n alueilla. Siirtofirmojen hinnat ovat korkeita myös Pohjois-Karjalassa ja Koillis-Savossa.
-
-Halvimmin sähkö siirtyy asiakkaille Keravalla ja Turussa.
-
-Paikallinen verkkofirma vastaa aina sähkönsiirrosta riippumatta siitä, mistä asiakas ostaa energian.
-
-Sähkön siirtomaksu perustuu paikalliseen perusmaksuun ja asiakkaan omaan energiankulutukseen.
-
-## Lintuinfluenssavirus
-
-![Kärsivän näköisiä turkiseläimiä häkeissään.](https://img.img-cdn.yle.fi/crop_extract,w_2493,h_1400,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106145763c92838c2125/1674127742)
+![Lapsi ja puhelin.](https://img.img-cdn.yle.fi/crop_extract,w_4160,h_2340,x_0,y_910/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6408895e414c46604d8/1581337914)
 
 Avaa kuvien katselu
 
-Ruokavirasto on määrännyt suuren määrän sinikettuja ja minkkejä tapettavaksi lintuinfluenssan takia. Kuva: Oikeutta eläimille
+Monet haluavat, että lapset jättävät kännykät pois oppitunnilla. Kuva: Toni Pitkänen / Yle
 
-Lintuinfluenssa on levinnyt Suomessa 21 turkistarhalle, kertoo Terveyden ja hyvinvoinnin laitos.
+Suomalaiset haluavat, että opettajat voivat kieltää kännykät koulussa oppitunnilla. Ylen kyselyssä 85 prosenttia sanoo, että kännykän käyttöä oppitunnilla on hyvä rajoittaa enemmän.
 
-THL varoittaa, että lintuinfluenssa on riski kansanterveydelle. THL sanoo, että turkistarhojen terveysturvallisuutta pitää parantaa.
+Monet ajattelevat, että oppilaat eivät opi, jos he saavat käyttää kännykkää oppitunnilla vapaasti.
 
-Tutkimustulokset kertovat, että turkiseläinten viruksista on löytynyt mutaatioita eli muunnoksia. Muuntuneita viruksia on todettu kahdella turkistarhalla.
+Laki sanoo kuitenkin, että myös oppilailla on omat oikeutensa. Siksi kännykät voi kerätä pois vain jos oppilaat suostuvat. Opettaja voi myös ottaa oppilaan kännykän pois, jos kännykkä häiritsee muita oppilaita.
 
-Lintuinfluenssavirus voi myös tarttua ihmiseen, kun virus sopeutuu nisäkäseläimiin.
+Hallitus aikoo muuttaa lakia niin että kännykän kieltäminen kouluissa on helpompaa.
 
-## Yhteisasuminen
+## Myrsky
 
-![Pieni soluasunto, sänky, työpöytä ja tuoli.](https://img.img-cdn.yle.fi/crop_extract,w_890,h_501,x_0,y_286/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6726275eb51dc2a9279/1588928068)
-
-Avaa kuvien katselu
-
-Opiskelija-asuntoja riittää vain pienelle joukolle opiskelijoita. Kuva: Elna Äyhynmäki
-
-Uusi hallitus kannustaa opiskelijoita yhteisasumiseen.
-
-Hallitus selvittää asumistukea opiskelijoiden yleisen asumistuen rinnalle. Sellainen oli käytössä silloin, kun opiskelijat saivat asumislisää, eivät yleistä asumistukea.
-
-Uudessa mallissa ehkä vain hakijan omat tulot vaikuttavat asumistuen määrään. Opiskelija voisi saada asumistukea, vaikka kumppani samassa asunnossa käy töissä.
-
-Yhteisasumista hidastaa se, että 10 viime vuoden aikana monesta tuhannesta soluasunnosta on tehty yksiö tai perheasunto.
-
-Suomessa opiskelija-asuntosäätiöt omistavat vajaat 69 000 opiskelija-asuntoa.
-
-## Merien lämpötila
-
-![Hiekkaranta kuvattuna hiekan tasolta.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114712264bf9ddf619fb/1706258859)
+![Salama lyö taivaalla puiden latvojen seassa.](https://img.img-cdn.yle.fi/crop_extract,w_1909,h_1077,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115285364d05efa62b9a/1691380980)
 
 Avaa kuvien katselu
 
-Tutkijat varoittavat, että merien lämpeneminen vaikuttaa vakavasti ihmisiin, eläimiin ja koko planeettaan.  Kuva: AOP
+Tiistaina voi olla kova ukkonen. Kuva: Antti Haavisto / Yle
 
-Valtamerten lämpötila on noussut.
+Suomeen voi tulla tiistaina aamulla vaarallinen myrsky. Myrsky tulee etelästä, ja sen mukana mukana voi tulla tosi kova sade ja tuuli. Tuuli voi olla niin kova, että se kaataa puita. Jos puut kaatuvat sähkölinjojen päälle, ne voivat aiheuttaa sähkökatkoja.
 
-Merenpinnan keskilämpötila on nyt mittaushistorian korkein. Keskimääräinen merenpinnan lämpötila oli tällä viikolla 20,96 astetta.
+Sähköyhtiöt kertovat, että ne ovat varautuneet korjaamaan sähkökatkoja.
 
-Edellinen ennätys on vuoden 2016 maaliskuussa: 20,95 astetta.
+Kaupungeissa vettä voi tulvia kadulle, jos sade täyttää viemärikaivot.
 
-Tutkijat ovat huolissaan uuden ennätyksen ajankohdasta: normaalisti korkeat lämpötilat ovat maaliskuussa.
+Kun myrsky tulee, pihan tavarat ja auto kannattaa siirtää suojaan. Myrskyn aikana ei kannata liikkua paikoissa, joissa on paljon puita. Puut voivat kaatua päälle. Vesillä ei pidä liikkua.
+
+## Pankkihuijaus
+
+![Käräjäoikeus teksti talon seinässä. ](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1124910647dc8c7c9469/1685965343)
+
+Avaa kuvien katselu
+
+Helsingin käräjäoikeus. Kuva: Matti Myller / Yle
+
+Nuori mies on saanut oikeudessa tuomion pankkihuijauksen takia. 21-vuotias mies sai viisi vuotta vankeutta.
+
+Mies huijasi S-Pankin asiakkaita. Hän lähetti viime vuonna monelle sadalle ihmiselle tekstiviestejä, jotka näyttivät S-Pankin tekstiviesteiltä. Jotkut S-Pankin asiakkaat kertoivat pankkitunnuksensa.
+
+Mies varasti S-Pankin asiakkailta 2,4 miljoonaa euroa.
 
 ## Sää
 
-![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115223164cd1a1566f49/1691163278)
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115331364d1058338f69/1691420077)
 
 Avaa kuvien katselu
 
 Kuva: Yle
 
-Lauantaina sade- ja ukkoskuuroja tulee eniten maan keskivaiheilla. Lämpötila on 20 astetta tai vähän yli. Pohjoisessa on viileämpää.
+Tiistaina aamulla etelästä tulee sateita ja ukkosia. Iltapäivällä ne leviävät Suomen keskiosaan. Sateet ja ukkoset voivat olla kovia.
+
+Lämpötila on 19–29 asteen välillä.
+
+Muualla paitsi Lapissa varoitetaan kovista tuulista ja kovasta ukkosesta.

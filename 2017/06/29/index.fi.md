@@ -1,89 +1,61 @@
-Teemu Selänne
+# Torstai 29.6.2017 (radio)
 
-# Tiistai 27.6.2017 (radio)
+Suomen hallituksella on ongelmia sote-uudistuksen kanssa. Ympäristörikoksia ilmoitetaan poliisille enemmän kuin ennen. Suomalaiset ovat tyytyväisiä omaan elintasoon. Luonnon marjoja saadaan tänä kesänä todennäköisesti paljon.
 
-Perussuomalaisten ryhmä sai kansanedustajan takaisin. Yhdysvalloissa muslimien maahantulokielto väliaikaisesti voimaan. Maahanmuuttovastainen leiri purettiin Helsingissä. Google sai jättisakot EU:lta. Mummot ja papat ovat tärkeitä lastenhoidossa. Jääkiekkoilija Teemu Selänne sai merkittävän huomionosoituksen.
+## Sote-uudistus
 
-![Teemu Selänne.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9691243)
-
-Avaa kuvien katselu
-
-Teemu Selänne. Kuva: AOP
-
-- 
-
-  
-
-  Jan Fredriksson
-
-  
-
-  
-
-27.6.2017 17:52
-
-## Perussuomalaiset sai takaisin kansanedustajan
-
-![Arja Juvonen saapui perussuomalaisten eduskuntaryhmän kokoukseen Helsingissä 13. kesäkuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9671523)
+![Ville Niinistö (vihr.), Anna-Maja Henriksson (rkp), Leena Meri (ps.), perustuslakivaliokunnan varapuheenjohtaja Tapani Tölli (kesk.), perustuslakivaliokunnan puheenjohtaja Annika Lapintie (vas.), Kimmo Kivelä (uv.), Ilkka Kantola(sdp) ja Wille Rydman (kok) perustuslakivaliokunnan sote-uudistusta käsittelevässä tiedotustilaisuudessa 29. kesäkuuta 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9696633)
 
 Avaa kuvien katselu
 
-Kansanedustaja Arja Juvonen palasi perussuomalaisiin. Kuva: Jussi Nukari / Lehtikuva
+Eduskunnan perustuslakivaliokunta kertoi mielipiteensä sote-uudistuksesta torstaina. Kuva: Mikko Stig / Lehtikuva
 
-Perussuomalaisten eduskuntaryhmä on kasvanut 1 kansanedustajalla. Kansanedustaja Arja Juvonen palaa perussuomalaisten eduskuntaryhmään.
+Suomen hallituksella on ongelmia sote-uudistuksen kanssa. Sote-uudistus tarkoittaa sosiaali- ja terveyspalvelujen uudistamista.
 
-Juvonen erosi ryhmästä puoluekokouksen jälkeen. Puolueesta lähti samalla noin 20 kansanedustajaa, jotka perustivat Uusi vaihtoehto -ryhmän. Juvonen ei liittynyt itse mihinkään, mutta päätti nyt palata takaisin perussuomalaisiin.
+Tärkeä osa uudistusta on valinnanvapaus. Tarkoitus on, että jokainen voi valita julkisen tai yksityisen palvelun, esimerkiksi lääkäriaseman. Julkisen palvelun omistaja on yhteiskunta.
 
-Perussuomalaiset siirtyivät oppositioon hallituskriisin jälkeen. Ryhmässä on nyt 17 kansanedustajaa.
+Ongelma on se, miten valinnanvapaus järjestetään. Hallitus on suunnitellut, että yhteiskunnan pitää perustaa julkisia palveluja varten omia firmoja.
 
-## USA:n maahantulokielto muslimeille tuli väliaikaisesti voimaan
+Eduskunnassa tärkeän perustuslakivaliokunnan jäsenet ovat kuitenkin eri mieltä. He sanovat, että yhteiskuntaa ei saa pakottaa tekemään julkisista palveluista firmoja.
 
-![Yhdysvaltain korkeimman oikeuden tuomarit.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9651026)
+Hallitus aikoo muuttaa sote-uudistusta perustuslakivaliokunnan kritiikin takia. Hallitus pitää kuitenkin kiinni siitä, että uudistus on valmis vuoden 2019 alussa.
 
-Avaa kuvien katselu
+## Ympäristörikokset
 
-Korkein oikeus sallii maahantulokiellon väliaikaisesti.  Kuva: Shawn Thew / EPA
-
-Yhdysvaltain korkein oikeus on antanut luvan rajoittaa 6 muslimimaan kansalaisten maahantuloa. Maahantulokielto estää osittain matkustamisen Iranista, Jemenistä, Libyasta, Somaliasta, Sudanista ja Syyriasta  USA:han. Korkein oikeus sanoo, että kielto ei kuitenkaan koske niitä ihmisiä, joilla on esimerkiksi perhe Yhdysvalloissa.
-
-Kielto kestää 90 päivän ajan. Samalla maahantulokielto estää kaikkien pakolaisten vastaanoton 120 päivän ajan. Päätös on väliaikainen, koska korkein oikeus tekee lopullisen päätöksen maahantulokiellosta vasta syksyllä. Maahantulokielto on ollut tärkeä asia presidentti Donald Trumpille.
-
-## Suomi Ensin -leiri purettiin
-
-![Poliisi purki Suomi ensin -mielenosoituksen Helsingin Rautatientorilla 26. kesäkuuta 2017. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9691108)
+![Rakennusjätettä kasassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9100755)
 
 Avaa kuvien katselu
 
-Poliisi otti kiinni 4 mielenosoittajaa.  Kuva: Emmi Korhonen / Lehtikuva
+Esimerkiksi rakennustyömaan jätteet pitää hävittää oikein, vaikka se maksaa. Kuva: Tero Ylioja / Yle 
 
-Maahanmuuttovastainen Suomi Ensin -leiri on purettu Helsingin Rautatientorilla. Asiasta päättivät poliisi ja Helsingin kaupunki, koska mielenosoittajat ovat pahoinpidelleet ihmisiä. Esimerkiksi viikonloppuna poliisi sai tiedon 3 pahoinpitelystä.
+Ympäristörikoksia ilmoitetaan poliisille enemmän kuin ennen. Vuonna 2016 ilmoitukset ympäristörikoksista kasvoivat melkein 30 prosenttia.
 
-Leirin purkaminen herätti vastarintaa ja poliisi otti kiinni 4 mielenosoittajaa.
+Ympäristörikoksia tekevät tavallisesti firmat. Ne esimerkiksi vievät jätettä luontoon, koska ne haluavat säästää rahaa. Ongelmia on esimerkiksi rakennusalalla.
 
-Rautatientorilla on ollut myös turvapaikanhakijoiden leiri, joka saa jäädä sinne.
+Poliisi Christian Blomqvist ei usko, että ympäristörikoksia tehdään enemmän kuin ennen. Mutta ihmiset ilmoittavat niistä poliisille useammin.
 
-## Google sai jättisakot EU:lta
+## Elintaso
 
-![Kilpailuasioiden komissaari Margrethe Vestager.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9692321)
-
-Avaa kuvien katselu
-
-EU antoi isot sakot Googlelle.  Kuva: Olivier Hoslet / EPA
-
-Hakukonefirma Google on saanut suuret sakot Euroopan Unionilta. Google joutuu maksamaan 2,4 miljardin eli 2 400 miljoonan euron sakot kilpailusääntöjen rikkomisesta. Sakko on EU:n historian suurin.
-
-EU:n mielestä Google on nostanut verkkohauissa omaa Google Shopping -palveluaan hakutulosten kärkeen. Tämä on estänyt reilua kilpailua.
-
-Google ei hyväksy sakkoa.
-
-## Jääkiekkoilija Teemu Selänteelle suuri huomionosoitus
-
-![Teemu Selänne](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9691227)
+![Ruokakauppa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9686705)
 
 Avaa kuvien katselu
 
-Teemu Selänne.  Kuva: Lehtikuva
+Suomalaiset ovat sitä mieltä, että heillä on kaikkea tarpeeksi. Kuva: Orna Ben Lulu / Yle 
 
-Suomen ehkä tunnetuin jääkiekkoilija Teemu Selänne on valittu Pohjois-Amerikan ammattilaisliigan NHL:n kunniagalleriaan eli Hockey Hall of Fameen. Huomionosoitus on merkittävä, koska aikaisemmin vain 1 suomalainen eli Jari Kurri on päässyt tähän galleriaan.
+Suomalaiset ovat tyytyväisiä omaan elintasoon. Uudessa kyselyssä melkein 90 prosenttia vastaajista sanoi, että heillä on tarpeeksi rahaa ja omaisuutta.
 
-Teemu Selänne pelasi urallaan 1451 ottelua NHL:ssä ja teki 684 maalia. Hän voitti urallaan kerran mestaruuden eli Stanley Cupin vuonna 2007.
+Kyselyn teki Taloustutkimus Yleä varten. Taloustutkimuksen tutkimusjohtaja Tuomo Turja miettii, ovatko suomalaiset jo liian tyytyväisiä. Tyytyväiset ihmiset eivät viitsi yrittää enemmän. Miten Suomen talous saadaan silloin kasvamaan, Turja kysyy.
+
+## Metsämarjat
+
+![Puolukoita metsässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8319632)
+
+Avaa kuvien katselu
+
+Tänä kesänä metsissä kasvaa paljon puolukoita. Kuva: Petri Kivimäki / Yle
+
+Luonnon marjoja saadaan tänä kesänä todennäköisesti paljon. Mustikoita kasvaa tavallinen määrä, mutta puolukoita kasvaa paljon. Hilloja eli lakkoja saadaan todennäköisesti tosi paljon.
+
+Marjakasvit kukkivat tänä vuonna myöhään, koska kesän alku oli kylmä. Sen jälkeen lämpötila on ollut hyvä hyönteisille, jotka pölyttävät kasveja lentämällä kukasta kukkaan.
+
+Kesän marjoista kypsyy ensimmäisenä mustikka. Etelä-Suomessa suurin osa mustikoista kypsyy heinäkuun loppupuolella.

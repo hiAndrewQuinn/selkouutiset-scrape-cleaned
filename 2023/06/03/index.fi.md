@@ -1,81 +1,89 @@
-# Radio Selkouutiset perjantai 2.6.2023
+# Radio Selkouutiset lauantai 3.6.2023
 
-Blinkenin vierailu. Dokumenttisarja Marinin hallituksesta. Ennätysmäärä kuutteja. Lappeenrannan lumisade. Sää.
+Koulujen päättäjäiset. Intian junaonnettomuus. Kaija Saariahon kuolema. Häälainat. Viron Suomi-postimerkki. Sää.
 
-## Blinkenin vierailu
+## Koulujen päättäjäiset
 
-![Antony Blinken.](https://img.img-cdn.yle.fi/crop_extract,w_5110,h_2874,x_10,y_88/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11235636479956996ccd/1685689889)
-
-Avaa kuvien katselu
-
-USA:n ulkoministeri Antony Blinken Helsingissä. Kuva: Vesa Moilanen / Lehtikuva
-
-USA:n ulkoministeri Antony Blinken on vieraillut Suomessa.
-
-Blinken puhui Helsingissä. Blinken sanoi, että Suomen Nato-jäsenyys on tärkeä muutos.
-
-Suomi päätti liittyä puolustusliitto Natoon, sen jälkeen kun Venäjä hyökkäsi Ukrainaan.
-
-Blinken sanoi, että suomalaiset ymmärsivät, että Venäjä voi hyökätä myös Suomeen.
-
-Blinken käytti puheessa suomalaista sanaa sisu. Sisussa on tahtoa ja päättäväisyyttä, Blinken sanoi.
-
-Sisun avulla suomalaiset selvisivät, kun Venäjä hyökkäsi Suomeen noin 80 vuotta sitten. Nyt suomalaiset näkevät ukrainalaisten taistelussa samaa sisua, Blinken sanoi.
-
-Ulkoministeri Blinken keskusteli Helsingissä Suomen ulkoministeri Pekka Haaviston kanssa. Blinken ja Haavisto sanoivat, että maiden tuki Ukrainalle jatkuu.
-
-## Dokumenettisarja Marinin hallituksesta
-
-![Anna-Maja Henriksson, Annika Saarikko, Sanna Marin, Maria Ohisalo ja Li Andersson seisovat vierekkäin ja katsovat kameraan.](https://img.img-cdn.yle.fi/crop_extract,w_5919,h_3329,x_0,y_518/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11017176440ebaf7ec0b/1682009643)
+![Kolme ylioppilasta seisoo todistuksen käsissään ja lakit päässään koulunsa edessä. ](https://img.img-cdn.yle.fi/crop_extract,w_3636,h_2045,x_0,y_18/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1124217647af8a45a369/1685780761)
 
 Avaa kuvien katselu
 
-HBO Max teki dokumenttisarjan Marinin hallituksen puoluejohtajista. Kuva: Pressbild / HBO Max
+Uudet ylioppilaat Julianna Vataja, Silja Yli-Hinkkala ja Saara Palomäki Tampereen lyseon lukiosta. Kuva: Anna Sirén / Yle
 
-Pääministeri Sanna Marinin hallituksesta on tehty dokumenttisarja. Se kertoo hallituspuolueiden johtajista.
+Suomessa on juhlittu kouluvuoden loppumista.
 
-Marinin hallituksessa on 5 puoluetta, ja niillä kaikilla on naisjohtajat. Dokumenttisarjan nimi on Viisi valittua.
+Lauantaina valmistui noin 25 000 uutta ylioppilasta. He saivat ylioppilaslakin lukion päättäjäisjuhlassa.
 
-Dokumenttisarjan ohjaaja Mia Halme on päässyt lähelle poliitiikkoja. Sarjassa nähdään esimerkiksi, kuinka pääministeri Marin itkee ukrainalaisten kärsimysten takia.
+Ammattiopistoista valmistui noin 45 000 opiskelijaa. Monissa ammattiopistoissa järjestettiin juhlat jo perjantaina.
 
-Dokumenttisarja suomalaisista naisministereistä nähdään HBO Max -kanavalla Suomessa ja ulkomailla.
+Myös peruskoulun kouluvuosi on loppunut. Noin 62 000 nuorta sai peruskoulun opinnot loppuun tänä keväänä.
 
-## Ennätysmäärä kuutteja
+## Intian junaonnettomuus
 
-![Saimaannorppa, kuutti jäällä.](https://img.img-cdn.yle.fi/crop_extract,w_3233,h_1819,x_0,y_384/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5607885cd01836ed594/1681561693)
-
-Avaa kuvien katselu
-
-Kuutti on saimaannorpan poikanen. Kuva: EPA
-
-Saimaan järvialueella on syntynyt tänä vuonna ennätysmäärä kuutteja eli saimaannorpan poikasia.
-
-Metsähallitus on laskenut, että Saimaalla on nyt 100 kuuttia. Se on enemmän kuin koskaan ennen on laskettu.
-
-Viime talvena saimaannorpille oli tarpeeksi lunta pesän rakentamista varten. Saimaannorppa synnyttää poikaset pesään, jonka se rakentaa lumikinokseen järven jäälle.
-
-Saimaannorppa on harvinainen eläin. Saimaannorppia elää vain Saimaan järvialueella Itä-Suomessa.
-
-## Lappeenrannan lumisade
-
-![Orvokki, jossa on lunta päällä.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_258/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11239576479e844be3b2/1685718136)
+![Tuhoutuneita junavaunuja, joiden ympärillä pelastustyöntekijöitä.](https://img.img-cdn.yle.fi/crop_extract,w_3908,h_2198,x_0,y_319/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1124173647aab2b67b4a/1685789810)
 
 Avaa kuvien katselu
 
-Kukat jäivät lumen alle Lappeenrannassa. Kuva: Petri Kivimäki / Yle
+Onnettomuudessa tuhoutui kokonaisia junavaunuja. Kuva: Lehtikuva
 
-Lappeenrannassa on satanut lunta. Yleensä Lappeenranta on yksi Suomen aurinkoisista ja lämpimistä paikoista.
+Intiassa on tapahtunut paha junaonnettomuus. Onnettomuudessa kuoli noin300 ihmistä ja loukkaantui noin 1000 ihmistä.
 
-Tänään perjantaina Lappeenrannassa kuitenkin satoi monta senttimetriä lunta. Lumisade kesti 3 tuntia.
+Onnettomuus tapahtui perjantaina. Onnettomuudessa oli mukana 2 matkustajajunaa ja 1 tavarajuna.
+
+Intiassa tapahtuu paljon junaonnettomuuksia. Perjantain onnettomuus oli kuitenkin pahin junaonnettomuus yli 20 vuoteen.
+
+## Kaija Saariaho on kuollut
+
+![Kaija Saariaho](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_243/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1124090647a07c8debd4/1685719204)
+
+Avaa kuvien katselu
+
+Säveltäjä Kaija Saariaho. Kuva: Antti Haanpää / Yle
+
+Suomalainen säveltäjä Kaija Saariaho on kuollut. Saariaho oli 70-vuotias. Hän sairasti aivosyöpää.
+
+Saariaho kuoli perjantaina Pariisissa, jossa hän asui. Saariaho syntyi ja kasvoi Helsingissä.
+
+Saariaho on tunnettu säveltäjä ympäri maailmaa. Hän sävelsi yli 100 musiikkiteosta, esimerkiksi 5 oopperaa.
+
+## Häälainat
+
+![Nainen esittelee morsiuspukua.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_642/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1083887640c8e6f8015f/1685790242)
+
+Avaa kuvien katselu
+
+Häämessuilla voi tutustua esimerkiksi morsiuspukuihin. Kuva: Cecilia Juuti / Yle
+
+Suomalaiset ottavat usein lainaa häitä varten. Monet ottavat häälainaa, vaikka lainojen korot ovat nousseet.
+
+Esimerkiksi Danske Bankista kerrotaan, että häälaina on usein 5000 ja 10 000 euron välillä.
+
+Hääsuunnittelijat kertovat, että suomalaiset käyttävät nykyään hääjuhliin enemmän rahaa kuin ennen. Yli 20 000 euron häät ovat yleistyneet.
+
+## Viron Suomi-postimerkki
+
+![Kuvakaappauksessa postimerkki Viron yleisradioyhtiö ERR:n sivulla.](https://img.img-cdn.yle.fi/crop_extract,w_1311,h_737,x_0,y_94/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1124222647afab434731/1685781351)
+
+Avaa kuvien katselu
+
+Kuva: Petteri Sopanen / Yle
+
+Viro on julkaissut postimerkin, jonka teema on Suomi. Postimerkki juhlistaa sitä, että Suomi on liittynyt puolustusliitto Natoon.
+
+Viron mielestä Suomen Nato-jäsenyys parantaa myös Viron turvallisuutta. Myös Viron ja Suomen yhteistyö vahvistuu, kun molemmat maat ovat mukana Natossa.
+
+Viron liittyi puolustusliitto Natoon vuonna 2004. Suomesta tuli Naton jäsen 2 kuukautta sitten.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1124135647a2027e2fff/1685725252)
+![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1124317647b521bddc94/1685803600)
 
 Avaa kuvien katselu
 
-Lauantaina sää on poutainen eli sateet loppuvat. Sää on kuitenkin pilvinen.
+Sää on viileämpää kuin tavallisesti kesäkuun alussa.
 
-Myös sunnuntai on pilvinen päivä. Sadekuuroja saadaan eri puolilla maata.
+Erityisesti yöt ovat kylmiä. Perjantain ja lauantain välisenä yönä pakkasta oli paikoin jopa etelässä.
 
-Lämpötila on viikonloppuna 10 ja 15 asteen välillä.
+Sää on edelleen viileää, mutta kylmin ilma siirtyy pois Suomesta.
+
+Alkuviikolla lämpötila voi olla etelässä jo melkein 20 astetta.

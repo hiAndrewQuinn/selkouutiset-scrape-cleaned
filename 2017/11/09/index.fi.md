@@ -1,65 +1,69 @@
-# Perjantai 3.11.2017 (radio)
+# Torstai 9.11.2017 (radio)
 
-Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä. Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Lauantaina vietetään pyhäinpäivää.
+Euroopan komissio ennustaa, että Suomen talous kasvaa nopeasti. USA ja Kiina ovat tehneet isoja kauppoja. Suomalainen äitiyspakkaus täyttää tänä vuonna 80 vuotta.
 
-## Ihmisten salakuljetus
+## Suomen talous kasvaa
 
-![Rajavartija passi raja passin tarkistus raja-asema Imatran raja-asema](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7732162)
-
-Avaa kuvien katselu
-
-Rajavartiolaitos on tutkinut ihmisten salakuljetusta. Kuva: Yle
-
-Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ihmisiä tuotiin Suomeen esimerkiksi Venäjän kautta.
-
-Viranomaiset epäilevät, että rikollisjärjestön toiminta jatkui monta vuotta. Suomeen tuotiin 15 ihmistä ja muualle Eurooppaan yli 150 ihmistä.
-
-Suomen viranomaisilla oli kesällä iso operaatio rikollisjärjestöä vastaan. Operaation aikana otettiin kiinni venäläinen mies.
-
-Asiaa tutkitaan nyt syyttäjänvirastossa.
-
-## Emmauksen työrinki
-
-![Hyväntekeväisyyskirpputoreille lahjoitettu tavara on entistä huonokuntoisempaa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8800539)
+![Kontteja rivissä HaminaKotkan Mussalon satamassa mereltä käsin nähtynä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8854464)
 
 Avaa kuvien katselu
 
-Emmaus-järjestö auttaa ihmisiä saamaan työtä Ahvenanmaalla. Kuva: Jaani Lampinen / Yle 
+Suomalaisia tavaroita viedään ulkomaille. Kuva: Miina Sillanpää / Yle
 
-Ruotsinkielisellä Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä.
+Suomen taloudella menee hyvin. Euroopan komissio ennustaa, että Suomen talous kasvaa nopeasti.
 
-Emmaus on auttanut jo monia, esimerkiksi romanialaisia ja bulgarialaisia. Järjestöllä on työrinki, jonka kautta EU-kansalaiset voivat saada työtä.
+Komissio arvioi, että Suomen talous kasvaa tänä vuonna 3,3 prosenttia. Koko euroalueella talous kasvaa vain 2,2 prosenttia. Euroalueeseen kuuluvat maat, joiden raha on euro.
 
-Ahvenanmaalaisten on helppoa tarjota työtä, koska Emmauksen työrinki hoitaa työnantajan velvollisuudet, esimerkiksi sosiaalimaksut.
+Koska Suomen talous kasvaa nopeasti, Suomen velka ei enää kasva niin nopeaa vauhtia kuin ennen.
 
-Romanialainen Amdreea Docuta on saanut siivoustyötä työringin kautta. Nyt Docuta opettelee ruotsia, koska hän haluaa opiskella keittiöapulaiseksi.
+Suomen taloudella meni huonosti monta vuotta. Siksi suomalaiset ovat iloisia, että tilanne on nyt parempi.
 
-Emmauksen työrinki on toiminut 2 vuotta, ja se on auttanut melkein 50 ihmistä.
+## USA ja Kiina tekivät kauppoja
 
-## Nimien taivutus
-
-![Valtiovarainministeri Petteri Orpo Ylen haastattelussa 27.06.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9693014)
+![Xi Jinping ja Donald Trump tiedotustilaisuudessa Pekingissä torstaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9923271)
 
 Avaa kuvien katselu
 
-Ministeri Orvon vai Orpon hymy? Kuva: Derrick Frilund / Yle
+Xi Jinping ja Donald Trump tapasivat Pekingissä torstaina. Kuva: Roman Pilipey / EPA
 
-Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Tavoite on, että nimiä taivutetaan samalla tavalla kuin muita sanoja. Silti jotkut taivuttavat esimerkiksi etunimen Satu muotoon "Sadun" ja toiset muotoon "Satun".
+Kiinan presidentti Xi Jin-ping ja USA:n presidentti Donald Trump ovat tavanneet Kiinan pääkaupungissa Pekingissä. Amerikkalaiset ja kiinalaiset sopivat tapaamisessa suurista kaupoista.
 
-Asiantuntija Ulla Onkamo sanoo, että molemmat muodot ovat oikein, kun kysymys on nimestä.
+Kiina aikoo ostaa USA:sta esimerkiksi lentokoneita. Kiina ostaa 300 lentokonetta Boeing-firmalta. Hinta on 37 miljardia dollaria.
 
-Onkamon mielestä on kohteliasta kuulla, mitä nimen omistaja ajattelee. Esimerkiksi ministeri Petteri Orpo toivoo, että lehdet kirjoittavat "Orpon", eivät "Orvon".  Toivetta noudatetaan ja olen siitä tyytyväinen, ministeri Orpo sanoo.
+Maat tekivät myös muita kauppoja. Kauppojen arvo on yhteensä 250 miljardia dollaria.
 
-## Pyhäinpäivä
+## Äitiyspakkaus on 80-vuotias
 
-![Hautakynttilä haudalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8417441)
+![KELA äitiyspakkauslaatikko 2018](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9924050)
 
 Avaa kuvien katselu
 
-Pyhäinpäivänä haudoille sytytetään kynttilöitä. Kuva: Nina Keski-Korpela / Yle
+Vuoden 2018 äitiyspakkaus. Kuva: Kela
 
-Lauantaina vietetään pyhäinpäivää. Pyhäinpäivänä suomalaiset muistavat kuolleita sukulaisia ja ystäviä. Siksi haudoille viedään kynttilöitä.
+Suomalainen äitiyspakkaus täyttää tänä vuonna 80 vuotta.
 
-Pyhäinpäivä aiheuttaa muutoksia liikenteeseen. Esimerkiksi Helsingin seudulla lähijunat, bussit ja raitiovaunut noudattavat lauantaina sunnuntaiaikatauluja.
+Suomessa kaikki äidit saavat äitiyspakkauksen. Äitiyspakkauksessa on vauvan vaatteita ja tarvikkeita, joilla äiti voi hoitaa vauvaa.
 
-VR:n kaukojunat kulkevat pyhäinpäivänä normaalisti, mutta kaukobussien aikatauluissa on muutoksia. Kaukobussien lähtöajat kannattaa tarkistaa Matkahuollon nettisivulta.
+Vaatteet ja tarvikkeet ovat kauniissa pahvilaatikossa. Pieni vauva voi myös nukkua pahvilaatikossa.
+
+Äitiyspakkaus on joka vuosi erilainen. Torstaina kerrottiin, minkä näköinen on ensi vuoden äitiyspakkaus.
+
+Ensi vuoden äitiyspakkauksen suunnittelija on helsinkiläinen Robert Lönnqvist. Pakkauksen kuviot ovat eläimiä, esimerkiksi karhuja ja norsuja.
+
+Lönnqvist halusi kuvioihin myös eläimiä, joita ei ole Suomen luonnossa. Hän toivoo, että Suomi on avoin maa, jossa kaikkien ei tarvitse olla samanlaisia.
+
+Helsingin yliopistomuseolla aukesi torstaina näyttely, jonka nimi on Baby in the Box. Yleisö voi nähdä museossa vanhoja äitiyspakkauksia.
+
+## Suomi 100: Metsä
+
+![Metsä. Auringon valo siivilöityy oksien läpi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9922050)
+
+Avaa kuvien katselu
+
+Metsän hiljaisuus ja rauha tekee hyvää ihmiselle.  Kuva: Pentti Kallinen
+
+Metsä on suomalaisille rakas. Suomessa kaikki saavat mennä metsään milloin tahansa, ja kaikki saavat poimia metsästä marjoja, sieniä ja kukkia.
+
+Selkouutisten nettisivuilla jatkuu sarja Suomalainen juttu. Uuden osan aiheena on metsä. Sarjan videot löytyvät osoitteesta yle.fi/selkouutiset, sivulta Suomi 100.
+
+**Suomi 100: Metsä**

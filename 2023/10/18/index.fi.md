@@ -1,75 +1,69 @@
-# Radio Selkouutiset lauantai 14.10.2023
+# Radio | Selkouutiset | keskiviikko 18.10.2023
 
-Suomalaisten evakuointi. Huijausviestit. Vuoden yleisurheilija. Kuolleet pikkulinnut. Sää
+Tietomurtojuttu. Presidentti Ahtisaaren hautajaiset. Belgian terrori-iskun uhrien muistotilaisuus. Sää.
 
-## Evakuointilennot
+## Tietomurtojuttu
 
-![Nuori nainen hattu päässä katsoo kameraan lentokentällä.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1186347652a2b2c46298/1697262526)
-
-Avaa kuvien katselu
-
-Javiera Kortelainen tuli evakuointilennolla Israelista Suomeen. Kuva: Ilkka Loikkanen
-
-Suomi on evakuoinut eli tuonut ihmisiä turvaan Israelista Suomeen. Evakuointilento laskeutui tänä aamuna Helsinkiin. Lennolla oli oin 150 ihmistä.
-
-Lisäksi noin 30 suomalaista evakuoitiin lennolla, joka laskeutui Tukholmaan aamuyöllä.
-
-Evakuointiin päädyttiin, koska äärijärjestö Hamas hyökkäsi viikko sitten Gazan alueelta Israeliin. Finnair ja moni muu lentoyhtiö keskeytti sen jälkeen lennot Tel Aviviiin.
-
-Israelissa ja Gazan alueella on yhä suomalaisia matkailijoita, kertoo ulkoministeri Elina Valtonen Ylen Ykkösaamussa. Valtonen sanoo, että Suomi ei kuitenkaan järjestä enää uusia evakuointilentoja.
-
-## Huijausviestit
-
-![lähikuva kännykästä ja sormista](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110369764477493aaa80/1682404585)
+![Aleksanteri Kivimäki Länsi-Uudenmaan käräjäoikeudessa.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_142/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107903763fe132fe9c43/1697617751)
 
 Avaa kuvien katselu
 
-Poliisi varoittaa huijausviesteistä.  Kuva: AOP
+Aleksanteri Kivimäkeä syytetään tietomurrosta. Kuva: Petteri Sopanen / Yle
 
-Poliisi varoittaa huijausviesteistä, jotka näyttävät siltä, että ne tulevat verottajalta.
+Syyttäjä on päättänyt ison tietomurtojutun syytteistä. Aleksanteri Kivimäki saa syytteen muun muassa tietomurrosta ja kiristyksestä.
 
-Poliisin tietoon on tullut useita tapauksia, joissa ihmiset ovat saaneet tekstiviestin. Viesti näyttää siltä, että sen lähettäjä on verohallinnnon asiointipalvelu Omavero.
+Syyttäjä sanoo, että Kivimäki teki tietomurron psykoterapiakeskus Vastaamoon ja varasti tietoja Vastaamon potilaista.
 
-Viestissä on ollut linkki, johon on pyydetty syöttämään verkkopankkitunnukset. Kun ihmiset ovat syöttäneet tunnukset, ne ovat päätyneet rikollisten käsiin, ja hetken kuluttua pankkitili on ollut tyhjä.
+Lisäksi syyttäjä sanoo, että Kivimäki julkaisi potilastietoja internetissä. Kivimäki vaati rahaa, jotta hän lopettaa potilastietojen julkaisemisen.
 
-Poliisi muistuttaa, että verkkopankkitunnuksia ei koskaan pidä kirjoittaa mihinkään linkkeihin.
+Näin siis sanoo syyttäjä. Kivimäki itse sanoo, että hän ei ole tehnyt rikosta.
 
-## Vuoden yleisurheilija
+Poliisi tutki tietomurtoa kauan ja sai Kivimäen kiinni tämän vuoden helmikuussa. Oikeudenkäynti Kivimäkeä vastaan alkaa myöhemmin syksyllä.
 
-![Wilma Murto.](https://img.img-cdn.yle.fi/crop_extract,w_5790,h_3256,x_0,y_29/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116496864ef6683ce291/1693410976)
+Vastaamon tietomurtojuttu on epätavallisen iso Suomen rikoshistoriassa.
 
-Avaa kuvien katselu
+Tietomurron uhreja on yli 30 000. Yli 20 000 heistä teki rikosilmoituksen.
 
-Seiväshyppääjä Wilma Murto on Vuoden yleisurheilija Kuva: Getty Images
+## Ahtisaaren hautajaiset
 
-Seiväshyppääjä Wilma Murto on Vuoden yleisurheilija. Murto sai palkinnon eilen perjantaina Suomen urheiluliiton gaalassa Helsingissä.
-
-Murrolla on ollut hyvä kausi. Hän esimerkiksi hyppäsi MM-pronssia tänä vuonna Budapestissä ja oli halliratojen Euroopan mestari Istanbulissa.
-
-Wilma Murto voitti Vuoden yleisurheilijan palkinnon myös viime vuonna.
-
-## Pikkulinnut
-
-![Kaksi kuollutta tilheä. ](https://img.img-cdn.yle.fi/crop_extract,w_1374,h_772,x_0,y_83/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-118622565293e88c974b/1697201837)
+![Urho Kekkosen hauta ja Mauno Koiviston hauta Hietaniemen hautausmaalla Helsingissä](https://img.img-cdn.yle.fi/crop_extract,w_5194,h_2921,x_0,y_218/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1188105652fd8889c2c0/1699540699)
 
 Avaa kuvien katselu
 
-Kuva: Olli-Pekka Kursi / Yle
+Hietaniemn hautausmaalla on myös presidenttien hautoja. Kuva: Markku Pitkänen / Yle
 
-Helsingin kaduilla on viime aikoina näkynyt paljon kuolleita pikkulintuja.
+Presidentti Martti Ahtisaaren hautajaiset järjestetään Helsingissä marraskuun 10. päivä.
 
-Kuolleita pikkulintuja on havaittu esimerkiksi Alppiharjussa, Kruununhaassa ja Kalasatamassa.
+Tilaisuus Helsingin tuomiokirkossa alkaa kello 13. Sen jälkeen presidentti Ahtisaari haudataan Hietaniemen hautausmaalle.
 
-Juho Leppänen Helsingin seudun lintutieteellisestä yhdistyksestä kertoo, että linnut ovat todennäköisesti tilhiä tai kuusitiaisia. Todennäköisesti linnut ovat törmänneet ikkunaan, ja siksi ne ovat kuolleet tai pökertyneet.
+Hietaniemen hautausmaalla on myös muiden Suomen presidenttien hautoja. Presidentit Urho Kekkonen, Mauno Koivisto ja Risto Ryti on haudattu Hietaniemen hautausmaalle.
 
-## Sunnuntain sää
+Presidentti Ahtisaaren hautajaisia voi seurata myös televisiosta, radiosta ja Yle Areenasta.
 
-![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1186436652a9a67980eb/1697290894)
+Presidentti Ahtisaari kuoli maanantaina. Hän oli 86-vuotias. Ahtisaari oli Suomen presidentti vuodesta 1994 vuoteen 2000.
+
+## Terrori-iskun uhrien muistotilaisuus
+
+![Ruotsin pääministeri Ulf Kristersson kantoi Ruotsin värejä kaulallaan Brysselissä.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1188106652fd973a0f65/1698854158)
 
 Avaa kuvien katselu
 
-Kuva: Yle
+Ruotsin pääministeri Ulf Kristerssonilla oli muistotilaisuudessa Ruotsin värit. Kuva: OLIVIER MATTHYS/EPA-EFE
 
-Huomenna idässä ja pohjoisessa voi sataa vettä tai lunta. Etelässä ja lännessä on enimmäkseen poutaa.
+Belgiassa on muistettu maanantain terrori-iskun uhreja. Iskussa kuoli 2 ruotsalaista.
 
-Päivälämpötila on kolmen ja kahdeksan asteen välillä, pohjoisessa miinus yhden ja plus neljän asteen välillä.
+Terrori-iskun muistotilaisuus järjestettiin tänään keskiviikkona iskun tapahtumapaikalla Brysselissä. Tilaisuudessa olivat mukana myös Ruotsin ja Belgian pääministerit.
+
+Maanantain terrori-iskussa ammuttiin 2 ruotsalaista jalkapallofania. Ampuja halusi tappaa juuri ruotsalaisia. Ampuja oli terroristijärjestö Isisin kannattaja.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1188177652ff84a7a870/1697642593)
+
+Avaa kuvien katselu
+
+Lapissa Enontekiön lentoasemalla mitattiin keskiviikkoaamuna 17,2 astetta pakkasta. Se on kylmin lämpötila, joka tänä syksynä on tähän mennessä mitattu.
+
+Myös torstaina sää on kylmää ja poutaista. Lännessä ja pohjoisessa on aurinkoisinta.
+
+Lämpötila on maan etelä- ja keskiosassa 1 ja 4 asteen välillä, pohjoisessa +2 ja -2 asteen välillä.

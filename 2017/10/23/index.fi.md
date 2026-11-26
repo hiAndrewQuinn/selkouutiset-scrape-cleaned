@@ -1,53 +1,93 @@
-# Lauantai 21.10.2017 (radio)
+Lähi-itä
 
-Espanjan hallitus vähentää Katalonian autonomiaa. Tampereella on osoitettu mieltä. Suomalaiset ovat menestyneet hyvin ammattitaidon MM-kilpailuissa.
+# Maanantai 23.10.2017 (radio)
 
-## Katalonian kriisi
+Suomi myy aseita eniten Lähi-itään. Puolan presidentti vierailee Suomessa. Uudet diabeteslääkkeet ovat kalliita. Helsingissä käy paljon turisteja. Etelä-Suomessa voi sataa lunta.
 
-![Päämisteri kirjoituspöydän takan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9894957)
-
-Avaa kuvien katselu
-
-Pääministeri Mariano Rajoy johtaa Espanjan hallitusta. Kuva: Carlos Hidalgo / EPA
-
-Poliittinen kriisi Espanjan Kataloniassa jatkuu. Espanjan hallitus aikoo rajoittaa Katalonian autonomiaa. Hallitus kertoi asiasta lauantaina.
-
-Autonomia eli itsehallinto tarkoittaa, että Katalonia saa itse päättää monista asioista. Vaikka Katalonia on osa Espanjaa, se on päättänyt itse esimerkiksi Katalonian kouluista ja terveydenhuollosta. Katalonialla on myös oma poliisi.
-
-Nyt Espanjan hallitus alkaa määrätä Katalonian asioista. Syynä on se, että Katalonia on suunnitellut itsenäisyyttä.
-
-Osa katalonialaisista haluaa, että Katalonia eroaa Espanjasta ja katalonialaiset perustavat oman valtion. Espanjan hallitus sanoo, että suunnitelma itsenäisestä Kataloniasta on laiton.
-
-## Tampereen mielenosoitukset
-
-![Suomen vastarintaliikkeen uusnatsit kokoontuvat Laukontorilla Tampereella 21. lokakuuta 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9894878)
+![Toralf Tescher ja tytär Maria viettävät syysloman Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9897264)
 
 Avaa kuvien katselu
 
-Uusnatsit osoittivat mieltä Tampereella. Kuva: Emmi Korhonen / Lehtikuva 
+Toralf Tescher ja tytär Maria viettävät syysloman Helsingissä. Kuva: Ronnie Holmberg / Yle
 
-Tampereella on osoitettu mieltä. Tampereella oli lauantaina 2 isoa mielenosoitusta.
+- 
 
-Laukontorilla oli uusnatsien mielenosoitus. Mielenosoittajat kuuluivat ryhmään, jonka nimi on Pohjoismainen vastarintaliike. Se on rasistinen ryhmä.
+  
 
-Keskustorilla osoitti mieltä toinen ryhmä. Ryhmän nimi on Tampere ilman natseja. Se halusi vastustaa rasistisen ryhmän mielenosoitusta.
+  Pertti Seppä
 
-Mielenosoitukset sujuivat rauhallisesti. Tampereella oli paljon poliiseja. Poliisit pitivät huolta siitä, että eri ryhmät pysyivät eri paikoissa.
+  
 
-## Ammattitaidon suomalaiset maailmanmestarit
+  
 
-![Emeliina Papinniemi maailmanmestari ammattitaitokilpailu WorldSkills](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9892905)
+23.10.2017 22:00•Päivitetty 23.10.2017 22:04
+
+Suomi myy aseita eniten Lähi-itään. Puolan presidentti vierailee Suomessa. Uudet diabeteslääkkeet ovat kalliita. Helsingissä käy paljon turisteja. Etelä-Suomessa voi sataa lunta.
+
+## Suomen asekaupat
+
+![Patria AMV 8x8 -panssariajoneuvo. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9895903)
 
 Avaa kuvien katselu
 
-Kodiittorisarjan maailmanmestari Emeliina Papinniemi. Kuva: WorldSkills
+Suomi on myynyt tällaisia panssarivaunuja Arabiemiirikuntiin. Kuva: AOP
 
-Suomalaiset ovat menestyneet hyvin ammattitaidon MM-kilpailuissa eli WorldSkills-kilpailuissa. Kilpailut järjestettiin Abu Dhabissa. Suomi sai 3 kultamitalia ja 1 hopeamitalin.
+Suomi myy aseita eniten Lähi-itään. Viime vuonna Suomi myi sotatarvikkeita yhteensä yli 130 miljoonalla eurolla, ja yli 60 prosenttia siitä oli myyntiä Lähi-itään.
 
-Kultamitalin voittajat ovat Matias Korri, Sofia Sundqvist ja Emeliina Papinniemi. He ovat uusia maailmanmestareita. Korri oli paras lentokonehuollossa, Sundqvist lähihoitajasarjassa ja Papinniemi kondiittorisarjassa.
+Suomi on myynyt Lähi-itään esimerkiksi panssarivaunuja. Suurin ostaja oli viime vuonna Arabiemiirikunnat. Suomi on myynyt sotatarvikkeita myös Saudi-Arabiaan.
 
-Emeliina Papinniemi oli kilpailujen paras suomalainen. Hän sai enemmän pisteitä kuin muut suomalaiset. Papinniemi on ensimmäinen suomalainen, joka on voittanut kondiittorialan kansainväliset kilpailut.
+Tiedot ovat raportista, jonka on tehnyt tutkimuslaitos SaferGlobe.
 
-Papinniemi valmistui Saimaan ammattiopisto Sammosta 2 vuotta sitten. Nyt hän on työssä ja opiskelee samalla kondiittorin kisällintutkintoa.
+SaferGloben tutkija Kari Paasonen muistuttaa, että Lähi-idän maat ostavat sotatarvikkeita, koska alueella on konflikteja. Esimerkiksi Saudi-Arabia ja Arabiemiirikunnat ovat mukana Jemenin sodassa.
 
-Kondiittori valmistaa hienoja herkkuleivonnaisia. Papinniemi sanoo, että puhtaat pohjoismaalaiset maut ovat nyt maailmalla trendikkäitä.
+## Puolan presidentin vierailu
+
+![Andrzej Duda puhujanpöntössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9737923)
+
+Avaa kuvien katselu
+
+Puolan presidentti Andrzej Duda. Kuva: Jacek Turczyk / EPA
+
+Puolan presidentti Adrej Duda vierailee Suomessa. Vierailu alkaa maanantaina ja kestää 3 päivää.
+
+Suomessa presidentti Duda tapaa presidentti Sauli Niinistön. Presidentit keskustelevat Suomen ja Puolan suhteista.
+
+## Kalliit diabeteslääkket
+
+![Apteekkari esittelee Kontulan apteekissa kakkostyypin diabeteksen lääkkeitä, joiden Kela-korvaus on laskenut](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9770178)
+
+Avaa kuvien katselu
+
+Diabeteslääkkeiden Kela-korvaus on pienentynyt. Kuva: Juha Kivioja / Yle
+
+Diabeteksen eli sokeritaudin hoitoon on uusia ja tehokkaita lääkkeitä. Ne ehkäisevät myös esimerkiksi sydänsairauksia, jotka ovat diabetespotilailla tavallisia.
+
+Uusien lääkkeiden ongelma on kuitenkin hinta. Lääkkeet ovat kalliita, eikä Kela enää maksa niistä yhtä isoa osaa kuin ennen. Lääkkeiden ostaminen voi nyt olla potilaalle kymmeniä euroja kalliimpaa kuukaudessa.
+
+Esimerkiksi eläkeläiset miettivät usein tarkkaan, onko heillä varaa ostaa uusia ja kalliita diabeteslääkkeitä. Jotkut ovat jopa vähentäneet lääkkeitä ilman lääkärin lupaa.
+
+## Matkailukaupunki Helsinki
+
+![Toralf Tescher ja tytär Maria viettävät syysloman Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9897264)
+
+Avaa kuvien katselu
+
+Saksalaiset Maria ja Toralf Tescher ovat lomalla Helsingissä. Kuva: Ronnie Holmberg / Yle
+
+Helsingissä käy nyt paljon turisteja. Ulkomailta tulee turisteja selvästi enemmän kuin ennen.
+
+Suomi on menestynyt hyvin erilaisissa kansainvälisissä vertailuissa. Siksi Suomesta on kirjoitettu maailman lehdissä, ja ihmiset ovat huomanneet Suomen ja Helsingin.
+
+Helsingistä löytyy myös asioita, joita muissa kaupungeissa ei ole. Turisteja kiinnostaa esimerkiksi Helsingin citysaunakulttuuri.
+
+Eniten Helsingin hotelleissa yöpyy amerikkalaisia, saksalaisia ja japanilaisia.
+
+## Lunta luvassa
+
+![Eanodat, Enontekiö, muohta, lumi, ensilumi, tie](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9876880)
+
+Avaa kuvien katselu
+
+Lapissa on jo satanut lunta. Onko nyt Etelä-Suomen vuoro? Kuva: Yle / Anni-Saara Paltto
+
+Etelä-Suomessa voi sataa lunta. Etelärannikolla sataa lunta ehkä maanantain ja tiistain välisenä yönä. Jos lunta sataa, autolla kannattaa ajaa varovasti.

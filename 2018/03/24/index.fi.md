@@ -1,79 +1,65 @@
-# Perjantai 23.3.2018 (radio)
+# Lauantai 24.3.2018 (radio)
 
-Ranskassa tapahtui terroriteko. USA ei vielä ota tullimaksuja eurooppalaisesta teräksestä ja alumiinista. Helsinki-Vantaan lentoasema on valittu Pohjois-Euroopan parhaaksi lentokentäksi. Selkäkipua hoidetaan usein väärin. Designmuseo esittelee Timo Sarpanevan töitä.
+Ikitie-elokuva voitti eniten Jussi-palkintoja. Earth Hour sammuttaa valoja ympäri maailmaa. Kesäaika alkaa. Lintujen kevätmuutto on myöhässä.
 
-## Terroriteko Ranskassa
+## Kotimaisia elokuvia palkittiin Jusseilla
 
-![Supermarket jossa otettiin panttivankeja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10131056)
-
-Avaa kuvien katselu
-
-Mies otti panttivankeja supermarketissa. Kuva: Guillaume Horcajuelo / EPA
-
-Ranskassa on tapahtunut terroriteko.
-
-Mies tappoi 3 ihmistä ranskalaisessa pikkukaupungissa. Lisäksi hän otti panttivankeja supermarketissa. Mies itse kuoli, kun poliisi hyökkäsi kauppaan.
-
-Mies sanoi, että hän tukee terroristijärjestö Isisiä.
-
-## USA:n tullimaksut
-
-![Massisivissa rullia terästä, rullien välissä kävelee mies kypärä päässään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10129509)
+![AJ Annila vastaanotti parhaan ohjaajan Jussi-palkinnon elokuvasta Ikitie Jussi-gaalassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10131778)
 
 Avaa kuvien katselu
 
-USA perii tullimaksuja esimerkiksi kiinalaisesta teräksestä. Kuva: Linfeng/ EPA-EFE
+Ohjaaja AJ Annilan elokuva Ikitie voitti eniten Jussi-palkintoja. Kuva: Antti Aimo-Koivisto / Lehtikuva
 
-Euroopan unioni on saanut USA:lta uutta tietoa tullimaksuista.
+Viime vuoden parhaat kotimaiset elokuvat on palkittu. Parhaat elokuvat ja näyttelijät palkittiin Jussi-palkinnoilla.
 
-USA on kertonut, että se ei vielä ala ottaa tullimaksuja eurooppalaisesta teräksestä ja alumiinista. Presidentti Donald Trump päättää toukokuussa, jatkuuko EU-maiden tullivapaus.
+Eniten Jusseja sai elokuva Ikitie. Ikitie sai yhteensä 6 Jussia. Se oli esimerkiksi vuoden paras elokuva, ja sen ohjaaja AJ Annila oli vuoden paras ohjaaja.
 
-Trump määräsi tullimaksut ulkomaiselle teräkselle ja alumiinille pari viikkoa sitten. Siksi ulkomaisen teräksen hinta nousee USA:ssa. Trump toivoo, että USA:n tehtaat alkavat käyttää enemmän amerikkalaista terästä.
+Toiseksi eniten palkintoja sai Tuntematon sotilas, jonka on ohjannut Aku Louhimies. Tuntematon sotilas sai 5 Jussia. Se oli esimerkiksi yleisön suosikkielokuva.
 
-Tullimaksut vähentävät kauppaa maiden välillä. Siksi Euroopan unioni haluaa, että USA:n tullimaksut eivät koske EU-maita.
+Jussi-palkintoja jaettiin yhteensä 18.
 
-## Helsinki-Vantaan lentoasema
+## Earth Hour sammuttaa valoja
 
-![Helsinki-Vantaan lentoaseman lähtöaula.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9515483)
-
-Avaa kuvien katselu
-
-Helsinki-Vantaan lentoasema on matkustajien mielestä Pohjois-Euroopan paras. Kuva: Ismo Pekkarinen / AOP
-
-Helsinki-Vantaan lentoasema on valittu Pohjois-Euroopan parhaaksi lentokentäksi.
-
-Tieto on kyselystä, johon miljoonat ihmiset maailman eri lentokentillä vastasivat. Kyselyn teki tutkimusfirma Skytrax.
-
-Koko maailman paras lentokenttä on Changin lentokenttä Singaporessa.
-
-## Selkäkipujen hoito
-
-![Nainen pitelee selkäänsä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9166819)
+![Rautatieasema tunnetaan erityisesti Emil Wikströmin kivimehistä. Helsingin Rautatieasema tunnetaan erityisesti Emil Wikströmin kivimehistä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8454735)
 
 Avaa kuvien katselu
 
-Selkäkipu on yleinen vaiva. Kuva: Paula Koskinen / Yle
+Helsingin päärautatieaseman Kivimies-patsaiden lyhdyt sammuvat Earth Hourin ajaksi. Kuva: Marja Väänänen / Yle
 
-Monet kärsivät selkäkivusta.
+Valot sammuvat lauantai-iltana eri puolilla maailmaa ilmaston hyväksi. Maailman suurin ilmastotapahtuma Earth Hour järjestetään nyt 12. kertaa.
 
-Selkäkipuja hoidetaan kuitenkin usein väärin. Monet esimerkiksi syövät paljon kipulääkkeitä.
+Esimerkiksi Sydneyn oopperatalo, Moskovan Punainen tori, Lontoon Big Ben -kellotorni, Egyptin pyramidit ja Niagaran putoukset Yhdysvaltain ja Kanadan rajalla laittavat valot pois kello 20.30 paikallista aikaa.
 
-Professori Jaro Karppinen sanoo, että monet hoidot ovat turhia. Selkäkipuja hoidetaan liian usein esimerkiksi kirurgian avulla. Potilas ei usein tarvitse leikkausta.
+Suomessa esimerkiksi Lahden hyppyrimäki, Tampere-talo ja Ylen linkkitorni Helsingin Pasilassa ovat mukana tapahtumassa. Myös Helsingin päärautatieaseman Kivimies-patsaiden lyhdyt sammuvat..
 
-Professori Karppinen sanoo, että selkäkipujen syy on usein se, että ihminen ei käytä selkää oikein. Siksi paras lääke selkäkipuun on liikunta. Fysioterapia ja harjoittelu auttavat monia potilaita.
+Valot olivat pois päältä tunnin ajan.
 
-## Sarpaneva-näyttely
+## Kellot siirretään kesäaikaan
 
-![Festivo sarjaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10128373)
+![Kellotaulu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10042296)
 
 Avaa kuvien katselu
 
-Festivo-sarjan esineitä on monessa suomalaisessa kodissa. Kuva: Pietinen / Designmuseo
+Ensi yönä siirretään kellot kesäaikaan. Kuva: Anssi Leppänen / Yle
 
-Designmuseossa Helsingissä on uusi näyttely. Näyttely esittelee suunnittelija Timo Sarpanevan töitä.
+Ensi yönä siirrytään kesäaikaan. Kesäaikaan siirrytään Suomen lisäksi myös muissa EU-maissa.
 
-Sarpaneva suunnitteli esineitä esimerkiksi Iittalan lasitehtaalle. Monessa suomalaisessa kodissa on esineitä, jotka Sarpaneva on suunnitellut.
+Kelloja siirretään tunnin verran eteenpäin lauantain ja sunnuntain välisenä yönä kello 3.
 
-Sarpaneva tunnettiin myös ulkomailla. Sarpanevan ura jatkui yli 50 vuotta. Hän kuoli vuonna 2006.
+Tutkimukset osoittavat, että kellojen siirtäminen ei ole hyväksi ihmisen terveydelle. Sen takia Suomi on ehdottanut, että EU luopuu kesäajasta.
 
-Sarpaneva-näyttely jatkuu Designmuseossa syyskuuhun asti.
+Muut jäsenmaat eivät ole tukeneet ehdotusta. EU-komissio kuitenkin tutkii asiaa.
+
+## Lintujen kevätmuutto myöhästyy
+
+![Töyhtöhyyppä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5551996)
+
+Avaa kuvien katselu
+
+Töyhtöhyyppä palaa Suomeen usein jo helmi-maaliskuun vaihteessa. Kuva: Juha Kemppainen / YLE
+
+Lintujen kevätmuutto Suomeen on tänä vuonna myöhässä. Muuton myöhästyminen johtuu kylmästä keväästä.
+
+Esimerkiksi kiuru ja töyhtöhyyppä palaavat tavallisesti Suomeen helmi-maaliskuun vaihteessa. Lintujärjestö Birdlife Suomi kertoo, että tammikuun alussa Suomessa nähtiin jo muutama kiuru. Ne kuitenkin lähtivät taas pois, koska sää oli niin kylmää.
+
+Viime vuonna tähän aikaan Suomeen oli saapunut jo satoja merihanhia ja tuhansia kiuruja, töyhtöhyyppiä ja metsähanhia.

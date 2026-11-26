@@ -1,73 +1,7 @@
-# Torstai 5.4.2018 (radio)
+# Perjantai 6.4.2018 (tv)
 
-Suomi menettää miljardeja euroja joka vuosi, koska suomalaiset eivät liiku tarpeeksi. Suomen 100-vuotisjuhla näkyi maailmalla. Siitepölyaika on myöhässä. Pian on aika vaihtaa autoon kesärenkaat. Lapissa sataa vielä lunta.
+Amazon myy pian ehkä ruokaa myös Suomessa. Monet asunnot odottavat tyhjinä ennen vuokraamista. Nuoruuden aktiivinen liikunta näkyy esimerkiksi palkassa. Sphia on inhimillinen robotti.
 
-## Liikunnan puute maksaa
+Yle Uutiset selkosuomeksi
 
-![Poika liikuntatunnilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10042688)
-
-Avaa kuvien katselu
-
-Jumppa tekee hyvää terveydelle. Kuva: Toni Pitkänen / Yle
-
-Suomi menettää paljon rahaa, koska suomalaiset eivät liiku tarpeeksi. UKK-instituutin raportti kertoo, että liikunnan puute maksaa yhteiskunnalle vähintään 3 miljardia euroa joka vuosi.
-
-Esimerkiksi terveydenhoito on kalliimpaa, jos ihmisillä on huono kunto. Huono kunto aiheuttaa myös sairauksia, joiden takia ihminen ei pysty tekemään työtä. Silloin ihminen ei maksa yhteiskunnalle veroja, mutta yhteiskunta maksaa hänelle tukia.
-
-UKK-instituutin johtaja Tommi Vasankari ihmettelee, että Suomessa puhutaan vain vähän liikunnan puutteen kuluista. Kysymys on kuitenkin miljardeista euroista, Vasankari sanoo.
-
-## 100-vuotisjuhla huomattiin
-
-![Opiskelua Oulun Talvikankaan koulun avoimessa opetusympäristössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9795531)
-
-Avaa kuvien katselu
-
-Suomalainen koulu kiinnosti ulkomailla myös Suomen juhlavuonna. Kuva: Paulus Markkula / Yle
-
-Suomen 100-vuotisjuhla näkyi maailmalla. Näin kertoo Suomen ulkoministeriö.
-
-Itsenäinen Suomi täytti viime vuonna 100 vuotta, ja maailman media kertoi Suomesta enemmän kuin tavallisesti. Media kertoi Suomesta eniten naapurimaissa ja myös Saksassa, Britanniassa, USA:ssa ja Japanissa.
-
-Mediaa kiinnosti eniten suomalainen koulutus. Myös suomalaisesta kulttuurista ja esimerkiksi keppihevosista kirjoitettiin paljon.
-
-## Siitepölyaika on edessä
-
-![Koivu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8856708)
-
-Avaa kuvien katselu
-
-Koivun siitepölyä tulee tänä keväänä paljon. Kuva: Jyrki Lyytikkä / Yle
-
-Siitepölyaika alkaa tänä keväänä myöhemmin kuin tavallisesti. Leppäpuun siitepölyä on tullut ulkomailta Suomeen tuulen mukana, mutta muuten siitepölyä ei vielä ole ollut ilmassa.
-
-Pian puut alkavat kukkia myös Suomessa. Arvioidaan, että koivun siitepölyä tulee tänä vuonna paljon. Se tietää ongelmia allergisille ihmisille.
-
-## Kesärenkaat saavat odottaa
-
-![Kesärenkaita varastossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9622352)
-
-Avaa kuvien katselu
-
-Kesärenkaat voi jo vaihtaa, kun ajokeli paranee. Kuva: Antti Haavisto/Yle
-
-Pian on myös aika vaihtaa autoon kesärenkaat. Nastarenkaiden käyttöaika loppuu virallisesti ensi maanantaina.
-
-Autoilijan ei kuitenkaan ole pakko vaihtaa renkaita maanantaihin mennessä. Nastarenkaita saa käyttää vielä myöhemminkin, jos ajokeli on huono.
-
-Suomessa on vielä paljon lunta, ja pääsiäisenä lunta satoi lisää. Siksi rengasliikkeissä on ollut vasta vähän asiakkaita, jotka ovat halunneet autoon kesärenkaat.
-
-Rengasliikkeissä odotetaan ruuhkaa, heti kun sää paranee.
-
-## Lapissa sataa lunta
-
-![Puistomaisemaa Ruskeasuo keskuspuisto Helsinki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10123753)
-
-Avaa kuvien katselu
-
-Lunta on vielä suuressa osassa maata, ja Lapissa lunta sataa lisää. Kuva: Derrick Frilund / Yle
-
-Talvinen sää jatkuu. Perjantaina Lapissa voi sataa yli 10 senttimetriä lunta. Perjantain ja lauantain välisenä yönä lunta voi sataa myös etelässä. Ajokeli voi olla huono.
-
-Lauantaina on todennäköisesti kuivaa ja aurinkoista. Sää on lauantaina myös lämmin.
-
-Sunnuntaina voi tulla taas sateita.
+Amazon myy pian ehkä ruokaa myös Suomessa. Monet asunnot odottavat tyhjinä ennen vuokraamista. Nuoruuden aktiivinen liikunta näkyy esimerkiksi palkassa. Sphia on inhimillinen robotti.

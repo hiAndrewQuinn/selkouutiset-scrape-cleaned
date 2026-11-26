@@ -1,71 +1,73 @@
-# Sunnuntai 3.12.2017 (radio)
+# Tiistai 5.12.2017 (radio)
 
-Suomalaiset kannattavat maahanmuuttoa. SuomiKamut. Sote-uudistus. Laura Huhtasaari. Yöllä voi nähdä superkuun.
+Avioero tulee kalliiksi. Veronpalautukset on maksettu. Eduskunta on ollut juhlaistunnossa. Itsenäisyyspäivää vietetään pakkassäässä. New Yorkin Suomi-koulu lähettää terveisiä 100-vuotiaalle Suomelle.
 
-## Maahanmuuton kannattajien määrä on kasvanut
+## Avioero tulee kalliiksi
 
-![Savon ammatti- ja aikuisopisto edelläkävijä maahanmuuttajien osaamisen kartoituksessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9563441)
-
-Avaa kuvien katselu
-
-Maahanmuuton kannattajia on nyt enemmän kuin vastustajia. Kuva: Heli Laitinen
-
-Suomalaiset tuntuvat nyt suhtautuvan maahanmuuttoon myönteisesti. Sanomalehti Helsingin Sanomat kertoo, että lähes puolet suomalaisista haluaa Suomeen enemmän maahanmuuttajia. Lehden kyselyssä 47 prosenttia vastaajista sanoi, että maahanmuuttajia voi tulla enemmän.
-
-Maahanmuuttoa vastustavia on nyt vähemmän kuin sen kannattajia. Maahanmuuttoa vastusti 41 prosenttia kyselyn vastaajista.
-
-Helsingin Sanomat kertoo, että vuonna 2010 maahanmuuton vastustajia oli selvästi enemmän.
-
-## Suomen Punainen Risti auttaa löytämään ystävän
-
-![Lasipurkkeja, joissa on sisällä joulukoristeita ja metallilankakahva. Yhden purkin kyljessä on arabiankielistä tekstiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9952403)
+![nainen ottaa sormusta sormestaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9506066)
 
 Avaa kuvien katselu
 
-Näin joulun alla ystävän kanssa voi vaikka askarrella. Kuva: Anniina Wallius / Yle
+Avioero tuo mukanaan monia kuluja. Esimerkiksi asumiseen menee enemmän rahaa . Kuva: AOP
 
-Moni Suomeen tullut ulkomaalainen on löytänyt ystävän Suomen Punaisen Ristin avulla. Suomen Punainen Risti järjestää SuomiKamu-toimintaa.
+Avioero tulee kalliiksi. Viime vuonna Suomessa 13 500 avioparia erosi. Yle selvitti, että esimerkiksi yksilapsisen avioparin kulut nousevat monta sataa euroa kuukaudessa. Nousu johtuu siitä, jos osapuolet muuttavat omiin omistusasuntoihin yhteisestä asunnosta. Usein toinen puoliso jää entiseen asuntoon ja alkaa maksaa asumisesta yksin. Asunnosta voi olla paljon lainaa.
 
-Siinä oleskeluluvan saanut ja vapaaehtoinen suomalainen voivat etsiä ystävää, jonka kanssa voi vaikka käydä kahvilla tai kävelyllä.
+Rahaa voi kulua myös juristeihin, jos pariskunnalle tulee riitaa. Oikeusaputoimistot voivat auttaa, jos juristiin ei ole varaa.
 
-Suomalaisen ystävän tuki on tärkeää varsinkin silloin, kun oleskeluluvan saaja muuttaa vastaanottokeskuksesta omaan kotiin.
+Elämä on eron jälkeen pääkaupunkiseudulla noin 200 euroa kalliimpaa kuukaudessa kuin muualla Suomessa. Etelässä esimerkiksi asuminen on kallista.
 
-## Sote-uudistus valmistuu, sanoo pääministeri
+## Veronpalautukset on maksettu pankkitileille
 
-![Pääministeri Juha Sipilä ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960612)
-
-Avaa kuvien katselu
-
-Pääministeri Juha Sipilä  Kuva: Jussi Nukari / Lehtikuva
-
-Pääministeri Juha Sipilä sanoo, että hallitus saa sosiaali- ja terveyspalvelujen uudistuksen ajoissa valmiiksi.
-
-Sote-uudistuksen tekeminen on ollut vaikeaa, koska siihen liittyy monia lakeja.
-
-Pääministeri Juha Sipilä sanoi tänään sunnuntaina, että hallituspuolueet keskusta, kokoomus ja siniset saavat uudistuksen tehtyä.
-
-## Perussuomalaisten presidenttiehdokas
-
-![Perussuomalaisten presidenttiehdokas Laura Huhtasaari oli tavattavissa Hakaniementorilla sunnuntaina 3. joulukuuta 2017. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960623)
+![Lompakko ja rahaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9320924)
 
 Avaa kuvien katselu
 
-Laura Huhtasaari on perussuomalaisten presidenttiehdokas. Kuva: Martti Kainulainen / Lehtikuva 
+Monet haluavat itse nostaa veroprosenttia, koska silloin saa veronpalautuksia esimerkiksi joulua varten. Kuva: Pixabay
 
-Perussuomalaisten presidenttiehdokas Laura Huhtasaari on aloittanut vaalikampanjan. Huhtasaaren presidentinvaalikampanjan iskulause on Suomi takaisin.
+Veronpalautukset ovat tulleet pankkitileille. Palautuksia saa kaksi noin 3,5 miljoonaa henkilöä. Palautussumma on yhteensä 2,6 miljardia euroa.
 
-Hänellä on tähän asti ollut kannatuskyselyissä vain vähän kannatusta.
+Keskimääräinen veronpalautus on runsaat 700 euroa.
 
-## Tänä yönä voi nähdä superkuun
+## Suomen 100-vuotisjuhlana voi liputtaa läpi yön
 
-![Kuu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960398)
+![suomen lippu liehuu mäntyjen edessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9962710)
 
 Avaa kuvien katselu
 
-Sunnuntain ja maanatain välisenä yönä voi nähdä superkuun. Kuva: Ernie Wright / NASA Goddard's Scientific Visualization Studio
+Yleensä Suomessa saa liputtaa läpi yön vain juhannuksena. Suomi 100 -juhla on poikkeus. Kuva: Anne Saarinen / AOP
 
-Tänä yönä kannattaa kurkata taivaalle. Pilvien välistä saattaa näkyä täysikuu, joka on hieman suurempi ja kirkkaampi kuin yleensä. Nyt on superkuun aika.
+Eduskunta on pitänyt juhlaistunnon Suomen 100-vuotiaan itsenäisyyden kunniaksi. Juhlaistunnossa oli paljon kutsuvieraita.
 
-Superkuu tarkoittaa sitä, että Maa, Aurinko ja Kuu ovat suorassa linjassa ja tämän lisäksi Kuu on vielä radallaan lähimpänä Maata.
+Eduskunta päätti istunnossa 50 miljoonan euron osakepääomasta, jonka saa juhlavuoden lastenrahaston säätiö.
 
-Tämä on tänä vuonna ainoa yö, jolloin voi nähdä superkuun.
+Huomisen 100-vuotisjuhlan kunniaksi juhlaliputus poikkeaa normaalista. Suomen liput sai nostaa salkoon jo tänään klo 18, ja ne saavat olla salossa itsenäisyyspäivän iltaan kello 22 asti. Näin saa tehdä, jos lippu voidaan valaista pimeän ajaksi.
+
+Yleensä saa liputtaa läpi yön vain juhannuksena.
+
+Itsenäisyyspäivänä on pakkassää
+
+![keskiviikon sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9962913)
+
+Avaa kuvien katselu
+
+Sääennuste lupaa mukavaa säätä itsenäisyypäiväksi. Kuva: Yle
+
+Itsenäisyyspäivää juhlitaan pakkassäässä.
+
+Vielä illan aikana Etelä-Suomeen ja maan keskiosaan voi sataa muutama sentti lunta. Itsenäisyyspäivänä maa saattaa olla valkea ainakin Lounais-Suomessa.
+
+Aamulla voi olla Helsingissäkin vähän lunta maassa. Itsenäisyyspäivänä lännessä on päivällä melko aurinkoista. Itä-Suomessa tulee lumikuuroja. Maan keskiosasta Lappiin on vaihtelevan pilvistä ja poutaa.
+
+New Yorkin Suomi-koulu lähettää terveisiä
+
+![Suomikoulun New Yorkissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9962622)
+
+Avaa kuvien katselu
+
+Näin Suomea muistetaan New Yorkin Suomi-koulussa. Kuva: Yle
+
+Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa. Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
+
+Uusimmat terveiset tulevat USA:sta, New Yorkin Suomi-koulusta. Terveiset voi käydä katsomassa selkouutisten internet-sivuilla osoitteessa yle.fi/selkouutiset, osassa Suomi 100.
+
+**Terveisiä New Yorkin Suomi-koulusta**

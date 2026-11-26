@@ -1,79 +1,67 @@
-# Radio Selkouutiset perjantai 21.7.2023
+# Radio Selkouutiset maanantai 24.7.2023
 
-Lintuinfluenssa. Riikka Purra. Sähköpotkulaudat. Ravustus. Sää.
+Kreikan maastopalot. Suomen matkatoimistot. Rikollisten tekstiviestit. Sää.
 
-## Lintuinfluenssa
+## Kreikan maastopalot
 
-![Kukko ja kanoja ulkoaitauksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_393/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97092362aae1e897332/1655366969)
-
-Avaa kuvien katselu
-
-Kukko ja kanoja. Kuva: Mikko Savolainen / Yle
-
-Suomessa yritetään estää lintuinfluenssan leviäminen kanoihin. Luonnossa lintuinfluenssa on jo tappanut paljon lintuja.
-
-Viranomaiset ovat määränneet, että joillakin alueilla kanat täytyy pitää sisätiloissa. Jos kanat ovat ulkona, tila täytyy suojata verkolla.
-
-Uudet määräykset koskevat kanaloita Länsi-Suomessa.
-
-Lisäksi viranomaiset muistuttavat kaikkia siitä, että kuolleisiin lintuihin ei saa koskea. Jos luonnosta löytyy monta kuollutta lintua, asiasta on hyvä kertoa viranomaisille.
-
-## Riikka Purra
-
-![Pustaan pukuun pukeutunut ihminen pitää kansiota kädessään.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_426/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114580864ba50da9a613/1689932217)
+![Ilmakuva kaupunkiympäristöstä. Horisontista nousee sankkaa tummaa savua.](https://img.img-cdn.yle.fi/crop_extract,w_4996,h_2810,x_0,y_520/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114683364be9b931f306/1690213794)
 
 Avaa kuvien katselu
 
- Vetoomuksessa on yli 120 000 allekirjoitusta. Kuva: Roni Rekomaa / Lehtikuva
+Tuli on tehnyt paljon vahinkoja Ródoksella. Kuva: Spyros Bakalis / Lehtikuva
 
-Monet suomalaiset haluavat, että Riikka Purra eroaa ministerin tehtävästä.
+Kreikan maastopalot jatkuvat.
 
-Eduskunta sai perjantaina vetoomuksen Purran erosta. Vetoomuksessa on noin 120 000 allekirjoitusta.
+Myös uusia maastopaloja on syttynyt. Esimerkiksi Korfun saarelta on siirretty turvaan monta tuhatta ihmistä maastopalojen takia.
 
-Allekirjoittajat haluavat, että Purra eroaa vanhojen kirjoitusten takia. Purran vanhat kirjoitukset ovat rasistisia.
+Pahin tilanne on Ródoksen saarella. Tuli on polttanut Ródoksella maastoa, metsää ja taloja jo monta päivää. Jopa 30 000 ihmistä on siirretty Ródoksella pois tulen tieltä.
 
-Riikka Purra on perussuomalaisten puheenjohtaja. Hän hoitaa hallituksessa valtiovarainministerin eli rahaministerin tehtävää.
+Tulipalot leviävät Kreikassa nyt helposti, koska sää on kuiva ja tosi lämmin. Lämpötila on noussut jopa yli 40 asteeseen.
 
-## Sähköpotkulauta
+## Suomen matkatoimistot
 
-![Sähköpotkulauta pysäköitynä keskelle kevyen liikenteen väylää Jyväskylän Lutakossa.](https://img.img-cdn.yle.fi/crop_extract,w_4094,h_2303,x_503,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113730964a1958e9d7d8/1688311277)
-
-Avaa kuvien katselu
-
-Kuva: Heli Kaski / Yle
-
-Sähköpotkulaudat ovat yleistyneet.
-
-Sähköpotkulautoja käytetään paljon nyt myös pienissä kaupungeissa. Isoissa kaupungeissa sähköpotkulaudat ovat olleet tavallisia jo aikaisemmin.
-
-Myös sairaalat eri puolilla Suomea ovat huomanneet sähköpotkulautojen yleistymisen. Ne ovat saaneet potilaita, jotka ovat loukanneet itsensä sähköpotkulaudalla.
-
-Tavallisesti sähköpotkulaudalla joutuu onnettomuuteen nuori mies, joka on juonut alkoholia. Onnettomuudessa vammoja tulee yleensä päähän.
-
-## Ravustus
-
-![Kuorensa vaihtaneita täplärapuja](https://img.img-cdn.yle.fi/crop_extract,w_4624,h_2601,x_0,y_434/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83388060f7c5932453d/1627567181)
+![Ihmisiä lentokentällä](https://img.img-cdn.yle.fi/crop_extract,w_4561,h_2565,x_0,y_233/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114642364bd3960c7e3c/1690122680)
 
 Avaa kuvien katselu
 
-Ravut ovat monien herkkua. Kuva: Timo Leponiemi / Yle
+Monet suomalaiset turistit tulevat nyt takaisin Ródokselta. Kuva: Mikko Ahmajärvi / Yle
 
-Rapujen pyynti eli ravustus on alkanut tänään perjantaina. Suomen vesistä pyydystetään jopa 6 miljoonaa rapua joka vuosi.
+Kreikan maastopalot vaikuttavat myös Kreikan-matkoihin. Suomalaiset tekevät paljon lomamatkoja Kreikan saarille.
 
-Rapujen pyydystäjiä eli ravustajia on Suomessa noin 100 000. Rapuja saa pyydystää vain vesialueen omistajan luvalla, ja alle 65-vuotiaiden aikuisten pitää myös maksaa kalastonhoitomaksu.
+Maastopalojen takia matkatoimistot rajoittavat nyt matkoja Suomesta Kreikkaan. Osa matkatoimistoista lentää edelleen Ródokselle, mutta ei vie turisteja lähelle maastopaloja.
 
-Rapujen pyynti jatkuu lokakuun loppuun asti.
+Osa matkatoimistoista on perunut lennot Ródokselle ainakin tiistaihin asti. Niiden lentokoneet lentävät Ródokselle ilman matkustajia, jotta ne voivat tuoda turisteja Ródokselta takaisin Suomeen.
+
+Matkatoimistot arvioivat tilannetta päivä kerrallaan.
+
+## Rikollisten tekstiviestit
+
+![Matkapuhelimen näytöllä Postin nimissä lähetetty huijausviesti.](https://img.img-cdn.yle.fi/crop_extract,w_946,h_532,x_0,y_142/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114610164baa03d8b891/1715950940)
+
+Avaa kuvien katselu
+
+Tätä linkkiä ei pidä avata. Kuva: Juha-Petri Koponen / Yle
+
+Posti kertoo, että sen puhelinnumeroa on käytetty väärin.
+
+Rikolliset ovat lähettäneet ihmisille tekstiviestejä, joissa pyydetään tullimaksua. Rikollisten tekstiviestit ovat tulleet Postin oikeiden tekstiviestien joukkoon.
+
+Rikollisten tekstiviesteissä on linkki, jonka kautta asiakas voi vahvistaa tullimaksun. Näin rikolliset yrittävät saada ihmisten pankkitietoja.
+
+Posti, puhelinfirmat ja viranomaiset etsivät keinoa, jolla rikollisten tekstiviestit voidaan estää.
+
+Jos asiakas saa tekstiviestin tullimaksusta, hänen ei pidä avata linkkiä, ennen kuin hän tarkistaa asian Postista. Asiakas voi soittaa Postin asiakaspalveluun tai mennä netin Omaposti-palveluun.
+
+Jos asiakas on avannut linkin ja antanut sen kautta oman pankkitunnuksen, hänen pitää ottaa yhteyttä omaan pankkiin ja poliisiin.
 
 ## Sää
 
-![Kuvassa näkyy lauantain, sunnuntain ja maanantain sääkartat.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114606064ba8adfe9539/1689946886)
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114684264bea08f72cc7/1690214573)
 
 Avaa kuvien katselu
 
-Kuva: Elias Paakkanen / Yle
+Sää on etelässä aurinkoista. Sadekuuroja voi tulla tiistaina iltapäivällä. Lämpötila on yli 20 astetta.
 
-Lauantaina vettä sataa idässä ja maan keskivaiheilla. Pohjoisessa on pilvistä ja viileää, etelässä on aurinkoista ja lämmintä.
+Pohjoisessa sataa itärajan lähellä. Pohjoisessa on pilvistä ja lämpötila on noin 15 astetta. Tuuli on heikkoa.
 
-Lämpötila on lauantaina pohjoisessa noin 15 astetta, etelässä noin 20 astetta.
-
-Myös sunnuntaina ja maanantaina maan keskivaiheilla sataa vettä. Sadealueen pohjoispuolella sää on viileää, mutta etelässä on lämpimämpää.
+Myös myöhemmin tällä viikolla saadaan sateita. Viikon loppupuolella vettä sataa erityisesti idässä ja pohjoisessa.

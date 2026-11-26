@@ -1,69 +1,83 @@
-# Radio | Selkouutiset | 14.8.2023
+# Radio Selkouutiset keskiviikko 16.8.2023
 
-Ministerit. Presidenttiehdokas. Inflaatio. Ruotsi. Sääennuste.
+Alexander Stubb lähtee kokoomuksen presidenttiehdokkaaksi. SDP pyysi Jutta Urpilaista ehdokkaaksi. Lähijunien liput kallistuvat. Löytötavaratoimistoille toimintakielto. Sääennuste.
 
-## Ministereiden turvallisuus
+## Stubb lähtee kokoomuksen presidenttiehdokkaaksi
 
-![Valtioneuvoston linna.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_196/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10132406332d795e46c2/1675336390)
-
-Avaa kuvien katselu
-
-Pääministerin työhuone on Valtioneuvoston linnassa. Kuva: Mikko Koski / Yle
-
-Suomessa on lisätty kaikkien ministeriöiden ja ministereiden turvatoimia. Esimerkiksi vierailta vaaditaan ministeriöissä tunnistautumista aiempaa tarkemmin. Myös vieraiden kulunvalvontaa on tehostettu. Vieraat eivät esimerkiksi pääse ministeriöissä kaikkiin tiloihin.
-
-Myös ministereiden henkilösuojausta yleisillä paikoilla on lisätty. Se tarkoittaa, että ministereiden lähellä on usein turvamies.
-
-Ministeriöiden ja ministereiden turvatoimia on lisätty, koska kaikki ihmiset eivät ehkä tykkää uuden hallituksen päätöksistä. Esimerkiksi päätökset leikkauksista tai säästöistä voivat suututtaa joitakin ihmisiä.
-
-## Kokoomuksen presidenttiehdokas
-
-![Alexander Stubb.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_24/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115632264da037281a0b/1692168502)
+![Alexander Stubb puhuu mikkiin.](https://img.img-cdn.yle.fi/crop_extract,w_3984,h_2241,x_0,y_415/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115718864dc76a854042/1692169979)
 
 Avaa kuvien katselu
 
-Alexader Stubb. Kuva: Roni Rekomaa / Lehtikuva
+Alexander Stubbista on tulossa kokoomuksen presidenttiehdokas. Kuva: Silja Viitala / Yle
 
-Kokoomus pyytää Alexader Stubbia kokoomuksen presidenttiehdokkaaksi. Kokoomuksen puheenjohtaja Petteri Orpo sanoo, että Stubb sai enemmistön tuen puoluehallituksessa.
+Alexander Stubb lähtee kokoomuksen presidentiehdokkaaksi.
 
-Alexander Stubb on ollut kokoomuksen puheenjohtaja. Hän on ollut myös pääministeri.
+Stubb on ollut kokoomuksen puheenjohtaja ja esimerkiksi pääministeri ja ulkoministeri. Tällä hetkellä hän on EU-yliopiston professori Firenzessä.
 
-Virallisesti Stubbin nimittämisestä kokoomuksen presidenttiehdokkaaksi päättää ylimääräinen puoluekokous, jos Stubb suostuu presidenttiehdokkaaksi.
+Stubb sanoi tiedotustilaisuudessa, että Venäjän hyökkäys Ukrainaan vaikutti päätökseen ehdokkuudesta merkittävästi.
 
-## Inflaatio
+Stubb on huolissaan Suomen sisäisestä tilanteesta. Hän korosti lehdistönvapauden ja kunnioittavan keskustelukulttuurin tärkeyttä.
 
-![Ruokaostokset kaupan kassahihnalla.](https://img.img-cdn.yle.fi/crop_extract,w_5356,h_3013,x_0,y_285/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-776201602fa20cab68f/1706108089)
+Stubb aikoo toimia läheisessä yhteistyössä hallituksen ja eduskunnan kanssa, jos hänestä tulee presidentti.
 
-Avaa kuvien katselu
+Kokoomuksen puoluekokous vahvistaa myöhemmin puolueen presidenttiehdokkaan valinnan.
 
-Hintojen nousu nopeutu heinäkuussa. Kuva: Tiina Jutila / Yle
+## Urpilaista on pyydetty SDP:n presidenttiehdokkaaksi
 
-Inflaatio eli hintojen nousu jatkuu. Kuluttajahinnat nousivat heinäkuussa 6,5 prosenttia viime vuoden heinäkuusta. Hintojen nousu nopeutui hieman heinäkuussa. Kesäkuussa hintojennousu oli 6,3 prosenttia viime vuoden kesäkuusta eli heinäkuussa hinnat nousivat enemmän kuin kesäkuussa.
-
-Inflaatiota kiihdyttivät esimerkiksi asuntolainojen ja kulutusluottojen korkojen nousu sekä sähkön hinnan nousu.
-
-Kaikki hinnat eivät nousseet. Esimerkiksi bensiinin ja asuntojen hinnat laskivat viime vuoden heinäkuuhun verrattuna.
-
-## Ruotsin turvallisuus
-
-![Rasmus Paludan seisoo kädessään palava Koraani.](https://img.img-cdn.yle.fi/crop_extract,w_4012,h_2255,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106392463d13059461ae/1674653822)
+![Jutta Urpilainen ja Sanna Marin taputtavat.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115747064dcaabb1f94b/1692189936)
 
 Avaa kuvien katselu
 
-Koraanien polttaminen Ruotsissa suututtaa monia muslimeja. Kuva: Patrik Österberg / AOP
+EU-komissaari Jutta Urpilainen (vas. ) ja SDP:n puheenjohtaja Sanna Marin. Kuva: Silja Viitala / Yle
 
-Ruotsi on edelleen turvallinen matkailumaa. Näin sanoo Suomen ulkoministeriö. Ulkoministeriö rauhoittelee suomalaisia, koska Britannian varoitukset huolestuttavat suomalaisia.
+SDP:n puheenjohtaja Sanna Marin on pyytänyt EU-komissaari Jutta Urpilaista presidenttiehdokkaaksi. Sosiaalidemokraatit olivat koolla eduskuntaryhmän kesäkokouksessa.
 
-Britannian viranomaiset sanoivat viikonloppuna, että terroristit pyrkivät todennäköisesti iskemään Ruotsissa, koska Ruotsissa on poltettu Koraaneja.
+Urpilainen sanoo, että hän harkitsee ehdokkuutta. Urpilainen päättää asiasta marraskuuhun mennessä.
 
-Suomen ulkoministeriö muistuttaa, että Ruotsin turvallisuuspoliisi ei ole nostanut luokitusta, jolla mitataan terrorismin uhkaa. Ulkoministeriö sanoo, että Ruotsi on edelleen turvallinen matkailumaa.
+SDP:n presidenttiehdokkaan valitsee puoluevaltuusto loppuvuoden aikana.
+
+## Lähijunien lipunhinnat
+
+![Lähijunan vaunu ja penkkejä.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_498/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89868161d45ce774bc4/1641308312)
+
+Avaa kuvien katselu
+
+Lähiliikenteen junaliput kallistuvat noin 5 prosenttia. Kuva: Antro Valo / Yle
+
+Junafirma VR korottaa lähiliikenteen kertalippujen ja sarjalippujen hintoja 28. elokuuta.
+
+Lähiliikenteen kerta- ja sarjalippujen hinnat nousevat keskimäärin vajaat 5 prosenttia eli 50 senttiä.
+
+Hinnat Helsingistä Hyvinkäälle, Järvenpäähän ja Mäntsälään kuitenkin säilyvät ennallaan.
+
+VR sanoo, että hinnankorotuksen syy ovat inflaatio eli yleinen hintojen nousu ja energian hinnan nousu.
+
+## Löytötavaratoimistot
+
+![Suomen Löytötavarapalvelu](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_128/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6097735dc549714224b/1573491985)
+
+Avaa kuvien katselu
+
+Löytötavaratoimistot ovat kiinni kuukauden 12. syyskuuta alkaen. Kuva: Rehnman Kaj / Yle
+
+Suomen Löytötavarapalvelun toiminta on kielletty kuukaudeksi.
+
+Länsi- ja Sisä-Suomen aluehallintovirasto sanoo, että löytötavaratoimisto on rikkonut toistuvasti ja vakavasti löytötavaralakia.
+
+Toimisto on esimerkiksi lisännyt löytötavaroiden säilytykseen arvonlisäveron. Lisäksi toimisto on perinyt löytötavaroiden käsittelystä erityislisää vastoin lakia.
+
+Löytötavaratoimiston toimintakielto alkaa 12. syyskuuta ja kestää kuukauden. Kaikki toimipisteet ovat tämän ajan kiinni.
 
 ## Sää
 
-![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115651064da54fd295c2/1692030249)
+![Totstain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115779464dce08b74f13/1692197043)
 
 Avaa kuvien katselu
 
-Tiistaina on enimmäkseen poutaa.
+Kuva: Yle
 
-Tiistaina pilvisyys vaihtelee. Enimmäkseen on poutaista eli ei sada. Lännessä ja Lapissa voi tulla muutamia sadekuuroja. Tiistaina illalla lounaasta saapuu Suomeen sateita ja ukkosia. Päivälämpötila on 18 ja 26 asteen välillä.
+Torstaina sää poutaantuu ja muuttuu aurinkoisemmaksi lännestä alkaen.
+
+Pohjois-Suomessa ja maan keskiosissa tulee vielä sadekuuroja
+
+Lämpötila on maan etelä- ja keskiosissa 20 - 25 astetta. Muualla maassa lämpötila on 14 -19 , Pohjois- Lapissa 10 - 12 astetta.

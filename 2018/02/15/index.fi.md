@@ -1,58 +1,73 @@
-# Keskiviikko 14.2.2018 (radio)
+# Torstai 15.2.2018 (radio)
 
-Perusturvan heikentäminen osuu työttömiin, lapsiperheisiin ja opiskelijoihin. Lukioissa opiskelevien nuorten jaksamista yritetään auttaa. Tanskan prinssi Henrik on kuollut. Suomen olympiajoukkue neuloo torkkupeittoa Suomen presidenttiparin vauvalle. Keskiviikko on ystävänpäivä.
+Suomi on saanut kolmannen olympiamitalin Etelä-Korean talvikisoissa. Nokia aloittaa jälleen yt-neuvottelut. Asenteet työttömyyttä kohtaan kovenevat. Kullan etsiminen Suomesta kiihtyy. Abiturientit ovat viettäneet penkinpainajaisia.
 
-## Perusturva on heikentynyt
+## Suomi sai kolmannen olympiakullan
 
-![Kahdenkymmenen euron seteleitä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10032645)
-
-Avaa kuvien katselu
-
-Työttömyyskorvaus ja opintotuki ovat jääneet jälkeen, kun niitä ei ole korotettu. Kuva: Henrietta Hassinen / Yle
-
-Perusturvan heikentäminen on vaikuttanut erityisesti työttömiin, lapsiperheisiin ja opiskelijoihin. Perusturvaetuuksia on heikentänyt se, että etuuksia ei ole korotettu pitkään aikaan. Myös lapsilisät ja korkeakouluopiskelijoiden opintotuki ovat pienempiä, koska niitä ei ole korotettu.
-
-Etuudet on pidetty nyt pitkään samoina, vaikka monet hinnat ovat kallistuneet. Esimerkiksi työttömyyskorvaus tai opintotuki ei enää riitä yhtä hyvin, kuin ennen.
-
-## Lukiolaisia autetaan välttämään uupumus
-
-![Koululuokan oppitunti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10007544)
+![Marit Björgen (vas.) ja Krista Pärmäkoski](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10076544)
 
 Avaa kuvien katselu
 
-Opiskelu ryhmässä tukee jaksamista. Kuva: Mostphotos
+Marit Björgen ja Krista Pärmäkoski. Kuva: Lehtikuva / AFP
 
-Lukioissa opiskelevien nuorten jaksamista yritetään auttaa. Noin 20 prosenttia tytöistä ja vähän alle 10 prosenttia pojista kokee lukiossa uupumusta. Osa lukioista kokeilee antaa opiskelijoille valmiin lukujärjestyksen koko vuodeksi.
+Suomi on saanut kolmannen olympiamitalin Etelä-Korean talvikisoissa. 
 
-Opiskelu samassa ryhmässä helpottaa opetusta, sillä opettaja ja opiskelijakaverit eivät vaihdu niin usein. Opettaja pystyy myös seuraamaan paremmin, miten oppilaat oppivat.
+Krista Pärmäkoski sai pronssia naisten 10 kilometrin hiihdossa. Pronssia sai myös Norjan Marit Björgen, koska he hiihtivät täysin saman ajan. Kultaa sai Norja ja hopeaa Ruotsi. 
 
-## Tanskan prinssi Henrik kuoli
+Mitali on Pärmäkosken toinen pronssi. Hän hiihti lauantaina pronssille yhdistelmämatkalla. Enni Rukajärvi sai maanantaina pronssia naisten lumilautailun slopestylessa. 
 
-![Prinssi Henrik](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10069337)
+## Nokia on aloittanut yt-neuvottelut
 
-Avaa kuvien katselu
-
-Tanskan prinssi Henrik oli 83 vuotta vanha. Kuva: Keld Navntoft / EPA
-
-Tanskan prinssi Henrik on kuollut. Tanskan hovi kertoi prinssin kuolemasta keskiviikkona aamulla. Prinssi oli poissa julkisuudesta jo pitkään. Hän sairasti dementiaa, joka on muistisairaus. Tanskan prinssi Henrik oli kuollessaan 83 vuotta vanha.
-
-## Suomen joukkue neuloo torkkupeittoa presidenttiparin vauvalle
-
-![Olympiajoukkueen neulontaprojekti, presidenttiparin vauvan torkkupeitto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10074622)
+![Nokian pääkonttori Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10076558)
 
 Avaa kuvien katselu
 
-Torkkupeiton neulominen on saanut hyvää huomiota olympialaisia seuraavilta toimittajilta. Kuva: Lehtikuva
+Nokian pääkonttori Espoossa. Kuva: Jussi Nukari / Lehtikuva
 
-Suomen olympiajoukkue neuloo lahjaa Suomen presidenttiparin vauvalle. Suomen joukkue neuloo Pyeongchangissa Etelä-Koreassa tasavallan presidentin Sauli Niinistön ja rouva Jenni Haukion pojalle torkkupeittoa. Idea torkkupeiton tekemisestä tuli hiihtäjä Kaisa Mäkäräiseltä, joka on innokas neuloja.
+Teknologiayhtiö Nokia aloittaa jälleen yt-neuvottelut eli yhteistoimintaneuvottelut. Nokia vähentää Suomessa verkkoliiketoiminnasta noin 350 työpaikkaa.
 
-Ystävänpäivänä muistetaan kortilla tai suklaalla
+Vähennystarve koskee ehkä Nokian kaikkia toimipaikkoja Oulua lukuun ottamatta. Lisäksi Nokia Technologies aloittaa yt-neuvottelut, jotka johtavat noin 75 työpaikan vähenemiseen. 
 
-![Suklaasydän](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5463084)
+Nokialla on Suomessa tällä hetkellä noin 6 300 työntekijää. 
+
+## Asenteet työttömyyttä kohtaan kovenevat
+
+![Susanne Ådahl](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10074200)
 
 Avaa kuvien katselu
 
-Ystävänpäivänä annetaan esimerkiksi sydämenmuotoisia suklaita. Kuva: YLE / Arja Lento.
+Susanne Ådahl kirjoittaa vielä yhtä rahoitushakemusta tutkimusta varten, vaikka hän on päättänyt vaihtaa alaa. Kuva: Markku Pitkänen / Yle
 
-Nyt keskiviikkona 14. helmikuuta vietetään ystävänpäivää.  
-Suomessa ystävänpäivän vietto on aika uusi tapa. Päivä tuli kalenteriin Suomessa vasta 1980-luvun lopulla. Ystävänpäivän eli Pyhän Valentinuksen päivän alkuperästä on erilaisia käsityksiä. Päivän taustalla on tarina pyhimyksestä. Monet muistavat ystäviä esimerkiksi kortilla tai sydämen muotoisella suklaalla.
+Suomessa asenteet työttömyyttä kohtaan kovenevat, kertoo Yle Uutisten kysely. 
+
+Enemmistö vastaajista sanoo, että työttömyyden syy on yhteiskunnassa. Kuitenkin yli puolet nuorista uskoo, että työttömyys on yksilön, ei yhteiskunnan syy.
+
+Myös vanhemmat ikäluokat ajattelevat, että asenne ja työmoraali ratkaisevat työn saamisen. 
+
+## Kittilän kultakaivos laajenee
+
+![Kultaharkko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10076542)
+
+Avaa kuvien katselu
+
+Kultaharkko Kittilän kultakaivoksella. Kuva: Agnico Eagle Finland Oy
+
+Kullan etsiminen Suomesta kiihtyy. 
+
+Kymmenet ulkomaiset yhtiöt etsivät kultaa, koska kullan kysyntä ja hinta maailmalla ovat nousussa. Euroopan suurin kultakaivos Kittilässä, Lapissa, laajenee. Kaivosyhtiö on julkistanut 160 miljoonan euron lisäinvestoinnit. Kaivokseen rakennetaan yli kilometrin syvyyteen yltävä kaivoskuilu. Yhtiö arvioi, että kaivos voi toimia vuoteen 2034 saakka.
+
+Suomessa toimii nyt 6 kaivosta. Mahdollisia kaivoksia on 15, ja malminetsintä on hyvin aktiivista. Suomi on EU-maiden suurin kullantuottaja. Lisäksi perinteet ovat pitkät, sillä Lapin kullankaivu täyttää tänä vuonna 150 vuotta. 
+
+## Abiturientit juhlivat lukion päättymistä
+
+![Penkkarit Lappeenrannassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10077227)
+
+Avaa kuvien katselu
+
+Tässä penkkaririemua Lappeenrannasta. Kuva: Tommi Parkkinen / Yle
+
+Abiturientit ovat juhlineet lukion päättymistä penkinpainajaisissa. 
+
+Suuressa osassa maata saatiin ajella kaduilla pikkupakkasessa. Kuorma-autojen kyljissä oli julisteita, joissa kommentoitiin ajankohtaisia asioita, esimerkiksi presidentinvaaleja.
+
+Penkinpainajaisista alkaa kuukauden lukuloma. Ylioppilaskirjoitusten kirjalliset kokeet jatkuvat maaliskuun puolivälissä.

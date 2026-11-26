@@ -1,67 +1,51 @@
-# Lauantai 2.9.2017 (radio)
+# Sunnuntai 3.9.2017
 
-SDP valitsi presidenttiehdokkaan. Houstonin tulvat helpottavat. Britanniassa naiset taistelutehtäviin. Koripallo on nyt suosittua Suomessa. Suuri avaruuskivi ohittaa maapallon.
+Pohjois-Korea teki ydinkokeen taas. Pääministeri sanoo, että poliisin työtä ei saa häiritä turvapaikka-asioissa. Poliisikoiran kouluttaminen kestää pitkään. Kylmä sää uhkaa omenasatoa.
 
-## SDP:lle presidenttiehdokas
+## Pohjois-Korea teki ydinkokeen
 
-![Tuula Haatainen poseeraa tultuaan valituksi demareiden presidenttiehdokkaaksi SDP:n ylimääräisessä puoluevaltuuston kokouksessa Jyväskylässä lauantaina 2. syyskuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9812760)
-
-Avaa kuvien katselu
-
-Tuula Haatainen on SDP:n presidenttiehdokas Kuva: Tommi Anttonen / Lehtikuva
-
-SDP eli sosiaalidemokraattinen puolue on valinnut oman presidenttiehdokkaan. Hän on Tuula Haatainen, joka on tällä hetkellä SDP:n kansanedustaja. Haatainen on 57-vuotias. Hän on ollut aikaisemmin esimerkiksi sosiaali- ja terveysministerinä. Haatainen haluaa nostaa vaaleissa esille suomalaisten hyvinvoinnin.
-
-Presidentinvaaleissa on paljon ehdokkaita. Myös nykyinen tasavallan presidentti Sauli Niinistö haluaa jatkaa tehtävässä.
-
-Presidentinvaalit ovat ensi vuoden alussa.
-
-## Houstonin tulvat hellittävät
-
-![Mies tarkastelee kotinsa keittiötä tulvan jälkeen Houstonin alueella ennen evakuointia, Teksasissa, Yhdysvalloissa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9810134)
+![Pohjois-Korean uutistoimisto KCNA:n jakama päiväämätön kuva Kim Jong-Unista tutkimassa metallikoteloa nimeämättömässä paikassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9813326)
 
 Avaa kuvien katselu
 
-Ihmisten kodit ovat kärsineet pahoin tulvissa. Kuva: Tannen Maury / EPA-EFE
+Pohjois-Korean johtaja Kim Jong-Un tutkii metallikoteloa salaisessa paikassa.  Kuva: KCNA / AFP
 
-Ihmiset ovat päässeet takaisin koteihinsa Houstonin tulva-alueella Yhdysvalloissa. Tulvat jatkuvat kuitenkin vielä Houstonin länsi- ja itäpuolella. Yli 40 000 ihmistä on ollut tulvien takia hätämajoituksessa.
+Pohjois-Korea on tehnyt jälleen ydinkokeen. Maa sanoo, että se testasi uutta vetypommia. Ydinkoe oli suuri, koska alueella mitattiin maanjäristys. Maan tärinä oli nyt 10 kertaa voimakkaampi kuin vuosi sitten, jolloin Pohjois-Korea teki myös ydinkokeen. Tunnelma on nyt alueella kireä, koska Pohjois-Korea ampui aikaisemmin ohjuksen Japanin yli.
 
-Texasin osavaltion kuvernööri sanoo, että tuhojen korjaaminen kestää monta vuotta ja rahaa tarvitaan ainakin 125 miljardia dollaria. Presidentti Donald Trump käy lauantaina uudelleen vierailemassa tuhoalueella.
+Pohjois-Korean 6. ydinkoe on tuomittu maailmalla laajasti. Pohjois-Korean naapurimaat eli Japani, Kiina ja Etelä-Korea haluavat rangaista maata ydinkokeesta. Esimerkiksi Pohjois-Korean kaupankäyntiä halutaan estää. Myös Suomen valtion johto on huolissaan ydinkokeesta. Pääministeri Juha Sipilä haluaa, että YK:n turvallisuusneuvosto käsittelee pian Pohjois-Korean toimintaa.
 
-## Britanniassa naiset pääsevät taistelutehtäviin
+## Pääministeri Sipilä sanoo, että viranomaisten työtä ei saa häiritä turvapaikka-asioissa
 
-![naissotilas miesten kanssa rivissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9812520)
-
-Avaa kuvien katselu
-
-Naiset pääsevät taistelutehtäviin Britanniassa Kuva: Andy Rain / EPA
-
-Britanniassa naiset pääsevät ensi vuonna asevoimien taistelutehtäviin. Ensi vuonna naisia otetaan ainakin ilmavoimien ja laivaston jalkaväkijoukkoihin. Hallitus päätti aikaisemmin, että naisia voidaan palkata kaikkiin sotilastehtäviin.
-
-Muutosta on myös vastustettu. Entinen sotilaskomentaja sanoo, että naiset ovat heikkoja ja he eivät sovi taistelutehtäviin. Esimerkiksi taistelupakkaus painaa 45 kiloa. Tutkimuksissa on huomattu, että naiset loukkaantuvat myös miehiä herkemmin. Naisten pitää siksi selvitä tiukoista fyysisistä testeistä ennen kuin he pääsevät taistelutehtäviin. 
-
-## Koripallo kiinnostaa suomalaisia
-
-![Lauri Markkanen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9806983)
+![Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9813488)
 
 Avaa kuvien katselu
 
-Lauri Markkanen on Suomen koripallotähti Kuva: Tomi Hänninen
+Pääministeri Juha Sipilä Kuva: Jussi Nukari / Lehtikuva
 
-Koripallo on nyt Suomessa tosi suosittu urheilulaji. Pelaajalisenssin eli kilpailuluvan on hankkinut jo 19 000 harrastajaa. Määrä on kasvanut yli 3 000 muutamassa vuodessa.
+Pääministeri Juha Sipilä sanoo, että hallitus ei kiellä turvapaikanhakijoiden auttamista. Sipilä sanoo, että auttaminen ja viranomaisten työn estäminen ovat eri asioita. Esimerkiksi poliisia ei saa estää antamasta kielteistä turvapaikkapäätöstä. Sipilän mielestä kirkot eivät saa piilottaa turvapaikanhakijoita, joiden pitää poistua Suomesta ja poliisin työtä ei saa häiritä. 
 
-Koripallon suosio on kasvanut, koska Suomen maajoukkue on menestynyt hyvin. Lisäksi Lauri Markkanen pääsi pelaamaan ammattilaisliiga NBA:han ja tämä on lisännyt lajin suosiota.
+Hallitus suunnittelee lakiin muutoksia, jotka vaikeuttavat laitonta oleskelua Suomessa. Rangaistuksia aiotaan koventaa.
 
-Suomessa on parhaillaan koripallon Euroopan-mestaruuskisat. Suomi voitti ensimmäisessä pelissään Ranskan jatkoajalla.
+## Poliisikoirista on verraton apu poliiseille
 
-## Suuri asteroidi ohittaa maapallon
-
-![Kuvituskuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9769389)
+![Koirat vasemmalta Nalli, Jussi ja Into.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9807288)
 
 Avaa kuvien katselu
 
-Asteroidi ohittaa maan läheltä.  Kuva: NASA / JPL-Caltech 
+Nalli, Jussi ja Into ovat uusia poliisikoiria.  Kuva: Poliisi
 
-Suuri asteroidi eli avaruuden kivi liikkuu maapallon ohi. Asteroidi kulkee niin läheltä maapalloa, että sen näkee kaukoputkella.
+Koirat ovat tärkeitä apureita poliisille. Suomessa on tällä hetkellä 260 poliisikoiraa, jotka etsivät huumeita, räjähteitä ja ihmisiä, jotka ovat eksyneet metsään. Koiraa voidaan joskus käyttää myös vaarallisen ihmisen taltuttamiseen.
 
-Asteroidi on yli 4 kilometriä pitkä.
+Poliisikoiran kouluttaminen vie paljon aikaa. Poliisikoiran ja koiran ohjaajan yhteinen koulutus kestää 2,5 vuotta. Säännöllinen harjoittelu jatkuu myös tämän jälkeen koko poliisikoiran elämän ajan.
+
+Joka vuosi poliisikoirakoulusta valmistuu noin 10 uutta ohjaajaa ja koiraa. Koirat asuvat ohjaajan kotona.
+
+## Kylmä kesä uhkaa omenasatoa
+
+![Omenoita oksassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9811893)
+
+Avaa kuvien katselu
+
+Omenat ovat vielä raakoja.  Kuva: Jaana Polamo / Yle
+
+Suomen kesä on ollut liian viileä monille kasveille. Viljat, marjat ja omenat eivät ehdi kypsyä ajoissa ennen syksyä. Omenoita on paljon puissa, mutta ne ovat raakoja. Etelä-Suomessa saadaan ehkä omenoita, mutta muualla Suomessa lämpöä ei ole tarpeeksi omenoille. Asiantuntija sanoo, että päivällä pitää olla melkein 20 astetta lämmintä ja yöllä 10 astetta, muuten omenat eivät ehdi kypsyä.

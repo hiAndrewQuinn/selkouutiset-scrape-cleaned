@@ -1,69 +1,77 @@
-# Radio Selkouutiset keskiviikko 28.6.2023
+# Radio Selkouutiset maanantai 3.7.2023
 
-Elinkeinoministeri Junnila. Vaalien äänestys. Nuorisorikollisuus. Vanhusten kotihoito. Sää.
+Joe Biden Helsingissä. Asuntokauppa. Rintasyöpä. Heinäkuu. Sää.
 
-## Elinkeinoministeri Junnila
+## Joe Biden Helsingissä
 
-![Elinkeinoministeri, perussuomalaisten Vilhelm Junnila eduskunnan täysistunnon jälkeen Helsingissä 28. kesäkuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135640649c20073ee73/1688117301)
-
-Avaa kuvien katselu
-
-Elinkeinoministeri, perussuomalaisten Vilhelm Junnila eduskunnan täysistunnon jälkeen Helsingissä 28. kesäkuuta 2023. Kuva: Eeva-Maria Brotherus / Lehtikuva
-
-Perussuomalainen elinkeinoministeri Vilhelm Junnila on saanut eduskunnan luottamuksen. Eduskunta äänesti käytännössä siitä, voiko Junnila olla elinkeinoministeri.
-
-Junnila sai eduskunnan äänestyksessä luottamuksen äänin 95–86. Tyhjiä ääniä oli 3. Äänestyksestä oli poissa 15 kansanedustajaa.
-
-Vihreät, vasemmistoliitto ja SDP vaativat elinkeinoministeri Vilhelm Junnilan eroa. Syynä ovat Junnilan äärioikeistoon liittyvät puheet. Junnila myös osallistui tapahtumaan, jolla oli yhteys äärioikeistoon.
-
-## Eduskuntavaalien äänestys
-
-![Täysistuntosali.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131012648c4c350d7cf/1686917217)
+![Sauli Niinistö keskustelee Joe Bidenin kanssa.](https://img.img-cdn.yle.fi/crop_extract,w_2047,h_1151,x_0,y_42/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113730464a1901d84da0/1688310025)
 
 Avaa kuvien katselu
 
-Ihmisen sukupuoli, ikä ja koulutus vaikuttavat vaaleissa paljon puolueen valintaan. Kuvituskuva. Kuva: Silja Viitala / Yle
+Suomen ja USA:n presidentit tapasivat viimeksi maaliskuussa. Kuva: Cameron Smith / AOP
 
-Åbo Akademi on tutkinut eduskuntavaalien äänestystä. Tutkimus kertoo, että yli 30 prosenttia työikäisistä miehistä äänesti vaaleissa perussuomalaisia.
+Helsinki valmistautuu USA:n presidentti Joe Bidenin vierailuun. Tavoite on, että Bidenin vierailu on turvallinen.
 
-Ihmisen sukupuoli, ikä ja koulutus vaikuttavat paljon puolueen valintaan. Miehistä noin 50 prosenttia äänesti perussuomalaisia tai kokoomusta. Naisten joukossa oli eniten SDP:n kannattajia.
+Kun Biden on Helsingissä, monet alueet Helsingin keskustassa laitetaan kiinni.
 
-Perussuomalaiset oli suosituin puolue kaikissa muissa ikäryhmissä, paitsi yli 65-vuotiaissa.
+Helsinkiin tulee paljon poliiseja muualta Suomesta. Bidenin mukana tulee myös paljon amerikkalaisia turvamiehiä.
 
-## Nuorisorikollisuus
+USA:n ja Suomen presidenttien lisäksi Helsingissä tapaavat myös muiden Pohjoismaiden johtajat. He keskustelevat esimerkiksi sotilasliitto Natosta. Suomi liittyi Natoon keväällä.
 
-![Lapsiasiavaltuutettu Elina Pekkarinen.](https://img.img-cdn.yle.fi/crop_extract,w_5304,h_2983,x_0,y_2305/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135284649b123219b7f/1694531019)
+Biden tulee Suomeen 13. päivä heinäkuuta.
 
-Avaa kuvien katselu
+## Asuntokauppa
 
-Lapsiasiavaltuutettu Elina Pekkarinen. Kuva: Rinna Härkönen / Yle
-
-Lapsiasiavaltuutettu arvostelee uuden hallituksen suunnitelmia siitä, miten nuorisorikollisuutta torjutaan. Lapsiasiavaltuutettu Elina Pekkarinen sanoo, että nuorten rikollisuutta pitää torjua enemmän jo etukäteen.
-
-Pekkarinen korostaa, että lapsiperheiden köyhyyttä pitää vähentää. Pekkarisen mielestä uuden hallituksen ohjelma ei vähennä lapsiperheiden köyhyyttä, vaan lisää sitä.
-
-Poliisi kertoo, että alle 15-vuotiaat tekevät enemmän rikoksia kuin aikaisemmin.
-
-## Vanhusten kotihoito
-
-![Vanhuksen käsi, jossa turvaranneke](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_312/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11336506493fd189c90e/1698058728)
+![Henkilö katsomassa myynnissä olevaa kerrostaloasuntoa.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2800,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105860063c00b8b1386f/1682666389)
 
 Avaa kuvien katselu
 
-Vanhusten kotihoito on vähentynyt. Kuvituskuva. Kuva: Juha Kemppainen / Yle
+Pieni asunto voi nyt olla halpa. Kuva: Henrietta Hassinen / Yle
 
-Terveyden ja hyvinvoinnin laitos THL on huolissaan siitä, että vanhukset saavat vähemmän kotihoitoa kuin aikaisemmin. Vanhusten kotihoito on nyt vähentynyt 1. kerran, vaikka vanhuksia on enemmän kuin ennen.
+Asuntojen hinnat ovat laskeneet paljon. Asunnot ovat nyt koko maassa 7,4 prosenttia halvempia kuin vuosi sitten.
 
-Varsinkin Helsingissä hoitajat käyvät vanhusten kotona vähemmän kuin aikaisemmin. THL pelkää, että jotkut vanhukset jäävät ilman hoitoa.
+Eniten asuntojen hinnat ovat laskeneet Helsingissä ja Vantaalla. Helsingissä ja Vantaalla asunnot ovat melkein 10 prosenttia halvempia kuin vuosi sitten.
+
+Eniten ovat laskeneet pienten asuntojen eli yksiöiden hinnat. Isoissa kaupungeissa on nyt paljon uusia pieniä asuntoja, joita kukaan ei osta.
+
+Asuntojen hinnat ovat laskeneet, koska korot ovat nousseet. Korko täytyy maksaa, kun ottaa asuntolainan.
+
+## Rintasyöpä
+
+![Mammografiatutkimus käynnissä.](https://img.img-cdn.yle.fi/crop_extract,w_4288,h_2412,x_0,y_221/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-32959258bfc2bda107e/1688387425)
+
+Avaa kuvien katselu
+
+Mammografiassa tutkitaan rinnat. Kuva: All Over Press
+
+Rintasyöpään sairastuu enemmän ihmisiä kuin ennen. Noin 5 000 ihmistä vuodessa sairastuu Suomessa rintasyöpään.
+
+Yksi kahdeksasta naisesta saa joskus elämässä rintasyövän.
+
+Yksi syy on se, että ihmiset elävät nykyään niin vanhoiksi. Vanhat ihmiset sairastuvat syöpään helpommin kuin nuoret ihmiset.
+
+Myös muita syitä voi olla. Tutkijat eivät tiedä, mitä ne ovat.
+
+85 prosenttia paranee rintasyövästä. Silti rintasyöpään kuolee Suomessa noin 900 ihmistä vuodessa.
+
+## Heinäkuu
+
+![Paikallinen sadekuuro näkyy taivaalla merimaisemassa.](https://img.img-cdn.yle.fi/crop_extract,w_5987,h_3361,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136555649e89fc95d80/1688111938)
+
+Avaa kuvien katselu
+
+Tällä viikolla voi sataa. Kuva: Henrietta Hassinen / Yle
+
+Heinäkuun alku on kylmempi kuin viime viikot. Lisäksi voi sataa ja tuulla paljon. Koko tämä viikko on melko viileä.
+
+Kesäkuun loppu oli lämmin. Suomessa oli 19 hellepäivää kesäkuussa. Helle tarkoittaa, että lämpötila on yli 25 astetta.
 
 ## Sää
 
-![Asuntoautoja leirintäalueella aurinkoisena päivänä.](https://img.img-cdn.yle.fi/crop_extract,w_1612,h_907,x_12,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11335796493e996880d6/1687415806)
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113767264a2e059a1e60/1688395910)
 
 Avaa kuvien katselu
 
-Sää jatkuu lämpimänä. Kuvituskuva. Kuva: Maija Tuunila / Yle
+Kuva: Yle
 
-Sää on yöllä poutainen. Torstaina päivällä monin paikoin tulee sade- ja ukkoskuuroja varsinkin Itä-Suomessa ja Pohjois-Suomessa.
-
-Yölämpötila on 10 ja 16 asteen välillä. Torstaina päivälämpötila on 21 ja 27 asteen välillä. Pohjois-Lapissa lämmintä on paikoin alle 20 astetta.
+Tiistaina lämpötila on 12 ja 19 asteen välillä. Etelässä tuulee kovaa ja pohjoisessa sataa.

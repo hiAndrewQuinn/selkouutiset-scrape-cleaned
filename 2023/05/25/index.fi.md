@@ -1,71 +1,79 @@
-# Radio Selkouutiset perjantai 19.5.2023
+# Radio Selkouutiset torstai 25.5.2023
 
-Hallitusneuvottelut ja maahanmuuttopolitiikka. Sote-alalle ehkä lakkoja. Yle Kielikoulu. Sää.
+Hoitoon pääsy. Avustajalakko. Afrikan nälänhätä. Alaikäiset rikolliset. Sää.
 
-## Maahanmuuttopolitiikka
+## Lääkäriin pääsy
 
-![Anna-Maja Henriksson, Petteri Orpo, Riikka Purra ja Sari Essayah pitivät tiedotustilaisuuden Säätytalolla.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_389/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11155606464e09f8d917/1686134532)
-
-Avaa kuvien katselu
-
-Kokoomuksen puheenjohtaja Petteri Orpo ja perussuomalaisten puheenjohtaja Riikka Purra. Kuva: Silja Viitala / Yle
-
-Suomen maahanmuuttopolitiikka ehkä kiristyy. Näin arvioi kokoomuksen puheenjohtaja Petteri Orpo.
-
-Orpo vetää hallitusneuvotteluja. Hallitusneuvotteluissa on mukana myös perussuomalaiset.
-
-Perussuomalaisten puheenjohtaja Riikka Purra sanoo, että perussuomalaiset lähtee mukaan hallitukseen vain, jos maahanmuuttopolitiikka kiristyy.
-
-Ensi viikko on hallitusneuvottelujen 4. viikko.
-
-## Sote-alalle ehkä lakkoja
-
-![Kaksi lasta leikkii päiväkodin hiekkalaatikolla aurinkoisena kevätpäivänä.](https://img.img-cdn.yle.fi/crop_extract,w_6007,h_3380,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110800664525c4343bcf/1686574706)
+![Valkoisella ulkoseinällä mustilla kirjaimilla oleva teksti Rovaniemen terveyskeskus ja kaupungin vaakuna.](https://img.img-cdn.yle.fi/crop_extract,w_6114,h_3423,x_0,y_636/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-95576962825d0de0347/1652712591)
 
 Avaa kuvien katselu
 
-Lakko voi sulkea päiväkoteja ensi viikolla. Kuvituskuva. Kuva: Elina Ervasti / Yle
+Kuva: Elina Ervasti / Yle
 
-Sosiaali- ja terveysalalla voi alkaa lakko ensi viikolla. Lakko alkaa ensi viikon tiistaina, jos palkkariitaan ei löydy ratkaisua sitä ennen.
+Hoitoon pääsy on hidastunut alkuvuoden aikana.
 
-Lakko vaikuttaa joissakin yksityisissä päiväkodeissa ja vanhusten hoivakodeissa. Lakko ei koske koko sosiaali- ja terveysalaa.
+Vain puolet asiakkaista on päässyt viikon kuluessa terveysaseman kiireettömään hoitoon.
 
-Työntekijät aikovat mennä lakkoon eli lopettaa työt noin 40 päiväkodissa ja noin 30 hoivakodissa. Lakko kestää muutaman päivän.
+Vielä viime syksynä 60 prosenttia lääkärikäynneistä toteutui viikossa hoidon tarpeen arvioinnista. Noin 90 prosenttia pääsi kuitenkin sairaanhoitajan vastaanotolle viikossa.
 
-Lakon syy on palkkariita. Yksityisen sosiaali- ja terveysalan työntekijät vaativat, että he saavat samaa palkkaa kuin julkisen puolen työntekijät.
+Terveysasemat siirtyivät vuodenvaihteessa hyvinvointialueille.
 
-Esimerkiksi lähihoitajan palkka on yksityisissä firmoissa noin 200 euroa pienempi kuin julkisella puolella. Julkisen puolen rahat tulevat veroista.
+Terveyden ja hyvinvoinnin laitos kertoo, että hoitoon pääsyä ovat hidastaneet muutokset hallinnossa ja tietojärjestelmissä.
 
-## Yle Kielikoulu
+## Avustajat lakossa
 
-![Ruotsintajatoimittaja Jonatan Pedersen](https://img.img-cdn.yle.fi/crop_extract,w_1893,h_1064,x_6,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-111460264635a8e3a2da/1684233023)
+![Vanhusta kuljetetaan pyörätuolissa.](https://img.img-cdn.yle.fi/crop_extract,w_4740,h_2666,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7062285f2d32b2ea17b/1596802617)
 
 Avaa kuvien katselu
 
-Jonatan Pedersen kertoo, että käyttäjät tykkäävät Yle Kielikoulusta.
+Kuva: Janne Järvinen / Yle
 
-Yle Kielikoulussa opiskellaan suomea katsomalla suomenkielisiä tv-ohjelmia.
+Henkilökohtaiset avustajat ovat lakossa pääkaupunkiseudulla.
 
-Ohjelmissa on myös suomenkielinen tekstitys. Katsoja saa vaikeille sanoille käännöksen.
+Julkisten ja hyvinvointialojen liitto JHL käynnisti lakon. Se kestää viikon. JHL kertoo, että lakossa on noin 1500 henkilökohtaista avustajaa.
 
-Katsoja voi itse valita, millä kielellä käännökset ovat. Kieliä on 14, esimerkiksi englanti, arabia ja ukraina.
+Lakolla halutaan edistää neuvotteluja työehtosopimuksesta. Kiistaa on muun muassa palkasta ja pitkistä työvuoroista. Ammattiliitto JHL kertoo, että henkilökohtaisten avustajien työnantajamalli on hankala. Palvelut ovat hyvinvointialueiden vastuulla, mutta vammaiset itse ovat työnantajia.
 
-Yle Kielikoulu tarjoaa käännöksiä sen perusteella, mikä on katsojan suomen kielen taso.
+Ensi kuussa lakko uhkaa laajentua koko maahan.
 
-Myös tehtävät sopivat tasolle, jonka katsoja on valinnut. Tehtävät liittyvät ohjelman tekstiin.
+## Afrikan sarven kuivuus
 
-Kääntäjä Jonatan Pedersen koordinoi Kielikoulua. Hän kertoo, että Yle Kielikoulu on käyttäjille ilmainen.
+![Maata, joka on kuivuuden seurauksena lohkeillut.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_469/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-4900556db4f2f567e0/1457213347)
 
-Pedersen sanoo, että käyttäjät ovat antaneet positiivista palautetta Kielikoulusta. Käyttäjien mielestä Kielikoulua on mukava käyttää.
+Avaa kuvien katselu
 
-Kielikoulua voi käyttää sovelluksella tai selaimella. Lisää tietoa Kielikoulusta löytyy osoitteesta yle.fi/kielikoulu.
+Kuva: Jarkko Mikkonen / Finnish Red Cross
+
+Nälkäkuolemat ovat alkaneet jo yleistyä Afrikan sarvessa, kertoo YK eli Yhdistyneet kansakunnat. Somaliassa, Keniassa, Etiopiassa ja Djiboutissa on pahin kuivuus moneen vuosikymmeneen.
+
+Alueen sadekaudet ovat epäonnistuneet jo 5 kertaa peräkkäin.
+
+Miljoonat ihmiset ovat joutuneet lähtemään kodeistaan, koska maata ei voi viljellä eikä karjaa kasvattaa ilman vettä.
+
+YK:n hätäaputoimisto on onnistunut keräämään apulupauksia varakkaammilta mailta. Lupauksia on saatu 2,4 miljardin dollarin arvosta. Tarve on arviolta 7 miljardia dollaria.
+
+## Alaikäisten rikokset
+
+![Polisen på plats.](https://img.img-cdn.yle.fi/crop_extract,w_3535,h_1987,x_45,y_252/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-27612156d9920eea426/1457353982)
+
+Avaa kuvien katselu
+
+Kuva: Yle/Linus Hoffman
+
+Pahoinpitelyn tai ryöstön tekijä on yhä useammin alaikäinen.
+
+Ryöstöstä epäillyistä 12 prosenttia on alle 15-vuotiaita. Heitä oli viime vuonna lähes 270. Suurin osa oli poikia.
+
+Alaikäisten osuus kasvoi viime vuonna lähes 140 prosenttia edellisvuoteen verrattuna.
+
+Pahoinpitelyistä epäillyistä noin 11 prosenttia oli viime vuonna alle 15-vuotiaita. Asiasta kertoo Tilastokeskus.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11165306467983055b0b/1684510792)
+![Perjantain sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1119744646f76fd09d6c/1685026602)
 
 Avaa kuvien katselu
 
-Lauantaina aurinko paistaa melkein koko maassa ja sää on lämmintä. Lämpötila on jopa yli 20 astetta. Pohjois-Lapissa on kylmempää.
+Sää viilenee koko maassa. Perjantaina etelässä sataa vettä ja pohjoisessa tulee paikoin sadekuuroja. Yleisesti on kuitenkin poutaista.
 
-Sunnuntaina lämpötila nousee Etelä-Suomessa jo lähelle hellerajaa eli 25 astetta ja sää lämpenee myös Lapissa.
+Lämpötila on noin +10 astetta.

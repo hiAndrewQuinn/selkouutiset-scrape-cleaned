@@ -1,109 +1,63 @@
-# Uutisviikko selkosuomeksi | sunnuntai 11.10.2026
+# Selkouutiset | maanantai 12.10.2026
 
-Datakeskukset ja sähkö. Puoluekannatus. Pyöräkauppa. Ravintolaruoka. Eläkeikä. Tyttöjen päivä.
+Syöpähoito. Sähkönsiirto. Syysloma. Sää
 
-Kuuntele
+## Syöpähoitoa joutuu odottamaan
 
-Voit lukea uutiset samanaikaisesti alta.
+Ensin uutinen syöpähoidoista Suomessa.
 
-## Datakeskukset ja sähkö
+Syöpä on sairaus, jonka hoitoa voi joutua odottamaan liian pitkään.
 
-![Haminan Googlen palvelinkeskuksen portti ja vastaanottorakennus.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_264/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-13883586749cc8b703c8/1732889950)
+Ylen MOT-ohjelma sai tietoja uudesta syöpätutkimuksesta. Tutkimus kertoo, että muissa Pohjoismaissa syöpää hoidetaan usein nopeammin kuin Suomessa.
 
-Avaa kuvien katselu
+Esimerkiksi keuhkosyöpää hoidetaan paljon nopeammin Ruotsissa ja Tanskassa kuin Suomessa.
 
-Googlella on data- eli palvelinkeskus Haminassa. Kuva: Antro Valo / Yle
+Suomessa ihminen odottaa syövän hoitoa keskimäärin 155 vuorokautta. Se on monta kuukautta enemmän kuin esimerkiksi Tanskassa.
 
-Datakeskuksien eli tietokonehallien rakentamista aletaan ehkä jarruttaa.
+Syöpä on sairaus, jonka hoitoa voi joutua odottamaan liian pitkään.
 
-Uusi laki voi päättää, missä järjestyksessä suuret sähkönkuluttajat saavat liittymän sähköverkkoon.
+Moni ehtii sairastua vakavasti, ennen kuin saa hoitoa.
 
-Laki ehkä asettaa datakeskushankkeet 3. sijalle.
+**Heidi Rintahaka** sai diagnoosin aggressiivisesta rintasyövästä. Hän joutui odottamaan hoitoa kuusi viikkoa. Viikkojen aikana syöpä kasvoi monta senttimetriä.
 
-Monet suomalaiset ovat huolissaan, riittääkö edullista sähköä kaikille.
+## Sähkön siirtohinnoissa isoja eroja
 
-## Puoluekannatuksen muutos
+Seuraavaksi uutinen sähkön hinnasta.
 
-![SDP jatkaa kannatusmittauksen kärjessä 22,7 prosentilla. PS nousi kakkoseksi (16,5), kokoomuksen (16,3) ohi.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1079,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17186756ac5fa98a1f49/1791360326)
+Sähkön siirtohinnoissa on isoja eroja.
 
-Avaa kuvien katselu
+Kallein yhtiö on Järvi-Suomen Energia. Se siirtää sähköä esimerkiksi Mikkelissä, Juvalla ja Savonlinnassa. Halvin yhtiö on Turku energia.
 
-Perussuomalaiset on sijalla kaksi ensimmäistä kertaa tällä hallituskaudella. Kuva: eduskunta, Petteri Sopanen / Yle, Silja Viitala / Yle ja Mårten Lampén / Yle, grafiikka: Nanna Särkkä / Yle
+Juvalla tavallisen omakotitalon sähkönsiirto maksaa yli 2 000 euroa vuodessa. Turussa omakotitalon sähkönsiirto maksaa alle 1 000 euroa.
 
-Perussuomalaiset on noussut ensimmäisen kerran tällä hallituskaudella pääministeripuolue kokoomuksen ohi.
+Sähkön siirtohinta on pienempi, jos sähköverkolla on paljon käyttäjiä.
 
-Perussuomalaisten kannatus oli 16,5 prosenttia Ylen kannatusmittauksessa.
+Sähkön siirtohinnoissa on isoja eroja.
 
-Kolmantena on kokoomus, 16,3 prosenttia.
+Lähes 50 sähköyhtiötä korotti tänä vuonna sähkön siirtohintaa. Viime vuonna hintaa korotti lähes 60 sähköyhtiötä.
 
-Kärjessä jatkaa SDP, jonka kannatus oli 22,7 prosenttia.
+Energiavirasto sanoo, että jotkut yhtiöt korottivat hintoja liikaa. Ne joutuvat palauttamaan rahaa takaisin asiakkaille.
 
-Keskusta on sijalla 4 ja vasemmistoliitto sijalla 5.
+## Syysloma alkoi monilla koululaisilla
 
-## Helkama osti Tunturi-pyörän
+Lopuksi uutinen koulujen syyslomasta.
 
-![Henkilö seisoo varastossa, jossa on polkupyöränrenkaita ja pitää pyörän vannetta käsissään. ](https://img.img-cdn.yle.fi/crop_extract,w_4945,h_2781,x_0,y_33/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17167826abfb1c952fcf/1790949533)
+Syysloma alkoi tänään monessa koulussa. Lomalla vietetään aikaa esimerkiksi perheen kanssa.
 
-Avaa kuvien katselu
+Moni perhe aloitti syysloman viikonloppuna tiedekeskus Heurekassa.
 
-Helkaman hallituksen puheenjohtaja Satu Helkama polkupyörätehtaalla Hangossa. Kuva: Rinna Härkönen / Yle
+Heurekassa on näyttely dinosauruksista. Näyttelyn dinosaurukset ovat robotteja, ja ne ovat oikeiden dinosaurusten kokoisia.
 
-Sitten talousuutinen.
+Syysloma alkoi tänään monessa koulussa.
 
-Suomalainen polkupyörävalmistaja Helkama Velox ostaa pyörävalmistaja Tunturin. Tunturi Oy on perustettu vuonna 1922.
+## Tiistain sää
 
-Alun perin suomalainen Tunturi on ollut hollantilaisomistuksessa yli 20 vuotta. Tunturi-pyörät on valmistettu Unkarissa vuodesta 2006.
+Vielä sääennuste.
 
-Elokuussa yritys kaatui konkurssiin.
+Sää on tiistaina poutaista eli ei sada.
 
-Helkama valmistaa pyöriä Hangossa. Se on perustettu vuonna 1905.
+Lännessä paistaa aurinko. Myös Lapissa on paikoin aurinkoista.
 
-Ainakin Helkama-pyörien valmistus jatkuu Hangossa.
+Idässä on pilvistä.
 
-## Ravintolaruoan turvallisuus
-
-![Kortti jossa on teksti: &quot;Kylmälevyllä tarjoillun maidon lämpötila oli +23 °C ja majoneesisalaatin +20 °C.&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_603,x_0,y_371/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17175556ac38dd21c029/1791200943)
-
-Avaa kuvien katselu
-
-Oiva-raportti tuo elintarvikealan yritysten valvontatulokset kuluttajien tietoon tarkastusten jälkeen.  Kuva: Ilkka Kemppinen / Yle
-
-Nyt ravintolaruoasta.
-
-Elintarvikeviranomaiset ovat paljastaneet vakavia puutteita ravintoloissa.
-
-Viime vuosien aikana lähes joka 3. ravintola, pikaruokala tai grilli on joutunut tehovalvontaan.
-
-Ongelma on esimerkiksi se, että ruoka ei ole ollut tarpeeksi kuumaa tai kylmää. Osassa paikkoja on ollut huono hygienia ja omavalvonta on ollut huonoa.
-
-## Eläkeikä
-
-![Mies seisoo puhujakorokkeen takana.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17191286ac63e2be64d2/1791378195)
-
-Avaa kuvien katselu
-
-Valtiovarainministeriön kansliapäällikkö Juha Majanen esitteli ehdotusta uudeksi eläkeiäksi. Kuva: Mikko Koski / Yle
-
-Seuraavaksi eläkeiästä.
-
-Valtiovarainministeriö sanoo, että eläkeikää pitää nostaa. Suomen väestö vanhenee, ja julkiset menot kasvavat.
-
-Virkamiehet ehdottavat, että alin eläkeikä nostetaan Suomessa vähitellen 70 vuoteen.
-
-Pääministeri **Petteri Orpo** sanoo, että suunnitelma on epärealistinen.
-
-## Tyttöjen päivä
-
-![Tyttö, joka on pukeutunut värikkääseen huiviin ja mekkoon. Aikuisen käsi vetää häntä kädestä.](https://img.img-cdn.yle.fi/crop_extract,w_4596,h_2585,x_0,y_487/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1415167679d101e65fb4/1738346848)
-
-Avaa kuvien katselu
-
-Yhdistyneiden kansakuntien eli YK:n tiedot kertovat, että joka vuosi yli 12 miljoonaa tyttöä joutuu lapsiavioliittoon. Yleisimpiä lapsiavioliitot ovat Afrikassa Saharan eteläpuolella. Kuva: Riccardo Lennart Niels Mayer / AOP
-
-Tänään sunnuntaina vietetään kansainvälistä tyttöjen päivää. Päivää on vietetty vuodesta 2012.
-
-Päivän tarkoitus on juhlia tyttöjä. Päivä muistuttaa syrjinnästä, jota tytöt kohtaavat iän ja sukupuolen vuoksi.
-
-Tämän vuoden tyttöjen päivän teema on lapsiavioliittojen estäminen.
-
-Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
+Lämpötila on 0–7 astetta.

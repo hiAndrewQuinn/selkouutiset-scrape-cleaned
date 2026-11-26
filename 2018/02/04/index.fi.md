@@ -1,93 +1,77 @@
-# Keskiviikko 31.1.2018 (radio)
+# Sunnuntai 4.2.2018 (radio)
 
-Yhdysvaltojen presidentti Donald Trump haluaa jatkaa Guantanamon vankileirin toimintaa. Osa sähkölaitteista ei ole turvallisia. Turussa on otettu käyttöön uudenlainen röntgenlaite. Posti tuo pakettiautomaatteja tavallisiin taloihin. Elokuva Cheekistä tuli teattereihin. Lumisateen takia junia kulkee huomenna vähemmän.
+Yhteisvastuukeräys on alkanut. USA:ssa tapahtui junaonnettomuus. Suomen musiikkialan Emma-palkinnot on jaettu. Suomi sai pronssia jääpallon MM-kilpailuissa. Tämän talven uusi pakkasennätys on -37,1 astetta.
 
-## Trump haluaa jatkaa Guantanamon toimintaa
+## Yhteisvastuukeräys
 
-![Tyytyväinen Trump](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10051533)
-
-Avaa kuvien katselu
-
-Doland Trump. Kuva: Win McNamee / Epa
-
-Yhdysvaltojen presidentti Donald Trump haluaa jatkaa Guantanamon vankileirin toimintaa.
-
-Trump on allekirjoittanut määräyksen, että vankilaan voidaan tuoda uusia vankeja.
-
-USA:n edellinen presidentti Barack Obama, sanoi, että Guantanamon vankila pitää sulkea.
-
-Monet maat ovat huolissaan siitä, että USA kohtelee vankeja huonosti Guantanamon leirillä, joka sijaitsee Kuubassa.
-
-## Sähkölaitteissa turvallisuusongelmia
-
-![Älypuhelin ja laturi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10040347)
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10048582)
 
 Avaa kuvien katselu
 
-Viallinen sähkölaite voi kuumentua. Kuva: Ismo Pekkarinen / AOP
+Presidentti Niinistö avasi Yhteisvastuukeräyksen. Kuva: Pekka Sipilä / Yle
 
-Osa kauppojen sähkölaitteista ei ole turvallisia.
+Yhteisvastuukeräys on alkanut. Presidentti Sauli Niinistö avasi Yhteisvastuukeräyksen televisiossa sunnuntaina.
 
-Turvallisuus- ja kemikaalivirasto kertoo, että se on poistanut kaupoista viime vuonna yli 150 sähkölaitetta turvallisuusongelmien takia.
+Tällä kertaa Yhteisvastuukeräys auttaa ihmisiä, jotka elävät nälän ja köyhyyden keskellä.
 
-Vikaa on eniten muuntajissa ja led-lampuissa. Viallinen sähkölaite voi aiheuttaa tulipalon.
+Presidentti Niinistö sanoi, että nälkä ei ole kadonnut maailmasta. Melkein 800 miljoonaa ihmistä menee nälkäisenä nukkumaan joka ilta, presidentti sanoi. Siksi apua tarvitaan.
 
-## Uudenlainen röntgenlaite otettiin käyttöön
+Yhteisvastuukeräys auttaa ihmisiä Suomessa ja ulkomailla. Yhteisvastuukeräys on joka vuosi.
 
-![Tyksin uusi säteilyannosta vähentävä kuvauslaite.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10048450)
+## USA:n junaonnettomuus
 
-Avaa kuvien katselu
-
-Uudenlaisessa röntgenlaitteessa voi seistä. Kuva: Nadine Karell
-
-Turussa on otettu sairaalassa käyttöön uudenlainen röntgenlaite. Siitä tulee potilaalle vähemmän röntgensäteilyä, kuin vanhoista laitteista.
-
-Uudenlaisessa röntgenlaitteessa voi seistä.  Lääkärit sanovat, että kuvista tulee silloin parempia.
-
-Turun uusi röntgenlaite ottaa potilaasta myös kolmiulotteisia kuvia.
-
-## Pakettiautomaatit tulevat myös kotitaloihin
-
-![Postin työntekijöä pakettiautomaatilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9593261)
+![Kartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10058125)
 
 Avaa kuvien katselu
 
-Pakettiautomaatista ihmiset voivat hakea oman paketin tai lähettää paketin milloin vain. Kuva: Posti
+Onnettomuus tapahtui Etelä-Carolinassa junareitillä, joka kulkee New Yorkin ja Miamin välillä. Kuva: Yle Uutisgrafiikka
 
-Posti tuo pakettiautomaatteja tavallisiin taloihin.
+USA:ssa on tapahtunut junaonnettomuus. 2 ihmistä kuoli ja noin 70 ihmistä loukkaantui. Onnettomuus tapahtui junareitillä, joka kulkee New Yorkin ja Miamin välillä.
 
-Uusia pakettiautomaatteja tulee 500 taloon. Myös kauppakeskuksiin tulee paljon lisää pakettiautomaatteja.
+Onnettomuudessa matkustajajuna törmäsi tavarajunaan. Osa junan vaunuista suistui pois kiskoilta. Junassa oli noin 150 ihmistä.
 
-Pakettiautomaatista ihmiset voivat hakea oman paketin tai lähettää paketin milloin vain.
+Onnettomuuden jälkeen viranomaiset saivat kaikki matkustajat ulos junasta, ja loukkaantuneet vietiin sairaalaan.
 
-Uusiin pakettiautomaatteihin voi tilata myös ruokaa kaupasta.
+## Emma-palkinnot
 
-Pakettiautomaatteja lisätään, koska ihmiset tilaavat nykyään tavaroita paljon nettikaupoista.
-
-## Cheek-elokuva kertoo suositusta räppäristä
-
-![Antti Holma rappaa Cheekin roolissa Veljeni vartija -elokuvassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10051534)
+![Cheek](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9941177)
 
 Avaa kuvien katselu
 
-Mäyttelijä Antti Holma rappaa Cheekin roolissa Veljeni vartija -elokuvassa. Kuva: Helsinki-filmi/Veljeni vartija -elokuva
+Rap-laulaja Cheek voitti molemmat yleisöäänestykset Emma Gaalassa. Kuva: Yle
 
-Elokuva Suomen suosituimmasta rap-laulajasta Cheekistä on valmis. Se näytetään elokuvateatterissa ensimmäisen kerran tänään keskiviikkona.
+Suomen musiikkialan Emma-palkinnot on jaettu. Palkinnot jaettiin Emma Gaalassa lauantaina. Emma Gaala on suomalaisen pop-musiikin tärkein juhla vuoden aikana.
 
-Elokuvan nimi on Veljeni vartija. Se kertoo Cheekistä ja Cheekin eli Jare Tiihosen veljestä Jerestä.
+Haloo Helsinki -niminen yhtye voitti eniten palkintoja tänä vuonna. Se sai 4 Emma-palkintoa. Haloo Helsinki valittiin esimerkiksi vuoden yhtyeeksi.
 
-Elokuva kertoo, millaisia veljet olivat lapsena ja miten Jaresta tuli suosittu räppäri Cheek. Elokuva kertoo myös poptähden vauhdikkaasta elämästä.
+Yleisö valitsi voittajan 2 sarjassa, jotka olivat Vuoden artisti ja Vuoden musiikkivideo. Voittaja molemmissa sarjoissa oli Cheek.
 
-## Lumisade vaikuttaa junaliikenteeseen
+## MM-jääpallo
 
-![juna asemalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9496964)
+![Venäjä ja Suomi jääpallotaistossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10057475)
 
 Avaa kuvien katselu
 
-Junaliikennettä vähennetään lumisateen takia Helsingissä. Kuva: Varpu Helpinen / Yle
+Jääpallo on vauhdikas peli. Kuva: Lehtikuva
 
-Lumisateen takia junia kulkee huomenna vähemmän.
+Urheilua:
 
-Junia vähennetään Helsingissä ja sen lähikaupungeissa.
+Suomi on saanut pronssimitalin jääpallon MM-kilpailuissa. Suomen joukkue tuli kolmanneksi, kun se voitti pronssiottelussa Kazakstanin. Suomi teki 8 maalia, ja Kazakstan teki 4 maalia.
 
-Junafirma VR kertoo, että junavuoroja vähennetään, jotta raiteita päästään välillä puhdistamaan lumesta.
+Suomen parhaimmat maalintekijät olivat Markus Kumpuoja ja Mikko Lukkarila. Molemmat tekivät 2 maalia.
+
+Jääpallon maailmanmestari on Venäjä. Se voitti loppuottelussa Ruotsin.
+
+Jääpallon MM-kilpailut järjestettiin Venäjällä, Habarovskin kaupungissa.
+
+## Pakkasennätys
+
+![Utsjoen kirkkotuvat kylmänä talvi-iltana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9946419)
+
+Avaa kuvien katselu
+
+Tämän talven pakkasennätys on nyt -37,1 astetta. Ennätys mitattiin Utsjoella. Kuva: Esko Jämsä / AOP
+
+Sunnuntaiaamuna mitattiin tämän talven uusi pakkasennätys. Ennätys mitattiin pohjoisessa, Utsjoella Lapissa. Siellä oli pakkasta 37,1 astetta.
+
+Talven pakkasennätys mitataan melkein joka vuosi pohjoisessa. Vuodesta 1961 lähtien talven pakkasennätys on mitattu muualla kuin aivan pohjoisessa vain 3 kertaa.

@@ -1,79 +1,77 @@
-# Radio Selkouutiset perjantai 4.8.2023
+# Radio Selkouutiset lauantai 5.8.2023
 
-Sähkönsiirto. Lintuinfluenssa. Opiskelija-asunnot. Merien lämpötila. Sää.
+Al-Holin suomalaislapset. Lääkejäte. Aavikoituminen. Partiolaisten suurleiri. Sää.
 
-## Sähkönsiirto
+## Al-Holin suomalaislapset
 
-![Caruna Oy:n sähkölinja Posiolla.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2267,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115159364cbed36b6812/1691086752)
-
-Avaa kuvien katselu
-
-Sähköverkkofirma omistaa aina paikallisen sähkön jakeluverkon, jolla sähkö siirretään koteihin ja muihin kiinteistöihin. Sähköverkkofirmaa ei siksi voi vapaasti valita. Kuva: Raimo Torikka / Yle
-
-Asiakkaat joutuvat maksamaan sähkönsiirrosta eniten Kainuussa ja Pohjois-Pohjanmaalla Kajave Oy:n alueilla. Siirtofirmojen hinnat ovat korkeita myös Pohjois-Karjalassa ja Koillis-Savossa.
-
-Halvimmin sähkö siirtyy asiakkaille Keravalla ja Turussa.
-
-Paikallinen verkkofirma vastaa aina sähkönsiirrosta riippumatta siitä, mistä asiakas ostaa energian.
-
-Sähkön siirtomaksu perustuu paikalliseen perusmaksuun ja asiakkaan omaan energiankulutukseen.
-
-## Lintuinfluenssavirus
-
-![Kärsivän näköisiä turkiseläimiä häkeissään.](https://img.img-cdn.yle.fi/crop_extract,w_2493,h_1400,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106145763c92838c2125/1674127742)
+![Henkilö vartioi jonottavia ihmisiä.](https://img.img-cdn.yle.fi/crop_extract,w_2999,h_1686,x_0,y_173/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10391946380427c7b7d0/1691243345)
 
 Avaa kuvien katselu
 
-Ruokavirasto on määrännyt suuren määrän sinikettuja ja minkkejä tapettavaksi lintuinfluenssan takia. Kuva: Oikeutta eläimille
+Al-Holin leiri viime marraskuussa. Kuva: Ahmed Mardnli / EPA
 
-Lintuinfluenssa on levinnyt Suomessa 21 turkistarhalle, kertoo Terveyden ja hyvinvoinnin laitos.
+Useita suomalaislapsia asuu yhä al-Holin leirillä Syyriassa. Leirillä asuu noin 10 suomalaista, joista suurin osa on lapsia.
 
-THL varoittaa, että lintuinfluenssa on riski kansanterveydelle. THL sanoo, että turkistarhojen terveysturvallisuutta pitää parantaa.
+Suomen ulkoministeriö ei tällä hetkellä suunnittele suomalaislasten tuomista kotiin. Se johtuu pääosin siitä, että lasten äidit eivät halua olla tekemisissä suomalaisten viranomaisten kanssa.
 
-Tutkimustulokset kertovat, että turkiseläinten viruksista on löytynyt mutaatioita eli muunnoksia. Muuntuneita viruksia on todettu kahdella turkistarhalla.
+Al-Holin leirillä pidetään Isis-terroristien perheenjäseniä. Olot leirillä ovat karut.
 
-Lintuinfluenssavirus voi myös tarttua ihmiseen, kun virus sopeutuu nisäkäseläimiin.
+Al-Holista on aikaisemmin tullut takaisin Suomeen 26 lasta ja 9 aikuista.
 
-## Yhteisasuminen
+## Lääkejäte
 
-![Pieni soluasunto, sänky, työpöytä ja tuoli.](https://img.img-cdn.yle.fi/crop_extract,w_890,h_501,x_0,y_286/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6726275eb51dc2a9279/1588928068)
-
-Avaa kuvien katselu
-
-Opiskelija-asuntoja riittää vain pienelle joukolle opiskelijoita. Kuva: Elna Äyhynmäki
-
-Uusi hallitus kannustaa opiskelijoita yhteisasumiseen.
-
-Hallitus selvittää asumistukea opiskelijoiden yleisen asumistuen rinnalle. Sellainen oli käytössä silloin, kun opiskelijat saivat asumislisää, eivät yleistä asumistukea.
-
-Uudessa mallissa ehkä vain hakijan omat tulot vaikuttavat asumistuen määrään. Opiskelija voisi saada asumistukea, vaikka kumppani samassa asunnossa käy töissä.
-
-Yhteisasumista hidastaa se, että 10 viime vuoden aikana monesta tuhannesta soluasunnosta on tehty yksiö tai perheasunto.
-
-Suomessa opiskelija-asuntosäätiöt omistavat vajaat 69 000 opiskelija-asuntoa.
-
-## Merien lämpötila
-
-![Hiekkaranta kuvattuna hiekan tasolta.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114712264bf9ddf619fb/1706258859)
+![Punahihainen käsi on laittamassa lääkelevyä lääkejäteroskiin.](https://img.img-cdn.yle.fi/crop_extract,w_5400,h_3037,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115082464ca5cf60e4be/1690985200)
 
 Avaa kuvien katselu
 
-Tutkijat varoittavat, että merien lämpeneminen vaikuttaa vakavasti ihmisiin, eläimiin ja koko planeettaan.  Kuva: AOP
+Vanhat lääkkeet pitää palauttaa apteekkiin. Kuva: Joel Peltonen / Yle
 
-Valtamerten lämpötila on noussut.
+Suomalaiskodeista jää paljon lääkejätettä.
 
-Merenpinnan keskilämpötila on nyt mittaushistorian korkein. Keskimääräinen merenpinnan lämpötila oli tällä viikolla 20,96 astetta.
+Itä-Suomen yliopiston kertoo, että apteekkeihin palautetaan lääkejätettä noin 5,6 miljoonaa pakkausta vuodessa. Niistä suurin osa on reseptilääkkeitä.
 
-Edellinen ennätys on vuoden 2016 maaliskuussa: 20,95 astetta.
+Jos lääke jää käyttämättä ja se vanhenee, se on lääkejätettä.
 
-Tutkijat ovat huolissaan uuden ennätyksen ajankohdasta: normaalisti korkeat lämpötilat ovat maaliskuussa.
+Vanhoja lääkkeitä ei saa heittää roskiin tai huuhtoa alas viemäristä, vaan ne pitää palauttaa apteekkiin.
 
-## Sää
+## Aavikoituminen
 
-![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115223164cd1a1566f49/1691163278)
+![Kuivuneen joen pohja, taustalla näkyy silta.](https://img.img-cdn.yle.fi/crop_extract,w_4500,h_2531,x_0,y_164/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114780564c1179352697/1713761304)
+
+Avaa kuvien katselu
+
+Kuivuneen joen pohja Pohjois-Italiassa maaliskuussa. Kuva: Piero Cruciatti / Stella Pictures
+
+Iso osa Etelä-Eurooppaa uhkaa aavikoitua. Aavikoituminen tarkoittaa maaperän kuivumista ja sen laadun heikkenemistä.
+
+Metsätieteiden emeritusprofessori Markku Kanninen Helsingin yliopistosta sanoo, että ilmastonmuutos työntää Pohjois-Afrikan aavikkoilmastoa kohti Etelä-Eurooppaa.
+
+Vakavin tilanne on Espanjassa. YK sanoo, että Espanjan pinta-alasta jopa 75 prosenttia voi aavikoitua.
+
+## Partiolaisten suurleiri
+
+![Kuvassa nuori teini-ikäinen tyttö.](https://img.img-cdn.yle.fi/crop_extract,w_900,h_506,x_0,y_299/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115243964ce375734f26/1691236400)
+
+Avaa kuvien katselu
+
+16-vuotias Lotta Timonen kertoo, että suomalaispartiolaiset ovat kestäneet Etelä-Korean hirmuhellettä hyvin.  Kuva: Lotta Timonen
+
+Kuuma sää haittaa partiolaisten suurleiriä Etelä-Koreassa.
+
+Leirillä on koolla yli 40 000 partiolaista eri puolilta maailmaa. Suomesta mukana on noin 900 partiolaista.
+
+Leirin aikana lämpötila on ollut jopa 38 astetta. Leirisairaalassa on hoidettu satoja nuoria, jotka ovat saaneet oireita kuumuuden takia.
+
+Leiri alkoi viime tiistaina ja sen on määrä päättyä viikon kuluttua lauantaina. Britannian ja USA:n partiolaiset ovat kuitenkin kertoneet, että hirmuhelteen takia he lähtevät kotiin jo nyt. Suomalaisryhmä sen sijaan voi vielä hyvin ja aikoo jatkaa leiriä.
+
+## Sunnuntain sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115248864ce5eaa6d456/1691246308)
 
 Avaa kuvien katselu
 
 Kuva: Yle
 
-Lauantaina sade- ja ukkoskuuroja tulee eniten maan keskivaiheilla. Lämpötila on 20 astetta tai vähän yli. Pohjoisessa on viileämpää.
+Huomenna on poutaa ja laajalti aurinkoista. Pohjoisessa voi tulla heikkoja sadekuuroja.
+
+Lämpötila on 20 ja 25 asteen välillä, Lapissa viileämpää.

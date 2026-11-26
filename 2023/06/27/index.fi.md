@@ -1,71 +1,63 @@
-# Radio Selkouutiset lauantai 24.6.2023
+# Radio selkouutiset tiistai 27.6.2023
 
-Venäjän tilanne. Suomen kommentit Venäjän tilanteesta. Juhannuksen onnettomuudet. Sää.
+Sairaalat. Ulkomaalaiset työntekijät. Venäjä. Sää.
 
-## Venäjän tilanne
+## Sairaalat
 
-![Wagener-palkkasotilaita Donin Rostovin kaupungissa.](https://img.img-cdn.yle.fi/crop_extract,w_5164,h_2904,x_0,y_326/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11342346496ebbabe450/1687624402)
-
-Avaa kuvien katselu
-
-Wager-joukkoja Donin Rostovin kaupungissa Venäjällä. Kuva: Sergey Pivovarov / AOP
-
-Venäjällä on vaarallinen tilanne. Joukko palkkasotilaita on matkalla kohti Venäjän pääkaupunkia Moskovaa.
-
-Palkkasotilaat kuuluvat Wagner-joukkoihin. Ne ovat osallistuneet Venäjän sotaan Ukrainaa vastaan.
-
-Nyt Wagner-joukkojen johtaja Jevgeni Prigožin haluaa vaihtaa Venäjän armeijan johtajat. Prigožinin mielestä he ovat johtaneet sotaa huonosti.
-
-Venäjän presidentti Vladimir Putin sanoo, että Wagner on pettänyt Venäjän. Siksi hän on määrännyt, että Venäjän armeijan pitää pysäyttää Wagner-joukot.
-
-Venäjän armeija on aloittanut taistelut Wagner-joukkoja vastaan. Moskovassa monet työpaikat pidetään kiinni, jotta ihmisten ei tarvitse liikkua kaupungilla.
-
-## Suomen kommentit
-
-![Sauli Niinistö puhuu presidentinlinnassa vieraille, taustalla vihreitä kasveja.](https://img.img-cdn.yle.fi/crop_extract,w_2286,h_1285,x_806,y_434/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131753648f2d5e5045d/1687104959)
+![Lähikuva sairaanhoitajan käsistä ja iäkkään naisen käsistä. Sairaanhoitaja tarkistaa vanhuksen arvot.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1079791640023a047114/1687836272)
 
 Avaa kuvien katselu
 
-Presidentti Sauli Niinistö seuraa Venäjän tilannetta. Kuva: Benjamin Suomela / Yle
+Suomessa on liian vähän sairaanhoitajia. Kuva: Aleksei Gorodenkov / AOP
 
-Suomessa seurataan, miten Venäjän tilanne kehittyy. Presidentti Sauli Niinistö sanoo, että Venäjän tilannetta seurataan tarkasti.
+Monet sairaalat ja terveyskeskukset laittavat kesällä palveluita kiinni. Syy on se, että työntekijöitä on liian vähän. Monessa paikassa Suomessa ei ole tarpeeksi hoitajia ja lääkäreitä.
 
-Pääministeri Petteri Orpo on keskustellut Venäjän tilanteesta Viron ja Latvian pääministereiden kanssa. Maat aikovat tehdä yhteistyötä.
+Esimerkiksi joitain sänkypotilaiden osastoja laitetaan kesällä kokonaan kiinni tai potilaspaikkoja vähennetään.
 
-Viranomaiset sanovat, että suomalaisten ei kannata matkustaa Venäjälle. Arvioidaan, että Venäjällä on nyt noin 200 suomalaista.
+Monessa paikassa ne pysyvät kiinni niin kauan kuin työntekijöiden kesälomat jatkuvat. Ongelma on, että sairaalat ja terveyskeskukset eivät löydä tarpeeksi sijaisia niille työntekijöille, jotka ovat kesälomalla.
 
-## Juhannuksen onnettomuudet
+Sairaaloissa ja terveyskeskuksissa on ollut jo kauan vaikeaa löytää sijaisia. Silti esimerkiksi Turun seudulla tilanne on tänä kesänä huonompi kuin koskaan ennen.
 
-![Talin siirtolapuutarhassa on juhannusaattona perinteisesti miesten saunavuoro. ](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1078,x_0,y_120/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11341406495adc414381/1687531004)
+## Ulkomaalaiset työntekijät
+
+![Tatuoitu mies laittaa ruokaa ravintolan keittiössä. ](https://img.img-cdn.yle.fi/crop_extract,w_4478,h_2519,x_0,y_231/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8609146155fda8a9d42/1687866720)
 
 Avaa kuvien katselu
 
-Juhannus sujui rauhallisesti. Kuva: Jussi Mankkinen / Yle
+Ongelmia oli esimerkiksi ravintola-alalla. Kuva: Emilia Åberg / Yle
 
-Suomessa on vietetty juhannusta melko rauhallisesti.
+Ulkomaalaisten työntekijöiden asema Suomessa ei ole aina hyvä, kertovat viranomaiset. Ongelmia on joskus esimerkiksi rakennusfirmoissa ja ravintoloissa.
 
-Poliisilla oli kuitenkin paljon tehtäviä juhannusyönä. Juhannuksen juhlijat tappelivat ja aiheuttivat myös muuta häiriötä eri puolilla Suomea.
+Työnantajan ja työntekijän työsuhde ei ole aina kunnossa. Esimerkiksi jotkut ravintolat sanovat, että ulkomaalainen vain auttaa ravintolassa, vaikka hän tekee koko päivän työtä.
 
-Juhannusaattona joukko suomalaisia joutui onnettomuuteen merellä lähellä Viron pääkaupunkia Tallinnaa. Suomalaisten vene ajoi karille eli se törmäsi kiveen tai kallioon.
+Ulkomaalaiset työntekijät saavat joskus myös liian vähän palkkaa.
 
-Virolaiset meripelastajat veivät suomalaiset turvaan, eikä kukaan loukkaantunut. Viron poliisi kertoo, että veneen kuljettaja ei ollut juonut alkoholia.
+Joissain rakennusfirmoissa ulkomaalaiset tekevät työtä ilman työlupaa.
 
-Juhannuksena on tapahtunut myös auto-onnettomuuksia.
+Ongelmia on myös siksi, että ulkomaalaiset työntekijät eivät aina tiedä, millaiset ovat työntekijän oikeudet Suomessa. Lisäksi he eivät aina tiedä, millaiset ovat työnantajan velvollisuudet.
 
-Pohjois-Suomessa Torniossa tapahtui auto-onnettomuus juhannusaattona. Noin 80-vuotias nainen kuoli, kun auto ajoi mutkassa ulos tieltä. Auton noin 80-vuotias kuljettaja vietiin sairaalaan.
+## Venäjä
 
-Etelä-Suomessa Akaassa tapahtui auto-onnettomuus juhannusyönä. Siellä 1 ihminen kuoli, kun auto ajoi ulos tieltä.
+![Vladimir Putin seisoo Venäjän lipun edessä sisätiloissa.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_106/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11347456499ed1595abe/1687866889)
+
+Avaa kuvien katselu
+
+Venäjän presidentti Vladimir Putin piti maanantaina puheen televisiossa. Kuva: Lehtikuva
+
+Venäjä on lopettanut rikostutkinnan, joka koski Wagner-sotilaiden kapinaa. Venäjän johtajat sanovat, että Wagner-sotilaat eivät saa rikossyytettä, mutta heidän täytyy antaa pois raskaat aseet.
+
+Wagner-sotilaat sotivat pitkään Ukrainassa, mutta he aloittivat juhannuksena kapinan Venäjän sotilasjohtajia vastaan. Kapina loppui nopeasti.
+
+Wagner on yksityinen sotilasryhmä, joka ei ole osa Venäjän armeijaa.
 
 ## Sää
 
-![Kuvassa näkyy sunnuntain, maanantain ja tiistain sääkartat.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11342496496fd6ad8d81/1687616915)
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135247649af63283534/1687877240)
 
 Avaa kuvien katselu
 
-Kuva: Elias Paakkanen / Yle
+Kuva: Yle
 
-Sunnuntaina sadekuuroja tulee Etelä-Suomessa. Muualla on aurinkoista.
+Keskiviikkona voi tulla sadekuuroja ja monessa paikassa myös ukkosia.
 
-Lämpötila on sateessa alle 20 astetta, auringossa on jopa hellettä eli lämpötila on ainakin 25 astetta.
-
-Lämmin sää jatkuu ensi viikolla.
+Lämpötila on 20–26 astetta.

@@ -1,73 +1,79 @@
-# Torstai 5.4.2018 (radio)
+# Lauantai 7.4.2018 (radio)
 
-Suomi menettää miljardeja euroja joka vuosi, koska suomalaiset eivät liiku tarpeeksi. Suomen 100-vuotisjuhla näkyi maailmalla. Siitepölyaika on myöhässä. Pian on aika vaihtaa autoon kesärenkaat. Lapissa sataa vielä lunta.
+Kanadan bussionnettomuudessa kuoli 14 ihmistä. Junaliikenne on ollut poikki Kouvolan ja Mäntyharjun välillä. Presidenttiparin vauva sai nimen. Suomalaiset käyttävät paljon sosiaalista mediaa. USA:ssa tutkijat ovat keksineet laitteen, joka pystyy lukemaan ajatuksia.
 
-## Liikunnan puute maksaa
+## Bussionnettomuus Kanadassa
 
-![Poika liikuntatunnilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10042688)
-
-Avaa kuvien katselu
-
-Jumppa tekee hyvää terveydelle. Kuva: Toni Pitkänen / Yle
-
-Suomi menettää paljon rahaa, koska suomalaiset eivät liiku tarpeeksi. UKK-instituutin raportti kertoo, että liikunnan puute maksaa yhteiskunnalle vähintään 3 miljardia euroa joka vuosi.
-
-Esimerkiksi terveydenhoito on kalliimpaa, jos ihmisillä on huono kunto. Huono kunto aiheuttaa myös sairauksia, joiden takia ihminen ei pysty tekemään työtä. Silloin ihminen ei maksa yhteiskunnalle veroja, mutta yhteiskunta maksaa hänelle tukia.
-
-UKK-instituutin johtaja Tommi Vasankari ihmettelee, että Suomessa puhutaan vain vähän liikunnan puutteen kuluista. Kysymys on kuitenkin miljardeista euroista, Vasankari sanoo.
-
-## 100-vuotisjuhla huomattiin
-
-![Opiskelua Oulun Talvikankaan koulun avoimessa opetusympäristössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9795531)
+![kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10149566)
 
 Avaa kuvien katselu
 
-Suomalainen koulu kiinnosti ulkomailla myös Suomen juhlavuonna. Kuva: Paulus Markkula / Yle
+Onnettomuus tapahtui lähellä Tisdalen kaupunkia. Kuva: Yle Uutisgrafiikka
 
-Suomen 100-vuotisjuhla näkyi maailmalla. Näin kertoo Suomen ulkoministeriö.
+Kanadassa on tapahtunut paha bussionnettomuus. Onnettomuudessa kuoli 14 ihmistä.
 
-Itsenäinen Suomi täytti viime vuonna 100 vuotta, ja maailman media kertoi Suomesta enemmän kuin tavallisesti. Media kertoi Suomesta eniten naapurimaissa ja myös Saksassa, Britanniassa, USA:ssa ja Japanissa.
+Monet kuolleet olivat nuoria, koska bussi kuljetti jääkiekon juniorijoukkuetta. Joukkueen pelaajat ovat 16-21-vuotiaita.
 
-Mediaa kiinnosti eniten suomalainen koulutus. Myös suomalaisesta kulttuurista ja esimerkiksi keppihevosista kirjoitettiin paljon.
+Joukkue oli matkalla jääkiekkopeliin, kun sen bussi törmäsi rekka-autoon.
 
-## Siitepölyaika on edessä
+## Junaliikenne poikki Savon radalla
 
-![Koivu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8856708)
-
-Avaa kuvien katselu
-
-Koivun siitepölyä tulee tänä keväänä paljon. Kuva: Jyrki Lyytikkä / Yle
-
-Siitepölyaika alkaa tänä keväänä myöhemmin kuin tavallisesti. Leppäpuun siitepölyä on tullut ulkomailta Suomeen tuulen mukana, mutta muuten siitepölyä ei vielä ole ollut ilmassa.
-
-Pian puut alkavat kukkia myös Suomessa. Arvioidaan, että koivun siitepölyä tulee tänä vuonna paljon. Se tietää ongelmia allergisille ihmisille.
-
-## Kesärenkaat saavat odottaa
-
-![Kesärenkaita varastossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9622352)
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10149723)
 
 Avaa kuvien katselu
 
-Kesärenkaat voi jo vaihtaa, kun ajokeli paranee. Kuva: Antti Haavisto/Yle
+Junat korvattiin busseilla Kouvolan ja Mäntyharjun välillä. Kuva: Yle Uutisgrafiikka
 
-Pian on myös aika vaihtaa autoon kesärenkaat. Nastarenkaiden käyttöaika loppuu virallisesti ensi maanantaina.
+Täällä Suomessa junaliikenne on ollut lauantaina poikki Kouvolan ja Mäntyharjun välillä.
 
-Autoilijan ei kuitenkaan ole pakko vaihtaa renkaita maanantaihin mennessä. Nastarenkaita saa käyttää vielä myöhemminkin, jos ajokeli on huono.
+Junat eivät ole kulkeneet, koska junaradalla on ollut vaarallista ainetta. Aine oli sellaista, että se syttyy helposti tuleen.
 
-Suomessa on vielä paljon lunta, ja pääsiäisenä lunta satoi lisää. Siksi rengasliikkeissä on ollut vasta vähän asiakkaita, jotka ovat halunneet autoon kesärenkaat.
+Aine vuoti junaradalle tavaravaunusta. Vaunu ei ollut liikenteessä, mutta se pääsi liikkeelle ja meni rikki.
 
-Rengasliikkeissä odotetaan ruuhkaa, heti kun sää paranee.
+Pelastuslaitos varmisti, että aine ei syttynyt tuleen. Matkustajat kuljetettiin busseilla.
 
-## Lapissa sataa lunta
+## Presidentin pojalle nimi
 
-![Puistomaisemaa Ruskeasuo keskuspuisto Helsinki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10123753)
+![Presidentti Sauli Niinistö ja puoliso Jenni Haukio (Niinistön takana) poistuvat vastasyntyneen poikavauvansa kanssa Naistenklinikalta Helsingissä maanantaina 5. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10149821)
 
 Avaa kuvien katselu
 
-Lunta on vielä suuressa osassa maata, ja Lapissa lunta sataa lisää. Kuva: Derrick Frilund / Yle
+Presidenttiparin poika syntyi helmikuun alussa. Kuva: Emmi Korhonen / Lehtikuva
 
-Talvinen sää jatkuu. Perjantaina Lapissa voi sataa yli 10 senttimetriä lunta. Perjantain ja lauantain välisenä yönä lunta voi sataa myös etelässä. Ajokeli voi olla huono.
+Presidenttiparin vauva on saanut nimen. Vauva sai lauantaina nimen Aaro Veli Väinämö.
 
-Lauantaina on todennäköisesti kuivaa ja aurinkoista. Sää on lauantaina myös lämmin.
+Presidentti Sauli Niinistön ja rouva Jenni Haukion pojan sukunimeksi tuli Niinistö.
 
-Sunnuntaina voi tulla taas sateita.
+Presidenttipari kertoi asiasta Facebookissa.
+
+## Suomalaiset somessa
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10147032)
+
+Avaa kuvien katselu
+
+Suomalaiset käyttävät paljon somepalveluja. Kuva: Laura Koivunen | Yle Uutisgrafiikka
+
+Suomalaiset käyttävät paljon sosiaalista mediaa eli somea. Ylen uusi kysely kertoo, että 90 prosenttia suomalaisista käyttää sosiaalista mediaa.
+
+Suomalaiset käyttävät somessa eniten Whatsappia. Yli 70 prosenttia kyselyn vastaajista oli Whatsappin käyttäjiä. Whatsapp-viestit ovat tulleet tekstiviestien tilalle.
+
+Toiseksi eniten suomalaiset käyttävät Facebookia.
+
+Naisten ja miesten välillä on eroja sosiaalisen median käytössä. Naiset käyttävät Instagramia paljon enemmän kuin miehet. Instagramissa käyttäjät jakavat kuvia.
+
+Myös vanhojen ja nuorten välillä on eroja. Vanhat käyttävät Facebookia ja Whatsappia, mutta nuoret käyttävät monia eri somepalveluja.
+
+## Laite lukee ajatuksia
+
+![Miehekllä päässä laite, joka tunnistaa sanat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10149676)
+
+Avaa kuvien katselu
+
+Laite tuntee kaulan ja kasvojen lihaksista, mitä sanoja ihminen ajattelee. Kuva: MIT Media Lab
+
+Lopuksi tiedeuutinen USA:sta. Siellä tutkijat ovat keksineet laitteen, joka pystyy lukemaan ajatuksia. Laite ymmärtää sanoja, joita ihminen ajattelee.
+
+Laite pannaan kaulalle. Laite seuraa kaulan ja kasvojen lihasten liikkeitä. Nämä pienet lihakset liikkuvat, kun ihminen ajattelee sanoja. Laite ymmärtää lihasten liikkeistä, mitä ihminen ajatuksissa sanoo.
+
+Jo nykyään on koneita ja palveluja, joita ihminen käyttää puheen avulla. Uusi laite tekee ehkä mahdolliseksi, että ihminen voi käyttää koneita sanoja ajattelemalla.

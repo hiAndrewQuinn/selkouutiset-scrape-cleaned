@@ -1,73 +1,81 @@
-# Perjantai 12.1.2018 (radio)
+# Lauantai 20.1.2018 (radio)
 
-Verkkofirma Nokia vähentää työpaikkoja. Suomen talous kasvaa. Suomessa rakennetaan paljon asuntoja. Kuningatar Elisabet on antanut harvinaisen haastattelun. Nuoret käyttävät energiajuomia väärin.
+Turkissa on tapahtunut bussionnettomuus. Kemin Lumilinna on avattu. Nuoruus kestää nykyään kauemmin kuin ennen. Alamäkiluistelija Mirko Lahti voitti junioreiden MM-sarjan kilpailun. Pakkassää loppuu ensi viikolla.
 
-## Nokia irtisanoo
+## Bussionnettomuus Turkissa
 
-![Nokian pääkonttori Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8791622)
-
-Avaa kuvien katselu
-
-Nokia on nykyään tietoliikennealalla. Kuva: Markku Ojala / AOP
-
-Verkkofirma Nokia vähentää työpaikkoja. Nokia vähentää Suomesta 80 työpaikkaa.
-
-Nokia arvioi aikaisemmin, että sen pitää vähentää melkein 200 työpaikkaa. Nokian ja sen työntekijöiden yhteistyöneuvotteluissa määrää voitiin pienentää. Joillekin työntekijöille löytyi Nokiasta uusi tehtävä.
-
-Lisäksi Nokia auttaa työntekijöitä löytämään uutta työtä, jos he nyt menettävät työpaikan.
-
-## Talous kasvaa
-
-![Mies hitsaa teräspalkkia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6687460)
+![Pelastusviranomaiset turmapaikalla Turkin Eskisehirissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10032954)
 
 Avaa kuvien katselu
 
-Metalliteollisuudella menee hyvin. Kuva: Mika Moksu / Yle
+Bussi ajoi päin puita Turkissa. Kuva: Emrah Yasar / EPA
 
-Suomen talous kasvaa. Suomen Hypoteekkiyhdistys kertoo, että talous kasvaa nyt nopeasti.
+Turkissa on tapahtunut paha bussionnettomuus. Ainakin 11 ihmistä kuoli ja yli 40 ihmistä loukkaantui.
 
-Kasvu on nopeaa etenkin metalliteollisuudessa ja metsäteollisuudessa. Myös matkailualalla menee hyvin.
+Onnettomuus tapahtui aikaisin lauantaiaamuna. Bussi oli matkalla Ankarasta Bursaan, kun se törmäsi puihin.
 
-Hypoteekkiyhdistys arvioi, että kasvu jatkuu vielä monta vuotta.
+Suurin osa bussin matkustajista oli hiihtolomalla. He olivat matkalla laskettelukeskukseen.
 
-## Asuntoja rakennetaan
+Vielä ei tiedetä, mikä oli onnettomuuden syy. Poliisi on pidättänyt bussin molemmat kuljettajat.
 
-![Keskustakirjaston rakennustyömaa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9781606)
+## Kemin Lumilinna
 
-Avaa kuvien katselu
-
-Uusia asuntoja rakennetaan paljon. Kuva: Jani Saikko / Yle
-
-Suomessa rakennetaan paljon asuntoja. Rakentaminen on vilkasta, koska Suomen talous kasvaa. Etenkin kerrostaloja rakennetaan enemmän kuin kymmeniin vuosiin.
-
-Asuntojen rakentaminen vaikuttaa esimerkiksi vuokriin. Uusia asuntoja on niin paljon, että vuokrat eivät ehkä nouse enää niin nopeasti kuin ennen. Se on hyvä uutinen monelle vuokralaiselle, koska vuokrat ovat viime vuosina nousseet nopeammin kuin hinnat.
-
-Tiedot ovat laitokselta, jonka nimi on Pellervon taloustutkimus.
-
-## Kuningatar Elisabet
-
-![Kuningatar Elisabet](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9686161)
+![Kemin Lumilinnan ravintola.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10033018)
 
 Avaa kuvien katselu
 
-Britannian kuningatar Elisabet II. Kuva: Pool / EPA
+Lumilinnassa on esimerkiksi ravintola. Kuva: Minna Aula / Yle
 
-Britannian kuningatar Elisabet on antanut harvinaisen haastattelun BBC:lle. Kuningatar kertoi kruunajaisista, jotka järjestettiin vuonna 1953. Silloin nuori kuningatar sai vallan merkit, esimerkiksi kruunun.
+Täällä Suomessa Kemin Lumilinna on nyt auki.
 
-Nyt 65 vuotta myöhemmin kuningatar Elisabet sanoo, että kruunu oli päässä raskas. Se painoi paljon. Myös vanhat vaunut olivat epämukavat, kuningatar kertoo. Elisabet meni kruunajaisiin kullatuilla vaunuilla, joita hevoset vetivät.
+Tänä vuonna Kemin Lumilinnan teema on metsän eläimet. Lumilinnasta löytyy myös hotelli ja ravintola.
 
-## Energiajuomat
+Tämä on 23. kerta, kun Kemiin on rakennettu iso lumilinna.
 
-![Energiajuomatölkkejä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10018413)
+## Pitkä nuoruus
+
+![Nuorisoa värifestivaaleilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10032264)
 
 Avaa kuvien katselu
 
-Energiajuomat eivät sovi lapsille. Kuva: Juulia Tillaeus / Yle
+Nuoruus jatkuu nykyään pitkään. Kuva: Marton Monus / EPA
 
-Nuoret käyttävät energiajuomia väärin. Nuoria on joutunut Suomessa sairaalaan energiajuomien takia. Ulkomailla nuoria on jopa kuollut.
+Nuoruus kestää nykyään kauemmin kuin ennen. Näin sanovat brittiläiset tutkijat.
 
-Energiajuomissa on tosi paljon kofeiinia. Siksi ne vaikuttavat sydämeen. Iso kofeiinimäärä voi aiheuttaa sydänkohtauksen.
+Nuoruus alkaa murrosiässä, ja murrosikä alkaa nykyään 4 vuotta aikaisemmin kuin ennen. Tutkijat sanovat, että murrosikä alkaa nykyään jo 10-vuotiaana.
 
-Lastenlääkäri Timo Sillanpää sanoo, että lasten ei pidä juoda energiajuomia ollenkaan.
+Murrosikä alkaa aikaisemmin, koska ravinto on parantunut. Murrosiän aikana ihmisestä kasvaa biologisesti aikuinen.
 
-Nuoret juovat energiajuomia usein siksi, että he eivät nuku tarpeeksi. Monet pelaavat tietokoneella koko yön ja pysyvät hereillä kofeiinin avulla.
+Tutkijat sanovat, että nuoruus myös jatkuu pitempään. Nuoruus loppuu nykyään vasta 24-vuotiaana eli 5 vuotta myöhemmin kuin ennen.
+
+Nuoruus loppuu myöhemmin, koska nuoret opiskelevat pitempään ja saavat lapsia myöhemmin kuin ennen. Myös aivot kehittyvät vielä yli 20-vuotiaana.
+
+Tutkijat kuitenkin muistuttavat, että nuoria ei saa kohdella lapsina.
+
+## Suomalainen voitti
+
+![alamäkiluistelu st. paul](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8706132)
+
+Avaa kuvien katselu
+
+Alamäkiluistelussa on kova vauhti. Kuva: EPA
+
+Nuori suomalainen urheilija Mirko Lahti on menestynyt hyvin. Lahti on alamäkiluistelija.
+
+Lahti voitti junioreiden MM-sarjan ensimmäisen kilpailun. Kilpailu oli Saint Paulissa, USA:ssa.
+
+Alamäkiluistelussa luistelijat laskevat kilparataa alas kovaa vauhtia. Vauhti voi olla yli 80 kilometriä tunnissa.
+
+Mirko Lahti kilpailee myös miesten sarjassa. Lahti aloitti miesten kilpailun hyvin ja pääsi loppukilpailuun eli finaaliin. Sunnuntaina selviää, kuinka hyvin Lahti menestyy miesten finaalissa.
+
+## Sää muuttuu
+
+![Ihmisiä lumipyryssä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10032982)
+
+Avaa kuvien katselu
+
+Luminen sää jatkuu vielä joitakin päiviä. Kuva: Martti Kainulainen / Lehtikuva
+
+Kylmä sää loppuu ensi viikolla. Vielä maanantaina ja tiistaina pakkasta on koko maassa, etelässä noin 15 astetta ja pohjoisessa jopa 30 astetta.
+
+Keskiviikkona sää lämpenee, ja torstaina lämpötila on nollan yläpuolella melkein koko maassa. Etelä-Suomessa sataa myös vettä.

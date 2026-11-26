@@ -1,93 +1,73 @@
-# Keskiviikko 31.1.2018 (radio)
+# Lauantai 3.2.2018 (radio)
 
-Yhdysvaltojen presidentti Donald Trump haluaa jatkaa Guantanamon vankileirin toimintaa. Osa sähkölaitteista ei ole turvallisia. Turussa on otettu käyttöön uudenlainen röntgenlaite. Posti tuo pakettiautomaatteja tavallisiin taloihin. Elokuva Cheekistä tuli teattereihin. Lumisateen takia junia kulkee huomenna vähemmän.
+Presidenttiparille on syntynyt vauva. Suomalaiset ovat innostuneet presidenttiparin vauvasta. Monet ovat sairastuneet likaisen hanaveden takia Nousiaisissa. Suomen luonnosta löytyy terveellistä ruokaa. Talvisää on alkanut koko Suomessa.
 
-## Trump haluaa jatkaa Guantanamon toimintaa
+## Presidenttipari sai vauvan
 
-![Tyytyväinen Trump](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10051533)
-
-Avaa kuvien katselu
-
-Doland Trump. Kuva: Win McNamee / Epa
-
-Yhdysvaltojen presidentti Donald Trump haluaa jatkaa Guantanamon vankileirin toimintaa.
-
-Trump on allekirjoittanut määräyksen, että vankilaan voidaan tuoda uusia vankeja.
-
-USA:n edellinen presidentti Barack Obama, sanoi, että Guantanamon vankila pitää sulkea.
-
-Monet maat ovat huolissaan siitä, että USA kohtelee vankeja huonosti Guantanamon leirillä, joka sijaitsee Kuubassa.
-
-## Sähkölaitteissa turvallisuusongelmia
-
-![Älypuhelin ja laturi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10040347)
+![Tasavallan presidentti Sauli Niinistö ja rouva Jenni Haukio.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10057586)
 
 Avaa kuvien katselu
 
-Viallinen sähkölaite voi kuumentua. Kuva: Ismo Pekkarinen / AOP
+Presidentti Sauli Niinistö ja rouva Jenni Haukio. Kuva: Seppo Samuli / Lehtikuva
 
-Osa kauppojen sähkölaitteista ei ole turvallisia.
+Presidenttiparille on syntynyt vauva. Presidentti Sauli Niinistö ja rouva Jenni Haukio saivat poikavauvan perjantai-iltana.
 
-Turvallisuus- ja kemikaalivirasto kertoo, että se on poistanut kaupoista viime vuonna yli 150 sähkölaitetta turvallisuusongelmien takia.
+Äiti ja vauva voivat hyvin. Vauva syntyi Helsingissä Naistenklinikalla. Presidentti Niinistö oli mukana synnytyksessä.
 
-Vikaa on eniten muuntajissa ja led-lampuissa. Viallinen sähkölaite voi aiheuttaa tulipalon.
+Tämä on ensimmäinen kerta Suomessa, kun presidentille syntyy vauva. Muiden Suomen presidenttien lapset ovat syntyneet ennen kuin vanhemmista tuli presidenttipari. 
 
-## Uudenlainen röntgenlaite otettiin käyttöön
+## Suomalaiset innostuivat vauvasta
 
-![Tyksin uusi säteilyannosta vähentävä kuvauslaite.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10048450)
-
-Avaa kuvien katselu
-
-Uudenlaisessa röntgenlaitteessa voi seistä. Kuva: Nadine Karell
-
-Turussa on otettu sairaalassa käyttöön uudenlainen röntgenlaite. Siitä tulee potilaalle vähemmän röntgensäteilyä, kuin vanhoista laitteista.
-
-Uudenlaisessa röntgenlaitteessa voi seistä.  Lääkärit sanovat, että kuvista tulee silloin parempia.
-
-Turun uusi röntgenlaite ottaa potilaasta myös kolmiulotteisia kuvia.
-
-## Pakettiautomaatit tulevat myös kotitaloihin
-
-![Postin työntekijöä pakettiautomaatilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9593261)
+![niinistö fb vauvauutinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10057343)
 
 Avaa kuvien katselu
 
-Pakettiautomaatista ihmiset voivat hakea oman paketin tai lähettää paketin milloin vain. Kuva: Posti
+Presidenttipari on saanut onnitteluja Facebookissa.
 
-Posti tuo pakettiautomaatteja tavallisiin taloihin.
+Suomalaiset ovat innostuneet presidenttiparin vauvasta. Presidenttipari on saanut paljon onnitteluja esimerkiksi Facebookin kautta.
 
-Uusia pakettiautomaatteja tulee 500 taloon. Myös kauppakeskuksiin tulee paljon lisää pakettiautomaatteja.
+Monet ovat lähettäneet presidenttiparille kirjeitä ja paketteja jo ennen vauvan syntymää. Monista paketeista on löytynyt pienet villasukat, jotka lähettäjä on itse kutonut.
 
-Pakettiautomaatista ihmiset voivat hakea oman paketin tai lähettää paketin milloin vain.
+## Nousiaisten vesijohtoja puhdistetaan
 
-Uusiin pakettiautomaatteihin voi tilata myös ruokaa kaupasta.
-
-Pakettiautomaatteja lisätään, koska ihmiset tilaavat nykyään tavaroita paljon nettikaupoista.
-
-## Cheek-elokuva kertoo suositusta räppäristä
-
-![Antti Holma rappaa Cheekin roolissa Veljeni vartija -elokuvassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10051534)
+![Mies täyttää vesikanisteria Nousiaisten kuntaan tuodusta vesisäiliöstä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10049359)
 
 Avaa kuvien katselu
 
-Mäyttelijä Antti Holma rappaa Cheekin roolissa Veljeni vartija -elokuvassa. Kuva: Helsinki-filmi/Veljeni vartija -elokuva
+Nousiaisissa ihmiset ovat hakeneet puhdasta juomavettä säiliöistä. Kuva: Lassi Lähteenmäki / Yle
 
-Elokuva Suomen suosituimmasta rap-laulajasta Cheekistä on valmis. Se näytetään elokuvateatterissa ensimmäisen kerran tänään keskiviikkona.
+Turun lähellä Nousiaisissa monet ovat sairastuneet likaisen hanaveden takia. Noin 400 ihmistä on saanut vatsataudin.
 
-Elokuvan nimi on Veljeni vartija. Se kertoo Cheekistä ja Cheekin eli Jare Tiihosen veljestä Jerestä.
+Likaista viemärivettä pääsi juomaveteen, kun putki meni rikki. Ihmiset eivät ole saaneet juoda hanavettä viikkoon.
 
-Elokuva kertoo, millaisia veljet olivat lapsena ja miten Jaresta tuli suosittu räppäri Cheek. Elokuva kertoo myös poptähden vauhdikkaasta elämästä.
+Nyt Nousiaisten vesijohtoja puhdistetaan kloorilla.
 
-## Lumisade vaikuttaa junaliikenteeseen
+## Terveyttä Suomen luonnosta
 
-![juna asemalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9496964)
+![Franco Berrino Kuusamossa Oivankijärven jäällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10040759)
 
 Avaa kuvien katselu
 
-Junaliikennettä vähennetään lumisateen takia Helsingissä. Kuva: Varpu Helpinen / Yle
+Italialainen lääkäri Franco Berrino saa terveyttä Suomen luonnosta. Kuva: Ensio Karjalainen / Yle
 
-Lumisateen takia junia kulkee huomenna vähemmän.
+Suomen luonnosta saa ruokaa, joka parantaa terveyttä. Näin sanoo italialainen tutkijalääkäri Franco Berrino.
 
-Junia vähennetään Helsingissä ja sen lähikaupungeissa.
+Berrinon mielestä puhtaan suomalaisen puhtaan järven kala on lääkettä. Hän kehuu myös Suomen metsien marjoja, esimerkiksi mustikkaa. Hän on varma siitä, että järvikalat ja metsämarjat parantavat terveyttä. Berrinon mielestä suomalaiset ovat hölmöjä, kun eivät käytä enemmän oman luonnon aarteita.
 
-Junafirma VR kertoo, että junavuoroja vähennetään, jotta raiteita päästään välillä puhdistamaan lumesta.
+Berrino on ihastunut myös suomalaiseen saunaan. Saunominen tuo mielenrauhaa, ja se parantaa terveyttä, Berrino sanoo.
+
+Nyt Berrino on Kuusamossa, Pohjois-Suomessa. Hän on tuonut sinne myös 30 muuta lääkäriä Italiasta katsomaan puhdasta Suomen luontoa.
+
+## Pakkassäätä koko maahan
+
+![Jalankulkija pakkasessa Muoniossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10057445)
+
+Avaa kuvien katselu
+
+Lapissa on ollut pakkasta jo pitkään. Kuva: Aku Häyrynen / Lehtikuva
+
+Talvisää on alkanut koko Suomessa. Pakkasta on nyt myös Etelä-Suomessa.
+
+Lähipäivinä etelässä on pakkasta yli 10 astetta. Ensi viikon puolivälin jälkeen sää vähän lämpenee, mutta lämpötila pysyy pakkasella.
+
+Lapissa pakkasta on ollut jo kauan. Tämän viikonlopun aikana pakkanen kiristyy, kertoo Ylen meteorologi Toni Hellinen. On pieni mahdollisuus, että pakkanen nousee Lapissa jopa 40 asteeseen.

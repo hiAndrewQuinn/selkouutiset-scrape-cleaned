@@ -1,93 +1,77 @@
-# Perjantai 10.5.2019 (radio)
+# Lauantai 11.5.2019 (radio)
 
-Perussuomalaiset on suosituin puolue. Hallitusneuvottelut jatkuivat. Vähintään 60 hukkui Välimerellä. Puhelut ja tekstiviestit halpenevat EU:ssa. Eläinten salakuljettaja tuomittiin vankilaan. Rabies-tautia on Suomessa enemmän kuin ennen.
+Lapsiasiavaltuutettu sanoo, että suomalaisten vierastaistelijoiden lapset pitää hakea Suomeen. Venäläiset hakevat paljon viisumeita Suomeen. Timo Soini kirjoittaa seuraavaksi kirjan. Kiljuhanhien määrä on kääntynyt kasvuun. Jääkiekon MM-kisat alkoivat.
 
-## Puolueiden kannatus
+## Lapsiasiavaltuutettu: Isis-lapset pitää hakea kotiin
 
-![Puoluekannatusluvut](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10775924)
-
-Avaa kuvien katselu
-
-Kuva: Yle Uutisgrafiikka
-
-Perussuomalaiset on nyt Suomen suosituin puolue. Perussuomalaisia kannattaa noin 19 % suomalaisista.
-
-SDP:n kannatus on noin 18 %. SDP on nyt toiseksi suosituin puolue.
-
-Kolmanneksi suosituin puolue on kokoomus. Kokoomusta kannattaa noin 17 % suomalaisista.
-
-Keskusta ja vihreät ovat yhtä suosittuja. Kumpaakin puoluetta kannattaa 13,3 % suomalaisista.
-
-## Hallitusneuvottelut
-
-![Antti Rinne](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10776600)
+![Sosiaalityön professori Elina Pekkarinen, lapsiasiavaltuutettu 1. toukokuuta 2019 alkaen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10675413)
 
 Avaa kuvien katselu
 
-Hallituksen muodostajan Antti Rinteen mukaan hallitusneuvottelut ovat päässeet hyvään alkuun. Kuva: Pekka Tynell / Yle
+Lapsiasiavaltuutettu Elina Pekkarinen. Kuva: Jouni Koutonen / Yle
 
-Hallitusneuvottelut ovat jatkuneet tänään.
+Uusi lapsiasiavaltuutettu sanoo, että suomalaisten vierastaistelijoiden lapset pitää hakea Suomeen turvaan.
 
-Neuvotteluja johtaa SDP-puolueen puheenjohtaja Antti Rinne. Rinne sanoo, että neuvottelut ovat edenneet yhtä nopeasti kuin hän on suunnitellut.
+Lapsiasiavaltuutettu Elina Pekkarinen sanoo lehtihaastattelussa, että esimerkiksi suomalaisten Isis-taistelijoiden lapsilla on samanlainen oikeus suojeluun kuin muillakin suomalaislapsilla.
 
-Hallitusneuvotteluissa on viikonloppuna tauko. Neuvottelut jatkuvat maanantaina. Neuvotteluissa on mukana 5 puoluetta.
+Suojelupoliisi sanoo, että Syyrian ja Irakin konfliktialueille on matkustanut Suomesta ainakin 80 ihmistä. Heistä noin 30 on lapsia. Alueella on myös syntynyt lapsia, joilla on side Suomeen.
 
-## Laivaonnettomuus Välimerellä
+## Venäläiset hakevat viisumeita
 
-![Tunisian kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10481477)
-
-Avaa kuvien katselu
-
-Tunisia Kuva: Yle Uutisgrafiikka
-
-Ainakin 60 ihmistä on saanut surmansa laivaonnettomuudessa Välimerellä.
-
-Laiva upposi Tunisian edustalla. Laiva oli matkalla Libyasta Europpaan.
-
-Paikalliset kalastajat onnistuivat pelastamaan 16 ihmistä.
-
-Osa veneen matkustajista oli Bangladeshista ja Marokosta.
-
-## Puhelut ja tekstiviestit halpenevat EU:ssa
-
-![Kännykän näyttö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10287498)
+![viisumihakemus suomen pietarin pääkonsulaatti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10534482)
 
 Avaa kuvien katselu
 
-Kuva: Perttu Ruokangas / Yle
+Venäläiset hakevat nyt Suomen viisumeita ennätystahtiin. Kuva: Kari Kosonen / Yle
 
-EU:n alueen sisällä soitettavien puheluiden ja tekstiviestien hinnat alenevat.
+Venäläiset hakevat nyt paljon viisumeita Suomeen.
 
-Puheluille ja tekstiviesteille tulee ensi viikon keskiviikkona maksimihinta. Puhelu saa maksaa enintään 19 senttiä minuutilta. Tekstiviestit saavat maksaa enintään 6 senttiä kappale.
+Lännen Media kertoo, että esimerkiksi Pietarissa Suomen pääkonsulaattiin jätettiin huhtikuussa noin 63 000 viisumihakemusta. Se on 37 prosenttia enemmän kuin viime vuoden huhtikuussa.
 
-Hintoihin lisätään vero ja se hinta, jonka puhelu tai tekstiviesti maksaa Suomessa.
+Venäläiset hakevat nyt paljon viisumeita myös muihin EU-maihin. Hakemusten määrä on kasvanut esimerkiksi Tshekissä, Ranskassa ja Espanjassa.
 
-## Koirien salakuljettaja vankilaan
+## Timo Soini kirjoittaa kirjan
 
-![Labradorinnoutajan pentuja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5433793)
-
-Avaa kuvien katselu
-
-Kuva: Julian Smith / EPA
-
-Suomeen koiria salakuljettanut henkilö on tuomittu vankeuteen. Hän joutuu olemaan vankilassa vuoden.
-
-Tuomittu henkilö oli tuonut Suomeen laittomasti monta sataa koiraa ja myynyt koirat.
-
-Uudet omistajat huomasivat, että koirat olivat vakavasti sairaita. Koirat jouduttiin lopettamaan.
-
-Myös kaksi muuta henkilöä tuomittiin, koska he olivat salakuljettaneet koiria. He eivät joudu vankilaan, mutta he joutuvat maksamaan sakkoja.
-
-## Rabies Suomessa
-
-![Mies odottaa koiriensa kanssa rokotusvuoroaan eläinlääkärille.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6524703)
+![Timo Soini](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10778705)
 
 Avaa kuvien katselu
 
-Mies odotti koiriensa kanssa rokotusvuoroaan eläinlääkärille Denpasarissa, Balilla, Indonesiassa marraskuussa 2010. Balin viranomaiset aloittivat tuolloin koirien rokotuskampanjan, jotta vuodesta 2008 saakka saarella riehunut ja yli 100 ihmistä tappanut rabiesepidemia saataisiin kuriin. Kuva: Made Nagi / EPA
+Timo Soini aikoo kirjoittaa uuden kirjan.  Kuva: Mauri Ratilainen / Yle
 
-Rabies-tauti eli vesikauhu on ehkä lisääntymässä Suomessa.
+Ulkoministeri Timo Soini on kertonut tulevaisuuden suunnitelmistaan.
 
-Suomessa annettiin viime vuonna taudin estävää hoitoa melkein 100 ihmiselle. Moni ihminen saa tartunnan ulkomailla
+Soini kertoo, että hän aikoo kirjoittaa kirjan populismista. Kirjan on määrä olla valmis jo tänä vuonna.
 
-Rabies tarttuu ihmiseen, kun häntä puree tai nuolaisee eläin. Tauti aiheuttaa kuoleman, jos sitä ei hoideta.
+Populismi on tapa tehdä politiikkaa. Populisti esittää jyrkkiä mielipiteitä ja isoja lupauksia. Niillä populisti yrittää saada kansan suosion.
+
+Soini on Perussuomalaisten entinen puheenjohtaja. Viime vuodet hän on ollut Sininen tulevaisuus -puolueessa.
+
+Soin kertoi huhtikuussa, että hän jättää politiikan. Hän hoitaa ulkoministerin tehtäviä, kunnes Suomeen on saatu uusi hallitus.
+
+## Kiljuhanhet ovat muuttomatkalla
+
+![Kiljuhanhihavaintoja tänä keväänä Oulun seudulla. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6099773)
+
+Avaa kuvien katselu
+
+Kiljuhanhet ovat uhanalaisia. Kuva: Tapio Kostet / WWF Suomi
+
+Suomessa on tällä viikolla nähty paljon kiljuhanhia. Ympäristöjärjestö WWF kertoo, että Oulun seudulla on laskettu jo yli 100 kiljuhanhea.
+
+Linnut ovat pysähtyneet Oulun seudulle vain lepäämään. Ne ovat muuttomatkalla Kreikasta Norjan Lappiin, jossa ne pesivät.
+
+Vielä 2000-luvun alussa Suomessa nähtiin alle 10 kiljuhanhea vuodessa. Nyt jo monena keväänä Oulun seudulla on nähty yli 100 lintua.
+
+## Jääkiekon MM-kisat alkoivat
+
+![Kaapo Kakko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10778730)
+
+Avaa kuvien katselu
+
+Kaapo Kakko teki Kanadaa vastaan 2 maalia. Kuva: AOP
+
+Jääkiekon maailmanmestaruuskisat alkoivat eilen perjantaina Slovakiassa.
+
+Suomen ensimmäinen ottelu oli Kanadaa vastaan. Kanada oli ennakkosuosikki, mutta Suomi yllätti ja voitti ottelun 3-1.
+
+Tänään lauantaina Suomi pelaa Slovakiaa vastaan. Peli alkaa iltayhdeksän jälkeen.

@@ -1,87 +1,65 @@
-# Lauantai 25.5.2019 (radio)
+# Sunnuntai 26.5.2019 (radio)
 
-Suomalaiset äänestävät eurovaaleissa sunnuntaina. Ranskassa tapahtui pommi-isku. Intialaiset kärsivät likaisesta ilmasta. Suomi pääsi jääkiekon MM-finaaliin. Viikonloppu on sateinen.
+Suomi on jääkiekon maailmanmestari. Euroopan parlamentin edustajat on valittu.
 
-## Eurovaalit sunnuntaina
-
-![Matti Rönkä ja Susanna Turunen tulosillan harjoituksissa. ](https://img.img-cdn.yle.fi/crop_extract,w_5922,h_3331,x_0,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5657955ce7eb3cd294e/1558703231)
+![Marko Anttila juhlii 2–1-maaliaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10802988)
 
 Avaa kuvien katselu
 
-Ylen tv-studiossa harjoiteltiin vaalilähetystä. Kuva: Karoliina Simoinen / Yle
+Marko Anttila eli "Mörkö" teki Suomelle 2 maalia. Kuva: Lehtikuva / Jussi Nukari
 
-Eurovaalit ovat tänä viikonloppuna.
+Aluksi iloinen urheilu-uutinen:
 
-Eurovaalit järjestetään kaikissa EU-maissa. Monissa maissa äänestetään sunnuntaina.
+Suomi on jääkiekon maailmanmestari. Suomi voitti loppuottelussa eli finaalissa Kanadan.
 
-Suomessa äänestyspaikat aukeavat sunnuntaina kello 9, ja ne menevät kiinni illalla kello 20.
+Suomi teki pelissä 3 maalia, mutta Kanada vain yhden. Suomen paras pelaaja oli Marko Anttila. Hän teki Suomelle 2 maalia.
 
-Eurovaaleissa EU-maiden kansalaiset valitsevat edustajat Euroopan parlamenttiin. Euroopan parlamentti säätää EU:n lakeja ja päättää esimerkiksi EU:n rahoista.
+Marko Anttila eli "Mörkö" on nyt suomalaisten sankari.
 
-Euroopan parlamentissa on yli 750 edustajaa. Suomalaiset valitsevat parlamenttiin 13 edustajaa.
+## Eurovaalit Suomessa
 
-Yle kertoo sunnuntai-iltana, ketkä pääsevät Suomesta Euroopan parlamenttiin. Vaalilähetyksiä on radiossa, televisiossa ja netissä.
-
-## Pommi-isku Ranskassa
-
-![Moottoripyöräpoliisit saattavat ambulanseja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10801480)
+![Henna Virkkunen, Petri Sarvamaa ja Sirpa Pietikäinen juhlivat kokoomuksen vaalivalvojaisissa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10802949)
 
 Avaa kuvien katselu
 
-Poliiseja ja ambulansseja räjähdyspaikalla. Kuva: Philippe Desmazes / AFP
+Henna Virkkunen, Petri Sarvamaa ja Sirpa Pietikäinen ovat kokoomuksen euroedustajat. Kuva: Tuomo Björksten / Yle
 
-Ranskan poliisi etsii pommi-iskun tekijää.
+Sunnuntaina on järjestetty myös Euroopan parlamentin vaalit. EU-maiden kansalaiset ovat valinneet uudet edustajat Euroopan parlamenttiin.
 
-Ranskassa tapahtui pommi-isku perjantai-iltana. Kukaan ei kuollut iskussa, mutta yli 10 ihmistä loukkaantui.
+Suomalaiset valitsivat Euroopan parlamenttiin 13 edustajaa.
 
-Pommi-isku tapahtui Lyonin kaupungissa. Lyonin keskustassa räjähti pakettipommi.
+Kokoomus sai Suomessa eniten ääniä. Kokoomus saa Euroopan parlamenttiin 3 edustajaa. Kokoomus on puolue, joka kannattaa EU-maiden yhteistyötä.
 
-Valvontakamera kuvasi miehen, joka jätti laukun räjähdyspaikalle. Kuvassa on noin 30-vuotias mies. Poliisi etsii kuvan miestä.
+Vihreiden kannatus Suomessa kasvoi, ja puolue sai toiseksi eniten ääniä. Vihreät saa Euroopan parlamenttiin 2 edustajaa. Vihreät on puhunut vaalikampanjassa paljon ilmastonmuutoksesta.
 
-## Intian ilmansaasteet
+Myös 5 muuta suomalaista puoluetta saa edustajia Euroopan parlamenttiin. SDP, perussuomalaiset ja keskusta saavat 2 edustajaa. Vasemmistoliitto ja RKP saavat 1 edustajan.
 
-![Keuhkolääkäri Arup Halder tutkii viisivuotiaan Arya Bosen nielua Intian Kolkatassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10800704)
+## Eurovaalit muualla EU:ssa
 
-Avaa kuvien katselu
-
-Lääkäri tutkii lasta, joka on sairastunut ilmansaasteiden takia. Kuva: Jenny Matikainen / Yle
-
-Intialaiset kärsivät likaisesta ilmasta. Ilmassa on niin paljon saasteita, että monet sairastuvat.
-
-Yli miljoona intialaista kuoli ilmansaasteiden takia vuonna 2017.
-
-Lääkärit ja monet järjestöt toivovat, että Intiaan julistetaan hätätila ilmansaasteiden takia.
-
-## Suomi MM-finaaliin
-
-![Marko Anttila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10802040)
+![Saksan vihreiden kärkimeppiehdokas Sven Giegold iloitsi vaalivalvojaisissa Berliinissä ensimmäisten ovensuukyselyiden tultua julki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10802758)
 
 Avaa kuvien katselu
 
-Marko Anttila teki Suomen voittomaalin. Kuva: Joe Klamar / AFP / Lehtikuva
+Saksan vihreät juhlivat vaalivoittoa. Kuva: OMER MESSINGER/ EPA
 
-Suomen jääkiekkojoukkueen menestys MM-kilpailuissa jatkuu.
+Euroopan parlamentin vaalit järjestettiin kaikissa Euroopan unionin maissa. EU-maita on 28.
 
-Suomi voitti lauantaina Venäjän. Se tarkoittaa, että Suomi pelaa sunnuntaina loppuottelussa eli finaalissa.
+Monissa EU-maissa on puolueita, jotka eivät halua vahvaa unionia. Nämä populistipuolueet sanovat, että EU on esimerkiksi päästänyt Eurooppaan liian paljon turvapaikanhakijoita. Esimerkiksi Ranskassa Marine Le Penin populistipuolue sai vaalivoiton.
 
-Loppuottelun voittaja on jääkiekon maailmanmestari. Loppuottelu pelataan sunnuntai-iltana.
+Suurimmassa EU-maassa eli Saksassa vaalitulos oli erilainen kuin Ranskassa. Saksassa vihreä puolue sai vaalivoiton. Sille ympäristöasiat ovat tärkeitä.
 
-Lauantain peli oli jännittävä. Suomi ja Venäjä taistelivat ankarasti.
+Kaikkien EU-maiden vaalitulokset saadaan maanantaina.
 
-Peli oli pitkään tasan 0-0. Viimeisessä erässä Suomen Marko Anttila teki kuitenkin maalin, ja Suomi pääsi MM-finaaliin.
+## Euroopan parlamentti
 
-## Viileä viikonloppu
-
-![Miehet grillaavat sateessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8978831)
+![Euroopan parlamentin jäsenet äänestivät täysistunnossa 6. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10063488)
 
 Avaa kuvien katselu
 
-Kesä on kesä, vaikka sataa. Kuva: Mika Kanerva / Yle
+Euroopan parlamentti tekee työtä Brysselissä, Belgiassa. Kuva: Patrick Seeger / EPA
 
-Viikonloppu on sateinen. Lauantaina on satanut vettä joka puolella Suomea.
+Euroopan parlamentissa on yhteensä 751 edustajaa.
 
-Ylen meteorologi Joonas Koskela kertoo, että sunnuntaina Suomeen tulee uusia sateita.
+EU-maan asukasluku ratkaisee sen, kuinka monta edustajaa maa saa Euroopan parlamenttiin. Suurin EU-maa Saksa saa parlamenttiin 96 edustajaa. Pienimmät maat, esimerkiksi Viro, saavat 6 edustajaa.
 
-Viikonloppu on myös viileä, eli lämpötila ei nouse korkealle. Lämpötila on etelässä 10 ja 15 asteen välillä, pohjoisessa 5 ja 10 asteen välillä.
-
-Myös ensi viikon alussa sää on melko viileä.
+Euroopan parlamentilla on tärkeitä tehtäviä. Se säätää EU:n lakeja ja päättää EU:n rahoista.

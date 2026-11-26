@@ -1,7 +1,7 @@
-# Keskiviikko 21.2.2018 (tv)
+# Torstai 22.2.2018 (tv)
 
-Suomelle pronssia naisten jääkiekossa. Ulkomaiset asunto-sijoittajat tulivat Suomeen. Opinto-ohjaaja kokeilee ammattikoulua. Biohajoavia pakkauksia muovista. Säätiedot.
+Lumitöitä on paljon tänä talvena. Ihmisoikeusjärjestö Amnesty moittii Suomea. Virolaiset juhlivat 100-vuotiasta Viroa. Luminen talvi antaa myös helsinkiläisille lapsille mahdollisuuden liikkua enemmän. Säätiedot lupaavat kylmää ja aurinkoista säätä.
 
 Yle Uutiset selkosuomeksi
 
-Suomelle pronssia naisten jääkiekossa. Ulkomaiset asunto-sijoittajat tulivat Suomeen. Opinto-ohjaaja kokeilee ammattikoulua. Biohajoavia pakkauksia muovista. Säätiedot.
+Lumitöitä on paljon tänä talvena. Ihmisoikeusjärjestö Amnesty moittii Suomea. Virolaiset juhlivat 100-vuotiasta Viroa. Luminen talvi antaa myös helsinkiläisille lapsille mahdollisuuden liikkua enemmän. Säätiedot lupaavat kylmää ja aurinkoista säätä.

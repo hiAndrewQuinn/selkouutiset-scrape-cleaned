@@ -1,67 +1,73 @@
-# Perjantai 22.6.2018 (radio)
+# Sunnuntai 24.6.2018 (radio)
 
-Sähköt ovat olleet poikki eri puolilla Suomea. Pääministeri Juha Sipilä osallistuu EU-johtajien tapaamiseen Brysselissä. Uudet perunat ovat tulleet kauppaan tänä vuonna aikaisin. Juhannustaika voi tuoda rakkauden.
+EU-johtajat ovat tavanneet Brysselissä. Turkkilaiset ovat äänestäneet vaaleissa. Naiset saavat ajaa autoa Saudi-Arabiassa. Kesä tuli Suomen luontoon tänä vuonna aikaisin.
 
-## Tuuli katkaisi sähköjä
+## EU-johtajat tapasivat
 
-![Sähkölinja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10167211)
-
-Avaa kuvien katselu
-
-Kova tuuli voi tehdä vahinkoa sähkölinjoille. Kuva: Petteri Sopanen / Yle
-
-Sähköt ovat olleet poikki eri puolilla Suomea. Monta tuhatta kotia on ollut ilman sähköä perjantaina eli juhannusaattona.
-
-Sähköt katkesivat kovan tuulen takia. Tuuli on ollut perjantaina niin kovaa, että se on kaatanut puita sähköjohtojen päälle.
-
-Tuuli haittasi myös junaliikennettä. Junaliikenne Iisalmen ja Kajaanin välillä Itä-Suomessa oli poikki jonkin aikaa, koska tuuli kaatoi puita junaradalle.
-
-## Sipilä matkustaa EU-tapaamiseen
-
-![Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10268641)
+![Siirtolaisia veneessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8271322)
 
 Avaa kuvien katselu
 
-Pääministeri Juha Sipilä. Kuva: Antti Aimo-Koivisto / Lehtikuva
+EU-johtajat yrittävät sopia, mitä tehdä Välimeren kautta Eurooppaan tulijoille. Kuva: Alessandro di Meo / EPA
 
-Suomen pääministeri Juha Sipilä tapaa muita EU-johtajia sunnuntaina. Sipilä osallistuu EU-johtajien tapaamiseen Brysselissä.
+Suomen pääministeri Juha Sipilä on osallistunut EU-johtajien tapaamiseen Brysselissä.
 
-Tapaamisessa johtajat keskustelevat maahanmuutosta ja pakolaisista ja valmistautuvat Euroopan unionin huippukokoukseen. Huippukokous järjestetään ensi viikolla.
+Tapaamisessa oli mukana 16 EU-maan johtajat. He keskustelivat maahanmuutosta ja turvapaikka-asioista.
 
-Maahanmuutto on ajankohtainen teema Euroopassa. Osa EU-maista haluaa vähentää maahanmuuttoa.
+Monet ihmiset yrittävät tulla Eurooppaan Välimeren kautta. EU-maat ovat eri mieltä siitä, mitä näille ihmisille pitää tehdä.
 
-Saksan johtaja, liittokansleri Angela Merkel toivoo, että EU-maat sopivat yhdessä, miten maahanmuuttoa ja pakolaisasioita hoidetaan.
+Kaikkien EU-maiden virallinen kokous turvapaikka-asioista järjestetään torstaina.
 
-## Varhaisperuna on kesäherkku
+## Turkkilaiset äänestivät
 
-![Varhaisperuna viedään pellolta pesuun ja kylmäsäilytykseen, josta peruna pakataan tilaajien tarpeisiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9739509)
-
-Avaa kuvien katselu
-
-Uudet perunat kuuluvat juhannuksen ruokapöytään. Kuva: Timo Nykyri / Yle
-
-Uudet perunat ovat tulleet kauppaan tänä vuonna aikaisin.
-
-Kesän alku oli lämmin ja aurinkoinen. Siksi perunoita nostettiin pellosta noin 2 viikkoa aikaisemmin kuin tavallisesti.
-
-Suomalaiset ovat iloisia, että uusia perunoita on juhannuksen ruokapöydässä. Uudet perunat eli varhaisperunat ovat alkukesän herkku.
-
-## Juhannustaika tuo rakkauden
-
-![7 kukkalajia tyynyn päällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10268774)
+![Katunäkymä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10270342)
 
 Avaa kuvien katselu
 
-Kukat valmiina juhannusyötä varten. Kuva: Kaisa Siren / AOP
+Recep Tayyip Erdoğanin vaalimainos. Kuva: Thomas Lecomte
 
-Suomalaisille juhannus on rakkauden aikaa. Kumppania on etsitty jo ennen Tinderiä.
+Turkkilaiset ovat äänestäneet vaaleissa. Turkissa on järjestetty sunnuntaina presidentinvaalit ja parlamenttivaalit.
 
-Vanha keino kumppanin löytämiseen oli juhannustaika. Valoisa juhannusyö oli hyvä aika tehdä taikoja.
+Ennen vaaleja presidentti Recep Tayyip Erdoğan ja Erdoğanin puolue AKP menestyivät mielipidemittauksissa hyvin. Mittaukset ennustavat, että Erdoğan ehkä voittaa vaalit.
 
-Ehkä tavallisin juhannustaika oli tällainen: Kerää 7 erilaista kukkaa ja pane ne tyynyn alle juhannusyönä. Unessa näet, kenen kanssa menet naimisiin.
+Vaalien jälkeen Turkissa tulee voimaan uusi laki. Laki antaa presidentille lisää valtaa. Erdoğanin vastustajat sanovat, että Erdoğan haluaa ottaa kaiken vallan itselleen.
 
-Toinen tapa oli panna tyynyn alle saunavihta. Vihdan oksia ei saanut sitoa toisiinsa. Myös vihta toi uneen tulevan puolison.
+Turkin poliittinen tilanne on vaikea. Vuonna 2016 joukko Turkin armeijan sotilaita yritti ottaa vallan pois presidentti Erdoğanilta. Yritys ei onnistunut, ja monet Erdoğanin vastustajat ovat joutuneet vankilaan.
 
-Juhannusyönä kannatti myös katsoa kaivoon. Kaivon vedessä näkyi tulevan puolison kuva. Taika toimi ainakin, jos katsoi kaivoon alasti.
+## Saudinaiset ajavat autoa
 
-Kannattaa kokeilla, ehkä joku taika toimii vielä nykyäänkin. Jos et viitsi tehdä taikoja, kysy Tinderiltä, kuka on sinulle se oikea.
+![Naispuolinen autonostaja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10241639)
+
+Avaa kuvien katselu
+
+Uusi aika alkoi Saudi-Arabian naisille. Kuva: Pekka Koli / Yle
+
+Naiset saavat nyt ajaa autoa Saudi-Arabiassa. Naisten ajokielto loppui sunnuntaina.
+
+Saudi-Arabian kaduilla oli sunnuntaina paljon poliiseja valvomassa liikennettä. Jotkut poliisit antoivat ruusuja naiskuljettajille.
+
+Naiset saivat luvan ajaa autoa, koska kruununprinssi Mohammed bin Salman uudistaa Saudi-Arabiaa. Saudi-Arabia oli maailman viimeinen maa, jossa naiset eivät saaneet ajaa autoa.
+
+## Kesä tuli aikaisin
+
+![tesmaperhonen, naaras](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9375473)
+
+Avaa kuvien katselu
+
+Ei ole tavallista, että tesmaperhonen lentää Suomen luonnossa jo kesäkuussa. Kuva: Juha Jantunen
+
+Kesä tuli Suomen luontoon tänä vuonna aikaisin.
+
+Toukokuussa alkoi helle, ja kuuma sää jatkui kauan. Siksi nyt voi nähdä perhosia ja kukkia, jotka kuuluvat loppukesään.
+
+Tutkija Kimmo Saarinen kertoo, että esimerkiksi tesmaperhosia lentää nyt paljon. Tesmaperhonen on Suomen yleisin perhonen. On epätavallista, että tesmaperhosia näkee jo kesäkuussa.
+
+![maitohorsma](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10265566)
+
+Avaa kuvien katselu
+
+Maitohorsma kukkii tänä vuonna aikaisin. Kuva: Jouko Tykkyläinen
+
+Kasveista maitohorsma kukkii jo nyt. Saarinen sanoo, että maitohorsman kukat ovat tavallisesti merkki siitä, että kesä kääntyy loppua kohti.
+
+Kesä ei kuitenkaan ole vielä ohi. Tutkija Saarinen kertoo, että esimerkiksi kaikkein isoimmat perhoset ovat vasta tulossa.

@@ -1,69 +1,91 @@
-# Radio Selkouutiset tiistai 8.8.2023
+# Radio Selkouutiset 9.8.2023
 
-Myrsky Suomessa. Myrsky Pohjoismaissa. Lintuinfluenssa. Sää.
+Koulut. Myrskytuhot. Lämpöennätys. Tähdenlennot. Tove Janssonin päivä. Sää.
 
-## Myrsky Suomessa
+## Koulut alkavat
 
-![Rungostaan katkennut puu on kävelytien vieressä. Horisontissa siintää tummat pilvet.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115359164d215c767ce1/1691489945)
-
-Avaa kuvien katselu
-
-Myrsky kaatoi puun Eurajoella. Kuva: Jenni Kivimäki / Yle
-
-Kova myrsky tuli tiistaina aamulla Suomeen. Myrsky sai nimen Sylvia.
-
-Myrsky ei ollut ihan niin paha kuin maanantaina ennustettiin. Tuuli kaatoi eri puolilla Suomea puita teille ja sähkölinjoille. Päivällä melkein viisikymmentätuhatta ihmistä oli ilman sähköä.
-
-Osa sähkökatkoista korjattiin nopeasti.
-
-Pelastuslaitokselle tuli valtava määrä hälytyksiä, kun puut kaatuivat.
-
-Oulussa kolme lasta oli uimassa uimapatjalla, kun kova tuuli vei heidät 400 metrin päähän rannasta. Lapset pelastettiin rannalle.
-
-Jos sää on aiheuttanut vahinkoa omaisuudelle, vakuutus voi korvata sen. Vakuutusyhtiö Lähi-Tapiola muistuttaa, että vahinko on hyvä valokuvata vakuutusyhtiötä varten.
-
-## Myrsky Pohjoismaissa
-
-![Joki tulvii Norjassa.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_161/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115379564d2439f0bfba/1691502255)
+![Viktor Uotinen koulun pihalla Rovaniemen kristillisellä koululla. ](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_150/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115405164d3518432db4/1691572194)
 
 Avaa kuvien katselu
 
-Joki tulvii Etelä-Norjassa. Kuva: AFP / Lehtikuva
+Viktor Uotinen aloitti peruskoulun ensimmäisen luokan Rovaniemellä. Kuva: Sarita Piipponen / Yle
 
-Ruotsissa ja Norjassa sää on ollut paljon pahempi kuin Suomessa. Ruotsissa myrsky aiheutti ison tulvan Jämntlannin Åren kylässä.
+Koulujen syyslukukausi on alkamassa.
 
-Ruotsin viranomaiset varoittivat, että Ruotsin eteläosassa tulvia voi tulla lisää torstaihin saakka.
+Isoissa kaupungeissa koulut alkavat tänään tai huomenna. Tänään koulut ovat alkaneet esimerkiksi Tampereella, Lahdessa, Jyväskylässä ja Kokkolassa.
 
-Norjan keskiosassa on vuoria, ja siellä on ollut tulvia ja maanvyöryjä. Norjan keskiosassa ainakin kaksi taloa jäi maanvyöryn alle.
+Peruskoulun ensimmäisen luokan aloittaa tänä vuonna noin 55 000 oppilasta.
 
-Oslon lähellä Leirsundin kylässä monta kymmentä ihmistä evakuoitiin tulvan takia.
+Poliisi kertoo, että se valvoo liikennettä koulujen lähellä ensimmäisten kouluviikkojen ajan. Poliisi seuraa erityisesti autojen nopeuksia ja pysähtymistä suojatien edessä.
 
-## Lintuinfluenssa
+## Myrskytuhot
 
-![Uusikaarlepyyläisen turkistarhaaja Markus Sjöholmin minkkiturkistarhalla kaksi minkkiä ovat nousseet verkkoa vasten.](https://img.img-cdn.yle.fi/crop_extract,w_6832,h_3843,x_0,y_900/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106577163d79121d8bca/1686551979)
+![Koivu on kaatunut sinisen henkilöauton konepellille Sylvia-myrskyssä.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_1043/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115392564d2757a2c289/1691514371)
 
 Avaa kuvien katselu
 
-Kaksi minkkiä häkissä turkistarhassa. Kuva: Janne Järvinen / Yle
+Sylvia-myrsky kaatoi puita. Tämä kuva on Tervosta Pohjois-Savosta. Kuva: Matti Puranen
 
-Viranomaiset sanovat, että lintuinfluenssa on rauhoittunut Suomessa jonkin verran. Taudin leviäminen on hidastunut linnuissa ja turkiseläimissä.
+Sylvia-myrskyn tuhot jäivät pienemmiksi kuin etukäteen pelättiin.
 
-Lintuinfluenssa levisi kesällä linnuista turkiseläimiin, jotka elävät turkistarhoissa.
+Eilinen myrsky kaatoi yksittäisiä puita, mutta laajoja metsätuhoja ei ole vielä tullut tietoon, kerrotaan Metsäkeskuksesta.
 
-Lintuinfluenssa on levinnyt yli 20 turkistarhaan. Viranomaisten mukaan taudin leviäminen uusille turkistarhoille on vähentynyt.
+Kova tuuli aiheutti kuitenkin satoja tehtäviä pelastuslaitoksille. Esimerkiksi Helsingin seudulla pelastulaitoksilla oli eilen noin 400 tehtävää, jotka johtuivat myrskystä.
 
-Lintuinfluenssa on turkiseläimissä vaarallinen. On riski, että turkiseläimissä virus muuttuu ja alkaa levitä ihmisissä.
+## Kuuma heinäkuu
 
-80 000 turkiseläintä on tapettu lintuinfluenssan vaaran takia.
+![Lentokone suihkuttaa vettä maastopalon yläpuolella, savua valaisee oransssi valo.](https://img.img-cdn.yle.fi/crop_extract,w_4851,h_2728,x_0,y_1111/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114878964c388f272b5f/1691495711)
 
-## Sää
+Avaa kuvien katselu
 
-![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115384864d25272127a8/1691505328)
+Lentokone sammutti maastopaloa Rodoksella heinäkuun lopussa.  Kuva: Mirrorpix / MEGA
+
+Heinäkuu oli maailman mittaushistorian kuumin kuukausi. Keskilämpötila oli 0,33 astetta korkeampi kuin edellinen ennätys, joka oli vuoden 2019 heinäkuu.
+
+Asiasta kertoo EU:n Copernicus-palvelu, joka seuraa ilmastonmuutosta.
+
+Heinäkuussa koettiin helleaaltoja esimerkiksi Välimeren alueella, Yhdysvalloissa ja Kiinassa.
+
+Myös merten lämpötiloissa mitattiin heinäkuussa uusi ennätys.
+
+## Tähdenlennot
+
+![Meteoriparvi yötaivaalla.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115195264cccc01a8e03/1691143237)
+
+Avaa kuvien katselu
+
+Tähdenlento yötaivaalla. Kuva: Zoonar GmbH / AOP
+
+Yötaivaalla voi tällä viikolla nähdä tähdenlentoja. Tähdenlennot ovat peräisin Perseidien meteoriparvesta, kertoo tähtitieteellinen yhdistys Ursa.
+
+Ursa sanoo, että eniten tähdenlentoja voi nähdä sunnuntaina aamuyöllä. Silloin voi nähdä jopa noin 60 tähdenlentoa tunnissa.
+
+Ursa kertoo, että Perseidien tähdenlennot ovat joskus hyvin kirkkaita. Niistä voi jäädä taivaalle hetkeksi vana, ja joidenkin väri voi näyttää punertavalta.
+
+Tähdenlentoja voi nähdä paljain silmin, kiikareita ei tarvita.
+
+## Tove Janssonin päivä
+
+![Tove Jansson suomenlipun edessä](https://img.img-cdn.yle.fi/crop_extract,w_1940,h_1091,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8378086107c3e905ec5/1627898988)
+
+Avaa kuvien katselu
+
+Tove Janssonin ja suomalaisen taiteen päivänä suositellaan liputtamista.
+
+Tänään vietetään Tove Janssonin ja suomalaisen taiteen päivää.
+
+Tämä päivä on Tove Janssonin syntymäpäivä. Jansson on kuvataitelija ja kirjailija, joka tunnetaan parhaiten Muumi-hahmoista. Jansson kuoli vuonna 2001.
+
+Tove Janssonin ja suomalaisen taiteen päivää on vietetty vuodesta 2020 lähtien. Sisäministeriö suosittaa päivän kunniaksi liputtamista.
+
+## Torstain sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115432564d3934a3b399/1691587457)
 
 Avaa kuvien katselu
 
 Kuva: Yle
 
-Keskiviikkona Etelä-Suomessa ja Keski-Suomessa tulee sadekuuroja. Idässä ja pohjoisessa voi sataa enemmän.
+Pohjoisessa ja maan länsiosassa saadaan huomenna sade- ja ukkoskuuroja. Muualla on pääosin poutaa.
 
-Lämpötila on 19 ja 25 asteen välillä.
+Lämpötila on päivällä 18-25 astetta.

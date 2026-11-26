@@ -1,71 +1,73 @@
-# Radio Selkouutiset perjantai 19.5.2023
+# Radio Selkouutiset tiistai 23.5.2023
 
-Hallitusneuvottelut ja maahanmuuttopolitiikka. Sote-alalle ehkä lakkoja. Yle Kielikoulu. Sää.
+Hallitusneuvottelut. Liikenneonnettomuudet. Vantaalle raitiovaunu. Ranskan lennot. Sää.
 
-## Maahanmuuttopolitiikka
+## Hallitusneuvottelut
 
-![Anna-Maja Henriksson, Petteri Orpo, Riikka Purra ja Sari Essayah pitivät tiedotustilaisuuden Säätytalolla.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_389/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11155606464e09f8d917/1686134532)
-
-Avaa kuvien katselu
-
-Kokoomuksen puheenjohtaja Petteri Orpo ja perussuomalaisten puheenjohtaja Riikka Purra. Kuva: Silja Viitala / Yle
-
-Suomen maahanmuuttopolitiikka ehkä kiristyy. Näin arvioi kokoomuksen puheenjohtaja Petteri Orpo.
-
-Orpo vetää hallitusneuvotteluja. Hallitusneuvotteluissa on mukana myös perussuomalaiset.
-
-Perussuomalaisten puheenjohtaja Riikka Purra sanoo, että perussuomalaiset lähtee mukaan hallitukseen vain, jos maahanmuuttopolitiikka kiristyy.
-
-Ensi viikko on hallitusneuvottelujen 4. viikko.
-
-## Sote-alalle ehkä lakkoja
-
-![Kaksi lasta leikkii päiväkodin hiekkalaatikolla aurinkoisena kevätpäivänä.](https://img.img-cdn.yle.fi/crop_extract,w_6007,h_3380,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110800664525c4343bcf/1686574706)
+![Hallitusneuvottelijoita puheenjohtajapöydän ääressä Säätytalossa.](https://img.img-cdn.yle.fi/crop_extract,w_5147,h_2895,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1117519646b58c62c373/1684757211)
 
 Avaa kuvien katselu
 
-Lakko voi sulkea päiväkoteja ensi viikolla. Kuvituskuva. Kuva: Elina Ervasti / Yle
+Hallitusneuvotteluja käydään Säätytalossa Helsingissä. Kuva: Tiina Jutila / Yle
 
-Sosiaali- ja terveysalalla voi alkaa lakko ensi viikolla. Lakko alkaa ensi viikon tiistaina, jos palkkariitaan ei löydy ratkaisua sitä ennen.
+Hallitusneuvottelijat keskustelevat tulevina päivinä maahanmuutosta ja ilmastoasioista. Hallituksen muodostaja, kokoomuksen Petteri Orpo sanoo, että perussuomalaiset haluavat keskustella näistä asioista.
 
-Lakko vaikuttaa joissakin yksityisissä päiväkodeissa ja vanhusten hoivakodeissa. Lakko ei koske koko sosiaali- ja terveysalaa.
+Neuvottelut muista asioista keskeytetään. Maahanmuutto ja ilmastoasiat ovat hallitusneuvottelujen vaikeimpia asioita. Esimerkiksi perussuomalaiset ja RKP ovat hyvin eri mieltä maahanmuutosta.
 
-Työntekijät aikovat mennä lakkoon eli lopettaa työt noin 40 päiväkodissa ja noin 30 hoivakodissa. Lakko kestää muutaman päivän.
+Petteri Orpon tavoite on, että hallitusohjelma on valmis viimeistään juhannuksena.
 
-Lakon syy on palkkariita. Yksityisen sosiaali- ja terveysalan työntekijät vaativat, että he saavat samaa palkkaa kuin julkisen puolen työntekijät.
+## Liikenneonnettomuudet
 
-Esimerkiksi lähihoitajan palkka on yksityisissä firmoissa noin 200 euroa pienempi kuin julkisella puolella. Julkisen puolen rahat tulevat veroista.
-
-## Yle Kielikoulu
-
-![Ruotsintajatoimittaja Jonatan Pedersen](https://img.img-cdn.yle.fi/crop_extract,w_1893,h_1064,x_6,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-111460264635a8e3a2da/1684233023)
+![Valkoisen henkilöauton keula on mennyt onnettomuudessa ruttuun.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_409/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1112328645d022c8b77a/1683817069)
 
 Avaa kuvien katselu
 
-Jonatan Pedersen kertoo, että käyttäjät tykkäävät Yle Kielikoulusta.
+Suomen maanteillä kuoli huhtikuussa 8 ihmistä. Kuvituskuva. Kuva: Matias Väänänen / Yle
 
-Yle Kielikoulussa opiskellaan suomea katsomalla suomenkielisiä tv-ohjelmia.
+Suomen maanteillä kuoli huhtikuussa 8 ihmistä. Heistä 3 oli henkilöautossa ja 5 pakettiautossa, kun onnettomuus sattui.
 
-Ohjelmissa on myös suomenkielinen tekstitys. Katsoja saa vaikeille sanoille käännöksen.
+Liikenteessä tapahtui huhtikuussa melkein 170 sellaista onnettomuutta, jossa joku ihminen loukkaantui. Tilastokeskus kertoo, että onnettomuuksissa loukkaantui yhteensä yli 200 ihmistä.
 
-Katsoja voi itse valita, millä kielellä käännökset ovat. Kieliä on 14, esimerkiksi englanti, arabia ja ukraina.
+## Vantaalle raitiovaunu
 
-Yle Kielikoulu tarjoaa käännöksiä sen perusteella, mikä on katsojan suomen kielen taso.
+![Vantaalle suunniteltu raitiovaunulinja havainnekuvassa Kielotiellä Tikkurilassa.](https://img.img-cdn.yle.fi/crop_extract,w_1280,h_720,x_0,y_59/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-108776464188a33aa491/1684850299)
 
-Myös tehtävät sopivat tasolle, jonka katsoja on valinnut. Tehtävät liittyvät ohjelman tekstiin.
+Avaa kuvien katselu
 
-Kääntäjä Jonatan Pedersen koordinoi Kielikoulua. Hän kertoo, että Yle Kielikoulu on käyttäjille ilmainen.
+Vantaalle suunniteltu raitiovaunulinja havainnekuvassa Kielotiellä Tikkurilassa. Kuva: Vantaan kaupunki
 
-Pedersen sanoo, että käyttäjät ovat antaneet positiivista palautetta Kielikoulusta. Käyttäjien mielestä Kielikoulua on mukava käyttää.
+Vantaan kaupunkiin tulee raitiovaunu. Vantaan kaupunginvaltuusto päätti myöhään maanantaina, että kaupunkiin rakennetaan raitiotie.
 
-Kielikoulua voi käyttää sovelluksella tai selaimella. Lisää tietoa Kielikoulusta löytyy osoitteesta yle.fi/kielikoulu.
+Raitiotien rakentaminen maksaa noin 600 miljoonaa euroa.
+
+Reitti kulkee Helsinki-Vantaan lentoasemalta Mellunmäen metroasemalle.
+
+Raitiotien rakentaminen alkaa suunnitelmien mukaan syksyllä 2024. Raitiovaunun on tarkoitus kulkea Vantaalla vuonna 2029.
+
+## Ranskan lennot
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/14-svyle-42317531972b8c1dea/1394194877"
+
+Avaa kuvien katselu
+
+Ranska kieltää lyhyet kotimaan lennot. Kuvituskuva. Kuva: Reuters TV
+
+Ranska kieltää ihmisiltä lyhyet kotimaan lennot.
+
+Ranska kieltää sellaiset lentoreitit, jotka voi matkustaa junalla alle 2,5 tunnissa. Kielto on osa Ranskan ilmastolakia.
+
+Ranska kielto lopettaa lennot Pariisin ja esimerkiksi Nantesin, Lyonin ja Bordeaux'n välillä. Laki sanoo, että junien pitää kulkea näiden kaupunkien välillä tarpeeksi usein. Juniin pitää myös mahtua enemmän ihmisiä kuin aikaisemmin.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11165306467983055b0b/1684510792)
+![Ihmisiä nauttimassa kesäisestä säästä Väinämöisen puistossa Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_4581,h_2576,x_0,y_477/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1117566646b65058344b/1684759963)
 
 Avaa kuvien katselu
 
-Lauantaina aurinko paistaa melkein koko maassa ja sää on lämmintä. Lämpötila on jopa yli 20 astetta. Pohjois-Lapissa on kylmempää.
+Sää on aurinkoinen. Kuva: Benjamin Suomela / Yle
 
-Sunnuntaina lämpötila nousee Etelä-Suomessa jo lähelle hellerajaa eli 25 astetta ja sää lämpenee myös Lapissa.
+Sää on suuressa osassa maata poutainen ja aurinkoinen. Illalla Lapissa sataa vettä.
+
+Lämmintä on keskiviikkona yli 20 astetta. Etelässä on ehkä helle, eli lämpötila voi olla yli 25 astetta. Pohjoisessa lämmintä on paikoin noin 15 astetta.
+
+Torstaina sää on koko maassa kylmempää kuin nyt.

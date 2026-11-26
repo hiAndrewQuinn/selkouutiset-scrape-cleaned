@@ -1,69 +1,79 @@
-# Radio Selkouutiset sunnuntai 30.7.2023
+# Radio Selkouutiset keskiviikko 2.8.2023
 
-Työpaikkakuolemat. Ensiasuntolainat. Lintujen muutto. Uusi revontuli-ilmiö. Sää.
+Lintuinfluenssa ja metsästys. Taksilaki. Ylikulutuspäivä. Trumpin syytteet. Sää.
 
-## Työpaikkakuolemat
+## Lintuinfluenssa ja metsästys
 
-![Kyltti, jossa teksti: Työmaa-alue. Pääsy asiattomilta kielletty.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1097834643649c74648c/1681279708)
-
-Avaa kuvien katselu
-
-Eniten työpaikkakuolemia sattui viime vuonna rakennus- ja kuljetusalalla. Kuva: Matias Väänänen / Yle
-
-Työpaikkakuolemien määrä Suomessa lähes kaksinkertaistui viime vuonna edellisvuoteen verrattuna. Työtapaturmissa kuoli viime vuonna yhteensä 24 ihmistä.
-
-Suurin osa työpaikkakuolemista sattuu yli 50-vuotiaille.
-
-Eniten kuolemia oli kuljetus- ja rakennusalalla.
-
-Työterveyslaitoksen tutkijaprofessori Anna-Maria Teperi sanoo, että työturvallisuus on parantunut etenkin ilmailussa ja teollisuudessa. Anna-Maria Teperin mielestä seuraavaksi työturvallisuutta pitää parantaa etenkin sosiaali- ja terveysalalla.
-
-## Ensiasuntolainat
-
-![Kiinteistönvälittäjä esittelee myynnissä olevaa kerrostaloasuntoa.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2800,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105859363c00b670510d/1707319055)
+![Kartta näyttää lintuinfluenssan vuoksi perustetut tartuntavyöhykkeet maakunnittain: Varsinais-Suomi, Satakunta, Etelä-Pohjanmaa, Pohjanmaa, Keski-Pohjanmaa, Uusimaa, Kanta-Häme, Päijät-Häme ja Pirkanmaa.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1079,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114751264c0cf82ebd8f/1690357789)
 
 Avaa kuvien katselu
 
-Ihmiset epäröivät asunnon ostamista, koska taloustilanne on epävarma. Kuva: Henrietta Hassinen / Yle
+Kuva: Nanna Särkkä / Yle
 
-Pankeista on haettu lainaa ensiasunnon ostamista varten selvästi vähemmän kuin vuosi siten. Suurimmat asuntolainapankit OP, Nordea ja Danske Bank kertovat, että ensiasuntolainojen määrä on vähentynyt alkuvuoden aikana.
+Ruokavirasto suosittelee rajoituksia vesilintujen metsästämiseen. Vesilintuja ei pidä metsästää alueilla, joilla on todettu lintuinfluenssaa tai suuri määrä lintuja on kuollut.
 
-Asuntojen hinnat ovat laskeneet, mutta ihmiset epäröivät asunnon ostamista, koska taloustilanne on epävarma. Lainojen korot ovat nousseet ja elämisen ja asumisen kustannukset ovat kallistuneet.
+Lisäksi lokkeja tai varislintuja ei pidä metsästää lainkaan koirien koulutuskäyttöön. Influenssavirukset voivat säilyä myös pakastetussa lihassa.
 
-## Lintujen muutto
+Koirille ei pidä antaa saalislintujen lihaa, jota ei ole kypsennetty. Jos koirassa tai kissassa on linnun ulostetta, lemmikki pitää pestä huolellisesti.
 
-![Mies seisoo kapean joen sillalla.](https://img.img-cdn.yle.fi/crop_extract,w_3327,h_1871,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114098164ad41fcde98b/1689076376)
+Ihmiseen lintuinfluenssa ei tartu helposti.
 
-Avaa kuvien katselu
+## Taksilaki
 
-Kari Mäntylä rengasti 36 vuotta sitten merikihun, joka pesii tänäkin kesänä saaressa Merikarvialla.  Kuva: Markku Sandell / Yle
-
-Lintujen muuttoreiteistä saadaan nykyään tarkempaa tietoa kuin ennen. Lintujen liikkeitä voidaan seurata läpi vuoden satelliittipaikantimien ja tunnisterenkaiden avulla.
-
-Merikarvialla pesii tänä kesänä merikihu, joka on tiettävästi vanhin Suomessa rengastettu lintu. Porilainen lintuharrastaja Kari Mäntylä rengasti merikihun poikasen 36 vuotta sitten, vuonna 1987.
-
-Mäntylä kertoo, että lintu talvehtii Afrikan länsirannikolla Kap Verden saarten ja Madeiran tienoilla. Kesällä se palaa uskollisesti Merikarvialle pesimään.
-
-## Revontulet
-
-![Revontulimuoto, punainen kaari vihreällä udulla Ikaalisten taivaalla.](https://img.img-cdn.yle.fi/crop_extract,w_4789,h_2695,x_84,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114956264c62f290f838/1690709894)
+![Taksitolppa.](https://img.img-cdn.yle.fi/crop_extract,w_4170,h_2345,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10452796391b02a0b522/1685530538)
 
 Avaa kuvien katselu
 
-Taivaalla näkyy punainen kaari ja vihreää utua. Kuva: Heidi Rikala
+Taksilakia aiotaan muuttaa. Tarkoitus on, että taksin saa nykyistä paremmin esimerkiksi maaseudulla. Kuva: Jani Aarnio / Yle
 
-Tähtitieteellinen yhdistys Ursa on palkinnut suomalaisia tähtiharrastajia.
+Taksilakia muutetaan taas. Työ on tarkoitus aloittaa syyskuussa. Hallitusohjelmassa sanotaan, että taksipalveluja pitää saada paremmin kuin nyt.
 
-Tähtiharrastajat löysivät uuden revontuli-ilmiön. He huomasivat, että kirkkaiden revontulien aikaan taivaalla näkyy punainen kaari ja turkoosinvihreitä, utuisia läiskiä. Kaari ja läiskät aiheutuvat Auringon hiukkasvirrasta eli aurinkotuulesta.
+Vuonna 2018 laista poistettiin lupajärjestelmä ja velvoite päivystää. Taksit ovat saaneet toimia missä tahansa ja milloin haluavat.
 
-Ursan Stella Arcti-palkinnon saivat Heidi Rikala Ikaalisista ja Eero Karvinen Nurmeksesta. Emma Bruus Nurmijärveltä ja Lauri Kangas Espoosta saivat Stella Arcti -maininnan.
+Kun päivystyspakkoa ei ole, taksia on ollut vaikea saada pienillä paikkakunnilla ja maaseudulla.
 
-## Maanantain sää
+## Ylikulutuspäivä
 
-![Maanantain sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114961864c660f0cd22f/1690722671)
+![Vanhempi ja lapsi kulkevat Verkkokauppa.comin käytävää.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98167262cee840d3c0b/1657728393)
 
 Avaa kuvien katselu
 
-Ilmatieteen laitos kertoo, että maanantaina saadaan sade- ja ukkoskuuroja.
+Ihmiskunta on tänä vuonna kuluttanut enemmän kuin maapallo pystyy tuottamaan. Kuva: Aalto Puutio / Yle
 
-Lämpötila on 14 ja 25 asteen välillä.
+Tänään on maailman ylikulutuspäivä. Maapallon ihmiset ovat kuluttaneet 7 kuukaudessa ne luonnonvarat, joiden on tarkoitus riittää koko vuodeksi.
+
+Ylikulutus aiheuttaa esimerkiksi ilmastonmuutosta ja luontokatoa, joka heikentää luonnon toimintaa.
+
+Suomen ylikulutuspäivä oli tänä vuonna paljon aiemmin, jo maaliskuun lopussa.
+
+Jos kaikki eläisivät kuten suomalaiset, tarvittaisiin 3 ja puoli maapalloa. Näin laskee Sitra, joka tutkii esimerkiksi tulevaisuutta.
+
+## Trumpin uudet syytteet
+
+![Donald Trump osoittaa sormellaan kohti kameraa.](https://img.img-cdn.yle.fi/crop_extract,w_2550,h_1434,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115056264ca0f2fc1286/1690963821)
+
+Avaa kuvien katselu
+
+Kuva: Michael Reynolds / EPA
+
+USA:n entistä presidenttiä Donald Trumpia vastaan on nostettu 4 uutta oikeussyytettä.
+
+Trumpia syytetään esimerkiksi juonittelusta USA:n hallintoa vastaan. Häntä syytetään myös todistajien manipuloinnista eli ohjailusta.
+
+Oikeusministeriön erikoissyyttäjä sanoo, että Trumpilla ja Trumpin liittolaisilla oli suunnitelma horjuttaa rauhanomaista vallansiirtoa. Tarkoitus oli pitää Trump presidentinvirassa, vaikka hän hävisi presidentinvaalit.
+
+Tammikuussa 2021 Trumpin kannattajat hyökkäsivät kongressitaloon, kun kongressi oli juuri vahvistamassa Joe Bidenin vaalivoittoa.
+
+Trump pyrkii uudelleen presidentiksi ja johtaa republikaanien presidenttikisaa ylivoimaisesti.
+
+## Sää
+
+![Sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115086664ca65c084389/1690986033)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sadealue kulkee torstaina Suomen yli lännestä lähtien. Sadealueella voi olla ukkosta.
+
+Lämpötila on yleisesti 20 asteen vaiheilla tai sen yläpuolella.

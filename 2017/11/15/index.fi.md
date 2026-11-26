@@ -1,87 +1,81 @@
-# Maanantai 13.11.2017 (radio)
+# Keskiviikko 15.11.2017 (radio)
 
-Monet nuoret noudattavat erityisruokavaliota. Maanjäristys aiheutti tuhoa Iranissa ja Irakissa. Somalimaan presidentiksi pyrkii myös Suomen kansalainen. Suomen itsenäisyyttä juhlistetaan juhlarahalla. Terveisiä Croydonin Suomi-koulusta.
+Ylin syyttäjä Matti Nissinen vastasi syytteeseen oikeudessa keskiviikkona. Poliisi vaatii, että oikeus vangitsee miehen, jota epäillään oman lapsen tappamisesta. Vaarallinen tasoristeys Raaseporissa pitää sulkea. Etelä-Afrikassa, Zimbabwessa on vallankumous. Rap-artisti Cheekin ura loppuu.
 
-## Nuorten erityisruokavalio
+## Ylin syyttäjä oikeudessa
 
-![Sanni Issakainen, Julia Ikonen, Pinja Leppänen ja Anni Tirkkonen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9928777)
-
-Avaa kuvien katselu
-
-17-vuotiaat Sanni Issakainen, Julia Ikonen, Pinja Leppänen ja Anni Tirkkonen noudattavat kaikki erityisruokavaliota.  Kuva: Anu Rummukainen / Yle
-
-Monet nuoret noudattavat erityisruokavaliota. Uuden tutkimuksen mukaan erityisruokavaliota noudattaa noin 20 prosenttia nuorista.
-
-Yleisin syy nuorten erityisruokavalioon on sairaus. Jos ihminen sairastaa esimerkiksi diabetesta, keliakiaa tai allergioita, hän ei voi syödä mitä tahansa.
-
-Toiseksi yleisin syy erityisruokavalioon on painonhallinta.
-
-Etenkin pojilla erityisruokavalio johtuu usein myös urheilusta.
-
-Tutkimus tehtiin Itä-Suomen yliopistossa. Siihen kerättiin tietoja nuorten terveystapatutkimuksista melkein 40 vuoden ajalta. Tutkimuksiin on vastannut yli 43 000 teini-ikäistä nuorta.
-
-## Maanjäristys Iranin ja Irakin rajaseudulla
-
-![Irakinkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9928001)
+![Matti Nissinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9932129)
 
 Avaa kuvien katselu
 
-Maanjäristyksen keskus oli Irakin puolella lähellä Iranin rajaa.
+Matti Nissinen Kuva: Jari Kovalainen / Yle
 
-Iranin ja Irakin maanjäristys on aiheuttanut suurta tuhoa.
+Suomessa on tänään ollut harvinainen oikeudenkäynti. Suomen ylintä syyttäjää epäillään rikoksesta. Ylin syyttäjä Matti Nissinen vastasi syytteeseen oikeudessa keskiviikkona.
 
-Järistyksessä kuoli yli 400 ihmistä. Loukkaantuneita on yli 6000. Uhrien määrä voi vielä kasvaa.
+Syytteiden mukaan Nissinen tilasi esimerkiksi omalle työpaikalle koulutusta. Koulutuksen järjesti Nissisen veljen firma. Siksi Nissiselle vaaditaan sakkoja. Häntä epäillään virkarikoksesta.
 
-Järistys aiheutti maanvyörymiä, rikkoi taloja, katkoi teitä ja sähköjä. Hätämajoitusta tarvitsee yli 70 000 ihmistä, sanoo iranilainen avustusjärjestö.
+Nissinen on sanonut, että hän ei tehnyt tahallista rikosta. Nissinen kuitenkin myöntää, että hän oli huolimaton.
 
-Maanjäristys sattui Iranin ja Irakin rajaseudulla. Jälkijäristyksiä on ollut yli 100.
+## Porvoon puukotus oikeuteen
 
-## Somalimaan presidentinvaali
-
-![Faisal Ali Warabe.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9927867)
+![leikkipuisto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9929622)
 
 Avaa kuvien katselu
 
-Faisal Ali Warabe. Kuva: Yle
+Lapsen surma tapahtui Porvoon Lyseon leikkipuistossa. Kuva: Jussi Nukari / Lehtikuva
 
-Somalimaassa on äänestetty tänään presidentinvaaleissa.
+Poliisi vaatii, että oikeus vangitsee miehen, jota epäillään oman lapsen tappamisesta. Oikeudenkäynti on torstaina.
 
-Presidenttiehdokkaita on yhteensä kolme. Heistä kahdella on siteitä Suomeen.
+Poliisi epäilee, että 38-vuotias mies puukotti lasta. Lapsi oli 3-vuotias. Puukotus tapahtui Porvoossa leikkipuistossa. Lapsi kuoli vammoihin sairaalassa.
 
-Yksi ehdokkaista on Somalimaan parlamentin entinen puhemies Abdirahman Irro. Hän asui ennen Suomessa.
+Poliisi aloitti kuulustelut tiistaina.
 
-![Abdirahman Irro.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9927865)
+## Vaarallinen tasoristeys pitää sulkea
 
-Avaa kuvien katselu
-
-Abdirahman Irro. Kuva: Yle
-
-Faisal Ali Warabe taas on Suomen kansalainen. Hänen UCID-puolueensa perustettiin Helsingissä 90-luvun alussa.
-
-Somalimaa julistautui itsenäiseksi Somaliasta jo 90-luvulla, mutta muut maat eivät ole tunnustaneet sen itsenäisyyttä.
-
-## Juhlaraha 100-vuotiaalle Suomelle
-
-![Itsenäisyyspäivän kunniaksi lyöty juhlaraha.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9928555)
+![Raaseporin tasoristeyksessä tapahtui tuhoisa onnettomuus 26.10.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9902890)
 
 Avaa kuvien katselu
 
-Suomen juhlaraha on 20 euron hopeakolikko. Kuva: Suomen Rahapaja Oy
+Vaarallinen tasoristeys Raaseporissa. Kuva: Läni-Uudenmaan pelastuslaitos / Poliisilaitos
 
-100-vuotias Suomi saa juhlarahan. Juhlaraha on hopeinen kolikko.
+Vaarallinen tasoristeys  Raaseporissa pitää sulkea. Viranomaiset tiedottivat asiasta keskiviikkona.
 
-Kolikon toisella puolella on lyhyt teksti Suomen itsenäisyysjulistuksesta suomeksi ja ruotsiksi. Toisella puolella on kuva Heimolan talosta, jossa Suomen itsenäisyysjulistus allekirjoitettiin 6. joulukuuta 1917.
+Tasoristeys pitää sulkea, koska sitä täytyy parantaa. Nyt se on erittäin vaarallinen. Tasoristeys on junaradan ja autotien risteys. Raaseporin tasoristeyksessä junat ajavat 120 kilometrin tuntivauhdilla.
 
-Juhlaraha julkaistaan kahden viikon kuluttua.
+Tasoristeyksessä sattui lokakuun lopussa onnettomuus, jossa kuoli neljä ihmistä. Henkilöjuna törmäsi armeijan autoon.
 
-## Terveisiä Croydonista!
+## Opintoraha uudistuu kohta
 
-![lapsia askartelemassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9928438)
+![seteleitä lompakossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9755384)
 
 Avaa kuvien katselu
 
-Croydonin suomikoululaiset askartelevat
+Kuva: AOP
 
-Suomi-koulujen oppilaat eri puolilta maailmaa lähettävät terveisiä Suomeen, kun itsenäinen Suomi nyt täyttää 100 vuotta.
+Opintoraha uudistuu ensi vuoden alussa. Silloin vanhempien tulot eivät enää vaikuta itsenäisen 18-19-vuotiaan opintorahaan. Uudistus koskee lukiota ja ammattikouluja.
 
-Uusimmat terveiset tulevat Lontoosta, **Croydonin Suomi-koulusta**.
+Nykyisin opintoraha pienenee tai sitä ei makseta ollenkaan, kun vanhempien vuositulot ovat yhteensä vähintään noin 61 000 euroa.
+
+## Zimbabwen presidentti syrjäytettiin
+
+![Zimbabwen presidentti Robert Mugabe tarkastamassa kunniakomppaniaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9932214)
+
+Avaa kuvien katselu
+
+Zimbabwen tuolloinen presidentti Robert Mugabe tarkasti kunniakomppaniaa 25.elokuuta 2017. Kuva: Aaron Ufumeli / EPA
+
+Etelä-Afrikassa, Zimbabwessa on vallankumous.
+
+Armeija on pidättänyt presidentti Robert Mugaben ja Mugaben vaimon. Armeijan mukaan Mugabe ei ole enää Zimbabwen presidentti.
+
+Zimbabwen presidentti Mugabe kertoo, että hän on hyvässä kunnossa mutta hän ei saa poistua kodista. Mugabe on hallinnut maata yli 40 vuotta. Nyt Zimbabwessa taistellaan siitä, kenestä tulee Mugaben seuraaja.
+
+## Cheek lopettaa
+
+![Cheek tiedotustilaisuus 15.11.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9932516)
+
+Avaa kuvien katselu
+
+Cheek ylellisessä ympäristössä vuonna 2017. Kuva: Jouni Immonen / Yle
+
+Rap-artisti Cheekin ura loppuu. Cheek on erittäin suosittu artisti. Hän pitää viimeisen konsertin ensi kesänä Lahdessa. Cheek sanoo, että lopettaminen on ainoa tapa päästä irti stressistä.

@@ -1,65 +1,61 @@
-# Perjantai 16.6.2017 (radio)
+# Lauantai 17.6.2017 (radio)
 
-Poliisi epäilee, että Lontoossa palanut talo oli korjattu huonosti. Norjassa lopetetaan öljyllä lämmittäminen. Suomen rajavartijat voivat kantaa konepistoolia. Järvivettä puhdistetaan mutapalloilla. Helsinkiläiset ajavat paljon kaupunkipyörillä.
+Vihreiden uusi puheenjohtaja. Mansikkasato hyvä mutta myöhässä. Uusi kansallispuisto Itä-Suomeen. Maailman ainoa Muumi-museo Tampereelle.
 
-## 
+## Vihreiden uusi puheenjohtaja
 
-## Paljon ihmisiä kateissa Lontoossa
-
-![Palava kerrostalo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9669174)
+![Touko Aalto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9677113)
 
 Avaa kuvien katselu
 
-Kerrostalo paloi Lontoossa keskiviikkona. Kuva: Pasi Myöhänen / Yle
+Vihreiden uudeksi puheenjohtajaksi valittiin lauantaina Touko Aalto Jyväskylästä.  Kuva: Roni Rekomaa / Lehtikuva
 
-Suur-Lontoon poliisi on aloittanut rikostutkinnan tornitalon tulipalosta. Poliisi epäilee, että talon korjauksessa on tehty virheitä. Virheet aiheuttivat sen, että tulipalo pääsi leviämään tornitalon eri kerroksiin.
+Vihreiden uusi puheenjohtaja on Touko Aalto Jyväskylästä.
 
-Asukkaat ovat myös kertoneet poliisille, että talon käytävillä oli paljon talon rakennusjätettä. Tulipalossa kuoli ainakin 30 ihmistä, mutta uhreja voi olla enemmän.
+Vihreitä 6 vuotta johtanut Ville Niinistö sanoi jäähyväispuheessaan, että koulutuksen rahoitus pitää saada takaisin sille tasolle, millä se oli ennen Sipilän hallitusta.
 
-Monet ihmiset etsivät vielä sukulaisia ja ystäviä tulipalon jälkeen. Yli 70 ihmistä on kateissa.
+Vihreiden kannatus on nyt korkeammalla kuin koskaan aikaisemmin. Uudessa Ylen teettämässä gallupissa vihreitä kannatti yli 15 % vastaajista.
 
-## Norja kieltää öljyn polttamisen
+## Mansikkasato hyvä mutta myöhässä
 
-![Katunäkymä Bergenissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9673661)
-
-Avaa kuvien katselu
-
-Tavallisia taloja Norjassa. Kuva: AOP
-
-Norjassa taloja ei kohta saa enää lämmittää öljyllä. Talojen lämmittäminen öljyllä kielletään, koska öljyn polttamisesta tulee paljon kasvihuonekaasuja. Kasvihuonekaasut lämmittävät maapalloa.
-
-Norjan hallitus sanoo, että taloja pitää lämmittää esimerkiksi puulla tai sähköllä, joka tulee vesivoimalasta. Norjassa on paljon sähköä, joka tulee vesivoimalasta.
-
-## Rajavartijoille konepistoolit
-
-![Venäläistä kuljettajaa pyydetään ajamaan sivuun tarkastusta varten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8777352)
+![Kypsyviä mansikoita pellolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6215273)
 
 Avaa kuvien katselu
 
-Rajavartijat huolehtivat rajaturvallisuudesta. Kuva: Tommi Parkkinen/Yle
+Mansikat kypsyvät tänä kesänä myöhemmin kuin yleensä. Syynä on kylmä kevät. Luvassa on kuitenkin hyvä sato. Kuva: Kirsi Lönnblad /Yle
 
-Suomen rajavartijat voivat pian kantaa konepistooleja. Rajavartijat saavat luvan kantaa konepistooleja, koska Suomen turvallisuustilanne on muuttunut vaarallisemmaksi.
+Mansikoita saadaan tänä vuonna enemmän kuin viime vuonna, arvioivat marjanviljelijät.
 
-Konepistooleja ei kanneta koko ajan, vaan ne otetaan käteen vain vaarallisissa tilanteissa. Tällä hetkellä rajavartijat kantavat yleensä vain pistooleja.
+Sato on kuitenkin myöhässä kylmän kevään takia. Eteläisessä Suomessa sato myöhästyy ehkä yhdellä viikolla. Muualla maassa sato on myöhässä melkein 2 viikkoa.
 
-## Järviä puhdistetaan mutapalloilla
+Ensimmäiset mansikat valmistuvat osassa maata jo juhannukseksi. Suurin osa mansikoista valmistuu Etelä-Suomessa heinäkuun toisella ja kolmannella viikolla.
 
-![Kuplia veden pinnalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9667224)
+## Uusi kansallispuisto Itä-Suomeen
 
-Avaa kuvien katselu
-
-Järvien vedet halutaan pitää puhtaina. Kuva: Petri Lassheikki / Yle
-
-Suomessa on paljon järviä ja niiden vedet halutaan pitää puhtaana. Nyt kokeillaan uutta tapaa puhdistaa vettä. Veteen pudotetaan mutapalloja. Ne on tehty esimerkiksi bakteereista ja sienistä. Mutapallot saavat järven hyödylliset pieneliöt toimimaan.
-
-## Helsinkiläiset käyttävät kaupunkipyöriä
-
-![Kaupunkipyörän latauspiste. Ohjeita kaupunkipyörän käyttöön saa osoitteesta hsl.fi/kaupunkipyorat. Samassa osoitteessa voi rekisteröityä sekä tarkastaa, kuinka monta pyörää kullakin asemalla on.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9667266)
+![Maisema Hossasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9675941)
 
 Avaa kuvien katselu
 
-Kaupunkipyörät ovat keltaisia. Kuva: Mårten Lampén / Yle
+Uuden Hossan kansallispuiston maisemia. Kansallispuistossa voi kuka tahansa vaeltaa ja ihailla luontoa. Kuva: Anne Moilanen / Yle
 
-Kaupunkipyörät ovat erittäin suosittuja Helsingissä. Moni helsinkiläinen ottaa pyörän käyttöön koko kesäksi. Helsinkiläisten mielestä pyörä on kaupungissa kätevä kulkuväline.
+Suomeen on avattu uusi kansallispuisto Hossaan.
 
-Kaupunkipyöriä on paljon. Niitä on jo 1400. Myös turistit käyttävät mielellään kaupunkipyöriä.
+Hossa sijaitsee Kainuussa Suomussalmella. Uuden kansallispuiston pinta-ala on noin 11 000 hehtaaria.
+
+Hossa tunnetaan kalliomaalauksistaan. Ne ovat Suomen suurimpia esihistoriallisia kalliomaalauksia. Sieltä on löydetty myös hyvin vanhoja asuinpaikkoja. Ne ovat melkein 10 000 vuotta vanhoja. Uusi kansallispuisto saa erityisesti kiitosta siitä, että puistossa on otettu huomioon esteetön liikkuminen.
+
+Kansallispuistot ovat suuria luonnonsuojelualueita.  Niitä on nyt Suomessa 40.
+
+## Maailman ainoa Muumi-museo Tampereelle
+
+![Japanilaisia muumituristeja Tampereella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9676589)
+
+Avaa kuvien katselu
+
+Japanilaiset muumituristit Yoko Inaba ja Fumika Nonaka menivät Muumimuseoon heti, kun se avattiin Tampereella lauantaina.  Kuva: Heli Mansikka / Yle
+
+Tampereella on avattu maailman ensimmäinen Muumi-museo.
+
+Siellä on esillä suuri määrä Tove Janssonin tekemiä alkuperäisiä muumi-kuvia ja -tarinoita.
+
+Museo sijaitsee Tampere-talossa. Se maksoi yli 3,5 miljoonaa euroa. Sinne odotetaan paljon kävijöitä myös ulkomailta. Erityisesti Japanissa ja Kiinassa muumit ovat hyvin suosittuja.

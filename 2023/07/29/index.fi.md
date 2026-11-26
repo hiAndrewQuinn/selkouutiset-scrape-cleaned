@@ -1,79 +1,79 @@
-# Radio Selkouutiset perjantai 28.7.2023
+# Radio Selkouutiset lauantai 29.7.2023
 
-Ministeri Rydman. Lasten uimataito. Yötön yö. Kalevan kisat. Sää.
+Eduskuntavaalit. Kreikan maastopalot. Suomen metsäpalot. Ropecon. Sää.
 
-## Ministeri Rydman
+## Kevään eduskuntavaalit
 
-![Perussuomalaisten Vilhelm Junnila, Riikka Purra ja Wille Rydman.](https://img.img-cdn.yle.fi/crop_extract,w_1599,h_899,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114897064c3c108c777b/1690558149)
-
-Avaa kuvien katselu
-
-Perussuomalaiset poliitikot Vilhelm Junnila, Riikka Purra ja Wille Rydman ovat herättäneet huomiota vanhoilla rasistisilla kirjoituksilla. Kuva: Lehtikuva, Yle
-
-Keskustelu perussuomalaisten ministerien rasistisista kirjoituksista jatkuu. Nyt Suomessa puhutaan ministeri Wille Rydmanista.
-
-Helsingin Sanomat on julkaissut Rydmanin vanhoja viestejä entiselle tyttöystävälle. Rydmanin viestit ovat rasistisia. Viestit loukkaavat esimerkiksi somaleja ja arabeja.
-
-Kokoomuksen puoluejohtaja ja hallituksen pääministeri Petteri Orpo sanoo, että Rydmanin viestit eivät ole asiallisia. Orpo on kuitenkin tyytyväinen, että Rydman lupaa olla mukana hallituksen rasisminvastaisessa työssä.
-
-Helsingin Sanomat julkaisi Rydmanin yksityisviestejä, koska ministeri Rydmanilla on valtaa ja tärkeä asema Suomessa. Siksi ihmisten pitää saada tietää, mitä Rydman ajattelee.
-
-Rydmanista tuli ministeri perussuomalaisten Vilhelm Junnilan jälkeen. Junnilan piti erota, koska Junnilan vanhat natsipuheet järkyttivät monia.
-
-Eniten julkisuudessa on puhuttu perussuomalaisten puoluejohtajan, ministeri Riikka Purran vanhoista rasistisista kirjoituksista.
-
-## Lasten uimataito
-
-![Uimakoululaisia uimastadionin altaassa, mukana opettaja Tanja Kautiainen.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_12/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96830862a323cd21a1c/1654860315)
+![Marin, Orpo ja Purra.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1094625642ab37f01007/1680520720)
 
 Avaa kuvien katselu
 
-Uimaopetus on lapsille tärkeää. Kuva: Mårten Lampén
+Li Andersson, Riikka Purra, Sanna Marin ja Petteri Orpo jännittivät vaalitulosta eduskuntavaalien tulosillassa viime huhtikuussa. Kuva: Silja Viitala / Yle
 
-Suomalaisten lasten uimataito on nyt huonompi kuin ennen. Näin kertoo Suomen Uimaopetus- ja Hengenpelastusliitto.
+Monet vihreiden ja vasemmistoliiton kannattajat äänestivät SDP:tä viime kevään eduskuntavaaleissa. Åbo Akademin uusi tutkimus kertoo, että noin 30 prosenttia vihreiden ja vasemmistoliiton kannattajista äänestikin sosiaalidemokraatteja viime vaaleissa.
 
-Lasten uimataito heikkeni korona-aikana. Silloin monilla uimakouluilla oli tauko.
+Yksi iso syy äänestäjien siirtymiselle oli SDP:n puheenjohtajan Sanna Marinin suuri suosio, sanoo tutkimusprofessori Kimmo Grönlund.
 
-Vielä vuonna 2016 noin 75 prosenttia kuudesluokkalaisista osasi uida. Vuonna 2022 enää 55 prosenttia kuudesluokkalaisista oli uimataitoisia.
+Tutkimuksesta selviää myös, että kevään vaaleissa keskusta menetti kannatusta kokoomukselle ja perussuomalaisille.
 
-Uimaopettajat muistuttavat, että kaikki perheet eivät käy uimahallissa. Siksi koulujen uimaopetus on tärkeää.
+Parhaiten vanhoista äänestäjistä pitivät kiinni RKP ja perussuomalaiset.
 
-## Yötön yö
+## Kreikan maastopalot
 
-![Maisema, jossa aurinko paistaa liki horisonttia joenlahdella kesäyönä. Puissa on lehdet ja ruoho on vihreää.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_169/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6955465efd6c4f93d27/1684138947)
-
-Avaa kuvien katselu
-
-Lapissa paistaa aurinko myös kesäyössä. Kuva: Vesa Vaarama / Yle
-
-Yötön yö on loppunut Utsjoella. Utsjoki on Suomen pohjoisin kunta.
-
-Yöttömän yön aikana aurinko ei laske ollenkaan. Aurinko pysyy taivaalla koko ajan.
-
-Perjantaina aurinko laski Utsjoella ensimmäisen kerran yöttömän yön jälkeen. Yötön yö alkoi Utsjoella toukokuussa, eli se kesti yli 2 kuukautta.
-
-## Kalevan kisat
-
-![Kalevan kisat.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_351/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114907564c3df8655e4a/1690558369)
+![Mustaa savua taivaanrannassa auringonlaskiessa](https://img.img-cdn.yle.fi/crop_extract,w_3391,h_1908,x_417,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114836164c25eea0f8f8/1690636882)
 
 Avaa kuvien katselu
 
-Kalevan kisoissa on paljon yleisöä. Kuva: Tomi Hänninen
+Kreikassa on ollut paljon isoja maastopaloja viime viikkoina. Kuva: Thomas Silén / Yle
 
-Kalevan kisat järjestetään tänä viikonloppuna. Kalevan kisat ovat yleisurheilun Suomen mestaruuskilpailut.
+Kreikan isot maastopalot alkavat helpottaa.
 
-Ensimmäiset Kalevan kisat järjestetiin vuonna 1907. Tänä vuonna urheilijat kilpailevat Lahdessa.
+Kahden viime viikon aikana Kreikassa on ollut paljon isoja maastopaloja. Nyt ne on saatu pääosin hallintaan, mutta sammutustyöt jatkuvat yhä, kertovat Kreikan viranomaiset.
 
-Kalevan kisoja voi katsoa Yle Areenasta ja TV2:sta.
+Isoimmat maastopalot ovat olleet Rodoksen ja Korfun saarilla ja Kreikan keskiosissa. Paloissa kuoli ainakin 5 ihmistä ja tuhannet ihmiset joutuivat pakenemaan palon alta. Lisäksi maastoa ja metsää paloi 50 000 hehtaaria.
 
-## Sää
+Kreikkaa on koetellut myös helleaalto, jonka aikana lämpötilat nousivat jopa 46 asteeseen. Myös pahin helle alkaa nyt helpottaa.
 
-![Sääkartat lauantaista maanantaihin.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114907764c3dfeae5847/1690558471)
+## Suomen metsäpalot
+
+![Kalajoella kesällä 2021 palanutta metsää vuotta myöhemmin kuvattuna.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97365562b301788d55d/1655899056)
 
 Avaa kuvien katselu
 
-Lauantain jälkeen sateet vähenevät. Kuva: Aleksi Lohtander / Yle
+Kalaojella paloi metsää kesällä 2021. Kuva: Juha Kemppainen / Yle
 
-Lauantaina vettä sataa maan keskiosassa ja pohjoisessa. Eniten sataa idässä.
+Myös Suomessa varaudutaan isoihin metsäpaloihin.
 
-Lämpötila on 16-21 astetta. Sateisilla alueilla on vähän viileämpää.
+Pelastusopiston erikoistutkija Juha Laitinen kertoo, että Suomessa kartoitetaan esimerkiksi riskialueita ja kalustoa, jota tarvitaan metsäpalojen sammuttamiseen. Näin varaudutaan siihen, että meilläkin voi tulevaisuudessa olla isoja metsäpaloja.
+
+Tänä kesänä Suomen metsäpalotilanne on kuitenkin ollut normaali.
+
+## Ropecon
+
+![Ropecon-tapahtumaa Helsingissä, Luka Kesto. ](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_68/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114920264c4d03b32d7d/1690621111)
+
+Avaa kuvien katselu
+
+Ropeconin teema on tänä vuonna menneisyys ja tulevaisuus. Teema näkyy myös yleisön pukeutumisessa. Kuva: Jussi Mankkinen / Yle
+
+Roolipelaamisen harrastajat ovat koolla Helsingissä tänä viikonloppuna.
+
+Roolipelitapahtuma Ropecon alkoi Helsingin Messukeskuksessa eilen, ja se kestää sunnuntaihin asti. Ropeconiin osallistuu vuosittain noin 6000 ihmistä.
+
+Ropeconissa pelataan erilaisia roolipelejä, mutta sen ohjelmaan kuuluvat myös luennot, paneelikeskustelut ja työpajat.
+
+Tänä vuonna Ropeconin teemana on menneisyys ja tulevaisuus. Teema näkyy myös yleisön pukeutumisessa.
+
+Ropeconia on järjestetty liki 30 vuoden ajan.
+
+## Sunnuntain sää
+
+![Sunnuntain sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114934964c51613e42f2/1690637902)
+
+Avaa kuvien katselu
+
+Huomenna sunnuntaina koko maassa saadaan sadekuuroja.
+
+Pohjoisessa kuuroja tulee enemmän kuin maan etelä- ja keskiosissa. Paikoin voi olla myös ukkosta.
+
+Lämpötila on päivällä pohjoisen 14 ja etelän 25 asteen välillä.

@@ -1,69 +1,81 @@
-# Radio | Selkouutiset | 14.8.2023
+# Radio Selkouutiset tiistai 15.8.2023
 
-Ministerit. Presidenttiehdokas. Inflaatio. Ruotsi. Sääennuste.
+## Lintuinfluenssa
 
-## Ministereiden turvallisuus
-
-![Valtioneuvoston linna.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_196/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10132406332d795e46c2/1675336390)
+![Kettuja turkistarhalla häkeissään.](https://img.img-cdn.yle.fi/crop_extract,w_5306,h_2984,x_138,y_2768/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106577463d7913cb89b3/1675081704)
 
 Avaa kuvien katselu
 
-Pääministerin työhuone on Valtioneuvoston linnassa. Kuva: Mikko Koski / Yle
+Lintuinfluenssa on levinnyt jo 24 turkistarhalle. Ne kaikki sijaitsevat Etelä- ja Keski-Pohjanmaan sekä Pohjanmaan maakunnassa. Kuva: Janne Järvinen / Yle
 
-Suomessa on lisätty kaikkien ministeriöiden ja ministereiden turvatoimia. Esimerkiksi vierailta vaaditaan ministeriöissä tunnistautumista aiempaa tarkemmin. Myös vieraiden kulunvalvontaa on tehostettu. Vieraat eivät esimerkiksi pääse ministeriöissä kaikkiin tiloihin.
+Lintuinfluenssan muuntumista on todettu 2 uudella turkistarhalla. Muuntunutta virusta on nyt yhteensä 5 turkistarhalla. Ruokavirasto kertoo, että
 
-Myös ministereiden henkilösuojausta yleisillä paikoilla on lisätty. Se tarkoittaa, että ministereiden lähellä on usein turvamies.
+muunnokset edistävät sitä, että virus lisääntyy nisäkkäillä. Muunnokset eivät kuitenkaan edistä viruksen tarttumista ihmiseen.
 
-Ministeriöiden ja ministereiden turvatoimia on lisätty, koska kaikki ihmiset eivät ehkä tykkää uuden hallituksen päätöksistä. Esimerkiksi päätökset leikkauksista tai säästöistä voivat suututtaa joitakin ihmisiä.
+Ruokavirasto on määrännyt, että kaikki minkit pitää lopettaa tarhoilta, joissa on lintuinfluenssaa.
 
-## Kokoomuksen presidenttiehdokas
+Yhteensä 24 turkistarhalla on todettu lintuinfluenssaa.
 
-![Alexander Stubb.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_24/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115632264da037281a0b/1692168502)
+## Maahanmuuttajalasten varhaiskasvatus
 
-Avaa kuvien katselu
-
-Alexader Stubb. Kuva: Roni Rekomaa / Lehtikuva
-
-Kokoomus pyytää Alexader Stubbia kokoomuksen presidenttiehdokkaaksi. Kokoomuksen puheenjohtaja Petteri Orpo sanoo, että Stubb sai enemmistön tuen puoluehallituksessa.
-
-Alexander Stubb on ollut kokoomuksen puheenjohtaja. Hän on ollut myös pääministeri.
-
-Virallisesti Stubbin nimittämisestä kokoomuksen presidenttiehdokkaaksi päättää ylimääräinen puoluekokous, jos Stubb suostuu presidenttiehdokkaaksi.
-
-## Inflaatio
-
-![Ruokaostokset kaupan kassahihnalla.](https://img.img-cdn.yle.fi/crop_extract,w_5356,h_3013,x_0,y_285/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-776201602fa20cab68f/1706108089)
+![Lapsia leikkimässä Puropuiston päiväkodin pihalla Nokialla.](https://img.img-cdn.yle.fi/crop_extract,w_4494,h_2527,x_0,y_421/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10295396364f3562c474/1667560470)
 
 Avaa kuvien katselu
 
-Hintojen nousu nopeutu heinäkuussa. Kuva: Tiina Jutila / Yle
+Varhaiskasvatus voi parantaa koko maahanmuuuttajaperheen kotoutumista, hallitus uskoo. Kuva: Antti Eintola / Yle
 
-Inflaatio eli hintojen nousu jatkuu. Kuluttajahinnat nousivat heinäkuussa 6,5 prosenttia viime vuoden heinäkuusta. Hintojen nousu nopeutui hieman heinäkuussa. Kesäkuussa hintojennousu oli 6,3 prosenttia viime vuoden kesäkuusta eli heinäkuussa hinnat nousivat enemmän kuin kesäkuussa.
+Hallitus haluaa, että maahanmuuttajalapset menevät päiväkotiin nuorempina kuin nyt. Hallituksen mielestä se tukee koko perheen kotoutumista.
 
-Inflaatiota kiihdyttivät esimerkiksi asuntolainojen ja kulutusluottojen korkojen nousu sekä sähkön hinnan nousu.
+Monikulttuurisissa perheissä on yleistä, että lasta hoidetaan kotona noin 3-vuotiaaksi asti. Syy voivat olla kulttuurierot tai vanhemman huono työtilanne.
 
-Kaikki hinnat eivät nousseet. Esimerkiksi bensiinin ja asuntojen hinnat laskivat viime vuoden heinäkuuhun verrattuna.
+Monet maahanmuuttajaperheet haluavat, että lapsi oppii ensin perheen oman kielen ja menee vasta sen jälkeen päiväkotiin.
 
-## Ruotsin turvallisuus
+Monessa kulttuurissa myös ajatellaan, että suku hoitaa lapsia.
 
-![Rasmus Paludan seisoo kädessään palava Koraani.](https://img.img-cdn.yle.fi/crop_extract,w_4012,h_2255,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106392463d13059461ae/1674653822)
+Helsingissä 78 prosenttia alle 6-vuotiaista vieraskielisistä oli varhaiskasvatuksessa. Kotimaankielisistä päiväkodissa oli 84 prosenttia.
+
+## Verkkokauppa laski
+
+![Postin tai verkkokaupan noutopisteen lokeroita.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90615261ef29a5cbc80/1692087785)
 
 Avaa kuvien katselu
 
-Koraanien polttaminen Ruotsissa suututtaa monia muslimeja. Kuva: Patrik Österberg / AOP
+Verkkokauppa on vähentynyt paljon tänä vuonna. Kuva: Hanna Othman / Yle
 
-Ruotsi on edelleen turvallinen matkailumaa. Näin sanoo Suomen ulkoministeriö. Ulkoministeriö rauhoittelee suomalaisia, koska Britannian varoitukset huolestuttavat suomalaisia.
+Kotimainen verkkokauppa on romahtanut keväällä ja kesällä. Laskua on ollut 24 prosenttia vuodesta 2021.
 
-Britannian viranomaiset sanoivat viikonloppuna, että terroristit pyrkivät todennäköisesti iskemään Ruotsissa, koska Ruotsissa on poltettu Koraaneja.
+Asuminen ja ruoka ovat kallistuneet, ja rahaa verkkokauppaan jää aiempaa vähemmän.
 
-Suomen ulkoministeriö muistuttaa, että Ruotsin turvallisuuspoliisi ei ole nostanut luokitusta, jolla mitataan terrorismin uhkaa. Ulkoministeriö sanoo, että Ruotsi on edelleen turvallinen matkailumaa.
+Kaupan liitto kertoo, että kotimainen verkkokauppa kasvoi yli 10 vuotta. Myynti laski jo viime vuonna 12 prosenttia.
+
+## Uudet vieraslajit
+
+![Kuvassa kukkiva isopiisku.](https://img.img-cdn.yle.fi/crop_extract,w_3872,h_2178,x_0,y_206/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5550845cade6c0333a4/1692082448)
+
+Avaa kuvien katselu
+
+Isopiisku on yksi laji, joka on nyt Suomen vieraslajien luettelossa. Kuva: Mostphotos/LianeM
+
+Haitallisten vieraslajien luetteloon on lisätty 7 uutta vieraslajia.
+
+Kasvilajeista luetteloon lisättiin 3 piiskua: kanadanpiisku, korkeapiisku ja isopiisku. Luetteloon lisättiin myös vuorivaahtera, viitapihlaja-angervo ja valkopajuangervo.
+
+Vieraslajeissa on nyt myös uusi eläin, mustapääetana.
+
+Haitalliset vieraslajit uhkaavat luonnon monimuotoisuutta.
 
 ## Sää
 
-![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115651064da54fd295c2/1692030249)
+![Sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115699064db8349a1e72/1692107685)
 
 Avaa kuvien katselu
 
-Tiistaina on enimmäkseen poutaa.
+Kuva: Yle
 
-Tiistaina pilvisyys vaihtelee. Enimmäkseen on poutaista eli ei sada. Lännessä ja Lapissa voi tulla muutamia sadekuuroja. Tiistaina illalla lounaasta saapuu Suomeen sateita ja ukkosia. Päivälämpötila on 18 ja 26 asteen välillä.
+Keskiviikkona sateet liikkuvat lännestä koko maan yli.
+
+Sadevaroitus ja ukkosvaroitus on annettu lähes koko eteläiseen Suomeen.
+
+Ukkoset osuvat ensin Länsi- ja Etelä-Suomeen, jossa voi tulla rankkasateita.
+
+Lämpötila on etelässä ja maan keskiosassa 20 - 26 astetta. Pohjoisessa lämpötila on alle 20 astetta.

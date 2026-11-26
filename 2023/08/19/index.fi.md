@@ -1,73 +1,71 @@
-# Radio Selkouutiset perjantai 18.8.2023
+# Radio Selkouutiset lauantai 19.8.2023
 
-Sähköongelmat. Koronarokote. Mikkelin kouluruoka. Sää.
+Zelenskyi Ruotsissa. Pörssisähkö. Kova rasva. Jalkapallon MM-kisat. Sää.
 
-## Sähköongelmat
+## Zelenskyi Ruotsissa
 
-![loviisan ydinvoimala](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6563585e778155d66cd/1584890254)
-
-Avaa kuvien katselu
-
-Loviisan ydinvoimala. Kuva: Markku Rantala / Yle
-
-Suomen sähkön tuotannossa on lähitulevaisuudessa ongelmia. Siksi sähkön hinta voi vaihdella paljon.
-
-Ongelmia on kolme.
-
-Ensimmäinen on, että perjantaina yöllä Olkiluodon ydinvoimalan yhteen reaktoriin tuli vika. Reaktori ei siksi tuota sähköä. Vikaa korjataan
-
-Toinen ongelma on, että Loviisan ydinvoimalaa huolletaan. Siksi Loviisan ydinvoimala tuottaa sähköä normaalia vähemmän.
-
-Kolmas ongelma on, että Ruotsista tulee Suomeen normaalia vähemmän sähköä, koska energiayhtiöt tekevät huoltotöitä ja korjaustöitä.
-
-Sähkön hinta voi lähitulevaisuudessa nousta ja laskea nopeasti.
-
-## Koronarokote
-
-![Iäkästä miestä rokotetaan](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-960295628e059985933/1654146961)
+![Volodymyr Zelenskyi ja Ulf Kristersson.](https://img.img-cdn.yle.fi/crop_extract,w_5679,h_3194,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115913264e09f219dd23/1692442981)
 
 Avaa kuvien katselu
 
-Syksyllä koronarokotteen saavat 65 vuotta täyttäneet. Kuva: Paulus Markkula / Yle
+Ruotsin pääministeri Ulf Kristersson ja Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Jonas Ekstromer / EPA
 
-Ikäihmisille annetaan syksyllä taas koronarokote.
+Ukrainan presidentti Volodymyr Zelenskyi on tehnyt yllätysvieralun Ruotsiin. Ruotsissa Zelenskyi on tavannut esimerkiksi Ruotsin pääministerin Ulf Kristerssonin sekä kuningas Kaarle Kustaan ja kuningatar Silvian.
 
-Terveysviranomaiset suosittelevat, että koronarokote annetaan 65-vuotiaille ja sitä vanhemmille. Lisäksi koronarokote annetaan riskiryhmille.
+Vierailulla keskusteltiin Ukrainan tilanteesta ja Ruotsin tuesta Ukrainalle. Ruotsi on toimittanut Ukrainalle apua tähän mennessä 2,2 miljardin euron arvosta.
 
-Maailmalla leviää uusi koronaviruksen muoto. Terveysviranomaiset sanovat, että uusi muoto ei ole vaarallisempi kuin vanhat muodot. Sitä tarkkaillaan silti.
+Zelenskyi ja pääministeri Kristersson kertoivat myös, että ruotsalaisia panssarivaunuja aletaan tulevaisuudessa valmistaa Ukrainassa.
 
-Uusi koronaviruksen muoto leviää ainakin Israelissa, Tanskassa ja USA:ssa.
+## Sähkön hinta
 
-Koronaviruksen uusi muoto ei kuitenkaan ole Suomen koronarokotusten syy.
-
-## Mikkelin kouluruoka
-
-![Tortilla-annos koululaisen lounastarjottimella. ](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_239/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80806260a511816cecb/1693906591)
+![loviisan ydinvoimala](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6563575e778067b59da/1584890064)
 
 Avaa kuvien katselu
 
-Kuvassa tortilla ja kasvistäyte. Kuva: Yle / Mikko Koski
+Loviisan ydinvoimalassa alkaa sunnuntaina vuosihuolto. Kuva: Markku Rantala / Yle
 
-Mikkelissä yli 400 koululaista on saanut ruokamyrkytyksen oireita. Oireet aiheutti kouluruoka.
+Pörssisähkö on kallista tämän viikonlopun aikana.
 
-Koululaiset söivät keskiviikkona tortilloja, joissa oli kasvistäyte. Samaa ruokaa syötiin 14 koulussa.
+Tänään lauantaina sähkö oli kalleinta kello 11 aamupäivällä. Silloin pörssisähkön hinta oli reilut 26 senttiä kilowattitunnilta. Huomenna sunnuntaina sähkö on vielä kalliimpaa. Aamukahdeksalta ja iltakymmeneltä pörssisähkö maksaa noin 31 senttiä kilowattitunnilta.
 
-Tortillat tulivat EU:n alueelta. Kasvistäytteen teki yksi keittiö Mikkelissä. Annoksia oli yli 4 000.
+Sähkön hinnan kallistuminen johtuu siitä, että sähköä on nyt tarjolla vähemmän kuin tavallisesti. Loviisan ydinvoimalaa huolletaan ja Olkiluodon ydinvoimalassa korjataan vikaa yhdessä reaktorissa. Myös Ruotsin voimaloissa tehdään huoltotöitä, joten sieltä tuodaan nyt tavallista vähemmän sähköä Suomeen.
 
-Jotkut oppilaat sanoivat, että ruoka maistui oudolta, ehkä saippualta.
+## Kova rasva
 
-Oppilaiden oireita ovat esimerkiksi mahakipu, pahoinvointi ja päänsärky. Joillakin on myös kuumetta tai ripulia.
+![Erilaisia lihapaloja supermarketin lihatiskillä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_298/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1111444645b7d224bbd0/1683720952)
 
-Kukaan ei ole joutunut sairaalaan oireiden takia. Viranomaiset tutkivat ruokaa, jota oppilaat söivät. He yrittävät selvittää, mikä on oireiden syy.
+Avaa kuvien katselu
 
-## Sää
+Lihassa ja lihatuotteissa on kovaa rasvaa. Kuva: Jari Pussinen / Yle
 
-![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115900264df78940ce4c/1692367029)
+Suomalaiset syövät liikaa kovaa rasvaa.
+
+Eniten kovaa rasvaa saadaan lihasta ja lihavalmisteista sekä maidosta ja maitovalmisteista.
+
+Terveyssuositusten mukaan sopiva määrä kovaa rasvaa on 10 prosenttia siitä kokonaisenergiasta, jonka ihminen saa, kertoo ravitsemustieteen professori Mikael Fogelholm Helsingin yliopistosta.
+
+Kovaa rasvaa voi vähentää esimerkiksi siten, että ostaa vähärasvaisia tai rasvattomia liha- ja maitotuotteita. Lihan sijaan kannattaa myös syödä enemmän kalaa tai kasvipohjaisia proteiineja.
+
+## Jalkapallon MM-kisat
+
+![Ruotsi juhlii MM-pronssia.](https://img.img-cdn.yle.fi/crop_extract,w_5668,h_3188,x_0,y_256/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115913064e09996cee4e/1692441001)
+
+Avaa kuvien katselu
+
+Ruotsin naisten jalkapallomaajoukkue voitti neljättä kertaa pronssia jalkapallon MM-kisoissa. Kuva: Getty Images
+
+Ruotsi on voittanut pronssia naisten jalkapallon maailmanmestaruuskisoissa. Ruotsi voitti kisojen isäntämaan Australian maalein 2-0.
+
+Naisten jalkapallon MM-kisojen finaali pelataan huomenna sunnuntaina. Finaalissa pelaavat Espanja ja Englanti.
+
+## Sunnuntain sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115930564e0d33887589/1692455779)
 
 Avaa kuvien katselu
 
 Kuva: Yle
 
-Etelä-Suomessa voi lauantaina sataa ja ukkostaa. Lapissa voi olla vähän sadekuuroja.
+Huomenna on poutaa koko maassa ja monin paikoin paistaa aurinko.
 
-Lämpötila on 18 ja 21 asteen välillä. Lapissa on kylmempää.
+Lämpötila on päivällä 19 ja 23 asteen välillä, Lapissa on viileämpää.

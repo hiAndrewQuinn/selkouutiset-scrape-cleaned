@@ -1,59 +1,61 @@
-# Lauantai 10.3.2018 (radio)
+# Sunnuntai 11.3.2018 (radio)
 
-Puolueet haluavat parempia perhevapaita. Poliisi toivoo lisää virkoja. Kuvat auttavat ymmärtämään puhetta. Sähköautojen ja aurinkopaneelien akkuihin tarvitaan koko ajan enemmän metalleja.
+Monella nuorella on liikaa velkaa. Moni haluaa suojella oman metsänsä. Saamelaiselokuva sai palkinnon. Suomalaisilla on 120 000 eri etunimeä.
 
-## Puolueet haluavat parempia perhevapaita
+## Joillakin nuorilla paljon velkaa
 
-![Äiti ja vastasyntynyt vauva sairaalassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10110758)
-
-Avaa kuvien katselu
-
-Äiti ja vauva sairaalassa. Kuva: Emmi Korhonen / Lehtikuva
-
-Kaikki puolueet haluavat parantaa perhevapaita.
-
-Suomessa syntyy nyt tosi vähän vauvoja. Vauvoja syntyi viime vuonna yhtä vähän kuin 150 vuotta sitten. Kaikki puolueet ajattelevat, että se on ongelma. Suomessa on tulevaisuudessa liian vähän veronmaksajia.
-
-Yle kysyi puolueilta, mitä asialle pitäisi tehdä. Kaikki puolueet haluavat parantaa perhevapaita. Puolueet haluavat maksaa äideille ja isille korvauksia, että heillä on varaa olla pois töistä, kotona hoitamassa pikkulapsia. Moni puolue haluaa parantaa myös lasten palveluita. Esimerkiksi varhaiskasvatusta eli 5- ja 6-vuotiaiden opetusta päiväkodeissa halutaan parantaa.
-
-## Poliisi toivoo lisää poliiseja
-
-![Poliiseja Helsingin Narinkkatorilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10100309)
+![Kolikoita kädellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10111162)
 
 Avaa kuvien katselu
 
-Poliisiautoja jonossa Helsingissä. Kuva: Emmi Korhonen / Lehtikuva
+Lainaa on helpompi ottaa kuin maksaa takaisin. Kuva: Henrietta Hassinen / Yle
 
-Poliisi toivoo lisää virkoja.
+Monella nuorella on liikaa velkaa.
 
-Poliiseja on vähennetty viime vuosina ja heitä on nyt noin 7 200. Poliisijohtaja Seppo Kolehmainen sanoo, että Suomeen tarvitaan noin 600 poliisia lisää. Kolehmainen sanoo, että esimerkiksi uusi alkoholilaki ja kansainvälinen terrorismi lisäävät poliisin töitä.
+Joillakin nuorilla on niin paljon velkaa, että melkein koko palkka menee velan maksuun. Silloin nuori ehkä lopettaa työnteon ja elää toimeentulotuella, koska siitä ei ole pakko maksaa velkaa. Nykyään on paljon helpompi lainata rahaa kuin ennen. Lainoja mainostetaan ja niitä saa nopeasti. Monella nuorella ei kuitenkaan ole vakituista työtä, jonka palkasta olisi helpompi maksaa laina takaisin.
 
-Poliisien ammattiliitto sanoo, että on hyvä idea kouluttaa lisää poliiseja.
+Takuusäätiö auttaa ihmisiä, joilla on liikaa velkaa. Juha Pantzar Takuusäätiöstä sanoo, että lainojen mainoksia täytyy vähentää.
 
-## Kuvat auttavat ymmärtämään
+## Oma metsä halutaan suojella
 
-![Askartelunohjaaja Marja Hietanen näyttää vanhaa valokuvaa pöydän ääressä istuville vanhuksille.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10103788)
-
-Avaa kuvien katselu
-
-Kuva tukee vanhuksen muistia. Kuva: Mikko Koski / Yle
-
-Kuvia käytetään joskus puheen apuna.
-
-Kuvat auttavat ymmärtämään puhetta ja muistamaan asioita paremmin. Ne myös auttavat lasta, kun hän opettelee puhumaan. Myös vastaanottokeskuksissa kuvat ovat tärkeitä. Turvapaikanhakijat eivät osaa suomea heti. Monet heistä eivät osaa lukea ja kirjoittaa. Silloin auttaa, kun voi näyttää kuvaa.
-
-Internetissä on Papunet.net -sivusto, josta voi ladata kuvia omaan puhelimeen tai tietokoneelle.
-
-## Kiviarkistosta etsitään metalleja
-
-![mies varastossa kivien kanssa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10111145)
+![Kivisuon pohjoisaltaan eteläisen metsäsaarekkeen laitarämettä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10107844)
 
 Avaa kuvien katselu
 
-Ari Hevonkoski tutkii kivinäytteitä. Kuva: Yle
+Metsää ja suota Pohjois-Suomessa. Kuva: Ari-Pekka Auvinen / Suomen Luonnonsuojelun Säätiö
 
-Maailmassa käytetään nykyään paljon akkuja.
+Monet metsänomistajat haluavat suojella omat metsänsä.
 
-Akkuja tarvitaan esimerkiksi sähköautoihin ja aurinkopaneeleihin. Akkuihin tarvitaan paljon metalleja: nikkeliä, kuparia, kobolttia ja litiumia. Metalleja etsitään myös Suomesta. Moni ulkomainen kaivosfirma haluaa tutkia kivipötköjä, joita on porattu Suomen kallioista. Kivinäytteitä pidetään valtion kiviarkistossa, joka on kymmenen varastorakennusta täynnä kivinäytteitä Lopen kunnassa.
+Metsiä suojelevat esimerkiksi tavalliset suomalaiset, jotka asuvat kaupungissa ja saavat metsää perinnöksi sukulaisilta. Monet haluavat säilyttää metsän luonnon eivätkä halua kaataa ja myydä puita. Viime vuonna ihmiset perustivat ainakin 170 uutta suojelualuetta, yhteensä 30 neliökilometriä metsää.
 
-Jos kivipötköstä löytyy metalleja, kannattaa ehkä avata kaivos siellä, mistä näyte on porattu.
+Samaan aikaan valtio vähentää rahaa, joka käytetään metsien suojeluun. Hallitus myös toivoo, että puuta kaadetaan enemmän. Suomeen on perustettu uusia tehtaita, jotka käyttävät paljon puuta.
+
+Metsiä kaadetaan niin paljon, että Suomen luonto muuttuu köyhemmäksi: kasvi- ja eläinlajeja häviää kokonaan.
+
+## Luontoa ja balettia saamelaiselokuvassa
+
+![Eatnanvuloš lottit – Maan sisällä linnut.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10111630)
+
+Avaa kuvien katselu
+
+Birit ja Katja Haarla elokuvassa Maan sisällä Linnut. Kuva: Marja Helander / Eatnanvuloš lottit – Maan sisällä linnut
+
+Saamelaiselokuva Maan sisällä linnut on saanut Risto Jarva -palkinnon.
+
+Marja Helanderin elokuva kysyy, kuka omistaa maat ja vedet pohjoisilla alueilla, joilla saamelaiset elävät. Elokuvan pääosissa ovat Lapin luonto ja kaksi saamelaista balettitanssijaa, Birit ja Katja Haarla.
+
+Risto Jarva -palkinnon antoi Suomen elokuvasäätiö Tampereen lyhytelokuvajuhlilla.
+
+## Etunimiä on paljon enemmän kuin ennen
+
+![Ukko Vilho Valtterin nimiäiskakku.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6178941)
+
+Avaa kuvien katselu
+
+Kakku sen kunniaksi, että Ukko saa nimen. Kuva: Yle
+
+Suomen kansalaisilla on käytössä 120 000 eri etunimeä. Vielä 1980-luvulla etunimiä oli puolet vähemmän.
+
+Nykyään on muotia antaa lapselle erikoinen etunimi. Myös luonnosta otetaan paljon nimiä, esimerkiksi Lumi, Kaisla ja Meri. Usein vanhemmat antavat nimen, joka on tuttu ja suosittu yhtä aikaa monessa maassa, esimerkiksi Maria, Emilia, Oliver ja Daniel. Moni vanhempi ei halua antaa lapselle nimeä, jossa on ä- tai ö-kirjain, koska se on vaikea ulkomailla.
+
+Vuonna 2016 suosituimpia tytön etunimiä olivat Emma, Sofia ja Aino ja suosituimpia pojan nimiä Onni, Elias ja Leo.

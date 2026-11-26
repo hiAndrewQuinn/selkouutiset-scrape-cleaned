@@ -1,7 +1,71 @@
-# Keskiviikko 7.2.2018 (tv)
+# Torstai 8.2.2018 (radio)
 
-Turun joukkopuukotus. Uudet ministerit. Hiihtolomamatkat. Kantoraketti avaruteen. Säätiedot.
+Terveet elämäntavat auttavat estämään muistisairauksia myös silloin, kun sairausriski on suvussa. Kuopiossa tutkitaan, minkälainen saunankiuas saastuttaa vähiten. SDP:n ja keskustapuolue ovat suosittuja, vaikka presidentinvaalit menivät huonosti. Kirkko valitsee arkkipiispan maaliskuun alussa. EU-parlamentti ei halua lopettaa kesäaikaa.
 
-Yle Uutiset selkosuomeksi
+## Terveet elämäntavat ehkäisevät muistisairauksia
 
-Turun joukkopuukotus. Uudet ministerit. Hiihtolomamatkat. Kantoraketti avaruteen. Säätiedot.
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5934716"
+
+Avaa kuvien katselu
+
+Joillakin ihmisillä on suvussa tavallista isompi riski saada muistisairaus. Kuva: YLE
+
+Muistisairauksia voi ehkäistä terveillä elämäntavoilla.
+
+Terveet elämäntavat auttavat myös niitä ihmisiä, joiden suvussa on paljon muistisairauksia. Suomessa ja Ruotsissa tehty tutkimus näytti, että ihmisten muisti pysyi parempana, jos he saivat hyviä elämäntapaneuvoja. Neuvot auttoivat myös niitä ihmisiä, joilla on suvussa paljon muistisairautta.
+
+Tutkimuksessa neuvottiin ihmisiä esimerkiksi syömään oikein, liikkumaan tarpeeksi ja tekemään muistiharjoituksia.
+
+## Minkälainen kiuas ei saastuta?
+
+![Löylynheittoa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10066286)
+
+Avaa kuvien katselu
+
+Puukiukaasta lähtee hyvät löylyt, mutta siitä lähtee myös pienhiukkasia ilmaan. Kuva: Petri Jauhiainen / Yle
+
+Kuopion yliopistossa tutkitaan, minkälainen saunankiuas saastuttaa vähiten ilmaa.
+
+Kun kiukaassa poltetaan puuta, ilmaan pääsee savun mukana pienhiukkasia. Pienhiukkaset ovat epäterveellisiä. Esimerkiksi Helsingin seudulla puukiukaista ja takkatulesta leviää ilmaan yhtä paljon pienhiukkasia kuin liikenteestä ja voimalaitoksista.
+
+## Huono vaalimenestys ei näy suosiossa
+
+![Tilastografiikka puoluekannatuksesta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10063486)
+
+Avaa kuvien katselu
+
+Puolueiden kannatus tammikuussa 2018. Kuva: Yle Uutisgrafiikka
+
+Kahdella isolla puolueella, sosiaalidemokraateilla ja keskustalla, meni presidentinvaaleissa huonosti. Huono menestys ei kuitenkaan näy Ylen uudessa kannatusmittauksessa. Siinä kokoomus on suosituin puolue, ja sosiaalidemokraatit eli SDP on toiseksi suosituin ja keskusta kolmas.
+
+Tutkijat sanovat, että Sauli Niinistön suosio nostaa myös kokoomuksen suosiota. SDP:n suosiota kasvattaa ehkä se, että puolue vastustaa uutta työttömien aktiivimallia. Moni suomalainen ajattelee, että aktiivimalli on epäreilu.
+
+Ylen tutkimuksessa neljäntenä ovat vihreät, sitten tulevat perussuomalaiset, vasemmistoliitto, RKP, Kristillisdemokraatit ja Sininen tulevaisuus.
+
+## Vikström tai Luoma uusi arkkipiispa
+
+![Björn Vikström, Tapio Luoma](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10065645)
+
+Avaa kuvien katselu
+
+Björn Vikström ja Tapio Luoma. Kuva: Yle
+
+Suomen luterilainen kirkko valitsee maaliskuussa uuden johtajan eli arkkipiispan.
+
+Kirkossa äänestettiin tänään arkkipiispasta, mutta kukaan ei saanut yli puolta äänistä. Eniten ääniä saivat Espoon piispa Tapio Luoma ja Porvoon piispa Björn Vikström. He ovat mukana toisessa äänestyksessä maaliskuun 1. päivänä.
+
+Nykyinen arkkipiispa Kari Mäkinen jää eläkkeelle kesällä.
+
+## Kesäaika pysyy
+
+![Herätyskello sängyn vieressä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10043722)
+
+Avaa kuvien katselu
+
+EU-parlamentti haluaa säilyttää kesäajan. Kuva: AOP
+
+EU:n parlamentti ei kannata kesäajan lopettamista.
+
+Suomi haluaa, että EU:ssa ei enää siirretä kelloja eri aikaan kesäksi. Suomen ehdotus hävisi parlamentin äänestyksessä. Parlamentti pyysi kuitenkin EU-komissiota selvittämään, mitä hyötyä ja mitä haittaa kesäajasta on.
+
+Suomalaiset europarlamentin jäsenet sanoivat, että kellonajan siirto tunnilla vaikuttaa ehkä joidenkin ihmisten terveyteen.

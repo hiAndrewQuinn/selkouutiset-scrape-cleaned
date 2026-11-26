@@ -1,65 +1,65 @@
-# Sunnuntai 17.9.2017 (radio)
+# Maanantai 18.9.2017 (radio)
 
-Suomi on järjestänyt 100-vuotisjuhlat USA:ssa. Britannian poliisi otti kiinni jo toisen miehen perjantain pommi-iskun takia. Suomen poliisilla oli takaa-ajotilanne Pirkanmaalla. Suomalaiset ja venäläiset keräävät usein eri sieniä.
+Kymmenet terveydenhuollon työntekijät menettävät vuosittain ammattioikeuden. Vesisateet vaarantavat viljasadon. Noin puolet pyöräilijöistä liikkuu pimeällä ilman ajovaloja. Dublinin Suomi-koulu tervehtii 100-vuotiasta Suomea.
 
-## Suomi-juhlat USA:ssa
+## Päihteet vievät ammattioikeuden
 
-![Presidentti Sauli Niinistö ja rouva Jenni Haukio saapumassa Washingtonin Suomen suurlähetystöön Suomi 100 -gaalaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9836751)
-
-Avaa kuvien katselu
-
-Presidentti Sauli Niinistö ja rouva Jenni Haukio Washingtonissa. Kuva: Paula Vilén / Yle
-
-Suomi on järjestänyt 100-vuotisjuhlat USA:ssa. Suomi kutsui amerikkalaisia juhlimaan, koska Suomi on ollut itsenäinen maa 100 vuotta. Juhlat järjestettiin Suomen suurlähetystössä Washingtonissa lauantaina.
-
-Juhlien isäntä oli presidentti Sauli Niinistö. Niinistö sanoi juhlavieraille, että Suomi ja USA ovat vanhoja ystäviä. Toimittajille presidentti kertoi, että amerikkalaisia kiinnostaa Suomen menestys. Suomi on menestynyt hyvin monissa tutkimuksissa, joissa on verrattu eri maita.
-
-Juhlissa oli mukana yli 100 vierasta. Oopperalaulaja Camilla Nylund lauloi vieraille Jean Sibeliuksen lauluja. Myös juhlaruoka oli suomalaista. Pöydässä oli esimerkiksi lohta, sieniä ja mustikkajäätelöä.
-
-## Pidätys Lontoossa
-
-![Poliisi partioi parlamentin edustalla Lontoossa metropommi-iskuun liittyen 16. syyskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9836478)
+![Sairaalasänkyjä käytävällä Oulun yliopistollisen sairaalan päivystyksessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9790226)
 
 Avaa kuvien katselu
 
-Poliisit vartioivat Lontoon turvallisuutta. Kuva: Facundo Arrizabalaga / EPA-EFE
+Moni lääkäri, sairaanhoitaja ja muu terveysalan ammattilainen menettää ammattioikeuden päihteiden takia. Kuva: Wasim Khuzam / Yle
 
-Britannian poliisi on ottanut kiinni jo toisen miehen perjantain pommi-iskun takia. Poliisi otti miehen kiinni Lontoossa. Mies on 21-vuotias.
+Joka vuosi kymmenet terveydenhuollon työntekijät menettävät ammattioikeuden. Silloin he eivät enää saa tehdä kyseistä työtä. Sosiaali- ja terveysalan valvontavirasto Valvira sanoo, että syy on useimmiten päihdeongelma. Syy voi myös olla esimerkiksi muistisairaus tai huono ammattitaito.
 
-Lauantaina poliisi otti kiinni 18-vuotiaan miehen. Poliisi epäilee, että miehet liittyvät Lontoon pommi-iskuun.
+Tapaukset ovat kuitenkin viime vuosina vähentyneet. Valvirassa uskotaan, että työpaikoilla puututaan esimerkiksi päihdeongelmiin aikaisemmin kuin ennen.
 
-30 ihmistä loukkaantui, kun Lontoon metrossa räjähti pommi perjantaina.
+Alustavat tiedot kertovat, että tänä vuonna ammattioikeudet on menettänyt noin 40 henkilöä. Heistä yli puolet on lähihoitajia.
 
-Terroristijärjestö Isis sanoo, että se on vastuussa pommi-iskusta. Britannian poliisi jatkaa iskun tutkimista.
-
-## Takaa-ajotilanne
-
-![kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9836676)
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9833235)
 
 Avaa kuvien katselu
 
-Poliisi sai Huittisissa kiinni auton, josta ammuttiin poliisia kohti. Kuva: Yle Uutisgrafiikka
+Viime vuonna syyt ammattioikeuden menettämiseen olivat tällaiset. Kuva: Yle Uutisgrafiikka
 
-Suomen poliisilla on ollut takaa-ajotilanne Pirkanmaalla, Tampereen länsipuolella.
+## Sateen vaarantavat viljasadon
 
-Poliisi sai lauantai-iltana ilmoituksen autosta, jonka kuljettaja oli ehkä humalassa. Kun poliisi löysi auton, autosta ammuttiin kohti poliisia.
-
-Auto lähti poliisia pakoon, mutta poliisi sai auton kiinni. Poliisi ampui miestä, jolla oli ase. Mies vietiin sairaalaan. Poliisi otti kiinni myös auton kuljettajan.
-
-Poliiseja ei loukkaantunut.
-
-## Sienestys
-
-![Mesisieni](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9833215)
+![Ohraa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9828681)
 
 Avaa kuvien katselu
 
-Mesisieni on venäläisten mielestä hyvä ruokasieni. Kuva: Tommi Parkkinen / Yle
+Sateen takia osa ohrasta, kaurasta ja vehnästä saattaa jäädä peltoon. Kuva: Simo Pitkänen / Yle
 
-Syksy on hyvä aika kerätä sieniä.
+Maataloustuottajien järjestö MTK sanoo, että jatkuvat sateet voivat olla katastrofi maatiloille. MTK vaatii hallitukselta kriisitoimia maatilojen talousahdinkoon.Varsinkin viljatiloilla sadonkorjuu on vaarassa sateiden takia.
 
-Suomalaiset ja venäläiset sienestävät paljon, mutta he keräävät usein eri sieniä. Suomalaisten mielestä esimerkiksi kantarelli on tosi hyvä ruokasieni. Venäläiset eivät tykkää kantrellista.
+Maatalousalan neuvontajärjestö ProAgria kertoo, että yhtä huono viljakesä oli viimeksi 30 vuotta sitten vuonna 1987. Maan eteläosissa viljan puintia on päästy kokeilemaan. Vilja on kuitenkin hyvin märkää, ja sen kuivatus koneella on kallista.
 
-Kantarellissa ei ole makua, sanoo venäläinen Alexander Volkov. Volkov kuitenkin kerää kantarelleja, koska hän on asunut Suomessa jo monta vuotta. Mutta hän ei ole oppinut rakastamaan kantarellin makua.
+Alkaneen viikon sää ratkaisee hyvin paljon, minkä verran viljasatoa ehditään puida.
 
-Volkov rakastaa mesisienen makua. Mesisieni on venäläisten mielestä herkullinen ruokasieni. Suomalaiset eivät käytä mesisientä.
+## Noin puolet ajaa pyörällä ilman ajovaloa
+
+![Polkupyörän valo ja käsi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7588063)
+
+Avaa kuvien katselu
+
+Ilman ajovaloa pyöräilijä ei näe eikä itse näy. Kuva: Kimmo Gustafsson / Yle
+
+Noin puolet pyöräilijöistä liikkuu pimeällä ilman ajovaloja. Näin kertoo Liikenneturva. Kunnollinen valo kuitenkin auttaa pyöräilijää näkemään tien paremmin. Se auttaa myös muita ihmisiä näkemään pyöräilijän.
+
+Yli 60 prosenttia autoilijoista kertoi Liikenneturvalle, että pyöräilijää ilman valoja on vaikea havaita.
+
+Polkupyörässä pitää olla pimeällä etuvalo, joka näyttää vaaleaa valoa. Uuteen lakiesitykseen on suunniteltu sitä, että pyöräilijän pitää käyttää myös punaista takavaloa.
+
+## Dublinin Suomi-koulu tervehtii 100-vuotiasta Suomea
+
+![Piirros Suomen lipusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9837669)
+
+Avaa kuvien katselu
+
+Suomi-kouluissa opiskellaan suomen kieltä ja suomalaista kulttuuria.
+
+Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa.
+
+Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
+
+Uusimmat terveiset tulevat Dublinin Suomi-koulusta Irlannista.

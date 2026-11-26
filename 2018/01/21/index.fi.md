@@ -1,73 +1,67 @@
-# Perjantai 12.1.2018 (radio)
+# Sunnuntai 21.1.2018 (radio)
 
-Verkkofirma Nokia vähentää työpaikkoja. Suomen talous kasvaa. Suomessa rakennetaan paljon asuntoja. Kuningatar Elisabet on antanut harvinaisen haastattelun. Nuoret käyttävät energiajuomia väärin.
+Suurin osa suomalaisista on sitä mieltä, että työttömyysturvan aktiivimalli on huono. Afganistanissa on kuollut ihmisiä hotellihyökkäyksessä. Turkki on hyökännyt Pohjois-Syyriaan. Krista Pärmäkoski voitti hiihdon maailmancupin 10 kilometrin hiihdon.
 
-## Nokia irtisanoo
+## Aktiivimalli ei saa kannatusta
 
-![Nokian pääkonttori Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8791622)
-
-Avaa kuvien katselu
-
-Nokia on nykyään tietoliikennealalla. Kuva: Markku Ojala / AOP
-
-Verkkofirma Nokia vähentää työpaikkoja. Nokia vähentää Suomesta 80 työpaikkaa.
-
-Nokia arvioi aikaisemmin, että sen pitää vähentää melkein 200 työpaikkaa. Nokian ja sen työntekijöiden yhteistyöneuvotteluissa määrää voitiin pienentää. Joillekin työntekijöille löytyi Nokiasta uusi tehtävä.
-
-Lisäksi Nokia auttaa työntekijöitä löytämään uutta työtä, jos he nyt menettävät työpaikan.
-
-## Talous kasvaa
-
-![Mies hitsaa teräspalkkia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6687460)
+![Mies jonottaa työvoimatoimistossa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10018883)
 
 Avaa kuvien katselu
 
-Metalliteollisuudella menee hyvin. Kuva: Mika Moksu / Yle
+Aktiivimallissa työttömän pitää hakea työtä aktiivisesti. Kuva: Heikki Saukkomaa / Lehtikuva
 
-Suomen talous kasvaa. Suomen Hypoteekkiyhdistys kertoo, että talous kasvaa nyt nopeasti.
+Suurin osa suomalaisista on sitä mieltä, että uusi työttömyysturvan aktiivimalli on huono.
 
-Kasvu on nopeaa etenkin metalliteollisuudessa ja metsäteollisuudessa. Myös matkailualalla menee hyvin.
+Aktiivimalli tarkoittaa, että työtön saa pienempää tukea, jos hän ei hae aktiivisesti työtä. Aktiivimallissa työttömän pitää 3 kuukauden aikana tehdä työtä 18 tuntia tai olla esimerkiksi koulutuksessa 5 päivää. Muuten tuki pienenee.
 
-Hypoteekkiyhdistys arvioi, että kasvu jatkuu vielä monta vuotta.
+Taloustutkimus teki Yleä varten kyselyn aktiivimallista. Vain 37 prosenttia vastaajista oli sitä mieltä, että aktiivimalli on hyvä. 56 prosenttia vastaajista ei halua, että aktiivimalli otetaan käyttöön.
 
-## Asuntoja rakennetaan
+Aktiivimalli tuli voimaan tämän vuoden alussa.
 
-![Keskustakirjaston rakennustyömaa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9781606)
+## Hyökkäys hotelliin Afganistanissa
 
-Avaa kuvien katselu
-
-Uusia asuntoja rakennetaan paljon. Kuva: Jani Saikko / Yle
-
-Suomessa rakennetaan paljon asuntoja. Rakentaminen on vilkasta, koska Suomen talous kasvaa. Etenkin kerrostaloja rakennetaan enemmän kuin kymmeniin vuosiin.
-
-Asuntojen rakentaminen vaikuttaa esimerkiksi vuokriin. Uusia asuntoja on niin paljon, että vuokrat eivät ehkä nouse enää niin nopeasti kuin ennen. Se on hyvä uutinen monelle vuokralaiselle, koska vuokrat ovat viime vuosina nousseet nopeammin kuin hinnat.
-
-Tiedot ovat laitokselta, jonka nimi on Pellervon taloustutkimus.
-
-## Kuningatar Elisabet
-
-![Kuningatar Elisabet](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9686161)
+![sotilaita ja hotelli joka savuaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10033630)
 
 Avaa kuvien katselu
 
-Britannian kuningatar Elisabet II. Kuva: Pool / EPA
+Afganistanin turvallisuusjoukot pelastivat hotellin vieraat. Kuva: Jawad Jalali / EPA
 
-Britannian kuningatar Elisabet on antanut harvinaisen haastattelun BBC:lle. Kuningatar kertoi kruunajaisista, jotka järjestettiin vuonna 1953. Silloin nuori kuningatar sai vallan merkit, esimerkiksi kruunun.
+Sitten uutisia ulkomailta.
 
-Nyt 65 vuotta myöhemmin kuningatar Elisabet sanoo, että kruunu oli päässä raskas. Se painoi paljon. Myös vanhat vaunut olivat epämukavat, kuningatar kertoo. Elisabet meni kruunajaisiin kullatuilla vaunuilla, joita hevoset vetivät.
+Afganistanissa on kuollut ihmisiä hotellihyökkäyksessä. Hyökkäys tapahtui Afganistanin pääkaupungissa Kabulissa.
 
-## Energiajuomat
+Joukko miehiä hyökkäsi hotelli Intercontinentaliin lauantai-iltana. Miehet ampuivat kohti hotellin vieraita ja työntekijöitä. Osa ihmisistä pääsi pakoon, mutta jotkut jäivät hyökkääjien vangiksi.
 
-![Energiajuomatölkkejä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10018413)
+Afganistanin turvallisuusjoukot taistelivat hyökkääjien kanssa. Turvallisuusjoukot saivat tilanteen hallintaan sunnuntaina aamupäivällä.
+
+Hyökkäyksessä kuoli monta ihmistä. Äärijärjestö Taliban on ilmoittanut, että se teki hyökkäyksen.
+
+## Turkin hyökkäys Syyriaan
+
+![Syyrian kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10033581)
 
 Avaa kuvien katselu
 
-Energiajuomat eivät sovi lapsille. Kuva: Juulia Tillaeus / Yle
+Turkki hyökkäsi Pohjois-Afganistaniin, Afrinin alueelle. Kuva: Yle Uutisgrafiikka
 
-Nuoret käyttävät energiajuomia väärin. Nuoria on joutunut Suomessa sairaalaan energiajuomien takia. Ulkomailla nuoria on jopa kuollut.
+Turkki on hyökännyt Pohjois-Syyriaan. Turkki sanoo, että se iskee kurdijoukkoja ja terroristijärjestö Isisiä vastaan.
 
-Energiajuomissa on tosi paljon kofeiinia. Siksi ne vaikuttavat sydämeen. Iso kofeiinimäärä voi aiheuttaa sydänkohtauksen.
+Turkin hyökkäyksessä on kuollut ihmisiä. Turkki sanoo, että kaikki kuolleet ovat kurdijoukkojen sotilaita. Kurdijoukot kertovat, että myös tavallisia ihmisiä on kuollut Turkin hyökkäyksen takia.
 
-Lastenlääkäri Timo Sillanpää sanoo, että lasten ei pidä juoda energiajuomia ollenkaan.
+Turkki hyökkäsi Pohjois-Syyriaan viikonloppuna. Turkki hyökkää alueelle, joka on kurdijoukkojen hallussa.
 
-Nuoret juovat energiajuomia usein siksi, että he eivät nuku tarpeeksi. Monet pelaavat tietokoneella koko yön ja pysyvät hereillä kofeiinin avulla.
+## Maailmacup-voitto Pärmäkoskelle
+
+![Krista Pärmäkoski](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10033552)
+
+Avaa kuvien katselu
+
+Hiihtäjä Krista Pärmäkoski on nyt hyvässä kunnossa. Kuva: Lehtikuva
+
+Vielä iloinen urheilu-uutinen.
+
+Suomen Krista Pärmäkoski on voittanut osakilpailun hiihdon maailmancupissa. Pärmäkoski voitti naisten 10 kilometrin hiihdon. Kilpailijat hiihtivät matkan perinteisellä hiihtotavalla.
+
+Kilpailu oli Planicassa, Sloveniassa. Kilpailun toiseksi paras hiihtäjä oli Ruotsin Charlotte Kalla. Kolmas oli Norjan Heidi Weng.
+
+Kalla ja Weng ovat hiihdon supertähtiä, ja siksi Pärmäkosken voitto oli hyvä saavutus. Voitto oli myös Pärmäkosken ensimmäinen voitto maailmancupissa.

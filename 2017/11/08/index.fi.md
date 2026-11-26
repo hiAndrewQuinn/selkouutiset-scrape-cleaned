@@ -1,65 +1,63 @@
-# Perjantai 3.11.2017 (radio)
+# Keskiviikko 8.11.2017 (radio)
 
-Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä. Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Lauantaina vietetään pyhäinpäivää.
+Euroopan unioni haluaa vähentää autojen saasteita. Intian pääkaupungin Delhin ilma on tosi likaista. Suomalaisilla nuorilla on hyvät tiedot yhteiskunnasta. Syötävät kukat ovat Suomen uusi vientituote.
 
-## Ihmisten salakuljetus
+## Autojen saasteita yritetään vähentää
 
-![Rajavartija passi raja passin tarkistus raja-asema Imatran raja-asema](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7732162)
-
-Avaa kuvien katselu
-
-Rajavartiolaitos on tutkinut ihmisten salakuljetusta. Kuva: Yle
-
-Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ihmisiä tuotiin Suomeen esimerkiksi Venäjän kautta.
-
-Viranomaiset epäilevät, että rikollisjärjestön toiminta jatkui monta vuotta. Suomeen tuotiin 15 ihmistä ja muualle Eurooppaan yli 150 ihmistä.
-
-Suomen viranomaisilla oli kesällä iso operaatio rikollisjärjestöä vastaan. Operaation aikana otettiin kiinni venäläinen mies.
-
-Asiaa tutkitaan nyt syyttäjänvirastossa.
-
-## Emmauksen työrinki
-
-![Hyväntekeväisyyskirpputoreille lahjoitettu tavara on entistä huonokuntoisempaa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8800539)
+![Henkilöautoliikennettä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9920615)
 
 Avaa kuvien katselu
 
-Emmaus-järjestö auttaa ihmisiä saamaan työtä Ahvenanmaalla. Kuva: Jaani Lampinen / Yle 
+Autot päästävät hiilidioksidia ilmaan. Kuva: Vesa Moilanen / Lehtikuva
 
-Ruotsinkielisellä Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä.
+Euroopan unioni haluaa vähentää autojen saasteita.
 
-Emmaus on auttanut jo monia, esimerkiksi romanialaisia ja bulgarialaisia. Järjestöllä on työrinki, jonka kautta EU-kansalaiset voivat saada työtä.
+Euroopan komissio ehdottaa, että autojen hiilidioksidipäästöjä vähennetään. Hiilidioksidi on haitallista luonnolle, koska se lämmittää ilmastoa. Komissio ehdottaa, että uusien autojen hiilidioksidipäästöjä vähennetään noin 30 prosenttia vuosien 2021 ja 2030 välillä.
 
-Ahvenanmaalaisten on helppoa tarjota työtä, koska Emmauksen työrinki hoitaa työnantajan velvollisuudet, esimerkiksi sosiaalimaksut.
+Tavoite on, että eurooppalaiset ajavat autoilla, jotka saastuttavat vähemmän.
 
-Romanialainen Amdreea Docuta on saanut siivoustyötä työringin kautta. Nyt Docuta opettelee ruotsia, koska hän haluaa opiskella keittiöapulaiseksi.
+## Delhin ilma on likaista
 
-Emmauksen työrinki on toiminut 2 vuotta, ja se on auttanut melkein 50 ihmistä.
-
-## Nimien taivutus
-
-![Valtiovarainministeri Petteri Orpo Ylen haastattelussa 27.06.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9693014)
+![Intialainen mies on lähtenyt aamulenkille Lodhin puutarhaan Delhissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9921567)
 
 Avaa kuvien katselu
 
-Ministeri Orvon vai Orpon hymy? Kuva: Derrick Frilund / Yle
+Delhissä on hyvä käyttää hengityssuojainta. Kuva: RAJAT GUPTA / EPA
 
-Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Tavoite on, että nimiä taivutetaan samalla tavalla kuin muita sanoja. Silti jotkut taivuttavat esimerkiksi etunimen Satu muotoon "Sadun" ja toiset muotoon "Satun".
+Intian pääkaupungissa Delhissä ihmiset kärsivät saasteista. Delhin ilmassa on saasteita 70 kertaa enemmän kuin Maailman terveysjärjestön mielestä on turvallista.
 
-Asiantuntija Ulla Onkamo sanoo, että molemmat muodot ovat oikein, kun kysymys on nimestä.
+Ilma on niin likaista ja epäterveellistä, että viranomaiset yrittävät suojella lapsia. Saasteiden takia Delhin koulut suljettiin keskiviikkona. Lapset eivät saa myöskään leikkiä ulkona.
 
-Onkamon mielestä on kohteliasta kuulla, mitä nimen omistaja ajattelee. Esimerkiksi ministeri Petteri Orpo toivoo, että lehdet kirjoittavat "Orpon", eivät "Orvon".  Toivetta noudatetaan ja olen siitä tyytyväinen, ministeri Orpo sanoo.
+Delhin asukkaat voivat sairastua saasteiden takia. Jos ihminen hengittää likaista ilmaa vuosia, hän voi saada esimerkiksi sydänsairauden tai keuhkosairauden.
 
-## Pyhäinpäivä
+Delhin ilmaan tulee saasteita esimerkiksi autoista, tehtaista ja hiilivoimaloista.
 
-![Hautakynttilä haudalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8417441)
+## Suomalaisilla nuorilla on tietoa yhteiskunnasta
+
+![Poliisiauto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9916533)
 
 Avaa kuvien katselu
 
-Pyhäinpäivänä haudoille sytytetään kynttilöitä. Kuva: Nina Keski-Korpela / Yle
+Suomalaiset nuoret luottavat poliisiin. Kuva: Ismo Pekkarinen / AOP
 
-Lauantaina vietetään pyhäinpäivää. Pyhäinpäivänä suomalaiset muistavat kuolleita sukulaisia ja ystäviä. Siksi haudoille viedään kynttilöitä.
+Suomalaisilla nuorilla on hyvät tiedot yhteiskunnasta. Se selviää tutkimuksesta, jossa oli mukana yli 20 maata. Kahdeksasluokkalaiset suomalaiset tietävät paremmin kuin monien muiden maiden nuoret, miten yhteiskunta toimii.
 
-Pyhäinpäivä aiheuttaa muutoksia liikenteeseen. Esimerkiksi Helsingin seudulla lähijunat, bussit ja raitiovaunut noudattavat lauantaina sunnuntaiaikatauluja.
+Suomessa nuoret myös luottavat yhteiskuntaan. Eniten nuoret luottavat Suomessa poliisiin ja armeijaan.
 
-VR:n kaukojunat kulkevat pyhäinpäivänä normaalisti, mutta kaukobussien aikatauluissa on muutoksia. Kaukobussien lähtöajat kannattaa tarkistaa Matkahuollon nettisivulta.
+Suomalaiset nuoret eivät kuitenkaan ole kovin aktiivisia. Nuoret eivät esimerkiksi halua osallistua mielenosoituksiin.
+
+## Kukkia suuhun
+
+![Syötäväksi sopivia ruiskaunokkeja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9920722)
+
+Avaa kuvien katselu
+
+Herkullisia ruiskaunokkeja. Kuva: Minna Rosvall / Yle
+
+Syötävät kukat ovat Suomen uusi vientituote. Esimerkiksi Kotipellon puutarha kasvattaa ruiskaunokkeja ja orvokkeja, kehäkukkia ja pelargonioita, joita viedään ulkomaille.
+
+Ensimmäinen kukkalasti on juuri lähtenyt Singaporeen. Aikaisemmin kukkia on jo viety Hongkongiin ja Ruotsiin.
+
+Kotipellon puutarha on saanut apua suomalaisilta keittiömestareilta, kun se on luonut kauppasuhteita ulkomaille.
+
+Työtä helpottaa se, että Helsingistä lennetään ympäri Aasiaa. Kukat täytyy kuitenkin pakata hyvin pitkää matkaa varten. Niiden pitää pysyä hyvänä siihen asti, että ne ehtivät singaporelaisten herkkusuiden lautasille.

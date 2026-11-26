@@ -1,75 +1,71 @@
-# Radio Selkouutiset lauantai 14.10.2023
+# Radio | Selkouutiset | tiistai 17.10.2023
 
-Suomalaisten evakuointi. Huijausviestit. Vuoden yleisurheilija. Kuolleet pikkulinnut. Sää
+Ruotsalaisten ampumistapaus. Presidentti Ahtisaaren surukirja. Puolan parlamenttivaalit. Sää.
 
-## Evakuointilennot
+## Ampumistapaus
 
-![Nuori nainen hattu päässä katsoo kameraan lentokentällä.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1186347652a2b2c46298/1697262526)
-
-Avaa kuvien katselu
-
-Javiera Kortelainen tuli evakuointilennolla Israelista Suomeen. Kuva: Ilkka Loikkanen
-
-Suomi on evakuoinut eli tuonut ihmisiä turvaan Israelista Suomeen. Evakuointilento laskeutui tänä aamuna Helsinkiin. Lennolla oli oin 150 ihmistä.
-
-Lisäksi noin 30 suomalaista evakuoitiin lennolla, joka laskeutui Tukholmaan aamuyöllä.
-
-Evakuointiin päädyttiin, koska äärijärjestö Hamas hyökkäsi viikko sitten Gazan alueelta Israeliin. Finnair ja moni muu lentoyhtiö keskeytti sen jälkeen lennot Tel Aviviiin.
-
-Israelissa ja Gazan alueella on yhä suomalaisia matkailijoita, kertoo ulkoministeri Elina Valtonen Ylen Ykkösaamussa. Valtonen sanoo, että Suomi ei kuitenkaan järjestä enää uusia evakuointilentoja.
-
-## Huijausviestit
-
-![lähikuva kännykästä ja sormista](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110369764477493aaa80/1682404585)
+![Hälytysajoneuvoja ja ihmisjoukko kadulla. Ihmisten joukossa on palopelastajia.](https://img.img-cdn.yle.fi/crop_extract,w_4269,h_2390,x_0,y_444/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1187168652d8cc731cdb/1697512360)
 
 Avaa kuvien katselu
 
-Poliisi varoittaa huijausviesteistä.  Kuva: AOP
+Ampumistapaus sattui Belgian pääkaupungissa Brysselissä. Kuva: HATIM KAGHAT/Lehtikuva
 
-Poliisi varoittaa huijausviesteistä, jotka näyttävät siltä, että ne tulevat verottajalta.
+Belgiassa on kuollut 2 ruotsalaista ampumistapauksessa. Ampumistapaus sattui maanantaina.
 
-Poliisin tietoon on tullut useita tapauksia, joissa ihmiset ovat saaneet tekstiviestin. Viesti näyttää siltä, että sen lähettäjä on verohallinnnon asiointipalvelu Omavero.
+Kuolleet olivat ruotsalaisia jalkapallofaneja. He olivat noin 60 ja 70 vuoden ikäisiä miehiä. Heidät ammuttiin taksiin muutaman kilometrin päässä Brysselin jalkapallostadionista.
 
-Viestissä on ollut linkki, johon on pyydetty syöttämään verkkopankkitunnukset. Kun ihmiset ovat syöttäneet tunnukset, ne ovat päätyneet rikollisten käsiin, ja hetken kuluttua pankkitili on ollut tyhjä.
+Stadionilla oli tarkoitus pelata Ruotsin ja Belgian välinen jalkapallo-ottelu. Ottelu kuitenkin peruttiin ampumistapauksen takia.
 
-Poliisi muistuttaa, että verkkopankkitunnuksia ei koskaan pidä kirjoittaa mihinkään linkkeihin.
+Belgian poliisi sai ampujan kiinni tänään tiistaina. Ampuja kuoli, sen jälkeen kun poliisi ampui häntä.
 
-## Vuoden yleisurheilija
+Poliisi sanoo, että ampuja halusi tappaa juuri ruotsalaisia. Ampuja kertoi teosta videolla ampumisen jälkeen.
 
-![Wilma Murto.](https://img.img-cdn.yle.fi/crop_extract,w_5790,h_3256,x_0,y_29/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116496864ef6683ce291/1693410976)
+Ampuja kertoi, että hän on terroristijärjestö Isisin kannattaja. Ampuja sanoi videolla myös, että hän halusi kostaa muslimien puolesta.
 
-Avaa kuvien katselu
+Ruotsissa on ollut tapauksia, joissa on poltettu muslimien pyhä kirja Koraani. Siksi monet muslimit ovat suuttuneet Ruotsille.
 
-Seiväshyppääjä Wilma Murto on Vuoden yleisurheilija Kuva: Getty Images
+Ruotsin pääministeri Ulf Kristersson sanoo, että Belgian ampumistapaus oli terroriteko ruotsalaisia vastaan.
 
-Seiväshyppääjä Wilma Murto on Vuoden yleisurheilija. Murto sai palkinnon eilen perjantaina Suomen urheiluliiton gaalassa Helsingissä.
+## Ahtisaaren surukirja
 
-Murrolla on ollut hyvä kausi. Hän esimerkiksi hyppäsi MM-pronssia tänä vuonna Budapestissä ja oli halliratojen Euroopan mestari Istanbulissa.
-
-Wilma Murto voitti Vuoden yleisurheilijan palkinnon myös viime vuonna.
-
-## Pikkulinnut
-
-![Kaksi kuollutta tilheä. ](https://img.img-cdn.yle.fi/crop_extract,w_1374,h_772,x_0,y_83/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-118622565293e88c974b/1697201837)
+![Antti Vepsäläinen ja Mikko Paavola jättivät nimensä kirjaan.](https://img.img-cdn.yle.fi/crop_extract,w_5586,h_3142,x_0,y_355/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1187327652e4523dad86/1697531685)
 
 Avaa kuvien katselu
 
-Kuva: Olli-Pekka Kursi / Yle
+Ahtisaaren surukirjaan voi kirjoittaa surunvalitteluja Presidentinlinnassa perjantaihin asti. Kuva: Silja Viitala / Yle
 
-Helsingin kaduilla on viime aikoina näkynyt paljon kuolleita pikkulintuja.
+Suomessa kunnioitetaan presidentti Martti Ahtisaaren muistoa. Presidentinlinnassa avattiin tiistaina presidentti Ahtisaaren surukirja.
 
-Kuolleita pikkulintuja on havaittu esimerkiksi Alppiharjussa, Kruununhaassa ja Kalasatamassa.
+Ihmiset voivat kirjoittaa siihen surunvalitteluja perjantaihin asti. Ensimmäiset kirjoittajat olivat presidentti Sauli Niinistö ja rouva Jenni Haukio.
 
-Juho Leppänen Helsingin seudun lintutieteellisestä yhdistyksestä kertoo, että linnut ovat todennäköisesti tilhiä tai kuusitiaisia. Todennäköisesti linnut ovat törmänneet ikkunaan, ja siksi ne ovat kuolleet tai pökertyneet.
+Myöhemmin surunvalittelut painetaan kirjaan, joka annetaan Ahtisaaren perheelle.
 
-## Sunnuntain sää
+Presidentti Ahtisaari kuoli maanantaina. Hän oli 86-vuotias. Ahtisaari oli Suomen presidentti vuodesta 1994 vuoteen 2000.
 
-![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1186436652a9a67980eb/1697290894)
+## Puolan parlamenttivaalit
+
+![Donald Tusk tervehtii kannattajiaan.](https://img.img-cdn.yle.fi/crop_extract,w_4198,h_2361,x_0,y_59/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1187133652d666f8a540/1697474361)
 
 Avaa kuvien katselu
 
-Kuva: Yle
+Puolan oppositiojohtaja Donald Tusk iloitsi vaalituloksesta. Kuva: Janek Skarzynski / AFP
 
-Huomenna idässä ja pohjoisessa voi sataa vettä tai lunta. Etelässä ja lännessä on enimmäkseen poutaa.
+Puolassa oppositio on voittanut parlamenttivaalit. Oppositiopuolueet saivat noin 54 prosenttia äänistä.
 
-Päivälämpötila on kolmen ja kahdeksan asteen välillä, pohjoisessa miinus yhden ja plus neljän asteen välillä.
+Puolassa järjestettiin parlamenttivaalit sunnuntaina. Vaalien lopullinen tulos valmistui tänään tiistaina.
+
+Arvioidaan, että opposition voitto vahvistaa Puolan demokratiaa.
+
+Oppositio suhtautuu myös Euroopan unioniin positiivisemmin kuin Laki ja oikeus -puolue, joka on hallinnut Puolaa vuodesta 2015 lähtien.
+
+## Sää
+
+![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1187705652ea6336ba72/1697556062)
+
+Avaa kuvien katselu
+
+Sää on kylmää ja poutaista. Paikoin voi tulla lumikuuroja.
+
+Lämpötila on keskiviikkona maan etelä- ja keskiosassa 0 ja +5 asteen välillä, pohjoisessa +1 ja -5 asteen välillä.
+
+Myös torstai ja perjantai ovat kylmiä päiviä.

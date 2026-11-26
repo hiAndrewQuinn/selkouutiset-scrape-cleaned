@@ -1,75 +1,77 @@
-# Radio Selkouutiset perjantai 7.7.2023
+# Radio Selkouutiset sunnuntai 9.7.2023
 
-Halla-aho. Some. Pyörävarkaudet. Kanadan maastopalot. Sää.
+Joe Biden. Vaatteiden kierrätys. Sudan. Vesihome. Sää.
 
-## Halla-aho
+## Presidentti Joe Biden
 
-![Jussi Halla-aho Valtiosalissa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11336696493fe69a1a41/1687420890)
-
-Avaa kuvien katselu
-
-Jussi Halla-aho. Kuva: Silja Viitala / Yle
-
-Perussuomalaisten Jussi Halla-aho haluaa presidenttiehdokkaaksi. Perussuomalaiset päättää puolueen presidenttiehdokkaasta elokuussa.
-
-Jussi Halla-aho on nykyään eduskunnan puhemies, eli hän johtaa eduskunnan työtä. Aikaisemmin hän oli perussuomalaisten puheenjohtaja.
-
-Presidentinvaalit järjestetään ensi vuoden alussa. Vaaleissa on mukana monta ehdokasta, esimerkiksi Pekka Haavisto ja Olli Rehn.
-
-Haavisto kuuluu vihreisiin, ja hän on entinen ulkoministeri. Rehnin puolue on keskusta, ja hän on Suomen Pankin pääjohtaja.
-
-## Some
-
-![Matkapuhelin käyttäjän kädessä.](https://img.img-cdn.yle.fi/crop_extract,w_3596,h_2021,x_0,y_218/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10805406401d8df2bf06/1740321087)
+![Joe Biden laskeutuu lentokoneen portaita.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113999864a922945cdcc/1688806098)
 
 Avaa kuvien katselu
 
-Kuva: Larry W. Smith / EPA
+USA:n presidentti Joe Biden. Kuva: Roberto Schmidt / EPA
 
-Sosiaalinen media eli some on monille nuorille aikuisille ongelma. Näin kertoo Oulun yliopiston uusi tutkimus.
+USA:n presidentti Joe Biden aloittaa matkan Eurooppaan myöhään sunnuntaina.
 
-Tutkimuksessa noin 70 prosenttia nuorista aikuisista koki, että somen käyttö on ongelmallista. Some vei nuorten mielestä esimerkiksi liikaa aikaa.
+Biden matkustaa ensin lyhyelle vierailulle Britanniaan. Hän tapaa maanantaina Britannian pääministerin Rishi Sunakin ja kuningas Charlesin.
 
-Tutkijoiden mielestä somen käyttö oli ongelmallista 10 prosentille tutkimuksen nuorista. Some häiritsi näiden nuorten arkea ja hyvinvointia.
+Britanniasta Biden menee Vilnaan Liettuaan Naton huippukokoukseen. Huippukokous on Vilnassa tiistaina ja keskiviikkona. Torstaina presidentti Biden lentää Vilnasta Helsinkiin.
 
-Tutkijat sanovat, että somen ongelmakäyttö lisää esimerkiksi nuorten aikuisten yksinäisyyttä ja masennusta. Somen ongelmakäyttöä oli eniten nuorilla naisilla.
+## Laki vaatteiden kierrätyksestä
 
-## Pyörävarkaudet
-
-![Pysäköity sähköpyörä Jyväskylän keskustan pyöräparkissa.](https://img.img-cdn.yle.fi/crop_extract,w_5302,h_2982,x_0,y_48/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136295649d8488833e3/1688044774)
+![Esimerkkipino tekstiilien erilliskeräykseen kelpaavista vaatteista.](https://img.img-cdn.yle.fi/crop_extract,w_4945,h_2782,x_5,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1097486643515eba82fd/1681211193)
 
 Avaa kuvien katselu
 
-Varkaat haluavat kalliita sähköpyöriä. Kuva: Jaana Polamo / Yle
+Tavoite on, että vuonna 2030 EU-alueella myytävät tekstiilit olisivat kierrätettäviä, korjattavia ja kestäviä. Kuvituskuva. Kuva: Antti Ullakko / Yle
 
-Kesällä varastetaan paljon polkupyöriä. Varkaita kiinnostavat nyt erityisesti kalliit sähköpyörät.
+EU suunnittelee uutta lakia, joka koskee vaatteita.
 
-Eniten pyöriä varastettiin vuonna 2020. Sen jälkeen pyörävarkauksien määrä on vähentynyt, mutta vahinkojen rahallinen arvo on noussut.
+Tavoitteena on, että vuonna 2030 EU:n alueella myydään vain sellaisia vaatteita, jotka voi korjata ja kierrättää.
 
-Varkaat vievät nyt sähköpyöriä, jotka maksavat jopa 5000 euroa. Varkaita kiinnostavat myös kalliit sähköpotkulaudat.
+EU:ssa syntyy joka vuosi 12 miljoonaa tonnia jätettä vaatteista. Vain noin 20 prosenttia vaatteista kierrätetään. Loput vaatteet poltetaan tai ne menevät kaatopaikalle.
 
-## Kanadan maastopalot
+## Sudan
 
-![Ilmakuva maastopalosta Kanadassa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_83/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113927264a75787bf480/1688688909)
+![Ihmiset nostavat tavaroita pois tila-auton kkatolta.](https://img.img-cdn.yle.fi/crop_extract,w_3920,h_2205,x_0,y_263/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114016764aa79d0926e1/1688893987)
 
 Avaa kuvien katselu
 
-Kanadassa tuli on tuhonnut paljon metsää tänä kesänä. Kuva: Lehtikuva / AFP / Audrey Marcoux / SOPFEU /
+Väkivaltaa pakenevat sudanilaiset saapuivat viime maanantaina pääkaupunki Khartumista Kaakkois-Sudanissa sijaitsevaan Gadarefiin. Kuva: AFP
 
-Kanadassa on ollut tänä vuonna suuria maastopaloja. Maastoa ja metsää on palanut ennätyspaljon.
+Sudanissa on pahoja väkivaltaisuuksia.
 
-Tähän mennessä metsää on palanut jo enemmän kuin koskaan ennen yhden vuoden aikana. Myös sammutustyöt ovat maksaneet ennätyspaljon.
+YK varoittaa, että Sudanissa voi alkaa täysi sisällissota. Sota voi aiheuttaa levottomuuksia myös Afrikassa sijaitsevan Sudanin naapurimaissa.
 
-Kanadan maastopaloaika on vasta puolivälissä. Kanadan metsävirasto on huolissaan, koska lämmin ja kuiva sää Kanadassa jatkuu. Siksi maastopaloja voi syttyä paljon myös heinäkuun ja elokuun aikana.
+YK antoi varoituksen sen jälkeen, kun yli 20 ihmistä kuoli ja kymmeniä loukkaantui ilmaiskussa, joka tehtiin pääkaupungin Khartumin lähellä. YK:n pääsihteeri Antonio Guterres tuomitsi iskun.
+
+Taistelut Sudanissa alkoivat huhtikuun puolivälissä.
+
+## Vesihome
+
+![Saimaan alkuperäinen järvilohi viljelylaitoksen työntekijän käsissä.](https://img.img-cdn.yle.fi/crop_extract,w_4069,h_2286,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113969464a7ed80d97a3/1688727025)
+
+Avaa kuvien katselu
+
+Saimaan järvilohi. Kuva: Luke
+
+Saimaan järvilohi on vaikeuksissa.
+
+Sienitauti tappaa suuria määriä Saimaan järvilohia. Sienitaudista käytetään nimeä vesihome.
+
+Vesihome tappaa kaloja sekä luonnossa että laitoksissa. Kasvatuslaitoksessa vesihome voi tappaa nopeasti ison määrän kaloja. Taudin takia Saimaan järvilohta uhkaa jopa sukupuutto.
+
+Vesihome uhkaa myös toista Saimaan kalaa, Saimaannieriää. Nieriä kestää kuitenkin vesihometta paremmin kuin järvilohi.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113984264a80dc93262d/1688735233)
+![Sää poutaantuu ja lämpenee vähitellen.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114006964a966a4c9fab/1688823514)
 
 Avaa kuvien katselu
 
-Lauantaina sadekuuroja syntyy Suomen etelä- ja keskiosassa. Myös ukkosta esiintyy.
+Kuva: Anne Borgström / Yle
 
-Maan pohjoisosassa on poutaista eli siellä ei sada. Lämpötila on 15 ja 20 asteen välillä.
+Sää on maanantaina koko maassa poutainen. Lämpötila on päivällä 19 ja 24 asteen välillä.
 
-Sunnuntaina sateet loppuvat, ja suuressa osassa maata on poutaista. Lämpötila kuitenkin pysyy 15 ja 20 asteen välillä.
+Koko alkuviikon sää on enimmäkseen poutainen ja aurinkoinen. Lapissa ja Länsi-Suomessa on ehkä helle, eli lämpötila nousee yli 25 asteen.
+
+Ensi viikon loppupuolella sataa taas monin paikoin vettä.

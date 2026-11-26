@@ -1,93 +1,77 @@
-# Sunnuntai 18.2.2018 (radio)
+# Tiistai 20.2.2018 (radio)
 
-Asunnot menevät kaupaksi suurissa kaupungeissa. Suomi ja Ruotsi voivat olla Itä-Ukrainan rauhanturvaoperaatiossa. Iranissa tuhoisa lento-onnettomuus. Latvian keskuspankin johtajaa kuulusteltu. Floridassa vaaditaan tiukempia aselakeja.
+Maahanmuuttovirasto arvioi, että turvapaikanhakijoiden on turvallista palata Bagdadiin. Työttömien määrä vähenee. Kevään yhteishaku ammattikouluihin ja lukioihin on alkanut. Tanskassa oli kuninkaalliset hautajaiset. Pakkassää jatkuu.
 
-## Asunnot menevät nyt kaupaksi
+## Irakin turvallisuustilanne
 
-![Kauppakirja pöydällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9934650)
-
-Avaa kuvien katselu
-
-Pääkaupunkiseudulla ja 10 suurimmassa kaupungissa asunnot menevät nyt hyvin kaupaksi. Kuva: Ismo Pekkarinen / AOP
-
-Asunnot menevät tällä hetkellä hyvin kaupaksi isoissa kaupungeissa.
-
-Asuntojen hinnat olivat tammikuussa noin 4,5 prosenttia suuremmat kuin viime vuoden tammikuussa.
-
-Asuntokauppiaat sanovat, että ihmiset uskaltavat nyt ostaa asuntoja, koska taloustilanne on parantunut.
-
-Helsingin keskustassa on jo pulaa keskikokoisista perheasunnoista.
-
-## Ruotsi ja Suomi valmiina Itä-Ukrainaan
-
-![Nainen seisoo hajonneen talon reunalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9992967)
+![Sotilas vartioi torikauppaa Irakin pääkaupungissa Bagdadissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10082392)
 
 Avaa kuvien katselu
 
-Ukrainassa taistelut jatkuvat, ja sinne halutaan lähettää rauhanturvaajia. Kuva: Alexander Ermochenko / EPA
+Irakin pääkaupungin Bagdadin turvallisuustilanne on parantunut. Kuva: Ali Abbas / EPA
 
-Suomi ja Ruotsi voivat lähettää rauhanturvaajia Itä-Ukrainaan.
+Maahanmuuttovirasto eli Migri on arvioinut Irakin turvallisuutta.
 
-Ruotsi ja Suomi kertoivat asiasta turvallisuuskokouksessa, joka oli Münchenissä, Etelä-Saksassa.
+Maahanmuuttoviraston tutkijat kävivät Irakin pääkaupungissa Bagdadissa. He tutkivat, onko turvapaikanhakijoiden turvallista palata Bagdadiin.
 
-YK suunnittelee rauhanturvaoperaatiota Itä-Ukrainaan, koska siellä on edelleen taisteluja.
+Maahanmuuttoviraston arvio ei muuttunut matkan takia. Migri on edelleen sitä mieltä, että Bagdad on melko turvallinen kaupunki. Siksi Suomi jatkaa irakilaisten käännyttämistä, eli turvapaikanhakijoita lähetetään takaisin Irakiin.
 
-Rauhanturvaoperaatioon voi osallistua noin 20 000 sotilasta.
+Maahanmuuttovirasto kuitenkin sanoo, että Irakissa on myös vaarallisia alueita. Vaarallisille alueille ei lähetetä ketään.
 
-Münchenin kokoukseen osallistui myös monia muita maita.
+## Työttömiä vähemmän
 
-Israelin pääministeri Benjamin Netanjahu sanoi kokouksessa, että Israel on valmis iskemään Iraniin.
-
-Netanjahun mielestä Iranin toiminta on muuttunut entistä röyhkeämmäksi.
-
-Netanjahu sanoi, että Israelin suhteet muihin arabimaihin ovat kuitenkin parantuneet.
-
-## Iranissa tuhoisa lento-onnettomuus
-
-![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10081194)
+![TE-palvelutoimiston ovi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10071822)
 
 Avaa kuvien katselu
 
-Lento-onnettomuus tapahtui vuorilla, jonne pelastustyöntekijöiden on vaikea päästä. Kuva: Yle Uutisgrafiikka
+Työttömien määrän väheneminen on huomattu myös Työ- ja elinkeinotoimistoissa. Kuva: Antti Haanpää / Yle
 
-Iranissa on tapahtunut lento-onnettomuus.
+Työttömien määrä vähenee. Työttömiä oli tämän vuoden tammikuussa 4000 vähemmän kuin viime vuoden tammikuussa.
 
-Lentokone syöksyi maahan vuoristossa, Iranin eteläosassa.
+Työttömiä on nyt noin 230 000. Nämä luvut ovat Tilastokeskukselta.
 
-Koneessa oli 66 matkustajaa. Viranomaiset uskovat, että kaikki matkustajat kuolivat onnettomuudessa.
+Myös Työ- ja elinkeinotoimistot kertovat, että työttömien määrä vähenee. Myös työttömiä nuoria on Työ- ja elinkeinotoimistojen asiakkaina nyt vähemmän kuin vuosi sitten.
 
-Onnettomuuden syytä ei vielä tiedetä.
+## Yhteishaku alkoi
 
-## Latvian keskuspankin pääjohtajaa kuulusteltu
-
-![Latvian keskuspankin pääjohtaja Ilmārs Rimševičs.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10081338)
+![Ammattikoulussa rakennusalaa opiskeleva poika mittaa lautaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6557030)
 
 Avaa kuvien katselu
 
-Ilmārs Rimševičs on johtanut Latvian keskuspankkia vuodesta 2001 lähtien. Kuva: Valda Kalnina / EPA
+Nyt on aika hakea esimerkiksi ammattikouluun. Kuva: Yle
 
-Latvian keskuspankin pääjohtaja on otettu kiinni ja poliisi on kuulustellut häntä.
+Kevään yhteishaku on alkanut. Nuoret voivat nyt hakea ammattikouluun ja lukioon. Yhteishaku loppuu maaliskuun 13. päivä.
 
-Kuulustelu liittyy korruptiotutkintaan.
+Nuoret saavat tietää kesäkuussa, saivatko he opiskelupaikan. Opinnot alkavat syksyllä.
 
-Pääjohtajan koti ja toimisto tutkittiin jo perjantaina.
+## Kuninkaalliset hautajaiset Tanskassa
 
-Keskuspankki ei ole komentoinut pääjohtajan kuulusteluja.
-
-## USA:ssa vaaditaan tiukempia aselakeja
-
-![Ihmisiä mielenosoituksessa Fort Lauderdalessa, Floridassa .](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10081097)
+![Tanskan prinssi Henrikin hautajaiset Christiansborgin linnan kirkossa Kööpenhaminassa 20. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10083709)
 
 Avaa kuvien katselu
 
-Mielenosoittajat vaativat tiukempia aselakeja Yhdysvaltoihin Floridan kouluampumisten jälkeen. Kuva: Joe Raedle / AFP
+Prinssi Henrikin arkku Christiansborgin linnan kirkossa Kööpenhaminassa. Kuva: Liselotte Sabroe / AFP
 
-Yhdysvalloissa on ollut paljon mielenosoituksia, joissa on vaadittu aselakien tiukentamista.
+Tanskassa oli tiistaina kuninkaalliset hautajaiset. Tanskan prinssi Henrik haudattiin Tanskan pääkaupungissa Kööpenhaminassa.
 
-Mielenosoittajat sanovat, että Yhdysvalloissa saa aseita liian helposti.
+Prinssi Henrik oli kuningatar Margareetan puoliso. Margareeta on ollut Tanskan kuningatar jo 46 vuotta.
 
-Mielenosoituksia on järjestetty sen jälkeen, kun nuori mies ampui 17 ihmistä floridalaisessa koulussa viime keskiviikkona.
+Tanska ja Suomi kuuluvat Pohjoismaihin. Pohjoismailla on hyvät ja läheiset suhteet. Myös Tanskan kuninkaalliset ovat vierailleet usein Suomessa.
 
-Mielenosoittajat moittivat etenkin poliitikkoja, joilla on yhteyksiä aseita kannattavaan Kansalliseen kivääriyhdistykseen NRA:han. He moittivat muun muassa presidentti Donald Trumpia.
+Tanskan prinssi Henrik kuoli viikko sitten.
 
-Myös liittovaltion poliisia FBI:tä on moitittu. FBI oli saanut varoituksen miehestä, joka ampui koulussa. FBI ei kuitenkaan ottanut varoitusta vakavasti.
+## Pakkanen jatkuu
+
+![Mies menee Oulujokeen uimaan talvella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10059453)
+
+Avaa kuvien katselu
+
+Nyt on aika nauttia talvesta. Kuva: Timo Nykyri / Yle
+
+Pakkassää jatkuu Suomessa. Tämä viikko on kylmä, ja ensi viikon alussa on vielä kovempi pakkanen.
+
+Ylen meteorologi Joonas Koskela kertoo, että Venäjältä Siperiasta tulee silloin tosi kylmää ilmaa Suomeen.
+
+Ensi viikolla pakkasta voi olla yöllä jopa 30 astetta. Päivällä aurinko jo vähän lämmittää ja pakkanen laskee 10 ja 20 asteen välille. Tuulen takia pakkanen kuitenkin tuntuu kovemmalta.
+
+Ei ole tavallista, että Etelä-Suomessa on näin kova pakkanen vielä helmikuun lopussa.

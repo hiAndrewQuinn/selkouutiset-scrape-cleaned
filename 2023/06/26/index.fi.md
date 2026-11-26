@@ -1,71 +1,77 @@
-# Radio Selkouutiset lauantai 24.6.2023
+# Radio Selkouutiset maanantai 26.6.2023
 
-Venäjän tilanne. Suomen kommentit Venäjän tilanteesta. Juhannuksen onnettomuudet. Sää.
+Tilanne Suomen ja Venäjän rajalla. Kreikan vaalit. Helsinki Pride. Jokaisenoikeudet. Sää.
 
-## Venäjän tilanne
+## Rajalla rauhallista
 
-![Wagener-palkkasotilaita Donin Rostovin kaupungissa.](https://img.img-cdn.yle.fi/crop_extract,w_5164,h_2904,x_0,y_326/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11342346496ebbabe450/1687624402)
-
-Avaa kuvien katselu
-
-Wager-joukkoja Donin Rostovin kaupungissa Venäjällä. Kuva: Sergey Pivovarov / AOP
-
-Venäjällä on vaarallinen tilanne. Joukko palkkasotilaita on matkalla kohti Venäjän pääkaupunkia Moskovaa.
-
-Palkkasotilaat kuuluvat Wagner-joukkoihin. Ne ovat osallistuneet Venäjän sotaan Ukrainaa vastaan.
-
-Nyt Wagner-joukkojen johtaja Jevgeni Prigožin haluaa vaihtaa Venäjän armeijan johtajat. Prigožinin mielestä he ovat johtaneet sotaa huonosti.
-
-Venäjän presidentti Vladimir Putin sanoo, että Wagner on pettänyt Venäjän. Siksi hän on määrännyt, että Venäjän armeijan pitää pysäyttää Wagner-joukot.
-
-Venäjän armeija on aloittanut taistelut Wagner-joukkoja vastaan. Moskovassa monet työpaikat pidetään kiinni, jotta ihmisten ei tarvitse liikkua kaupungilla.
-
-## Suomen kommentit
-
-![Sauli Niinistö puhuu presidentinlinnassa vieraille, taustalla vihreitä kasveja.](https://img.img-cdn.yle.fi/crop_extract,w_2286,h_1285,x_806,y_434/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131753648f2d5e5045d/1687104959)
+![Elina Valtonen tervehtii Saksan ulkoministeriä. ](https://img.img-cdn.yle.fi/crop_extract,w_4500,h_2531,x_0,y_148/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1134410649947a03960d/1687766992)
 
 Avaa kuvien katselu
 
-Presidentti Sauli Niinistö seuraa Venäjän tilannetta. Kuva: Benjamin Suomela / Yle
+Suomen ulkoministeri Elina Valtonen (oikealla). Kuva: Frederic Sierakowski / EU
 
-Suomessa seurataan, miten Venäjän tilanne kehittyy. Presidentti Sauli Niinistö sanoo, että Venäjän tilannetta seurataan tarkasti.
+Suomen ja Venäjän raja on rauhallinen, Suomea ei uhkaa mikään. Näin sanoo Suomen ulkoministeri Elina Valtonen.
 
-Pääministeri Petteri Orpo on keskustellut Venäjän tilanteesta Viron ja Latvian pääministereiden kanssa. Maat aikovat tehdä yhteistyötä.
+Valtonen kommentoi Suomen turvallisuutta Venäjän tapahtumien takia. Viikonloppuna Wagner-sotilaat nousivat kapinaan Venäjän sotilasjohtoa vastaan.
 
-Viranomaiset sanovat, että suomalaisten ei kannata matkustaa Venäjälle. Arvioidaan, että Venäjällä on nyt noin 200 suomalaista.
+Wagner-sotilaiden johtaja Jevgeni Prigožin halusi, että Venäjän armeijan johtajat vaihdetaan. Syynä olivat riidat siitä, kuinka Venäjän sotatoimia Ukrainassa pitää johtaa.
 
-## Juhannuksen onnettomuudet
+Kapina loppui nopeasti, mutta tilanne Venäjällä on sekava. Suomen ulkoministeri Valtonen sanoo, että Suomi seuraa Venäjän tilannetta tarkasti.
 
-![Talin siirtolapuutarhassa on juhannusaattona perinteisesti miesten saunavuoro. ](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1078,x_0,y_120/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11341406495adc414381/1687531004)
+## Kreikan vaalit
+
+![Kyriakos Mitsotakis seisoo puhujakorokkeella.](https://img.img-cdn.yle.fi/crop_extract,w_4775,h_2685,x_68,y_13/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113432064988b38ca068/1687748381)
 
 Avaa kuvien katselu
 
-Juhannus sujui rauhallisesti. Kuva: Jussi Mankkinen / Yle
+Kyriakos Mitsotakis voitti Kreikan vaalit. Kuva: Lehtikuva
 
-Suomessa on vietetty juhannusta melko rauhallisesti.
+Kreikassa on järjestetty parlamenttivaalit.
 
-Poliisilla oli kuitenkin paljon tehtäviä juhannusyönä. Juhannuksen juhlijat tappelivat ja aiheuttivat myös muuta häiriötä eri puolilla Suomea.
+Vaalien voittaja on Uusi demokratia -puolue. Sen johtaja on Kreikan pääministeri Kyriakos Mitsotakis.
 
-Juhannusaattona joukko suomalaisia joutui onnettomuuteen merellä lähellä Viron pääkaupunkia Tallinnaa. Suomalaisten vene ajoi karille eli se törmäsi kiveen tai kallioon.
+Uusi demokratia sai parlamenttivaaleissa yli 40 prosenttia äänistä. Puolue saa yli puolet parlamenttipaikoista.
 
-Virolaiset meripelastajat veivät suomalaiset turvaan, eikä kukaan loukkaantunut. Viron poliisi kertoo, että veneen kuljettaja ei ollut juonut alkoholia.
+Kreikan edelliset parlamenttivaalit järjestettiin vain kuukausi sitten. Silloin mikään puolue ei saanut enemmistöä parlamenttiin.
 
-Juhannuksena on tapahtunut myös auto-onnettomuuksia.
+## Helsinki Pride
 
-Pohjois-Suomessa Torniossa tapahtui auto-onnettomuus juhannusaattona. Noin 80-vuotias nainen kuoli, kun auto ajoi mutkassa ulos tieltä. Auton noin 80-vuotias kuljettaja vietiin sairaalaan.
+![Pridelippu.](https://img.img-cdn.yle.fi/crop_extract,w_4987,h_2805,x_12,y_442/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113351464938532911c2/1687389629)
 
-Etelä-Suomessa Akaassa tapahtui auto-onnettomuus juhannusyönä. Siellä 1 ihminen kuoli, kun auto ajoi ulos tieltä.
+Avaa kuvien katselu
+
+Sateenkaarilippu on Priden symboli. Kuva: EPA-EFE/MICHAEL BUHOLZER
+
+Helsinki Pride -viikko on alkanut. Helsinki Pride on suuri ihmisoikeustapahtuma. Sen teemana ovat seksuaalivähemmistöjen oikeudet.
+
+Pride-viikon päätapahtuma on lauantaina. Silloin järjestetään Pride-kulkue. Tuhannet ihmiset kulkevat Helsingin Senaatintorilta Kaivopuistoon.
+
+Pride-tapahtumia on tällä viikolla myös muualla Suomessa. Homoseksuaalit ja muut seksuaalivähemmistöt juhlivat Pride-tapahtumissa Itä-Suomessa Kuopiossa ja Länsi-Suomessa Kokkolassa.
+
+## Jokaisenoikeudet
+
+![Marjastaja poimii mustikoita marjanpoimurilla.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9999826308b3bf11cee/1661514958)
+
+Avaa kuvien katselu
+
+Esimerkiksi marjastaminen kuuluu jokaisenoikeuksiin. Kuva: Juulia Tillaeus / Yle
+
+Metsähallitus on kertonut uudesta sanasta. Uusi sana on jokaisenoikeudet.
+
+Aikaisemmin Metsähallitus puhui jokamiehenoikeuksista. Uusi sana *jokaisenoikeudet* edistää tasa-arvoa, Metsähallitus sanoo.
+
+*Jokaisenoikeudet* tarkoittaa, että Suomessa jokainen saa käyttää luontoa. Esimerkiksi metsässä voivat marjastaa myös muut kuin metsän omistaja.
+
+Metsähallitus huolehtii metsistä, joiden omistaja on Suomen valtio.
 
 ## Sää
 
-![Kuvassa näkyy sunnuntain, maanantain ja tiistain sääkartat.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11342496496fd6ad8d81/1687616915)
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11346966499ad41936e9/1687792987)
 
 Avaa kuvien katselu
 
-Kuva: Elias Paakkanen / Yle
+Etelä- ja Keski-Suomessa ukkostaa ja sataa tiistaina. Lämpötila on yli 20 astetta.
 
-Sunnuntaina sadekuuroja tulee Etelä-Suomessa. Muualla on aurinkoista.
+Pohjoisessa sataa välillä. Tiistain lämpötila on pohjoisessa noin 20 astetta.
 
-Lämpötila on sateessa alle 20 astetta, auringossa on jopa hellettä eli lämpötila on ainakin 25 astetta.
-
-Lämmin sää jatkuu ensi viikolla.
+Myös keskiviikkona ukkostaa ja lämpötilat pysyvät samanlaisina kuin tiistaina.

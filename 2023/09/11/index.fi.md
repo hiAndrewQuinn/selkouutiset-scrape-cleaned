@@ -1,79 +1,81 @@
-# Radio Selkouutiset perjantai 8.9.2023
+# Radio Selkouutiset maanantai 11.9.2023
 
-Hallituksen luottamus. Teollisuuden tilaukset. Hongonkongin sateet. Havis Amandalle suoja-aita. Sää.
+Terrorismioikeudenkäynti. Ilkivalta. Turkistarhauskielto. Naalit. Sää.
 
-## Hallituksen luottamus
+## Terrorismioikeudenkäynti
 
-![Pääministeri Petteri Orpo pitää avauspuheenvuoroa täysistunnossa.](https://img.img-cdn.yle.fi/crop_extract,w_3984,h_2241,x_0,y_9/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116829864f86679ac3df/1694000844)
-
-Avaa kuvien katselu
-
-Petteri Orpon hallitus jatkaa, koska sillä on eduskunnan enemmistön luottamus. Kuva: Silja Viitala / Yle
-
-Hallitus on saanut eduskunnan luottamuksen.
-
-Eduskunta äänesti perjantaina siitä, luottaako se hallitukseen. Hallitus voitti äänestyksen.
-
-106 kansanedustajaa luottaa hallitukseen. 65 oppositiopuolueiden kansanedustajaa äänesti hallitusta vastaan.
-
-Lisäksi oppositiopuolue keskustan kansanedustajat äänestivät tyhjää, eli he eivät ottaneet asiaan kantaa.
-
-Oppositio halusi, että hallituksen luottamuksesta äänestetään. Syy oli viime aikojen rasismikeskustelu.
-
-Joidenkin perussuomalaisten ministerien vanhat rasistiset kirjoitukset ovat saaneet monet suuttumaan.
-
-Pääministeri Petteri Orpon hallitus voi nyt jatkaa työtä, koska sillä on eduskunnan enemmistön luottamus.
-
-## Teollisuuden tilaukset
-
-![Tyhjiä muovisia käsihuuhdepulloja menossa täyttökoneelle.](https://img.img-cdn.yle.fi/crop_extract,w_2700,h_1519,x_0,y_215/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6589975e80a38620cb2/1585492181)
+![takavarikoituja konepistooleja ](https://img.img-cdn.yle.fi/crop_extract,w_1308,h_735,x_0,y_21/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114506364b8dfe347773/1689841800)
 
 Avaa kuvien katselu
 
-Kemianteollsuudessa ovat vähentyneet eniten. Kuva: Petri Aaltonen / Yle
+Epäillyt olivat myös 3d-tulostaneet aseita. Kuva: Poliisi Kuva: Poliisi
 
-Teollisuudella menee huonosti. Tilastokeskus kertoo, että teollisuus sai heinäkuussa uusia tilauksia 15 prosenttia vähemmän kuin vuotta aikaisemmin.
+Oikeudessa on alkanut oikeudenkäynti terrorismista, joka liittyy äärioikeistoon. Terrorismista syytettynä on 3 suomalaismiestä. Syyttäjä sanoo, he kouluttautuivat tekemään terrorismirikoksen.
 
-Eniten tilaukset vähenivät kemianteollisuudessa. Se sai heinäkuussa uusia tilauksia yli 20 prosenttia vähemmän kuin vuosi sitten.
+2 syytettyä keskusteli iskusta sosiaalidemokraattien tilaisuuteen Lahdessa.
 
-Teollisuuden tilaukset ovat vähentyneet Suomessa jo 6 kuukauden ajan.
+Syyttäjä vaatii käräjäoikeudessa pääsyytetylle vähintään lähes 3 vuoden ehdotonta vankeutta. Syyttäjä sanoo, että mies on omaksunut äärioikeistolaisen aatteen.
 
-## Hongkongin tulvat
+Syyttäjä sanoo myös, että mies on valmistanut ampuma-aseita terroristisessa tarkoituksessa.
 
-![Nainen kulkee kadulla, joka on veden peitossa.](https://img.img-cdn.yle.fi/crop_extract,w_5962,h_3353,x_0,y_148/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116933364faf0b042bf8/1694185160)
+Syyttäjä sanoo, että 2 miehen tavoite olivat väkivalta, rotusodan alkaminen ja yhteiskunnan romahtaminen.
 
-Avaa kuvien katselu
+Yhtä miestä syytetään avunannosta terrorismirikoksiin.
 
-Vesi on peittänyt Hongkongin kadut. Kuva: Vernon Yuen / NurPhoto / Shutterstock / All Over Press
+## Ilkivalta lisääntyy
 
-Aasian Hongkongissa on tulvia. Ainakin 2 ihmistä on kuollut tulvien takia, ja loukkaantuneita on paljon.
-
-Tulvien syy on kova sade. Sade on tuonut Hongkongin kaduille niin paljon vettä, että Hongkongin liikenne on ollut sekaisin.
-
-Vettä on satanut enemmän kuin koskaan ennen mittaushistorian aikana. Sademääriä alettiin mitata Hongkongissa noin 140 vuotta sitten.
-
-## Havis Amandalle suoja-aita
-
-![Havainnekuva sylinterin muotoisesta suojaverkosta Havis Amanda patsaan ympärillä.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1992,x_0,y_94/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116923464face4b51b50/1694158665)
+![Ilkivallan kohteita Varkauden koulukeskuksessa.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116946664fb1b93ba323/1694178361)
 
 Avaa kuvien katselu
 
-Tältä Havis Amandan suoja-aita näyttää, jos se toteutuu. Kuva: Aaro Sariola / WSP
+Varkauden kaupungin kuvia ilkivallasta kaupungissa. Kuva: Ari Haimakainen / Yle
 
-Kuuluisa helsinkiläinen patsas Havis Amanda eli Manta on taas uutisissa. Perjantaina kerrottiin, että Mantan ympärille aiotaan rakentaa teräsaita.
+Ilkivalta eli vahingonteko julkisissa paikoissa on lisääntynyt Suomessa. Ylen teki kyselyn suurille kaupungeille ilkivallasta.
 
-Teräsaita rakennetaan, kun Manta on korjattu. Manta vietiin pois Helsingin kauppatorilta, kun korjaustyöt alkoivat toukokuussa. Manta tulee takaisin omalle paikalle ensi vuonna.
+Esimerkiksi Kuopio, Jyväskylä, Oulu ja Tampere kertovat, että ilkivalta on yleistynyt koronaepidemian alkamisen jälkeen.
 
-Tarkoitus on, että teräsaita suojaa Mantaa. Suomalaisilla on tapana kiivetä Mantan päälle silloin, kun on vappu tai Suomesta tulee esimerkiksi jääkiekon maailmanmestari.
+Pohjois-Savossa Varkauden koulu on kärsinyt ilkivallasta poikkeuksellisen paljon. Paikkoja on töhritty, ja pehmoasvalttia, pihakalusteita ja ikkunoita on rikottu paljon.
 
-Yli 100-vuotias Manta voi mennä rikki, jos kiipeily sen päällä ei lopu. Siksi se suojataan aidalla, joka maksaa noin 135 000 euroa.
+Kaikkiaan Varkauden kaupunki on joutunut korjaamaan ilkivallan jälkiä jo 100 000 eurolla.
+
+## Kansalaisaloite turkistarhauksesta
+
+![Minkkejä häkissä turkistarhalla.](https://img.img-cdn.yle.fi/crop_extract,w_7408,h_4167,x_7,y_527/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115665864db31c3becb6/1692094791)
+
+Avaa kuvien katselu
+
+Turkistarhaus historiaan -kansalaisaloite on kerännyt allekirjoitukset viikossa.  Kuva: Janne Järvinen / Yle
+
+Kansalaisaloite turkistarhausta vastaan on kerännyt jo yli 97 000 allekirjoitusta.
+
+Aloitteessa ehdotetaan Suomeen suunnitelmaa, jolla turkistuotanto loppuu. Samalla ehdotetaan, että turkistilat saavat kohtuullisen siirtymäajan ja tukijärjestelmän.
+
+Aloite keräsi jo avauspäivänä viime maanantaina 50 000 nimeä. Se on raja, joka vaaditaan, että kansalaisaloite etenee eduskunnan käsittelyyn.
+
+## Naalien pesät
+
+![Neljä naalinpentua istumalla nurmikkoisella mättäällä.](https://img.img-cdn.yle.fi/crop_extract,w_6123,h_3428,x_0,y_637/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117016464fe965c15c7b/1694412238)
+
+Avaa kuvien katselu
+
+Kuva: Petri Piisilä / Metsähallitus
+
+Suomessa havaittiin kesällä 2 naalin pesintää. Naali on koiraeläin, joka elää pohjoisen pallonpuoliskon tundralla.
+
+Naalin pesinnät onnistuivat Utsjoen ja Enontekiön tunturialueilla Pohjois-Suomessa Lapissa.
+
+Metsähallitus kertoo, että pentuja syntyi ainakin 16.
+
+Naalin pesintä onnistui myös viime vuonna Enontekiöllä. Se oli ensimmäinen kerta Suomessa yli 25 vuoteen.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116954964fb377980220/1694185369)
+![Järven rannassa kasvavia puita.](https://img.img-cdn.yle.fi/crop_extract,w_4027,h_2257,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113725564a141594949b/1688290185)
 
 Avaa kuvien katselu
 
-Lauantaina sää on lämmintä ja pääosin aurinkoista. Lämpötila on 19-24 astetta.
+Alkuviikolla sää on enimmäkseen poutainen ja keskimääräistä lämpimämpi. Kuva: Miki Wallenius / Yle
 
-Lämmin sää jatkuu sunnuntaina suuressa osassa maata. Pohjoisessa voi sunnuntaina tulla tihkusateita.
+Tiistaina pohjoisessa sataa vettä, muualla on poutaista ja lämmintä.
+
+Lämpötila on 18 - 23 astetta, pohjoisessa on viileämpää.

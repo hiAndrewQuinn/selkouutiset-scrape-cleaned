@@ -1,87 +1,69 @@
-# Radio Selkouutiset perjantai 11.8.2023
+# Radio Selkouutiset lauantai 12.8.2023
 
-Ilmastotoimet. Puolustussopimus USA:n kanssa. Lasten syövät. Hätäilmoitukset. Sääennuste.
+Perussuomalaiset. Sähkön hinta. Havaijin maastopalo. Sää.
 
-Kuuntele
+## Perussuomalaiset
 
-Voit lukea uutiset samanaikaisesti alta.
-
-## Ilmastotoimet
-
-![Neljästä valokuvasta tehty kollaasi: vasemmalta lähtien metsäkone, lypsylehmä laitumella, autojono moottoritiellä ja voimalaitoksen piippu.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115411164d369edaa3b0/1691576985)
+![Riikka Purra pitää puhetta.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_32/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115555364d7322667f7d/1691824979)
 
 Avaa kuvien katselu
 
-Hallituksen ilmastotoimet ovat nyt ympäristöjärjestöjen tarkkailussa. Kuva: Yle
+Perussuomalaisten puheenjohtaja Riikka Purra piti puoluekokouksessa puheen. Kuva: Silja Viitala / Yle
 
-Suomen ympäristöjärjestöt voivat viedä hallituksen oikeuteen, jos ilmastotoimet eivät ole riittäviä. Ympäristöjärjestöt seuraavat, miten tavoite hiilineutraalisuudesta saavutetaan.
+Perussuomalaisilla on lauantaina ja sunnuntaina puoluekokous Tampereella. Lauantaina puoluekokous päätti, että nykyinen puheenjohtaja **Riikka Purra** jatkaa tehtävässä. Purra oli ainoa ehdokas.
 
-Korkein hallinto-oikeus teki kesäkuussa uuden päätöksen. Tulevaisuudessa hallituksen pitää voida osoittaa, että ilmastotoimet ovat tarpeeksi tehokkaita. Toimien pitää täyttää ilmastolain vaatimukset.
+Purra piti puoluekokouksessa puheen. Puheessa hän arvosteli mediaa. Media on käsitellyt kesällä esimerkiksi Purran vanhoja rasistisia kirjoituksia.
 
-## Puolustussopimus USA:n kanssa
+Purra sanoi, että kyseessä on ajojahti.
 
-![Panssariajoneuvoja joiden katoilla liehuvat Yhdysvaltain liput.](https://img.img-cdn.yle.fi/crop_extract,w_6423,h_3612,x_0,y_669/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115464064d4b898d1e7a/1691941042)
+Purran mukaan median keskustelu rasismista ja perussuomalaisista on ollut epärehellistä ja röyhkeää. Purra sanoi, että media yrittää tuhota perussuomalaisten maineen.
 
-Avaa kuvien katselu
+Myös muut perussuomalaiset arvostelivat puoluekokouksessa mediaa. Puoluetoimiston työntekijä **Matti Putkonen** sanoi, että rasismikeskustelu on ollut tyhjänpäiväistä.
 
-Stryker-panssari sotaharjoituksessa Kankaanpään Niinisalossa toukokuussa 2022. Kuva: Operation 2022 / Alamy/All Over Press
+## Sähkön hinta
 
-Suomi tekee ehkä uuden puolustussopimuksen USA:n kanssa.
-
-Amerikkalaiset sotilaat voivat saada Suomesta alueita harjoitteluun. Alueilla voi myös varastoida aseita ja huoltaa kalustoa.
-
-Varsinaisia tukikohtia ei ole tulossa.
-
-Sotilaat saavat ehkä käyttää ainakin yhtä Suomen lentokenttää, satamaa ja armeijan harjoitusaluetta.
-
-Sopimus on suurin muutos ulkopolitiikassa sen jälkeen, kuin Suomesta tuli puolustusliitto Naton jäsen.
-
-Suomessa on aiemmin ollut muiden maiden joukkoja vain harjoituksissa.
-
-## Lasten syöpien ennusteet
-
-![Taapero Uuden lastensairaalan Vuori-osastolla sateisena päivänä.](https://img.img-cdn.yle.fi/crop_extract,w_3024,h_1701,x_0,y_1113/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-102324563513eb585bfb/1666269286)
+![Sähkölinjoja ja korkeita sähkötolppia taivasta vasten. Kuvituskuva.](https://img.img-cdn.yle.fi/crop_extract,w_5005,h_2815,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1034317637381dbc12fa/1731993782)
 
 Avaa kuvien katselu
 
-Suurin osa lasten syöpätapauksista voidaan hoitaa. Kuva: Hanna Käyhkö
+Kallis sähkö aiheutti viime talvena monille talousongelmia. Kuva: Matias Väänänen / Yle
 
-Yhä useampi lapsi Suomessa parantuu syövästä kokonaan.
+Sähkö on ensi talvena luultavasti paljon halvempaa kuin viime talvena.
 
-Ennusteet ovat parantuneet paljon 1970-luvun jälkeen ja merkittävästi vielä 2000-luvulla. Näin kertoo Suomen Syöpärekisteri.
+Viime talvena sähkö oli tosi kallista, mutta viranomaiset sanovat, että tilanne on nyt parempi.
 
-Entiset lasten syöpien hoitokeinot ovat kehittyneet, ja uusia hoitoja on otettu käyttöön.
+Olkiluodossa on uusi ydinvoimalan reaktori, joka tuottaa paljon sähköä. Myös uudet tuulivoimalat tuottavat paljon sähköä.
 
-Yli 90 prosenttia lapsista on elossa 5 vuoden kuluttua siitä, kun leukemia tai lymfooma eli imukudossyöpä on todettu.
+Kun sähköä tuotetaan lisää, sähkön hinta laskee.
 
-Leukemia on lasten yleisin syöpä.
+Monet sähköyhtiöiden asiakkaat haluavat silti määräaikaisen sähkösopimuksen, jossa sähkön hinta ei muutu. He pelkäävät, että sähkön hinta nousee taas, kun talvi tulee.
 
-## Hätäpuhelut
+## Havaijin maastopalo
 
-![Hätäkeskuspäivystäjä työssään vastaanottamassa puheluita työpisteellään.](https://img.img-cdn.yle.fi/crop_extract,w_6573,h_3697,x_14,y_169/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89246661b9e469b4765/1639573089)
+![Rannan tuntumassa oleva asuinalue on palanut pahasti. Kuva on otettu ilmasta.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115525464d611b91121e/1691753639)
 
 Avaa kuvien katselu
 
-Hätäkeskuksiin tulee valtava määrä yhteydenottoja. Valitettavasti iso osa on virhesoittoja. Kuva: Patrik Molander / Yle
+Talot tuhoituivat tulipaloissa Lahainan kaupungissa Havaijilla. Kuva: Patrick T. Fallon / AFP
 
-Hätäilmoituksia on tehty alkuvuonna paljon. Hätäkeskukset ottivat vastaan tammi-kesäkuussa yhteensä yli 1,5 miljoonaa hätäilmoitusta.
+USA:ssa Havaijilla on ollut paha maastopalo. Se on tehnyt paljon tuhoa Mauin saarella. Maastopaloissa on kuollut ainakin 80 ihmistä. Havaijin kuvernööri sanoo, että kuolleita voi olla enemmän.
 
-Ilmoitusten määrä kasvoi 10 prosenttia viime vuoden alkuvuodesta.
+Monta tuhatta taloa on tuhoutunut tai saanut vahinkoja.
 
-Eniten lisääntyivät soitot, jotka eivät kuulu hätäkeskusten palveluun. Esimerkiksi virhepuheluita oli 450 000.
+Maastopalot alkoivat tiistaina. Ne levisivät tosi nopeasti kuivan maan ja kovan tuulen takia.
 
-Hätäkeskuslaitos on välittänyt tänä vuonna yli 730 000 tehtävää muille viranomaisille. Loput tehtävät hoidettiin hätäkeskuksen neuvonnan ja opastuksen avulla.
+Saaren asukkaita ei ehkä varoitettu tarpeeksi. Mauin saarella on 80 varoitussireeniä hätätilanteita varten, mutta varoitussireenit pysyivät hiljaa.
+
+Pahimmat tuhot ovat Lahainan kaupungissa.
 
 ## Sää
 
-![Sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115544464d64a96d4b7c/1691765443)
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115585364d797ce4578c/1691850743)
 
 Avaa kuvien katselu
 
 Kuva: Yle
 
-Viikonlopusta on tulossa tavanomaista lämpimämpi.
+Sunnuntaina Lapissa ja länsirannikolla tulee sadekuuroja, muualla maassa on poutaa.
 
-Lämpötilat voivat nousta jopa hellelukemiin. Helleraja on 25 astetta. Sää voi kuitenkin olla epävakainen.
-
-Perjantaina Länsi-Suomessa voi sataa. Sadekuuroja tulee yleisesti Lapissa, muualla sää on poutaista.
+Lämpötila on 16 ja 24 asteen välillä.

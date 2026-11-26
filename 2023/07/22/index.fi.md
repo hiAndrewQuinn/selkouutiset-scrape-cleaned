@@ -1,79 +1,87 @@
-# Radio Selkouutiset perjantai 21.7.2023
+# Radio Selkouutiset lauantai 22.7.2023
 
-Lintuinfluenssa. Riikka Purra. Sähköpotkulaudat. Ravustus. Sää.
+Etelä-Euroopan kuumuus. Ruotsin suhteet muslimimaihin. Yskänlääkekatastrofi Gambiassa. Mielenosoitus Helsingissä. Auto-onnettomuus Seinäjoella. Sää.
 
-## Lintuinfluenssa
+## Etelä-Euroopan kuumuus
 
-![Kukko ja kanoja ulkoaitauksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_393/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97092362aae1e897332/1655366969)
-
-Avaa kuvien katselu
-
-Kukko ja kanoja. Kuva: Mikko Savolainen / Yle
-
-Suomessa yritetään estää lintuinfluenssan leviäminen kanoihin. Luonnossa lintuinfluenssa on jo tappanut paljon lintuja.
-
-Viranomaiset ovat määränneet, että joillakin alueilla kanat täytyy pitää sisätiloissa. Jos kanat ovat ulkona, tila täytyy suojata verkolla.
-
-Uudet määräykset koskevat kanaloita Länsi-Suomessa.
-
-Lisäksi viranomaiset muistuttavat kaikkia siitä, että kuolleisiin lintuihin ei saa koskea. Jos luonnosta löytyy monta kuollutta lintua, asiasta on hyvä kertoa viranomaisille.
-
-## Riikka Purra
-
-![Pustaan pukuun pukeutunut ihminen pitää kansiota kädessään.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_426/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114580864ba50da9a613/1689932217)
+![Turistit suojaavat itsensä kuumuudelta.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1992,x_0,y_240/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114614464bb682c6ddf8/1690003735)
 
 Avaa kuvien katselu
 
- Vetoomuksessa on yli 120 000 allekirjoitusta. Kuva: Roni Rekomaa / Lehtikuva
+Turistit yrittävät suojautua aurinkoa vastaan Kreikassa. Kuva: Bougiotis Evangelos / EPA-EFE
 
-Monet suomalaiset haluavat, että Riikka Purra eroaa ministerin tehtävästä.
+Etelä-Eurooppa kärsii kuumuudesta. Kovia helteitä on erityisesti Välimeren alueella.
 
-Eduskunta sai perjantaina vetoomuksen Purran erosta. Vetoomuksessa on noin 120 000 allekirjoitusta.
+Esimerkiksi Kreikassa lämpötila voi viikonloppuna nousta 45 asteeseen. Viranomaiset sanovat, että ihmisten on hyvä pysyä kotona. Monet turistikohteet ovat kiinni helteen takia.
 
-Allekirjoittajat haluavat, että Purra eroaa vanhojen kirjoitusten takia. Purran vanhat kirjoitukset ovat rasistisia.
+Kuumassa ja kuivassa Kreikassa on myös metsäpaloja. Ródoksen saarella noin 50 suomalaista turistia on siirretty metsäpalojen tieltä toiseen majoituspaikkaan.
 
-Riikka Purra on perussuomalaisten puheenjohtaja. Hän hoitaa hallituksessa valtiovarainministerin eli rahaministerin tehtävää.
+## Ruotsi ja muslimimaat
 
-## Sähköpotkulauta
-
-![Sähköpotkulauta pysäköitynä keskelle kevyen liikenteen väylää Jyväskylän Lutakossa.](https://img.img-cdn.yle.fi/crop_extract,w_4094,h_2303,x_503,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113730964a1958e9d7d8/1688311277)
+![Mielenosoittajat protestoivat Ruotsia vastaan Irakissa.](https://img.img-cdn.yle.fi/crop_extract,w_4141,h_2329,x_0,y_46/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114618664bb8ca799420/1690979392)
 
 Avaa kuvien katselu
 
-Kuva: Heli Kaski / Yle
+Mielenosoitus Ruotsia vastaan Irakissa. Kuva: Lehtikuva
 
-Sähköpotkulaudat ovat yleistyneet.
+Ruotsin ja muslimimaiden suhteet ovat nyt huonot. Syy on se, että Ruotsissa on poltettu ja revitty Koraaneja mielenosoituksissa. Koraani on muslimien pyhä kirja.
 
-Sähköpotkulautoja käytetään paljon nyt myös pienissä kaupungeissa. Isoissa kaupungeissa sähköpotkulaudat ovat olleet tavallisia jo aikaisemmin.
+Muslimit ovat osoittaneet mieltä Ruotsia vastaan Irakissa, Iranissa ja Libanonissa. Irakissa Ruotsin suurlähetystö sytytettiin tuleen.
 
-Myös sairaalat eri puolilla Suomea ovat huomanneet sähköpotkulautojen yleistymisen. Ne ovat saaneet potilaita, jotka ovat loukanneet itsensä sähköpotkulaudalla.
+Maailmalla noin 60 muslimimaata on yhdessä vaatinut, että Koraania pitää suojella.
 
-Tavallisesti sähköpotkulaudalla joutuu onnettomuuteen nuori mies, joka on juonut alkoholia. Onnettomuudessa vammoja tulee yleensä päähän.
+Ruotsissa pyhien kirjojen polttaminen on sananvapauskysymys. Poliisi ei voi estää Koraanien polttamista, koska se on oikeuslaitoksen mielestä osa sananvapautta.
 
-## Ravustus
+## Vaarallinen yskänlääke
 
-![Kuorensa vaihtaneita täplärapuja](https://img.img-cdn.yle.fi/crop_extract,w_4624,h_2601,x_0,y_434/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83388060f7c5932453d/1627567181)
+![Kuvassa on Maailman terveysjärjestön WHO:n päämaja. Portissa on järjestön logo, jossa on YK:ta kuvaava maapallo ja lehvät ja maapallon keskellä terveydenhuoltoa symboloiva käärme sauvan ympärille kietoutuneena.](https://img.img-cdn.yle.fi/crop_extract,w_4538,h_2553,x_0,y_837/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6712835eb16ebd13ada/1611886998)
 
 Avaa kuvien katselu
 
-Ravut ovat monien herkkua. Kuva: Timo Leponiemi / Yle
+Maailman terveysjärjestö sanoo, että yskänlääkkeissä oli vaarallisia aineita. Kuva: Alamy / All Over Press
 
-Rapujen pyynti eli ravustus on alkanut tänään perjantaina. Suomen vesistä pyydystetään jopa 6 miljoonaa rapua joka vuosi.
+Afrikassa Gambiassa on kuollut lapsia yskänlääkkeiden takia. Ainakin 70 lasta on kuollut.
 
-Rapujen pyydystäjiä eli ravustajia on Suomessa noin 100 000. Rapuja saa pyydystää vain vesialueen omistajan luvalla, ja alle 65-vuotiaiden aikuisten pitää myös maksaa kalastonhoitomaksu.
+Yskänlääkkeet tuotiin Gambiaan Intiasta. Yskänlääkkeissä oli aineita, jotka vahingoittavat munuaista. Siksi lapset kuolivat.
 
-Rapujen pyynti jatkuu lokakuun loppuun asti.
+Maailman terveysjärjestö on löytänyt yskänlääkkeistä aineita, joita käytetään pakkasnesteessä.
+
+## Mielenosoitus säästöjä vastaan
+
+![Mielenosoitus Eduskuntatalon portailla Helsingissä](https://img.img-cdn.yle.fi/crop_extract,w_4416,h_2484,x_0,y_460/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114627664bbd7e88f235/1690035254)
+
+Avaa kuvien katselu
+
+Eduskuntatalon portailla ja nurmikolla oli paljon mielenosoittajia lauantaina. Kuva: Joel Peltonen / Yle
+
+Helsingissä on järjestetty mielenosoitus Eduskuntatalon portailla. Mielenosoittajat protestoivat hallituksen säästösuunnitelmia vastaan.
+
+Mielenosoittajien mielestä hallituksen säästösuunnitelmat aiheuttavat ongelmia. Mielenosoittajat sanovat, että säästöistä kärsivät pitkäaikaissairaat, vammaiset ja köyhät.
+
+## Onnettomuus Seinäjoella
+
+![Onnettomuuspaikka Ruukintiellä Seinäjoella 22. heinäkuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_101/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114623964bbb16abd178/1690022279)
+
+Avaa kuvien katselu
+
+Onnettomuuspaikka Seinäjoen Ruukintiellä. Kuva: Timo Aalto / Lehtikuva
+
+Suomessa Seinäjoella on tapahtunut paha auto-onnettomuus. Onnettomuudessa kuoli 2 ihmistä.
+
+Auto ajoi ulos tieltä ja törmäsi puuhun aikaisin lauantaiaamuna. Auto tuhoutui törmäyksessä kokonaan.
+
+Auton kuljettaja ajoi onnettomuuden aikaan kovaa vauhtia.
 
 ## Sää
 
-![Kuvassa näkyy lauantain, sunnuntain ja maanantain sääkartat.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114606064ba8adfe9539/1689946886)
+![Kuvassa näkyy sunnuntain, maanantain ja tiistain sääkartat.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114629964bbe9590bd2c/1690036618)
 
 Avaa kuvien katselu
 
 Kuva: Elias Paakkanen / Yle
 
-Lauantaina vettä sataa idässä ja maan keskivaiheilla. Pohjoisessa on pilvistä ja viileää, etelässä on aurinkoista ja lämmintä.
+Sateet jatkuvat osassa Suomea. Sadealue on sunnuntaina pohjoisessa ja maanantaina maan keskiosissa.
 
-Lämpötila on lauantaina pohjoisessa noin 15 astetta, etelässä noin 20 astetta.
+Sadealueen pohjoispuolella on viileää. Lämpötila on noin 15 astetta.
 
-Myös sunnuntaina ja maanantaina maan keskivaiheilla sataa vettä. Sadealueen pohjoispuolella sää on viileää, mutta etelässä on lämpimämpää.
+Etelässä aurinko voi paistaa ja sää on lämpimämpää. Lämpötila on noin 20 astetta.

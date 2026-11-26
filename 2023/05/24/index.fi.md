@@ -1,71 +1,75 @@
-# Radio Selkouutiset perjantai 19.5.2023
+# Radio Selkouutiset keskiviikko 24.5.2023
 
-Hallitusneuvottelut ja maahanmuuttopolitiikka. Sote-alalle ehkä lakkoja. Yle Kielikoulu. Sää.
+Suomen talous. Maahanmuutto. Sudanin taistelut. Hyönteistuhot. Sää.
 
-## Maahanmuuttopolitiikka
+## Suomen talous
 
-![Anna-Maja Henriksson, Petteri Orpo, Riikka Purra ja Sari Essayah pitivät tiedotustilaisuuden Säätytalolla.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_389/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11155606464e09f8d917/1686134532)
-
-Avaa kuvien katselu
-
-Kokoomuksen puheenjohtaja Petteri Orpo ja perussuomalaisten puheenjohtaja Riikka Purra. Kuva: Silja Viitala / Yle
-
-Suomen maahanmuuttopolitiikka ehkä kiristyy. Näin arvioi kokoomuksen puheenjohtaja Petteri Orpo.
-
-Orpo vetää hallitusneuvotteluja. Hallitusneuvotteluissa on mukana myös perussuomalaiset.
-
-Perussuomalaisten puheenjohtaja Riikka Purra sanoo, että perussuomalaiset lähtee mukaan hallitukseen vain, jos maahanmuuttopolitiikka kiristyy.
-
-Ensi viikko on hallitusneuvottelujen 4. viikko.
-
-## Sote-alalle ehkä lakkoja
-
-![Kaksi lasta leikkii päiväkodin hiekkalaatikolla aurinkoisena kevätpäivänä.](https://img.img-cdn.yle.fi/crop_extract,w_6007,h_3380,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110800664525c4343bcf/1686574706)
+![Handelspankin nimi rakennuksen seinässä.](https://img.img-cdn.yle.fi/crop_extract,w_3834,h_2156,x_0,y_390/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-95803062879a4c8f0f3/1653054901)
 
 Avaa kuvien katselu
 
-Lakko voi sulkea päiväkoteja ensi viikolla. Kuvituskuva. Kuva: Elina Ervasti / Yle
+Handelsbanken. Kuvituskuva. Kuva: Aalto Puutio / Yle
 
-Sosiaali- ja terveysalalla voi alkaa lakko ensi viikolla. Lakko alkaa ensi viikon tiistaina, jos palkkariitaan ei löydy ratkaisua sitä ennen.
+Suomen valtion talous kasvaa tänä vuonna. Näin arvioi Handelsbanken. Pankki sanoo, että Suomen talous kasvaa tänä vuonna 0,2 prosenttia.
 
-Lakko vaikuttaa joissakin yksityisissä päiväkodeissa ja vanhusten hoivakodeissa. Lakko ei koske koko sosiaali- ja terveysalaa.
+Moni arvio sanoi aikaisemmin, että Suomen talous ei kasva tänä vuonna ollenkaan.
 
-Työntekijät aikovat mennä lakkoon eli lopettaa työt noin 40 päiväkodissa ja noin 30 hoivakodissa. Lakko kestää muutaman päivän.
+Hinnat eivät nouse enää yhtä hurjaa vauhtia kuin aikaisemmin. Handelsbanken arvioi, että inflaatio eli hintojen nousu hidastuu tänä vuonna 5,8 prosenttiin. Alkuvuonna hinnat ovat nousseet tätä nopeammin.
 
-Lakon syy on palkkariita. Yksityisen sosiaali- ja terveysalan työntekijät vaativat, että he saavat samaa palkkaa kuin julkisen puolen työntekijät.
+Inflaation hidastumisen syynä on, että bensa ja sähkö maksavat vähemmän kuin aikaisemmin.
 
-Esimerkiksi lähihoitajan palkka on yksityisissä firmoissa noin 200 euroa pienempi kuin julkisella puolella. Julkisen puolen rahat tulevat veroista.
+## Maahanmuutto
 
-## Yle Kielikoulu
-
-![Ruotsintajatoimittaja Jonatan Pedersen](https://img.img-cdn.yle.fi/crop_extract,w_1893,h_1064,x_6,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-111460264635a8e3a2da/1684233023)
+![Muuttokuormaa siirretään.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_583/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5038825b76b45c270e3/1534506796)
 
 Avaa kuvien katselu
 
-Jonatan Pedersen kertoo, että käyttäjät tykkäävät Yle Kielikoulusta.
+Muuttolaatikoita. Kuvituskuva. Kuva: Derrick Frilund / Yle
 
-Yle Kielikoulussa opiskellaan suomea katsomalla suomenkielisiä tv-ohjelmia.
+Suomeen muutti viime vuonna ennätysmäärä ihmisiä.
 
-Ohjelmissa on myös suomenkielinen tekstitys. Katsoja saa vaikeille sanoille käännöksen.
+Tilastokeskus kertoo, että Suomeen muutti vuonna 2022 lähes 50 000 ihmistä. Aikaisempina vuosina Suomeen muutti noin 30 000 ihmistä.
 
-Katsoja voi itse valita, millä kielellä käännökset ovat. Kieliä on 14, esimerkiksi englanti, arabia ja ukraina.
+Suomeen muutti aiempaa enemmän ihmisiä varsinkin Venäjältä. Venäjältä tuli Suomeen viime vuonna noin 6000 ihmistä. Seuraavaksi eniten Suomeen muutti ihmisiä Ruotsista, Intiasta ja Virosta.
 
-Yle Kielikoulu tarjoaa käännöksiä sen perusteella, mikä on katsojan suomen kielen taso.
+## Sudanin taistelut
 
-Myös tehtävät sopivat tasolle, jonka katsoja on valinnut. Tehtävät liittyvät ohjelman tekstiin.
+![Ihmiset jonottavat matkatavaroiden kanssa bussin kyytiin.](https://img.img-cdn.yle.fi/crop_extract,w_5109,h_2873,x_10,y_356/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1118900646df449c3374/1684927610)
 
-Kääntäjä Jonatan Pedersen koordinoi Kielikoulua. Hän kertoo, että Yle Kielikoulu on käyttäjille ilmainen.
+Avaa kuvien katselu
 
-Pedersen sanoo, että käyttäjät ovat antaneet positiivista palautetta Kielikoulusta. Käyttäjien mielestä Kielikoulua on mukava käyttää.
+Sudanissa yli miljoona ihmistä on paennut taisteluita. Kuva: AFP / Lehtikuva
 
-Kielikoulua voi käyttää sovelluksella tai selaimella. Lisää tietoa Kielikoulusta löytyy osoitteesta yle.fi/kielikoulu.
+YK sanoo jälleen, että Sudanin taistelut pitää lopettaa.
+
+Sudanin pääkaupungissa Khartumissa taistelut jatkuvat, vaikka maassa on tulitauko. Sudanin asevoimat ja RSF-joukot sopivat viikonloppuna, että tulitauko kestää viikon.
+
+Sudanin taisteluissa on kuollut satoja ihmisiä. Suuri osa uhreista on siviilejä. Yli miljoona ihmistä on lähtenyt pakoon kotoa.
+
+## Hyönteistuhot
+
+![Kirjanpainajan purukasa kaatuneen kuusen rungolla](https://img.img-cdn.yle.fi/crop_extract,w_3024,h_1701,x_0,y_912/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83337560f5704193edb/1626699183)
+
+Avaa kuvien katselu
+
+Kirjanpainajan purukasa kaatuneen kuusen rungolla. Kuva: Riikka Pennanen / Yle
+
+Hyönteiset aiheuttavat Suomen metsissä enemmän vahinkoa kuin aikaisemmin.
+
+Suomeen leviää uusia hyönteisiä, jotka tuhoavat metsiä. Suomen nykyiset lajit myös siirtyvät entistä kauemmaksi pohjoiseen. Syynä on ilmastonmuutos.
+
+Pohjola Vakuutus sanoo, että hyönteisistä eniten tuhoa puille tekee kirjanpainaja. Kirjanpainaja on kuoriainen, joka tuhoaa kuusia.
+
+Metsätuhoista suurimman osan aiheuttavat kuitenkin myrskyt.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11165306467983055b0b/1684510792)
+Idässä sataa torstaina päivällä vettä. Myös Lapissa sataa paikoin vähän vettä. Länsi-Suomessa taivaalla ei ole paljon pilviä.
+
+Lämpötila on yöllä 7 ja 14 asteen välillä. Torstaina päivälämpötila on 10 ja 18 asteen välillä, idässä paikoin noin 20 astetta.
+
+![Tampereen Säästöpankintalo ja tyhjä kadunkulma.](https://img.img-cdn.yle.fi/crop_extract,w_3819,h_2148,x_8,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1118677646de8c002de0/1684934149)
 
 Avaa kuvien katselu
 
-Lauantaina aurinko paistaa melkein koko maassa ja sää on lämmintä. Lämpötila on jopa yli 20 astetta. Pohjois-Lapissa on kylmempää.
-
-Sunnuntaina lämpötila nousee Etelä-Suomessa jo lähelle hellerajaa eli 25 astetta ja sää lämpenee myös Lapissa.
+Sää on ollut aurinkoinen. Kuva Tampereen keskustasta. Kuva: Yle Tampere

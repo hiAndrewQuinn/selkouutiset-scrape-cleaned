@@ -1,73 +1,69 @@
-# Perjantai 12.1.2018 (radio)
+# Lauantai 13.01.2018 (radio)
 
-Verkkofirma Nokia vähentää työpaikkoja. Suomen talous kasvaa. Suomessa rakennetaan paljon asuntoja. Kuningatar Elisabet on antanut harvinaisen haastattelun. Nuoret käyttävät energiajuomia väärin.
+Influenssaa on nyt melkein koko Suomessa. Monet siivoojat ovat maahanmuuttajia. Saudi-Arabiassa naiset ovat päässeet ensimmäistä kertaa stadionille katsomaan jalkapalloa. Lapissa pelätään hirvikolareita. Viime vuoden parhaat tv-ohjelmat on palkittu.
 
-## Nokia irtisanoo
+## Influenssa
 
-![Nokian pääkonttori Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8791622)
-
-Avaa kuvien katselu
-
-Nokia on nykyään tietoliikennealalla. Kuva: Markku Ojala / AOP
-
-Verkkofirma Nokia vähentää työpaikkoja. Nokia vähentää Suomesta 80 työpaikkaa.
-
-Nokia arvioi aikaisemmin, että sen pitää vähentää melkein 200 työpaikkaa. Nokian ja sen työntekijöiden yhteistyöneuvotteluissa määrää voitiin pienentää. Joillekin työntekijöille löytyi Nokiasta uusi tehtävä.
-
-Lisäksi Nokia auttaa työntekijöitä löytämään uutta työtä, jos he nyt menettävät työpaikan.
-
-## Talous kasvaa
-
-![Mies hitsaa teräspalkkia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6687460)
+![Mies niistää nenäänsä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9995828)
 
 Avaa kuvien katselu
 
-Metalliteollisuudella menee hyvin. Kuva: Mika Moksu / Yle
+Influenssan oireet ovat pahemmat kuin tavallisen flunssan oireet. Kuva: Henrietta Hassinen / Yle
 
-Suomen talous kasvaa. Suomen Hypoteekkiyhdistys kertoo, että talous kasvaa nyt nopeasti.
+Influenssaa on nyt melkein koko Suomessa. Influenssa on pahempi sairaus kuin tavallinen flunssa. Influenssaan kuuluu usein esimerkiksi korkea kuume.
 
-Kasvu on nopeaa etenkin metalliteollisuudessa ja metsäteollisuudessa. Myös matkailualalla menee hyvin.
+Lääkäri Hanna Nohynek sanoo, että influenssaa on tänä talvena eniten ehkä tammikuun lopussa ja helmikuun alussa. Nohynek on Terveyden ja hyvinvoinnin laitoksen ylilääkäri.
 
-Hypoteekkiyhdistys arvioi, että kasvu jatkuu vielä monta vuotta.
+Monet suomalaiset ottavat joka vuosi rokotteen influenssaa vastaan. Tavallisesti rokote antaa hyvän suojan, mutta ei ehkä tänä talvena. Monet ovat saaneet rokotteen, jossa ei ole mukana sitä influenssavirusta, joka nyt on yleinen.
 
-## Asuntoja rakennetaan
+## Siivoojat
 
-![Keskustakirjaston rakennustyömaa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9781606)
-
-Avaa kuvien katselu
-
-Uusia asuntoja rakennetaan paljon. Kuva: Jani Saikko / Yle
-
-Suomessa rakennetaan paljon asuntoja. Rakentaminen on vilkasta, koska Suomen talous kasvaa. Etenkin kerrostaloja rakennetaan enemmän kuin kymmeniin vuosiin.
-
-Asuntojen rakentaminen vaikuttaa esimerkiksi vuokriin. Uusia asuntoja on niin paljon, että vuokrat eivät ehkä nouse enää niin nopeasti kuin ennen. Se on hyvä uutinen monelle vuokralaiselle, koska vuokrat ovat viime vuosina nousseet nopeammin kuin hinnat.
-
-Tiedot ovat laitokselta, jonka nimi on Pellervon taloustutkimus.
-
-## Kuningatar Elisabet
-
-![Kuningatar Elisabet](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9686161)
+![Siivooja moppaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9497703)
 
 Avaa kuvien katselu
 
-Britannian kuningatar Elisabet II. Kuva: Pool / EPA
+Kuva: Elisa Kinnunen / Yle
 
-Britannian kuningatar Elisabet on antanut harvinaisen haastattelun BBC:lle. Kuningatar kertoi kruunajaisista, jotka järjestettiin vuonna 1953. Silloin nuori kuningatar sai vallan merkit, esimerkiksi kruunun.
+Monet siivoojat ovat maahanmuuttajia. Jo 20 prosentilla siivoojista on maahanmuuttajatausta. Asiasta kirjoittaa sanomalehti Karjalainen.
 
-Nyt 65 vuotta myöhemmin kuningatar Elisabet sanoo, että kruunu oli päässä raskas. Se painoi paljon. Myös vanhat vaunut olivat epämukavat, kuningatar kertoo. Elisabet meni kruunajaisiin kullatuilla vaunuilla, joita hevoset vetivät.
+Maahanmuuttajien määrä kasvaa myös muissa palvelualan töissä. Myös rakennusalalla ja kuljetusalalla on paljon maahanmuuttajia. Näillä aloilla palkat ovat usein pieniä.
 
-## Energiajuomat
+## Saudi-Arabian naiset
 
-![Energiajuomatölkkejä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10018413)
+![Jalkapallokatsomossa hurrataan ja heilutetaan joukkueen värejä. Miesten joukossa on naisia mustissa abaya-kaavuissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10021224)
 
 Avaa kuvien katselu
 
-Energiajuomat eivät sovi lapsille. Kuva: Juulia Tillaeus / Yle
+Jalkapallostadionin katsomossa on nyt myös naisia Saudi-Arabiassa. Kuva: STR / EPA
 
-Nuoret käyttävät energiajuomia väärin. Nuoria on joutunut Suomessa sairaalaan energiajuomien takia. Ulkomailla nuoria on jopa kuollut.
+Naisten asema muuttuu Saudi-Arabiassa. Nyt naiset ovat päässeet ensimmäistä kertaa stadionille katsomaan jalkapalloa.
 
-Energiajuomissa on tosi paljon kofeiinia. Siksi ne vaikuttavat sydämeen. Iso kofeiinimäärä voi aiheuttaa sydänkohtauksen.
+Naisten asema muuttuu, koska kruununprinssi Mohammed bin Salman uudistaa Saudi-Arabiaa. Kruununprinssi on huolissaan siitä, mitä muut maat ajattelevat Saudi-Arabiasta. Hän haluaa näyttää, että Saudi-Arabia on moderni maa. Miehet kuitenkin vielä määräävät naisten asioista.
 
-Lastenlääkäri Timo Sillanpää sanoo, että lasten ei pidä juoda energiajuomia ollenkaan.
+## Hirvikolarien vaara
 
-Nuoret juovat energiajuomia usein siksi, että he eivät nuku tarpeeksi. Monet pelaavat tietokoneella koko yön ja pysyvät hereillä kofeiinin avulla.
+![Kolarissa kuollut hirvi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5006761)
+
+Avaa kuvien katselu
+
+Tämä hirvi törmäsi autoon. Kuva: Yle
+
+Lapissa pelätään hirvikolareita. Hirvikolarissa auto törmää hirveen. Se on vaarallista, koska hirvi on iso eläin.
+
+Lapissa on tänä talvena paljon hirviä. Ne etsivät ruokaa teiden läheltä, koska maassa on nyt paksusti lunta. Usein hirviä on iso ryhmä.
+
+Hiihtolomakausi alkaa helmikuussa. Silloin Lapin autoteillä liikkuu paljon turisteja. Kaikki turistit eivät ole tottuneet hirviin, ja siksi hirvikolareiden vaara kasvaa.
+
+## Venla-palkinnot
+
+![Leea Klemola sai Myrskyn jälkeen ohjelmasta kolme Venlaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10021225)
+
+Avaa kuvien katselu
+
+Myrskyn jälkeen -sarjan ohjaaja on Leea Klemola. Kuva: Martti Kainulainen / Lehtikuva
+
+Televisio-ohjelmille on annettu palkintoja. Vuoden parhaat ohjelmat ja esiintyjät saivat Venla-palkintoja perjantai-iltana.
+
+Tv-sarja "Myrskyn jälkeen" sai eniten palkintoja. Se sai yhteensä 3 Venla-palkintoa. Se oli esimerkiksi viime vuoden paras suomalainen draamasarja.
+
+"Myrskyn jälkeen" kertoo lähitulevaisuuden Helsingistä. Sarjassa myrsky on sekoittanut helsinkiläisten elämän. "Myrskyn jälkeen" esitettiin kanavalla Yle TV1.

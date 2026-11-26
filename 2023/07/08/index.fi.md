@@ -1,75 +1,73 @@
-# Radio Selkouutiset perjantai 7.7.2023
+# Radio Selkouutiset lauantai 8.7.2023
 
-Halla-aho. Some. Pyörävarkaudet. Kanadan maastopalot. Sää.
+Nato ja turvallisuus. Venäjän hyökkäys. Luvaton oleskelu Suomessa. Rajatarkastukset. Sää.
 
-## Halla-aho
+## Nato ja turvallisuus
 
-![Jussi Halla-aho Valtiosalissa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11336696493fe69a1a41/1687420890)
-
-Avaa kuvien katselu
-
-Jussi Halla-aho. Kuva: Silja Viitala / Yle
-
-Perussuomalaisten Jussi Halla-aho haluaa presidenttiehdokkaaksi. Perussuomalaiset päättää puolueen presidenttiehdokkaasta elokuussa.
-
-Jussi Halla-aho on nykyään eduskunnan puhemies, eli hän johtaa eduskunnan työtä. Aikaisemmin hän oli perussuomalaisten puheenjohtaja.
-
-Presidentinvaalit järjestetään ensi vuoden alussa. Vaaleissa on mukana monta ehdokasta, esimerkiksi Pekka Haavisto ja Olli Rehn.
-
-Haavisto kuuluu vihreisiin, ja hän on entinen ulkoministeri. Rehnin puolue on keskusta, ja hän on Suomen Pankin pääjohtaja.
-
-## Some
-
-![Matkapuhelin käyttäjän kädessä.](https://img.img-cdn.yle.fi/crop_extract,w_3596,h_2021,x_0,y_218/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10805406401d8df2bf06/1740321087)
+![Naton ja Suomen lippu.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_507/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113999764a920e3658f6/1688805677)
 
 Avaa kuvien katselu
 
-Kuva: Larry W. Smith / EPA
+Naton ja Suomen lippu Nato-maiden reserviupseeritapahtuman avajaistilaisuudessa Helsingissä 26. kesäkuuta 2023. Kuvituskuva. Kuva: Mikko Stig / Lehtikuva
 
-Sosiaalinen media eli some on monille nuorille aikuisille ongelma. Näin kertoo Oulun yliopiston uusi tutkimus.
+Yle on tehnyt ihmisille kyselyn siitä, lisääkö jäsenyys sotilasliitto Natossa Suomen turvallisuutta.
 
-Tutkimuksessa noin 70 prosenttia nuorista aikuisista koki, että somen käyttö on ongelmallista. Some vei nuorten mielestä esimerkiksi liikaa aikaa.
+Yli 50 prosenttia ihmisistä ajattelee, että Suomi tuntuu nyt turvallisemmalta kuin ennen Nato-jäsenyyttä. Moni ihminen sanoo kuitenkin, että Nato ei vaikuta elämään millään tavalla. Vain 3 prosenttia ihmisistä sanoo kyselyssä, että Nato-jäsenyys on vähentänyt turvallisuutta paljon tai jonkin verran.
 
-Tutkijoiden mielestä somen käyttö oli ongelmallista 10 prosentille tutkimuksen nuorista. Some häiritsi näiden nuorten arkea ja hyvinvointia.
+Suomi on ollut Naton jäsen noin 3 kuukautta.
 
-Tutkijat sanovat, että somen ongelmakäyttö lisää esimerkiksi nuorten aikuisten yksinäisyyttä ja masennusta. Somen ongelmakäyttöä oli eniten nuorilla naisilla.
+## Venäjän hyökkäys Ukrainaan
 
-## Pyörävarkaudet
-
-![Pysäköity sähköpyörä Jyväskylän keskustan pyöräparkissa.](https://img.img-cdn.yle.fi/crop_extract,w_5302,h_2982,x_0,y_48/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136295649d8488833e3/1688044774)
+![Kartalla Venäjän valtaamat alueet Ukrainassa 7.7.2023](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_603,x_0,y_168/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113931564a79f4193e9b/1688706945)
 
 Avaa kuvien katselu
 
-Varkaat haluavat kalliita sähköpyöriä. Kuva: Jaana Polamo / Yle
+Kuva: Harri Vähäkangas / Yle, MapCreator, OpenStreetMap
 
-Kesällä varastetaan paljon polkupyöriä. Varkaita kiinnostavat nyt erityisesti kalliit sähköpyörät.
+Lauantaina on kulunut 500 päivää siitä, kun Venäjä hyökkäsi Ukrainaan. Venäläiset joukot hyökkäsivät Ukrainaan 24. helmikuuta vuonna 2022.
 
-Eniten pyöriä varastettiin vuonna 2020. Sen jälkeen pyörävarkauksien määrä on vähentynyt, mutta vahinkojen rahallinen arvo on noussut.
+YK kertoo, että sodassa on kuollut yli 25 000 siviiliä. Sotilaita on kuollut molemmilta osapuolilta kymmeniätuhansia.
 
-Varkaat vievät nyt sähköpyöriä, jotka maksavat jopa 5000 euroa. Varkaita kiinnostavat myös kalliit sähköpotkulaudat.
+Venäjä miehittää isoja alueita Etelä-Ukrainassa ja Itä-Ukrainassa. Venäjän tavoite oli aluksi, että Ukrainan pääkaupunki Kiova vallataan nopeasti. Tämä ei onnistunut.
 
-## Kanadan maastopalot
+Miljoonat ihmiset ovat joutuneet lähtemään pois kotoa Ukrainassa Venäjän hyökkäyssodan takia.
 
-![Ilmakuva maastopalosta Kanadassa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_83/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113927264a75787bf480/1688688909)
+## Luvaton oleskelu Suomessa
+
+![Maahanmuuttovirasto Helsingissä. 3.2.2021.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_418/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-769762601aa93b34693/1684398041)
 
 Avaa kuvien katselu
 
-Kanadassa tuli on tuhonnut paljon metsää tänä kesänä. Kuva: Lehtikuva / AFP / Audrey Marcoux / SOPFEU /
+Maahanmuuttovirasto Migri kieltää joka vuosi noin 400 EU-maan kansalaisen tulon Suomeen. Kuva: Jorge Gonzalez / Yle
 
-Kanadassa on ollut tänä vuonna suuria maastopaloja. Maastoa ja metsää on palanut ennätyspaljon.
+Suomessa on paljon sellaisia EU-maiden kansalaisia, joilla ei ole lupaa olla Suomessa.
 
-Tähän mennessä metsää on palanut jo enemmän kuin koskaan ennen yhden vuoden aikana. Myös sammutustyöt ovat maksaneet ennätyspaljon.
+Maahanmuuttovirasto Migri kieltää joka vuosi noin 400 EU-maan kansalaisen tulon Suomeen. Kiellon syynä on usein se, että ihminen on tehnyt Suomessa rikoksia ja siksi karkotettu pois maasta. Moni ihminen tulee kuitenkin pian takaisin Suomeen ilman lupaa.
 
-Kanadan maastopaloaika on vasta puolivälissä. Kanadan metsävirasto on huolissaan, koska lämmin ja kuiva sää Kanadassa jatkuu. Siksi maastopaloja voi syttyä paljon myös heinäkuun ja elokuun aikana.
+Suomeen on helppo tulla takaisin, koska Shengen-maiden rajoilla ei ole rajatarkastuksia. Suomesta poistetaan eniten Romanian ja Viron kansalaisia.
+
+## Rajatarkastukset
+
+![Puolikuvassa vanhempi mies vilkuttaa kuvassa vasemmalle puku päällä aurinkolasit kasvoillaan.](https://img.img-cdn.yle.fi/crop_extract,w_1496,h_840,x_0,y_30/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113841464a561575f4b5/1688561084)
+
+Avaa kuvien katselu
+
+USA:n presidentti Joe Bideen saapuu Suomeen ensi viikolla. Kuvituskuva. Kuva: Mandel Ngan / Lehtikuva
+
+Rajavartiolaitos valvoo Suomen rajoja viikon ajan tarkemmin kuin tavallisesti. Syynä on USA:n presidentin Joe Bidenin vierailu Suomessa.
+
+Suomi valvoo myös Schengen-maiden välisiä rajoja ensi viikon lauantaihin saakka.
+
+USA:n presidentti Joe Biden vierailee Helsingissä ensi viikon torstaina.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113984264a80dc93262d/1688735233)
+![Marjanpoimijoita pellolla. Kesäinen poutapäivä.](https://img.img-cdn.yle.fi/crop_extract,w_5389,h_3031,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135154649ad5061c9b1/1687869675)
 
 Avaa kuvien katselu
 
-Lauantaina sadekuuroja syntyy Suomen etelä- ja keskiosassa. Myös ukkosta esiintyy.
+Sää on poutainen. Kuvituskuva. Kuva: Jani Saikko / Yle
 
-Maan pohjoisosassa on poutaista eli siellä ei sada. Lämpötila on 15 ja 20 asteen välillä.
+Sää on sunnuntaina lähes koko maassa poutainen. Etelärannikolla sataa paikoin vähän vettä.
 
-Sunnuntaina sateet loppuvat, ja suuressa osassa maata on poutaista. Lämpötila kuitenkin pysyy 15 ja 20 asteen välillä.
+Lämpötila on sunnuntaina päivällä 16 ja 23 asteen välillä.

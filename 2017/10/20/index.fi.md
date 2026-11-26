@@ -1,7 +1,7 @@
-# Torstai 19.10.2017 (tv)
+# Perjantai 20.10.2017 (tv)
 
-Äänekoskella vihittiin biotuotetehdas. Katalonian tilanne kiristyy. Suojuoksu on tehokasta kuntoilua. Itsenäinen Suomi saa terveiset Kuala Lumpurin Suomi-koulusta. Sää.
+Autoon kannattaa pian vaihtaa talvirenkaat. Euroopan unioni jatkaa jäsenyysneuvotteluja Turkin kanssa. Helsingissä nuorisotyötä tehdään myös kouluissa. Säätiedot.
 
 Yle Uutiset selkosuomeksi
 
-Äänekoskella vihittiin biotuotetehdas. Katalonian tilanne kiristyy. Suojuoksu on tehokasta kuntoilua. Itsenäinen Suomi saa terveiset Kuala Lumpurin Suomi-koulusta. Sää.
+Autoon kannattaa pian vaihtaa talvirenkaat. Euroopan unioni jatkaa jäsenyysneuvotteluja Turkin kanssa. Helsingissä nuorisotyötä tehdään myös kouluissa. Säätiedot.

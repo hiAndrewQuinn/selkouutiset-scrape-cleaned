@@ -1,77 +1,87 @@
-# Radio Selkouutiset perjantai 9.6.2023
+# Radio Selkouutiset lauantai 10.6.2023
 
-Hallitusneuvottelut. Ukrainan tulva. Teknologiateollisuuden työntekijäpula. Suomen kieli Viron kouluissa. Sää.
+Ukrainan vastahyökkäys. Vihreiden puheenjohtaja. RKP:n puoluekokous. Epätavallinen rikos. Kesämökkien kauppa. Sää.
 
-## Hallitusneuvottelut
+## Ukrainan vastahyökkäys
 
-![Petteri Orpo kävelee ulkona ja ohikulkija moikkaa häntä. Taustalla on Suomen pankin pääkonttori.](https://img.img-cdn.yle.fi/crop_extract,w_4907,h_2760,x_213,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125140647ec49ea226a/1686316652)
-
-Avaa kuvien katselu
-
-Hallitusneuvottelujen vetäjä Petteri Orpo. Kuva: Antti Aimo-Koivisto / Lehtikuva
-
-Hallitusneuvottelut voivat olla valmiit ensi viikon lopulla. Näin sanoo hallitusneuvottelujen vetäjä Petteri Orpo.
-
-Orpo kertoi perjantaina, että puolueet neuvottelevat vielä joistakin vaikeista asioista. Hallitusneuvotteluissa ovat mukana kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
-
-Orpo sanoo, että puolueiden pitää neuvotella vielä esimerkiksi sosiaali- ja terveyspalveluista. Erityisen vaikea on päättää rahoista, joita palveluihin tarvitaan.
-
-## Ukrainan tulva
-
-![Pelastustyöntekijä nostaa vanhaa naista veneestä rannalle.](https://img.img-cdn.yle.fi/crop_extract,w_5524,h_3093,x_0,y_345/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11267096481b4cb5f399/1686322850)
+![Aseistettuja sotilaita auton lavalla.](https://img.img-cdn.yle.fi/crop_extract,w_4500,h_2531,x_0,y_140/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1127939648476ca4cde6/1686402820)
 
 Avaa kuvien katselu
 
-Pelastustyöt Ukrainan tulva-alueella jatkuvat. Kuva: Mykola Tymchenko / EPA
+Ukrainalaisia sotilaita. Kuva: Anatolii Stepanov / AFP
 
-Ukrainan tulvassa on kuollut ihmisiä. Kuolleiden määrä on ainakin yli 10. Ihmisiä on myös kadonnut tulvan takia.
+Ukrainan sotatilanteesta on kerrottu uutta tietoa.
 
-Tulvan syy on se, että iso Kahovkan pato meni rikki tiistaina. Siksi Dnepr-joki tulvii. Ukraina sanoo, että Venäjä tuhosi padon.
+Presidentti Volodymyr Zelenskyi kertoi lauantaina, että Ukrainan vastahyökkäys on alkanut. Asiantuntijat ovat jo odottaneet tietoa vastahyökkäyksestä.
 
-Pelastustyöt tulva-alueella jatkuvat. Myös Suomi lähettää alueelle apua, esimerkiksi ruokaa ja tarvikkeita juomaveden puhdistamista varten.
+Ukraina aloitti vastahyökkäyksen niitä venäläisiä joukkoja vastaan, jotka ovat tunkeutuneet Ukrainaan. Venäjä aloitti sodan Ukrainassa viime vuoden helmikuussa.
 
-## Työntekijäpula
+## Vihreiden uusi puheenjohtaja
 
-![Kaksi henkilöä työskentelee laboratoriossa.](https://img.img-cdn.yle.fi/crop_extract,w_5868,h_3300,x_0,y_367/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125900648070df6c5e5/1686139180)
-
-Avaa kuvien katselu
-
-Teknologiateollisuudessa on monenlaisia työpaikkoja. Kuva: Sasha Silvala / Yle
-
-Teknologiateollisuudessa tarvitaan lisää työntekijöitä.
-
-Esimerkiksi hitsaajia ja koneistajia on liian vähän. Myös automaation, robotiikan ja tekoälyn osaajia tarvitaan lisää.
-
-Monet teknologia-alan firmat sanovat, että ne eivät voi kasvattaa bisnestä, koska niillä ei ole tarpeeksi työntekijöitä.
-
-Arvioidaan, että teknologiateollisuudessa tarvitaan tulevina vuosina yli 100 000 uutta työntekijää.
-
-## Suomen kieli Viron kouluissa
-
-![Viron yläasteilla ja lukioissa käytettävä Suomen kielen oppikirja avattuna.](https://img.img-cdn.yle.fi/crop_extract,w_1083,h_608,x_0,y_90/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112287364785486901f1/1685607879)
+![Sofia Virta.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1127778648448c513d01/1686391041)
 
 Avaa kuvien katselu
 
-Suomen opiskelu on nyt suosittua Virossa. Kuva: Rain Kooli / Yle
+Sofia Virta on vihreiden uusi puheenjohtaja. Kuva: Heikki Saukkomaa / Lehtikuva
 
-Suomen kielen suosio kasvaa Viron kouluissa. Monissa Viron peruskouluissa ja lukioissa oppilaat valitsevat nyt suomen toiseksi vieraaksi kieleksi.
+Vihreät on saanut uuden puheenjohtajan. Uusi puheenjohtaja on Sofia Virta. Virta on 32-vuotias kansanedustaja.
 
-Monet oppilaat valitsevat suomen, koska he eivät halua enää opiskella venäjää. Venäjän kielen suosio on laskenut tosi paljon, sen jälkeen kun Venäjä aloitti sodan Ukrainassa.
+Vihreiden edellinen puheenjohtaja Maria Ohisalo päätti keväällä lopettaa puheenjohtajan tehtävässä. Kevään eduskuntavaaleissa vihreät menetti monta paikkaa eduskunnassa.
 
-Virolaisten mielestä suomea on helppo oppia, koska viro ja suomi ovat sukukieliä. Siksi kielet ovat melko samanlaisia.
+Vihreät valitsi uuden puheenjohtajan puoluekokouksessa, joka on tänä viikonloppuna.
 
-Vielä 30 vuotta sitten monet virolaiset osasivat jonkin verran suomea, koska he katsoivat paljon Suomen televisiota. Nykyään suosituin vieras kieli Virossa on englanti.
+## RKP:n puoluekokous
+
+![Anna-Maja Henriksson.](https://img.img-cdn.yle.fi/crop_extract,w_4252,h_2391,x_0,y_443/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1127967648489b5dcba5/1686474906)
+
+Avaa kuvien katselu
+
+Puheenjohtaja Anna-Maja Henriksson puhui puoluekokouksessa. Kuva: Kalle Parkkinen / Lehtikuva
+
+Myös RKP:llä on tänä viikonloppuna puoluekokous.
+
+RKP:n puheenjohtaja Anna-Maja Henriksson puhui puoluekokouksessa lauantaina. Henriksson sanoi, että hallitusneuvottelut ovat vaikeat.
+
+Syy on Henrikssonin mielestä se, että RKP ja perussuomalaiset ovat monista asioista eri mieltä. Puolueet ovat eri mieltä esimerkiksi maahanmuutosta.
+
+Hallitusneuvotteluissa ovat mukana kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit. Hallitusneuvottelut ovat jatkuneet jo monta viikkoa.
+
+## Epätavallinen rikos
+
+![Kuvassa näkyy FaceTimen logo.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11278016484532e19095/1686393705)
+
+Avaa kuvien katselu
+
+Rikos tehtiin kuvapalvelun avulla. Kuva: Osmo Päivinen / Yle
+
+Oikeus on antanut rangaistuksen epätavallisesta rikoksesta.
+
+Oikeus määräsi 15-vuotiaalle pojalle rangaistuksen ryöstöstä, jossa poika ei ollut itse paikalla. Poika teki rikoksen Facetime-kuvapuhelun avulla.
+
+Poika ohjasi kuvapuhelun avulla toista poikaa, joka teki ryöstön. Tekijä ei saanut itse rangaistusta, koska hän oli vasta 14-vuotias.
+
+## Kesämökkien kauppa
+
+![Palokan Viitalampi. Vastarannalla näkyy kesämökki metsän siimeksessä.](https://img.img-cdn.yle.fi/crop_extract,w_5298,h_2980,x_0,y_422/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98129262ce707fc5f1e/1657702777)
+
+Avaa kuvien katselu
+
+Oma ranta nosaa mökin hintaa. Kuva: Jarkko Riikonen / Yle
+
+Kesämökkejä on myyty tänä kesänä vähän vähemmän kuin vuosi sitten.
+
+Kesämökki maksaa usein noin 120 000 euroa. Hinnat ovat nyt vähän halvempia kuin koronavuosina.
+
+Kesämökkien hinnoissa on kuitenkin isoja eroja eri paikkakuntien välillä. Kalleimmat kesämökit löytyvät Lapista sekä järvien ja meren rannoilta.
 
 ## Sää
 
-![Lähivuorokausien sää on koko maassa aurinkoinen ja lämmin.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112758764832529720ac/1686316447)
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112796964849354d801a/1686410105)
 
 Avaa kuvien katselu
 
-Kuva: Anniina Valtonen/Yle
+Suomen sää on nyt lämmin ja kuiva.
 
-Sää on poutaista ja aurinkoista. Sää myös lämpenee.
+Lämmintä ilmaa tulee lännestä Suomeen sunnuntaina. Lämpötila nousee koko maassa yli 20 asteen.
 
-Lauantaina lämpötila on 15 ja 20 asteen välillä. Sunnuntaina lämpötila on yli 20 astetta.
-
-Ensi viikolla mitataan jo hellelukemia, jolloin lämpötila on vähintään 25 astetta.
+Koko ensi viikosta tulee lämmin. Lämpötila voi paikoin nousta melkein 30 asteeseen.

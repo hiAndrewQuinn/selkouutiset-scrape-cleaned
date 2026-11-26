@@ -1,83 +1,93 @@
-# Radio | Selkouutiset | Torstai 31.8.2023
+# Radio Selkouutiset tiistaina 5.9.2023
 
-Rasismin vastainen tiedonanto. Holokaustin kieltäminen. Ruoan hinta. Vammaispalvelulaki. Nimipäivät. Sääennuste.
+Veikkaus. Rakennusala. Mikkelin ruokamyrkytykset. Yle Kielikoulu. Kreikan tulvat. Suomen sää.
 
-## Rasismin vastainen tiedonanto
+## Veikkaus
 
-![Kokoomuksen puheenjohtaja, pääministeri Petteri Orpo kommentoi medialle tiedotustilaisuudessa, joka käsitteli tiedonantoa yhdenvertaisuuden, tasa-arvon ja syrjimättömyyden edistämiseksi, Helsingissä .](https://img.img-cdn.yle.fi/crop_extract,w_5110,h_2868,x_0,y_320/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116549964f07da7ba7c5/1693559342)
-
-Avaa kuvien katselu
-
-Pääministeri Petteri Orpo kertoi hallituksen tiedonannosta. Kuva: Markku Ulander / Lehtikuva
-
-Hallitus on hyväksynyt rasismin vastaisen tiedonannon.
-
-Se tarkoittaa, että hallitus on sopinut, miten hallitus torjuu rasismia.
-
-Pääministeri **Petteri Orpo** sanoo, että jokainen hallituksen ministeri irtisanoutuu rasismista ja jokainen ministeri sitoutuu työhön rasismia vastaan.
-
-## Holokaustin kieltäminen
-
-![flicka med ryggern mot kameran vid minnemärket över upproret i Treblinka 1943](https://img.img-cdn.yle.fi/crop_extract,w_4096,h_2304,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106480263d39c354f169/1674812563)
+![Veikkaus- ja lottokuponkeja kioskin tiskillä](https://img.img-cdn.yle.fi/crop_extract,w_3780,h_2126,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7113235f43ba8d2d6ed/1598274267)
 
 Avaa kuvien katselu
 
-Treblinkan keskitysleiri Puolassa oli yksi paikoista, joissa juutalaisia surmattiin. Kuva: EPA-EFE
+Veikkauksen pelit ovat tuttuja monille. Kuva: Kiira Ikävalko-Lindqvist/Yle
 
-Hallitus on kertonut uusista rasismin vastaisista toimista. Hallitus käynnistää ohjelman, jolla kehitetään tasa-arvoa ja yhdenvertaisuutta kaikissa kouluissa ja oppilaitoksissa.
+Rahapelifirma Veikkaus aikoo vähentää työntekijöitä. Työt voivat loppua jopa yli 200 työntekijältä.
 
-Tarkoitus on esimerkiksi saada maahanmuuttajaperheiden lapset osallistumaan varhaiskasvatukseen nykyistä enemmän.
+Veikkaus suunnittelee myös pelipaikkojen vähentämistä. Lisäksi arvioidaan, suljetaanko Tampereen kasino.
 
-Hallitus haluaa myös estää vihatekoja juutalaisia, muslimeja, kristittyjä ja muita uskontoryhmiä vastaan. Tarkoitus on, että esimerkiksi holokaustin kieltämiseen puututaan lailla. Jotkut ihmiset kiistävät juutalaisten joukkotuhon eli holokaustin 2. maailmansodassa. Tarkoitus on, että jatkossa kiistäminen on laitonta.
+Veikkauksella on edessä isoja muutoksia. Muutosten syy on se, että rahapelit aiotaan avata kilpailulle vuonna 2026.
 
-## Ruoan hinta
+Silloin myös muille firmoille tulee mahdollisuus järjestää rahapelejä netissä. Nyt niitä saa järjestää vain Veikkaus.
 
-![Asiakas kantaa ostoskoria ruokakaupassa.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-774563602b9bbe33527/1613471412)
+## Rakennusala
 
-Avaa kuvien katselu
-
-Ruoan hinta on kallistunut, mutta kallistuminen on hidastunut hieman. Kuva: Tiina Jutila / Yle
-
-Ruoan hinta on kallistunut vuodessa paljon. Heinäkuussa ruoka maksoi yli 8 prosenttia enemmän, kuin viime vuoden heinäkuussa.
-
-Kallistuminen on kuitenkin hidastunut. Näin kertoo kauppojen järjestö PTY.
-
-Koko alkuvuonna eli tammikuusta heinäkuuhun ruoan hinta nousi melkein 13 prosenttia viime vuoden tammi-heinäkuuhusta. Heinäkuussa ruoan hinta nousi siis vähän hitaammin kuin aiemmin tänä vuonna.
-
-## Vammaispalvelulaki
-
-![Pyörätuolin renkaat lähikuvassa ja siinä istuvan henkilön jalat.](https://img.img-cdn.yle.fi/crop_extract,w_2014,h_1134,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114358864b500a12c54a/1693482950)
+![Kaksi henkilöä seisoo rakennustyömaalla paljaalla betonilattialla. Taustalla näkyy kerrostaloja.](https://img.img-cdn.yle.fi/crop_extract,w_3965,h_2222,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116761264f6f6db243d2/1693907337)
 
 Avaa kuvien katselu
 
-Vammaispalvelulaki tulee ehkä voimaan vuoden 2025 alussa. Kuva: Katja Halinen
+Rakentaminen on vähentynyt Suomessa. Kuva: Juha Kokkala / Yle
 
-Hallitus haluaa lykätä lisää vammaispalvelulain voimaantuloa. Hallitus haluaa vielä muuttaa sitä, mitä asioita, henkilöitä tai organisaatioita laki koskee.
+Hallitus etsii keinoja auttaa rakennusalaa. Rakennusalalla on ongelmia, koska asuntojen rakentaminen on vähentynyt Suomessa paljon.
 
-Alun perin vammaispalvelulain piti tulla voimaan tänä syksynä. Hallitusneuvotteluissa sovittiin, että lakia lykätään 1 vuodella eli ensi vuoden syksyyn.
+Nyt Suomeen on perustettu työryhmä arvioimaan tilannetta. Työryhmän pitää arvioida myös, kuinka rakennusalan ongelmat vaikuttavat koko Suomen talouteen.
 
-Nyt hallitus haluaa siirtää vammaispalvelulakia vielä vähän niin, että laki tulee voimaan vuoden 2025 alussa.
+Rakennusala sanoo, että rakentaminen vähenee kovaa vauhtia koko syksyn ajan.
 
-## Nimipäivät
+## Mikkelin ruokamyrkytykset
 
-![Nimipäiväkalenteri](https://img.img-cdn.yle.fi/crop_extract,w_4128,h_2322,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-2026554ec8467137d2/1424786541)
-
-Avaa kuvien katselu
-
-Kalenteriin otetaan joka vuosi uusia nimiä. Kalenterista jää pois nimiä, joita ei ole paljon käytössä.  Kuva: Yle/Anna Keränen
-
-Suomalaiseen kalenteriin tulee taas uusia nimipäiviä. Helsingin yliopisto kertoo, että vuoden 2025 kalenteriin tulee 33 uutta nimeä.
-
-Osa nimistä on vanhoja nimiä, jotka palaavat kalenteriin tauon jälkeen. Tällaisia ovat esimerkiksi nimet Aamos, Linus ja Rolf.
-
-Suomalaiseen kalenteriin tulee myös kansainvälisiä nimiä. Tällaisia ovat esimerkiksi Amelia, Jare, Jasu, Kevin ja Neo.
-
-## Sää
-
-![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116574164f0a60854874/1693492780)
+![Pino tortilloja.](https://img.img-cdn.yle.fi/crop_extract,w_5306,h_2985,x_0,y_182/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80806160a51180ce224/1693926010)
 
 Avaa kuvien katselu
 
-Perjantai on melko lämmin koko maassa.
+Mikkelin ongelmat johtuivat ehkä tortilloista. Kuvituskuva. Kuva: Yle / Mikko Koski
 
-Perjantaina Lapissa sataa yleisesti vettä. Muualla tulee paikoin sadekuuroja. Lämpötila on noin 20 astetta, Lapissa on viileämpää.
+Viranomaiset ovat kertoneet uusia tietoja Mikkelin ruokamyrkytyksistä. Yli 800 ihmistä sai ruokamyrkytyksen oireita Mikkelin kouluissa elokuussa.
+
+Oireiden syy olivat ehkä tortillaletut, joita tarjoiltiin koulujen lounaalla. Viranomaiset eivät vielä tiedä, mitä vikaa tortillaletuissa oli.
+
+Kukaan ei kuitenkaan joutunut sairaalahoitoon ruokamyrkytyksen takia.
+
+## Yle Kielikoulu
+
+![Ruotsintajatoimittaja Jonatan Pedersen](https://img.img-cdn.yle.fi/crop_extract,w_1893,h_1064,x_6,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-111460264635a8e3a2da/1684233023)
+
+Avaa kuvien katselu
+
+Kääntäjä Jonatan Pedersen hoitaa Yle Kielikoulua.
+
+Sitten asiaa Yle Kielikoulusta. Yle Kielikoulu tarjoaa hauskan tavan opiskella suomea.
+
+Kielikoulussa opiskellaan suomea katsomalla suomenkielisiä tv-ohjelmia.
+
+Ohjelmissa on myös suomenkielinen tekstitys, johon katsoja saa käännöksen vaikeille sanoille.
+
+Katsoja voi valita, millä kielellä käännökset ovat. Kieliä on 14.
+
+Lisäksi Yle Kielikoulussa on tehtäviä. Kielikoulu on ilmainen.
+
+Yle Kielikoulua voi käyttää sovelluksella tai selaimella. Lisää tietoa on osoitteessa yle.fi/kielikoulu.
+
+## Kreikan tulvat
+
+![Autoja tulvavedessä kadunkulmassa Pelonissa Kreikassa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_466/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116795764f7457b00c35/1693926915)
+
+Avaa kuvien katselu
+
+Vesi on peittänyt katuja Kreikassa. Kuva: Anastasia Karekla / Lehtikuva
+
+Kreikassa on tulvia. Tulvissa on kuollut ainakin 1 ihminen.
+
+Tulvien syy on kova sade. Vettä satoi niin paljon, että katuja on jäänyt veden alle ja tulvavesi on vienyt autoja mukanaan.
+
+Viime viikkoina Kreikassa on ollut isoja maastopaloja. Paloissa kuoli yli 20 ihmistä.
+
+## Suomen sää
+
+![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116795864f746795e303/1693927061)
+
+Avaa kuvien katselu
+
+Suomessa sää on keskiviikkona poutaista. Myös aurinko paistaa monin paikoin.
+
+Idässä ja pohjoisessa voi tulla sadekuuroja.
+
+Lämpötila on keskiviikkona 10-20 astetta. Loppuviikolla lämpötila voi nousta etelässä yli 20 asteen.

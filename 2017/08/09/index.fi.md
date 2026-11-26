@@ -1,79 +1,57 @@
-# Tiistai 8.8.2017 (radio)
+# Keskiviikko 9.8.2017 (radio)
 
-Virolaisten työssäkäynti Suomessa vähenee. Moni terveyskesuslääkäri tekee osa-aikatyötä. Koskenkorvaa myydään pian Yhdysvalloissa. Pelastuslaitoksella on ollut ennätysmäärä käärmehälytyksiä. Terveisiä Kielin Suomi-koulusta.
+Suomi ottaa vähemmän lainaa. Nimen perusteella syrjitään työnhakijoita. Enontekiöllä odotetaan uusia asukkaita. Yhdysvallat ja Pohjois-Korea uhkailevat toisiaan. Graffiteja voi katsoa museossa.
 
-## Virolaiset työntekijät
-
-![Virolainen maalari Jan Kaljura työmaalla Järvenpäässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763331)
+![Petteri Orpo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9766739)
 
 Avaa kuvien katselu
 
-Virolainen rakennusmaalari Jan Kaljura on käynyt töissä Suomessa jo 10 vuoden ajan. Kuva: Jaani Lampinen / Yle
+Valtiovarainministeri Petteri Orpo Kuva: Roni Rekomaa / Lehtikuva
 
-Virolaisten työntekijöiden määrä Suomessa vähenee lähivuosina, sanoo tutkija.
+Valtiovarainministeriö tekee Suomelle ehdotusta budjetista eli valtion ensi vuoden tuloista ja menoista. Valtiovarainministeri Petteri Orpo sanoo, että Suomen pitää olla tarkka menojen kanssa. Suomen valtio aikoo ottaa ensi vuonna vähemmän lainaa kuin tänä vuonna.
 
-Itä-Suomen yliopiston ja Tarton yliopiston tutkija Keiu Telve sanoo, että palkkataso Virossa on noussut. Sen takia virolaisten työntekijöiden määrä Suomessa voi jopa puolittua.
-
-Tutkija sanoo, että tällä hetkellä Suomessa käy töissä ehkä noin 20 000 virolaista. Virolaiset työskentelevät Suomessa etenkin rakennusalalla, mutta myös lääkäreinä, palveluammateissa ja siivoojina.
-
-Suurin osa virolaisista käy töissä pääkaupunkiseudulla.
-
-## Terveyskeskuslääkärit
-
-![Lääkäri kirjoittaa reseptiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6193071)
+![Nainen hymyilee ulkona torilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9764447)
 
 Avaa kuvien katselu
 
-Osa-aikatyö kiinnostaa etenkin nuoria lääkäreitä, joilla on pieniä lapsia. Kuva: Tiina Karjalainen / Yle
+Nicoletta Kekoniemi vaihtoi sukunimensä. Kuva: Jari Tanskanen / Yle
 
-Moni terveyskeskuslääkäri työskentelee osa-aikaisesti. Lääkäriliiton selvitys kertoo, että 20 prosenttia terveyskeskuslääkäreistä tekee osa-aikaista työtä.
+## Nimen perusteella syrjitään
 
-Osa-aikaista työtä haluavat tehdä etenkin nuoret lääkärit, joilla on pieniä lapsia.
+Ulkomainen tai ulkomaiselta kuulostava nimi voi tehdä työn hakemisesta vaikeaa Suomessa. Työnhaussa etnisen taustan perusteella syrjitään enemmän kuin sukupuolen takia.
 
-Osa-aikatyötä haluavat myös lääkärit, jotka tekevät esimerkiksi tutkimustyötä tavallisen työn rinnalla.
+Moni on jopa kääntänyt nimensä suomeksi tai valinnut suomalaisen sukunimen. Näin teki lappeenrantalainen Nicoletta Kekoniemi. Hän vaihtoi italialaisen sukunimensä miehen suomalaiseen sukunimeen, kun meni naimisiin. Nicoletta Kekoniemi sanoo, että nyt hänen ulkomaalaista taustaansa ei enää ihmetellä niin paljon.
 
-## Koskenkorva
-
-![Koskenkorva-pulloja Alkossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763523)
+![Eanodat báhtareaddjit ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9762066)
 
 Avaa kuvien katselu
 
-Koskenkorvaa aiotaan myydä 10 osavaltiossa Yhdysvalloissa.  Kuva: Ismo Pekkarinen / AOP
+Enontekiöllä odotetaan pakolaisperheitä. Kuva: Yle / Anni-Saara Paltto
 
-Perinteikästä suomalaisviinaa Koskenkorvaa aletaan myydä Yhdysvalloissa. Koskenkorvaa voi ostaa Yhdysvalloissa elo-syyskuun vaihteesta lähtien, kertoo valmistajayhtiö Altia.
+## Enontekiö odottaa uusia asukkaita
 
-Koskenkorva-vodkaa aiotaan myydä Yhdysvaltojen 10 osavaltiossa. Ensimmäisenä myynti aloitetaan Kaliforniassa.
+Aivan Suomen pohjoisimmassa osassa Enontekiön kunnassa odotetaan uusia asukkaita. Kuntaan muuttaa pian kolme syyrialaista pakolaisperhettä.
 
-Koskenkorvaa myydään noin 30 maassa. Altia sanoo, että Koskenkorva on sen tärkein vientibrändi.
+Enontekiön asukkaat ovat keränneet perheille huonekaluja ja kodin tarvikkeita. Perheillä on Enontekiössä arabiankielinen avustaja, joka auttaa arjen sujumisessa.
 
-## Käärmeet
-
-![Rantakäärme kuvattuna kivikossa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763179)
+![Ohjuksen laukaisu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9766326)
 
 Avaa kuvien katselu
 
-Rantakäärme ei ole myrkyllinen. Kuva: Ismo Pekkarinen / AOP
+Pohjois-Korea on tehnyt tänä vuonna monta ohjuskoetta. Kuva: KCNA / EPA
 
-Pelastuslaitoksilla on ollut tänä kesänä ennätysmäärä hälytyksiä käärmeiden takia.
+## Yhdysvallat ja Pohjois-Korea sanasodassa
 
-Elokuun alkuun mennessä pelastuslaitos on hälytetty apuun käärmeiden takia yhteensä noin 35 kertaa. Se on yhtä paljon kuin tavallisesti koko vuoden aikana.
+Yhdysvallat ja Pohjois-Korea uhkailevat toisiaan kovin sanoin.
 
-Käärmeitä on haettu pois esimerkiksi asunnoista, parvekkeilta ja terasseilta.
+Yhdysvalloissa sanomalehti Washington Post kertoi, että Pohjois-Korealla on ydinkärki, joka mahtuu ohjukseen. Yhdysvaltain presidentti Donald Trump varoitti, että Pohjois-Korean ei pidä uhkailla Yhdysvaltoja. Pohjois-Korean valtion uutistoimisto vastasi tämän jälkeen, että Pohjois-Korean ohjukset voivat lentää Guamin saarelle Yhdysvaltoihin asti.
 
-Suurin osa on ollut rantakäärmeitä. Rantakäärme ei ole myrkyllinen.
-
-Eniten käärmetehtäviä on ollut Länsi-Uudellamaalla, Turun seudulla ja Helsingissä.
-
-## Terveisiä Kielistä
-
-![Oppilaat laulavat koulussa Kielissä, Saksassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763203)
+![Sinkka, Graffititaide](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9759370)
 
 Avaa kuvien katselu
 
-Kielin suomikoululaiset laulavat onnittelulaulun.  Kuva: Yle
+Keravan taidemuseossa on graffitinäyttely. Kuva: Jussi Mankkinen / Yle
 
-Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa.
+## Graffitit pääsivät museoon
 
-Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
-
-Uusimmat terveiset tulevat Kielin Suomi-koulusta, Saksasta.
+Katutaidetta voi nyt nähdä myös museossa. Keravan taidemuseossa on esillä Suomen ensimmäinen graffitinäyttely.  Graffiteja on tehty Suomessa jo 1980-luvulta asti,  mutta moni on pitänyt niitä vain töherryksinä.

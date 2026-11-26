@@ -1,7 +1,91 @@
-# Torstai 12.4.2018 (tv)
+# Perjantai 13.4.2018 (radio)
 
-Lukio-opiskelu uudistuu. Matkustajalaiva Viking Gracella on uudenlainen roottoripurje. Hevosmetsuri kaataa metsästä puita hevosten avulla. Ilmassa on paljon katupölyä. Säätiedot.
+Suomen talous kasvaa. Asiantuntijat tutkivat, onko Syyriassa käytetty kaasuasetta. Tytöt suhtautuvat monikulttuurisuuteen positiivisemmin kuin pojat. Suomalaiset aikuiset ovat lihavampia kuin ennen. Miehiä kuolee tapaturmien takia enemmän kuin naisia. Kevät etenee.
 
-Yle Uutiset selkosuomeksi
+## Suomen talous
 
-Lukio-opiskelu uudistuu. Matkustajalaiva Viking Gracella on uudenlainen roottoripurje. Hevosmetsuri kaataa metsästä puita hevosten avulla. Ilmassa on paljon katupölyä. Säätiedot.
+![Kontteja puretaan laivasta satamassa Kotkan Mussalossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10154800)
+
+Avaa kuvien katselu
+
+Kauppa käy ja talous kasvaa. Kuva: Sakari Saksa / Yle
+
+Suomen taloudella menee hyvin. Suomen talous kasvaa nyt kovaa vauhtia.
+
+Valtiovarainministeriö arvioi, että talous kasvaa tänä vuonna 2,6 prosenttia. Myös tulevina vuosina talous kasvaa yli 2 prosenttia vuodessa.
+
+Myös työttömien määrä vähenee tulevina vuosina, valtiovarainministeriö arvioi.
+
+Valtiovarainministeriön tehtävä on suunnitella Suomen talouspolitiikkaa.
+
+## Syyrian sota
+
+![Savupatsaita pommituksen jälkeen Doumassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10150086)
+
+Avaa kuvien katselu
+
+Douma 7.4.2018. Kuva: Ammarx Safarjalani / AOP
+
+Ryhmä kansainvälisiä asiantuntijoita matkustaa Syyriaan. He tutkivat, onko Syyrian sodassa käytetty kaasuasetta.
+
+Syyrian oppositio sanoo, että Syyrian armeija pudotti vaarallista kaasua Douman kaupunkiin viikko sitten. Kaasu tappoi monta ihmistä.
+
+Asiantuntijat aloittavat tutkimukset viikonloppuna. Syyria on luvannut, että se ei häiritse asiantuntijoiden työtä.
+
+Syyrian oppositio on taistellut Syyrian hallitusta ja sen armeijaa vastaan jo monta vuotta.
+
+## Nuoret ja monikulttuurisuus
+
+![Walter ry:n projektikoordinaattori keskustelee Donnerin koulun neljän oppilaan kanssa liiikuntasalissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6393247)
+
+Avaa kuvien katselu
+
+Tytöt suhtautuvat monikulttuurisuuteen positiivisemmin kuin pojat. Kuva: Kalle Niskala / Yle
+
+Suomalaisten nuorten ja nuorten aikuisten mielestä monikulttuurisuudessa on hyviä puolia.
+
+Tytöt suhtautuvat monikulttuurisuuteen positiivisemmin kuin pojat. Monia poikia monikulttuurisuus pelottaa tai ärsyttää.
+
+Tiedot ovat Opetushallituksen selvityksestä.
+
+## Suomalaisten terveys
+
+![Mies esittelee pyöreää vatsaansa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9918793)
+
+Avaa kuvien katselu
+
+Suomalaiset aikuiset lihovat. Kuva: AOP
+
+Suomalaisten terveydestä on saatu huonoja uutisia.
+
+Suomalaiset aikuiset ovat lihavampia kuin ennen. Jo melkein 30 prosenttia aikuisista on lihavia.
+
+Myös nuorten kunto on huono. Noin 10 prosentilla 30-40 -vuotiaista on vaikeuksia juosta 100 metriä.
+
+Tiedot ovat Terveyden ja hyvinvoinnin laitoksen tutkimuksesta.
+
+## Tapaturmapäivä
+
+![Jalka kipsissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10158092)
+
+Avaa kuvien katselu
+
+Miehet loukkaavat itsensä useammin kuin naiset. Kuva: Alistair Scott / AOP
+
+Perjantaina on vietetty tapaturmapäivää.
+
+Päivän teema on tällä kertaa se, että miehille tapahtuu liikaa tapaturmia. Miehiä kuolee tapaturmien takia enemmän kuin naisia.
+
+Miehet loukkaavat itsensä usein kotona tai vapaa-aikana. Miehet voivat unohtaa turvallisuuden esimerkiksi silloin, kun he tekevät remonttia.
+
+## Kevätsää
+
+![kevätaurinko paistaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10158566)
+
+Avaa kuvien katselu
+
+Lauantaina paistaa aurinko. Kuva: Tommi Parkkinen /Yle
+
+Kevät etenee. Ylen meteorologi Marjo Hoikkanen kertoo, että lauantai on ehkä viikon lämpimin päivä. Etelässä voi olla 15 astetta lämmintä. Pohjoisessa lämpötila on 5-10 astetta.
+
+Sunnuntaina etelässä voi sataa vettä. Se on kuitenkin hyvä asia, koska sade puhdistaa ilmaa. Ilmassa on nyt paljon katupölyä.

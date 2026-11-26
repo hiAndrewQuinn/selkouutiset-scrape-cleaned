@@ -1,65 +1,53 @@
-# Lauantai 9.12.2017 (radio)
+# Sunnuntai 10.12.2017 (radio)
 
-Suomenlahdella kuoli 2 ihmistä, kun luotsivene kaatui. Irakin pääministeri sanoo, että sota terroristijärjestö Isisiä vastaan on loppunut Irakissa. Afasiapotilaille toivotaan pitempää kuntoutusta. Kuopiossa rakennettiin aikakapseli.
+Tämän vuoden Nobel-palkinnot on jaettu. Helsingin juutalaisen synagogan turvatoimia lisätään. Miehet ansaitsevat huippu-urheilussa paljon enemmän kuin naiset.
 
-## Luotsivene kaatui
+## Nobel-palkinnot jaettiin
 
-![Merivartioston sukeltajat valmistelevat luotsiveneen kääntöä Suomenlahdella 8. joulukuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9969415)
-
-Avaa kuvien katselu
-
-Luotsivene kaatui, ja tässä sitä yritetään kääntää. Kuva: Rajavartiolaitos
-
-Suomenlahdella on tapahtunut onnettomuus. Onnettomuus tapahtui merellä lähellä Porvoon kaupunkia.
-
-Onnettomuudessa luotsivene kaatui. Veneessä oli 2 työntekijää. Molemmat kuolivat.
-
-Luotsin työ on ohjata tai opastaa laivoja satamaan. Luotsit tuntevat oman alueen vaikeat merireitit paremmin kuin vieraiden laivojen kapteenit.
-
-Vielä ei tiedetä, miksi luotsivene kaatui.
-
-## Irak voitti Isisin
-
-![Irakin joukkoja matkalla taistelemaan Isisiä vastaan Rawahin kaupungin lähellä 25. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9969651)
+![Nobel-juhla Tukholman kaupunginsalissa joulukuussa 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9339516)
 
 Avaa kuvien katselu
 
-Irakin armeijan sotilaita. Kuva: Ahmad Al-Rubaye
+Nobel-juhla päättyy aina juhla-ateriaan Tukholmassa. Kuva: Jonas Ekströmer / EPA
 
-Irakissa sota terroristijärjestö Isisiä vastaan on loppunut. Irakin pääministeri Haider al-Abadi kertoi asiasta. Pääministeri sanoi, että Irakin armeija valvoo nyt Irakin koko aluetta.
+Sunnuntaina on jaettu tämän vuoden Nobel-palkinnot.
 
-Isis valtasi isoja alueita Irakissa vuonna 2014. Irakin armeija on vallannut alueet takaisin. Irak on saanut sodassa tukea muilta mailta, esimerkiksi USA:lta.
+Nobelin rauhanpalkinto jaettiin Norjan pääkaupungissa Oslossa. Palkinto annettiin ICAN-kampanjalle. Se on kampanja ydinaseita vastaan.
 
-## Kuntoutus auttaa afasiassa
+Muut Nobel-palkinnot jaettiin Ruotsin pääkaupungissa Tukholmassa. Kuningas Kaarle Kustaa antoi Nobel-palkinnot kirjallisuuden ja tieteen eri alojen voittajille.
 
-![Afaattisen henkilön kommunikaatiokansio.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9966547)
+Palkintojen jakamisen jälkeen Tukholmassa järjestetään aina suuri juhla-ateria. Juhlassa ovat mukana myös Nobel-voittajat ja Ruotsin kuninkaallinen perhe.
 
-Avaa kuvien katselu
+## Helsingin synagogaa suojellaan
 
-Afasia on kielellinen häriö. Kuva: Petra Ristola / Yle
-
-Afasiapotilaille toivotaan pitempää kuntoutusta.
-
-Afasia on kielellinen häiriö, joka tulee aikuiselle. Afasian takia ihmisen on vaikea ymmärtää ja tuottaa kieltä.
-
-Suomessa on kymmeniä tuhansia ihmisiä, joilla on afasia. Afasian syy voi olla esimerkiksi aivovamma, joka tulee onnettomuudessa. Tavallisin afasian syy on aivoverenkierron häiriö.
-
-Dosentti Kati Renvall sanoo, että potilaiden kuntoutus loppuu usein liian aikaisin. Kuntoutus kestää vuoden tai 2 vuotta, mutta se ei aina riitä.
-
-Renvall tutkii esimerkiksi, miten ihminen oppii kuntoutuksessa käyttämään abstrakteja sanoja. Esimerkiksi sellaiset sanat kuin "ihana" tai "kamala" auttavat ihmistä kertomaan tunteista ja mielipiteistä. Yleensä kuntoutuksessa harjoitellaan vain konkreettisia sanoja, esimerkiksi "ruoka" tai "lääkäri".
-
-Dosentti Kati Renvall on yksi tutkijoista, jotka ovat kirjoittaneet ensimmäisen suomalaisen tietokirjan afasiasta.
-
-## Tavaroita tulevaisuuden ihmisille
-
-![Aikakapseli.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9969091)
+![Helsingin juutalainen serakunta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7872984)
 
 Avaa kuvien katselu
 
-Aikakapseli suljettiin perjantaina. Kuva: Toni Pitkänen / Yle
+Helsingin juutalainen synagoga. Kuva: Jussi Mansikka/Yle
 
-Kuopiossa suljettiin perjantaina aikakapseli. Se on tehty teräksestä ja puusta.
+Helsingin juutalaisessa synagogassa lisätään turvatoimia. Juutalainen seurakunta tekee yhteistyötä myös poliisin kanssa.
 
-Aikakapselissa on esineitä, kuvia ja kirjoituksia tämän ajan suomalaisilta. Tarkoitus on, että ihmiset aukaisevat aikakapselin 100 vuoden päästä, kun Suomi täyttää 200 vuotta.
+Suomen juutalaiset ovat huolissaan turvallisuudesta, koska Ruotsissa tapahtui isku juutalaisia vastaan lauantaina. Isku tapahtui Göteborgin kaupungissa. Kukaan ei kuitenkaan loukkaantunut.
 
-Tulevaisuuden ihmiset löytävät aikakapselista esimerkiksi muistitikun, cd-levyn ja lippalakin. Emme tiedä, mitä ihmiset ajattelevat tällaisista tavaroista 100 vuoden päästä.
+Göteborgin iskun tekijät yrittivät sytyttää synagogaa tuleen. He heittivät polttopulloja synagogaa kohti, mutta tuli ei tarttunut rakennukseen. Synagogassa oli iskun aikana juutalaisten nuorten juhlat.
+
+Juutalaisten turvallisuus on huonontunut maailmanpolitiikan takia. Presidentti Donald Trump päätti tällä viikolla, että USA tunnustaa Jerusalemin Israelin pääkaupungiksi. Arabimaat ovat suuttuneet Trumpin päätöksestä.
+
+## Tasa-arvo puuttuu urheilusta
+
+![Infografiikka, joka kuvaa naisen euroa huippu-urheilussa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9967632)
+
+Avaa kuvien katselu
+
+Kuva: Lasse Isokangas, Yle Uutisgrafiikka
+
+Työelämässä tasa-arvoa mitataan sillä, saavatko naiset samasta työstä samaa palkkaa kuin miehet. Suomi on melko tasa-arvoinen maa, mutta yksi ala on poikkeus. Se on huippu-urheilu.
+
+Yle tutki naisurheilijoiden tuloja vuodelta 2016. Tulos on, että miehet ansaitsevat huippu-urheilussa paljon enemmän kuin naiset.
+
+Suomalaisen naisurheilijan euro on 3 senttiä. Se tarkoittaa, että naisurheilija saa vain 3 senttiä, kun miesurheilija saa euron.
+
+Erot ovat suurimmat joukkuepeleissä. Esimerkiksi jääkiekossa ja jalkapallossa miehet saavat paljon enemmän rahaa kuin naiset. Jääkiekossa naisen euro on vain 0,3 senttiä.
+
+Naisurheilijat pääsevät lähemmäksi miesurheilijoiden tuloja lajeissa, joissa kilpaillaan yksin. Esimerkiksi hiihdossa naisen euro on 64 senttiä. Lumilautailussa naisten ja miesten tulot ovat jo melko lähellä toisiaan.

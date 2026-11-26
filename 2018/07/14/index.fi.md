@@ -1,79 +1,77 @@
-# Perjantai 13.7.2018 (radio)
+# Lauantai 14.7.2018 (radio)
 
-Helsingin huipputapaaminen vaikuttaa liikenteeseen. Huipputapaamisen takia myös rajatarkastuksia lisätään. Joensuussa tapahtui puukotus. Jarno Kokko on uusi tangokuningas. Maanantain huippukokous osuu kauniiseen kesäpäivään.
+Trump tulee sunnuntaina. Poliisi sai kiinni puukottajat. Thaimaassa pelastetut pääsevät pian kotiin. Suolla pelataan jalkapalloa. Lämmin sää jatkuu.
 
-## Huipputapaaminen sulkee kauppatorin
+## Trumpit tulevat sunnuntaina Suomeen
 
-![Suomenlinnan lautta Kauppatorin rannassa helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10298823)
-
-Avaa kuvien katselu
-
-Helsingin kauppatori on maanantaina kiinni huipputapaamisen takia. Kuva: Tiina Jutila / Yle
-
-Liikenne Helsingin keskustassa ei suju maanantaina normaalisti. Syynä ovat turvatoimet, kun USA:n ja Venäjän presidentit tapaavat Helsingissä.
-
-Esimerkiksi Helsingin kauppatori on maanantaina kiinni. Torimyyntiä ei ole, eikä kauppatorin alueella saa liikkua normaalisti.
-
-Helsingin liikenteeseen tulee maanantaina myös paljon muita muutoksia.
-
-## Rajoilla tehdään tarkastuksia
-
-![Venäläisiä turisteja jonottamasaa Nuijamaan rajatarkastusasemalla passintarkastukseen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9975757)
+![Kuningatar Elisabeth II ja presidentti Donald Trump tarkastavat kaartin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10304584)
 
 Avaa kuvien katselu
 
-Huippukokouksen aikana matkustajia tarkastetaan useammin kuin tavallisesti. Kuva: Tommi Parkkinen / Yle
+Yhdysvaltojen presidentti Donald Trump tapasi eilen Britannian kuningatar Elisabetin Lontoossa. Kuva: Paul Randall / EPA
 
-Suomi lisää myös rajatarkastuksia Helsingin huipputapaamisen aikana.
+Yhdysvaltojen presidentti Donald Trump ja vaimo Melania tulevat Suomeen huomenna sunnuntaina.
 
-Tarkastukset ovat osa huipputapaamisen turvatoimia. Tarkastuksia tehdään erityisesti Helsingin ja Turun satamissa ja lentoasemilla.
+He tulevat Suomeen illalla.
 
-Kaikkia matkustajia ei tarkasteta, mutta matkustajien kannattaa varata vähän ylimääräistä aikaa. Myös passi on hyvä ottaa mukaan.
+Ylihuomenna maanantaina Yhdysvaltojen presidentti ja Venäjän presidentti Vladimir Putin tapaavat Helsingissä.
 
-Tarkastukset jatkuvat tiistaihin asti.
+Suomen presidentti Sauli Niinistö tapaa myös heidät.
 
-## Joensuussa tapahtui puukotus
+## Poliisi sai puukkomiehet kiinni
 
 ![Poliisiauto Joensuun keskustassa sijaitsevan ravintolan edustalla 13.7.2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10302541)
 
 Avaa kuvien katselu
 
-Puukotus tapahtui Ilona-ravintolassa. Kuva: Jouki Väinämö / Yle
+2 miestä löi muita ihmisiä puukolla ravintolassa Joensuussa. Kuva: Jouki Väinämö / Yle
 
-Itä-Suomessa Joensuussa on tapahtunut puukotus. Puukotus tapahtui ravintolassa. Itä-Suomen poliisi kertoo, että tekijöitä on 2.
+Itä-Suomessa Joensuussa poliisi on saanut kiinni 2 miestä, jotka löivät puukolla ihmisiä ravintolassa.
 
-Tekijät löivät puukolla ensin 2 ihmistä ravintolan tupakkakopissa. Kun ravintolan vahtimestari meni paikalle, tekijät löivät puukolla myös häntä. Kaikki loukkaantuivat pahasti.
+Poliisi etsi miehiä koko eilisen päivän.Poliisi löysi miehet, koska miehet olivat varastaneet auton. Poliisi osasi etsiä autoa.
 
-Tekijät onnistuivat pakenemaan ravintolasta.
+Miehet löivät ravintolassa puukolla 3 ihmistä. Kaikki loukkaantuivat pahasti.
 
-## Jarno Kokko on tangokuningas
+## Pojat ja valmentaja pääsevät pian kotiin
 
-![Vuoden 2018 tangokuningas Jarno Kokko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10302489)
-
-Avaa kuvien katselu
-
-Jarno Kokko voitti Tangomarkkinoiden miesten laulukilpailun. Kuva: Tuomo Rintamaa / Yle
-
-Musiikkitapahtuma Tangomarkkinat on käynnissä Seinäjoella. Torstaina Tangomarkkinoilla valittiin uusi tangokuningas. Uusi tangokuningas on Jarno Kokko.
-
-Jarno Kokko on 37-vuotias laulaja Espoosta. Kokko on opiskellut musiikkia Oulun konservatoriossa ja Sibelius-Akatemiassa.
-
-Tangomarkkinat jatkuu viikonloppuna. Lauantaina on vuorossa naisten tangolaulukilpailu. Naisten kilpailun voittajasta tulee uusi tangokuningatar.
-
-Tangomarkkinat järjestetään joka kesä Seinäjoella, Pohjanmaalla. Suomalaiset pitävät tangomusiikista. Tangomarkkinat on kuulunut suomalaisten kesään jo yli 30 vuoden ajan.
-
-## Sää suosii huipputapaamista
-
-![Sääkartta viikonlopuksi ja maanantaiksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10304205)
+![Pelastetut pojat sairaalassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10299959)
 
 Avaa kuvien katselu
 
-Kuva: Yle
+Pojat pelastettiin luolasta. He ovat olleet sairaalassa sen jälkeen. Kuva: Thaimaan hallituksen viestintäyksikkö
 
-Helsinki valmistautuu maanantain huipputapaamiseen.
+Thaimaassa pelastetut pojat pääsevät pian pois sairaalasta.
 
-Ylen meteorologi Joonas Koskela kertoo, että ainakin sää on maanantaina hyvä. Presidentit Trump ja Putin tapaavat aurinkoisessa Helsingissä.
+Thaimaan terveysministeri kertoo, että pojat ja heidän valmentaja pääsevät kotiin ensi torstaina. Pojat ovat olleet sairaalassa siitä asti, kun heidät saatiin ulos luolasta.
 
-Maanantai on myös tosi lämmin päivä. Helsingissä voi olla jopa 27 astetta lämmintä. Myös yöt ovat lämpimiä.
+Pojat olivat valmentajan kanssa luolassa 2 viikkoa. He voivat melko hyvin.
 
-Kaunis kesäpäivä tulee juuri oikeaan aikaan, Joonas Koskela sanoo.
+Thaimaan viranomaiset yrittävät suojella poikia julkisuudelta
+
+## Jalkapalloa pelataan suolla
+
+![Suopotkupallon MM-kilpailut Hyrynsalmella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10304673)
+
+Avaa kuvien katselu
+
+Suo on kostea alue metsässä. Koko ihminen voi upota suohon. Kuva: Kimmo Brandt / EPA
+
+Suomessa on kesällä erikoisia tapahtumia.
+
+Tänään on tapahtuma, jossa pelataan jalkapalloa suolla. Suo on tosi kostea alue metsässä. Koko ihminen voi upota suohon.
+
+Jalkapalloa pelaa suolla 165 joukkuetta monesta Euroopan maasta.
+
+## Sää pysyy lämpimänä
+
+![Vanha lato kesäisessä peltomaisemassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10304217)
+
+Avaa kuvien katselu
+
+Suomessa on nyt tosi lämmintä. Kuva: Esko Jämsä / AOP
+
+Huomenna sunnuntaina on monessa paikassa 30 astetta lämmintä.Ylhuomenna maanantaina on vielä lämpimämpää. Silloin sää voi olla Suomessakin trooppinen.
+
+Sää pysyy lämpimänä koko ensi viikon.
+
+Ilmatieteen laitos varoittaa tukalasta helteestä. Helle voi olla tukala vanhuksille, lapsille ja ihmisille, joilla on sydänsairaus.

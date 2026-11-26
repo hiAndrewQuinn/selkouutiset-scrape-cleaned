@@ -1,71 +1,69 @@
-# Sunnuntai 3.12.2017 (radio)
+# Maanantai 4.12.2017 (radio)
 
-Suomalaiset kannattavat maahanmuuttoa. SuomiKamut. Sote-uudistus. Laura Huhtasaari. Yöllä voi nähdä superkuun.
+Vankien terveydenhuolto saa arvostelua. Suomen itsenäisyysjulistuksesta on 100 vuotta. Saanatunturi on valaistu siniseksi. Ulkomailla nähdään valotaidetta itsenäisen Suomen kunniaksi. Reykjavikin Suomi-koulu lähettää videoterveisiä 100-vuotiaalle Suomelle.
 
-## Maahanmuuton kannattajien määrä on kasvanut
+## Vankien terveydenhuolto saa arvostelua
 
-![Savon ammatti- ja aikuisopisto edelläkävijä maahanmuuttajien osaamisen kartoituksessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9563441)
-
-Avaa kuvien katselu
-
-Maahanmuuton kannattajia on nyt enemmän kuin vastustajia. Kuva: Heli Laitinen
-
-Suomalaiset tuntuvat nyt suhtautuvan maahanmuuttoon myönteisesti. Sanomalehti Helsingin Sanomat kertoo, että lähes puolet suomalaisista haluaa Suomeen enemmän maahanmuuttajia. Lehden kyselyssä 47 prosenttia vastaajista sanoi, että maahanmuuttajia voi tulla enemmän.
-
-Maahanmuuttoa vastustavia on nyt vähemmän kuin sen kannattajia. Maahanmuuttoa vastusti 41 prosenttia kyselyn vastaajista.
-
-Helsingin Sanomat kertoo, että vuonna 2010 maahanmuuton vastustajia oli selvästi enemmän.
-
-## Suomen Punainen Risti auttaa löytämään ystävän
-
-![Lasipurkkeja, joissa on sisällä joulukoristeita ja metallilankakahva. Yhden purkin kyljessä on arabiankielistä tekstiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9952403)
+![Helsingin vankila.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9955180)
 
 Avaa kuvien katselu
 
-Näin joulun alla ystävän kanssa voi vaikka askarrella. Kuva: Anniina Wallius / Yle
+Hoitohenkilökunta sanoo, että monissa vankiloissa terveydenhoidosta on tullut kaaos. Kuva: Juha Kivioja / Yle
 
-Moni Suomeen tullut ulkomaalainen on löytänyt ystävän Suomen Punaisen Ristin avulla. Suomen Punainen Risti järjestää SuomiKamu-toimintaa.
+Vankien terveydenhoito saa arvostelua.Ylen haastattelussa monet vankilalääkärit ja -sairaanhoitajat sanovat, että nykyinen johto ei ymmärrä, kuinka vankeja hoidetaan.
 
-Siinä oleskeluluvan saanut ja vapaaehtoinen suomalainen voivat etsiä ystävää, jonka kanssa voi vaikka käydä kahvilla tai kävelyllä.
+Vankien terveydenhuollosta vastaa nyt Terveyden ja hyvinvoinnin laitos. Aiemmin vankien terveydenhuollosta vastasi Rikosseuraamuslaitos.
 
-Suomalaisen ystävän tuki on tärkeää varsinkin silloin, kun oleskeluluvan saaja muuttaa vastaanottokeskuksesta omaan kotiin.
+Monet vakituiset vankilalääkärit ovat jättäneet työnsä. Siksi vankiloissa on usein keikkalääkäreitä. Joskus kokemattomat lääkärit ovat esimerkiksi määränneet huumevangeille opiaattilääkkeitä. Ne ovat voimakkaita särkylääkkeitä, jotka vaikuttavat keskushermostoon.
 
-## Sote-uudistus valmistuu, sanoo pääministeri
+## Itsenäisyysjulistuksesta on 100 vuotta
 
-![Pääministeri Juha Sipilä ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960612)
-
-Avaa kuvien katselu
-
-Pääministeri Juha Sipilä  Kuva: Jussi Nukari / Lehtikuva
-
-Pääministeri Juha Sipilä sanoo, että hallitus saa sosiaali- ja terveyspalvelujen uudistuksen ajoissa valmiiksi.
-
-Sote-uudistuksen tekeminen on ollut vaikeaa, koska siihen liittyy monia lakeja.
-
-Pääministeri Juha Sipilä sanoi tänään sunnuntaina, että hallituspuolueet keskusta, kokoomus ja siniset saavat uudistuksen tehtyä.
-
-## Perussuomalaisten presidenttiehdokas
-
-![Perussuomalaisten presidenttiehdokas Laura Huhtasaari oli tavattavissa Hakaniementorilla sunnuntaina 3. joulukuuta 2017. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960623)
+![Valtioneuvoston linna presidentin esittelysali](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9797344)
 
 Avaa kuvien katselu
 
-Laura Huhtasaari on perussuomalaisten presidenttiehdokas. Kuva: Martti Kainulainen / Lehtikuva 
+Kuvassa on Tasavallan presidentin esittelysali, jossa senaatti kokoontui 100 vuotta sitten. Kuva: Vesa Marttinen / Yle
 
-Perussuomalaisten presidenttiehdokas Laura Huhtasaari on aloittanut vaalikampanjan. Huhtasaaren presidentinvaalikampanjan iskulause on Suomi takaisin.
+Tänään on kulunut tasan 100 vuotta siitä, kun Suomen senaatti antoi itsenäisyysjulistuksen. Valtioneuvosto eli hallitus oli koolla aamupäivällä. Historiallisen päivän juhlassa oli myös edustajia vuoden 1917 senaatin jäsenten suvuista.
 
-Hänellä on tähän asti ollut kannatuskyselyissä vain vähän kannatusta.
+Istunto pidettiin samassa salissa, joka oli senaatin istuntosali 100 vuotta sitten.
 
-## Tänä yönä voi nähdä superkuun
+## Saanatunturi on nyt sininen
 
-![Kuu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9960398)
+![Saana-tunturi siniseksi valaistuna.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9962314)
 
 Avaa kuvien katselu
 
-Sunnuntain ja maanatain välisenä yönä voi nähdä superkuun. Kuva: Ernie Wright / NASA Goddard's Scientific Visualization Studio
+Saanatunturi Lapissa on saamelaisille pyhä paikka. Kuva: Christopher Lund
 
-Tänä yönä kannattaa kurkata taivaalle. Pilvien välistä saattaa näkyä täysikuu, joka on hieman suurempi ja kirkkaampi kuin yleensä. Nyt on superkuun aika.
+Suomen itsenäisyyden 100-vuotisjuhla näkyy jo tänään Kilpisjärvellä Lapissa. Saanatunturi on iltapäivällä valaistu siniseksi Suomen kunniaksi. Tunturin juhlavalaistus kestää yli 30 tuntia.
 
-Superkuu tarkoittaa sitä, että Maa, Aurinko ja Kuu ovat suorassa linjassa ja tämän lisäksi Kuu on vielä radallaan lähimpänä Maata.
+Valoteos näkyy myös naapurimaihin Ruotsiin ja Norjaan. Valoteoksen on tehnyt valotaiteilija Kari Kola.
 
-Tämä on tänä vuonna ainoa yö, jolloin voi nähdä superkuun.
+## Suomea juhlitaan myös ulkomailla
+
+![colosseum Valaistuna Suomen väreissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9951446)
+
+Avaa kuvien katselu
+
+Rooman Colosseum pukeutuu Suomen itsenäisyyspäivänä siniseen ja valkoiseen. Kuva: Suomen Rooman-suurlähetystö
+
+Suomen kunniaksi nähdään valotaidetta myös ulkomailla itsenäisyyspäivänä keskiviikkona. Nyt myös Rion Kristus-patsas Brasiliassa, San Franciscon kaupungintalo USA:ssa ja Oslon Holmenkollenin mäki Norjassa valaistaan Suomen lipun väreillä siniseksi ja valkoiseksi. Ateenassa Kreikassa valaistaan antiikinaikainen Hadrianuksen kaari.
+
+Jo aiemmin oli tiedossa, että Rooman Colosseum Italiassa, Niagaran putoukset Kanadassa ja Tukholman Globen-halli Ruotsissa saavat juhlavalot Suomen kunniaksi.
+
+Yle välittää kuvaa juhlavaloista eri puolilta maailmaa. Tapahtumaa voi seurata televisiosta, netistä ja sosiaalisesta mediasta.
+
+## Reykjavikin Suomi-koulu tervehtii 100-vuotiasta kotimaata
+
+![Suomikoulun oppilaita Reykjavikissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9962608)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa. Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
+
+Uusimmat terveiset tulevat Reykjavikin Suomi-koulusta Islannista. Terveiset voi käydä katsomassa selkouutisten internet-sivuilla osoitteessa yle.fi/selkouutiset, osassa Suomi 100.
+
+**Reykjavikin Suomi-koulun terveiset**

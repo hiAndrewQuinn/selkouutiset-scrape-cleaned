@@ -1,63 +1,91 @@
-# Tiistai 10.10.2017 (radio)
+# Keskiviikko 11.10.2017 (radio)
 
-Vankiloihin on salakuljetettu huumeita kauko-ohjattavilla koptereilla. Kevitsan kaivoksesta pääsee metalleja pohjaveteen. Eeva Kilpi on saanut arvokkaan kirjallisuuspalkinnon. Pohjois-Lappiin voi sataa ensilumi.
+Etelä-Suomen tulvat jatkuvat. Espanja vaatii Katalonialta selvitystä itsenäisyysjulistuksesta. YK: Myanmar estää rohingya-väestön paluun. Tytöt nousivat tänään johtajiksi ympäri maailmaa. Niklas Herlin on kuollut.
 
-## Kauko-ohjattavilla koptereilla on salakuljetettu huumeita
+## Tulvat pahenevat Etelä-Suomessa
 
-![Radio-ohjattava kuvauskopteri.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7858055)
-
-Avaa kuvien katselu
-
-Kauko-ohjattavilla koptereilla tehdään esimerkiksi ilmakuvauksia. Kuva: Ilkka Kemppinen / Yle
-
-Suomen vankiloihin yritetään salakuljettaa huumeita kauko-ohjattavilla koptereilla eli droneilla.
-
-Toukokuussa erään vankilan pihalle laskeutui kauko-ohjattava kopteri, josta riippui siiman päässä sukka. Sukan sisältä löytyi kännykkä, laturi sekä suuri määrä huumetabletteja.
-
-Vankiloissa on 2 viime vuoden aikana havaittu monia salakuljetusyrityksiä.
-
-Suomen laki estää epäilyttävien koptereiden ottamisen kiinni. Teknisesti se kyllä on mahdollista. Kopterit toimivat radiosignaalilla, joka voidaan havaita ja kaapata.
-
-## Kevitsan kaivoksesta valuu metalleja pohjaveteen
-
-![Kevitsan kaivos, Sodankylä, Lappi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9874688)
+![Ruuhkaa ja tulvavettä Turun moottoritiellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9877155)
 
 Avaa kuvien katselu
 
-Kuva: Eemil Friman / Yle
+Tulvavesi aiheutti ruuhkia Turunväylällä. Kuva: Heikki Saukkomaa / Lehtikuva
 
-Kevitsan kaivoksesta Sodankylässä pääsee metalleja pohjaveteen. Kevitsa on Suomen suurin kaivos, ja sen omistaa ruotsalainen Boliden. Kevitsan päätuotteet ovat nikkeli ja kupari.
+Etelä-Suomessa tulvat ovat pahentuneet keskiviikon aikana.
 
-Jo ennen kaivosta Kevitsan alueen joistakin pohjavesistä mitattiin nikkeliä. Syynä pidettiin luonnon nikkeliesiintymää. Nyt nikkelipitoisuus ylittää rajan, joka on sallittu talousvedelle.
+Turunväylällä on ollut pahoja liikenneruuhkia, koska Espoon kohdalla on noussut paljon vettä tielle.
 
-Boliden kiistää, että kyse olisi pohjaveden pilaamisesta. Boliden kuitenkin myöntää, että pohjavedessä on selviä muutoksia. Konsultti tekee parhaillaan firmalle arviota riskeistä pohjavedelle. Luvassa on myös suunnitelma, jolla voidaan parantaa pohjaveden laatua.
+Turunväylä on yksi Suomen vilkkaimmista moottoriteistä. Myös Länsi-Vantaalla ja Sipoossa on noussut paljon vettä tielle.
 
-Valvova viranomainen ei osaa vielä sanoa, onko tilanne vakava.
+Riihimäellä joesta on tulvinut vettä kerrostalojen kellareihin.
 
-## Eeva Kilpi sai arvokkaan kirjallisuuspalkinnon
+Tulvat voivat jatkua viikonloppuun asti.
 
-![Eeva Kilpi vastaanottaa Nummisuutarin Eskon käsipuolessa Suomalaisen Kirjallisuuden Seuran (SKS) Aleksis Kiven rahaston palkinnon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9875161)
+## Espanja vaatii vastauksia Katalonialta
 
-Avaa kuvien katselu
-
-"Olen itse haavoittunut sielultani sodan ja oman pakolaisuuteni takia. Siksi minulla on avoin mieli vastaanottaa pakolaisia Suomeen", Eeva Kilpi sanoo. Kuva: Markku Ulander / Lehtikuva
-
-Kirjailija Eeva Kilpi on saanut Suomen vanhimman kirjallisuuspalkinnon. Kilpi sai Suomalaisen Kirjallisuuden Seuran Aleksis Kiven rahaston palkinnon. Palkintosumma on 25 000 euroa. Palkintolautakunta sanoo, että Kilpi on tehnyt monipuolisen ja yhteiskunnallisesti merkittävän elämäntyön.
-
-Laatokan Karjalassa vuonna 1928 syntynyt Kilpi on kirjoittanut paljon karjalaisuudesta ja evakoista. Hän käsitteli aihetta jo 1960-luvulla, jolloin aihe oli poliittisesti arkaluontoinen.
-
-Palkinnon perusteluissa sanotaan, että Kilven teokset ovat nyt hyvin ajankohtaisia. Ne antavat äänen sodan jaloista lähteneille. Kilpi sanoo, että koska hän on itse evakko, hänen on vaikea käsittää vihamielistä ja jopa väkivaltaista suhtautumista pakolaisiin.
-
-## Pohjois-Lapissa voi sataa ensilumi
-
-![Autoja tiellä pimeässä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9481461)
+![Espanjan pääministeri Mariano Rajoy](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9877105)
 
 Avaa kuvien katselu
 
-Keskiviikkoaamuna selviää, onko Pohjois-Lappiin satanut niin paljon lunta, että se täyttää ensilumen määritelmän. Kuva: Sointu Ketola
+Espanjan hallitus piti varhain keskiviikkona hätäkokouksen pääministeri Mariano Rajoyn johdolla. Kuva: Cesar P. Sendra / EPA
 
-Pohjois-Lappiin sataa ehkä paikoin ensilumi illan ja yön aikana.
+Espanjan pääministeri haluaa vielä kuulla, onko Katalonia julistautunut itsenäiseksi.
 
-Ilmatieteen laitos arvioi, että lumimäärä ei kuitenkaan ole kovin suuri. Lunta sataa ehkä muutama senttimetri.
+Espanjan pääministeri sanoo, että hän on kysynyt asiaa Katalonian aluehallinnolta.
 
-Ensilumi on satanut, kun aamun mittauksessa on vähintään sentti lunta.
+Katalonian aluehallinto ilmoitti eilen, että se lykkää itsenäisyysjulistusta ja haluaa neuvotella ensin Espanjan hallituksen kanssa.
+
+Espanja aikoo ryhtyä vastatoimiin, jos Katalonia julistautuu itsenäiseksi.
+
+Katalonialaiset äänestivät kansanäänestyksessä yli viikko sitten, että he haluavat Katalonian itsenäiseksi. Äänestämässä kävi kuitenkin vain 40 prosenttia katalonialaisista.
+
+## YK: Myanmar yrittää estää rohingya-väestön paluun maahan
+
+![Nukkuvia rohingyapakolaisia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9877698)
+
+Avaa kuvien katselu
+
+Sadattuhannet rohingyat ovat paenneet Myanmarin armeijan julmuuksia. Kuva: Abir Abdullah / EPA-EFE
+
+Myanmar yrittää ajaa rohingya-muslimit pysyvästi pois maasta, sanoo YK.
+
+YK sanoo, että Myanmarin armeija on terrorisoinut rohingya-väestöä järjestelmällisesti. Rohingyat ovat kertoneet, että sotilaat ovat tehneet mm. joukkosurmia.
+
+Yli puoli miljoonaa rohingyaa on paennut Bangladeshiin elokuun jälkeen.
+
+YK:n mukaan Myanmarin armeija on laittanut Bangladeshin rajalle miinoja, jotta rohingyat eivät pääse takaisin kotiin, Rakhinen maakuntaan.
+
+## Tyttöjen päivänä tytöt ottivat vallan
+
+![Girl Takeover -päivän tytöt tuulettavat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9872135)
+
+Avaa kuvien katselu
+
+Tytöt ympäri maailmaa osoittivat tänään, että he ovat hyviä johtajia. Kuva: Plan International Suomi
+
+Tänään on vietetty tyttöjen päivää eri puolilla maailmaa.
+
+Lastenoikeusjärjestö Plan on järjestänyt tyttöjen päivänä Girls Takeover -tapahtuman, jossa tytöt ovat olleet yhteiskunnan johtopaikoilla.
+
+![Maailman 500 vaikutusvaltaisimman yrityksen toimitusjohtajista naisia on 6,2 %](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9870025)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Suomessa tytöt ovat olleet johtajina esimerkiksi peliyhtiö Supercellissä ja jääkiekon SM-liigassa. Myös pääministeri Juha Sipilän sijaisena on ollut tänään nuori tyttö.
+
+Tapahtuman tavoitteena on muistuttaa, että monia tyttöjä syrjitään ympäri maailmaa. Samalla halutaan myös nostaa esiin tyttöjen voimaa ja mahdollisuuksia.
+
+## Mahtisuvun Niklas Herlin on kuollut
+
+![Niklas Herlin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9877113)
+
+Avaa kuvien katselu
+
+Niklas Herlin teki pitkän uran suomalaisessa mediassa. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Kirjakustantaja, toimittaja ja tietokirjailija Niklas Herlin on kuollut.
+
+Herlin kuoli äkillisesti 53-vuotiaana.
+
+Herlin oli yksi Suomen rikkaimmista miehistä, sillä hän kuului hissiyhtiö Koneen omistajasukuun.

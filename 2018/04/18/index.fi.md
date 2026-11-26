@@ -1,88 +1,101 @@
-Joukkorahoitus
+Lakot
 
-# Tiistai 17.4.2018 (radio)
+# Keskiviikko 18.4.2018 (radio)
 
-Suomalaisille syntyy lapsia Isiksessä. Turvapaikkahakemuksella huijattiin rahaa. Joukkorahoituksen suosio kasvaa. Merja Ylä-Anttila on Ylen uusi johtaja. Tivolit tuovat hupia eri paikkakunnille.
+Rakennusalalla alkaa torstaina lakko. Turkissa järjestetään vaalit kesäkuussa. Helsingin kotihoidon asiakas kuoli kotona, mutta kukaan ei löytänyt häntä moneen viikkoon. Seri-tukikeskus auttaa raiskauksen uhreja.
 
-![Tivoli Sariola](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10161987)
+![Rakenteilla olevat kerrostalot.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10143151)
 
 Avaa kuvien katselu
 
-Kuva: Janne Ahjopalo / Yle
+Kuva: Kari Kosonen / Yle
 
 - 
 
   
 
-  Marko Tammi
+  Pertti Seppä
 
   
 
   
 
-17.4.2018 18:56•Päivitetty 18.4.2018 9:20
+18.4.2018 20:30•Päivitetty 18.4.2018 20:48
 
-Suomalaisille syntyy lapsia Isiksessä. Turvapaikkahakemuksella huijattiin rahaa. Joukkorahoituksen suosio kasvaa. Merja Ylä-Anttila on Ylen uusi johtaja. Tivolit tuovat hupia eri paikkakunnille.
+Rakennusalalla alkaa torstaina lakko. Turkissa järjestetään vaalit kesäkuussa. Helsingin kotihoidon asiakas kuoli kotona, mutta kukaan ei löytänyt häntä moneen viikkoon. Seri-tukikeskus auttaa raiskauksen uhreja.
 
-## Suomalaisille syntyy lapsia Isiksessä
+## Rakennusalan lakko
 
-![Isiksen voittokulkua kuvaava seinämaalaus Mosulin kaupungissa Irakissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9449167)
-
-Avaa kuvien katselu
-
-Lapsista voi tulla väkivaltaisia kun he kasvavat terroristijärjestön väkivaltaisessa ympäristössä. Kuva: Osie Greenway / AOP
-
-Viranomaiset ovat huolissaan terroristijärjestö Isikseen liittyneiden suomalaisten lapsista.
-
-Isikseen on liittynyt noin 20 suomalaista naista. He ovat synnyttäneet yli 10 lasta.
-
-Suomen viranomaiset miettivät, miten lapsia voi auttaa, jos he tulevat Suomeen.  
-Lapsista voi tulla väkivaltaisia kun he kasvavat terroristijärjestön väkivaltaisessa ympäristössä.
-
-## Turvapaikkahakemuksella huijattiiin rahaa
-
-![rahaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9974093)
+![Rakenteilla olevat kerrostalot.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10143151)
 
 Avaa kuvien katselu
 
-Mies sai turvapaikanhakijoille tarkoitettua vastaanottorahaa yli vuoden. Kuva: Yle Uutisgrafiikka
+Lakko voi hidastaa rakennustöitä. Kuva: Kari Kosonen / Yle
 
-Suomessa on paljastunut, että turvapaikkahakemuksella on huijattu rahaa. Turvapaikkaa haki mies, joka sai Suomen kansalaisuuden yli 20 vuotta sitten. Hän haki silti turvapaikkaa Kotkasta yli vuosi sitten. Mies sai turvapaikanhakijoille tarkoitettua vastaanottorahaa yli vuoden ennen kuin jäi kiinni.
+Rakennusalalla alkaa torstaina sarja lakkoja. Lakot kestävät 2 päivää, ja lakkoja on 4 viikon aikana.
 
-Mies on syntynyt Irakissa. Miestä epäillään turvapaikkahakemuksen väärentämisestä ja petoksesta.
+Lakot pysäyttävät työt 7 rakennusteollisuuden firmassa. Työntekijät aikovat lopettaa työt esimerkiksi Ruduksessa, Betonimestareilla ja Parmassa.
 
-## Joukkorahoituksen suosio kasvaa
+Lakot vaikuttavat betonin ja betonielementtien valmistukseen. Siksi työt rakennustyömailla voivat myöhästyä.
 
-![Nvidian kellarissa Ruoholahdessa sijaitsevan tietokoneyksikön laskentateho on Suomen suurin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10116886)
+Rakennusalalla on riitaa palkoista. Työnantajien ja työntekijöiden järjestöt kuitenkin jatkavat neuvotteluja.
 
-Avaa kuvien katselu
+## Turkin vaalit
 
-Sijoittaja toivoo, että firma menestyy. Kuva: Tanja Heino / Yle
-
-Joukkorahoituksen suosio on lisääntynyt nopeasti. Monet uudet firmat saavat rahaa ihmisiltä.
-
-Piensijoittaja voi ostaa osuuden uudesta firmasta. Sijoittaja toivoo, että firma menestyy ja tuo sijoittajalle myöhemmin rahaa. Joukkorahoituksen määrä yli tuplaantui kasvuyrityksissä viime vuonna.
-
-## Merja Ylä-Anttila on Ylen uusi toimitusjohtaja
-
-![Merja Ylä-Anttila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10163214)
+![Presidentti Recep Tayyip Erdoğan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10166194)
 
 Avaa kuvien katselu
 
-Merja Ylä-Anttila tulee Ylen toimitusjohtajaksi syyskuussa. Kuva: Jyrki Lyytikkä / Yle
+Turkin presidentti Recep Tayyip Erdoğan. Kuva: Turkin presidentin kanslia / EPA
 
-Yleisradion uudeksi toimitusjohtajaksi on valittu Merja Ylä-Anttila. Hän on ollut pitkään MTV:n uutisten vastaava päätoimittaja. Merja Ylä-Anttila sanoo, että Suomi tarvitsee sekä vahvaa julkista palvelua että kaupallista mediaa.
+Turkissa järjestetään vaalit kesäkuussa. Turkkilaiset valitsevat samana päivänä parlamentin ja presidentin. Vaalipäivä on kesäkuun 24. päivä.
 
-Ylä-Anttila tulee Yleisradion toimitusjohtajaksi syyskuussa. Lauri Kivinen jättää silloin tehtävän.
+Presidentti Recep Tayyip Erdoğan ilmoitti asiasta keskiviikkona.
 
-## Suomen vanhin Tivoli 130 vuotta
+Vaalien jälkeen presidentin valta kasvaa. Turkissa oli viime vuonna kansanäänestys presidentin vallasta. Äänestyksessä turkkilaiset halusivat presidentille enemmän valtaa. Muutos tulee voimaan sitten, kun Turkissa on järjestetty vaalit.
 
-![Tivoli Sariola](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10161983)
+## Naisen kuolema
+
+![Vanha nainen pyörätuolissa lähellä sänkyä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9907936)
 
 Avaa kuvien katselu
 
-Ville Sariola on Tivoli Sariolan uusi toimitusjohtaja. Kuva: Janne Ahjopalo / Yle
+Monet vanhukset saavat hoitoa kotona. Kuva: Pixabay
 
-Tivolit ovat lähteneet kiertämään Suomea, kun talvi on loppunut. Suomessa kiertää neljä tivolia. Tivoli Sariola on vanhin. Se on toiminut jo 130 vuotta. Tivolit ovat pieniä. Ne tulevat monille paikkakunnille ihmisten lähelle.
+Poliisi tutkii Helsingissä surullista tapausta. Todennäköisesti vanha nainen kuoli kotona, mutta kukaan ei löytänyt häntä moneen viikkoon.
 
-Tivolin työntekijät kertovat, että heistä on aina mukavaa, kun joku tulee sanomaan, että Tivolissa on tosi kivaa.
+Nainen oli kaupungin kotihoidon asiakas. Lopulta kotihoidon työntekijä meni naisen kotiin, koska kotihoito ei saanut naiseen yhteyttä.
+
+Kaupungin kotihoito tutkii nyt, miksi kukaan ei käynyt naisen luona pitkään aikaan. Myös poliisi tutkii asiaa.
+
+## Seri-tukikeskus
+
+![Seri-tukikeskuksen ovi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10165350)
+
+Avaa kuvien katselu
+
+Seri-tukikeskus auttaa raiskauksen uhreja. Kuva: Yle
+
+Helsingin Naistenklinikalla toimii Seri-tukikeskus. Se auttaa seksuaalirikosten uhreja.
+
+Tukikeskuksessa raiskauksen uhri saa apua lääkäriltä, psykologilta ja sosiaalityöntekijältä. Palvelu on ilmaista.
+
+Seri-tukikeskus on palvellut Helsingin seudun asukkaita 10 kuukautta. Asiakkaita on ollut noin 280.
+
+Toukokuusta alkaen Seri-tukikeskus palvelee koko Uudenmaan aluetta.
+
+## Esittelyssä kiinteistönhoitoala
+
+![Mies korjaa vesihanaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10166409)
+
+Avaa kuvien katselu
+
+Yakov Kuzi opiskelee kiinteistönhoitoalaa. Kuva: Yle
+
+Selkouutisten nettisivulla jatkuu videosarja, jonka selkouutiset on tehnyt yhdessä Luksian ammatillisen koulutuksen opiskelijoiden kanssa.
+
+Sarja esittelee eri koulutusaloja. Nyt on julkaistu video, joka kertoo kiinteistönhoitoalasta.
+
+Videon voi katsoa selkouutisten Facebook-sivulla ja nettisivulla osoitteessa yle.fi/selkouutiset.
+
+**Kiinteistönhoitoala**

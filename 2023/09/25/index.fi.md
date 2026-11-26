@@ -1,69 +1,95 @@
-# Radio Selkouutiset torstai 21.9.2023
+# Radio | Selkouutiset | maanantai 25.9.2023
 
-Ammattiliittojen protestit. Victorian vierailu. Kouluterveyskysely. Sää.
+Raahen terästehdas. Omakotitalot. Sähkön hinta. Porin vesijohtovesi. Sotilaslentokoneiden harjoitus. Sää.
 
-## Ammattiliittojen protestit
+## Raahen terästehdas
 
-![SAK:n liittojohtajien tiedotustilaisuus SAK:n tiloissa Hakaniemessä.](https://img.img-cdn.yle.fi/crop_extract,w_3988,h_2243,x_4,y_215/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1175431650c55287191b/1695395413)
-
-Avaa kuvien katselu
-
-Ammattiliitot kertoivat suunnitelmista torstaina. Kuva: Petteri Sopanen / Yle
-
-Ammattiliitot suunnittelevat protesteja hallitusta vastaan. Protesteissa on mukana keskusjärjestö SAK:n suuria ammattiliittoja.
-
-Ammattiliittojen protestit alkavat ensi tiistaina. Niitä järjestetään 3 päivänä viikossa 3 viikon ajan.
-
-Työntekijöiden protestit voivat olla erilaisia eri työpaikoilla. Työntekijät voivat esimerkiksi marssia ulos työpaikalta. Työntekijät kertovat protesteista etukäteen.
-
-Ammattiliitot järjestävät protesteja, koska ne ovat suuttuneet hallitukselle. Ne eivät pidä siitä, että hallitus aikoo heikentää työntekijöiden asemaa. Hallitus haluaa rajoittaa esimerkiksi työntekijöiden mahdollisuuksia mennä lakkoon.
-
-Lisäksi hallitus aikoo heikentää sosiaaliturvaa. Esimerkiksi asumistuki pienenee.
-
-Ammattiliittojen mielestä hallitus ei ole kuunnellut työntekijöiden mielipiteitä. Pääministeri Petteri Orpo toivoo ammattiliitoilta malttia.
-
-## Victorian vierailu
-
-![Kruununprinsessa Victoria tervehtii lapsia, jotka heiluttavat pieniä Ruotsin lippuja.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2873,x_0,y_106/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1175284650c2f6bcb1d9/1695312297)
+![SSAB tehdas Raahessa.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_100/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-85523561446d9b91832/1631874598)
 
 Avaa kuvien katselu
 
-Kruununprinsessa Victoria on suosittu Suomessa. Kuva: Lehtikuva
+Kuva: Hannu Vallas / SSAB
 
-Ruotsin kruununprinsessa Victoria ja prinssi Daniel ovat vierailleet Suomessa.
+Teräsvalmistaja SSAB aloittaa muutosneuvottelut Raahen terästehtaalla.
 
-Kuninkaalliset viettivät torstaina aamupäivän Helsingissä. He tutustuivat Suomenlinnaan, joka kertoo Suomen ja Ruotsin yhteisestä historiasta.
+SSAB sanoo, että terästä ostetaan nyt vähän. Siksi SSAB haluaa vähentää kuluja ainakin 10 miljoonaa euroa vuodessa.
 
-Lisäksi kuninkaalliset vierailivat Helsingin ruotsinkielisessä kauppakorkeakoulussa. He söivät lounasta yhdessä opiskelijoiden kanssa.
+Muutosneuvottelut koskevat noin 2400 työntekijää. Vielä ei tiedetä, miten työt muuttuvat ja jääkö osa työntekijöistä ilman työtä.
 
-Kruununprinsessa Victoria ja prinssi Daniel vierailivat myös Loviisassa. Siellä kruununprinsessa vihki aukion, joka sai nimen Victorianaukio.
+SSAB valmistaa Raahen tehtaalla esimerkiksi erikoisterästä.
 
-Loviisasta kuninkaalliset matkustivat vielä Vantaalle. He kävivät Vantaan Fazerilassa.
+## Omakotitalot
 
-Kruununprinsessa Victoria on Ruotsin tuleva hallitsija, ja prinssi Daniel on kruununprinsessan puoliso.
-
-## Kouluterveyskysely
-
-![Koululainen matematiikan kotitehtäviä tekemässä.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1084501640f336c9685e/1678718563)
+![Ella Sälpäkiven omakotitalo työmaa](https://img.img-cdn.yle.fi/crop_extract,w_3981,h_2239,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-86962461701c5e89a23/1634737294)
 
 Avaa kuvien katselu
 
-Suomen koululaiset ovat tyytyväisiä elämään. Kuva: Jyrki Lyytikkä / Yle
+Omakotitalon työmaa. Kuva: Antti Kolppo / Yle
 
-Suurin osa lapsista ja nuorista voi hyvin. He ovat tyytyväisiä elämään ja koulunkäyntiin.
+Omakotitaloja rakennetaan nyt vähän.
 
-Tyytyväisimpiä ovat perusopetuksen 4. ja 5. luokan oppilaat. Tiedot ovat uudesta kouluterveyskyselystä.
+Viime vuonna aloitettiin noin 6800 omakotitalon rakentaminen. Tänä vuonna määrä on ehkä 50 prosenttia pienempi.
 
-Nuorten kokemukset omasta terveydestä ovat kuitenkin huolestuttavia. Noin 25 prosenttia nuorista kokee, että oma terveydentila on keskinkertainen tai huono.
+Pientaloteollisuus kertoo, että omakotitaloja ei ole rakennettu näin vähän ainakaan 50 vuoteen.
 
-Tytöt kokivat oman terveyden huonommaksi kuin pojat. Tytöillä oli enemmän myös kiusaamiskokemuksia.
+## Sähkön hinta
+
+![Puhelin, jonka näytöllä näkyy avoin Facebook-ryhmä nimeltä &quot;Pörssisähkö&quot; miehen kädessä. Taustalla kullanvärinen pöytäliina ja paperilappuja, joissa kuulakärkikynällä tehtyjä merkintöjä.](https://img.img-cdn.yle.fi/crop_extract,w_5100,h_2868,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1049047639b3331c8cac/1674498172)
+
+Avaa kuvien katselu
+
+Pörssisähkön käyttäjät seuraavat tarkasti sähkön hintaa. Kuva: Petri Karvinen / Yle
+
+Pörssisähkö on nyt halpaa. Maanantaina pörssisähkö on ollut melkein ilmaista.
+
+Pörssisähkön halpa hinta jatkuu ehkä monta viikkoa. Pörssisähkön hinta vaihtelee, kun se seuraa sähkön markkinahintaa.
+
+Sähkön markkinahinta on nyt alhaalla, koska sähköä on tuotettu paljon kovien tuulien ja sateiden takia.
+
+Myös ydinsähköä saadaan lisää, kun ydinvoimaloiden huoltotyöt loppuvat.
+
+Pörssisähköä käyttävät kodit, joilla on sähkösopimus pörssisähköstä.
+
+Monilla kodeilla on kiinteä sähkösopimus, jossa sähkön hinta ei vaihtele.
+
+## Porin vesijohtovesi
+
+![Tulvavettä kaupungin kaduilla Porissa.](https://img.img-cdn.yle.fi/crop_extract,w_3271,h_1840,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11763136511175479bac/1695626637)
+
+Avaa kuvien katselu
+
+Porin kaduilla näkyi, että isoja vesijohtoja on mennyt rikki. Kuva: Rami Koivula / Yle
+
+Porissa on ollut ongelmia vesijohtoveden kanssa. Kaupungissa meni rikki 2 isoa vesijohtoa.
+
+Siksi vedenpaine on ollut heikko ja vesi on voinut näyttää likaiselta. Vesilaitos sanoo, että vettä voi juoda.
+
+Vesilaitos toivoo, että porilaiset eivät pese pyykkiä maanantaina.
+
+## Sotilaslentokoneiden harjoitus
+
+![Gripen Satakunnan lennoston tukikohdassa Pirkkalassa.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_185/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11768626511a6b0a7b73/1695655766)
+
+Avaa kuvien katselu
+
+Ruotsalainen lentokone, joka on mukana harjoituksessa Suomessa. Kuva: Antti Eintola / Yle
+
+Armeijan lentokoneet harjoittelevat tällä viikolla eri puolilla Suomea. Harjoituksessa on mukana kymmeniä lentokoneita ja noin 4500 sotilasta.
+
+Harjoitukseen osallistuu sotilaslentokoneita myös Ruotsista ja Britanniasta. Harjoitus jatkuu lauantaihin asti.
 
 ## Sää
 
-![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1175474650c6ac356e1d/1695312606)
+![Viikko alkaa vuoden aikaan lämpimässä säässä. Pohjois-Suomen yli liikkuu sadealueita, muualla pilvisyys on vaihtelevaa ja sää on enimmäkseen poutaista. Lounaistuuli on viikolla puuskaista.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117682465119e310552f/1695653510)
 
 Avaa kuvien katselu
 
-Perjantaina aurinko paistaa suuressa osassa maata. Lämmin etelätuuli puhaltaa, ja lämpötila on jopa 20 astetta.
+Kuva: Anniina Valtonen/Yle
 
-Pohjoisessa sää on sateista jo perjantaina. Lauantaina vettä sataa suuressa osassa maata.
+Tiistaina sää on lähes koko maassa poutaista ja pilvisyys vaihtelevaa. Yksittäiset sadekuurot ovat mahdollisia Kainuussa.
+
+Sää on vuodenaikaan nähden lämmintä. Lämpötila on 11 ja 18 asteen välillä.
+
+Ylen meteorologi Matti Huutonen sanoo, että lämmin sää jatkuu koko tämän viikon. Syyskuun loppu on selvästi lämpimämpi kuin yleensä.
+
+Syksy on edennyt tänä vuonna useita viikkoja hitaammin kuin tavallisesti.

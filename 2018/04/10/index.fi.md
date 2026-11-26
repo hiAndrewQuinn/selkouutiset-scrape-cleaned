@@ -1,71 +1,59 @@
-# Sunnuntai 8.4.2018 (radio)
+# Tiistai 10.4.2018 (radio)
 
-Sähköalalla alkaa maanantaina lakko. Finnair on lentänyt Helsingistä suoraan Pekingiin 30 vuoden ajan. Sunnuntaina on vietetty romanien kansallispäivää. Sisällissota näkyy koulujen historian opetuksessa.
+Kivihiilen käyttö loppuu vuonna 2029. Hallitus suunnittelee lähivuosien rahankäyttöä tiistaina ja keskiviikkona. Kätilö Elina Botha osaa rauhoittaa vauvan itkun. Kaikkia pikkulapset eivät istu auton kyydissä turvallisesti lyhyillä matkoilla.
 
-## Sähköalan lakko
+## Kivihiilikielto vuonna 2029
 
-![Kesken jäänet sähkötytöt työmaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10150167)
-
-Avaa kuvien katselu
-
-Sähköalan lakko hidastaa rakennustöitä. Kuva: Niklas Meltio / Lehtikuva
-
-Sähköalalla alkaa maanantaina lakko. Noin 2500 työntekijää jää pois töistä heti maanantaina aamulla. Lakko kestää viikon.
-
-Sähköalan työntekijöiden järjestö Sähköliitto sanoo, että lakko hidastaa isoja rakennustöitä. Esimerkiksi Ratinan kauppakeskus Tampereella ei ehkä valmistu ajoissa. Ratinan kauppakeskus on tarkoitus avata huhtikuun aikana, mutta lakon takia se ei ehkä onnistu.
-
-Sähköalan lakko alkaa, koska alan firmat ja työntekijät riitelevät työajasta ja palkoista.
-
-## Reittilento Pekingiin
-
-![Kuvassa Finnairin mainospostikortti, jossa on maapallon kartta. Siihen on viivat Finnairin lentoreittejä kuvaavat viivat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10148695)
+![käynnissäpitomestari Jari Laine työskentelee Suomenojan voimalaitoksella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10148935)
 
 Avaa kuvien katselu
 
-Finnairin mainospostikortti vuodelta 1988. Kuva: Finnair
+Suurin osa Espoon kodeista lämpiää kivihiilellä. Kuva: Juha Kivioja / Yle
 
-Finnair on lentänyt Helsingistä suoraan Pekingiin 30 vuoden ajan. Ensimmäinen lento oli kesäkuussa 1988. Se oli ensimmäinen suora lentoyhteys Euroopasta Kiinan pääkaupunkiin.
+Suomi kieltää kivihiilen käytön vuoden 2029 jälkeen.
 
-Lyhyin reitti Kiinasta Eurooppaan kulkee Helsingin kautta. Aluksi kiinalaiset lensivät Helsingin kautta Euroopan suuriin kaupunkeihin, esimerkiksi Pariisin.
+Hallituspuolueet ovat sopineet kivihiilen kiellosta. Hallitus sopi myös, että energiayhtiölle maksetaan tukea, jos se luopuu kivihiilestä jo neljä vuotta aikaisemmin eli vuonna 2025. Tukea saa, jos vaihtaa kivihiilen puupolttoaineeseen tai uusiin tekniikoihin kuten maalämpöön.
 
-Nykyään monet kiinalaiset jäävät lomalle Suomeen. Kiinalaiset tykkäävät erityisesti Lapista.
+Kivihiiltä käytetään nykyään paljon lämmitykseen esimerkiksi Helsingin seudulla, Turussa, Vaasassa ja Pietarsaaressa.
 
-## Romanien kansallispäivä
+## Koulutuksella työntekijöitä avoimiin paikkoihin
 
-![Kuvassa lähikuva romaninaisesta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6858479)
-
-Avaa kuvien katselu
-
-Suomalaisen romaninaisen asuun kuuluvat samettihame ja koristeellinen paita. Kuva: Sini Salmirinne / Yle
-
-Sunnuntaina on vietetty romanien kansallispäivää.
-
-Suomessa asuu noin 10 000 romania. Romaneita on asunut Suomessa 500 vuotta.
-
-Romaneilla on oma kieli, romanikieli. Monet romanit eivät kuitenkaan enää puhu romanikieltä.
-
-Romaneilla on myös oma kulttuuri. Esimerkiksi vanhempien ihmisten kunnioittaminen on tärkeää romaneille.
-
-## Suomen sisällissota
-
-![Kolme nuorta tiiliseinän edessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10131397)
+![Kokoomuksen puheenjohtaja Petteri Orpo, keskustan puheenjohtaja Juha Sipilä ja sinisten puheenjohtaja Sampo Terho hallituksen kehysriihineuvotteluissa Kesärannassa Helsingissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10152568)
 
 Avaa kuvien katselu
 
-Tamperelaisten Oona Pätärin, Siina Kuuselan ja Arvi Yrjölän koulun seinissä on luodinreikiä sisällissodan ajalta. Kuva: Anna Sirén / Yle
+Hallituspuolueiden puheenjohtajat Petteri Orpo, Juha Sipilä ja Sampo Terho. Kuva: Jussi Nukari / Lehtikuva
 
-Koulujen historian tunneilla on puhuttu tänä keväänä paljon sisällissodasta.
+Hallitus suunnittelee tänään tiistaina ja huomenna keskiviikkona, mihin verorahoja käytetään lähivuosina.
 
-Sisällissota alkoi tammikuussa 1918. Vastakkain olivat punaiset ja valkoiset suomalaiset.
+Hallituksen tärkein tavoite on työllisyys. Suomessa on paljon työttömiä, mutta myös avoimia työpaikkoja. Hallitus haluaa esimerkiksi lisätä koulutusta niin, että kaikkiin avoimiin työpaikkoihin löydetään työntekijä.
 
-Sisällissota on nuorten oman ympäristön historiaa. Siksi sisällissota kiinnostaa nuoria.
+Hallitus antaa ehkä lisää rahaa myös niiden ihmisten tukemiseen, joilla ei ole asuntoa. Lisää tukea annetaan ehkä myös niille, joilla on tosi paljon velkaa.
 
-Tampereen yhteiskoulun oppilaat näkevät sisällissodan jäljet omassa koulussa. Koulun seinissä on koloja. Ne ovat luodinreikiä. Ne syntyivät, kun rakennuksessa ammuttiin sisällissodan aikana.
+## Vauvan itkun voi rauhoittaa
 
-\- Tämä rakennus oli punaisten hallussa ja täällä oli valkoisia sotavankeja, koulun oppilas Oona Pätäri kertoo.
+![Vauva kapaloituna vaaleanpunaiseen kapaloon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10151686)
 
-Taistelut Tampereella loppuivat 100 vuotta sitten. Valkoiset valloittivat kaupungin punaisilta huhtikuun alussa 1918.
+Avaa kuvien katselu
 
-Tampereen voitto oli valkoisille tärkeä. Kuukautta myöhemmin eli toukokuussa 1918 valkoiset voittivat koko sisällissodan.
+Vauva on kapaloitu eli kääritty liinaan. Kuva: Marko Melto / Yle
 
-Sisällissodassa kuoli melkein 40 000 suomalaista.
+Kätilö Elina Botha osaa rauhoittaa vauvan, joka itkee paljon.
+
+Jotkut vauvat itkevät usein ja kauan, vaikka itkuun ei ole mitään selvää syytä. Elina Botha neuvoo kapaloimaan vauvan eli käärimään liinaan. Sitten äiti tai isä ottaa lapsen käsivarsilleen niin, että vauva on kylkiasennossa. Sitten lasta keinutetaan ja hänen annetaan imeä esimerkiksi tuttia. Lapselle voi myös soittaa suhisevaa ääntä eli niin sanottua valkoista kohinaa.
+
+Elina Botha sanoo, että näin lapsen olo on vähän samanlainen kuin äidin kohdussa.
+
+## Pikkulapsi turvaistuimeen myös lyhyellä matkalla
+
+![Poliisi katsomassa turvaistuimia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10151347)
+
+Avaa kuvien katselu
+
+Poliisi tarkistaa auton turvaistuimia. Kuva: Toni Pitkänen / Yle
+
+Yllättävän moni pikkulapsi ei matkusta autossa turvallisesti.
+
+Tämä selvisi, kun poliisi tarkasti autoja päiväkotien parkkipaikoilla Itä-Suomessa. Noin 25 prosenttia pikkulapsista ei ollut turvaistuimessa auton kyydissä. Jotkut lapsista istuivat auton penkillä ja vain turvavyö oli kiinni. Joskus lapsi oli etupenkillä äidin sylissä.
+
+Monet vanhemmat sanoivat, että turvaistuinta ei ollut, koska ajomatka päiväkotiin oli lyhyt. Jotkut sanoivat myös, että eivät ehtineet kiireessä laittaa lasta istumaan turvallisesti.

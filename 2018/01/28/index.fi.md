@@ -1,81 +1,71 @@
-# Torstai 25.1.2018 (radio)
+# Sunnuntai 28.1.2018 (radio)
 
-Sauli Niinistö on edelleen suosituin presidenttiehdokas. Suomen hallitus on irtisanonut valtakunnansyyttäjä Matti Nissisen. Italiassa on tapahtunut junaonnettomuus. Ylen toimitusjohtaja Lauri Kivinen eroaa. Pohjanmaalla on ollut liukas ajokeli.
+Sauli Niinistö on voittanut presidentinvaalit. Niinistö sai yli 60 prosenttia äänistä. Muut ehdokkaat saivat ääniä paljon vähemmän. Niinistö jatkaa presidenttinä vielä 6 vuotta.
 
-## Presidenttiehdokkaiden kannatus
+## Niinistö voitti presidenttivaalit
 
-![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10038945)
-
-Avaa kuvien katselu
-
-Sauli Niinistö on suosituin presidenttiehdokas Ylen kyselyssä. Kuva: Yle Uutisgrafiikka
-
-Presidentinvaalit ovat sunnuntaina.
-
-Ylen uusi kysely kertoo, että Sauli Niinistö on suosituin ehdokas. Yli 60 prosenttia vastaajista aikoo äänestää Niinistöä. Niinistö on valitsijayhdistyksen ehdokas.
-
-Muut ehdokkaat saavat paljon vähemmän kannatusta. Toiseksi suosituin ehdokas on vihreiden Pekka Haavisto. 14 prosenttia vastaajista aikoo äänestää Haavistoa.
-
-Muiden ehdokkaiden kannatus on paljon alle 10 prosenttia.
-
-Kyselyn perusteella näyttää varmalta, että Sauli Niinistö jatkaa Suomen presidenttinä.
-
-**Selkouutisten vaalisivut**
-
-## Valtakunnansyyttäjän potkut
-
-![Matti Nissinen virkarikossyytteidensä käsittelyssä korkeimmassa oikeudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10041155)
+![Sauli Niinistö vaalivalvojaisissaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10045666)
 
 Avaa kuvien katselu
 
-Matti Nissinen sai potkut valtakunnansyyttäjän työstä. Kuva: Markku Ulander / Lehtikuva
+Sauli Niinistö on vaalien voittaja. Kuva: Jussi Nukari / Lehtikuva
 
-Suomen hallitus on irtisanonut valtakunnansyyttäjä Matti Nissisen. Valtakunnansyyttäjä on tärkeä henkilö Suomen oikeusjärjestelmässä. Hän johtaa syyttäjälaitosta.
+Sauli Niinistö on voittanut presidentinvaalit.
 
-Hallitus oli sitä mieltä, että Nissinen ei enää pysty hoitamaan kaikkia valtakunnansyyttäjän tehtäviä. Valtakunnansyyttäjän pitää olla luotettava, mutta Nissinen sai joulukuussa tuomion virkarikoksesta.
+Suomalaiset äänestivät presidentinvaaleissa sunnuntaina. Melkein 63 prosenttia äänestäjistä äänesti Niinistöä.
 
-Tuomio oli sakkorangaistus. Nissinen sai sakot, koska hän osti työpaikalle koulutusta omalta veljeltä.
+Koska Niinistö sai yli 50 prosenttia äänistä, vaaleissa ei tarvita toista kierrosta. Jo nyt on selvää, että Sauli Niinistö jatkaa Suomen presidenttinä vielä 6 vuotta.
 
-Oikeusministeriö ehdotti Nissisen erottamista. Nyt oikeusministeriö etsii sopivaa ihmistä hoitamaan tärkeää valtakunnansyyttäjän työtä.
+## Muut ehdokkaat saivat vähän ääniä
 
-## Italian junaonnettomuus
-
-![Raiteilta suistunut juna.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10040022)
+![Vihreiden presidenttiehdokas Pekka Haavisto ja valitsijayhdistyksen presidenttiehdokas Sauli Niinistö kättelevät presidentinvaalien vaalivalvojaisissa Helsingin Säätytalolla sunnuntaina 28. tammikuuta 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10045699)
 
 Avaa kuvien katselu
 
-Osa paikallisjunan vaunuista suistui raiteilta. Kuva: Flavio Loscalzo / EPA
+Vihreiden Pekka Haavisto sai toiseksi eniten ääniä. Hän onnitteli Niinistöä voitosta.
 
-Italiassa on tapahtunut junaonnettomuus. Ainakin 3 ihmistä kuoli. Loukkaantuneita on paljon.
+Presidentinvaaleissa oli yhteensä 8 ehdokasta. 6 puolueella ja 2 valitsijayhdistyksellä oli oma ehdokas.
 
-Onnettomuudessa osa paikallisjunan vaunuista joutui ulos raiteilta. Onnettomuus tapahtui lähellä Milanoa, Pohjois-Italiassa.
+Sauli Niinistö oli valitsijayhdistyksen ehdokas. Hän sai siis yli 60 prosenttia äänistä. Muut ehdokkaat saivat ääniä paljon vähemmän.
 
-Onnettomuuden syytä ei vielä tiedetä.
+Vihreän puolueen ehdokas Pekka Haavisto sai toiseksi eniten ääniä. Haavisto sai noin 12 prosenttia äänistä.
 
-## Ylen toimitusjohtaja
+Muiden ehdokkaiden kannatus oli selvästi alle 10 prosenttia.
 
-![Lauri Kivinen Ylen tiedotustilaisuudessa, Laurin info 25.01.2018](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10040871)
+Perussuomalaisten Laura Huhtasaari sai melkein 7 prosenttia äänistä. Noin 6 prosenttia äänistä meni Paavo Väyryselle, joka oli valitsijayhdistyksen ehdokas.
 
-Avaa kuvien katselu
+Keskustapuolueen ehdokas Matti Vanhanen sai noin 4 prosenttia äänistä.
 
-Lauri Kivinen lopettaa työn Ylen toimitusjohtajana. Kuva: Derrick Frilund / Yle
+Sosiaalidemokraattien ehdokas Tuula Haatainen ja vasemmistoliiton ehdokas Merja Kyllönen saivat molemmat noin 3 prosenttia äänistä.
 
-Ylen toimitusjohtaja Lauri Kivinen eroaa. Kivinen lopettaa toimitusjohtajan työt tämän vuoden aikana.
+Ruotsalaisen kansanpuolueen ehdokas Nils Torvalds sai äänistä 1,5 prosenttia.
 
-Ylellä on televisiokanavia, radiokanavia ja nettisivuja. Rahat toimintaan tulevat Yle-verosta.
+## Niinistö on ollut pitkään politiikassa
 
-Toimitusjohtaja on Ylen tärkein johtaja. Kivinen on ollut Ylen toimitusjohtaja 8 vuotta.
-
-## Liukkaat tiet
-
-![Liukkaalla tiellä ojaan suistunutta bussia nostetaan Mustasaaressa 25.1.2018](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10040659)
+![Sauli Niinistö ja Jenni Haukio](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9965882)
 
 Avaa kuvien katselu
 
-Tällaista oli Pohjanmaan autoteillä torstaina. Kuva: Jarkko Heikkinen / Yle
+Sauli Niinistö ja Jenni Haukio. Kuva: Derrick Frilund / Yle
 
-Tiet ovat olleet liukkaita eri puolilla Suomea. Esimerkiksi Pohjanmaalla tiet olivat torstaiaamuna ohuen jään peitossa.
+Sauli Niinistö aloittaa pian toisen kauden presidenttinä. Kausi kestää 6 vuotta.
 
-Monet rekka-autot ajoivat ulos liukkaalta tieltä. Pohjanmaan poliisi kertoo, että rekkaonnettomuuksia tapahtui paljon.
+Sauli Niinistö on ollut Suomen presidentti vuodesta 2012. Sitä ennen hän oli kansanedustaja, ministeri ja eduskunnan puhemies.
 
-Myös bussiliikenne oli vaikeuksissa. Monet bussit ajoivat ojaan. Osa busseista odotti pysäkillä hiekka-autoja. Ne jatkoivat matkaa vasta, kun tiellä oli hiekkaa.
+Niinistön puolue oli kokoomus. Presidenttinä hän ei ole enää puolueen jäsen.
+
+Sauli Niinistö täyttää tänä vuonna 70 vuotta. Hän on naimisissa Jenni Haukion kanssa. Presidenttiparille syntyy pian vauva.
+
+Niinistöllä on ensimmäisestä avioliitosta 2 aikuista poikaa. Niinistön ensimmäinen vaimo kuoli auto-onnettomuudessa.
+
+## Niinistöllä on suuri suosio
+
+![Presidentit Niinistö ja Trump Valkoisessa talossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10030451)
+
+Avaa kuvien katselu
+
+Niinistö on tavannut myös USA:n presidentin Donald Trumpin. Kuva: Lehtikuva
+
+Asiantuntijat ovat arvioineet Niinistön suosiota. Asiantuntijoiden mielestä suomalaiset pitävät siitä, että Niinistö on presidenttinä tavannut monia maailman tärkeitä johtajia.
+
+Suomalaiset eivät myöskään mielellään vaihda presidenttiä, jos vanha presidentti on vaaleissa ehdokkaana. Siksi muiden ehdokkaiden oli vaikea yrittää voittaa Niinistöä.

@@ -1,71 +1,73 @@
-# Radio Selkouutiset perjantai 19.5.2023
+# Radio | Selkouutiset | Maanantai 22.5.2023
 
-Hallitusneuvottelut ja maahanmuuttopolitiikka. Sote-alalle ehkä lakkoja. Yle Kielikoulu. Sää.
+Yksityisen sosiaali- ja terveysalan lakko. Hallitusneuvottelut. Kunta-alan sairauspoissaolot. Rakennusfirmojen tarjoukset. Sääennuste.
 
-## Maahanmuuttopolitiikka
+## Yksityisen sosiaali- ja terveysalan lakko
 
-![Anna-Maja Henriksson, Petteri Orpo, Riikka Purra ja Sari Essayah pitivät tiedotustilaisuuden Säätytalolla.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_389/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11155606464e09f8d917/1686134532)
-
-Avaa kuvien katselu
-
-Kokoomuksen puheenjohtaja Petteri Orpo ja perussuomalaisten puheenjohtaja Riikka Purra. Kuva: Silja Viitala / Yle
-
-Suomen maahanmuuttopolitiikka ehkä kiristyy. Näin arvioi kokoomuksen puheenjohtaja Petteri Orpo.
-
-Orpo vetää hallitusneuvotteluja. Hallitusneuvotteluissa on mukana myös perussuomalaiset.
-
-Perussuomalaisten puheenjohtaja Riikka Purra sanoo, että perussuomalaiset lähtee mukaan hallitukseen vain, jos maahanmuuttopolitiikka kiristyy.
-
-Ensi viikko on hallitusneuvottelujen 4. viikko.
-
-## Sote-alalle ehkä lakkoja
-
-![Kaksi lasta leikkii päiväkodin hiekkalaatikolla aurinkoisena kevätpäivänä.](https://img.img-cdn.yle.fi/crop_extract,w_6007,h_3380,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110800664525c4343bcf/1686574706)
+![Kolme lasta keinumassa keinulaudalla aurinkoisena kevätpäivänä päiväkodin pihalla.](https://img.img-cdn.yle.fi/crop_extract,w_6050,h_3390,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110800964525c45289b0/1684751034)
 
 Avaa kuvien katselu
 
-Lakko voi sulkea päiväkoteja ensi viikolla. Kuvituskuva. Kuva: Elina Ervasti / Yle
+Lakko on yksityisissä hoivakodeissa ja päiväkodeissa. Kuva: Elina Ervasti / Yle
 
-Sosiaali- ja terveysalalla voi alkaa lakko ensi viikolla. Lakko alkaa ensi viikon tiistaina, jos palkkariitaan ei löydy ratkaisua sitä ennen.
+Yksityisellä sosiaali- ja terveysalalla alkaa lakko. Lakko alkaa tiistaina 5 yksityisessä päiväkotiketjussa ja 26:ssa yksityisessä vanhusten hoivakodissa. Lakkopäiväkoteja on eri puolilla Suomea. Lakkohoivakodit ovat Hämeessä ja Pirkanmaalla.
 
-Lakko vaikuttaa joissakin yksityisissä päiväkodeissa ja vanhusten hoivakodeissa. Lakko ei koske koko sosiaali- ja terveysalaa.
-
-Työntekijät aikovat mennä lakkoon eli lopettaa työt noin 40 päiväkodissa ja noin 30 hoivakodissa. Lakko kestää muutaman päivän.
+Päiväkodeissa lakko kestää 2 päivää. Hoivakodeissa lakko kestää 5 päivää. Lakon takia yksityiset sosiaalipalvelufirmat palkkaavat hoivakoteihin ja päiväkoteihin vuokratyöntekijöitä. Myös esihenkilöt eli pomot auttavat monissa töissä.
 
 Lakon syy on palkkariita. Yksityisen sosiaali- ja terveysalan työntekijät vaativat, että he saavat samaa palkkaa kuin julkisen puolen työntekijät.
 
-Esimerkiksi lähihoitajan palkka on yksityisissä firmoissa noin 200 euroa pienempi kuin julkisella puolella. Julkisen puolen rahat tulevat veroista.
+## Hallitusneuvottelut
 
-## Yle Kielikoulu
-
-![Ruotsintajatoimittaja Jonatan Pedersen](https://img.img-cdn.yle.fi/crop_extract,w_1893,h_1064,x_6,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-111460264635a8e3a2da/1684233023)
+![Petteri Orpo.](https://img.img-cdn.yle.fi/crop_extract,w_5116,h_2875,x_0,y_338/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1117289646b0d29a3727/1684737376)
 
 Avaa kuvien katselu
 
-Jonatan Pedersen kertoo, että käyttäjät tykkäävät Yle Kielikoulusta.
+Hallitusneuvotteluita vetää kokoomuksen puheenjohtaja Petteri Orpo. Kuva: Markku Ulander / Lehtikuva
 
-Yle Kielikoulussa opiskellaan suomea katsomalla suomenkielisiä tv-ohjelmia.
+Hallitusneuvottelut jatkuvat. Hallitusneuvotteluissa on alkanut 4. viikko. Hallitusta muodostaa kokoomuksen puheenjohtaja **Petteri Orpo**.
 
-Ohjelmissa on myös suomenkielinen tekstitys. Katsoja saa vaikeille sanoille käännöksen.
+Orpo sanoo, että hallitusneuvotteluissa on jäljellä isoimmat ja vaikeimmat asiat. Niitä ovat talousasiat, ilmasto- ja maahanmuuttopolitiikka sekä sosiaali- ja terveysasiat.
 
-Katsoja voi itse valita, millä kielellä käännökset ovat. Kieliä on 14, esimerkiksi englanti, arabia ja ukraina.
+Hallitusneuvotteluissa ovat mukana kokoomus, perussuomalaiset, ruotsalainen kansanpuolue ja kristillisdemokraatit. Petteri Orpo arvioi, että hallitusneuvottelut jatkuvat vielä ensi viikkoon.
 
-Yle Kielikoulu tarjoaa käännöksiä sen perusteella, mikä on katsojan suomen kielen taso.
+## Kunta-alan sairauspoissaolot
 
-Myös tehtävät sopivat tasolle, jonka katsoja on valinnut. Tehtävät liittyvät ohjelman tekstiin.
+![Lähikuvassa on Päijät-Hämeen keskussairaalan käytävän opastekyltti. Erivärisiä opastekirjaimia.](https://img.img-cdn.yle.fi/crop_extract,w_4027,h_2266,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1100927643f8a996186d/1681885918)
 
-Kääntäjä Jonatan Pedersen koordinoi Kielikoulua. Hän kertoo, että Yle Kielikoulu on käyttäjille ilmainen.
+Avaa kuvien katselu
 
-Pedersen sanoo, että käyttäjät ovat antaneet positiivista palautetta Kielikoulusta. Käyttäjien mielestä Kielikoulua on mukava käyttää.
+Korona lisäsi ihmisten sairauspoissaoloja kunta-alalla. Kuva: Petri Niemi / Yle
 
-Kielikoulua voi käyttää sovelluksella tai selaimella. Lisää tietoa Kielikoulusta löytyy osoitteesta yle.fi/kielikoulu.
+Kunta-alan sairauspoissaolot lisääntyivät viime vuonna paljon edellisvuodesta. Kunta-alan työntekijät olivat viime vuonna poissa töistä sairauden takia keskimäärin yli 20 päivää. Se on 4 päivää enemmän kuin edellisvuonna.
+
+Kunta-alan sairauspoissaolot lisääntyivät sekä miehillä että naisilla ja eri ikäisillä työntekijöillä. Työterveyslaitos arvioi, että syy on koronatilanne.
+
+Koronavirus lisäsi sairauspoissaoloja viime vuonna.
+
+## Rakennusfirmojen tarjoukset
+
+![Uusia kerrostaloja.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2800,x_0,y_521/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97886362c5994bee853/1721980804)
+
+Avaa kuvien katselu
+
+Monissa kaupungeissa on rakennettu paljon uusia asuntoja. Nyt asuntokauppa on hidastunut. Kuva: Henrietta Hassinen / Yle
+
+Asuntokauppa on hidastunut paljon. Asuntokauppoja on tehty tänä vuonna noin 70 prosenttia viimevuotista vähemmän.
+
+Siksi myös rakennusfirmat ovat alkaneet tehdä erilaisia tarjouksia. Rakennusfirmat voivat esimerkiksi maksaa osan asunnonostajan lainan koroista tai asunnon vastikkeista. Ostaja voi hyötyä rakennusfirman tarjouksesta jopa 20 000 euroa.
+
+Rakennusfirmoilla on kiinni paljon rahaa uusissa taloissa. Siksi rakennusfirmat yrittävät keksiä keinoja, joilla ihmisiä saadaan ostamaan valmiita asuntoja.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11165306467983055b0b/1684510792)
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1117658646b8193b9c85/1684767204)
 
 Avaa kuvien katselu
 
-Lauantaina aurinko paistaa melkein koko maassa ja sää on lämmintä. Lämpötila on jopa yli 20 astetta. Pohjois-Lapissa on kylmempää.
+Aurinkoisinta on etelässä.
 
-Sunnuntaina lämpötila nousee Etelä-Suomessa jo lähelle hellerajaa eli 25 astetta ja sää lämpenee myös Lapissa.
+Sää on tiistaina vaihtelevaa. Kaakosta tulee Suomeen sadekuuroja ja ukkosia. Sateita voi tulla eri puolilla Suomea.
+
+Poutaisinta ja aurinkoisinta on etelässä.
+
+Lämpötila on noin 20 astetta.

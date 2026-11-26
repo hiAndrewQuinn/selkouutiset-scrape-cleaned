@@ -1,65 +1,75 @@
-# Lauantai 9.3.2019 (radio)
+# Sunnuntai 10.3.2019 (radio)
 
-Pääministeri Juha Sipilä myöntää, että sote-uudistuksesta yritettiin kerralla liian isoa. Suhtautuminen maahanmuuttoon jakaa ihmisiä Suomessa. Pohjois-Korea valmistelee ehkä ohjuksen tai satelliitin laukaisua. Barbie-nukke täyttää 60 vuotta.
+Talousmetsissä on liian vähän lahopuuta. Itä-Afrikassa on tapahtunut vakava lento-onnettomuus. 30 ihmistä on loukkaantunut kovassa turbulenssissa Turkish Airlinesin lennolla. Viivästynyt eli hidas kosketusallergia vaivaa monia ihmisiä.
 
-## Pääministeri Juha Sipilä myönsi, että sote oli liian iso paketti
+## Eliölajit ovat vaarassa, koska lahopuuta on liian vähän
 
-![Juha Sipilä Ykkösaamussa 09.03.2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10681188)
-
-Avaa kuvien katselu
-
-JuhaSipilä oli lauantaina Ykkösaamun haastattelussa.  Kuva: Kimmo Hiltunen / Yle
-
-Pääministeri Juha Sipilä myöntää, että sote-uudistuksesta yritettiin kerralla liian isoa. Sote on sosiaalipalveluiden ja terveyspalveluiden uudistus.
-
-Hallitus erosi perjantaina, koska sote-uudistus kaatui. Hallitus on nyt toimitusministeristö. Siinä on samat ministerit kuin ennenkin, mutta se ei voi tehdä poliittisia päätöksiä.
-
-Sipilä oli aamulla haastattelussa Yle TV1:n Ykkösaamussa. Sipilä sanoi, että hän ei ehkä asetu enää ehdolle keskustan johtoon. Ehdokkuus riippuu vaalituloksesta.
-
-Keskustan kannatus oli Ylen mittauksessa vain 14,1 prosenttia.
-
-## Maahanmuutto jakaa suomalaisia
-
-![Asiakas valmistaa ruokaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10639118)
+![Katkenneita oksia metsässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10661523)
 
 Avaa kuvien katselu
 
-Kunnallisalan kehittämissäätiö kysyi helmikuussa mielipiteitä maahanmuutosta. Kuva: Juha Kivioja / Yle
+Metsässä pitää olla nykyistä paljon enemmän lahoavaa puuta. Se on tärkeää monille lajeille. Kuva: Jaana Polamo / Yle
 
-Suhtautuminen maahanmuuttoon jakaa ihmisiä Suomessa. Kunnallisalan kehittämissäätiö kysyi mielipiteitä maahanmuutosta.
+Talousmetsissä on liian vähän lahopuuta. Lahopuu on kuollutta puuta, joka lahoaa.
 
-47 prosenttia vastaajista suhtautui maahanmuuttoon myönteisesti. 41 prosenttia suhtautui kielteisesti. Enemmistö halusi vähentää maahanmuuttoa Lähi-idästä ja Afrikasta.
+Lahopuuta syntyy, jos osa puista jätetään lahoamaan metsiin. Lahopuuta on liian vähän, koska puita kaadetaan liikaa.
 
-Maahanmuuttoon suhtaudutaan myönteisimmin pääkaupunkiseudulla. Myös vihreiden, vasemmistoliiton ja keskustan kannattajat suhtautuvat myönteisemmin kuin muut.
+Noin 5000 lajia metsissä tarvitsee lahopuuta. Lahopuuta tarvitaan 10-kertainen määrä nykyiseen verrattuna.
 
-Kielteisimmin suhtautuvat perussuomalaiset. 96 prosenttia perussuomalaisista vastusti maahanmuuttoa.
+Tutkijat kertovat, että tällä hetkellä lahopuuta ei jää metsiin juuri ollenkaan. Siksi metsien lajeista noin 10 prosenttia on uhanalaisia eli vaarassa hävitä.
 
-## Pohjois-Korean ohjuksista on ehkä uusia havaintoja
+Uusin arvio kertoo, että uhanalaisia lajeja on eniten metsissä. Noin 30 prosenttia näistä lajeista on vanhoissa metsissä.
 
-![Etelä-Korealaisia katsomassa televisiota rautatieasemalla Soulissa 7. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10681199)
+## 157 ihmistä kuoli lento-onnettomuudessa Etiopiassa
 
-Avaa kuvien katselu
-
-Etelä-Korealaisia katsomassa televisiota rautatieasemalla Soulissa 7. maaliskuuta. Kuva: Jeon Heon-Kyun / EPA
-
-Pohjois-Korea valmistelee ehkä ohjuksen tai satelliitin laukaisemista.
-
-Valmistelu näkyy satelliittikuvista. Esimerkiksi Britannian yleisradioyhtiö BBC ja uutiskanava CNN kertovat satelliittikuvista. Aktiivisuutta on havaittu Sanumdongissa, jossa on suurin osa Pohjois-Korean ballistisista ohjuksista.
-
-Aiemmin tällä viikolla kerrottiin, että Pohjois-Korea on aloittanut korjaustyöt ohjusten laukaisualustalla.
-
-## Barbie on 60-vuotias
-
-![Ikoninen Barbie-nukke juhlii 60-vuotista ikäänsä 9.3.2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10681068)
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10681806)
 
 Avaa kuvien katselu
 
-Barbie on edelleen suosittu, vaikka sitä on myös arvosteltu paljon. Kuva: Jason Szenes/EPA
+Kuva: Yle Uutisgrafiikka
 
-Barbie-nukke on viettänyt lauantaina 60-vuotispäivää.
+Itä-Afrikassa on tapahtunut vakava lento-onnettomuus. Ethiopian Airlinesin lentokone putosi matkalla Nairobiin Keniaan.
 
-Barbie-nukkeja myydään joka vuosi noin 58 miljoonaa kappaletta. Nukkeja myydään 150 maassa. Barbie-nukkeja on myyty yhteensä yli miljardi kappaletta.
+Kone lähti Etiopian pääkaupungista Addis Abebasta. Kone putosi 6 minuuttia nousun jälkeen.
 
-Nukke tuli markkinoille New Yorkin lelumessuilla vuonna 1959.
+![Pelastusmiehistöt keräävät matkustajien ruumiita ja tavaroita onnettomuuspaikalla Etiopiassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10681963)
 
-Ennen Barbie-nukkea tarjolla oli vain vauvanukkeja. Barbien keksijä Ruth Handler halusi tehdä toisenlaisen nuken. Hän keksi nuken, joka antaa pikkutytöille muitakin rooleja kuin vauvanuken äidin osan.
+Avaa kuvien katselu
+
+Pelastusmiehistöt keräävät matkustajien ruumiita ja tavaroita onnettomuuspaikalla Etiopiassa. Kuva: Michael Tewelde / AFP
+
+Etiopian valtiontelevisio kertoi, että kukaan ei selvinnyt elossa. Koneessa oli 157 ihmistä. Matkustajia oli 33 maasta.
+
+Ruotsalainen sivusto seurasi lennon liikkeitä. Sivusto kertoo, että kone lensi epävakaasti heti nousun jälkeen.
+
+Kone otettiin käyttöön viime lokakuussa. Etiopian pääministeri on esittänyt surunvalittelut onnettomuuden uhrien perheille.
+
+## 30 ihmistä loukkaantui lennolla turbulenssissa
+
+![lentokoneen matkustamo ja stuertti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10325068)
+
+Avaa kuvien katselu
+
+Kuva ei ole samalta lennolta, josta uutinen kertoo. Kuva: AOP
+
+30 ihmistä on loukkaantunut kovassa turbulenssissa Turkish Airlinesin lennolla. Kone oli matkalla Istanbulista New Yorkiin.
+
+Kovat ilmakuopat alkoivat yllättäen noin puoli tuntia ennen laskeutumista.Kone kuitenkin laskeutui ilman ongelmia.
+
+Kaikki loukkaantuneet vietiin sairaalahoitoon. Matkustajilla oli ruhjeita, haavoja ja luunmurtumia.
+
+## Viivästynyt allergia vaivaa joka viidettä
+
+![Atooppinen iho kutisee kuivalla talvikelillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5097601)
+
+Avaa kuvien katselu
+
+Viivästynyt kosketusallergia näkyy ihossa. Kuva: Yle 
+
+Viivästynyt eli hidas kosketusallergia vaivaa monia ihmisiä. Siinä jokin aine aiheuttaa ihottumaa, kun aine koskettaa ihoa.
+
+Noin 20 prosenttia kärsii viivästyneestä kosketusallergiasta. Ihottuma alkaa noin 8 tunnin kuluttua altistumisesta. Lisäksi allergia voimistuu muutaman päivän kuluessa. Naiset kärsivät siitä miehiä useammin.
+
+Tuhannet kemikaalit voivat aiheuttaa viivästynyttä kosketusallergiaa. Yleisin aiheuttaja on nikkeli.
+
+Asiasta kertoo pohjoismainen tutkimus. Suomalaisia ei ollut mukana tutkimuksessa. Tutkijat kuitenkin uskovat, että vaiva on yhtä yleinen myös Suomessa.

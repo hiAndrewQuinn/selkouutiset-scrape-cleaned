@@ -1,91 +1,65 @@
-# Sunnuntai 19.5.2019 (radio)
+# Tiistai 21.5.2019 (radio)
 
-Hallitusneuvottelut ovat jatkuneet jo 9 päivää. Sunnuntaina on vietetty kaatuneitten muistopäivää. Maailman suurimmat vaalit päättyvät Intiassa. Kansanradio on 40-vuotias. Minetit ja OVO Team pääsivät mitaleille. Hollanti voitti euroviisut.
+Hallitusneuvottelut jatkuvat. Rasismi on lisääntynyt Britanniassa brexit-äänestyksen jälkeen. Huawein puhelimet voivat jäädä ilman päivityksiä. Itävaltalainen formula-kuljettaja Niki Lauda on kuollut.
 
-## Hallitusneuvotteluissa on ollut 9. päivä
+## Suomen hallitusneuvottelut
 
-![Antti Rinne saapumassa hallitusneuvotteluihin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10787519)
-
-Avaa kuvien katselu
-
-Hallitusneuvottelujen vetäjä SDP:n Antti Rinne. Kuva: Markku Ulander / Lehtikuva
-
-Hallitusneuvottelut ovat jatkuneet Säätytalossa Helsingissä jo 9 päivää.
-
-Ryhmien pitää saada esitykset valmiiksi tiistaihin mennessä. Viikonloppuna on ratkottu muun muassa talouskysymyksiä.
-
-Monet kansalaisjärjestöt ovat muistuttaneet neuvottelijoita järjestöille tärkeistä asioista.
-
-Psykologit ja psykologian opiskelijat luovuttivat aamulla Säätytalolla nettiadressin, jonka on allekirjoittanut noin 400 ihmistä. Adressi tukee nuoria ja lapsia, jotka kokevat ahdistusta ilmastonmuutoksesta.
-
-## Kaatuneitten muistopäivänä on haudattu sotavainajia
-
-![Kadetit laskemassa tuntematonta sotavainajaa hautaan Lappeenrannassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10791068)
+![Antti Rinne](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10794716)
 
 Avaa kuvien katselu
 
-Kadetti ojentaa sotavainajan arkkua. Kuva: Kalle Purhonen / Yle
+Antti Rinne. Kuva: Vesa Moilanen / Lehtikuva
 
-Sunnuntaina on vietetty kaatuneitten muistopäivää.
+Hallitusneuvottelut ovat jatkuneet. SDP:n puoluejohtaja Antti Rinne vetää neuvotteluja.
 
-Tasavallan presidentti Sauli Niinistö laski seppeleen sankariristille Hietaniemen hautausmaalla Helsingissä.
+Hallitusneuvotteluissa puolueet ovat keskustelleet taloudesta. Rinne sanoo, että uuden hallituksen ei tarvitse vähentää valtion menoja. Rinteen mielestä valtio voi lisätä rahan käyttöä.
 
-Lappeenrannassa on haudattu tuntemattomia suomalaisia sotavainajia, jotka on löydetty Venäjältä. Haudan lepoon pääsi 50 vainajaa, jotka kaatuivat talvisodassa tai jatkosodassa.
+Hallitusneuvotteluissa on mukana 5 puoluetta. SDP:n puoluejohtaja vetää neuvotteluja, koska SDP voitti vaalit ja on nyt eduskunnan suurin puolue.
 
-Heidät on löydetty etsinnöissä parin viime kesän aikana pääasiassa Talista ja Taipaleelta.
+## Britannian rasismi
 
-## Intian jättimäiset vaalit päättyvät
-
-![Äiti Teresan seuraajat jonottivat äänestämään sunnuntaina Kolkatassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10790796)
+![Uutta kansanäänestystä vaadittiin mielenosoituksessa Lontoossa kesäkuussa 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10664889)
 
 Avaa kuvien katselu
 
-Äiti Teresan seuraajiin kuuluvat nunnat jonottivat äänestyspaikalle. Kuva: Piyal Adhikary / EPA
+Brexit-riitely näkyy Britanniassa monella tavalla. Kuva: Andy Rain / EPA
 
-Maailman suurimmat vaalit päättyvät tänään Intiassa. Intian parlamenttivaalien äänestys kesti 6 viikkoa.
+Rasismi on lisääntynyt Britanniassa. Rasismi on kasvanut brexit-äänestyksen jälkeen.
 
-Intiassa on noin 900 miljoonaa ihmistä, joilla on äänioikeus.
+Brexit-äänestys oli kesällä 2016. Silloin yli puolet briteistä halusi, että Britannia eroaa Euroopan unionista.
 
-Ääntenlasku alkaa torstaina, ja myös tuloksia odotetaan silloin. Äänet lasketaan koneella.
+Alkuvuonna 2016 eli ennen brexit-äänestystä vähän alle 60 prosenttia etnisten vähemmistöjen jäsenistä koki syrjintää. Nyt luku on jo yli 70 prosenttia. Luvut ovat brittiläiseltä tutkimuslaitokselta.
 
-Mielipidekyselyt kertovat, että hindunationalistinen BJP-puolue säilyttää kärkisijan.
+The Guardian -lehti kertoo, että brexit-riitely näkyy Britanniassa myös muuten. Esimerkiksi rasististen viharikosten määrä on noussut.
 
-## Minetit ja OVO Team pääsivät mitaleille
+## Huawein ongelmat
 
-![Minetit MM-kisat 2019](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10790899)
-
-Avaa kuvien katselu
-
-Tampereen Sisun Minetit voimisteli hopealle. Kuva: Carita Berg
-
-Suomalaisjoukkueet Minetit ja OVO Team ovat saaneet mitalit joukkuevoimistelun MM-kisoissa. Kisat olivat Espanjan Cartagenassa.
-
-Minetit sai hopeaa ja OVO Team pronssia. Venäjän Madonna-joukkue voitti maailmanmestaruuden.
-
-Tampereen Sisun Minetit on juhlinut maailmanmestaruutta vuosina 2015 ja 2017. Espoolainen OVO Team on voittanut mestaruuden 7 kertaa.
-
-## Kansanradio täytti 40 vuotta
-
-![Kansanradio. juontajat Olli Haapakangas ja Jaana Selin sekä äänittäjä studiossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10790897)
+![Podcast meneillään älykännyssä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10794153)
 
 Avaa kuvien katselu
 
-Kansanradion juontajat Olli Haapakangas ja Jaana Selin. Kuva: Kimmo Hiltunen / Yle
+Huawein Honor-puhelin. Kuva: Massimiliano Finzi / AOP
 
-Ylen Kansanradio-ohjelma on täyttänyt 40 vuotta. Juhlalähetyksessä oli mukana tavallisia kansalaisia ja myös tasavallan presidentti Sauli Niinistö.
+Kiinalaisella puhelinfirma Huaweilla on ongelmia. Huawein puhelimet jäävät ehkä ilman päivityksiä.
 
-Ohjelmassa on aina keskusteltu ajankohtaisista kysymyksistä. Ohjelmassa on sekä huumoria että vakavaa asiaa.
+Huawein puhelimien toiminta ei lopu, mutta esimerkiksi puhelimien tietoturva voi huonontua.
 
-Kansanradio saa yleisöltä 10 000 yhteydenottoa vuodessa.
+Syy on se, että amerikkalainen Google lopettaa Android-järjestelmän päivitykset Huawein puhelimiin.
 
-## Hollanti voitti euroviisut
+USA:n presidentti Donald Trump on määrännyt, että Huawei ei saa ostaa amerikkalaista tekniikkaa. USA kuitenkin antaa Huaweille ja sen amerikkalaisille kumppaneille aikaa muutokseen. Siksi kielto tulee voimaan vasta elokuussa.
 
-![Hollannin viisuedustaja Duncan Laurence suutelee voittopystiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10790755)
+## Niki Lauda on kuollut
+
+![Niki Lauda Australian Formula 1 Grand Prix&#39;ssä vuonna 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10793079)
 
 Avaa kuvien katselu
 
-Duncan Laurence iloitsee voitosta. Kuva: Vyacheslav Prokofyev / EPA
+Niki Lauda vuonna 2018. Kuva: Dave Acree / EPA
 
-Hollanti on voittanut tämän vuoden Euroviisut. Voiton vei Duncan Laurence kappaleella Arcade. Kisa käytiin lauantai-iltana Tel Avivissa Israelissa.
+Formulakuljettaja Niki Lauda on kuollut. Itävaltalainen Lauda oli 70-vuotias.
 
-Yöllä kerrottiin myös niiden pisteet, jotka putosivat finaalista. Suomen Look Away -kappale sai 23 pistettä ja oli semifinaalin viimeinen.
+Niki Lauda oli Formula ykkösten maailmanmestari 3 kertaa noin 40 vuotta sitten.
+
+Vuonna 1976 Lauda oli pahassa onnettomuudessa. Hän ajoi kilpa-autolla ulos radalta, kun vauhtia oli yli 200 kilometriä tunnissa.
+
+Onnettomuudessa Lauda paloi pahasti, ja hän melkein kuoli. Lauda tuli kuitenkin takaisin autokilpailuihin vain vähän yli kuukausi onnettomuuden jälkeen.

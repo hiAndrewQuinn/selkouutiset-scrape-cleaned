@@ -1,81 +1,91 @@
-# Radio Selkouutiset Keskiviikko 31.5.
+# Radio Selkouutiset torstai 1.6.2023
 
-Yksityisen sosiaalipalvelualan lakko. Lasten ja nuorten harrastukset. Kansainväliset sotaharjoitukset. Huumaavia lääkkeitä Turun seudulla. Varhaisperuna. Sää.
+Ruotsin Nato-jäsenyys. Hintojen nousu. Sosiaalialan lakko. Kyykäärme. Kylmyysennätys. Sää.
 
-## Palveluasumisen lakot
+## Ruotsin Nato-jäsenyys
 
-![Leena Pulkkinen syö hyvinvointialueen ateriapalveluiden ruokaa omassa keittiössä.](https://img.img-cdn.yle.fi/crop_extract,w_5486,h_3085,x_0,y_334/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11100646458ac7ba683a/1683555485)
-
-Avaa kuvien katselu
-
-Yksityisissä vanhusten hoivakodeissa Turun ja Helsingin seudulla alkaa lakko torstaina. Kuva: Elias Harinen / Yle
-
-Yksityisellä sosiaalipalvelualalla alkaa huomenna lakko.
-
-Lakko koskee vanhusten ja vammaisten palveluasumista Turun ja Helsingin seudulla. Lakossa ovat hoitajaliitot Super ja Tehy sekä toimihenkilöliitto Erto. Lakko kestää 3 päivää.
-
-Monissa yksityisissä päiväkodeissa ja lastensuojelussa lakko alkoi tänään.
-
-Lakoilla halutaan vauhdittaa neuvotteluja yksityisen sosiaalialan työehtosopimuksesta. .
-
-## Lasten ja nuorten harrastukset
-
-![Sofia Sistonen seisos koulun pihalla.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_149/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11216796475a949ccbe2/1685433475)
+![Nato-kokous Oslossa.](https://img.img-cdn.yle.fi/crop_extract,w_5037,h_2834,x_0,y_235/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11233196478a0be9dac0/1706527109)
 
 Avaa kuvien katselu
 
-Sofia Sistonen kertoo, että korona-aikana hän kävi usein metsässä kävelemässä perheen kanssa. Kuva: Katja Halinen / Yle
+Pekka Haavisto Nato-kokouksessa Norjassa. Kuva: Lehtikuva
 
-Koronapandemia ei vähentänyt suomalaislasten ja nuorten harrastuksia.
+Suomen ulkoministeri Pekka Haavisto sanoo, että Ruotsin Nato-jäsenyys voi ehkä toteutua pian.
 
-Lasten ja nuorten vapaa-aikatutkimus kertoo, että lapsilla ja nuorilla on nyt yhtä paljon harrastuksia kuin ennen pandemiaa. Melkein kaikilla on joku harrastus ja isolla osalla harrastuksia on monta.
+Ruotsin Nato-jäsenyys tarvitsee vielä Turkin ja Unkarin hyväksymisen. Haavisto uskoo, että Turkki voi hyväksyä Ruotsin Natoon ehkä jo pian.
 
-Korona-aikana moni joutui luopumaan jostakin harrastuksesta, mutta myös uusia harrastuksia aloitettiin. Kun harrastuspaikat olivat koronarajoitusten takia kiinni, moni alkoi esimerkiksi liikkua enemmän luonnossa.
+Haavisto osallistui Nato-maiden ulkoministerien kokoukseen Norjassa. Haavisto sanoo, että kaikki muut maat kertoivat Turkille ja Unkarille, että ne haluavat Ruotsin Natoon nopeasti.
 
-## Kansainväliset sotaharjoitukset
+## Hintojen nousu
 
-![Lentokentän kiitoradalla on rivissä kolme erimerkkistä hävittäjälentokonetta.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112233764770626ea904/1685522006)
-
-Avaa kuvien katselu
-
-Suomessa on parhaillaan käynnissä kansainvälinen ilmasotaharjoitus. Kuva: Marjut Suomi / Yle
-
-Suomessa on ollut paljon kansainvälisiä sotaharjoituksia vuoden aikana. Harjoitusten määrä lisääntyi viime kevään jälkeen, kun Suomi päätti hakea Nato-jäsenyyttä.
-
-Tällä hetkellä Suomessa on käynnissä 4 isoa sotaharjoitusta. joihin osallistuu kansainvälisiä joukkoja. Suomi isännöi esimerkiksi ilmasotaharjoitusta, jossa on mukana 3000 sotilasta ja noin 150 ilma-alusta yhteensä 14 eri maan asevoimista.
-
-## Huumaavia lääkkeitä katukaupassa
-
-![Katri Valan puistosta Helsingin Kalliosta löytyy jälkiä suonensisäisten huumeiden käytöstä. Kuvassa Ksalol -pakkaus.](https://img.img-cdn.yle.fi/crop_extract,w_3332,h_1874,x_0,y_1436/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1006458631ee0721ea0a/1662969017)
+![Asiakas kantaa ostoskoria ruokakaupassa.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-774563602b9bbe33527/1613471412)
 
 Avaa kuvien katselu
 
-Turun seudulla katukaupassa liikkuu Ksalol-nimistä lääkettä. Kuva: Silja Viitala / Yle
+Hinnat nousevat, mutta nousuvauhti on hidastunut. Kuva: Tiina Jutila / Yle
 
-Poliisi varoittaa huumaavista lääkkeistä, jotka leviävät Turun seudulla. Katukaupassa liikkuu esimerkiksi Ksalol-nimistä lääkettä.
+Hintojen nousu on hidastunut. Näin kertoo Suomen Tilastokeskus.
 
-Turun seudulla on ollut lyhyen ajan kuluessa useita myrkytystapauksia, joissa on käytetty Ksalolia. Alkoholin kanssa lääke voi olla hengenvaarallinen.
+Toukokuussa hinnat olivat noin 5 prosenttia kalliimpia kuin vuosi sitten. Vielä huhtikuussa hintojen nousu eli inflaatio oli noin 6 prosenttia.
 
-Poliisi kertoo, että nuorimmat lääkkeiden käyttäjät ovat olleet vain 13-vuotiaita.
+Ruokien hinnat ovat nousseet eniten. Ruoka on nyt noin 11 prosenttia kalliimpaa kuin vuosi sitten.
 
-## Varhaisperunaa nostetaan
+## Sosiaalialan lakko
 
-![Varhaisperunoita ja naatteja pahvilaatikossa](https://img.img-cdn.yle.fi/crop_extract,w_3199,h_1800,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-963000629627832c28d/1654007752)
-
-Avaa kuvien katselu
-
-Varhaisperunaa.  Kuva: Lassi Lähteenmäki / Yle
-
-Kotimaisen varhaisperunan nosto on alkanut. Varhaisperunaa nostetaan avomaalta Lounais-Suomen saaristossa.
-
-Perunaa on kohtalaisen hyvin tarjolla, vaikka sää on ollut kylmää ja kuivaa
-
-## Torstain sää
-
-![Torstain sääkartta](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11226506477664e4960c/1685546674)
+![Hoitaja istuu ja keskustelee palvelutalon asukkaan kanssa.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_96/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112259464774eb14e0e8/1685540714)
 
 Avaa kuvien katselu
 
-Huomenna Lapissa sataa vettä, räntää tai lunta. Maan keskiosissa tulee vesi- tai räntäkuuroja. Etelässä voi tulla sadekuuroja, mutta pääosin on poutaa.
+Palveluasuntojen asukkaista pidetään huolta myös lakon aikana. Kuva: Johanna Manu / Yle
 
-Päivällä lämpötila on 5-13 astetta.
+Osa palveluasuntojen työntekijöistä on lakossa. He aloittivat lakon tänään torsrtaina ja ovat poissa töistä 3 päivää.
+
+Lakko koskee vanhusten ja vammaisten palveluasuntoja Helsingin ja Turun seuduilla. Lakko koskee vain yksityisiä palveluasuntoja.
+
+Lakossa on esimerkiksi Esperi Caren ja Mehiläisen työntekijöitä. He haluavat lisää palkkaa.
+
+Hoiva-alan palkat ovat nykyään yksityisissä firmoissa pienempiä kuin julkisella puolella, esimerkiksi kunnissa.
+
+Yksityisten palveluasuntojen työntekijät ovat siis lakossa Helsingin ja Turun seuduilla.
+
+Palveluasuntojen asukkaat saavat kuitenkin hoitoa myös lakon aikana. Esimerkiksi pomot tekevät nyt myös hoitotyötä.
+
+## Kyykäärme
+
+![Harmaamusta kyykäärme makaa vanhalla matolla pehmustetun ämpärin pohjalla.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_200/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11103446458e92a593f0/1687437398)
+
+Avaa kuvien katselu
+
+Kyy on Suomen ainoa myrkkykäärme. Kuva: Juha Kokkala / Yle
+
+Kyykäärme on nyt rauhoitettu myös Suomessa. Uusi laki määrää, että kyykäärmeitä ei saa enää tappaa.
+
+Jokainen saa kuitenkin ottaa kyyn kiinni, jos se tulee omalle pihalle. Kyykäärmeen saa siirtää pihalta pois.
+
+Kyykäärme on Suomen ainoa myrkkykäärme.
+
+Suomi oli viimeinen Länsi-Euroopan maa, joka rauhoitti kyykäärmeen.
+
+## Kesäkuun kylmyysennätys
+
+![Etualalla tunturin kivirakkaa ja taustalla laajoja tuntureita.](https://img.img-cdn.yle.fi/crop_extract,w_8174,h_4588,x_0,y_853/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1122892647857a3052b0/1685608514)
+
+Avaa kuvien katselu
+
+Kesäkuun alku on ollut Lapissa kylmä. Kuva: Harri Tarvainen / Metsähallitus
+
+Lapissa on mitattu kesäkuun kylmyysennätys. Saanatunturilla oli 7,7 astetta pakkasta.
+
+Edellinen ennätys mitattiin yli 60 vuotta sitten. Kesäkuussa 1961 Lapissa oli 7 astetta pakkasta.
+
+## Sää
+
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11234046478b92e84dc4/1685633359)
+
+Avaa kuvien katselu
+
+Myös perjantaina sää on kylmää. Lämpötila on etelässä noin 10 astetta. Pohjoisessa lämpötila on alle 10 astetta.
+
+Sää on myös pilvistä. Perjantaina saadaa myös sadekuuroja eri puolilla Suomea.
+
+Viikonloppuna sää vähän lämpenee ja lämpötila nousee etelässä yli 10 asteen. Sää myös kuivenee, ja sadekuuroja tulee enää vähän.

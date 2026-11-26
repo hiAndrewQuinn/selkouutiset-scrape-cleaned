@@ -1,7 +1,57 @@
-# Perjantai 21.7.2017 (tv)
+# Lauantai 22.7.2017 (radio)
 
-Kreikassa Kosin saarella on tapahtunut maanjäristys. Lapinjärvellä järjestetään pakolaisperheiden lapsille tapaamisia, joissa tehdään ruokaa yhdessä. Mustasaaressa on rakennettu uudenlainen vanhusten talo. Suomalaiset ovat harrastaneet sauvakävelyä jo 20 vuotta. Säätiedot.
+Sähköstä voidaan tehdä ruokaa. Suomalaisilla on paljon velkaa. Suomella on nyt kansalliskissa. Traktoreillakin on missikilpailut.
 
-Yle Uutiset selkosuomeksi
+## Sähköstä saa ruokaa
 
-Kreikassa Kosin saarella on tapahtunut maanjäristys. Lapinjärvellä järjestetään pakolaisperheiden lapsille tapaamisia, joissa tehdään ruokaa yhdessä. Mustasaaressa on rakennettu uudenlainen vanhusten talo. Suomalaiset ovat harrastaneet sauvakävelyä jo 20 vuotta. Säätiedot.
+![Pikkulusikallinen vaaleanruskeaa rouhetta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9735566)
+
+Avaa kuvien katselu
+
+Tältä näyttää valmis tuote lusikassa VTT:n laboratoriossa. Kuva: Lappeenrannan teknillinen yliopisto
+
+Suomalaiset tutkijat ovat kehittäneet menetelmän, joka tuottaa ravintoa ilman maanviljelystä. Ravintoa tehdään laboratoriossa pelkästä ilmasta ja auringonvalosta. Ravinnon kasvattamiseen riittävät hiilidioksidi ja vety, jota tehdään sähköstä. Sähköä saadaan auringosta.
+
+Tutkijat ovat valmistaneet jo ensimmäisen erän yksisoluista proteiinia. Siitä voidaan tehdä ruokaa ihmisille ja rehua eläimille.
+
+Tällä hetkellä tuotetta syntyy vain gramma kahdessa viikossa. Menetelmä voi tulevaisuudessa olla yksi ratkaisu maailman nälkäongelmaan. Menetelmän kehittivät Lappeenrannan teknillinen yliopisto ja Teknologian tutkimuskeskus VTT.
+
+## Suomalaisilla on paljon velkaa
+
+![Asuntolaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9639448)
+
+Avaa kuvien katselu
+
+Moni ei laske, kuinka paljon lainakulut nousevat, kun korot nousevat. Kuva: Ismo Pekkarinen / AOP
+
+Suomalaisilla on nykyään paljon velkaa. Suomen Pankki kertoo, että kulutusluottojen määrä kasvoi toukokuussa yli 5 prosenttia. Noin 25 prosentilla suomalaisista on jokin kulutusluotto. Kulutusluotolla hankitaan usein esimerkiksi auto, ulkomaanmatka, vene tai jokin kodinkone.
+
+Monet suomalaiset ovat velkaisempia kuin he itse tietävät. Heille tulee vaikeuksia, kun lainojen korot taas tulevaisuudessa nousevat. Korot ovat olleet pitkään hyvin alhaalla, nollan tuntumassa.
+
+Myös vanhoissa taloyhtiöissä on paljon velkaa, joka johtuu korjauksista. Asukkaiden pitää ottaa korjausvelka huomioon, kun he suunnittelevat omaa talouttaan.
+
+## Eurooppalaiskissa on Suomen kansalliskissa
+
+![Viisivuotias Mesi on puhdasrotuinen eurooppalaiskissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9734563)
+
+Avaa kuvien katselu
+
+Viisivuotias Mesi on puhdasrotuinen eurooppalaiskissa. Kuva: Jouni Immonen / Yle
+
+Suomen Kissaliitto on julistanut, että eurooppalaiskissa on Suomen kansalliskissa. Eurooppalainen julistettiin kansalliskissaksi Hämeenlinnassa Suomen Rotukissayhdistyksen näyttelyssä. Eurooppalaiskissa on alkuperäinen, perinteinen ja elinvoimainen suomalainen kissarotu. Rekisteröidyt eurooppalaiskissat ovat suomalaisten maatiaiskissojen sukulaisia.
+
+Eurooppalaiskissojen kasvatus on keskittynyt pohjoismaihin, erityisesti Suomeen. Suomessa syntyy vuosittain noin sata (100) uutta pentua. Eurooppalainen on onnistuttu suojelemaan muiden rotujen vaikutukselta.
+
+Valinta on osa Suomi 100 -juhlavuoden ohjelmaa.
+
+## Traktoreille järjestettiin missikisat
+
+![Vanhoja traktoreita traktorien missikisoista Lapuan Tiistenjoella. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9735227)
+
+Avaa kuvien katselu
+
+Traktoreiden missikisoissa näkee paljon vanhoja hienoja koneita. Kuva: Matti Rinnankoski
+
+Lapualla Etelä-Pohjanmaalla on järjestetty traktoreiden kauneuskilpailut. Kisassa on esillä tasan sata (100) traktoria itsenäisyyden juhlavuoden kunniaksi. Tapahtuman on järjestänyt Lapuan Tiistenjoen nuorisoseura. Se haluaa saada pieneen kylään toimintaa.
+
+Esillä on uusia ja vanhoja traktoreita. Voittaja julkistetaan myöhemmin.

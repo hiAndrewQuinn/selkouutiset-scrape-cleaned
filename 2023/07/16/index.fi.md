@@ -1,67 +1,73 @@
-# Radio Selkouutiset lauantai 15.7.2023
+# Radio Selkouutiset sunnuntai 16.7.2023
 
-Eduskunnan puhemies. RKP. Karhut. Lintuinfluenssa. Sää.
+Maastopalo. Kuumuus. Lento-onnettomuus. Häiriökäytös reittilennoilla. Sää.
 
-## Eduskunnan puhemies Jussi Halla-aho
+## La Palman maastopalo
 
-![Jussi Halla-Aho kuvattuna 10.7. 2023 Pikku Parlamentin edustalla.](https://img.img-cdn.yle.fi/crop_extract,w_5137,h_2889,x_0,y_301/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114089064ad25164eb87/1689068867)
-
-Avaa kuvien katselu
-
-Jussi Halla-aho kuvattuna 10.7. 2023 Pikku Parlamentin edustalla. Kuva: Sasha Silvala / Yle
-
-Eduskunnan puhemies Jussi Halla-aho ei keskeytä eduskunnan kesälomaa. Halla-aho perustelee päätöstä muun muassa sillä, että eduskunnan kesäloman keskeyttäminen on hyvin harvinaista. Halla-ahon mielestä eduskunnan kokoontumisella ei ole kova kiire.
-
-Oppositiopuolueet vaativat aikaisemmin, että eduskunnan pitää lopettaa kesäloma kesken. Oppositio haluaa, että eduskunta käsittelee pian hallituksen toimintakykyä ja ministereiden vanhoja, rasistisia nettikirjoituksia.
-
-## RKP
-
-![SFP:s ordförande Anna-Maja Henriksson.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_93/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114304864b19e581c253/1689362079)
+![Metsäpalo](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114335864b3e073b1b61/1707369628)
 
 Avaa kuvien katselu
 
-RKP:n puheenjohtaja Anna-Maja Henriksson. Kuva: Lehtikuva
+Kanariansaarilla La Palman saarella on iso maastopalo. Kuva: Fernando Astasio / AOP
 
-Hallituspuolue RKP on huolissaan siitä, onko Suomen hallitus toimintakykyinen. RKP:n eduskuntaryhmä keskusteli perjantai-iltana pitkään hallituksen vaikeuksista ja perussuomalaisen valtiovarainministeri Riikka Purran vanhoista nettikirjoituksista. RKP vaatii, että kaikki puolueet ja hallituksen ministerit tuomitsevat rasismin.
+Espanjan Kanariansaarilla La Palman saarella on iso maastopalo. Ainakin 4 000 ihmistä on lähtenyt pois kotoa maastopalon tieltä. Maastopalo syttyi aikaisin lauantaina La Palman saaren pohjoisosassa.
 
-## Lintuinfluenssa
+Tulipalo on tuhonnut yli 4500 hehtaaria maata. Viranomaiset kertovat, että maastopalo leviää uusille alueille.
 
-![Lintuinfluenssaan kuolleen naurulokin syöty raato Lahden sataman aallonmurtajalla heinäkuussa 2023. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_245/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114077664ad01b7769f8/1689920018)
+Kanariansaarilla on ollut tällä viikolla tosi kuuma. Puntagornan alueella mitattiin tällä viikolla jopa 40,6 astetta.
 
-Avaa kuvien katselu
+## Helteet USA:ssa ja Euroopassa
 
-Lintuinfluenssaan kuollut naurulokki Lahden sataman aallonmurtajalla heinäkuussa 2023. Kuva: Markku Tuhkanen / Yle
-
-Lintujen virustauti lintuinfluenssa tappaa lokkeja Suomessa. Lintuja on kesän aikana kuollut paljon lintuinfluenssaan esimerkiksi Salossa, Lahdessa ja Hämeenlinnan Hauholla.
-
-Ruokavirasto kertoo, että luonnon linnuissa on nyt paljon lintuinfluenssaa. Myös muilla eläimillä on enemmän lintuinfluenssaa kuin aikaisemmin. Lintuinfluenssaa on esimerkiksi turkistarhojen eläimissä.
-
-Viranomainen kertoo, että lintuinfluenssa voi tarttua ihmiseen. Tähän ei kuitenkaan tällä hetkellä ole Suomessa suurta vaaraa.
-
-## Karhut
-
-![Ruskea karhu kävelee vihreällä niityllä.](https://img.img-cdn.yle.fi/crop_extract,w_4525,h_2545,x_1,y_336/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114311664b26af865c2d/1689414540)
+![Nainen viuhka kädessään kaupan edustalla esillä olevien hattujen luona.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1992,x_0,y_224/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114237564b01b8af2cf6/1689263135)
 
 Avaa kuvien katselu
 
-Karhu kuvattuna Itä-Suomessa 4.7.2023 Kuva: Olivier Morin / Lehtikuva
+Nainen vilvoitteli viuhkan avulla Ateenassa 13.7.2023. Kuva: Orestis Panagiotou / EPA
 
-Suomessa on paljon enemmän karhuja kuin vielä noin 20 vuotta sitten. Siksi ihminen ja karhu kohtaavat luonnossa useammin kuin aikaisemmin.
+Myös USA:ssa sää on kuuma.
 
-Luonnonvarakeskus kertoo, että nyt 2000-luvulla ihmisen ja karhun kohtaamisia on enemmän kuin ennen. Silti ihminen näkee karhun Suomessa vain harvoin. Karhu ei ole tappanut Suomessa yhtään ihmistä 2000-luvulla.
+Kalifornian Kuolemanlaaksossa lämpötila on sunnuntaina ehkä jopa 54 astetta. Koko maapallon mittaushistorian ennätys on 56,7 astetta. Lämpötila mitattiin Kuolemanlaaksossa vuonna 1913.
 
-Suomessa on ehkä vähän alle 2000 karhua.
+Euroopassa korkeita lämpötiloja ennustetaan alkuviikolla Italiaan, Espanjaan ja Kreikkaan.
+
+Sardinian saarella lämmintä voi olla ensi viikolla jopa 48 astetta. Italian viranomainen varoitti viikonloppuna kuumasta säästä 16 kaupunkia. Hellevaroitus annettiin esimerkiksi Roomaan, Bolognaan ja Firenzeen.
+
+## Kouvolan lento-onnettomuus
+
+![Lentokone syöksyy kierteellä kohti maata. Alhalla pienkoneita ja ihmisiä katsomassa taivaalle.](https://img.img-cdn.yle.fi/crop_extract,w_950,h_534,x_0,y_29/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114336764b3e447c0465/1689512284)
+
+Avaa kuvien katselu
+
+Lentäjä kuoli taitolentonäytöksessä Kouvolassa 16.7.23. Kuva: Sara Ylönen / yleisökuva Kuva: Sara Ylönen / yleisökuva
+
+Kouvolassa tapahtui lento-onnettomuus, jossa 1 ihminen kuoli. Taitolentokoneen lentäjä kuoli, kun kone putosi sunnuntaina iltapäivällä metsään lentokentän lähellä.
+
+Lentokentällä oli taitolentotapahtuma. Poliisi tutkii onnettomuuden syytä.
+
+## Häiriökäytös reittilennoilla
+
+![Lentokone pimeässä illassa, taustalla Rovaniemi-kyltti.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_740/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107340463ed41af0d8ac/1676493695)
+
+Avaa kuvien katselu
+
+Ihmiset käyttäytyvät lentokoneessa huonommin kuin aikaisemmin. Kuvituskuva. Kuva: Vesa-Pekka Hiltunen / Yle
+
+Ihmiset käyttäytyvät lentokoneessa huonommin kuin aikaisemmin.
+
+Viime vuonna reittilennoilla oli erilaista huonoa käytöstä 37 prosenttia enemmän kuin vuotta aikaisemmin. Tilastojen mukaan noin joka 600. lennolla oli joku välikohtaus.
+
+Ihmiset eivät noudattaneet sääntöjä. Lisäksi matkustajat käyttivät sanallista väkivaltaa ja olivat liian humalassa.
 
 ## Sää
 
-![Marjanpoimijoita pellolla. Kesäinen poutapäivä.](https://img.img-cdn.yle.fi/crop_extract,w_5389,h_3031,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135154649ad5061c9b1/1687869675)
+![Kuoppainen soratie, vettä sataa.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_80/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6952385efc60e31b4ed/1593598774)
 
 Avaa kuvien katselu
 
-Sää on poutainen. Kuvituskuva. Kuva: Jani Saikko / Yle
+Sää on paikoin sateinen. Kuvituskuva. Kuva: Petri Aaltonen / Yle
 
-Sää on sunnuntaina koko maassa poutainen. Pilvisyys vaihtelee selkeän ja puolipilvisen välillä.
+Sää on maanantaina paikoin sateinen. Maanantaina aamulla vettä sataa paikoin itärajan lähellä. Lapissa ja Pohjois-Pohjanmaalla tulee sadekuuroja.
 
-Yölämpötila on 10 ja 16 asteen välillä. Päivälämpötila vaihtelee 18 ja 27 asteen välillä. Sateessa voi olla viileämpää.
+Lämpötila on yöllä 9 ja 15 asteen välillä. Maanantaina päivällä lämpötila on enimmäkseen 20 ja 26 asteen välillä.
 
-Tuuli on enimmäkseen heikkoa tai kohtalaista.
+Myöhemmin ensi viikolla sää on viileämpää kuin nyt. Monin paikoin sataa myös vettä.

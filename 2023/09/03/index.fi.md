@@ -1,83 +1,81 @@
-# Radio | Selkouutiset | Torstai 31.8.2023
+# Radio. Selkouutiset. Sunnuntai 3.9.2023
 
-Rasismin vastainen tiedonanto. Holokaustin kieltäminen. Ruoan hinta. Vammaispalvelulaki. Nimipäivät. Sääennuste.
+Mielenosoitus rasismia vastaan. Rakennusalan ongelmat. Mikkelin piispa. Jänisten sairaus. Sää.
 
-## Rasismin vastainen tiedonanto
+## Mielenosoitus rasismia vastaan
 
-![Kokoomuksen puheenjohtaja, pääministeri Petteri Orpo kommentoi medialle tiedotustilaisuudessa, joka käsitteli tiedonantoa yhdenvertaisuuden, tasa-arvon ja syrjimättömyyden edistämiseksi, Helsingissä .](https://img.img-cdn.yle.fi/crop_extract,w_5110,h_2868,x_0,y_320/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116549964f07da7ba7c5/1693559342)
-
-Avaa kuvien katselu
-
-Pääministeri Petteri Orpo kertoi hallituksen tiedonannosta. Kuva: Markku Ulander / Lehtikuva
-
-Hallitus on hyväksynyt rasismin vastaisen tiedonannon.
-
-Se tarkoittaa, että hallitus on sopinut, miten hallitus torjuu rasismia.
-
-Pääministeri **Petteri Orpo** sanoo, että jokainen hallituksen ministeri irtisanoutuu rasismista ja jokainen ministeri sitoutuu työhön rasismia vastaan.
-
-## Holokaustin kieltäminen
-
-![flicka med ryggern mot kameran vid minnemärket över upproret i Treblinka 1943](https://img.img-cdn.yle.fi/crop_extract,w_4096,h_2304,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106480263d39c354f169/1674812563)
+![Mielenosoittajia Töölönlahden tapahtumapuistossa kuuntelemassa puheita ja musiikkia.](https://img.img-cdn.yle.fi/crop_extract,w_5496,h_3091,x_0,y_272/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116690064f49c4e400d1/1693752451)
 
 Avaa kuvien katselu
 
-Treblinkan keskitysleiri Puolassa oli yksi paikoista, joissa juutalaisia surmattiin. Kuva: EPA-EFE
+Mielenosoitus oli rauhallinen, vaikka mukana oli paljon ihmisiä. Kuva: Jaani Lampinen / Yle
 
-Hallitus on kertonut uusista rasismin vastaisista toimista. Hallitus käynnistää ohjelman, jolla kehitetään tasa-arvoa ja yhdenvertaisuutta kaikissa kouluissa ja oppilaitoksissa.
+Helsingissä on ollut iso mielenosoitus rasismia vastaan. Mielenosoitukseen osallistui noin 10 000 ihmistä.
 
-Tarkoitus on esimerkiksi saada maahanmuuttajaperheiden lapset osallistumaan varhaiskasvatukseen nykyistä enemmän.
+Mielenosoitus sujui rauhallisesti. Ohjelmassa oli puheita ja musiikkia.
 
-Hallitus haluaa myös estää vihatekoja juutalaisia, muslimeja, kristittyjä ja muita uskontoryhmiä vastaan. Tarkoitus on, että esimerkiksi holokaustin kieltämiseen puututaan lailla. Jotkut ihmiset kiistävät juutalaisten joukkotuhon eli holokaustin 2. maailmansodassa. Tarkoitus on, että jatkossa kiistäminen on laitonta.
+Monet mielenosoittajat olivat vihaisia Suomen uudelle hallitukselle. Suomessa on puhuttu paljon joidenkin perussuomalaisten ministerien vanhoista rasistisista kirjoituksista.
 
-## Ruoan hinta
+Mielenosoittajat sanoivat, että hallituksen pitää turvata kaikkien tasa-arvo. He muistuttivat, että ihmisoikeudet kuuluvat kaikille.
 
-![Asiakas kantaa ostoskoria ruokakaupassa.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-774563602b9bbe33527/1613471412)
+## Rakennusalan ongelmat
 
-Avaa kuvien katselu
-
-Ruoan hinta on kallistunut, mutta kallistuminen on hidastunut hieman. Kuva: Tiina Jutila / Yle
-
-Ruoan hinta on kallistunut vuodessa paljon. Heinäkuussa ruoka maksoi yli 8 prosenttia enemmän, kuin viime vuoden heinäkuussa.
-
-Kallistuminen on kuitenkin hidastunut. Näin kertoo kauppojen järjestö PTY.
-
-Koko alkuvuonna eli tammikuusta heinäkuuhun ruoan hinta nousi melkein 13 prosenttia viime vuoden tammi-heinäkuuhusta. Heinäkuussa ruoan hinta nousi siis vähän hitaammin kuin aiemmin tänä vuonna.
-
-## Vammaispalvelulaki
-
-![Pyörätuolin renkaat lähikuvassa ja siinä istuvan henkilön jalat.](https://img.img-cdn.yle.fi/crop_extract,w_2014,h_1134,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114358864b500a12c54a/1693482950)
+![Kaksi rakennusalan työntekijää pitävät taukoa työmaalla.](https://img.img-cdn.yle.fi/crop_extract,w_5987,h_3361,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1100831643ead140e6b5/1733984110)
 
 Avaa kuvien katselu
 
-Vammaispalvelulaki tulee ehkä voimaan vuoden 2025 alussa. Kuva: Katja Halinen
+Uusia rakennustyömaita avataan nyt vähän. Kuva: Henrietta Hassinen / Yle
 
-Hallitus haluaa lykätä lisää vammaispalvelulain voimaantuloa. Hallitus haluaa vielä muuttaa sitä, mitä asioita, henkilöitä tai organisaatioita laki koskee.
+Rakennusalalla menee huonosti. Uusien asuntojen rakentaminen on vähentynyt.
 
-Alun perin vammaispalvelulain piti tulla voimaan tänä syksynä. Hallitusneuvotteluissa sovittiin, että lakia lykätään 1 vuodella eli ensi vuoden syksyyn.
+Asuntoja rakennetaan vähemmän, koska myös asunnon ostajia on vähemmän kuin ennen.
 
-Nyt hallitus haluaa siirtää vammaispalvelulakia vielä vähän niin, että laki tulee voimaan vuoden 2025 alussa.
+Ihmisillä ei ole rahaa ostaa uutta asuntoa, koska monet hinnat ovat nousseet ja elämä on kallista. Myös asuntolaina tulee kalliiksi, koska korot ovat nousseet.
 
-## Nimipäivät
+Rakennusala arvioi, että konkurssit lisääntyvät ja monien rakennusfirmojen pitää lopettaa toiminta. Jos rakennusala hiljenee, koko Suomen talous kärsii.
 
-![Nimipäiväkalenteri](https://img.img-cdn.yle.fi/crop_extract,w_4128,h_2322,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-2026554ec8467137d2/1424786541)
+## Mikkelin uusi piispa
+
+![Piispa, entinen kirkkoherra Mari Parkkinen hymyilee Imatran kirkon edustalla. Taivas on pilvinen, taustalla puut vielä vihertää kesän lopulla..](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_4,y_595/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116422664edf5c8f09af/1693316839)
 
 Avaa kuvien katselu
 
-Kalenteriin otetaan joka vuosi uusia nimiä. Kalenterista jää pois nimiä, joita ei ole paljon käytössä.  Kuva: Yle/Anna Keränen
+Mikkelin piispa Mari Parkkinen. Kuva: Henni Jokinen / Yle
 
-Suomalaiseen kalenteriin tulee taas uusia nimipäiviä. Helsingin yliopisto kertoo, että vuoden 2025 kalenteriin tulee 33 uutta nimeä.
+Mari Parkkinen on vihitty piispan tehtävään Mikkelin tuomiokirkossa. Parkkinen on Mikkelin hiippakunnan uusi piispa.
 
-Osa nimistä on vanhoja nimiä, jotka palaavat kalenteriin tauon jälkeen. Tällaisia ovat esimerkiksi nimet Aamos, Linus ja Rolf.
+Piispa johtaa kirkon työtä hiippakunnan alueella. Suomen luterilaisella kirkolla on 9 piispaa, joista 3 on nyt naisia.
 
-Suomalaiseen kalenteriin tulee myös kansainvälisiä nimiä. Tällaisia ovat esimerkiksi Amelia, Jare, Jasu, Kevin ja Neo.
+Lisäksi Suomen luterilaisella kirkolla on arkkipiispa, joka johtaa koko kirkon toimintaa.
+
+## Vakava sairaus jäniksillä
+
+![Kuollut jäniksen poikanen makaa maassa portaiden vieressä.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98460962d90637e22d8/1658390151)
+
+Avaa kuvien katselu
+
+Kuollut jäniksen poikanen. Kuva: Risto Koskinen / Yle
+
+Suomessa on kuollut jäniksiä kokkidioosi-sairauteen. Kokkidioosi ei tartu ihmisiin.
+
+Sairaus tarttuu eläimiin ulosteen kautta. Kokkidioosi tappaa aina jäniksen, joka saa tartunnan.
+
+Kokkidioosi on tappanut jäniksiä tänä kesänä erityisesti Kuopion seudulla.
+
+Ennen kuin jänis kuolee, se huutaa, makaa maassa ja heiluttaa jalkoja. Monet ihmiset ovat järkyttyneet, kun he ovat nähneet jäniksen kuoleman.
+
+Soitto hätäkeskukseen on paras ratkaisu, jos ihminen näkee sairaan jäniksen, joka kärsii. Kuolleen jäniksen voi panna kahteen muovipussiin ja sitten sekajätteeseen.
 
 ## Sää
 
-![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116574164f0a60854874/1693492780)
+![Alkuviikon sääkartat 4.9. - 6.9. Viikon edetessä sää poutaantuu koko maassa. ](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116687664f483b43be7f/1693746143)
 
 Avaa kuvien katselu
 
-Perjantai on melko lämmin koko maassa.
+Kuva: Matti Huutonen / Yle
 
-Perjantaina Lapissa sataa yleisesti vettä. Muualla tulee paikoin sadekuuroja. Lämpötila on noin 20 astetta, Lapissa on viileämpää.
+Uusi viikko alkaa Etelä-Suomessa poutaisena, eli vesisateet loppuvat.
+
+Pohjois-Suomessa saadaan sateita vielä maanantaina, ja tiistaina sateita tulee maan keskiosissa. Sen jälkeen koko maassa on poutaa, ja myös aurinko paistaa suuressa osassa maata.
+
+Lämpötila on alkuviikon aikana 15 ja 20 asteen välillä. Lapissa on vähän kylmempää.

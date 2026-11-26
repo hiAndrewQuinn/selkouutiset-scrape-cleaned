@@ -1,67 +1,81 @@
-# Torstai 5.10.2017 (radio)
+# Perjantai 6.10.2017 (radio)
 
-SDP on suosituin oppositiopuolue, kertoo Ylen uusi kannatusmittaus. Syrjäytyminen on tärkein Suomen sisäisen turvallisuuden haaste. Nobelin kirjallisuuspalkinnon on voittanut brittiläinen Kazuo Ishiguro. Uusimmat terveiset 100-vuotiaalle Suomelle tulevat Silicon Valleyn eli Piilaakson Suomi-koulusta, USA:sta.
+Nobelin rauhanpalkinnon saa ydinaseiden vastainen kampanja ICAN. ICAN:in Suomen-koordinaattori Kati Juva on tyytyväinen Nobel-komitean päätökseen. Talven laskettelukausi on avattu Rukalla. Vuori on romahtamassa Norjassa. Luksian opiskelijat kertovat kuulumisia.
 
-## SDP nousi opposition suurimmaksi puolueeksi
+## ICAN saa Nobelin rauhanpalkinnon
 
-![Puoluekannatusarviot](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9865957)
-
-Avaa kuvien katselu
-
-Kuva: Yle Uutisgrafiikka
-
-SDP on suosituin oppositiopuolue, kertoo Ylen uusi kannatusmittaus. Sen teki Taloustutkimus. SDP nousi samalla oppositiopuolue vihreiden ohi. Kyselyssä SDP:tä kannatti yli 17 prosenttia vastaajista. Nousua on melkein 2 prosenttiyksikköä. Vihreitä kannatti yli 16 prosenttia.
-
-Keskustan suosio laski alle 16 prosentin. Kokoomuksen kannatus on melkein 22 prosenttia.
-
-Kokoomus ja keskusta ovat hallituspuolueita. Taloustutkimuksen toimitusjohtaja Jari Pajunen sanoo, että suuri ero kannatuksessa voi haitata hallituksen työskentelyä.
-
-Kyselyyn vastasi melkein 2000 ihmistä.
-
-## Syrjäytyminen aiheuttaa rikollisuutta
-
-![kihlakunnansyyttäjä Eija Velitski](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9317282)
+![Joukko aktivisteja seisoo tukikohdan portilla pitäen käsissään punaista lakanaa, jossa lukee englanniksi: Kieltäkää ydinaseet.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9869652)
 
 Avaa kuvien katselu
 
-Kihlakunnansyyttäjä Eija Velitski näkee omassa työssä, kuinka syrjäytyminen aiheuttaa rikollisuutta. Kuva: Juha Kivioja / Yle
+ICAN-järjestön aktivistit osoittivat mieltään Yhdysvaltain sotilastukikohdan edessä Alice Springsissä Australiassa. Kuva: Tim Wright / ICAN / EPA-EFE
 
-Syrjäytyminen on tärkein Suomen sisäisen turvallisuuden haaste. Näin arvioi hallituksen tuore turvallisuusstrategia eli suunnitelma. Rikostilastoissa on paljon pienituloisia, työttömiä ja velkaisia nuoria aikuisia. Alle viisi (5) prosenttia väestöstä tekee yli puolet kaikista rikoksista.
+Nobelin rauhanpalkinnon saa ydinaseiden vastainen kampanja ICAN eli Ican. Saajan nimi julkistettiin Oslossa, Norjassa.
 
-Syrjäytymistä estää parhaiten työnteko, suunnitelmassa sanotaan. Hyvinvointi kuitenkin jakaantuu epätasaisesti, ja monet syrjäytyvät monilla eri tavoilla.
+ICAN on kansalaisjärjestöjen liittouma. Sen tavoite on, että maailman valtiot luopuvat ydinaseista. ICAN oli mukana ajamassa ydinaseiden kieltosopimusta. Se hyväksyttiin YK:ssa eli Yhdistyneissä kansakunnissa kesällä.
 
-Rikoksentorjuntaneuvoston puheenjohtaja Eija Velitski sanoo, että rikollisuutta ehkäistään Suomessa huonosti. Velitski ehdottaa, että yksi viranomainen alkaa ehkäistä rikoksia ja syrjäytymistä. Se voi olla virasto tai laitos. Muiden viranomaisten tehtävä on hoitaa oma alue ja olla yhteistyössä muiden kanssa, Velitski sanoo.
+122 maata on hyväksynyt sopimuksen. Sopimuksessa ei kuitenkaan ole mukana yhtään ydinasevaltiota. Myös monet muut maat, esimerkiksi Suomi ja Norja, eivät aio liittyä sopimukseen.
 
-Sisäisen turvallisuuden suunnitelmaa teki yli sata (100) asiantuntijaa.
+Nobelin rauhanpalkinnon saajaksi oli ehdolla yli 300 henkilöä tai organisaatiota.
 
-## Kirjallisuuden Nobelin saa Kazuo Ishiguro
+## Suomessa iloitaan palkinnosta
 
-![Kazuo Ishiguro](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9867548)
-
-Avaa kuvien katselu
-
-Ishiguro ei ollut Nobel-palkinnon ennakkosuosikki. Kuva: WENN / AOP
-
-Nobelin kirjallisuuspalkinnon on voittanut brittiläinen Kazuo Ishiguro.
-
-Ishiguro syntyi Japanissa vuonna 1954, mutta hän kasvoi Englannissa. Ishigurolta on suomennettu seitsemän (7) teosta.
-
-Hänet tunnetaan parhaiten kirjasta, joka on käännetty suomeksi nimellä Pitkän päivän ilta. Siitä on tehty samanniminen elokuva.
-
-## Terveisiä Piilaaksosta
-
-![Poika hymyilee.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9866755)
+![Kati Juva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7759543)
 
 Avaa kuvien katselu
 
-Terveisiä Piilaaksosta! Kuva: Yle
+Kati Juva on ICAN-verkoston Suomen-osaston koordinaattori. Kuva: Yle
 
-Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa.
+ICAN-kampanjan Suomen-verkoston koordinaattori Kati Juva on hyvin tyytyväinen Nobel-komitean päätökseen.
 
-Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
+Juva kertoo, että tietoa osattiin hieman odottaa, koska ydinaseet kieltävä sopimus on ollut YK:n käsittelyssä.
 
-Uusimmat terveiset tulevat Silicon Valleyn eli Piilaakson Suomi-koulusta, USA:sta.
+Kati Juva on kuitenkin pettynyt siihen, että Suomi ei aio allekirjoittaa sopimusta.
 
-Silicon Valleyn Suomi-koulun terveiset voi käydä katsomassa selkouutisten internet-sivuilla osoitteessa yle.fi/selkouutiset, osassa Suomi 100, ja myös selkouutisten Facebook-sivulla.
+## Ruka avasi laskettelukauden
 
-**Silicon Valleyn Suomi-koulun terveiset**
+![Rukan laskettelukausi avattiin 6.10.2017](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9869910)
+
+Avaa kuvien katselu
+
+Rukan kausi on avattu, ja se kestää ensi vuoden äitienpäivään saakka. Kuva: Ensio Karjalainen / Yle
+
+Talven laskettelukausi on alkanut Suomessa. Kuusamon Ruka avasi rinteen kauden ensimmäisenä.
+
+Rinne voitiin avata, koska Rukalla oli varastossa viime talven lunta. Lunta levitettiin Saaruan rinteeseen yli 50 000 kuutiota.
+
+Myös Kittilän Levillä on varastoitu lunta kesän ajan. Sitä tarvitaan alppilajien maailmancupia varten marraskuussa.
+
+Muut rinnekeskukset eivät ole varastoineet lunta laskettelua varten.
+
+## Vuori on romahtamassa Norjassa
+
+![Valokuva Mannen-vuoresta lokakuussa 2014.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8317249)
+
+Avaa kuvien katselu
+
+Mannenvuori vuonna 2014. Kuva: Terje Pedersen / EPA
+
+Länsi-Norjassa vuorenrinne on romahtamassa Romsdalenin laaksoon. Mannenvuoresta on irtoamassa yli tuhat metriä korkea lohkare.
+
+Mannenvuorta on seurattu jo vuodesta 2009 romahdusvaaran takia. Viranomaiset yrittävät nopeuttaa romahdusta ja ovat pumpanneet vettä vuoren halkeamiin. Yön aikana halkeamat levenivät.
+
+Vaara-alueella asuvat ihmiset evakuoitiin torstai-iltana. Myös läheinen rautatie on suljettu romahtamisvaaran takia.
+
+## Vuosi kotoutumiskoulutuksessa
+
+![Kuva Luksian videoblogisarjan lopetusjaksosta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9867626)
+
+Avaa kuvien katselu
+
+Kuva: Luksia
+
+Luksian opiskelijat aloittivat kotoutumiskoulutuksen noin vuosi sitten.
+
+He tekivät vuoden aikana videoblogia, joka kertoi opiskelijoiden opiskelusta ja elämästä. Koulutus loppui kesäkuussa.
+
+Videoblogin viimeisessä osassa saamme tietää, mitä opiskelijoille kuuluu nyt.
+
+Videoblogin voi katsoa selkouutisten Facebook-sivulla tai selkouutisten internet-sivulla osoitteessa yle.fi/selkouutiset.
+
+**Katso videoblogin viimeinen osa**

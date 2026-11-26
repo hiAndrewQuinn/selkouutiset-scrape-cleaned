@@ -1,65 +1,59 @@
-# Perjantai 3.11.2017 (radio)
+# Lauantai 4.11.2017 (radio)
 
-Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä. Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Lauantaina vietetään pyhäinpäivää.
+Rikosselvitykset vanhustyöhön? Suuri sotaharjoitus. USA:n puolustusministeri Suomeen. Kevin Spaceyn seksisyytökset.
 
-## Ihmisten salakuljetus
+## Vanhustyöntekijän rikosrekisteri halutaan selvittää
 
-![Rajavartija passi raja passin tarkistus raja-asema Imatran raja-asema](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7732162)
-
-Avaa kuvien katselu
-
-Rajavartiolaitos on tutkinut ihmisten salakuljetusta. Kuva: Yle
-
-Rikollisjärjestö on tuonut laittomasti ihmisiä Afrikasta Suomeen ja muualle Eurooppaan. Ihmisiä tuotiin Suomeen esimerkiksi Venäjän kautta.
-
-Viranomaiset epäilevät, että rikollisjärjestön toiminta jatkui monta vuotta. Suomeen tuotiin 15 ihmistä ja muualle Eurooppaan yli 150 ihmistä.
-
-Suomen viranomaisilla oli kesällä iso operaatio rikollisjärjestöä vastaan. Operaation aikana otettiin kiinni venäläinen mies.
-
-Asiaa tutkitaan nyt syyttäjänvirastossa.
-
-## Emmauksen työrinki
-
-![Hyväntekeväisyyskirpputoreille lahjoitettu tavara on entistä huonokuntoisempaa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8800539)
+![Vanha nainen pyörätuolissa lähellä sänkyä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9907936)
 
 Avaa kuvien katselu
 
-Emmaus-järjestö auttaa ihmisiä saamaan työtä Ahvenanmaalla. Kuva: Jaani Lampinen / Yle 
+Vanhusjärjestöt haluavat parantaa vanhusten turvallisuutta ja estää rikollisten pääsyn töihin kotihoitoon.  Kuva: Pixabay
 
-Ruotsinkielisellä Ahvenanmaalla Emmaus-järjestö auttaa ihmisiä, jotka tarvitsevat työtä.
+Suomessa mietitään, miten vanhusten turvallisuutta kotona voidaan parantaa. Suomessa vanhat ihmiset asuvat jo usein omassa kodissa. He saavat kotiin apua kotipalvelun työntekijöiltä.
 
-Emmaus on auttanut jo monia, esimerkiksi romanialaisia ja bulgarialaisia. Järjestöllä on työrinki, jonka kautta EU-kansalaiset voivat saada työtä.
+Vanhusjärjestöt haluavat nyt, että Suomessa tarkastetaan, ovatko kotipalvelun työntekijät tehneet rikoksia, eli onko heillä rikosrekisteri. Järjestöjen mielestä se parantaa vanhusten turvallisuutta. Ne haluavat, että rikolliset eivät pääse vanhusten koteihin. 
 
-Ahvenanmaalaisten on helppoa tarjota työtä, koska Emmauksen työrinki hoitaa työnantajan velvollisuudet, esimerkiksi sosiaalimaksut.
+Nykyään rikosrekisteri tarkastetaan Suomessa niiltä, jotka tekevät työtä lasten kanssa.
 
-Romanialainen Amdreea Docuta on saanut siivoustyötä työringin kautta. Nyt Docuta opettelee ruotsia, koska hän haluaa opiskella keittiöapulaiseksi.
+## Suomeen suuri sotaharjoitus
 
-Emmauksen työrinki on toiminut 2 vuotta, ja se on auttanut melkein 50 ihmistä.
-
-## Nimien taivutus
-
-![Valtiovarainministeri Petteri Orpo Ylen haastattelussa 27.06.2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9693014)
+![Ruotsalaisia sotilaita harjoittelemassa Skovdessa torstaina. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9835965)
 
 Avaa kuvien katselu
 
-Ministeri Orvon vai Orpon hymy? Kuva: Derrick Frilund / Yle
+Ruotsissa järjestettiin tänä vuonna Aurora 17-sotaharjoitus. Suomen harjoitus aikoo olla ainakin yhtä suuri.  Kuva: Bjorn Larsson Rosvall / TT / EPA-EFE
 
-Suomalaisten on joskus vaikea tietää, mikä on oikea tapa taivuttaa jotakin nimeä. Tavoite on, että nimiä taivutetaan samalla tavalla kuin muita sanoja. Silti jotkut taivuttavat esimerkiksi etunimen Satu muotoon "Sadun" ja toiset muotoon "Satun".
+Suomi aikoo järjestää suuren kansainvälisen sotaharjoituksen. Suomen puolustusministeri Jussi Niinistö sanoo, että Suomen täytyy harjoitella, miten muut maat voivat auttaa Suomea, jos tulee esimerkiksi sota.
 
-Asiantuntija Ulla Onkamo sanoo, että molemmat muodot ovat oikein, kun kysymys on nimestä.
+Ministeri Niinistö toivoo, että Suomen harjoitukseen tulee mukaan monia maita. Kerrotaan, että mukaan tulevat ainakin Ruotsi ja USA. Arvioidaan, että suuri sotaharjoitus voidaan järjestää esimerkiksi vuonna 2020.
 
-Onkamon mielestä on kohteliasta kuulla, mitä nimen omistaja ajattelee. Esimerkiksi ministeri Petteri Orpo toivoo, että lehdet kirjoittavat "Orpon", eivät "Orvon".  Toivetta noudatetaan ja olen siitä tyytyväinen, ministeri Orpo sanoo.
+Ruotsissa oli tänä vuonna suuri sotaharjoitus, jonka nimi oli Aurora 17. Suomen harjoituksesta yritetään tehdä ainakin yhtä suuri kuin Ruotsin harjoituksesta.
 
-## Pyhäinpäivä
+## USA:n puolustusministeri Suomeen
 
-![Hautakynttilä haudalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8417441)
+![James Mattis](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9916797)
 
 Avaa kuvien katselu
 
-Pyhäinpäivänä haudoille sytytetään kynttilöitä. Kuva: Nina Keski-Korpela / Yle
+Yhdysvaltain puolustusministeri James Mattis.  Kuva: Christian Bruna / EPA
 
-Lauantaina vietetään pyhäinpäivää. Pyhäinpäivänä suomalaiset muistavat kuolleita sukulaisia ja ystäviä. Siksi haudoille viedään kynttilöitä.
+USA:n puolustusministeri tulee ensi viikolla Suomeen. Puolustusministeri James Mattis tulee Suomeen kokoukseen, jossa puhutaan esimerkiksi Pohjois-Euroopan turvallisuudesta.
 
-Pyhäinpäivä aiheuttaa muutoksia liikenteeseen. Esimerkiksi Helsingin seudulla lähijunat, bussit ja raitiovaunut noudattavat lauantaina sunnuntaiaikatauluja.
+Kokoukseen osallistuu monta maata. Mukana ovat Pohjoismaat, Baltian maat, Hollanti, Britannia, Puola ja Saksa. Puolustusministeri Mattis tapaa myös Suomen presidentin Sauli Niinistön.
 
-VR:n kaukojunat kulkevat pyhäinpäivänä normaalisti, mutta kaukobussien aikatauluissa on muutoksia. Kaukobussien lähtöajat kannattaa tarkistaa Matkahuollon nettisivulta.
+James Mattis on 67 vuotta vanha. Hän on entinen kenraali. Mattis on ollut sodassa esimerkiksi Irakissa ja Afganistanissa.
+
+## Kevin Spacey sai seksisyytöksiä
+
+![Kevin Spacey](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9909660)
+
+Avaa kuvien katselu
+
+Kevin Spacey on esittänyt USA:n presidenttiä House of Cards-sarjassa.  Kuva: AOP
+
+Maailmalla puhutaan nyt paljon kuuluisasta amerikkalaisesta näyttelijästä. Internetin suuri viihdeyhtiö Netflix ei halua enää tehdä töitä näyttelijä Kevin Spaceyn kanssa.
+
+Spacey on ollut suuri tähti Netflixin presidenttisarjassa House of Cards. Moni sarjan miestyöntekijä sanoo, että Spacey on häirinnyt heitä seksuaalisesti.
+
+Seksisyytöksiä on myös lisää. Esimerkiksi Britannian poliisi tutkii seksiväitteitä. Väitetään myös, että 30 vuotta sitten Spacey yritti saada juhlissa seksiä 14-vuotiaalta pojalta.

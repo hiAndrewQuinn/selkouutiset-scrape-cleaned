@@ -1,79 +1,73 @@
-# Radio Selkouutiset lauantai 13.5.2023
+# Radio Selkouutiset sunnuntai 14.5.2023
 
-Euroviisut. Hallitusneuvottelut. Turkin vaalit. Äitienpäivä. Sää.
+Euroviisut. Onnitteluja Käärijälle. Äitienpäivä. Sää.
 
-## Euroviisujen finaali
+## Euroviisut
 
-![Käärijä Euroviisu-lavalla yhdessä tanssijoiden kanssa.](https://img.img-cdn.yle.fi/crop_extract,w_2000,h_1125,x_0,y_177/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1112615645df29f34f4c/1683989291)
-
-Avaa kuvien katselu
-
-Pian nähdään, voittaako Käärijä Euroviisut. Kuva: Sarah Louise Bennett / EBU 
-
-Euroviisujen laulukilpailun finaali on tänään lauantaina. Finaali alkaa illalla Englannin Liverpoolissa.
-
-Euroviisut kiinnostavat suomalaisia tänä vuonna erityisen paljon, koska Suomi on yksi kilpailun ennakkosuosikki. Ennustetaan, että Suomen edustaja Käärijä voi jopa voittaa Euroviisut.
-
-Käärijä esittää Euroviisuissa laulun Cha cha cha. Selkokeskus on tehnyt laulun tekstistä myös selkoversion. Se löytyy Selkokeskuksen Facebook-sivulta.
-
-Euroviisujen finaali alkaa tänään lauantaina kello 22. Finaalia voi seurata Yle Areenasta, TV1:stä ja Radio Suomesta.
-
-## Hallitusneuvottelut
-
-![Hallitusneuvottelut jatkuivat 12. toukokuuta 2023 Helsingin Säätytalolla.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_403/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1112865645e2a8e73aff/1683893243)
+![Käärijä haastateltavana.](https://img.img-cdn.yle.fi/crop_extract,w_5042,h_2835,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11134726460644619ce1/1684038765)
 
 Avaa kuvien katselu
 
-Puoluejohtajat ovat neuvotelleet uudesta hallituksesta nyt 2 viikkoa. Kuva: Silja Viitala / Yle
+Käärijä tapasi toimittajia Euroviisujen finaalin jälkeen. Kuva: Vesa Moilanen / Lehtikuva
 
-Hallitusneuvotteluissa mennään eteenpäin. Näin arvioi kokoomuksen puheenjohtaja Petteri Orpo, joka johtaa hallitusneuvotteluja.
+Suomi on tullut toiseksi Euroviisujen laulukilpailussa. Kilpailun voittaja on Ruotsi.
 
-Hallitusneuvottelut ovat jatkuneet nyt 2 viikkoa. Uuden hallituksen kokoamista yrittävät kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
+Suomen ja Ruotsin kilpailu voitosta oli tiukka. Molemmat maat saivat yli 500 pistettä, mutta Ruotsi noin 50 pistettä enemmän kuin Suomi.
 
-Orpo sanoo, että hallitusneuvotteluissa vaikeita asioita ovat talous ja maahanmuutto. Esimerkiksi verokysymyksiä ei ole vielä ratkaistu.
+Euroviisujen finaalissa kilpailijat saivat pisteitä eri maiden ammattilaisraadeilta ja yleisöltä. Ruotsin edustaja Loreen sai eniten ääniä ammattilaisraadeilta, mutta Suomen edustaja Käärijä sai eniten ääniä yleisöltä.
 
-## Turkin vaalit
+18 maata antoi Suomelle parhaat yleisöpisteet eli 12 pistettä. Ruotsi ei saanut yhdeltäkään maalta 12 yleisöpistettä.
 
-![Kemal Kilicdaroglu tekee käsillään sydänmerkin.](https://img.img-cdn.yle.fi/crop_extract,w_3274,h_1841,x_7,y_110/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1112431645dc505a06e8/1685254061)
+Ruotsi kuitenkin voitti kilpailun, kun ammattilaisraatien ja yleisön pisteet laskettiin yhteen. Siksi Suomen Käärijä oli finaalin jälkeen pettynyt.
+
+## Onnitteluja Käärijälle
+
+![Ihmiset kannattelevat Käärijä-banderollia.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_674/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11135506460f94b10616/1684076973)
 
 Avaa kuvien katselu
 
-Kemal Kılıçdaroğlu yrittää voittaa Recep Tayyip Erdoğanin Turkin presidentinvaaleissa. Kuva: Yasin Akgul / AFP
+Onnittelijat odottivat sunnuntaina Käärijää kotiin Euroviisuista. Kuva: Nina Svahn / Yle
 
-Turkissa on huomenna sunnuntaina presidentinvaalit.
+Käärijän toinen sija Euroviisujen laulukilpailussa on hyvä saavutus. Suomi on onnistunut Euroviisuissa paremmin vain kerran, kun Lordi voitti Euroviisut vuonna 2006.
 
-On mahdollista, että Turkin nykyinen presidentti Recep Tayyip Erdoğan häviää vaalit. Monet turkkilaiset ovat kyllästyneet siihen, että Erdoğan on ottanut kaiken vallan itselleen.
+Siksi Käärijä on saanut paljon onnitteluja myös Suomen poliittisilta johtajilta. Myös presidentti Sauli Niinistö ja rouva Jenni Haukio ovat onnitelleet Käärijää.
 
-Opposition ehdokas Turkin presidentinvaaleissa on Kemal Kılıçdaroğlu. Hän lupaa turkkilaisille lisää vapautta.
-
-Kılıçdaroğlu sanoo, että häntä saa kritisoida vapaasti. Erdoğanin aikana monet turkkilaiset ovat joutuneet vankilaan, koska ovat loukanneet Erdoğanin kunniaa.
+Käärijän kotikaupunki Vantaa onnittelee Käärijää seinämaalauksella. Käärijästä tehdään Vantaalle iso seinämaalaus eli muraali. Käärijä on jo osa Euroviisujen historiaa.
 
 ## Äitienpäivä
 
-![Kunniamerkkejä.](https://img.img-cdn.yle.fi/crop_extract,w_1066,h_600,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-104024063847bcf399fc/1683989751)
+![Sauli Niinistö yhteiskuvassa äitien kanssa äitienpäiväjuhlassa.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_422/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11135286460dadc7f819/1684069426)
 
 Avaa kuvien katselu
 
-Tänä vuonna 39 äitiä saa kunniamerkin presidentiltä. Kuva: Mannerheims barnskyddsförbund
+Presidentti palkitsi äitejä äitienpäiväjuhlassa Helsingissä. Kuva: Markku Ulander / Lehtikuva
 
-Suomessa vietetään sunnuntaina äitienpäivää.
+Sunnuntaina on vietetty äitienpäivää. Äitienpäivää on vietetty perheissä ja virallisissa juhlissa.
 
-Presidentti Sauli Niinistö on myöntänyt kunniamerkkejä äideille myös tänä vuonna. Yhteensä 39 äitiä saa kunniamerkin presidentiltä juhlassa, joka järjestetään äitienpäivänä.
+Valtakunnallinen äitienpäiväjuhla järjestettiin Helsingissä. Presidentti Sauli Niinistö jakoi juhlassa kunniamerkit 39 äidille.
 
-Presidentti palkitsee äitejä, jotka ovat tehneet tärkeää kasvatustyötä. Tänä vuonna vanhin kunniamerkin saaja on 98-vuotias ja nuorin 40-vuotias.
+Presidentti palkitsi erilaisia äitejä. Joukossa on esimerkiksi yksinhuoltajia ja adoptioäitejä sekä erityislasten äitejä eri puolilta Suomea.
 
-Äitejä on palkittu vuodesta 1946 lähtien.
+Presidentti antoi kunniamerkin esimerkiksi 81-vuotiaalle Kyllikki Tanhualle.
+
+![Kyllikki Tanhua saa äitienpäivänä 2023 valkoisen ruusun 1. luokan mitalin. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_132/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1110872645a3a9235956/1683634926)
+
+Avaa kuvien katselu
+
+Kyllikki Tanhua. Kuva: Linda Tammela / Yle
+
+Tanhua on äiti ja isoäiti. Hän on ollut myös anopin ja sairaan aviomiehen omaishoitaja.
+
+Työssä Tanhua oli alakoulun siivooja ja turvallinen aikuinen monelle koulun oppilaalle. Nykyään Tanhua on mukana oman kotikunnan Ivalon vanhusneuvostossa.
+
+Kyllikki Tanhuan haastattelun voi lukea osoitteessa yle.fi.
 
 ## Sää
 
-![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1113182645fa559926c9/1683989883)
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11135536460fcdd6c9dd/1684077818)
 
 Avaa kuvien katselu
 
-Äitienpäivää vietetään lämpimässä ja aurinkoisessa säässä.
+Aurinkoinen ja lämmin sää jatkuu maanantaina suuressa osassa maata. Lämpötila on noin 20 astetta. Idässä voi sataa vettä.
 
-Lämpötila on etelässä vähän yli 20 astetta, pohjoisessa vähän alle 20 astetta.
-
-Yöllä on kuitenkin kylmää koko maassa. Lämpötila laskee yöllä myös etelässä noin 5 asteeseen.
-
-Sää on poutainen suurimmassa osassa maata. Vesisadetta saadaan vasta ensi viikon puolivälissä.
+Maanantain jälkeen sää muuttuu sateiseksi. Sateita tulee lännestä ja etelästä. Sateessa sää myös kylmenee.

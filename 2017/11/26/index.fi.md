@@ -1,59 +1,71 @@
-# Perjantai 24.11.2017 (radio)
+# Sunnuntai 26.11.2017 (radio)
 
-Egyptissä suuri tuho moskeijassa. Lastensuojelun laatu huolestuttaa. Black Friday. Kaamos alkoi Nuorgamissa.
+Tulivuori purkautuu Balilla. Kaksi kuoli auto-onnettomuudessa. Joulukadut avautuvat. Kurja kohtelu juuston taustalla. Myrkyllinen levä leviää.
 
-## Egyptissä verinen isku moskeijaan
+## Tulivuori purkautuu Balilla
 
-![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9947304)
-
-Avaa kuvien katselu
-
-Hyökkäys tehtiin Pohjois-Egyptissä lähellä Arishin kaupunkia. 
-
-Egyptissä on tehty paha isku moskeijaan. Egyptin televisio kertoi illalla, että hyökkäyksessä on kuollut ainakin 235 ihmistä. Kuolleita voi olla enemmän. Lisäksi ainakin 130 ihmistä on haavoittunut.
-
-Hyökkäys tehtiin Siinailla, Arishin kaupungin lähellä Välimeren rannikolla. Hyökkäys tehtiin, kun moskeijassa oli perjantairukous. Perjantai on muslimien pyhäpäivä ja sen takia moskeijassa oli paljon ihmisiä.
-
-Kerrotaan, että hyökkääjät räjäyttivät moskeijassa pommin. Lisäksi he ampuivat ihmisiä.
-
-Siinailla on ollut viime aikoina paljon väkivaltaa. Yleensä hyökkäyksissä on surmattu sotilaita ja poliiseja.
-
-## Lastensuojelusta löytyi suuria ongelmia
-
-![Nukke](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9946333)
+![Pojat pelasivat jalkapalloa Agung-tulivuoren syöstessä tuhkaa Balilla 26. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9948921)
 
 Avaa kuvien katselu
 
-Viranomaiset ovat huolissan lastensuojelusta Suomessa.  Kuva: Viivi Sihvonen / Yle
+Pojat pelasivat jalkapalloa ja Agung-tulivuori syöksi tuhkaa Balilla 26. marraskuuta. Kuva: Made Nagi / EPA
 
-Suomessa on vaikea saada hyviä työntekijöitä lastensuojeluun. Yle Uutiset teki lastensuojelusta kyselyn. Kyselyssä selvisi, että monissa kunnissa lastensuojelu on huonontunut, koska töihin ei saada päteviä työntekijöitä eli ammattilaisia.
+Agung-niminen tulivuori on päästänyt sarjan purkauksia. Tulivuori sijaitsee Indonesiassa Balin saarella. Tulivuori on syössyt tuhkaa jopa neljän kilometrin korkeuteen. Balin saarella on paljon suomalaisia.
 
-Ammattilaisten löytäminen on asiantuntijoiden mukaan vaikeaa tosi monessa kunnassa. Työntekijöitä on niin vähän, että yksi työntekijä voi joutua hoitamaan 140 lapsen asioita. Kun työntekijöitä ei ole tarpeeksi, monien asioiden hoitaminen on hidasta ja virheitä voi tulla paljon.
+Indonesian viranomaiset nostivat sunnuntaina tulivuoria koskevan varoituksen korkeimmalle tasolle, joka on niin sanottu punainen taso.
 
-## Joulukauppa alkoi Black Fridaylla
+Tulivuoren edellinen iso purkaus tapahtui vuonna 1963. Silloin purkauksessa kuoli yli tuhat ihmistä.
 
-![Mainos.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9945096)
+## Kuljettaja ajoi puuhun ja kaksi ihmistä kuoli
 
-Avaa kuvien katselu
-
-Black Friday on USA:sta Suomeen tullut vilkas ostospäivä.  Kuva: Heli Kaski / Yle
-
-Tänään on ollut kaupoissa Black Friday eli musta perjantai. Black Friday on kaupoille tärkeä ostospäivä. Black Friday on tullut Suomeen USA:sta. Kauppiaiden mukaan ihmiset alkavat tehdä jouluostoksia, kun Black Friday tulee.
-
-Ennen sanottiin, että jouluostosten tekeminen alkaa joulukuun alussa. Silloin suomalaiset saavat valtiolta veronpalautuksia. Valtio maksaa ihmisille takaisin verorahaa, kun veroa on otettu palkasta liikaa. Se on veronpalautus.
-
-## Kaamos alkoi pohjoisessa
-
-![Utsjoen kirkkotuvat kylmänä talvi-iltana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9946419)
+![puu katkennut kolarin voimasta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9948967)
 
 Avaa kuvien katselu
 
-Kaamos on hämärä mutta ei pimeä.  Kuva: Esko Jämsä / AOP
+Auto osui puuhun ja puu katkesi. Kuva: Lore Korpelainen / Yle
 
-Pohjois-Lapissa Nuorgamissa on alkanut kaamos. Kaamos tarkoittaa, että aurinko ei nouse taivaalle. Päivä ei kuitenkaan ole aivan pimeä vaan hämärä. Taivaalla voi nähdä revontulia ja lumi tuo valoa luontoon.
+Kaksi ihmistä on kuollut liikenneonnettomuudessa Porissa. Poliisin mukaan henkilöauto suistui tieltä lauantai-iltana. Auto ajoi liian lujaa, kun se suistui tieltä ja osui puuhun. Auto katkesi kahtia.
 
-Kaamosaika tulee joka vuosi Suomen pohjoisosiin. Maapallo on talvella kallistunut niin, että aurinko ei pääse paistamaaan pohjoisille alueille päivällä. Huomenna kaamos alkaa Utsjoella.
+Poliisin mukaan autossa olleet kaksi matkustajaa kuolivat. Kuljettajaksi epälity mies oli juonut alkoholia. Hän ei loukkaantunut onnettomuudessa vakavasti. Häntä epäillään rikoksista.
 
-Kaamos on tosi voimakas juuri ennen joulua. Sitten päivä alkaa pidentyä ja valo lisääntyy koko Suomessa.
+## Joulukadut avautuvat
 
-*Korjattu viimeiseen lauseseen, että päivä alkaa pidentyä eikä lyhentyä.*
+![Joulukadun avajaiset.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8473933)
+
+Avaa kuvien katselu
+
+Joulukadun avajaiset Helsingissä vuonna 2015. Kuva: Mikko Ahmajärvi / Yle
+
+Joulukatuja on avattu sunnuntaina eri puolilla Suomea. Joulukadut on avattu muassa Helsingissä, Tampereella, Jyväskylässä ja Vaasassa.
+
+Suomen vanhimpiin kuuluva jouluinen tapahtuma alkoi Helsingissä Senaatintorilla iltapäivällä.
+
+Joulupukki toi terveiset Korvatunturilta ja kaupungin pormestari sytytti jouluvalot sunnuntaina iltapäivällä.
+
+## Parmesaanijuuston maito on rääkätyistä lehmistä
+
+![Parmesaanijuustoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9948861)
+
+Avaa kuvien katselu
+
+Parmesaanijuustoja. Kuva: EPA
+
+Eläinsuojelujärjestö on julkaissut Italiassa kuvattua videokuvaa. Siitä näkee, että lehmiä kohdellaan tosi huonosti.
+
+Videot on kuvattu yhdeksällä maatilalla. Tiloilla tuotettu maito käytetään esimerkiksi kuuluisan parmesaanijuuston valmistukseen. Juustoa syödään usein pastan kanssa.
+
+Lehmät olivat nälkiintyneitä. Osa lehmistä oli rampoja, eivätkä ne pääseet koskaan ulos. Huonokuntoiset eläimet joutuvat olla omassa ulosteessa, koska navettoja ei siivottu.
+
+## Myrkyllinen levä valtaa Suomea
+
+![Panssarisiimalevä voi aiheuttaa bioluminesenssi-ilmiön, joka värjää meren hohtavan turkoosiksi yöllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7413158)
+
+Avaa kuvien katselu
+
+Panssarisiimalevä hohtaa. Kuva: Daniel Eriksson / Handout / Lehtikuva
+
+Myrkyllinen levä valtaa Itämerta. Tämän levän nimi on panssarisiimalevä. Se erittää vaarallista hermomyrkkyä. Levä hohtaa meressä turkoosina loppukesästä.
+
+Viranomaiset sanovat, että maailmalla tämä levä on aiheuttanut merilintujen, nisäkkäiden ja  jopa ihmisten kuolemia.
+
+Suomessa levää on nähty ensimmäisen kerran 1970-luvulla. Viime vuosina panssarisiimalevää on nähty yhä useammassa paikassa Itämerellä.

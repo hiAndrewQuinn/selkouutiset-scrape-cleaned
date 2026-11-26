@@ -1,79 +1,73 @@
-# Radio Selkouutiset torstai 20.4.2023
+# Radio Selkouutiset lauantai 22.4.2023
 
-Viivästyneet tutkinnot. EU:n kaasuvarastot. Hiilinielut. Ilmoituskanavat. Sää.
+Presidentti Niinistö. Keskustan puheenjohtaja Saarikko. Liikennevalvonta. Maastopalojen vaara. Sää.
 
-## Viivästyneet tutkinnot
+## Niinistön haastattelu
 
-![Opiskelijapoika on netissä koulun tietokoneella](https://img.img-cdn.yle.fi/crop_extract,w_3839,h_2160,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-109302564269febd63e7/1680252994)
-
-Avaa kuvien katselu
-
-Koulutustaso ei ole noussut Suomessa 20 vuoteen käytännössä lainkaan.  Kuva: Janne Nykänen / Yle
-
-Usean alan opiskelijat eivät koskaan valmistu ja saa tutkintoja tehtyä.
-
-Yliopistoissa ja ammattikorkeakouluissa on aloja, joista vain noin 20 prosenttia valmistuu tavoiteajassa. Osa ei valmistu pian tavoiteajan jälkeenkään.
-
-Yliopistossa tavoiteaika ylittyy tietojenkäsittelyn, tietoliikenteen ja luonnontieteiden aloilla. Tietojenkäsittelyssä ja tietoliikenteessä vain vajaa 24 prosenttia valmistuu 7 vuodessa.
-
-Tavoiteajat ylittyvät samoilla aloilla myös ammattikorkeakouluissa.
-
-Syitä ovat esimerkiksi nopea työllistyminen, motivaatio-ongelmat ja opintojen vaikeus. Lisäksi monien opiskelijoiden pitää käydä töissä toimeentulon takia.
-
-Koulutustaso ei ole noussut Suomessa 20 vuoteen käytännössä lainkaan.
-
-Suomi on jäänyt jälkeen muista teollisuusmaista.
-
-## Kaasuvarastot
-
-![Uusi kaasulaitos Strachocinassa, Puolassa. Tämän kautta kulkee kohta kaasua Slovakiaan.](https://img.img-cdn.yle.fi/crop_extract,w_5048,h_2839,x_0,y_498/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10146836335c88fcc49d/1664469440)
+![Presidentti Sauli Niinistö Ykkösaamun vieraana.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_198/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110271064438a5dd38f3/1682148088)
 
 Avaa kuvien katselu
 
-Kuva: Artur Widak / STELLA Pictures / ddp / abaca press
+Yle haastatteli presidentti Niinistöä lauantaina. Kuva: Petteri Sopanen / Yle
 
-Euroopan unionin maiden kaasuvarastot ovat ennätystäysiä.
+Keskustelu Venäjän toimista merialueilla jatkuu. Presidentti Sauli Niinistö uskoo, että Venäjä tutkii pohjoisen merialueita.
 
-Euroopan kaasuvarastot olivat toissa päivänä noin 57-prosenttisesti täynnä.
+Niinistö sanoi Ylen haastattelussa lauantaina, että Venäjää kiinnostavat merenpohjassa esimerkiksi tietoliikennekaapelit ja sähkökaapelit.
 
-Kaasuvarastojen määrä vaikuttaa sähkölaskuihin: jos varastot ehtyvät ja maakaasun hinta alkaa nousta, sähkön hinta nousee. Vaikutus näkyy myös Suomessa.
+Presidentin mielestä kaapelit ovat monille maille tosi tärkeitä. Siksi on hyvä miettiä, miten niitä voidaan puolustaa.
 
-## Hiilinielut
+Pohjoismaiset tv-yhtiöt kertoivat tällä viikolla venäläisten laivojen liikkumisesta Itämerellä ja Pohjanmerellä. Venäjä haluaa tietää, miten se voi vahingoittaa kaapeleita esimerkiksi sodan aikana.
 
-![Punainen metsäkone kaataa puita korkeassa männikössä.](https://img.img-cdn.yle.fi/crop_extract,w_1296,h_729,x_0,y_57/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1083281640ac8c81b977/1678428632)
+## Saarikko jatkaa
 
-Avaa kuvien katselu
-
-Hiilinielut pienenevät, kun metsää kaadetaan liikaa. Kuva: Jani Aho / Tampereen kaupunki
-
-Suomen metsien hiilinielu on yhä jäämässä liian pieneksi. Hiilinielu tarkoittaa sitä, että esimerkiksi metsä kerää ja varastoi hiilidioksidia. Hiilidioksidi aiheuttaa ilmaston lämpenemistä.
-
-Suomella on vaikeuksia saavuttaa Euroopan unionin ilmastovelvoitteet. Kuluva velvoitejakso kestää vuoteen 2025 asti.
-
-## Ilmoituskanavat
-
-![Kyltti, jossa teksti: Työmaa-alue. Pääsy asiattomilta kielletty.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1097834643649c74648c/1681279708)
+![Annika Saarikko.](https://img.img-cdn.yle.fi/crop_extract,w_3996,h_2247,x_4,y_410/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10927036425da1c2615e/1680202408)
 
 Avaa kuvien katselu
 
-Kuva: Matias Väänänen / Yle
+Keskustan puheenjohtaja Annika Saarikko jatkaa puolueen johdossa. Kuva: Petteri Sopanen / Yle
 
-Noin 20 prosenttia suomalaisfirmoista on vielä ilman pakollista ilmoituskanavaa. Asiasta kertoo Keskuskauppakamarin kysely.
+Keskustan puheenjohtaja Annika Saarikko jatkaa puheenjohtajan tehtävässä. Saarikko kertoi asiasta lauantaina.
 
-Vuoden alussa tuli voimaan uusi laki. Kaikilla vähintään 50:n työntekijän firmoilla on oltava ilmoituskanava. Sen kautta työntekijät voivat ilmoittaa epäkohdista tai väärinkäytöksistä. Ilmoituksen voi tehdä nimettömästi ja turvallisesti. Lainsäädännöllä varmistetaan, että ilmoituksesta ei tule hankaluuksia ilmoittajalle.
+Keskusta hävisi eduskuntavaaleissa huhtikuun alussa. Puolue menetti 8 kansanedustajan paikkaa.
 
-2 vuotta sitten ilmoituskanava oli käytössä noin puolella yrityksistä.
+Siksi monet ovat kysyneet, siirtyykö Saarikko pois puolueen puheenjohtajan paikalta. Saarikko itse sanoo, että hän haluaa kantaa vastuun puolueesta.
+
+Keskusta menetti vaaleissa kannatusta erityisesti perussuomalaisille. Saarikon mielestä keskustan ja perussuomalaisten poliittinen taistelu on nyt vasta alkanut.
+
+## Liikennevalvonta
+
+![Moottoripyöräpoliisi.](https://img.img-cdn.yle.fi/crop_extract,w_5567,h_3131,x_0,y_255/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4998485b580f0670bf7/1619596414)
+
+Avaa kuvien katselu
+
+Poliisi valvoo liikennettä. Kuva: Tiina Jutila / Yle
+
+Poliisi valvoo liikennettä tarkemmin kuin tavallisesti viikonlopun aikana. Poliisi valvoo erityisesti, miten nuoret ajavat liikenteessä.
+
+Poliisi muistuttaa nuoria, että liian suuri ajonopeus johtaa usein vaaratilanteeseen. Silloin kuski voi joutua ajokieltoon. Esimerkiksi kesätöissä nuorelle voi olla haittaa siitä, että hän ei saa ajaa autoa.
+
+## Maastopalojen vaara
+
+![Maastosta nousee sinistä savua. Nuotion lähettyvillä kävelee henkilö.](https://img.img-cdn.yle.fi/crop_extract,w_2568,h_1444,x_0,y_239/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1100194643d211fcab67/1681728024)
+
+Avaa kuvien katselu
+
+Ylöjärvellä syttyi maastopalo viime maanantaina. Kuva: Juha Kokkala / Yle
+
+Metsäpalojen ja ruohikkopalojen vaara on suuri Etelä-Suomessa, kertoo Ilmatieteen laitos. Siksi ulkona ei saa sytyttää tulta, esimerkiksi nuotiota.
+
+Maasto syttyy nyt helposti palamaan, koska on kuivaa. Etelä-Suomessa ei ole satanut huhtikuun aikana.
 
 ## Sää
 
-![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106461063d34527ddde7/1674790222)
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11028916443f773570d1/1682176011)
 
 Avaa kuvien katselu
 
-Kuva: Yle
+Sunnuntaina sää pilvistyy. Iltapäivällä maan keskiosassa voi sataa vähän vettä tai räntää.
 
-Lämmin ja kuiva kevätsää muuttuu viileämmäksi.
+Sunnuntai-iltana sateet lisääntyvät. Pohjoisessa sataa lunta, etelässä vettä.
 
-Perjantaina on pääosin aurinkoista ja lämmintä. Pohjoisessa sää viilenee ja on pilvisempää. Lämpötila vaihtelee 10 ja 18 asteen välillä, pohjoisessa on viileämpää.
+Sateet loppuvat maanantai-iltapäivään mennessä. Sää on maanantaina edelleen pilvistä, mutta Lapissa ja etelässä voi myös aurinko vähän paistaa.
 
-Maan etelä- ja keskiosaan saapuu sunnuntain ja maanantain välisenä yönä sadealue. Pohjanmaan alueella voi sataa lunta, etelässä sataa vettä.
+Lämpötila on lähipäivinä etelässä noin 10 astetta ja maan keskiosassa noin 5 astetta. Lapissa lämpötila nousee vain vähän nollan yläpuolelle.

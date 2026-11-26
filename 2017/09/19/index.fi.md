@@ -1,65 +1,95 @@
-# Sunnuntai 17.9.2017 (radio)
+# Tiistai 19.9.2017 (radio)
 
-Suomi on järjestänyt 100-vuotisjuhlat USA:ssa. Britannian poliisi otti kiinni jo toisen miehen perjantain pommi-iskun takia. Suomen poliisilla oli takaa-ajotilanne Pirkanmaalla. Suomalaiset ja venäläiset keräävät usein eri sieniä.
+Eduskunnan alkoholikeskustelu. Viljojen puinti. Taloustieteen huippuyksikkö. Yli 55-vuotiaiden työllisyys. Lasten kurittaminen.
 
-## Suomi-juhlat USA:ssa
+## Eduskunta keskustelee alkoholista
 
-![Presidentti Sauli Niinistö ja rouva Jenni Haukio saapumassa Washingtonin Suomen suurlähetystöön Suomi 100 -gaalaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9836751)
-
-Avaa kuvien katselu
-
-Presidentti Sauli Niinistö ja rouva Jenni Haukio Washingtonissa. Kuva: Paula Vilén / Yle
-
-Suomi on järjestänyt 100-vuotisjuhlat USA:ssa. Suomi kutsui amerikkalaisia juhlimaan, koska Suomi on ollut itsenäinen maa 100 vuotta. Juhlat järjestettiin Suomen suurlähetystössä Washingtonissa lauantaina.
-
-Juhlien isäntä oli presidentti Sauli Niinistö. Niinistö sanoi juhlavieraille, että Suomi ja USA ovat vanhoja ystäviä. Toimittajille presidentti kertoi, että amerikkalaisia kiinnostaa Suomen menestys. Suomi on menestynyt hyvin monissa tutkimuksissa, joissa on verrattu eri maita.
-
-Juhlissa oli mukana yli 100 vierasta. Oopperalaulaja Camilla Nylund lauloi vieraille Jean Sibeliuksen lauluja. Myös juhlaruoka oli suomalaista. Pöydässä oli esimerkiksi lohta, sieniä ja mustikkajäätelöä.
-
-## Pidätys Lontoossa
-
-![Poliisi partioi parlamentin edustalla Lontoossa metropommi-iskuun liittyen 16. syyskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9836478)
+![Olutpulloja alkon hyllyssä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9644894)
 
 Avaa kuvien katselu
 
-Poliisit vartioivat Lontoon turvallisuutta. Kuva: Facundo Arrizabalaga / EPA-EFE
+Vahvoja oluita voi ostaa Alkosta. Hallitus esittää, että niitä voi tulevaisuudessa ostaa myös ruokakaupoista. Kuva: Ismo Pekkarinen / AOP
 
-Britannian poliisi on ottanut kiinni jo toisen miehen perjantain pommi-iskun takia. Poliisi otti miehen kiinni Lontoossa. Mies on 21-vuotias.
+Eduskunnassa on kiistelty tänään uudesta alkoholilaista.
 
-Lauantaina poliisi otti kiinni 18-vuotiaan miehen. Poliisi epäilee, että miehet liittyvät Lontoon pommi-iskuun.
+Poliitikot kiistelivät siitä, kuinka voimakasta alkoholijuomaa voidaan myydä ruokakaupoissa.
 
-30 ihmistä loukkaantui, kun Lontoon metrossa räjähti pommi perjantaina.
+Hallitus esittää, että ruokakaupoissa voidaan myydä juomia, joissa alkoholia on enintään 5,5 prosenttia.
 
-Terroristijärjestö Isis sanoo, että se on vastuussa pommi-iskusta. Britannian poliisi jatkaa iskun tutkimista.
+Nyt kaupan oluissa, siidereissä ja muissa juomissa alkoholia saa olla enintään 4,7 prosenttia.
 
-## Takaa-ajotilanne
+Kansanedustajat voivat äänestää prosenttirajan nostamisesta omantunnon mukaan.
 
-![kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9836676)
+Se tarkoittaa, että kansanedustajan ei tarvitse äänestää samalla tavalla kuin muu puolue.
 
-Avaa kuvien katselu
+Äänestys on todennäköisesti marraskuussa.
 
-Poliisi sai Huittisissa kiinni auton, josta ammuttiin poliisia kohti. Kuva: Yle Uutisgrafiikka
+## Sadonkorjuu on myöhässä
 
-Suomen poliisilla on ollut takaa-ajotilanne Pirkanmaalla, Tampereen länsipuolella.
-
-Poliisi sai lauantai-iltana ilmoituksen autosta, jonka kuljettaja oli ehkä humalassa. Kun poliisi löysi auton, autosta ammuttiin kohti poliisia.
-
-Auto lähti poliisia pakoon, mutta poliisi sai auton kiinni. Poliisi ampui miestä, jolla oli ase. Mies vietiin sairaalaan. Poliisi otti kiinni myös auton kuljettajan.
-
-Poliiseja ei loukkaantunut.
-
-## Sienestys
-
-![Mesisieni](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9833215)
+![Syysvehnää](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9808053)
 
 Avaa kuvien katselu
 
-Mesisieni on venäläisten mielestä hyvä ruokasieni. Kuva: Tommi Parkkinen / Yle
+Syysvehnä uhkaa pilaantua pellolle. Kuva: Mikko Savolainen / Yle
 
-Syksy on hyvä aika kerätä sieniä.
+Maatiloilla sadonkorjuu on yhä pahasti kesken.
 
-Suomalaiset ja venäläiset sienestävät paljon, mutta he keräävät usein eri sieniä. Suomalaisten mielestä esimerkiksi kantarelli on tosi hyvä ruokasieni. Venäläiset eivät tykkää kantrellista.
+Viljaa on vaikea korjata talteen huonon sään takia.
 
-Kantarellissa ei ole makua, sanoo venäläinen Alexander Volkov. Volkov kuitenkin kerää kantarelleja, koska hän on asunut Suomessa jo monta vuotta. Mutta hän ei ole oppinut rakastamaan kantarellin makua.
+Maanviljelijöille voi tulla jopa 200 miljoonan euron tappiot, koska iso osa kevätviljoista jää korjaamatta.
 
-Volkov rakastaa mesisienen makua. Mesisieni on venäläisten mielestä herkullinen ruokasieni. Suomalaiset eivät käytä mesisientä.
+Vilja on myös huonossa kunnossa, ja sitä joudutaan kuivattamaan pitkään. Kuivattaminen vie paljon rahaa.
+
+Sadonkorjuutyöt saadaan tehtyä tänä syksynä, jos sää on lämmintä ja kuivaa vielä kuukauden ajan.
+
+## Suomeen taloustieteen huippuyksikkö
+
+![Opetusministeri Sanni Grahn-Laasonen, pääministeri Juha Sipilä ja professori Bengt Holmström tiedotustilaisuudessa 19. syyskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9840166)
+
+Avaa kuvien katselu
+
+Taloustieteen huippuyksiköstä kertoivat opetusministeri Sanni Grahn-Laasonen, pääministeri Juha Sipilä ja taloustieteen nobelisti Bengt Holmström. Kuva: Jarno Kuusinen / AOP
+
+Suomeen perustetaan uusi taloustieteen huippuyksikkö, kertoo pääministeri Juha Sipilä.
+
+Huippuyksikössä tehdään tärkeää taloustutkimusta.
+
+Sipilän mukaan Suomessa tarvitaan lisää talousosaamista. Myös poliitikot tarvitsevat talousasioista enemmän tietoa, joka perustuu tutkimukseen.
+
+Huippuyksikköön voi tulla jopa 15 uutta professoria.
+
+Huippuyksikön nimi on Helsinki Graduate School of Economics.
+
+## Yli 55-vuotiaiden työnteko lisääntyy
+
+![Kuva käsistä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7485711)
+
+Avaa kuvien katselu
+
+Asiantuntijatehtäviin halutaan myös varttuneempia työntekijöitä. Kuva: Jukka-Pekka Tyhtilä / Yle
+
+Työnteko on lisääntynyt yli 55-vuotiailla.
+
+Yhä useampi yli 55-vuotias on nyt töissä.
+
+60 - 64 -vuotiaista yli puolet on töissä.
+
+Heille on tarjolla töitä etenkin kaupoissa, rakentamisessa, hoitotyössä ja asiantuntijatehtävissä.
+
+## Lasten ruumiillista kurittamista ei hyväksytä
+
+![henkilö tukistaa lasta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9090183)
+
+Avaa kuvien katselu
+
+Moni vanhempi on joskus tukistanut lasta, vaikka niin ei saa tehdä. Kuva: Yle
+
+Suurin osa suomalaisista ei hyväksy lapsen ruumiillista kurittamista eli esimerkiksi piiskaamista tai tukistamista. 
+
+Lähes kaikki suomalaiset tietävät myös, että lasten ruumiillinen kurittaminen on kielletty laissa.
+
+Silti noin 25 prosenttia suomalaisista sanoi kyselyssä, että he ovat joskus tukistaneet lasta eli vetäneet lasta hiuksista.
+
+13 prosenttia suomalaisista sanoi, että he hyväksyvät ruumiillisen kurittamisen joissakin tilanteissa.
+
+Kyselyn teki Lastensuojelun keskusliitto.

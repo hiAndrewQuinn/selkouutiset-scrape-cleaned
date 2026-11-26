@@ -1,89 +1,87 @@
-# Radio Selkouutiset perjantai 26.5.2023
+# Radio Selkouutiset sunnuntai 28.5.2023
 
-USA:n ulkoministeri. Uudet vastaanottokeskukset. Sotaharjoitukset. Jääkiekon MM. Metroliikenteen häiriöt. Sää.
+Venäjän isku Kiovaan. Somaliaan demokraattiset vaalit. Kaurismäelle palkinto. Yle Kielikoulu. Sää.
 
-## Blinken Suomeen
+## Venäjän isku Kiovaan
 
-![Antony Blinken lähikuvassa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11203786470b88ddf395/1685108924)
-
-Avaa kuvien katselu
-
-USA:n ulkoministeri Antony Blinken. Kuva: Saul Loeb / AFP
-
-Suomessa Blinken on ensi viikon perjantaina. Hän keskustelee Suomen ulkoministeri Pekka Haaviston kanssa.
-
-Ulkoministerit keskustelevat ainakin Venäjän sodasta Ukrainassa. Myös apu Ukrainalle on esillä keskusteluissa.
-
-Ulkoministeri Blinken tapaa Suomessa myös pääministeri Sanna Marinin.
-
-## Uusia vastaanottokeskuksia
-
-![Nainen valmistelee vastaanottokeskuksen huonetta. ](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-932232623b2a2782b62/1648045003)
+![Pelastustyöntekijä sammuttaa tulipaloa.](https://img.img-cdn.yle.fi/crop_extract,w_3547,h_1995,x_0,y_233/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1120684647312ff8808a/1685263352)
 
 Avaa kuvien katselu
 
-Turvapaikanhakijat voivat asua vastaanottokeskuksissa. Kuva: Matti Myller / Yle
+Venäjän drooni-isku sytytti tulipaloja. Kuva: Pavlo Petrov / Ukrainan hätätilaministeriö
 
-Maahanmuuttovirasto eli Migri avaa uusia vastaanottokeskuksia. Vastaanottokeskuksia avataan eri puolille Suomea.
+Venäjä on tehnyt ison ilmaiskun Ukrainan pääkaupunkiin Kiovaan. Venäjä teki iskun drooneilla lauantain ja sunnuntain välisenä yönä. Iskussa kuoli ainakin 1 ihminen.
 
-Uusia vastaanottokeskuksia tulee 17. Niissä on yhteensä 300 paikkaa turvapaikanhakijoille ja pakolaisille.
+Ukraina sanoo, että se ampui alas yli 40 droonia Kiovassa. Ukraina arvioi, että drooni-isku Kiovaa vastaan oli suurin koko sodan aikana. Venäjä aloitti sodan Ukrainassa viime vuoden helmikuussa.
 
-Migri kertoo, että uudet vastaanottokeskukset avataan mahdollisimman pian. Suomeen on tullut viime aikoina paljon pakolaisia Ukrainasta, jossa on sota.
+Venäjä teki ison drooni-iskun Kiovaan kaupungin juhlapäivänä. Kiova täytti sunnuntaina 1541 vuotta.
 
-## Sotaharjoituksia
+## Somaliaan demokraattiset vaalit
 
-![Sotilaita maastossa maavoimien sotaharjoituksessa Niinisalossa.](https://img.img-cdn.yle.fi/crop_extract,w_4606,h_2592,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11087866453bf37cd922/1683210184)
-
-Avaa kuvien katselu
-
-Sotaharjoituksissa harjoitellaan kriisitilanteita varten. Kuva: Tapio Termonen / Yle
-
-Suomessa on alkanut monta sotaharjoitusta. Sotilaat harjoittelevat eri puolilla Suomea.
-
-Sotilaita voi nähdä esimerkiksi Helsingin seudulla, Kouvolassa ja Haminassa. Lisäksi sotilaat harjoittelevat merellä ja rannikolla.
-
-Sotaharjoituksissa on mukana monta tuhatta sotilasta. He liikkuvat myös lentokoneilla ja helikoptereilla.
-
-## Jääkiekon MM
-
-![Mikko Lehtonen kamppailee kiekosta.](https://img.img-cdn.yle.fi/crop_extract,w_3459,h_1945,x_0,y_160/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1119862646fb08787815/1685041609)
+![Mogadishussa kaudulla ruokakoju jossa paljon miesasiakkaita jonottamassa.](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_432/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-933158623d76971ea47/1648195530)
 
 Avaa kuvien katselu
 
-Kanada ja Suomi pelasivat torstaina. Kanada voitti. Kuva: Tomi HÃ¤nninen/Chilipictures
+Kauppa Somalian pääkaupungissa Mogadishussa. Kuva: Elyas Ahmed / EPA
 
-Suomi ei päässyt jääkiekon MM-kisojen mitalipeleihin.
+Somalia lupaa järjestää demokraattiset vaalit ensi vuonna.
 
-Suomi putosi jatkosta, kun se hävisi Kanadalle torstai-iltana. Kanada voitti Suomen 4 - 1.
+Somaliassa on paikallisvaalit noin vuoden kuluttua. Silloin kaikki saavat äänestää.
 
-Suomen häviö on suomalaisille iso pettymys. Viime vuonna Suomi oli maailmanmestari, ja monet toivoivat MM-kultaa myös tänä vuonna.
+Somaliassa ei ole ollut tällaista yleistä äänioikeutta yli 50 vuoteen. Tärkeät tehtävät on jaettu klaanien kesken.
 
-MM-kisojen mitalipelit pelataan Tampereella. Sunnuntai-iltana selviää, mikä maa on tämän vuoden maailmanmestari.
+## Kaurismäelle palkinto
 
-## Metroliikenteen häiriöt
-
-![Metrojuna Helsingissä. 20.4.2021.](https://img.img-cdn.yle.fi/crop_extract,w_2537,h_1427,x_183,y_25/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-796581607eccaeea7a4/1618922722)
+![Jussi Vatanen, Alma Pöysti ja Aki Kaurismäki](https://img.img-cdn.yle.fi/crop_extract,w_3501,h_1969,x_0,y_88/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1120566647201241b38e/1685217446)
 
 Avaa kuvien katselu
 
-Metrojunat myöhästelivät perjantaina ukkosen takia. Kuva: Jorge Gonzalez / Yle
+Aki Kaurismäki (oikealla) yhdessä näyttelijä Alma Pöystin ja näyttelijä Jussi Vatasen kanssa Cannesissa. Kuva: Loic Venance / AFP
 
-Metroliikenteessä on ollut häiriöitä. Monet metrojunat olivat myöhässä perjantaina iltapäivällä.
+Suomalainen elokuvaohjaaja Aki Kaurismäki on voittanut palkinnon.
 
-Syynä oli ukkonen. Ukkosen salamanisku aiheutti häiriön metron turvalaitteisiin.
+Kaurismäki sai tuomariston palkinnon Cannesin elokuvajuhlilla Ranskassa. Tuomariston palkinto on elokuvajuhlien kolmanneksi tärkein palkinto.
 
-Ukkonen kulki perjantaina Helsingin seudun yli.
+Kaurismäki sai palkinnon elokuvasta Kuolleet lehdet. Elokuva kertoo 2 yksinäisen ihmisen rakkaudesta. Kuolleet lehdet tulee elokuvateattereihin Suomessa syksyllä.
+
+Aki Kaurismäki on saanut palkinnon Cannesin elokuvajuhlilla myös kerran aikaisemmin. Hän sai elokuvajuhlien toiseksi tärkeimmän palkinnon vuonna 2002.
+
+Cannesin elokuvajuhlat on maailman tärkein elokuvafestivaali.
+
+## Yle Kielikoulu
+
+![Ruotsintajatoimittaja Jonatan Pedersen](https://img.img-cdn.yle.fi/crop_extract,w_1893,h_1064,x_6,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-111460264635a8e3a2da/1684233023)
+
+Avaa kuvien katselu
+
+Kääntäjä Jonatan Pedersen koordinoi Yle Kielikoulua.
+
+Yle Kielikoulu tarjoaa hauskan tavan opiskella suomea.
+
+Kielikoulussa opiskellaan suomea katsomalla suomenkielisiä tv-ohjelmia.
+
+Ohjelmissa on myös suomenkielinen tekstitys. Katsoja saa vaikeille sanoille käännöksen.
+
+Katsoja voi itse valita, millä kielellä käännökset ovat. Näitä tukikieliä on 14.
+
+Yle Kielikoulu tarjoaa käännöksiä sen perusteella, mikä on katsojan suomen kielen taso.
+
+Myös tehtävät sopivat tasolle, jonka katsoja on valinnut.
+
+Yle Kielikoulu on ilmainen. Sitä voi käyttää sovelluksella tai selaimella.
+
+Lisää tietoa Kielikoulusta löytyy osoitteesta yle.fi/kielikoulu.
+
+Katso video siitä, miten Yle Kielikoulu toimii.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11204246470d6a57740e/1685116607)
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11208586473725682f53/1685287547)
 
 Avaa kuvien katselu
 
-Lauantaina on poutaa eli ei sada. Lämpötila on noin 15 astetta. Lännessä ja pohjoisessa on vähän kylmempää.
+Suomen sää on melko viileää. Lämpötila on jopa 4 astetta alempi kuin tavallisesti toukokuun lopussa.
 
-Sunnuntaina sataa. Vettä saadaan Länsi-Suomessa ja Pohjois-Suomessa. Muualla on poutaa.
+Alkuviikko on poutainen eli vettä ei sada. Idässä ja pohjoisessa voi tulla sadekuuroja.
 
-Viikonlopun yöt ovat kylmiä. Pihalla on hyvä suojata kukkia ja muita kasveja, jos on niitä jo istuttanut.
-
-Ensi viikolla säässä ei tapahdu suuria muutoksia. Lämpötila on edelleen etelässä noin 15 astetta ja pohjoisessa noin 10 astetta.
+Lämpötila on 10 ja 15 asteen välillä.

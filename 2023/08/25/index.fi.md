@@ -1,75 +1,69 @@
-# Radio Selkouutiset torstai 24.8.2023
+# Radio | Selkouutiset | Perjantai 25.8.2023
 
-Prigožin. Ukrainan itsenäisyyspäivä. Wilma Murto. Lasten pyöräily. Sää.
+Budjetti. Jevgeni Prigozhin. Tuki Ukrainalle. Oleskeluluvat. Sääennuste.
 
-## Wagner-johtaja kuoli
+## Budjettiehdotus
 
-![Jevgeni Prigozinin yksityiskone tulessa Tverin alueella Moskovan lähellä.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116170364e717e4e1b35/1692866621)
-
-Avaa kuvien katselu
-
-Wagner-johtaja Jevgeni Prigožinin yksityiskone putosi maahan ja syttyi tuleen.  Kuva: @grey_zone / AOP
-
-Venäjällä on sattunut lentoturma. Palkkasotilasyhtiö Wagner kertoo, että sen johtaja Jevgeni Prigožin on kuollut turmassa.
-
-Prigožinin yksityislentokone syöksyi eilen maahan matkalla Moskovasta Pietariin. Koneessa oli yhteensä 10 ihmistä.
-
-Vielä ei tiedetä, miksi lentokone putosi. Wagneriin liitetty kanava viestipalvelu Telegramissa väittää, että kone ammuttiin alas.
-
-Jevgeni Prigožin johti kesäkuussa Wagnerin kapinaa Venäjän johtoa vastaan. Hän kuitenkin keskeytti kapinan pian sen alkamisen jälkeen.
-
-## Ukrainan itsenäisyyspäivä
-
-![Poika heiluttaa Ukrainan lippua tienvarressa kypärä päässään panssariajoneuvon ajaessa ohi.](https://img.img-cdn.yle.fi/crop_extract,w_5731,h_3223,x_0,y_477/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136911649fce965e369/1688195819)
+![Kuvassa on oluthylly Helsingissä Triplan Prismassa heinäkuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_331/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6953725efc83b0e9b6c/1593609745)
 
 Avaa kuvien katselu
 
-Venäjän hyökkäys Ukrainaan on kestänyt jo 1,5 vuotta. Kuva: Celestino Arce / AOP
+Oluen verotusta alennetaan budjettiehdotuksessa. Kuva: Silja Viitala / Yle
 
-Ukrainassa on vietetty tänään itsenäisyyspäivää. Tämä on jo toinen itsenäisyyspäivä sodan keskellä, sillä Venäjän hyökkäyksestä Ukrainaan on kulunut nyt puolitoista vuotta.
+Valtiovarainministeriö on kertonut ensi vuoden budjettiehdotuksesta. Ehdotuksessa budjetti on 10 miljardia euroa alijäämäinen, eli valtion pitää ottaa 10 miljardia lisää velkaa.
 
-Suomessa on muistettu Ukrainan itsenäisyyspäivää esimerkiksi liputtamalla Helsingin Senaatintorilla ja ulkoministeriössä. Ulkoministeriön rakennus myös valaistaan illalla Ukrainan lipun väreillä.
+Työn, polttoaineiden ja oluen verotusta kevennetään, jos ehdotus hyväksytään. Viinien ja väkevien alkoholijuomien verotusta kiristetään. Nikotiinipusseille tulee vero.
 
-Helsingin keskustassa pidettiin kansalaistapahtuma Ukrainan tueksi.
+Valtiovarainministeri **Riikka Purra** sanoo, että erilaiset säästöt kasvavat vuosittain vaalikauden aikana. Hallitus käsittelee budjettiehdotusta ensi kuun lopulla. Budjetista päättää lopulta eduskunta.
 
-## Wilma Murto
+## Jevgeni Prigozhinin kuolema
 
-![Wilma Murto voitti MM-mitalin ensimmäisenä suomalaisena seiväshyppääjänä.](https://img.img-cdn.yle.fi/crop_extract,w_4563,h_2554,x_0,y_95/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116156064e6ead7a04dd/1692855067)
-
-Avaa kuvien katselu
-
-Seiväshyppääjä Wilma Murto voitti MM-pronssia. Kuva: Christian Petersen/Getty Images
-
-Seiväshyppääjä Wilma Murto on voittanut Suomen ensimmäisen mitalin yleisurheilun MM-kisoissa Unkarissa. Murto voitti pronssia eli hän oli 3. illan seiväsfinaalissa.
-
-Wilma Murron mitali on Suomelle ensimmäinen mitali MM-tasolla 8 vuoteen. Se on myös Suomen kaikkien aikojen ensimmäinen mitali seiväshypyssä MM-kisoissa.
-
-Edellisen kerran Suomi sai mitalin MM-kisoissa vuonna 2015, kun Tero Pitkämäki sai pronssia keihäänheitossa.
-
-## Lasten pyöräily
-
-![Pieni tyttö taluttaa pyörää pyöräilykypärä päässä. ](https://img.img-cdn.yle.fi/crop_extract,w_3101,h_1744,x_13,y_108/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115982264e33ec7e06e3/1692614953)
+![Prigozin seisoo sotilasunvormussaan.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_157/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116170764e719e82c6f6/1719115764)
 
 Avaa kuvien katselu
 
-Alva Koskela oppi ajamaan pyörää 4-vuotiaana. Kuva: Kalle Niskala / Yle
+Jevgeni Prigozhin. Kuva: UPI / AOP
 
-Suomalaislapset oppivat pyöräilemään aiempaa nuorempina. Suomalaislapset oppivat nyt pyöräilemään keskimäärin vähän alle 5-vuotiaana.
+Venäjän lento-onnettomuus herättää paljon keskustelua länsimaissa. Palkkasotilasfirma Wagnerin johtajien lentokone putosi Venäjällä keskiviikkona. Wagnerin johtaja **Jevgeni Prigozhin** kuoli onnettomuudessa.
 
-Lapset oppivat pyöräilemään aikaisemmin, koska potkupyörät ovat yleistyneet. Potkupyörässä ei ole polkimia, vaan lapsi potkii jaloilla vauhtia maasta.
+Monet asiantuntija ja länsimaiden johtajat uskovat, että onnettomuus oli ehkä salamurha. Venäjän presidentti **Vladimir Putin** halusi ehkä tappaa Wagnerin johtajan Jevgeni Prigozinin. Venäjä kiistää väitteen. Venäjä sanoo, että puhe salamurhasta on länsimaiden valetta.
 
-Potkupyörä harjoittaa lapsen kehonhallintaa ja tasapainoa. Ne ovat taitoja, joita tarvitaan, kun ajetaan oikealla pyörällä. '
+Vielä ei tiedetä, miksi Prigozinin kone putosi. Koneessa oli ehkä pommi tai kone ehkä ammuttiin alas.
 
-Lapsi voi aloittaa potkupyöräilyn heti, kun hän osaa kävellä ja juosta.
+## Tuki Ukrainalle
 
-## Perjantain sää
-
-![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116202764e7518f4d36c/1692881336)
+![Puheenjohtaja Petteri Orpo antoi kommentteja medialle klo 13.30 aikaan.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_159/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116195264e740c24c246/1692885827)
 
 Avaa kuvien katselu
 
-Kuva: Yle
+Pääministeri Petteri Orpo on myös kokoomus-puolueen puheenjohtaja. Orpo sanoo, että tuki Ukrainalle on tärkeää. Kuva: Silja Viitala / Yle
 
-Koko maassa saadaan huomenna sadekuuroja tai sadetta.
+Pääministeri **Petteri Orpo** haluaa lisätä EU:n tukea Ukrainalle. Orpo sanoo, että Euroopan maiden pitää tukea Ukrainaa enemmän kuin nyt.
 
-Lämpötila on päivällä 16 ja 21 asteen välillä, Lapissa on vähän viileämpää.
+Orpo sanoo, että sota loppuu nopeammin vain, jos Ukraina saa tarpeeksi tukea. Pääministeri Petteri Orpo puhui kokoomuksen kesäpäivillä.
+
+Suomi päätti tällä viikolla uudesta tukipaketista Ukrainalle. Paketin arvo on 100 miljoonaa euroa. Suomi tuki Ukrainalle on nyt yhteensä 1,8 miljardia euroa.
+
+## Oleskeluluvat
+
+![Maahanmuuttovirasto Helsingissä. 3.2.2021.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_296/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-769765601aa93c154d6/1643195926)
+
+Avaa kuvien katselu
+
+Opiskelijoiden oleskelulupia haetaan aiempaa enemmän EU:n ulkopuolelta. Kuva: Jorge Gonzalez / Yle
+
+Suomeen haluaa tulla aiempaa enemmän opiskelijoita EU:n ulkopuolelta. Opiskelijoiden oleskelulupahakemukset EU:n ulkopuolelta ovat lisääntyneet paljon. Näin kertoo Maahanmuuttovirasto.
+
+Heinäkuun loppuun mennessä Suomesta haki opiskelijan oleskelulupaa melkein 8 800 ihmistä EU:n ulkopuolelta. Määrä on melkein 50 prosenttia enemmän kuin viime vuonna.
+
+Eniten hakemuksia ovat jättäneet Bangladeshin, Kiinan, Sri Lankan, Intian ja Venäjän kansalaiset.
+
+## Sää
+
+![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116281364e8ae6a3783e/1692970636)
+
+Avaa kuvien katselu
+
+Lauantaina paistaa monin paikoin aurinko.
+
+Lauantaina paistaa monin paikoin aurinko. Yksittäisiä sadekuuroja voi tulla maan etelä- ja keskiosissa. Lämpötila on 15 ja 21 asteen välillä.

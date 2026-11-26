@@ -1,7 +1,67 @@
-# Torstai 30.11.2017 (tv)
+# Lauantai 2.12.2017 (radio)
 
-Sauli Niinistö on suosituin presidenttiehdokas. Helsingin kaupunki on päättänyt parantaa paperittomien terveyspalveluja. Britannian prinssi William on vierailulla Suomessa. Ateenan Suomi-koulun terveiset. Sää on sateista.
+Toimeentulotuki. Presidentin kyselytunti. Yhdysvaltojen verouudistus. Joulukalenteri. Sää kylmenee.
 
-Yle Uutiset selkosuomeksi
+## Joulukuun toimeentulotuki voi muuttua
 
-Sauli Niinistö on suosituin presidenttiehdokas. Helsingin kaupunki on päättänyt parantaa paperittomien terveyspalveluja. Britannian prinssi William on vierailulla Suomessa. Ateenan Suomi-koulun terveiset. Sää on sateista.
+![tuomeentulo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9382062)
+
+Avaa kuvien katselu
+
+Joulukuun toimeentulotuki voi muuttua. Kuva: Yle/Ronnie Holmberg
+
+Kelalla on ongelmia toimeentulotukien maksamisessa. Joulukuun toimeentulotuen rahamäärä voi muuttua.
+
+Kela on joutunut muuttamaan monen hakijan maksupäätöstä. Niitä piti muuttaa, koska Kela ei ottanut huomioon veronpalautuksia. Veronpalautusta saa, jos on maksanut tuloista liikaa veroa.
+
+Toimeentulotuki pienenee veronpalautuksen takia. Veronpalautuksen saa omalle pankkitilille ensi viikon tiistaina.
+
+## Presidentti vastasi kansalaisten kysymyksiin
+
+![Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9957544)
+
+Avaa kuvien katselu
+
+Tasavallan presidentti vastasi kysymyksiin suorassa radio-ohjelmassa. Kuva: AOP
+
+Suomen presidentti on vastannut tänään kansalaisten kysymyksiin. Tasavallan presidentti Sauli Niinistön kanssa sai puhua suorassa radio-ohjelmassa.
+
+Presidentiltä kysyttiin esimerkiksi, miten voisi estää nuorten syrjäytymistä. Presidentti vastasi, että nuoria ei pidä jättää yksin. - Meidän pitää auttaa, jos joku jää yksin, presidentti Niinistö sanoi.
+
+## Yhdysvalloissa verouudistus etenee
+
+![Mielenosoittajan kyltti Yhdysvlatin kongressitalon edessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9959982)
+
+Avaa kuvien katselu
+
+Mielenosoittajan kyltissä sanotaan, että verouudistus pitää estää. Kuva: EPA-EFE/MICHAEL REYNOLDS
+
+Yhdysvalloissa presidentti Donald Trump ja presidentin puolue republikaanit on onnistunut yhdessä tavoitteessa. Yhdysvaltojen senaatti on hyväksynyt ison verouudistuksen. Verouudistus on presidentti Trumpille tärkeä asia.
+
+Vielä ei ole varmaa, toteutuuko uudistus. Jos uudistus toteutuu, amerikkalaiset maksavat tuloistaan vähemmän veroja ja myös yritykset maksavat vähemmän veroja.
+
+Arvostelijat sanovat, että uudistus hyödyttää vain rikkaita ihmisiä.
+
+## Miten karhu voi nukkua koko talven?
+
+![Karhu kerää rasvakerrosta ennen painumistaan talviunille.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9395200)
+
+Avaa kuvien katselu
+
+Karhu nukkuu koko talven. Sitä ei saa häiritä. Kuva: Tuomo Björksten / Yle
+
+Ylen tiedetoimituksella on oma joulukalenteri. Joka päivä jouluaattoon asti tiedetoimitus julkaisee kiinnostavan tiedekysymyksen.
+
+Tänään kysytään, miten karhu voi nukkua koko talven? Se onnistuu, koska karhun aineenvaihdunta on suljettu. Se tarkoittaa, että karhu ei talvella syö eikä juo mitään eikä se myöskään ulosta mitään.
+
+Tiedeaiheisen joulukalenterin löydät Ylen verkkosivulta, osoite on yle.fi.
+
+## Alkuviikolla sää kylmenee
+
+![Mari Mannila ja hänen poikansa Olli Espoon Haukilahden rannassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9446996)
+
+Avaa kuvien katselu
+
+Alkuviikolla sää kylmenee koko maassa. Kuva: Jari Kovalainen / Yle
+
+Huomenna sunnuntaina Etelä- ja Keski-Suomessa sataa vettä. Alkuviikolla sää viilenee ja pakkasta on koko maassa.

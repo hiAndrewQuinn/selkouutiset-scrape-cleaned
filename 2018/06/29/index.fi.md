@@ -1,7 +1,61 @@
-# Torstai 28.6.2018 (tv)
+# Perjantai 29.6.2018 (radio)
 
-Hallitus jatkaa työttömyysturvan uudistamista. Suomen terveydenhuolto on maailman huippua. Jyrki Katainen jättää politiikan. Alvar Aallon suunnittelema Villa Skeppet avautui yleisölle. Säätiedot.
+EU-johtajat ovat päässeet sopuun yhteisestä turvapaikkalinjasta. Oikeusministeri haluaa kieltää alaikäisten avioliitot. Luonto on suomalaisille tärkeä. Uusi menetelmä paljastaa väärien mansikoiden myyjät.
 
-Yle Uutiset selkosuomeksi
+## EU perustaa keskuksia siirtolaisille
 
-Hallitus jatkaa työttömyysturvan uudistamista. Suomen terveydenhuolto on maailman huippua. Jyrki Katainen jättää politiikan. Alvar Aallon suunnittelema Villa Skeppet avautui yleisölle. Säätiedot.
+![Juha Sipilä ja lippuja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10280091)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä piti EU-johtajien maahanmuuttokeskustelua rakentavana. Kuva: Ludovic Marin / AFP
+
+EU-johtajat ovat päässeet sopuun yhteisestä turvapaikkalinjasta. Kokouksessa Brysselissä sovittiin, että Välimeren maihin perustetaan siirtolaiskeskuksia. Vielä ei tiedetä, mihin maihin keskukset perustetaan.
+
+Ihmiset, joilla on oikeus turvapaikkaan, aiotaan siirtää keskuksista vapaaehtoisiin EU-maihin. Muut aiotaan palauttaa suoraan keskuksista takaisin.
+
+Pääministeri Juha Sipilä sanoo, että ratkaisu voi estää ihmisten salakuljettamisen ja vaaralliset reitit.
+
+## Oikeuministeri haluaa kieltää alaikäisten avioliitot
+
+![Antti Häkkänen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10281299)
+
+Avaa kuvien katselu
+
+Oikeusministeri Antti Häkkänen haluaa, että Suomi luopuu poikkeusluvista alaikäisten avioliittoihin. Kuva: Jarno Kuusinen / AOP
+
+Oikeusministeri Antti Häkkänen haluaa kieltää alaikäisten avioliitot. Häkkäsen mielestä esimerkiksi uskonnolliset ja kulttuuriset syyt eivät ole riittäviä perusteita.
+
+Alaikäisten avioliittoihin haetaan joka vuosi 10 - 30 poikkeuslupaa. Viime vuonna tehtiin 11 hakemusta. 7 sai poikkeusluvan. Suurin osa luvan saaneista on ollut 17-vuotiaita tyttöjä. Alle 17-vuotiaille myönnettyjen lupien peruste on ollut raskaus.
+
+Oikeusministeriö kertoo, että alaikäisten avioliitoista on luovuttu tai ollaan luopumassa lähes kaikissa muissa Pohjoismaissa.
+
+## Luonto on tärkeä suomalaisille
+
+![Roskia puun juurella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5378448)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat huolissaan luonnon roskaantumisesta ja ilmastonmuutoksesta. Kuva: Anna Sirén / Yle
+
+Yli 90 prosenttia suomalaisista sanoo, että luonto on tärkeä. Yhtä moni sanoo, että luonto on osa kansallista identiteettiä ja lisää hyvinvointia ja terveyttä.
+
+Ympäristöministeriö teki kyselyn, jossa selvitettiin suomalaisten suhdetta luontoon.Suomalaiset liikkuvat tai rauhoittuvat mieluiten luonnossa. Melkein 70 prosenttia liikkuu luonnossa ainakin joka viikko.Naiset liikkuvat luonnossa ahkerammin kuin miehet.
+
+Yli 65-vuotiaat ovat huolissaan Suomen luonnon tilasta enemmän kuin nuoremmat. Suomalaiset ovat sitä mieltä, että vastuu luonnosta on jokaisella ihmisellä. Suurin osa sanoo, että myös viranomaiset ovat vastuussa.
+
+Suomalaisten mielestä ilmastonmuutos ja roskat ovat suurimmat uhat luonnolle.
+
+## Tiede paljastaa mansikkahuijarit
+
+![Luken ja Eviran yhteiskäyttölaite](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10280631)
+
+Avaa kuvien katselu
+
+Luken ja Eviran yhteiskäyttölaite. Laitteet ovat isotooppimassaspektometrejä. Kuva: Eija Tammisalpa / Evira
+
+Uusi menetelmä paljastaa väärien mansikoiden myyjät. Isotooppitutkimuksessa on luotu suomalaisen mansikan profiili ja tietokanta.
+
+Elintarviketarkastajat voivat nyt ottaa näytteitä torimyynnissä. Jos mansikka ei pistotestissä vastaa profiilia, se on ulkomainen.
+
+Menetelmä on myös rehellisten marjanmyyjien etu: nyt he voivat sanoa, että heillä on varmasti myynnissä kotimaista marjaa.Tutkijat sanovat, että menetelmä on toimiva. Sitä voidaan laajentaa myös muihin luonnontuotteisiin.

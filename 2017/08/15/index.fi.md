@@ -1,79 +1,27 @@
-# Tiistai 8.8.2017 (radio)
+# Tiistai 15.8.2017 (radio)
 
-Virolaisten työssäkäynti Suomessa vähenee. Moni terveyskesuslääkäri tekee osa-aikatyötä. Koskenkorvaa myydään pian Yhdysvalloissa. Pelastuslaitoksella on ollut ennätysmäärä käärmehälytyksiä. Terveisiä Kielin Suomi-koulusta.
+Veturinkuljettajat ovat lakossa. 18-vuotiaita miehiä kutsutaan varusmiespalvelukseen. Irakin armeija valmistautuu hyökkäykseen. Nigeriassa kokeillaan ruoan kierrättämistä. Facebookin Marketplace tulee Suomeen.
 
-## Virolaiset työntekijät
+## Veturinkuljettajat ovat tänään lakossa
 
-![Virolainen maalari Jan Kaljura työmaalla Järvenpäässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763331)
+Veturinkuljettajat ovat olleet tänään lakossa.  Matkustajajunat eivät ole kulkeneet lainkaan.  Veturinkuljettajat ovat luvanneet, että he palaavat töihin kello 24.  Sen jälkeen junat kulkevat taas normaalisti.
 
-Avaa kuvien katselu
+## 18-vuotiaita miehiä kutsutaan varusmiespalvelukseen
 
-Virolainen rakennusmaalari Jan Kaljura on käynyt töissä Suomessa jo 10 vuoden ajan. Kuva: Jaani Lampinen / Yle
+Suomen puolustusvoimat kutsuu miehiä varusmiespalvelukseen. Tänä vuonna kutsutaan vuonna 1999 syntyneet miehet, jotka ovat Suomen kansalaisia. He ovat saaneet kirjeen asiasta.
 
-Virolaisten työntekijöiden määrä Suomessa vähenee lähivuosina, sanoo tutkija.
+Kutsuntatilaisuudessa tutkitaan miehen terveys. Hän voi myös kertoa, mihin varuskuntaan haluaa mennä. Kutsuntatilaisuudessa mies voi myös ilmoittaa, jos hän ei halua suorittaa varusmiespalvelusta esimerkiksi uskonnon takia. Suomessa varusmiespalveluksen voi suorittaa myös ilman asetta.
 
-Itä-Suomen yliopiston ja Tarton yliopiston tutkija Keiu Telve sanoo, että palkkataso Virossa on noussut. Sen takia virolaisten työntekijöiden määrä Suomessa voi jopa puolittua.
+## Irakin armeija valmistautuu hyökkäykseen
 
-Tutkija sanoo, että tällä hetkellä Suomessa käy töissä ehkä noin 20 000 virolaista. Virolaiset työskentelevät Suomessa etenkin rakennusalalla, mutta myös lääkäreinä, palveluammateissa ja siivoojina.
+Irakissa armeija aikoo hyökätä Isis-terroristijärjestöä vastaan. Armeija aikoo hyökätä Tal Afarin kaupunkiin. Isis on pitänyt kaupunkia hallussaan. Kaupunki sijaitsee lähellä Syyrian rajaa.  Irakin ilmavoimat ovat pommittaneet Isisin kohteita.
 
-Suurin osa virolaisista käy töissä pääkaupunkiseudulla.
+## Nigeriassa kierrätetään ruokaa
 
-## Terveyskeskuslääkärit
+Länsi-Afrikassa Nigeriassa kokeillaan ruoan kierrättämistä. Kauppias voi ilmoittaa verkkosivulla, että hän voi lahjoittaa ruokaa. Hyväntekeväisyysjärjestöt vievät sitten ruokaa ihmisille, jotka tarvitsevat apua.
 
-![Lääkäri kirjoittaa reseptiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6193071)
+Kauppias ei voi myydä tuotetta, jos sen parasta ennen -päiväys on jo mennyt. Usein tuotetta voi kuitenkin ihan hyvin käyttää. Nigeriassa heitetään paljon ruokaa roskikseen tai jätetään kadulle mätänemään.
 
-Avaa kuvien katselu
+## Facebookin Marketplace tulee Suomeen
 
-Osa-aikatyö kiinnostaa etenkin nuoria lääkäreitä, joilla on pieniä lapsia. Kuva: Tiina Karjalainen / Yle
-
-Moni terveyskeskuslääkäri työskentelee osa-aikaisesti. Lääkäriliiton selvitys kertoo, että 20 prosenttia terveyskeskuslääkäreistä tekee osa-aikaista työtä.
-
-Osa-aikaista työtä haluavat tehdä etenkin nuoret lääkärit, joilla on pieniä lapsia.
-
-Osa-aikatyötä haluavat myös lääkärit, jotka tekevät esimerkiksi tutkimustyötä tavallisen työn rinnalla.
-
-## Koskenkorva
-
-![Koskenkorva-pulloja Alkossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763523)
-
-Avaa kuvien katselu
-
-Koskenkorvaa aiotaan myydä 10 osavaltiossa Yhdysvalloissa.  Kuva: Ismo Pekkarinen / AOP
-
-Perinteikästä suomalaisviinaa Koskenkorvaa aletaan myydä Yhdysvalloissa. Koskenkorvaa voi ostaa Yhdysvalloissa elo-syyskuun vaihteesta lähtien, kertoo valmistajayhtiö Altia.
-
-Koskenkorva-vodkaa aiotaan myydä Yhdysvaltojen 10 osavaltiossa. Ensimmäisenä myynti aloitetaan Kaliforniassa.
-
-Koskenkorvaa myydään noin 30 maassa. Altia sanoo, että Koskenkorva on sen tärkein vientibrändi.
-
-## Käärmeet
-
-![Rantakäärme kuvattuna kivikossa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763179)
-
-Avaa kuvien katselu
-
-Rantakäärme ei ole myrkyllinen. Kuva: Ismo Pekkarinen / AOP
-
-Pelastuslaitoksilla on ollut tänä kesänä ennätysmäärä hälytyksiä käärmeiden takia.
-
-Elokuun alkuun mennessä pelastuslaitos on hälytetty apuun käärmeiden takia yhteensä noin 35 kertaa. Se on yhtä paljon kuin tavallisesti koko vuoden aikana.
-
-Käärmeitä on haettu pois esimerkiksi asunnoista, parvekkeilta ja terasseilta.
-
-Suurin osa on ollut rantakäärmeitä. Rantakäärme ei ole myrkyllinen.
-
-Eniten käärmetehtäviä on ollut Länsi-Uudellamaalla, Turun seudulla ja Helsingissä.
-
-## Terveisiä Kielistä
-
-![Oppilaat laulavat koulussa Kielissä, Saksassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763203)
-
-Avaa kuvien katselu
-
-Kielin suomikoululaiset laulavat onnittelulaulun.  Kuva: Yle
-
-Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa.
-
-Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
-
-Uusimmat terveiset tulevat Kielin Suomi-koulusta, Saksasta.
+Pian myös Suomessa voi käyttää yhteisöpalvelu Facebookin kauppapaikka-toimintoa. Facebookilla on oma kauppapaikka, jossa voi ostaa ja myydä tavaroita. Sen nimi on Marketplace. Sitä ei ole ennen voinut käyttää Suomessa.

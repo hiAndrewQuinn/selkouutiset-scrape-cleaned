@@ -1,67 +1,65 @@
-# Keskiviikko 2.8.2017 (radio)
+# Torstai 3.8.2017 (radio)
 
-Monilla suomalaisilla on velkaongelmia. Britannian prinssi Philip on jäänyt eläkkeelle. Suomessa saadaan nyt paljon vesisateita. Suomi-koulujen opettajat ovat olleet koulutuspäivillä Helsingissä.
+Asuntojen vuokrat nousevat Suomessa. Matkatoimistot myyvät paljon matkoja kylmän kesän jälkeen. Katseessa on voimaa. Suomen kielen yhdyssanat ovat vaikeita.
 
-## Velkaongelmat ovat tavallisia
+## Kalliit vuokrat
 
-![taskulaskin, kädet ja rahapino](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9603548)
-
-Avaa kuvien katselu
-
-Mistä rahat kaikkiin laskuihin? Kuva: Yle
-
-Monilla suomalaisilla on velkaa. Monet ottavat velkaa niin paljon, että he eivät pysty maksamaan kaikkia laskuja.
-
-Jos ihminen ei maksa laskuja, hänelle voi tulla maksuhäiriömerkintä. Nyt jo 375.000 suomalaisella on maksuhäiriömerkintä.
-
-Maksuhäiriömerkintä tekee elämästä hankalaa. Ihmisen on vaikea esimerkiksi vuokrata asuntoa merkinnän takia.
-
-Monet maksavat vanhan lainan pois uudella lainalla. Usein se kuitenkin tarkoittaa sitä, että lainan määrä vain kasvaa.
-
-## Prinssi Philip jäi eläkkeelle
-
-![Kuningatar Elisabet ja prinssi Philip](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9753976)
+![Yksiö Viitatornissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6685383)
 
 Avaa kuvien katselu
 
-Britannian kuningatar Elisabet ja prinssi Philip. Kuva: Will Oliver/Epa
+Monet etsivät pientä vuokra-asuntoa. Kuva: Matti Myller / Yle
 
-Uutinen Britanniasta: Prinssi Philip on jäänyt eläkkeelle. Hän on 96-vuotias.
+Asuntojen vuokrat nousevat Suomessa. Kesän alussa vuokrat olivat 2,5 prosenttia suurempia kuin vuosi sitten.
 
-Prinssi Philipin viimeinen virallinen tehtävä oli keskiviikkona, kun hän otti vastaan sotilasparaatin Lontoossa. Paraati oli Buckinghamin palatsin edessä.
+Suurimmat vuokrat löytyvät Helsingin seudulta. Siellä keskimääräinen vuokra on jo yli 18 euroa asunnon neliötä kohti.
 
-Prinssi Philip on kuningatar Elisabetin aviomies. Kuningatar Elisabet on 91-vuotias, mutta hän jatkaa työtä.
+Suomessa on liian vähän pieniä vuokra-asuntoja. Siksi yksiöiden neliövuokrat ovat kalliimpia kuin isojen asuntojen neliövuokrat.
 
-Kuningatar Elisabet ja prinssi Philip ovat jo siirtäneet monia tehtäviä Britannian nuoremmille kuninkaallisille.
+## Suomalaisten lomamatkat
 
-## Vettä sataa paljon
-
-![Vesisade.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9751762)
+![Auringonpalvominen ja etenkin ihon polttaminen altistavat melanoomalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6556606)
 
 Avaa kuvien katselu
 
-Sää on sateista eri puolilla Suomea. Kuva: Uula Kuvaja / Yle
+Suomalainen haluaa talvella etelään, jos kesä kotona oli kylmä. Kuva: Pekka Sipilä / Yle
 
-Suomessa sataa nyt paljon vettä. Ilmatieteen laitos varoittaa kovista sateista.
+Matkatoimistot myyvät nyt paljon matkoja. Suomalaiset haluavat matkustaa ensi syksynä tai talvena etelään, koska kesä on ollut Suomessa kylmä.
 
-Vettä sataa eniten Itä-Suomessa. 5 päivässä Itä-Suomessa voi sataa yhtä paljon kuin tavallisesti koko elokuun aikana.
+Suurin osa syksyn matkoista on jo myyty. Syysloman aikana monet suomalaiset matkustavat esimerkiksi Kreikan saarille tai Espanjaan.
 
-Myös muualla Suomessa vettä voi sataa paljon.
+Myös talven matkoja on myyty paljon. Talvella suomalaiset matkustavat esimerkiksi Kanarian saarille ja Thaimaahan.
 
-## Suomi-koulujen opettajat saivat koulutusta
+Suomalaisilla on nyt varaa ostaa matkoja, koska Suomen taloustilanne on parantunut.
 
-![Baselin suomikoulun oppilaita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9662755)
+## Voimakas katse
+
+![Silmät](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9753937)
 
 Avaa kuvien katselu
 
-Baselin Suomi-koulun oppilaita. Kuva: Yle
+Vaikuttaako tämä sinuun? Kuva: Matias Väänänen / Yle
 
-Suomi-koulujen opettajat ovat olleet koulutuspäivillä Helsingissä. Koulutuksessa he saivat ideoita suomen kielen opettamiseen.
+Katseessa on voimaa. Ihminen on tarkkaavaisempi ja pirteämpi, jos joku katsoo häntä. Silloin ihminen myös oppii ja muistaa paremmin.
 
-Suomi-koulut opettavat suomen kieltä ulkosuomalaisille eli suomalaisille, jotka asuvat ulkomailla.
+Psykologi Terhi Helminen Tampereen yliopistosta on tutkinut katseen voimaa. Helminen sanoo, että ihmisen kädet hikoilevat vähän tavallista enemmän, kun joku katsoo häntä. Se voidaan mitata kaikilta ihmisiltä kaikkialla maailmassa.
 
-Suomi-koulut antavat opetusta viikonloppuina. Arkipäivinä ulkosuomalaisten perheiden lapset käyvät tavallista koulua, jossa opetetaan eri oppiaineita asuinmaan kielellä.
+Käsien hikoileminen on merkki siitä, että ihminen on tavallista tarkkaavaisempi. Ihminen voi siis vaikuttaa katseella toiseen ihmiseen.
 
-Opettaja Maila Eichhorn on ollut pitkään mukana Suomi-koulujen työssä. Eichhorn sanoo, että ulkosuomalaisen lapsen suomen kielen taito on vanhempien vastuulla. Tärkeintä on, että kotona puhutaan suomea. Suomi-koulujen tehtävä on tukea kielikasvatusta, jota vanhemmat antavat, Eichhorn sanoo.
+## Vaikeat yhdyssanat
 
-Tänä vuonna Suomi-kouluissa tehdään myös videotervehdyksiä 100-vuotiaalle Suomelle. Tervehdykset löytyvät selkouutisten internet-sivuilta ja Facebook-sivulta.
+![Kuvituskuva kielipoliisista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9755749)
+
+Avaa kuvien katselu
+
+Suomen kieli on joskus vaikeaa myös suomenkieliselle. Kuva: Yle Uutisgrafiikka
+
+Suomen kielen yhdyssanat ovat vaikeita. Pitkiä sanoja on paljon. Esimerkiksi "työterveyslääkäriasema" kirjoitetaan yhteen.
+
+Myös suomenkieliset tekevät yhdyssanoissa virheitä. Virheistä jopa riidellään esimerkiksi Facebookissa.
+
+Tutkija Sari Maamies sanoo, että erilaisten tekstien ja kirjoittajien määrä on kasvanut sosiaalisen median takia. Siksi yhdyssanavirheitä näkee nykyään enemmän kuin ennen.
+
+Myös kieli ja sen säännöt muuttuvat. Vanha sääntö on, että esimerkiksi "päinvastoin" kirjoitetaan yhteen, eli se on yhdyssana. Nykyään sen voi kuitenkin kirjoittaa myös erikseen eli "päin vastoin".
+
+Kun yhdyssanoja oikein miettii, myös asiantuntija voi mennä sekaisin, tutkija Sari Maamies nauraa.

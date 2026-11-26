@@ -1,79 +1,91 @@
-# Radio Selkouutiset torstai 20.4.2023
+# Radio Selkouutiset perjantai 21.4.2023
 
-Viivästyneet tutkinnot. EU:n kaasuvarastot. Hiilinielut. Ilmoituskanavat. Sää.
+Kokous Ukrainan auttamisesta. Suomen aseapu Ukrainalle. Siivousrobotit. Ulkomaalaiset lukio-opiskelijat. Id al-fitr -juhla. Sää.
 
-## Viivästyneet tutkinnot
+## Ukraina-kokous
 
-![Opiskelijapoika on netissä koulun tietokoneella](https://img.img-cdn.yle.fi/crop_extract,w_3839,h_2160,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-109302564269febd63e7/1680252994)
-
-Avaa kuvien katselu
-
-Koulutustaso ei ole noussut Suomessa 20 vuoteen käytännössä lainkaan.  Kuva: Janne Nykänen / Yle
-
-Usean alan opiskelijat eivät koskaan valmistu ja saa tutkintoja tehtyä.
-
-Yliopistoissa ja ammattikorkeakouluissa on aloja, joista vain noin 20 prosenttia valmistuu tavoiteajassa. Osa ei valmistu pian tavoiteajan jälkeenkään.
-
-Yliopistossa tavoiteaika ylittyy tietojenkäsittelyn, tietoliikenteen ja luonnontieteiden aloilla. Tietojenkäsittelyssä ja tietoliikenteessä vain vajaa 24 prosenttia valmistuu 7 vuodessa.
-
-Tavoiteajat ylittyvät samoilla aloilla myös ammattikorkeakouluissa.
-
-Syitä ovat esimerkiksi nopea työllistyminen, motivaatio-ongelmat ja opintojen vaikeus. Lisäksi monien opiskelijoiden pitää käydä töissä toimeentulon takia.
-
-Koulutustaso ei ole noussut Suomessa 20 vuoteen käytännössä lainkaan.
-
-Suomi on jäänyt jälkeen muista teollisuusmaista.
-
-## Kaasuvarastot
-
-![Uusi kaasulaitos Strachocinassa, Puolassa. Tämän kautta kulkee kohta kaasua Slovakiaan.](https://img.img-cdn.yle.fi/crop_extract,w_5048,h_2839,x_0,y_498/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10146836335c88fcc49d/1664469440)
+![Ukrainas försvarsminister Oleksij Reznikov (längst till höger) tillsammans med Tysklands förvarsminister Boris Pistorius och USA:s försvarsminister Lloyd Austin. Fotograferade på Ramsteinmötet på fredagen. ](https://img.img-cdn.yle.fi/crop_extract,w_5418,h_3047,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106239763cbaa0760437/1674291868)
 
 Avaa kuvien katselu
 
-Kuva: Artur Widak / STELLA Pictures / ddp / abaca press
+Lloyd Austin avasi kokouksen. Kuva: EPA-EFE
 
-Euroopan unionin maiden kaasuvarastot ovat ennätystäysiä.
+Saksassa on järjestetty kokous, jossa on keskusteltu aseavusta Ukrainalle. Kokouksessa on ollut mukana yli 50 maata.
 
-Euroopan kaasuvarastot olivat toissa päivänä noin 57-prosenttisesti täynnä.
+USA:n puolustusministeri Lloyd Austin avasi kokouksen. Hän sanoi, että tuki Ukrainalle ei lopu.
 
-Kaasuvarastojen määrä vaikuttaa sähkölaskuihin: jos varastot ehtyvät ja maakaasun hinta alkaa nousta, sähkön hinta nousee. Vaikutus näkyy myös Suomessa.
+Austin sanoi, että tärkeä teema kokouksessa on esimerkiksi Ukrainan ilmapuolustuksen tukeminen.
 
-## Hiilinielut
+## Aseapu
 
-![Punainen metsäkone kaataa puita korkeassa männikössä.](https://img.img-cdn.yle.fi/crop_extract,w_1296,h_729,x_0,y_57/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1083281640ac8c81b977/1678428632)
-
-Avaa kuvien katselu
-
-Hiilinielut pienenevät, kun metsää kaadetaan liikaa. Kuva: Jani Aho / Tampereen kaupunki
-
-Suomen metsien hiilinielu on yhä jäämässä liian pieneksi. Hiilinielu tarkoittaa sitä, että esimerkiksi metsä kerää ja varastoi hiilidioksidia. Hiilidioksidi aiheuttaa ilmaston lämpenemistä.
-
-Suomella on vaikeuksia saavuttaa Euroopan unionin ilmastovelvoitteet. Kuluva velvoitejakso kestää vuoteen 2025 asti.
-
-## Ilmoituskanavat
-
-![Kyltti, jossa teksti: Työmaa-alue. Pääsy asiattomilta kielletty.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1097834643649c74648c/1681279708)
+![Varusmies maastoharjoituksissa Niinisalossa kesäkuussa 2021.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_653/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81483260b77cc412c0d/1622637856)
 
 Avaa kuvien katselu
 
-Kuva: Matias Väänänen / Yle
+Suomi auttaa Ukrainaa aseilla ja muilla puolustustarvikkeilla. Kuva: Kasper Heimolehto/Yle
 
-Noin 20 prosenttia suomalaisfirmoista on vielä ilman pakollista ilmoituskanavaa. Asiasta kertoo Keskuskauppakamarin kysely.
+Suomi antaa lisää aseapua Ukrainalle. Uuden apupaketin arvo on 78 miljoonaa euroa.
 
-Vuoden alussa tuli voimaan uusi laki. Kaikilla vähintään 50:n työntekijän firmoilla on oltava ilmoituskanava. Sen kautta työntekijät voivat ilmoittaa epäkohdista tai väärinkäytöksistä. Ilmoituksen voi tehdä nimettömästi ja turvallisesti. Lainsäädännöllä varmistetaan, että ilmoituksesta ei tule hankaluuksia ilmoittajalle.
+Suomi lähettää puolustustarvikkeita ukrainalaisten sotilaiden koulutukseen. Euroopan unioni kouluttaa ukrainalaissotilaita Puolassa.
 
-2 vuotta sitten ilmoituskanava oli käytössä noin puolella yrityksistä.
+Tämä on 15. kerta, kun Suomi antaa Ukrainalle puolustustarvikkeita. Suomen apupakettien arvo on yhteensä 990 miljoonaa euroa.
+
+## Siivousrobotit
+
+![Siivousrobotti kulkee kauppakäytävällä.](https://img.img-cdn.yle.fi/crop_extract,w_4618,h_2593,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1100517643e5aca8b0eb/1681808519)
+
+Avaa kuvien katselu
+
+Siivousrobotti pesee lattiaa. Kuva: Johanna Lehtola / Yle
+
+Siivoojan työ muuttuu. Tulevaisuudessa siivoojan työkaveri on usein robotti.
+
+Siivousrobotteja on jo nyt esimerkiksi tehdashalleissa ja joissakin kaupoissa. Siellä robotit puhdistavat lattioita.
+
+Siivoojalla jää aikaa tehdä vaikeampia töitä, kun robotti pesee lattian. Se on tärkeää, koska siivoojia on liian vähän.
+
+Lähivuosina siivoojapula vain pahenee, kun monet siivoojat jäävät eläkkeelle.
+
+## Lukio-opiskelijat
+
+![Helsingin Kallion lukion liikunsalissa tehtiin 18. maaliskuuta vieraan kielen lyhyen oppimäärän ylioppilaskoe.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7855856053424f1656c/1653213365)
+
+Avaa kuvien katselu
+
+Lukiolaisia ylioppilaskokeessa. Kuva: Silja Viitala / Yle
+
+Pienten kuntien lukiot ovat ottaneet opiskelijoita myös ulkomailta.
+
+Viime syksynä noin 140 ulkomaalaista opiskelijaa aloitti opinnot jossakin Suomen pienistä lukioista. Suurin osa opiskelijoista tuli Aasiasta.
+
+Opiskelijat ovat opetelleet suomen kielen, jo ennen kuin he ovat tulleet Suomeen.
+
+Tulevaisuudessa ulkomaalaisten opiskelijoiden määrä kasvaa. Toivotaan, että he jäävät opintojen jälkeen Suomeen töihin.
+
+## Id al-fitr -juhla
+
+![ID-juhlan leivonnaisia.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948792626eb628b387d/1651422846)
+
+Avaa kuvien katselu
+
+Id al-fitr -juhlaan kuuluu hyvä ruoka. Kuva: John Palmen
+
+Muslimien pyhä kuukausi ramadan loppuu tänään perjantaina.
+
+Ramadanin aikana muslimit ovat paastonneet, eli he eivät ole syöneet tai juoneet päivän valoisana aikana.
+
+Ramadan loppuu id al-fitr -juhlaan. Juhla voi kestää 3 päivää.
+
+Muslimit juhlivat id al-fitr -juhlaa yhdessä sukulaisten ja ystävien kanssa. Juhlan aikana lapset saavat usein lahjoja.
 
 ## Sää
 
-![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106461063d34527ddde7/1674790222)
+![Sääkartta lauantaille.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11026186442a875ad541/1682090196)
 
 Avaa kuvien katselu
 
-Kuva: Yle
+Lauantaina maan etelä- ja keskiosassa on aurinkoista ja lämmintä. Lämpötila vaihtelee 12 ja 18 asteen välillä.
 
-Lämmin ja kuiva kevätsää muuttuu viileämmäksi.
+Pohjoisessa on kylmempää ja paikoin sataa vähän lunta.
 
-Perjantaina on pääosin aurinkoista ja lämmintä. Pohjoisessa sää viilenee ja on pilvisempää. Lämpötila vaihtelee 10 ja 18 asteen välillä, pohjoisessa on viileämpää.
-
-Maan etelä- ja keskiosaan saapuu sunnuntain ja maanantain välisenä yönä sadealue. Pohjanmaan alueella voi sataa lunta, etelässä sataa vettä.
+Sunnuntaina sää kylmenee. Maan pohjois- ja keskiosassa lämpötila on 0 ja +5:n asteen välillä, eteläosassa +5 ja +10 asteen välillä.

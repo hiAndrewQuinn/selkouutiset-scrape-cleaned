@@ -1,67 +1,89 @@
-# Radio Selkouutiset lauantai 15.7.2023
+# Radio Selkouutiset maanantai 17.7.2023
 
-Eduskunnan puhemies. RKP. Karhut. Lintuinfluenssa. Sää.
+Hallituspuolueiden yhteistyö. Suomen islamilaiset. Etelä-Korean tulvat. Nuorten EM-kisat. Maailmalla kuumaa, Suomessa viileää.
 
-## Eduskunnan puhemies Jussi Halla-aho
+## Hallituspuolueiden yhteistyö
 
-![Jussi Halla-Aho kuvattuna 10.7. 2023 Pikku Parlamentin edustalla.](https://img.img-cdn.yle.fi/crop_extract,w_5137,h_2889,x_0,y_301/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114089064ad25164eb87/1689068867)
-
-Avaa kuvien katselu
-
-Jussi Halla-aho kuvattuna 10.7. 2023 Pikku Parlamentin edustalla. Kuva: Sasha Silvala / Yle
-
-Eduskunnan puhemies Jussi Halla-aho ei keskeytä eduskunnan kesälomaa. Halla-aho perustelee päätöstä muun muassa sillä, että eduskunnan kesäloman keskeyttäminen on hyvin harvinaista. Halla-ahon mielestä eduskunnan kokoontumisella ei ole kova kiire.
-
-Oppositiopuolueet vaativat aikaisemmin, että eduskunnan pitää lopettaa kesäloma kesken. Oppositio haluaa, että eduskunta käsittelee pian hallituksen toimintakykyä ja ministereiden vanhoja, rasistisia nettikirjoituksia.
-
-## RKP
-
-![SFP:s ordförande Anna-Maja Henriksson.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_93/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114304864b19e581c253/1689362079)
+![Pääministeri Petteri Orpo (kok.) ja valtiovarainministeri Riikka Purra (ps.) vastasivat median kysymyksiin Kesärannassa Helsingissä 12. heinäkuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_244/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114155364ae9c4753e30/1689165147)
 
 Avaa kuvien katselu
 
-RKP:n puheenjohtaja Anna-Maja Henriksson. Kuva: Lehtikuva
+Riikka Purra ja Petteri Orpo. Kuva: Silja Viitala / Yle
 
-Hallituspuolue RKP on huolissaan siitä, onko Suomen hallitus toimintakykyinen. RKP:n eduskuntaryhmä keskusteli perjantai-iltana pitkään hallituksen vaikeuksista ja perussuomalaisen valtiovarainministeri Riikka Purran vanhoista nettikirjoituksista. RKP vaatii, että kaikki puolueet ja hallituksen ministerit tuomitsevat rasismin.
+Hallituspuolueiden yhteistyö sujuu huonosti. Syynä ovat perussuomalaisten ministerien vanhat rasistiset puheet ja kirjoitukset.
 
-## Lintuinfluenssa
+Puolueiden välit huononivat lisää viime viikolla, kun perussuomalaisten puheenjohtajan Riikka Purran vanhat kirjoitukset tulivat kaikkien tietoon. Kirjoitukset ovat rasistisia.
 
-![Lintuinfluenssaan kuolleen naurulokin syöty raato Lahden sataman aallonmurtajalla heinäkuussa 2023. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_245/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114077664ad01b7769f8/1689920018)
+Purra on pyytänyt kirjoituksia anteeksi, mutta kirjoitukset ovat vaikeuttaneet hallituspuolueiden yhteistyötä. Erityisesti perussuomalaisten ja RKP:n välit ovat nyt huonot.
 
-Avaa kuvien katselu
+Kokoomuksen puheenjohtaja ja pääministeri Petteri Orpo kertoi maanantaina, että hallituspuolueiden puheenjohtajat ovat keskustelleet tilanteesta ja keskustelut jatkuvat tällä viikolla.
 
-Lintuinfluenssaan kuollut naurulokki Lahden sataman aallonmurtajalla heinäkuussa 2023. Kuva: Markku Tuhkanen / Yle
+Orpo on julkisuudessa sanonut, että hallitus tekee työtä rasismia vastaan.
 
-Lintujen virustauti lintuinfluenssa tappaa lokkeja Suomessa. Lintuja on kesän aikana kuollut paljon lintuinfluenssaan esimerkiksi Salossa, Lahdessa ja Hämeenlinnan Hauholla.
+## Suomen islamilaiset
 
-Ruokavirasto kertoo, että luonnon linnuissa on nyt paljon lintuinfluenssaa. Myös muilla eläimillä on enemmän lintuinfluenssaa kuin aikaisemmin. Lintuinfluenssaa on esimerkiksi turkistarhojen eläimissä.
-
-Viranomainen kertoo, että lintuinfluenssa voi tarttua ihmiseen. Tähän ei kuitenkaan tällä hetkellä ole Suomessa suurta vaaraa.
-
-## Karhut
-
-![Ruskea karhu kävelee vihreällä niityllä.](https://img.img-cdn.yle.fi/crop_extract,w_4525,h_2545,x_1,y_336/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114311664b26af865c2d/1689414540)
+![Perjantai rukous Suomen islamilaisen yhdyskunnan moskeijassa Helsingissä](https://img.img-cdn.yle.fi/crop_extract,w_5460,h_3071,x_0,y_173/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105202163a417fb954d4/1671699443)
 
 Avaa kuvien katselu
 
-Karhu kuvattuna Itä-Suomessa 4.7.2023 Kuva: Olivier Morin / Lehtikuva
+Suomen islamilaisen yhdyskunnan moskeija Helsingissä. Kuva: Antti Kolppo / Yle
 
-Suomessa on paljon enemmän karhuja kuin vielä noin 20 vuotta sitten. Siksi ihminen ja karhu kohtaavat luonnossa useammin kuin aikaisemmin.
+Suomen islamilaiset vaativat hallitukselta tekoja rasismia vastaan.
 
-Luonnonvarakeskus kertoo, että nyt 2000-luvulla ihmisen ja karhun kohtaamisia on enemmän kuin ennen. Silti ihminen näkee karhun Suomessa vain harvoin. Karhu ei ole tappanut Suomessa yhtään ihmistä 2000-luvulla.
+Suomen islamilaiset yhdyskunnat ja järjestöt sanovat, että hallituksen pitää toimia vihapuhetta ja rasistista ajattelua vastaan.
 
-Suomessa on ehkä vähän alle 2000 karhua.
+26 islamilaista yhdyskuntaa ja järjestöä kirjoitti asiasta pääministeri Petteri Orpolle ja koko hallitukselle.
 
-## Sää
+## Etelä-Korean tulvat
 
-![Marjanpoimijoita pellolla. Kesäinen poutapäivä.](https://img.img-cdn.yle.fi/crop_extract,w_5389,h_3031,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135154649ad5061c9b1/1687869675)
+![Suojavarusteisiin pukeutuneita Ihmisiä rivissä vedessä tulvan valtaamalla tiellä autotunnelin edustalla.](https://img.img-cdn.yle.fi/crop_extract,w_3995,h_2247,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114329564b37b8cf2846/1689484480)
 
 Avaa kuvien katselu
 
-Sää on poutainen. Kuvituskuva. Kuva: Jani Saikko / Yle
+Pelastajia työssä Etelä-Korean tulva-alueella. Kuva: AFP
 
-Sää on sunnuntaina koko maassa poutainen. Pilvisyys vaihtelee selkeän ja puolipilvisen välillä.
+Etelä-Koreassa on kovia sateita. Sateet ovat jatkuneet jo 9 päivää.
 
-Yölämpötila on 10 ja 16 asteen välillä. Päivälämpötila vaihtelee 18 ja 27 asteen välillä. Sateessa voi olla viileämpää.
+Sateet ovat aiheuttaneet tulvia ja maanvyöryjä. Niiden takia on kuollut ainakin 40 ihmistä.
 
-Tuuli on enimmäkseen heikkoa tai kohtalaista.
+Sade on myös tuhonnut koteja ja katkaissut sähköjä. Yli 10 000 ihmistä on viety turvaan.
+
+## Nuorten EM-kisat
+
+![Kahdeksan suomalaisurheilijaa poseeraa nuorten EM-mitalien kanssa Espoossa.](https://img.img-cdn.yle.fi/crop_extract,w_4211,h_2368,x_0,y_134/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114344064b440c67c53e/1726554636)
+
+Avaa kuvien katselu
+
+Suomen nuoria EM-mitalisteja. Kuva: Tomi Hänninen/Chilipictures
+
+Suomen nuoret ovat menestyneet yleisurheilussa.
+
+Nuorten alle 23-vuotiaiden EM-kisoissa Suomi sai 10 mitalia. Joukossa oli 3 kultamitalia, eli 3 suomalaista voitti Euroopan mestaruuden.
+
+Suomalaiset Euroopan mestarit ovat moukarinheittäjä Silja Kosonen, seitsenottelija Saga Vanninen ja seiväshyppääjä Juho Alasaari.
+
+Yleisurheilun nuorten EM-kisat järjestettiin tällä kertaa Suomessa, Espoossa.
+
+## Maailmalla kuumaa
+
+![Ihmisiä uimarannalla Qingdaossa Kiinassa.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_278/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113981064a80187c67d3/1688732121)
+
+Avaa kuvien katselu
+
+Kiinalaiset kärsivät kuumuudesta. Kuva: AOP
+
+Kuuma sää jatkuu eri puolilla maailmaa.
+
+Kiinassa mitattiin uusi lämpöennätys sunnuntaina. Lämpötila oli 52,2 astetta. Se mitattiin Xinjiangin maakunnassa.
+
+## Suomessa viileää
+
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114385864b5683abcf59/1689610324)
+
+Avaa kuvien katselu
+
+Suomen sää on sateista. Koko maassa ukkostaa välillä. Ukkoset voivat olla voimakkaita.
+
+Lämpötilat ovat etelässä noin 20 astetta. Pohjoisessa on 15-20 astetta.
+
+Viileä ja sateinen sää jatkuu melkein koko viikon.

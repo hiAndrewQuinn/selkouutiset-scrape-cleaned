@@ -1,83 +1,87 @@
-# Radio Selkouutiset perjantai 15.9.2023
+# Radio Selkouutiset maanantai 18.9.2023
 
-Kielto venäläisille autoille. Ruotsin kuninkaan juhlat. Libyan tulvat. Ruuan hinta. Sää.
+Kenialaisopiskelijoiden huijaus. Maahanmuuuttajien työllistyminen. Lasten sähkötupakointi. Hätäilmoitukset. Sää.
 
-## Kielto venäläisille autoille
+## Kenialaisopiskelijoiden huijaaminen
 
-![Auto pysäköitynä syksyisenä puolipilvisenä päivänä Niiralan raja-aseman edessä Pohjois-Karjalan Tohmajärvellä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_293/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117271665044a1ee61a2/1694780305)
-
-Avaa kuvien katselu
-
-Venäjän rekisterikilvillä ei enää tulla rajan yli Suomeen. Kuva: Ari Haimakainen / Yle
-
-Suomi kieltää venäläisten henkilöautojen pääsyn maahan.
-
-Kielto tulee voimaan nopeasti, jo perjantaina keskiyöllä. Sen jälkeen henkilöautoa ei enää päästetä Suomeen, jos siinä on Venäjän rekisterikilvet.
-
-Kielto ei kuitenkaan koske EU-maiden kansalaisia, jotka asuvat Venäjällä.
-
-Kielto vähentää Suomen ja Venäjän välistä rajaliikennettä. Näin on tarkoitus vähentää pakotteiden kiertämistä.
-
-Euroopan unioni on määrännyt pakotteita, jotka esimerkiksi rajoittavat kauppaa Venäjän kanssa. Pakotteiden syy on Venäjän sota Ukrainassa.
-
-## Ruotsin kuninkaan juhlat
-
-![Ruotsin kuningatar Silvia ja Karl XVI Kustaa istuvat vierekkäin kultaisilla tuoleilla.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11725486504289e34aae/1694771862)
+![Uasin Gishun maakunnan laatima stipendiasiakirja TAMKin sairaanhoitajaopiskelijalle. Sen mukaan opiskelijoilla oli maakunnan maksama täysi stipendi.](https://img.img-cdn.yle.fi/crop_extract,w_2324,h_1307,x_0,y_360/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11717976502b55937b3a/1694676995)
 
 Avaa kuvien katselu
 
-Kuningas Kaarle Kustaa ja kuningatar Silvia. Kuva: Claudio Bresciani / Lehtikuva
+Tämän asiakirjan mukaan kenialaismaakunta maksoi opiskelijoiden opinnot Suomessa. Stipendiasiakirjoja tehtiin TAMKin sairaanhoitaja- ja fysioterapiaopiskelijoille. Kuva: kuvakaappaus kenialaismaakunta Uashin Gishun sisäisestä korruptioraportista. Kuva: kuvakaappaus kenialaismaakunta Uashin Gishun sisäisestä korruptioraportista
 
-Ruotsissa on juhlittu kuningas Kaarle Kustaata. Hän on nyt ollut Ruotsin kuningas tasan 50 vuotta.
+Ylen MOT-toimitus on saanut selville kenialaisopiskelijoiden huijaamisen. Kenia huijasi monta sataa kenialaisopiskelijaa Suomeen hoitoalalle.
 
-Kaarle Kustaasta tuli Ruotsin kuningas 15. syyskuuta 1973. Kuningas oli silloin 27-vuotias.
+Suomeen on tullut ainakin 2 500 opiskelijaa Kenian tilauskoulutuksen kautta.
 
-Kuninkaan juhlia on vietetty Tukholman kuninkaanlinnassa koko perjantaipäivä. Myös Suomen presidentti Sauli Niinistö ja rouva Jenni Haukio ovat olleet mukana juhlissa.
+Suomen viranomaiset ja oppilaitokset uskoivat, että kenialaiset maakunnat maksavat opiskelun Suomessa. Todellisuudessa opiskelijat maksoivat Keniaan tuhansia euroja.
 
-Suomella ja Ruotsilla on läheiset suhteet. Suomi oli osa Ruotsin kuningaskuntaa noin 600 vuotta.
+Esimerkiksi 2 opiskelijaa maksoi Uasin Gishun maakunnan tilille noin 10 000 euroa.
 
-Kuningas Kaarle Kustaa on vieraillut Suomessa usein. Ensi viikolla Ruotsin kuningasperheen vierailut Suomeen jatkuvat.
+Sillä oli tarkoitus maksaa ensimmäinen lukukausimaksu, lennot, vakuutukset, oleskeluluvat ja puolen vuoden vuokrat.
 
-Kaarle Kustaan tytär kruununprinsessa Victoria vierailee Suomessa ensi keskiviikkona ja torstaina.
+Opiskelijoiden täytyi kuitenkin maksaa kaikki itse.
 
-## Libyan tulvat
+Uasin Gishun virkamiehet valehtelivat, että opiskelijat saavat Suomesta helposti hoitotyötä ja voivat lähettää rahaa Keniaan perheille.
 
-![Maisema tulvan runtelemasta kaupungista. ](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_700/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117175365029d0ab1f96/1717407706)
+Nyt opiskelijoilla on paljon velkaa. He tekevät Suomessa esimerkiksi ruokalähetin tai siivoojan töitä.
 
-Avaa kuvien katselu
+## Maahanmuuttajien työllistyminen
 
-Tulvat tekivät paljon tuhoa Libyassa. Kuva: Mohamed Shalash / EPA
-
-Pohjois-Afrikan Libyassa on epäselvää, kuinka paljon tuhoa tulvat ovat tehneet. Näin sanoo YK eli Yhdistyneet kansakunnat.
-
-YK arvioi, että melkein 300 000 lasta kärsii tuhoista Libyan itäosissa.
-
-Tulvien syy on myrsky, joka iski Libyaan sunnuntaina. Myrsky rikkoi patoja, ja siksi vesi syöksyi kaupunkien kaduille.
-
-Tulvissa on kuollut monta tuhatta ihmistä. Lisäksi monet libyalaiset ovat ilman kotia.
-
-## Ruuan hinta
-
-![Ruokakorissa muun muassa olutta, kahvipaketti, energiajuomatölkki, eineslaatikko, maitopurkki ja paketti terveyssiteitä.](https://img.img-cdn.yle.fi/crop_extract,w_5822,h_3274,x_6,y_518/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11719296502d92c56668/1719924643)
+![Postinkantaja Hameed Shinwari jakokierroksella Länsi-Pakilassa, Helsinki, 21.5.2021.](https://img.img-cdn.yle.fi/crop_extract,w_5766,h_3243,x_0,y_297/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80931060a78c68ca548/1621601682)
 
 Avaa kuvien katselu
 
-Ruoka on kallistunut tänä ja viime vuonna. Kuva: Janne Körkkö / Yle
+Kuva: Jari Kovalainen / Yle
 
-Hinnat ovat nousseet Suomen ruokakaupoissa. Ruoka on nyt noin 15 prosenttia kalliimpaa kuin viime vuoden alussa.
+Maahanmuuttajat pääsevät työhön Suomessa parhaiten, kun he kysyvät työtä suoraan työnantajilta.
 
-Eri tuotteiden hinnat ovat kuitenkin nousseet eri vauhtia. Maitotuotteet ovat kallistuneet yli 20 prosenttia, mutta esimerkiksi olut on kallistunut vain 6 prosenttia.
+Myös tuttavien kautta työn saaminen on yleistä, kertoo Terveyden ja hyvinvoinnin laitoksen tutkimus.
 
-Viime kuukausina ruuan hinnan nousu on kuitenkin vähän hidastunut.
+Vain harvat maahanmuuttajat saavat töitä TE-toimiston tai yksityisen työnvälityksen kautta.
+
+THL selvitti Suomeen vuosina 2018 ja 2019 muuttaneiden työllistymistä.
+
+## Hätäilmoitukset
+
+![Hätäkeskuspäivystäjiä työssään vastaanottamassa puheluita työpisteillään.](https://img.img-cdn.yle.fi/crop_extract,w_7952,h_4473,x_0,y_415/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89246561b9e468f22c0/1639573058)
+
+Avaa kuvien katselu
+
+Keravan hätäkeskus. Kuva: Patrik Molander / Yle
+
+Hätäilmoituksen tekeminen helpottuu vuoden 2025 lopulla.
+
+Silloin hätäilmoituksen voi tehdä myös reaaliaikaisella tekstinsyötöllä, kertoo Hätäkeskuslaitos.
+
+Tekstinsyöttö auttaa ihmisiä, joiden on vaikea kuulla tai puhua. Nyt he ovat käyttäneet hätätekstiviestiä.
+
+Reaaliaikaisessa tekstinsyötössä teksti välittyy ilmoittajan ja hätäkeskuksen välillä kirjain kirjaimelta.
+
+## Sähkötupakka
+
+![Hupparipäinen henkilö puhaltaa savua ilmaan.](https://img.img-cdn.yle.fi/crop_extract,w_6039,h_3398,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115674164db4ba320ff9/1692093941)
+
+Avaa kuvien katselu
+
+THL esittää tupakkatuotteiden ostoikärajan nostamista. THL:n mukaan ikärajan nosto 20 vuoteen voi vähentää lasten mahdollisuuksia hankkia sähkötupakkaa.  Kuva: Chicken Strip / Alamy/All Over Press
+
+Pimeillä eli laittomilla markkinoilla myydään paljon sähkötupakkaa. Sähkötupakat eli vapet ovat lasten suosiossa.
+
+Ylen selvitys kertoo, että vapeja kaupataan muun muassa sosiaalisessa mediassa ja viestisovellus Telegramissa.
+
+Alaikäiset myös myyvät vapeja toisille lapsille.
+
+Monet lapset ovat jo jääneet nikotiinikoukkuun, eli he ovat riippuvaisia nikotiinista.
+
+Pimeillä markkinoilla myydään sähkötupakkaa, jossa on nikotiinia paljon enemmän kuin laki sallii.
 
 ## Sää
 
-![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11728386504747104e21/1694790816)
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117361565086598264ec/1695049163)
 
 Avaa kuvien katselu
 
-Lauantaina etelässä on aurinkoista ja lämmintä, maan keskivaiheilla sataa vettä ja Lapissa on pilvistä.
+Kuva: Yle
 
-Lämpötila on lauantaina 8 ja 18 asteen välillä.
-
-Sunnuntaina Suomeen tulee uusia sateita.
+Tiistaina iltapäivällä sataa lännessä ja pohjoisessa. Lapissa sataa lunta tiistai-illasta alkaen. Lämpötila on 14 -19 astetta. Lapissa on noin 5 astetta.

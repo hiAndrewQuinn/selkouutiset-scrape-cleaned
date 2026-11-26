@@ -1,75 +1,65 @@
-# Lauantai 23.9.2017 (radio)
+# Tiistai 26.9.2017 (radio)
 
-Suomessa keskustellaan siitä, pitääkö presidentin olla syntynyt Suomen kansalaiseksi. Laura Huhtasaari on perussuomalaisten presidenttiehdokas. Saksassa on sunnuntaina parlamenttivaalit. Maahanmuuttajalapset oppivat lukemaan ja kirjoittamaan yhtä hyvin kuin suomalaiset lapset. Sää on lämmin.
+Terveystietojen vuoto internetiin. Rakentaminen vilkasta. Lapsipornotuomio. Länsimetron myöhästyminen. Balin Agung voi purkautua.
 
-## Presidentin syntyperävaatimus
+## Terveysviranomaisilla paha tietovuoto
 
-![Presidentinlinna ja Tuomiokirkko.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9641821)
-
-Avaa kuvien katselu
-
-Nykyään presidentiksi voi päästä vain, jos on syntynyt Suomen kansalaiseksi. Kuva: Henrietta Hassinen / Yle
-
-Suomessa keskustellaan siitä, pitääkö presidentin syntyperävaatimus poistaa. Syntyperävaatimus tarkoittaa, että presidentiksi voi päästä vain ihminen, joka on syntynyt Suomen kansalaiseksi.
-
-Monien mielestä vaatimus syrjii maahanmuuttajia. Esimerkiksi sellaiset poliitikot kuin Nasima Razmyar tai Ozan Yanar eivät voi pyrkiä presidentiksi, koska heillä on maahanmuuttajatausta. He eivät olleet Suomen kansalaisia, kun he syntyivät.
-
-Presidentin syntyperävaatimuksen poistamista on ehdottanut kansanedustaja Pilvi Torsti. Myös monet muut ovat sitä mieltä, että vaatimus on vanhanaikainen. Asiasta päättää Suomen parlamentti eli eduskunta.
-
-## Perussuomalaisten presidenttiehdokas
-
-![Laura Huhtasaari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9848199)
+![thl:n sisäänkäynti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9851343)
 
 Avaa kuvien katselu
 
-Laura Huhtasaari on perussuomalaisten presidenttiehdokas. Kuva: Antti Aimo-Koivisto / Lehtikuva
+THL:ssä on töissä terveyden asiantuntijoita.  Kuva: Heikki Saukkomaa / Lehtikuva
 
-Perussuomalaiset-puolue on päättänyt, kuka on puoleen presidenttiehdokas. Ehdokas on Laura Huhtasaari.
+Suomessa on tapahtunut paha tietovuoto. Ihmisten henkilötietoja on päässyt vuotamaan internetiin. Tietovuoto tapahtui THL:ssä, jossa on töissä terveysviranomaisia. Tietovuodossa pääsi internetiin esimerkiksi 6000 ihmisen laboratoriokokeiden tulokset.
 
-Huhtasaari on perussuomalaisten varapuheenjohtaja. Huhtasaari ei halua, että Suomeen tulee paljon maahanmuuttajia. Hän vastustaa myös islamia.
+Tietovuoto sattui elokuussa. THL kertoo, että tiedot otettiin internetistä heti pois. Tietovuoto oli vahinko. Työntekijä teki virheen tietojen käsittelyssä. THL on pyytänyt tietovuotoa anteeksi.
 
-Presidentinvaalit järjestetään tammikuussa. Vaaleissa on monta ehdokasta.
+Tietosuoja-asiantuntija sanoo, että vuoto on vakava. Tietosuojavaltuutettu Reijo Aarnion mielestä ihmiset ovat luottaneet siihen, että omia terveystietoja ei mene internetiin. Aarnio sanoo, että ihmisten luottamusta on nyt järkytetty.
 
-Myös nykyinen presidentti Sauli Niinistö haluaa jatkaa presidentin työssä. Mielipidekyselyt ennustavat, että suomalaiset valitsevat Niinistön uudelleen presidentiksi.
+## Suomessa rakennetaan paljon
 
-## Vaalit Saksassa
-
-![Saksan liittokansleri Angela Merkel puhui lehdistölle G20-kokouksen päätteeksi Hampurissa 8. heinäkuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9830260)
+![Rakennustyömaa Tripla Pasilassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9850370)
 
 Avaa kuvien katselu
 
-Saksan liittokansleri Angela Merkel. Kuva: Daniel Kopatsch / EPA 
+Nyt nousee paljon uusia rakennuksia.  Kuva: Jyrki Lyytikkä / Yle
 
-Saksassa on sunnuntaina parlamenttivaalit.
+Suomessa rakennetaan tänä vuonna tosi paljon uusia rakennuksia. Tänä vuonna aloitetaan esimerkiksi 40 000 uuden asunnon rakentaminen. Arvioidaan, että ensi vuonna rakentaminen ei ole yhtä vilkasta kuin tänä vuonna.
 
-Mielipidekyselyt ennustavat, että kristillisdemokraatit voittavat vaalit. Kristillisdemokraattien johtaja on Angela Merkel.
+Suomessa korjataan paljon myös vanhoja asuntoja. Moni asunto alkaa olla niin vanha, että se täytyy remontoida.
 
-Merkel on myös liittokansleri eli Saksan poliittinen johtaja. Jos kristillisdemokraatit voittavat vaalit, Merkel jatkaa liittokanslerina.
+## Tampereella suuri lapsipornotuomio
 
-Saksan vaalit kiinnostavat myös muita Euroopan maita, koska Saksa on Euroopan unionin suurin maa.
-
-## Lukemaan ja kirjoittamaan oppiminen
-
-![Syyrialaisperhe.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9841636)
+![Tampereen oikeustalo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9192304)
 
 Avaa kuvien katselu
 
-Vanhemmat Salah Bitar ja Marina Bsis, lapset Muhammed Bitar ja Zamzam Bitar. Kuva: Janne Ahjopalo / Yle
+Tampereen oikeustalo.  Kuva: Antti Eintola / Yle
 
-Maahanmuuttajalapset oppivat lukemaan ja kirjoittamaan yhtä hyvin kuin suomalaiset lapset. Asiaa on tutkinut Riitta Sikiö.
+Oikeus on tuominnut Tampereella miehen yli 3 vuoden vankeuteen lapsipornosta. Oikeuden mukaan mieheltä löydettiin yli 850 000 lapsipornokuvaa. Lisäksi miehellä oli yli 18 000 videota, joissa oli lapsipornoa.
 
-Sikiö sanoo, että maahanmuuttajalapset oppivat paremmin, jos vanhemmat kannustavat heitä.
+Mies oli ladannut paljon kuvia ja videoita myös internetiin. Rikokset tehtiin viime vuonna ja tämän vuoden alussa.
 
-Yle tapasi Joensuussa syyrialaisen Bitarin perheen, jossa lapsia kannustetaan oppimaan. Koko perhe opettelee suomea yhdessä. Vanhemmat käyvät suomen kursseilla ja lapset ovat koulussa.
+## Länsimetro voi myöhästyä taas
 
-On hauskaa, että opettelemme samoja asioita, perheen äiti Marina Bsis kertoo.
-
-## Lämmin sää
-
-![Ruskan alkua Kaivopuistossa, lehtiä lähikuvassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9848310)
+![Länsimetro Aalto-yliopiston metroasema](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9344650)
 
 Avaa kuvien katselu
 
-Kaunis sää kutsuu nyt ulkoilemaan. Kuva: Heikki Saukkomaa / Lehtikuva
+Länsimetron toiminnan alkamista on odotettu pitkään.  Kuva: Antti Kolppo / Yle
 
-Sää on lämmin. Melkein koko maassa lämmintä on 15 ja 20 asteen välillä. Lämmin sää jatkuu koko syyskuun lopun.
+Helsingin seudun uusi Länsimetro voi myöhästyä lisää. Länsimetroa ei ehkä voida ottaa käyttöön vieläkään sähkövikojen vuoksi.
+
+Odotetaan, että liikenne uudella metrolinjalla alkaisi lokakuussa.  Liikenteen piti alkaa ensin jo vuonna 2014. Rakentaminen on kuitenkin myöhästynyt pahasti.
+
+## Agungin purkausta odotetaan
+
+![Paikalliset asukkaat katselevat Agung-tulivuorta Balilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9847916)
+
+Avaa kuvien katselu
+
+Agungin lähellä on ollut satoja pieniä järistyksiä.  Kuva: Made Nagi / EPA
+
+Indonesiassa Balin saarella pelätään tulivuoren purkautumista. Balin tulivuori Agung voi asiantuntijoiden mukaan purkautua pian. Vuoren lähellä on tuntunut monta sataa pientä maanjäristystä. Se voi olla merkki purkauksen alkamisesta pian.
+
+Saarella on viety turvaan jo yli 75 000 ihmistä. Agung purkautui edellisen kerran vuonna 1963.

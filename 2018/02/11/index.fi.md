@@ -1,67 +1,69 @@
-# Lauantai 10.2.2018 (radio)
+# Sunnuntai 11.2.2018 (radio)
 
-Suomi sai ensimmäisen mitalin talviolympialaisissa. Eurojackpotin päävoitto meni Loimaalle. Haamuverkot ovat ongelma myös Itämeressä. Hallitus saa hyvät arviot maanviljelijöiltä, eläkeläisiltä ja yrittäjiltä.
+Matkustajakone syöksyi maahan Moskovassa. Puheluruuhkat hidastavat hätäpuheluita. Lauantai ei tuonut olympiamitaleita suomalaisille. Ylioppilaskirjoitukset alkavat. Minä luen sinulle -kampanja on päättynyt.
 
-## Olympialaiset
+## Lentokone syöksyi maahan Moskovassa
 
-![Krista Pärmäkoski](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10069800)
-
-Avaa kuvien katselu
-
-Krista Pärmäkoski voitti olympiapronssia Kuva: Lehtikuva
-
-Suomi on voittanut ensimmäisen mitalin talviolympialaisissa Etelä-Koreassa.
-
-Krista Pärmäkoski voitti pronssimitalin eli oli 3. hiihdon yhdistelmäkilpailussa. Kilpailun voitti Ruotsin Charlotte Kalla ja Norjan Marit Björgen oli toinen.
-
-Yhdistelmäkilpailussa hiihdetään puolet matkasta perinteisellä tyylillä ja puolet vapaalla tyylillä. Hiihtomatka oli yhteensä 15 kilometriä.
-
-## Eurojackpot
-
-![Eurojackpotin mainos Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9567850)
+![Saratov Airlinesin kone lentokentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10070338)
 
 Avaa kuvien katselu
 
-Eurojackpotin täysosuma ja Suomen kaikkien aikojen suurin rahapelivoitto meni Loimaalle. Kuva: Vesa Moilanen / Lehtikuva
+Kone oli matkalla Moskovasta Orskin kaupunkiin, joka on lähellä Kazakstanin rajaa.. Kuva: Yuri Smityuk / AOP
 
-Eurojackpotin päävoitto on taas tullut Suomeen. Päävoitto oli 90 miljoonaa euroa. Se on Suomen kaikkien aikojen suurin rahapelivoitto.
+Venäjällä on sattunut vakava lento-onnettomuus.
 
-Päävoitto meni viiden pelaajan porukalle. Jokainen pelaaja saa 18 miljoonaa euroa. Peli pelattiin Loimaan Prismassa.
+Venäläiset uutistoimistot kertovat, että matkustajakone syöksyi maahan Moskovan kaakkoispuolella. Koneessa oli 71 matkustajaa ja miehistön jäsentä. Kone lähti iltapäivällä Moskovasta kohti Orskin kaupunkia.
 
-Eurojackpotin täysosuma on tullut Suomeen nyt yhteensä 14 kertaa. Edellisen kerran päävoitto tuli Suomeen viime lokakuussa.
+Turman syystä ei toistaiseksi ole tietoa. Kone tuhoutui turmassa täysin.
 
-Tällä kierroksella Suomeen tuli myös pienempi voitto, 3,4 miljoonaa euroa. Se meni nettipelaajalle Ouluun.
+## Hätäpuhelujärjestelmä on myöhässä
 
-## Haamuverkot
-
-![pieni kilpikonna takertunut verkkoon](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10069510)
+![Hätäkeskuksien aluejako -kartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10065451)
 
 Avaa kuvien katselu
 
-Haamuverkko voi olla surmanloukku merikilpikonnalle. Kuva: AOP
+Suomessa on 6 alueellista hätäkeskusta. Kuva: Yle Uutisgrafiikka
 
-Maailman meriin jää joka vuosi iso määrä kalaverkkoja ja trooleja. Verkot ja troolit ovat ehkä karanneet kalastajilta tai tarttuneet kiinni merenpohjan kiviin tai hylkyihin.
+Hätäpuheluihin vastataan vieläkin liian hitaasti. Syynä ovat puheluruuhkat.
 
-Tällaiset karanneet verkot eli haamuverkot voivat tehdä meressä paljon pahaa, sillä usein ne jatkavat kalastamista. Kalojen lisäksi verkkojen vangiksi voi uida esimerkiksi delfiinejä, merikilpikonnia, haikaloja tai hylkeitä. Verkot on tehty kestävästä materiaalista, joten ne eivät hajoa merivedessä.
+Vastaamista piti nopeuttaa, mutta uusi Erica-tietojärjestelmä on myöhässä. Järjestelmän piti olla käytössä jo vuonna 2015. Nyt Hätäkeskuslaitos uskoo, että järjestelmä toimii koko Suomessa ensi vuoden keväällä.
 
-Haamuverkkoja on paljon myös Itämeressä. Etenkin Saksa ja Puola ovat keränneet niitä pois. Esimerkiksi Puolan aluevesiltä haamuverkkoja on puhdistettu pois satoja tonneja.
+Erica-järjestelmä yhdistää kaikki Suomen 6 alueellista hätäkeskusta. Järjestelmän avulla hätäpuhelu ei jää oman alueen puhelujonoon vaan yhdistyy nopeasti johonkin muuhun hätäkeskukseen.
 
-Myös Suomi harkitsee haamuverkkojen keräämistä, jos työhön löytyy rahaa.
+Hätänumeroon 112 tuli viime vuonna yli 2,6 miljoonaa hätäpuhelua.
 
-## Hallituksen suosio
+## Lauantai ei tuonut mitalia Suomelle olympialaisissa
 
-![mielenosoitus 2. 2. Helsingin Senaatintori](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10056305)
+![Olli Hiidensalo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10070324)
 
 Avaa kuvien katselu
 
-Työttömyysturvan aktiivimalli on kiukuttanut monia kansalaisia, mutta hallituksen suosioon se ei ole vaikuttanut. Kuva: Kimmo Hiltunen / Yle
+Ampumahiihtäjä Olli Hiidensalo selvitti 10 kilometriä ilman ohilaukauksia ja jäi kärjestä 47,5 sekuntia. Kuva: Lehtikuva
 
-Hallituksen suosio on pysynyt ennallaan.
+Suomen mieshiihtäjät jäivät kauas kärjestä yhdistelmähiihdossa Etelä-Korean talviolympialaisissa. Paras suomalainen oli Iivo Niskanen, joka oli 19:s. Norjalaiset ottivat kolmoisvoiton.
 
-Lännen Media kertoo, että Taloustutkimuksen kyselyssä 38 prosenttia vastaajista oli tyytyväisiä hallituksen tähänastiseen toimintaan. Vuosi sitten tyytyväisiä oli 36 prosenttia.
+Paricurlingissa suomalaiset jäivät lohkon viimeiseksi mutta päättivät kisaurakan voittoon USA:sta. Naisten jääkiekossa USA voitti Suomen maalein 3-1.
 
-Tyytyväisimpiä ovat maanviljelijät, eläkeläiset ja yrittäjät.
+Kaikki 3 suomalaista ampumahiihtäjää pääsivät maanantain takaa-ajokilpailuun, kun he pärjäsivät ampumahiihdon pikakisassa.
 
-Enemmistö eli noin 55 prosenttia vastaajista on kuitenkin tyytymätön hallitukseen
+## Ylioppilaskirjoitukset alkavat
 
-Tutkimus tehtiin tammi-helmikuun vaihteessa. Siinä oli mukana runsaat tuhat ihmistä.
+![Ylioppilaskirjoitukset alkamassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6579883)
+
+Avaa kuvien katselu
+
+Ylioppilaskirjoitukset alkavat maanantaina. Torstain penkinpainajaisten jälkeen abiturienteilla alkaa kuukauden lukuloma. Kuva: Yle
+
+Ylioppilaskirjoitukset alkavat lukioissa maanantaina. Ensimmäinen koe on äidinkielen tekstitaidossa.
+
+Abiturientit viettävät penkinpainajaisia torstaina eli ovat viimeisen päivän koulussa. Perjantaina toisen vuosikurssin oppilaat juhlivat vanhojenpäivää.
+
+Ylioppilaskirjoitusten kirjalliset kokeet alkavat kuukauden päästä.
+
+## Lukukampanja päättyi
+
+Minä luen sinulle -kampanja on päättynyt.
+
+Mukana on ollut viikon aikana yli 600 maahanmuuttajaopiskelijaa. He ovat pitäneet lukuhetkiä vanhuksille ja kehitysvammaisille. Kampanjassa vapaaehtoiset lukivat ääneen selkokirjoja ja Selkosanomia noin 30 paikkakunnalla.
+
+Verkkosivultamme voi katsoa, miten kampanja sujui helsinkiläisessä Validia-kodissa. Jutun voi katsoa osoitteessa yle.fi/selkouutiset. Minä luen sinulle -kampanjan järjestivät Selkokeskus ja Vanhus- ja lähimmäispalvelun liitto Valli.

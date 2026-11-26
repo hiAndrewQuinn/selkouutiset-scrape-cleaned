@@ -1,53 +1,63 @@
-# Lauantai 21.10.2017 (radio)
+# Keskiviikko 25.10.2017 (radio)
 
-Espanjan hallitus vähentää Katalonian autonomiaa. Tampereella on osoitettu mieltä. Suomalaiset ovat menestyneet hyvin ammattitaidon MM-kilpailuissa.
+Terrafame haluaa tehdä uraania. Finnairilla menee edelleen hyvin. Alkoholinjuonti vähenee selvästi. Saimaannorppien määrä kasvaa.
 
-## Katalonian kriisi
+## Terrafame haluaa uraania
 
-![Päämisteri kirjoituspöydän takan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9894957)
-
-Avaa kuvien katselu
-
-Pääministeri Mariano Rajoy johtaa Espanjan hallitusta. Kuva: Carlos Hidalgo / EPA
-
-Poliittinen kriisi Espanjan Kataloniassa jatkuu. Espanjan hallitus aikoo rajoittaa Katalonian autonomiaa. Hallitus kertoi asiasta lauantaina.
-
-Autonomia eli itsehallinto tarkoittaa, että Katalonia saa itse päättää monista asioista. Vaikka Katalonia on osa Espanjaa, se on päättänyt itse esimerkiksi Katalonian kouluista ja terveydenhuollosta. Katalonialla on myös oma poliisi.
-
-Nyt Espanjan hallitus alkaa määrätä Katalonian asioista. Syynä on se, että Katalonia on suunnitellut itsenäisyyttä.
-
-Osa katalonialaisista haluaa, että Katalonia eroaa Espanjasta ja katalonialaiset perustavat oman valtion. Espanjan hallitus sanoo, että suunnitelma itsenäisestä Kataloniasta on laiton.
-
-## Tampereen mielenosoitukset
-
-![Suomen vastarintaliikkeen uusnatsit kokoontuvat Laukontorilla Tampereella 21. lokakuuta 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9894878)
+![Terrafamen kaivosaluetta Sotkamossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9890178)
 
 Avaa kuvien katselu
 
-Uusnatsit osoittivat mieltä Tampereella. Kuva: Emmi Korhonen / Lehtikuva 
+Terrame eli entinen Talvivaara on Kainuussa Sotkamossa.  Kuva: Niko Mannonen / Yle
 
-Tampereella on osoitettu mieltä. Tampereella oli lauantaina 2 isoa mielenosoitusta.
+Suomen valtion kaivosyhtiö Terrafame haluaa, että se saa luvan tehdä uraania. Terrafame toimii Itä-Suomessa Sotkamossa. Terrafame kaivaa maasta malmia, josta saadaan nyt nikkeliä, kobolttia ja sinkkiä. Malmissa on myös uraania mutta sitä ei oteta talteen. 
 
-Laukontorilla oli uusnatsien mielenosoitus. Mielenosoittajat kuuluivat ryhmään, jonka nimi on Pohjoismainen vastarintaliike. Se on rasistinen ryhmä.
+Nyt kaivos haluaa alkaa tehdä malmista myös uraania, koska se haluaa saada lisää rahaa. Terrafamen mukaan uraani täytyy jalostaa ulkomailla. Sen jälkeen sitä voidaan käyttää polttoaineena ydinvoimaloissa.
 
-Keskustorilla osoitti mieltä toinen ryhmä. Ryhmän nimi on Tampere ilman natseja. Se halusi vastustaa rasistisen ryhmän mielenosoitusta.
+Terrafame sanoo, että se haluaa myydä uraania vain energiantuotantoon, ei ydinaseisiin.
 
-Mielenosoitukset sujuivat rauhallisesti. Tampereella oli paljon poliiseja. Poliisit pitivät huolta siitä, että eri ryhmät pysyivät eri paikoissa.
+## Finnair lentää nyt hyvin
 
-## Ammattitaidon suomalaiset maailmanmestarit
-
-![Emeliina Papinniemi maailmanmestari ammattitaitokilpailu WorldSkills](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9892905)
+![Finnair Airbus A350 XWB](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9675305)
 
 Avaa kuvien katselu
 
-Kodiittorisarjan maailmanmestari Emeliina Papinniemi. Kuva: WorldSkills
+Finnair lentää paljon Aasiaan ja siitä tulee paljon rahaa.  Kuva: Henrietta Hassinen / Yle
 
-Suomalaiset ovat menestyneet hyvin ammattitaidon MM-kilpailuissa eli WorldSkills-kilpailuissa. Kilpailut järjestettiin Abu Dhabissa. Suomi sai 3 kultamitalia ja 1 hopeamitalin.
+Suomalainen lentoyhtiö Finnair menestyy nyt tosi hyvin. Finnair on kertonut tietoja kesän ja alkusyksyn bisneksestä. Bisnes on sujunut nyt paljon paremmin kuin viime vuonna samaan aikaan.
 
-Kultamitalin voittajat ovat Matias Korri, Sofia Sundqvist ja Emeliina Papinniemi. He ovat uusia maailmanmestareita. Korri oli paras lentokonehuollossa, Sundqvist lähihoitajasarjassa ja Papinniemi kondiittorisarjassa.
+Finnairilla on mennyt jo kauan tosi hyvin. Varsinkin kiinalaiset ja japanilaiset tykkäävät lentää Finnairilla Helsinkiin.
 
-Emeliina Papinniemi oli kilpailujen paras suomalainen. Hän sai enemmän pisteitä kuin muut suomalaiset. Papinniemi on ensimmäinen suomalainen, joka on voittanut kondiittorialan kansainväliset kilpailut.
+Suuri osa aasialaisista matkustajista jatkaa matkaa Helsingistä muualle Eurooppaan. Osa jää kuitenkin lomalle Suomeen.
 
-Papinniemi valmistui Saimaan ammattiopisto Sammosta 2 vuotta sitten. Nyt hän on työssä ja opiskelee samalla kondiittorin kisällintutkintoa.
+Suomen valtio omistaa Finnairista suuren osan.
 
-Kondiittori valmistaa hienoja herkkuleivonnaisia. Papinniemi sanoo, että puhtaat pohjoismaalaiset maut ovat nyt maailmalla trendikkäitä.
+## Alkoholinjuonti vähenee
+
+![Mies istuu olutpullo edessään pöydän äärellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9848951)
+
+Avaa kuvien katselu
+
+Suomalainen juo vähemmän kuin ennen mutta kun hän juo, hän juo paljon kerralla.  Kuva: Tiina Jutila / Yle
+
+Suomalaisten alkoholin juominen vähentyy edelleen. Terveysasiantuntijat kertovat, että suomalaiset juovat alkoholia nyt 15 prosenttia vähemmän kuin 10 vuotta sitten. Juomista ovat vähentäneet varsinkin 15-29-vuotiaat.
+
+Vaikka suomalaiset juovat alkoholia vähemmän, juomisen tyyli ei ole muuttunut.
+
+Kun suomalainen juo, hän juo edelleen kerralla paljon. Esimerkiksi Etelä-Euroopassa ihmiset juovat alkoholia useammin kuin suomalaiset mutta ei niin suurta määrää kerralla.
+
+## Saimaannorppien määrä kasvaa
+
+![Norppa kivellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7906387)
+
+Avaa kuvien katselu
+
+Saimaannorppa tykkää välillä lepäillä kivellä.  Kuva: Juha Taskinen / SLL
+
+Saimaannorppien määrä kasvaa edelleen. Metsähallitus arvioi, että norppamäärä on kasvanut 23:lla eläimellä. Metsähallituksen arvio tarkoittaa, että saimaannorppia on nyt noin 380.
+
+Norppa on uhanalainen ja sitä on suojeltu jo kauan. Metsähallituksen mielestä suojelu tehoaa.
+
+Suojelu tarkoittaa, että esimerkiksi kalastusta rajoitetaan. Lisäksi norpille kasataan keväällä jäälle lumikasoja, jotta ne voivat tehdä talvipesän.
+
+Norppa synnyttää poikasen talvipesään. Metsähallitus kertoo, että tänä vuonna syntyi 83 norpanpoikasta.

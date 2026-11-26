@@ -1,65 +1,63 @@
-# Lauantai 15.7.2017 (radio)
+# Tiistai 18.7.2017 (radio)
 
-Paavo Väyrynen pyrkii presidenttiehdokkaaksi. Turkin vallankaappausyrityksestä on kulunut tasan vuosi. Leo-Pekka Tähti on voittanut MM-kultamitalin. Sää kylmenee ensi viikolla.
+Tulli on löytänyt Suomesta vaarallista lääkeainetta, karfentaniilia. Suomalaiset tutkijat kehittävät diabetesrokotetta. Etelä-Euroopassa on isoja metsäpaloja. Koira auttaa hammaslääkäripelkoon.
 
-## Paavo Väyrynen
+## Vaarallista ainetta löydetty
 
-![Paavo Väyrynen aikoo lähteä presidentinvaaleihin kannattajayhdistyksen kautta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9725140)
-
-Avaa kuvien katselu
-
-Paavo Väyrynen. Kuva: Mikko Stig / Lehtikuva
-
-Paavo Väyrynen pyrkii presidenttiehdokkaaksi. Väyrynen on ollut mukana Suomen politiikassa jo yli 40 vuotta. Hän on esimerkiksi ollut ministerinä monta kertaa.
-
-Väyrynen on keskustapuolueen jäsen, ja viime vuonna hän perusti kansalaispuolueen. Kansalaispuolue haluaa, että Suomi eroaa euroalueesta.
-
-Presidentinvaaleissa Väyrynen aikoo kuitenkin olla valitsijayhdistyksen ehdokas. Yhdistys voidaan perustaa, jos se saa 20.000 kannattajaa.
-
-## Turkki
-
-![Turkin presidentti Recep Tayyip Erdogan. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9718331)
+![Tullin havainnekuva tappavasta määrästä karfentaniilia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9727780)
 
 Avaa kuvien katselu
 
-Turkin presidentti Recep Tayyip Erdogan.  Kuva: Daniel Kopatsch / EPA
+Jo pieni määrä karfentaniilia tappaa ihmisen. Kuva: Tulli
 
-Turkin vallankaappausyrityksestä on kulunut tasan vuosi.
+Tulli on löytänyt Suomesta vaarallista lääkeainetta. Lääkkeen nimi on karfentaniili.
 
-Vuosi sitten joukko armeijan sotilaita yritti ottaa vallan Turkissa. He olivat sitä mieltä, että Recep Tayyip Erdoğan on huono presidentti. Erdoğan aikoo lopettaa demokratian, he sanoivat.
+Karfentaniilia myydään maailmalla huumeena, vaikka se on tosi vaarallista. Se on tuhansia kertoja vahvempaa kuin morfiini. Jo noin 0,03 milligrammaa karfentaniilia tappaa ihmisen.
 
-Vallankaappausyritys ei onnistunut. Erdoğanin vastustajat otettiin kiinni, ja Erdoğan jatkoi Turkin presidenttinä.
+Tulli epäilee, että karfentaniilia myydään huumeena myös Suomessa.
 
-Sen jälkeen presidentti Erdoğan on etsinyt syyllisiä. Turkissa on otettu kiinni yli 50.000 ihmistä. Tuhansia sotilaita ja poliiseja on pidätetty.
+Karfentaniilia käytetään laillisesti eläinlääkkeenä. Sillä tainnutetaan isoja eläimiä.
 
-Lisäksi noin 140.000 ihmistä on saanut potkut työstä. Erdoğanin mielestä he kannattivat vallankaappausyritystä. Esimerkiksi monet opettajat, tuomarit ja toimittajat ovat nyt ilman työtä.
+## Diabetekseen kehitetään rokotetta
 
-Monet turkkilaiset ovat sitä mieltä, että syyllisten etsiminen on mennyt liian pitkälle.
-
-## Leo-Pekka Tähti
-
-![Leo-Pekka Tähti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9725059)
+![Verensokeria mitataan vastaanotolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9706025)
 
 Avaa kuvien katselu
 
-Leo-Pekka Tähti voitti kelaustuolien 100 metrin matkan Lontoon MM-kilpailuissa. Kuva: AOP
+Diabetes nostaa veren sokeriarvoja. Kuva: Jaani Lampinen / Yle
 
-Suomen Leo-Pekka Tähti on voittanut kultamitalin parayleisurheilun MM-kilpailuissa Lontoossa. Kilpailuissa on mukana vammaisurheilijoita.
+Suomalaiset tutkijat ovat kehittäneet rokotteen diabetesta eli sokeritautia vastaan. Rokote on kehitetty ykköstyypin diabetesta vastaan. Sitä sairastavat eniten lapset.
 
-Tähti voitti kelaustuolien 100 metrin matkan. Tähden kelaustuoli meni rikki kesken kilpailun, mutta hän tuli maaliin ensimmäisenä.
+Tutkijat alkavat testata uutta rokotetta ihmisillä ensi vuonna. Testaukset alkavat vuoden 2018 lopussa. Jos rokote toimii ihmisillä, se voi tulla käyttöön noin 8 vuoden päästä.
 
-Tämä oli kolmas kerta, kun Tähdestä tuli maailmanmestari. Hän on ollut monta kertaa myös Euroopan mestari. Tähti on voittanut kultamitaleja myös paralympialaisissa eli vammaisurheilijoiden olympialaisissa.
+Uusi rokote voi säästää paljon rahaa. Jos ihminen saa diabeteksen lapsena, hoito maksaa koko elämän aikana yhteensä noin miljoona euroa. 
 
-Viime talvena Leo-Pekka Tähti valittiin Vuoden Urheilijaksi 2016. Tähti on ensimmäinen vammaisurheilija, joka on valittu Vuoden Urheilijaksi Suomessa.
+## Etelä-Euroopassa palaa metsää
 
-## Lähiviikkojen sää
-
-![Ulkoilijoita sumussa Eiranrannassa Helsingissä 12. heinäkuuta 2017 ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9725206)
+![Metsä paloi rajusti Splitin kaupungin lähistöllä sijaitsevassa Podstranan kylässä Kroatiassa 18. heinäkuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9728359)
 
 Avaa kuvien katselu
 
-Lähiviikkojen sää ei ole kovin kesäinen. Kuva: Irene Stachon / Lehtikuva
+Metsä paloi lähellä Splitin kaupunkia Kroatiassa. Kuva: AFP
 
-Viikonloppu on Suomessa lämmin, mutta ensi viikolla sää taas kylmenee.
+Etelä-Euroopassa on isoja metsäpaloja. Metsää palaa monissa maissa. Isoja tulipaloja on ainakin Kroatiassa, Montenegrossa, Italiassa ja Portugalissa.
 
-Sääennusteet kertovat, että kesä on tavallista kylmempi myös lähiviikkoina. Vaikka Etelä-Euroopassa on tosi kuumaa, lämmintä ilmaa ei tule Suomeen asti.
+Kroatiassa tuli pääsi aivan lähelle isoa Splitin kaupunkia. Keskustan ulkopuolella tuli jo poltti taloja ja autoja. Lopulta palomiehet saivat tulipalot hallintaan. Tulipaloja sammutettiin esimerkiksi lentokoneiden avulla.
+
+Myös Kroatian naapurimaassa Montenegrossa tulipalot ovat isoja. Montenegro pyysi muilta mailta apua tulipalojen sammuttamiseen.
+
+## Koira auttaa hammaslääkäripelkoon
+
+![Mimmi-koira auttaa hammaslääkäripelkoisia ihmisiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9704447)
+
+Avaa kuvien katselu
+
+Mimmi-koira auttaa ihmisiä, jotka pelkäävät hammaslääkäriä. Kuva: Juha Hintsala / Yle
+
+Pelkäätkö hammaslääkäriä? Et ole ainoa. 10 prosenttia potilaista pelkää hammaslääkärillä käyntiä tosi paljon. Se voi jopa estää hampaiden hoitamisen ja aiheuttaa terveysongelmia.
+
+Oulussa on kehitetty uusi apu hammaslääkärin pelkoon. Se on koira. Hammaslääkärin potilaita auttavat koirat, jotka on testattu ja koulutettu.
+
+Hammaslääkärin potilas rauhoittuu, kun kaverina on koira. Ihmisen sydän lyö hitaammin, kun hän silittää koiraa. Stressi vähenee. Niin hammaslääkärissä käynti onnistuu, vaikka potilas pelkää hammaslääkärin tuolia.
+
+Oulu on ehkä ensimmäinen paikka maailmassa, jossa tutkitaan, miten koira auttaa hammaslääkärin pelkoon.

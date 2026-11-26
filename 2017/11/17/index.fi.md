@@ -1,87 +1,81 @@
-# Maanantai 13.11.2017 (radio)
+# Perjantai 17.11.2017 (radio)
 
-Monet nuoret noudattavat erityisruokavaliota. Maanjäristys aiheutti tuhoa Iranissa ja Irakissa. Somalimaan presidentiksi pyrkii myös Suomen kansalainen. Suomen itsenäisyyttä juhlistetaan juhlarahalla. Terveisiä Croydonin Suomi-koulusta.
+Meteori Lapissa. Länsimetro lähtee liikkeelle. Hoitajat kohtaavat väkivaltaa. Avoimia työpaikkoja paljon. Finnair joutuu oikeuteen. Isis ajettu Irakin kaupungeista pois.
 
-## Nuorten erityisruokavalio
+## Valopallo Lapin taivaalla
 
-![Sanni Issakainen, Julia Ikonen, Pinja Leppänen ja Anni Tirkkonen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9928777)
-
-Avaa kuvien katselu
-
-17-vuotiaat Sanni Issakainen, Julia Ikonen, Pinja Leppänen ja Anni Tirkkonen noudattavat kaikki erityisruokavaliota.  Kuva: Anu Rummukainen / Yle
-
-Monet nuoret noudattavat erityisruokavaliota. Uuden tutkimuksen mukaan erityisruokavaliota noudattaa noin 20 prosenttia nuorista.
-
-Yleisin syy nuorten erityisruokavalioon on sairaus. Jos ihminen sairastaa esimerkiksi diabetesta, keliakiaa tai allergioita, hän ei voi syödä mitä tahansa.
-
-Toiseksi yleisin syy erityisruokavalioon on painonhallinta.
-
-Etenkin pojilla erityisruokavalio johtuu usein myös urheilusta.
-
-Tutkimus tehtiin Itä-Suomen yliopistossa. Siihen kerättiin tietoja nuorten terveystapatutkimuksista melkein 40 vuoden ajalta. Tutkimuksiin on vastannut yli 43 000 teini-ikäistä nuorta.
-
-## Maanjäristys Iranin ja Irakin rajaseudulla
-
-![Irakinkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9928001)
+![Valoilmiö taivaalla, kuvattu Lohtajalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9935400)
 
 Avaa kuvien katselu
 
-Maanjäristyksen keskus oli Irakin puolella lähellä Iranin rajaa.
+Kuva: Johannes Karhula
 
-Iranin ja Irakin maanjäristys on aiheuttanut suurta tuhoa.
+Lapin taivaalla näkyi torstaina kirkas valo. Se oli todennäköisesti meteori eli tähdenlento. Se oli kuin tulipallo.
 
-Järistyksessä kuoli yli 400 ihmistä. Loukkaantuneita on yli 6000. Uhrien määrä voi vielä kasvaa.
+Meteori lensi ilmakehässä yli 100 kilometrin korkeudella. Valoilmiön aikana kuului pamauksia.
 
-Järistys aiheutti maanvyörymiä, rikkoi taloja, katkoi teitä ja sähköjä. Hätämajoitusta tarvitsee yli 70 000 ihmistä, sanoo iranilainen avustusjärjestö.
+Voi myös olla, että valo oli jokin laite, esimerkiksi satelliitin osa. Valo näkyi kauas. Yle Uutisten nettisivuilla on video valoilmiöstä.
 
-Maanjäristys sattui Iranin ja Irakin rajaseudulla. Jälkijäristyksiä on ollut yli 100.
+## Länsimetro aloittaa
 
-## Somalimaan presidentinvaali
-
-![Faisal Ali Warabe.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9927867)
+![Metrojunat Matinkylän asemalla Espoossa ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9925614)
 
 Avaa kuvien katselu
 
-Faisal Ali Warabe. Kuva: Yle
+Länsimetro Matinkylän asemalla Espoossa. Kuva: Roni Rekomaa / Lehtikuva
 
-Somalimaassa on äänestetty tänään presidentinvaaleissa.
+Länsimetro lähtee liikkeelle lauantaina. Se kulkee Helsingin Ruoholahdesta Espoon Kivenlahteen. Yle on mukana länsimetron historiallisissa avajaisissa.
 
-Presidenttiehdokkaita on yhteensä kolme. Heistä kahdella on siteitä Suomeen.
+Voit katsoa länsimetron ensimmäistä matkaa Yle Areenassa lauantaina aamulla. Yle seuraa juhlintaa aamupäivän ajan netissä, televisiossa ja radiossa.
 
-Yksi ehdokkaista on Somalimaan parlamentin entinen puhemies Abdirahman Irro. Hän asui ennen Suomessa.
+## Hoitajia purraan ja lyödään
 
-![Abdirahman Irro.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9927865)
-
-Avaa kuvien katselu
-
-Abdirahman Irro. Kuva: Yle
-
-Faisal Ali Warabe taas on Suomen kansalainen. Hänen UCID-puolueensa perustettiin Helsingissä 90-luvun alussa.
-
-Somalimaa julistautui itsenäiseksi Somaliasta jo 90-luvulla, mutta muut maat eivät ole tunnustaneet sen itsenäisyyttä.
-
-## Juhlaraha 100-vuotiaalle Suomelle
-
-![Itsenäisyyspäivän kunniaksi lyöty juhlaraha.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9928555)
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5732818"
 
 Avaa kuvien katselu
 
-Suomen juhlaraha on 20 euron hopeakolikko. Kuva: Suomen Rahapaja Oy
+Hoitajat kohtaavat väkivaltaa. Kuva: YLE
 
-100-vuotias Suomi saa juhlarahan. Juhlaraha on hopeinen kolikko.
+Viime vuonna 80 prosenttia vanhustenhoitajista on kohdannut väkivaltaa. Asiasta kertoo uusi kysely. Kyselyyn vastasi  yli 2000 työntekijää ja esimiestä.
 
-Kolikon toisella puolella on lyhyt teksti Suomen itsenäisyysjulistuksesta suomeksi ja ruotsiksi. Toisella puolella on kuva Heimolan talosta, jossa Suomen itsenäisyysjulistus allekirjoitettiin 6. joulukuuta 1917.
+Hoitajia esimerkiksi purraan, lyödään ja heidän päälle syljetään. Asiantuntija sanoo, että väkivalta on yhteydessä esimerkiksi muistisairauksiin.
 
-Juhlaraha julkaistaan kahden viikon kuluttua.
+## Teollisuus tarvitsee lisää työntekijöitä
 
-## Terveisiä Croydonista!
-
-![lapsia askartelemassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9928438)
+![Hitsaaja työssään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9878834)
 
 Avaa kuvien katselu
 
-Croydonin suomikoululaiset askartelevat
+Hitsaaja töissä. Kuva: Mauri Ratilainen / AOP
 
-Suomi-koulujen oppilaat eri puolilta maailmaa lähettävät terveisiä Suomeen, kun itsenäinen Suomi nyt täyttää 100 vuotta.
+Avoimia työpaikkoja on enemmän kuin ennen. Kesällä ja syksyllä avoinna oli yli 34 000 työpaikkaa. Lukumäärä on 12 prosenttia enemmän kuin vuosi sitten.
 
-Uusimmat terveiset tulevat Lontoosta, **Croydonin Suomi-koulusta**.
+Teollisuus ja kaivokset tarvitsevat lisää työntekijöitä. Firmat kuitenkin sanovat, että joka toiseen työpaikkaan on vaikea löytää työntekijä. Tällaisia työpaikkoja on paljon rakennuksilla.
+
+## Finnairilla ehkä liian pienet korvaukset
+
+![Finnair logo lentokoneen peräsimessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9845256)
+
+Avaa kuvien katselu
+
+Finnair oikeuteen. Kuva: Russell Hart / AOP
+
+Lentofirma Finnair joutuu oikeuteen. Tämä johtuu siitä, että Finnairilla on ongelmia korvausten maksamisessa. 
+
+Finnairia syytetään siitä, että se on maksanut liian pieniä korvauksia ja asiakkaiden oikeudet ovat kärsineet.
+
+Finnair maksaa korvauksia, kun lento on myöhässä tai lentoa ei lennetä teknisen vian takia. Syytösten mukaan Finnair maksaa liian vähän korvauksia. Finnair on eri mieltä.
+
+Ihmiset ovat valittaneet Finnairista vuonna 2016 jopa 70 prosenttia enemmän kuin vuonna 2015.
+
+## Isis menetti Rawan kaupungin
+
+![Irakin armeijan sotilaita ohjeistettiin Habaniyan tukikohdassa anbarin provinssissa, Irakissa 25. lokakuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9936087)
+
+Avaa kuvien katselu
+
+Irakin armeijan sotilaita. Kuva: STR / AFP
+
+Irakin armeija sanoo, että se on vallannut  Rawan kaupungin terroristijärjestö Isisiltä. Rawa sijaitsee Syyrian ja Irakin rajalla. Se oli viimeinen kaupunki, joka oli  Isisin hallussa Irakissa.
+
+Irakin armeija sanoo myös, että sen joukot "vapauttivat Rawan täysin ja nostivat Irakin lipun sen talojen ylle".

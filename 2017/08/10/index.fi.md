@@ -1,79 +1,87 @@
-# Tiistai 8.8.2017 (radio)
+# Torstai 10.8.2017 (radio)
 
-Virolaisten työssäkäynti Suomessa vähenee. Moni terveyskesuslääkäri tekee osa-aikatyötä. Koskenkorvaa myydään pian Yhdysvalloissa. Pelastuslaitoksella on ollut ennätysmäärä käärmehälytyksiä. Terveisiä Kielin Suomi-koulusta.
+Veturinkuljettajat lakkoilevat ensi viikolla. Vaarallisia tasoristeyksiä poistetaan käytöstä. Uusi kouluvuosi alkaa. Suomesta salakuljetetaan juustoa Venäjälle. Lapissa tutkitaan vanhaa vankileiriä.
 
-## Virolaiset työntekijät
+## Veturinkuljettajien lakko
 
-![Virolainen maalari Jan Kaljura työmaalla Järvenpäässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763331)
-
-Avaa kuvien katselu
-
-Virolainen rakennusmaalari Jan Kaljura on käynyt töissä Suomessa jo 10 vuoden ajan. Kuva: Jaani Lampinen / Yle
-
-Virolaisten työntekijöiden määrä Suomessa vähenee lähivuosina, sanoo tutkija.
-
-Itä-Suomen yliopiston ja Tarton yliopiston tutkija Keiu Telve sanoo, että palkkataso Virossa on noussut. Sen takia virolaisten työntekijöiden määrä Suomessa voi jopa puolittua.
-
-Tutkija sanoo, että tällä hetkellä Suomessa käy töissä ehkä noin 20 000 virolaista. Virolaiset työskentelevät Suomessa etenkin rakennusalalla, mutta myös lääkäreinä, palveluammateissa ja siivoojina.
-
-Suurin osa virolaisista käy töissä pääkaupunkiseudulla.
-
-## Terveyskeskuslääkärit
-
-![Lääkäri kirjoittaa reseptiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6193071)
+![VR:n junia ratapihalla Pasilassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9502342)
 
 Avaa kuvien katselu
 
-Osa-aikatyö kiinnostaa etenkin nuoria lääkäreitä, joilla on pieniä lapsia. Kuva: Tiina Karjalainen / Yle
+Lakon takia jää ajamatta ehkä noin 1000 junavuoroa. Kuva: Timo Korhonen / AOP
 
-Moni terveyskeskuslääkäri työskentelee osa-aikaisesti. Lääkäriliiton selvitys kertoo, että 20 prosenttia terveyskeskuslääkäreistä tekee osa-aikaista työtä.
+Junaliikenne pysähtyy ensi viikolla veturinkuljettajien lakon takia.
 
-Osa-aikaista työtä haluavat tehdä etenkin nuoret lääkärit, joilla on pieniä lapsia.
+Lakko alkaa maanantai-iltana kello 18 ja päättyy tiistain ja keskiviikon välisenä yönä.
 
-Osa-aikatyötä haluavat myös lääkärit, jotka tekevät esimerkiksi tutkimustyötä tavallisen työn rinnalla.
+Lakko koskee kaukojunia, Helsingin lähijunia ja tavarajunia. VR sanoo, että ehkä noin 1000 junavuoroa jää ajamatta.
 
-## Koskenkorva
+Veturinkuljettajat lakkoilevat, koska he vastustavat hallituksen aikeita avata rautateiden matkustajaliikenne kilpailulle. 
 
-![Koskenkorva-pulloja Alkossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763523)
+## Vaaralliset tasoristeykset
 
-Avaa kuvien katselu
-
-Koskenkorvaa aiotaan myydä 10 osavaltiossa Yhdysvalloissa.  Kuva: Ismo Pekkarinen / AOP
-
-Perinteikästä suomalaisviinaa Koskenkorvaa aletaan myydä Yhdysvalloissa. Koskenkorvaa voi ostaa Yhdysvalloissa elo-syyskuun vaihteesta lähtien, kertoo valmistajayhtiö Altia.
-
-Koskenkorva-vodkaa aiotaan myydä Yhdysvaltojen 10 osavaltiossa. Ensimmäisenä myynti aloitetaan Kaliforniassa.
-
-Koskenkorvaa myydään noin 30 maassa. Altia sanoo, että Koskenkorva on sen tärkein vientibrändi.
-
-## Käärmeet
-
-![Rantakäärme kuvattuna kivikossa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763179)
+![vartioimaton tasoristeys](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8809003)
 
 Avaa kuvien katselu
 
-Rantakäärme ei ole myrkyllinen. Kuva: Ismo Pekkarinen / AOP
+Osa tasoristeyksistä on tosi vaarallisia, koska niissä ei ole edes puomeja. Kuva: Toni Pitkänen / Yle
 
-Pelastuslaitoksilla on ollut tänä kesänä ennätysmäärä hälytyksiä käärmeiden takia.
+Suomessa on paljon vaarallisia tasoristeyksiä. Niitä poistetaan käytöstä pikkuhiljaa, mutta tahti on hidas.
 
-Elokuun alkuun mennessä pelastuslaitos on hälytetty apuun käärmeiden takia yhteensä noin 35 kertaa. Se on yhtä paljon kuin tavallisesti koko vuoden aikana.
+Tasoristeyksiä on eri puolilla maata yli 3200. Niitä poistetaan käytöstä vuosittain alle 30.    
 
-Käärmeitä on haettu pois esimerkiksi asunnoista, parvekkeilta ja terasseilta.
+Tasoristeyksessä autotie kulkee junaradan yli, ja siksi risteys on vaarallinen.
 
-Suurin osa on ollut rantakäärmeitä. Rantakäärme ei ole myrkyllinen.
+Tasoristeyksissä tapahtuu joka vuosi yli 30 onnettomuutta. Tänä vuonna onnettomuuksissa on kuollut jo 6 ihmistä.
 
-Eniten käärmetehtäviä on ollut Länsi-Uudellamaalla, Turun seudulla ja Helsingissä.
+## Uusi kouluvuosi alkaa
 
-## Terveisiä Kielistä
-
-![Oppilaat laulavat koulussa Kielissä, Saksassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9763203)
+![Nuoret koululaiset matkalla kouluun.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9076567)
 
 Avaa kuvien katselu
 
-Kielin suomikoululaiset laulavat onnittelulaulun.  Kuva: Yle
+Autoilijoiden pitää muistaa olla erityisen varovaisia, sillä liikenteessä on taas paljon pieniä koululaisia. Kuva: Henrietta Hassinen / Yle
 
-Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa.
+Monien koululaisten kesälomat ovat päättyneet tällä viikolla. Tänään kouluvuosi alkoi esimerkiksi Tampereella, Oulussa, Kuopiossa ja pääkaupunkiseudun suomenkielisissä kouluissa.
 
-Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
+Esimerkiksi Torniossa koulu alkoi jo tiistaina.
 
-Uusimmat terveiset tulevat Kielin Suomi-koulusta, Saksasta.
+Turussa, Vaasassa ja Mikkelissä koulut alkavat vasta ensi viikolla.
+
+Peruskoulun ensimmäisen luokan aloittaa tänä vuonna noin 63 000 lasta.
+
+## Juuston salakuljetus
+
+![Juustoja salakuljettajan autossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9767125)
+
+Avaa kuvien katselu
+
+Venäjän tullin kuvista näkee, että miten juusto oli piilotettu auton rakenteisiin. Kuva: sztu.customs.ru
+
+Suomesta salakuljetetaan juustoa Venäjälle.
+
+Venäjän tulli otti keskiviikkona Nuijamaan rajanylityspaikalla kiinni miehen, joka yritti salakuljettaa juustoa Venäjälle. Miehen autoon oli piilotettu melkein 100 kiloa juustoa.
+
+Suomalainen juusto on Venäjällä haluttua ja harvinaista.
+
+Venäjä kielsi yli 3 vuotta siten maitotuotteiden tuonnin EU-maista. Kielto oli vastaus pakotteisiin, joita EU asetti Venäjälle Krimin valtauksen takia.
+
+Kiellon takia tavallinen ihminen saa viedä Venäjälle juustoa enintään 5 kiloa.
+
+## Sodanaikaiset vankileirit
+
+![Kädet harovat esineitä laatikossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9768926)
+
+Avaa kuvien katselu
+
+Arkeologit ovat kaivaneet esiin monenlaisia esineitä, esimerkiksi astioiden ja sotatarvikkeiden jäänteitä.
+
+Lapissa Inarissa on aloitettu arkeologiset kaivaukset saksalaisten sodanaikaisella vankileirillä.
+
+Natsi-Saksalla oli jatkosodan aikana yli 200 000 sotilasta Lapissa. Heillä oli alueella ehkä 200 vankileiriä.
+
+Leireillä pidettiin neuvostoliittolaisia sotavankeja. Vangit laitettiin pakkotyöhön, esimerkiksi hakkaamaan polttopuita tai rakentamaan teitä.
+
+Tutkijat arvelevat, että leireillä oli ehkä noin 30 000 vankia. Heistä tuhannet kuolivat esimerkiksi nälkään. 
+
+Kaivauksissa tutkijat ovat löytäneet monenlaisia esineitä, esimerkiksi astioiden ja sotatarvikkeiden jäänteitä.

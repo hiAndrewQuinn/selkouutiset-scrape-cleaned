@@ -1,71 +1,83 @@
-# Radio Selkouutiset sunnuntai 18.6.2023
+# Radio Selkouutiset maanantai 19.6.2023
 
-Uudet ministerit. Sota Ukrainassa. Kultaranta-keskustelut. Sää.
+Ihmisarvoinen elämä. Suomi ja USA. Eläkeläisten keikkatyöt. Kulttuuriala. Sodankylän elokuvajuhlat. Sää.
 
-## Uudet ministerit
+## Ihmisarvoisen elämän budjetti
 
-![Elina Valtonen puhumassa medialle vaaleansinisessä, kirjaillussa kauluspaidassa.](https://img.img-cdn.yle.fi/crop_extract,w_3983,h_2241,x_0,y_275/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131682648f047e15983/1687094648)
-
-Avaa kuvien katselu
-
-Kokoomuksen Elina Valtonen on uuden hallituksen ulkoministeri. Kuva: Silja Viitala / Yle
-
-Uuden hallituksen puolueet ovat päättäneet, ketkä tulevat hallitukseen ministereiksi.
-
-Kokoomuksen puheenjohtaja Petteri Orpo on hallituksen pääministeri, koska kokoomus voitti vaalit.
-
-Perussuomalaisten puheenjohtaja Riikka Purra on valtiovarainministeri.
-
-Ulkoministeri on kokoomuksen Elina Valtonen ja puolustusministeri kokoomuksen Antti Häkkänen.
-
-Uuteen hallitukseen tulee 19 ministeriä.
-
-Hallitukseen tulee neljä puoluetta, jotka ovat kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
-
-## Sota Ukrainassa
-
-![Panssarihaupitsi tulittaa piippu yläviistoon suunnattuna pensaikkoisen niittyluonnon keskellä.](https://img.img-cdn.yle.fi/crop_extract,w_3720,h_2092,x_0,y_52/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131585648ea9f806991/1687071384)
+![Maarit Sivosen ja Marko Sivosen matkatavarat. ](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11217666475b24710f30/1685435747)
 
 Avaa kuvien katselu
 
-Ukrainan armeijan panssari tulittaa. Kuva: Anatolii Stepanov / Lehtikuva
+Ihmisarvoiseen elämään kuuluu myös matkustaminen silloin tällöin, sanovat Turun yliopiston tutkijat. Kuva: Matti Myller / Yle
 
-Paljon venäläisiä sotilaita on viikonloppuna kuollut tai haavoittunut Ukrainassa, kun Ukrainan armeija hyökkää Etelä-Ukrainassa.
+Turun yliopisto on laskenut, kuinka paljon rahaa tarvitaan ihmisarvoiseen elämään Suomessa.
 
-Myös ukrainalaisia sotilaita on kuollut tai haavoittunut paljon. Ukraina yrittää saada takaisin omat alueensa, jotka Venäjä on vallannut.
+Ruoka, vaatteet ja koti riittävät vain selviytymiseen. Tutkijat sanovat, että tarvitaan myös mahdollisuus esimerkiksi harrastaa ja käydä joskus ulkona. Myös pieni lomamatka kerran vuodessa on osa ihmiarvoista elämää.
 
-Taistelut Ukrainan eteläosassa ovat kovia, ja niissä kuolee ja haavoittuu paljon sotilaita.
+Tutkijat laskevat, että Helsingissä 4-henkinen perhe tarvitsee yli 3 600 euroa kuukaudessa. Yksin asuva selviää vähän yli 1 500 eurolla.
 
-Suomi ja muut Euroopan maat ovat päättäneet antaa lisää aseita Ukrainalle.
+Tähän sisältyvät asuminen, ruoka, vaatteet, puhelin, terveys, harrastukset, hygienia ja kodin tavarat.
 
-Eurooppa haluaa auttaa Ukrainaa, koska Ukraina puolustaa itsenäisyyttään ja omaa aluettaan.
+Suomessa 8 prosentilla kuukausitulot ovat pienemmät kuin summa, joka tarvitaan ihmisarvoiseen elämään.
 
-## Kultaranta-keskustelut
+## Uusi hallitus ja USA
 
-![Presidentti Sauli Niinistö A-studion lähetyksessä Kultarannassa graniittilinnan &quot;paratiisissa&quot; keskustelemassa toimittaja Petri Raivion kanssa puutarhapöydän ympärillä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_45/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96956262a82605ef86d/1687153468)
+![Antti Häkkänen ja Elina Valtanen 18.6.2023.](https://img.img-cdn.yle.fi/crop_extract,w_1237,h_695,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131731648f20b778a2a/1687179947)
 
 Avaa kuvien katselu
 
-Kuva viime vuoden Kultaranta-keskusteluista. Kuva: Jani Saikko / Yle
+Uusi puolustusministeri Antti Häkkänen ja ulkoministeri Elina Valtonen. Kuva: Silja Viitala / Yle
 
-Presidentti Sauli Niinistö järjestää sunnuntaina ja maanantaina perinteiset Kultaranta-keskustelut.
+Tuleva hallitus tehostaa suhteita USA:han. Näin sanovat tuleva ulkoministeri Elina Valtonen ja puolustusministeri Antti Häkkänen.
 
-Tilaisuudessa päättäjät ja asiantuntijat keskustelevat Suomen ulkopolitiikasta ja turvallisuuspolitiikasta. Media raportoi keskusteluista.
+Kokoomuksen Valtonen ja Häkkänen ovat tärkeät ministerit ulkopolitiikassa ja sotilassuhteissa.
 
-Nimi Kultaranta tulee siitä, että tavallisesti keskustelut järjestetään presidentin kesäpaikassa, jonka nimi on Kultaranta. Nyt se on remontissa.
+He myös lupaavat, että Suomen tuki Ukrainalle jatkuu, koska kyse on myös Suomen turvallisuudesta. Valtonen sanoo, että jäsenyys puolustusliitto Natossa avasi Suomelle uusia mahdollisuuksia USA:n suuntaan.
 
-Siksi keskustelut järjestetään tänä vuonna Helsingissä Presidentinlinnassa.
+Suomen uusi hallitus aloittaa työn ehkä tällä viikolla.
 
-Kultaranta-keskustelut järjestettiin ensimmäisen kerran jo vuonna 2013. Presidentti Niinistö järjestää keskustelut viimeisen kerran, koska ensi keväänä Suomen presidentti vaihtuu.
+## Eläkeläisten keikkatyöt
+
+![Hoitokodinasukas istuu hoitajan ja rollaattorin avulla sängylleen.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96984162a866fce6fff/1655204694)
+
+Avaa kuvien katselu
+
+Yhä useampi eläkeläinen tekee keikkatöitä. Kuva: Antti-Petteri Karhunen / Yle
+
+Suomessa yhä useampi eläkeläinen käy töissä.
+
+Eläkeläiset voivat nyt etsiä työtä netistä. Omakeikka.fi-sivusto avattiin tässä kuussa. Eläkeläiset voivat etsiä sivustolta itselle sopivaa keikkatyötä.
+
+Myös työnantajat voivat etsiä sieltä keikkatyöntekijöitä.
+
+Eläkeläisille palvelu on ilmainen.
+
+![Helsingin kaupunginteatterin suuren näyttämön punaiset katsomoistuimet.](https://img.img-cdn.yle.fi/crop_extract,w_4990,h_2808,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1094589642aaa0ca6e58/1680520924)
+
+Avaa kuvien katselu
+
+Kulttuurityön tekijämäärä ei vielä ole noussut tasolle, mikä se oli ennen koronapandemiaa. Kuva: Kristiina Lehto / Yle
+
+Yli 130 000 suomalaisen päätyö oli viime vuonna kulttuuriammatissa. Se on melkein 6 prosenttia enemmän kuin toissa vuonna.
+
+Määrä ei kuitenkaan vielä ole niin korkea kuin ennen koronapandemiaa.
+
+![Ihmisiä jonottamassa elokuviin Sodankylän elokuvajuhlilla.](https://img.img-cdn.yle.fi/crop_extract,w_4962,h_2792,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1130674648b5c1713fa7/1686854907)
+
+Avaa kuvien katselu
+
+Sodankylän elokuvajuhlilla Lapissa kävi enemmän väkeä kuin koskaan festivaalin 38-vuotisessa historiassa. Kuva: Antti Ullakko / Yle
+
+Lapissa Sodankylän elokuvajuhlilla viime viikolla tehtiin ennätys. Kävijöitä oli yhteensä 35 000.
+
+Loppuunmyytyjä näytöksiä oli 64.
+
+Yksi näistä oli Aki Kaurismäen elokuva Kuolleet lehdet, joka sai palkinnon Cannesin elokuvajuhlilla Ranskassa. Ensi-ilta Suomessa oli festivaaleilla.
 
 ## Sää
 
-![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1131678648f02d6b6e02/1687094033)
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1132221649065fba044c/1687184945)
 
 Avaa kuvien katselu
 
-Kuva: Yle
-
-Sää jatkuu lämpimänä. Pohjoisessa ja idässä voi tulla vähän ukkosta tai sadekuuroja.
-
-Lämpötila on koko maassa 20–30 astetta. Metsäpalojen vaara on suuri koko maassa.
+Tiistaina helleraja eli yli 25 astetta voi ylittyä Ylä-Lappia lukuunottamatta. Sadekuuroja voi tulla suuressa osassa maata.

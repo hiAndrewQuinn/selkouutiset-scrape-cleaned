@@ -1,0 +1,79 @@
+# Friday 23.3.2018 (radio)
+
+A terrorist act happened in France. The USA is not yet charging tariffs on European steel and aluminium. Helsinki-Vantaa airport has been chosen as the best airport in Northern Europe. Back pain is often treated wrongly. The Design Museum is showing the work of Timo Sarpaneva.
+
+## Terrorist act in France
+
+![Supermarket where hostages were taken.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10131056)
+
+Open image viewer
+
+A man took hostages in a supermarket. Photo: Guillaume Horcajuelo / EPA
+
+A terrorist act has happened in France.
+
+A man killed 3 people in a small French town. In addition, he took hostages in a supermarket. The man himself died when police attacked the shop.
+
+The man said that he supports the terrorist organisation Isis.
+
+## US tariffs
+
+![Rolls of steel in a massive stack, a man in a helmet walks between the rolls.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10129509)
+
+Open image viewer
+
+The USA charges tariffs on Chinese steel, for example. Photo: Linfeng/ EPA-EFE
+
+The European Union has received new information from the USA about tariffs.
+
+The USA has said that it is not yet going to start charging tariffs on European steel and aluminium. President Donald Trump will decide in May whether the EU countries' tariff exemption continues.
+
+Trump ordered tariffs on foreign steel and aluminium a couple of weeks ago. That is why the price of foreign steel rises in the USA. Trump hopes that US factories will start using more American steel.
+
+Tariffs reduce trade between countries. That is why the European Union wants the US tariffs not to apply to EU countries.
+
+## Helsinki-Vantaa airport
+
+![Departure hall of Helsinki-Vantaa airport.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9515483)
+
+Open image viewer
+
+In passengers' view, Helsinki-Vantaa airport is the best in Northern Europe. Photo: Ismo Pekkarinen / AOP
+
+Helsinki-Vantaa airport has been chosen as the best airport in Northern Europe.
+
+The information comes from a survey that millions of people at airports around the world answered. The survey was carried out by the research company Skytrax.
+
+The best airport in the whole world is Changi airport in Singapore.
+
+## Treatment of back pain
+
+![A woman holding her back.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9166819)
+
+Open image viewer
+
+Back pain is a common complaint. Photo: Paula Koskinen / Yle
+
+Many people suffer from back pain.
+
+However, back pain is often treated wrongly. Many, for example, eat a lot of painkillers.
+
+Professor Jaro Karppinen says that many treatments are useless. Back pain is too often treated with surgery, for example. Patients often do not need an operation.
+
+Professor Karppinen says that the cause of back pain is often that a person does not use their back properly. That is why the best medicine for back pain is exercise. Physiotherapy and training help many patients.
+
+## Sarpaneva exhibition
+
+![Festivo series](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10128373)
+
+Open image viewer
+
+Items from the Festivo series are in many Finnish homes. Photo: Pietinen / Design Museum
+
+The Design Museum in Helsinki has a new exhibition. The exhibition presents the work of designer Timo Sarpaneva.
+
+Sarpaneva designed items, for example, for the Iittala glass factory. Many Finnish homes have items that Sarpaneva designed.
+
+Sarpaneva was also known abroad. Sarpaneva's career lasted more than 50 years. He died in 2006.
+
+The Sarpaneva exhibition continues at the Design Museum until September.

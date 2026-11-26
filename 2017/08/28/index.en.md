@@ -1,0 +1,69 @@
+# Monday 28.8.2017 (radio)
+
+A meeting of the presidents of Finland and the United States. The police have established the real name of the suspect in the Turku stabbings. A nurse is suspected of 86 murders. The price of cauliflower has fallen very low. Cereal crops are ripening late.
+
+## Finland's president in Washington to meet Trump
+
+![Trump greets a soldier.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9800996)
+
+Open image viewer
+
+President Trump brought forward the meeting with Finland's president because of the Texas hurricane. Photo: Alex Edelman / EPA
+
+President Sauli Niinistö is meeting US President Donald Trump in Washington. Niinistö was supposed to meet the US president only tomorrow, Tuesday, but the meeting was moved to Monday. The reason is Hurricane Harvey in Texas, whose damage Trump is going to see tomorrow, Tuesday.
+
+A meeting between the presidents of Finland and the United States is rare. The presidents last met one-on-one 15 years ago.
+
+Before the meeting, President Niinistö said that he wants to talk with Trump about the Baltic Sea, at least.
+
+## Mechkah is really Bouanane
+
+![Man in a hospital bed.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9792195)
+
+Open image viewer
+
+Abderrahman Bouanane has appeared in Finland under the name Mechkah. Photo: Martti Kainulainen / Lehtikuva
+
+The police have made public the real name of the main suspect in the Turku stabbings. The authorities have said that the Moroccan Abderrahman Bouanane is suspected of the stabbings.
+
+Bouanane has claimed that he is Abderrahman Mechkah. However, the police worked together with police in other countries and found out the real name.
+
+Bouanane, 22, stabbed 10 people in Turku a little over a week ago. Two people died.
+
+## Nurse charged with 86 murders
+
+![Niels Högel (left), charged with several murders, photographed in the courtroom in Oldenburg next to his lawyer Ulrike Baumann on 22 January 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9800974)
+
+Open image viewer
+
+The German male nurse has already been convicted of two murders. Now it is suspected that there have been at least 86 murders. Photo: Carmen Jaspersen / EPA
+
+German police suspect that the nurse has killed at least 86 patients. In addition, the police believe that there may be many more victims. The man has already been convicted of two patient murders.
+
+The nurse has said that he gave some patients too much heart medicine, so that he could save them. The nurse did so because he wanted respect from his colleagues.
+
+## Cauliflower is now a cheap delicacy
+
+![After an antibiotic course, the gut needs healthy and varied food. Broccoli in particular contains a lot of a substance that protects the gut.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7868385)
+
+Open image viewer
+
+Cauliflower can be quite expensive, but this year the price has even been under one euro a kilo. Photo: Arja Lento / Yle
+
+Cauliflower has now been very cheap in the shops. The price of cauliflower fell a lot, because too much of it was put on sale at once.
+
+The reason is the summer weather. The early summer was cold and growth was slow. Because of that, the cauliflower did not ripen for sale gradually, but all the cauliflowers ripened at the same time. Then the kilo price fell below one euro.
+
+A campaign to eat cauliflower started on social media. It seems that the campaign has worked. Large supermarket chains say that cauliflower sales have clearly increased.
+
+## Cereal crops are ripening late
+
+![combine harvester in an oat field](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9128184)
+
+Open image viewer
+
+Combine harvesters are still quite a rare sight in Finnish fields. Photo: Katja Halinen / Yle
+
+Harvesting of cereals is late because of the cool weather. Experts say that the cereals have not ripened at the normal time.
+
+Combine harvesters have still been seen quite rarely in the fields. Ripening of the cereals is one or two weeks late compared with recent years.

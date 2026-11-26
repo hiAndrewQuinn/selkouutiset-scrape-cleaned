@@ -1,0 +1,65 @@
+# Monday 17.7.2017 (radio)
+
+Undocumented people are easily exploited in the labour market. Climate change has made farming more difficult than before. Estonians make many day cruises to Helsinki. Big sailing ships are sailing in the Baltic Sea.
+
+## Many employers exploit undocumented people
+
+![Cleaner mopping a floor.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5009277)
+
+Open image viewer
+
+Many undocumented people work long days for very low pay. Photo: Yle
+
+In the Finnish labour market, undocumented asylum seekers are exploited.
+
+Some employers take an undocumented person to work, but pay them very low wages or make them work very long days. An undocumented person cannot complain about it to the authorities, because they are in the country illegally.
+
+A person is undocumented if they live in Finland without a legal right of residence.
+
+The number of undocumented people is growing, because some asylum seekers stay in Finland, even though they have not been granted asylum here.
+
+## Climate change harms farming
+
+![Summer's heavy rains have made the fields ripple in North Ostrobothnia on 26.6.2015](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8108111)
+
+Open image viewer
+
+Heavy rain has made a field flood. Photo: Kimmo Hiltunen / Yle
+
+Climate change has made farming more uncertain than before.
+
+Climate change has also increased extreme weather in Finland. For example, heavy rains have become more common, and winters are warmer than before. As the climate warms, new harmful insects and plant diseases also spread to us.
+
+Attempts are being made to ease the effects of climate change through plant breeding. If, for example, the stalk of grain is bred to be stronger and more durable, heavy rain will not knock it flat so easily.
+
+The Natural Resources Institute also says that farmers should now grow several different plant species. If bad weather takes the harvest of one species, another species may still produce a good harvest.
+
+## Linnanmäki and Ikea attract Estonian cruise passengers
+
+![Linnanmäki amusement park in Helsinki, 9 July 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9718195)
+
+Open image viewer
+
+Linnanmäki amusement park is the favourite destination of Estonian tourists in Helsinki. Photo: Vesa Moilanen / Lehtikuva
+
+Many day cruises are made from Estonia to Helsinki.
+
+Every year about 250,000 Estonians cross the Gulf of Finland by ship from Tallinn to Helsinki. Most cruises are made during the summer months.
+
+In Helsinki, Estonian cruise passengers are interested, for example, in the Linnanmäki amusement park and the Ikea stores.
+
+## Big sailing ships sail around the Baltic Sea
+
+![Sedov](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9722385)
+
+Open image viewer
+
+The Russian Sedov was at anchor in the port of Kotka at the weekend. Photo: Sirkka Haverinen / Yle
+
+The big sailing ships of the Tall Ships Races have started their journey from Kotka to Turku. About a hundred ships are perhaps expected in Turku. Ships are expected in Turku on Thursday.
+
+The Tall Ships Race is Europe's biggest sailing event. Ships from about 20 different countries take part, and there are about 2,300 sailors in total.
+
+The event includes, for example, the world's largest sailing ship, the Russian Sedov. The ship is 97 years old. It is over 120 metres long and its masts are 50 metres high.
+
+The Tall Ships Races sail in the Baltic Sea every fourth year. This time it started in Sweden at the beginning of July and ends in Poland at the beginning of August.

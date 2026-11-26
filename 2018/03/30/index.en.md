@@ -1,0 +1,65 @@
+# Friday 30.3.2018 (radio)
+
+Russia has started expelling diplomats. Brexit may also make air travel more difficult. More and more Finns offer home accommodation to travellers. Eastern Finland has the most snow.
+
+## Russia expels diplomats
+
+![The Russian Foreign Ministry in Moscow.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10140769)
+
+Open image viewer
+
+The Russian Foreign Ministry in Moscow. Photo: Maxim Zmeyev / AFP
+
+Russia is expelling a Finnish diplomat from the Finnish embassy in Moscow. The Russian Foreign Ministry has announced the expulsion today. The diplomat has 2 weeks to leave Russia.
+
+The expulsion of the Finnish diplomat is Russia's countermeasure against Finland. On Monday Finland decided to expel one Russian diplomat from Helsinki, because it wanted to show support to Britain. In early March there was a nerve agent attack in Britain, and it is widely believed that Russia was behind the attack.
+
+Many other Western countries have also expelled Russian diplomats. Russia says that it will now respond to the expulsions in kind.
+
+For example, Russia is expelling 60 American diplomats and closing the American consulate in St. Petersburg.
+
+## Brexit may make air travel more difficult
+
+![A Finnair plane landing at Heathrow Airport in London.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10140596)
+
+Open image viewer
+
+A Finnair plane is landing at London's Heathrow Airport. Photo: AOP
+
+Britain's EU exit may make things harder for the airline Finnair.
+
+When the EU exit happens in a year, Britain will no longer be part of the EU's single market for air travel. Because of this, every EU country must negotiate a new air travel agreement with Britain.
+
+The result of the talks is important for Finnair, because London is one of the favourite destinations of Finns in Europe. Finns often travel to London on holiday. Many also change planes in London on their way to the United States, for example.
+
+## Finns rent out their homes to travellers
+
+![Airbnb accommodation in the five biggest cities.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10138044)
+
+Open image viewer
+
+Airbnb accommodation in the five biggest cities. Photo: Ronnie Holmberg / Yle
+
+Travellers are staying more and more often in private homes instead of hotels.
+
+Airbnb is a website that connects private people's homes with tourists who need a place to stay. The service has grown more and more popular all over the world and here in Finland too.
+
+Last year, more than 2,300 places to stay in Helsinki were offered on the Airbnb website. That is 20 percent of all the places to stay in the whole city.
+
+In all of Finland, Airbnb's sales last year were perhaps about 58 million euros.
+
+## Eastern Finland has the most snow
+
+![People clearing snow from a roof.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10120670)
+
+Open image viewer
+
+It is worth clearing the roof of snow now and then, so that the snow load does not become too heavy. Photo: Petri Lassheikki / Yle
+
+A lot of snow has fallen across the whole country this winter.
+
+In North Karelia there is still almost a metre of snow. In Lapland there are still 90 centimetres of snow, and in Central Finland almost 80 centimetres.
+
+In Eastern Finland a lot of snow has built up on the roofs. In Kontiolahti in North Karelia, the roof of a large warehouse collapsed in the late morning, because the snow load on the roof was so heavy.
+
+The rescue service says that roofs should now be cleared of snow, because more snow is forecast for Eastern Finland at the start of next week.

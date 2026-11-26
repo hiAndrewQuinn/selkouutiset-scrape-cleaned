@@ -1,0 +1,93 @@
+# Wednesday 2.3.2022 (radio)
+
+Russia's attack in Ukraine speeds up. The EU is giving Ukrainians residence permits. Finnish companies boycott Russia. The EU imposes new sanctions on Belarus. Weather forecast.
+
+## War in Ukraine
+
+![Firefighters at rescue work in a government building in Kharkiv damaged by shelling.](https://img.img-cdn.yle.fi/crop_extract,w_4615,h_2595,x_0,y_481/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922108621e1b42d5ed1/1646235119)
+
+Open image viewer
+
+Firefighters at rescue work in Kharkiv. Photo: Sergey Bobok / AFP
+
+Russia has stepped up its attack on the city of Kharkiv in Ukraine. Kharkiv is Ukraine's second largest city. Russian paratroopers landed in Kharkiv on Wednesday. Since then there have been street battles in the city.
+
+The Ukrainian army says that Russian soldiers have attacked a hospital, for example. Russia has shelled Kharkiv heavily for several days.
+
+Ukraine says that more than 20 people have died and more than 100 people have been wounded within one day.
+
+## Ukrainian refugees
+
+![Ukrainian refugees walking along the side of a road.](https://img.img-cdn.yle.fi/crop_extract,w_3297,h_1854,x_0,y_343/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922274621e49255c008/1646161140)
+
+Open image viewer
+
+Ukrainian refugees walk along the side of the road. Photo: Nikolay Doychinov / AFP
+
+The UN refugee agency estimates that about 840,000 people have fled Ukraine abroad. The EU is helping Ukrainians who are fleeing the war.
+
+The EU Commission is preparing guidance that Ukrainians be given a 2-year residence permit in EU countries. Ukrainians will also get permission to work and study in EU countries.
+
+If the situation in Ukraine changes, the EU Commission may ask member states to shorten or extend Ukrainians' residence permits. The EU's interior ministers will decide on Ukrainians' residence permits on Thursday.
+
+## Stora Enso in Russia
+
+![Stora Enso logo on the gate of the Helsinki office.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922460621f2cc53598a/1646225229)
+
+Open image viewer
+
+Stora Enso. Photo: Silja-Riikka Seppälä/Lehtikuva
+
+Forest company Stora Enso is suspending production and sales in Russia.
+
+Stora Enso has 3 packaging factories and 2 sawmills in Russia. They employ just over 1,000 people in total.
+
+Stora Enso is also suspending exports and imports from Russia.
+
+## Fazer's exports to Russia
+
+![Fazer advertising sign on the roof of the Lahti factory shop.](https://img.img-cdn.yle.fi/crop_extract,w_4029,h_2266,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-777028603390da179a4/1613992245)
+
+Open image viewer
+
+Fazer makes, for example, sweets, biscuits, flour and porridge flakes. Photo: Petri Niemi/Yle
+
+Food company Fazer is also suspending exports to Russia. Fazer has exported sweets to Russia, and flour and flakes, for example.
+
+## Hartwall Arena
+
+![The Hartwall Arena name sign being torn down from the Helsinki arena on Wednesday.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2268,x_0,y_661/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922510621f392b6a37e/1646213555)
+
+Open image viewer
+
+The Hartwall sign was removed from the wall of the Helsinki arena on Wednesday. Photo: Emma Hyyppä / Yle
+
+Drinks company Hartwall is ending its cooperation with the Helsinki arena sports hall. The name of the sports hall has been Hartwall Arena.
+
+Hartwall no longer supports the hall, because the hall is owned by Russians.
+
+The name and logo of Hartwall have already been removed from the wall of the Helsinki arena.
+
+## Sanctions on Belarus
+
+![Lukashenka stands wearing a peaked cap, in a thick fur-collared overcoat with gold-coloured shoulder boards.](https://img.img-cdn.yle.fi/crop_extract,w_2680,h_1507,x_74,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-91169762015ee488bbc/1661344418)
+
+Open image viewer
+
+Belarus leader Aljaksandr Lukašenka. Photo: EyePress News / Shutterstock / AOP
+
+The EU is imposing new sanctions on Belarus. EU member state representatives have approved new sanctions on Belarus, because Belarus supports Russia in its attack on Ukraine.
+
+The EU may stop imports of goods from Belarus into EU countries.
+
+The EU is also imposing sanctions on Belarusian businessmen, oligarchs and Belarus's central bank.
+
+## Weather
+
+![Thursday's weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12340799)
+
+Open image viewer
+
+On Thursday the sun shines over wide areas.
+
+On Thursday the sun shines across much of the country. In Lapland a little snow falls in places. The temperature is between 0 and +4 degrees, and in Lapland there is a little frost. The north wind makes it feel colder.

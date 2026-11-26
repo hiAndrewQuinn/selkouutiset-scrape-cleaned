@@ -1,0 +1,65 @@
+# Tuesday 4.12.2018 (radio)
+
+Finns trust the police. There are several protests in Helsinki on Independence Day. The Ahtisaaris will not take part in the Palace party. The Finland 100 satellite is studying space. .
+
+## Values of the people
+
+![Smoke rises into the sky from the chimney of a German sugar factory.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6389870)
+
+Open image viewer
+
+Environmental issues worry Finns. Photo: Armin Weigel / EPA
+
+Finns trust the police, education and health care. However, trust in the education system has fallen since last year, says the new Values of the People study.
+
+Finns are dissatisfied with the state of democracy and with political decision-making. Trust in Parliament, the government and the labour market organisations has decreased. Instead, people have a positive attitude towards EU membership and the euro.
+
+Environmental issues worry Finns more than ever before. However, people are not ready to weaken their own standard of living because of environmental issues.
+
+More than 1300 Finns answered the Values of the People study.
+
+## Protests on Independence Day
+
+![A "Towards Freedom" demonstration organised by neo-Nazis.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9965105)
+
+Open image viewer
+
+The neo-Nazi organisation Nordic Resistance Movement marches in Helsinki on Independence Day. Photo: Jyrki Lyytikkä / Yle
+
+Several protest marches will be held in Helsinki on Independence Day. The police are preparing for thousands of people to take part in the protests.
+
+The neo-Nazi organisation Nordic Resistance Movement marches from Kaisaniemi to Töölö in the afternoon. At the same time there is a protest in Töölö against Nazis. In the evening, a march of the 612 nationalist groups goes through Töölö to Hietaniemi cemetery.
+
+During the day there is also the traditional torch march of the students in the city centre on Independence Day.
+
+## The Ahtisaaris
+
+![President Martti Ahtisaari and his wife Eeva Ahtisaari.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9337564)
+
+Open image viewer
+
+President Martti Ahtisaari and Mrs Eeva Ahtisaari. Photo: Kalevi Rytkölä / Yle
+
+President Martti Ahtisaari and Mrs Eeva Ahtisaari will not take part in the Independence Day celebrations this year.
+
+The Ahtisaaris will not take part in President Sauli Niinistö's and Mrs Jenni Haukio's Independence Day party at the Presidential Palace. They also will not take part in the Independence Day festive church service.
+
+President Ahtisaari had back surgery this autumn. His recovery is still in progress.
+
+Mrs Tellervo Koivisto, the widow of President Mauno Koivisto, has said that she too will not take part in the Palace party this year.
+
+## Finland 100 satellite
+
+![Rendering of the Finland 100 satellite in space](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10535569)
+
+Open image viewer
+
+The Finland 100 satellite sends sound and pictures from space to the earth. Photo: Aalto University
+
+The satellite of the year of Finland's independence celebrations has gone into space. The Finland 100 satellite was launched into space in the evening from California.
+
+The Finland 100 satellite is a joint project of Aalto University and the Finnish Meteorological Institute.
+
+The small satellite orbits the earth at a height of 600 kilometres. It measures space weather phenomena and produces new information, for example about the northern lights.
+
+The satellite sends sound and pictures to the earth, which all Finns can watch on the satellite's website.

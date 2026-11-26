@@ -1,0 +1,57 @@
+# Monday 20.8.2018 (radio)
+
+The police have had busy mornings since the new alcohol law. Attacks by dogs have increased. Companies have started to compete for good workers with pay. Sillanpää is not appealing his drug sentence.
+
+## Police: the new alcohol law has added work
+
+![Flashing lights on a police car](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10350088)
+
+Open image viewer
+
+The police have been busy, because restaurants now close at five in the morning. Photo: Milla Takala / Lehtikuva
+
+The police's emergency assignments have increased during the first part of the year. The police say that between January and July they received over 12,000 more alarms than at the same time last year.
+
+The police say that the reason for the number of alarms is the new alcohol law. The new law changed how restaurants work in March. They got the right to sell alcohol until four in the morning.
+
+When restaurants close at five in the morning, the police have a lot to do. Alarms have come in during the morning, for example about drunk people and fights. The police say there have been many more assignments than last year, especially between five and six.
+
+## More dog attacks than before
+
+![Laura Salmela plays with her dog.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10350923)
+
+Open image viewer
+
+It is nice to play with a dog, but sometimes a dog can get angry and attack. Photo: Petteri Juuti / Yle
+
+The police often receive reports about dog attacks now. The police say that they get a few reports of dog attacks every day. Statistics show that the number of attacks by dogs has risen to almost 800 times a year. A few years ago, the number of attacks was about 500.
+
+Insurance companies also report that dog injuries are increasing. It is often reported that a dog has attacked another dog. More and more often, insurance companies are also told that a dog has bitten a person.
+
+An expert says that the growth has several causes. For example, there are many more dogs than before. It may also be that people used to agree on the consequences of an attack by talking, and no report was made to the police.
+
+## Companies compete for workers
+
+![Eeva Repo examines a bag of vegetables in a shop.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10356715)
+
+Open image viewer
+
+A good worker can nowadays be lured with a better salary. Photo: Pekka Tynell / Yle
+
+Finland's good economy can now be seen in workplaces too. Companies complain that it is difficult to find good workers. Because of this, companies have started to compete on pay.
+
+For example, Lidl says that it pays more salary than the agreements require. Lidl believes that if it gets good workers, the company will get more money.
+
+The trade union PAM for retail workers is pleased that a worker can get more money than just the minimum wage.
+
+## Jari Sillanpää's drug sentence stands
+
+![Jari Sillanpää being interviewed in front of the courtroom.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10361157)
+
+Open image viewer
+
+Jari Sillanpää was sentenced last Friday. Photo: Yle
+
+The singer Jari Sillanpää's drug sentence stands. The prosecutor has said that the district court's ruling will not be appealed.
+
+Jari Sillanpää was sentenced to 10 months of conditional imprisonment for two drug offences. The ruling says that Sillanpää obtained a total of 118 grams of crystal meth, that is, methamphetamine, during the last 4 years.

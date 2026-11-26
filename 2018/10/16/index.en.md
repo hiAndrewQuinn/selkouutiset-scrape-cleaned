@@ -1,0 +1,69 @@
+# Tuesday 16.10.2018 (radio)
+
+Author Arto Paasilinna has died. In Parliament there was an argument about dismissals. The quality of construction. Kela got fed up with taxi problems. Audi is paying huge fines.
+
+## Parliament argued about dismissals
+
+![Juha Sipilä and Jari Lindström.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10458188)
+
+Open image viewer
+
+Prime Minister Juha Sipilä and Labour Minister Jari Lindström in Parliament. Photo: Jarno Kuusinen / AOP
+
+In Finland there is a dispute about dismissing employees. The government wants a change in the law that makes it easier for small firms to dismiss employees.
+
+It is said that small firms find it easier to hire people if firms can also dismiss people more easily than today. Employee unions oppose the government's bill.
+
+The government took the dispute to Parliament, which discussed it today. The government parties defended the proposal by saying it will improve employment. The other parties blamed the government for arguing with the employee organisations.
+
+Moisture in buildings is a big Finnish problem
+
+![Moisture damage on the ceiling of a flat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9703032)
+
+Open image viewer
+
+Moisture problems in buildings are, in Finns' opinion, a big social problem. Photo: Jouni Immonen / Yle
+
+Almost all Finns think that moisture in buildings and poor indoor air are a very big problem in Finland.
+
+In Finland, a survey was carried out to find out people's thoughts about construction problems. More than half said that in the past houses were built better in Finland than now. More than half think that Finnish construction no longer has a good reputation.
+
+The survey was commissioned by the construction company Peab. Over 1,000 people answered it.
+
+Kela got fed up with taxi problems in Uusimaa
+
+![Equipment in a taxi that carries Kela rides.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10363183)
+
+Open image viewer
+
+Kela got fed up with taxis being late in Uusimaa. Photo: Antti Karhunen / Yle
+
+Kela is ending its taxi cooperation with Helsingin-Uudenmaan Taksit Oy in Uusimaa. Kela says that it is not satisfied with the firm's operations.
+
+Kela is now looking for a new taxi firm to sign a contract with for driving Kela trips. The new firm will perhaps start in April. Until then, a Kela taxi is ordered in Uusimaa from the same number as now.
+
+Audi is paying 800 million euro in fines
+
+![Close-up of the exhaust pipes of a diesel car.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10433268)
+
+Open image viewer
+
+The emissions of cars have been talked about a lot in recent years. Photo: Heikki Saukkomaa / Lehtikuva
+
+The German car factory Audi is paying 800 million euro in fines. The authorities have set the fines, because Audi's diesel cars have polluted more than Audi has reported.
+
+Car emissions have been very much in the public eye. Some car factories cheated when the emissions of their cars were measured.
+
+Arto Paasilinna has died
+
+![Arto Paasilinna.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10459277)
+
+Open image viewer
+
+Arto Paasilinna wrote 35 novels and many other books. Photo: Mauri Ratilainen / AOP
+
+Author Arto Paasilinna has died. Paasilinna was a very successful author. He wrote dozens of books. Many people remember, for example, the books The Year of the Hare, The Howling Miller and The Forest of the Hanged Foxes.
+
+Arto Paasilinna was also a very popular author abroad. Paasilinna's books can be read in over 40 languages. Over 8 million copies of the books have been sold.
+
+Arto Paasilinna lived to be 76 years old.

@@ -1,0 +1,75 @@
+# Monday 22.10.2018 (radio)
+
+Many employees are on strike on Monday and Tuesday. Security guards are on strike at the end of the week. Parliamentary elections were held in Afghanistan. Researchers are finding out what makes Finns happy. The weather is autumnal.
+
+## The strike days at the start of the week
+
+![A pupil eats his own packed lunch at school lunch at Lintuvaara School in Espoo on 22 October](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10469510)
+
+Open image viewer
+
+Pupils have been eating packed lunches while the cooks are on strike. Photo: Vesa Moilanen / Lehtikuva
+
+Many employees were on strike on Monday. The strike continues on Tuesday too.
+
+The strike affects many people's lives. For example, food is not being made in all day-care centres and schools. That is why children have been eating their own packed lunches.
+
+In total over 10,000 employees have stopped work for Monday and Tuesday. They are angry, because the government is planning a new dismissal law. If the law comes into force, it will be easier for small firms to dismiss employees.
+
+## Security guards' strike
+
+![Security guard](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10447922)
+
+Open image viewer
+
+Photo: Kalle Parkkinen / Lehtikuva
+
+Security guards start a strike on Wednesday. The strike lasts until Friday.
+
+Security guards will not work for 3 days, because there is a dispute about pay in the security sector. The trade union PAM says that the dispute concerns about 8,500 employees. They do jobs such as security guard, security inspector and caretaker.
+
+## Afghan elections
+
+![An Afghan woman casts her vote in Jalalabad.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10467349)
+
+Open image viewer
+
+Women have voted eagerly in the Afghan elections. Photo: Ghulamullah Habibi / EPA
+
+There were elections in Afghanistan. At the weekend, Afghans chose a new parliament.
+
+Terrorist organisations disturbed the elections. Dozens of people died during the elections because of violence. Voters' greatest hope is that there will be peace in Afghanistan.
+
+Many also hope that the position of women will improve. It was already a good thing that there were over 400 women candidates in the elections.
+
+Next, the votes will be counted. In about 2 months' time it will be known who gets into the Afghan parliament.
+
+## Happiness in Instagram pictures
+
+![A lantern on a jetty as the sun sets.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10270396)
+
+Open image viewer
+
+Finns tell about happiness through nature photos. Photo: Ismo Pekkarinen / AOP
+
+In Finland researchers are studying what happiness is. Last spring the UN report, from the United Nations, said that Finland is the happiest country in the world.
+
+Now researchers are finding out what makes Finns happy. The matter is being studied using Instagram pictures.
+
+Researcher Eemeli Hakoköngäs says that family and friends appear in Finns' happy pictures. Good looks are also part of Finns' happiness.
+
+When Finns' pictures are compared with those of others, one big difference is noticed. Nature is part of Finns' happiness. A Finn can take a happy picture that shows, for example, only a forest or a lake.
+
+## Cool weather
+
+![Umbrella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10395280)
+
+Open image viewer
+
+In the south Tuesday is rainy. Photo: AOP
+
+The weather is autumnal.
+
+On Tuesday it rains in Southern Finland. Elsewhere in the country it is dry, that is, no rain falls.
+
+On Tuesday the temperature is below 10 degrees across the whole country.

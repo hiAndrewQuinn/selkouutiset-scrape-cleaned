@@ -1,0 +1,65 @@
+# Friday 15.2.2019 (radio)
+
+Foreign Minister Timo Soini proposes hiring more carers from the Philippines. The Metropolia University of Applied Sciences building in Leppävaara, Espoo, will be closed. The "I Read to You" campaign brought immigrants to elderly and intellectually disabled people. The winter school holiday in Southern Finland begins in unusually warm weather.
+
+## Carers from the Philippines
+
+![Timo Soini](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10649228)
+
+Open image viewer
+
+Foreign Minister Timo Soini. Photo: Vesa Moilanen / Lehtikuva
+
+Foreign Minister Timo Soini proposes that more carers from the Philippines be hired in Finland.
+
+There are already some Filipino carers in Finland. Soini writes on his blog that they are hard-working and do good work.
+
+In Soini's view, it is important that all carers get the same pay in Finland and pay taxes.
+
+Soini writes that more carers are needed in Finland, because the number of elderly people is growing.
+
+## Metropolia in Leppävaara
+
+![Metropolia Leppävaara campus, cracks in the structures](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5435345c66bf0109b01/1550237515)
+
+Open image viewer
+
+There are cracks in the building of Metropolia in Leppävaara, Espoo. Photo: Esa Fills / YLE
+
+The Metropolia University of Applied Sciences building in Leppävaara, Espoo, will be closed.
+
+Metropolia says that the building has large cracks. The building will be closed for safety reasons.
+
+Cracks have appeared in the building because it has sunk downwards. The old part of the building was completed in 1989, and the new part was completed in 2002.
+
+Metropolia has about 3,000 students in Leppävaara, Espoo. They can continue their studies at Metropolia's other locations. These are in Myllypuro and Arabia in Helsinki, and in Myyrmäki in Vantaa.
+
+## The "I Read to You" campaign
+
+![Two people read aloud, and two people sit in wheelchairs and listen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10648876)
+
+Open image viewer
+
+Students of the Finnish Diaconia Institute, Saad Mawlood and Azam Harouni, read to residents with intellectual disabilities at Maurinkoti in Helsinki. Photo: Merja Windia / Yle
+
+This week immigrants have visited elderly people and people with intellectual disabilities and read to them aloud. The reading sessions were part of the Easy Finnish Centre's "I Read to You" campaign.
+
+Reading events were held in more than 40 locations, and there were over 1,000 readers. For example, students of the Finnish Diaconia Institute visited Maurinkoti in Helsinki. 23 people with intellectual disabilities live in Maurinkoti.
+
+The teacher Päivi Worku says that the students were happy to hold the reading sessions. The most important thing was meeting people, Worku says. Many of the students met people with intellectual disabilities for the first time.
+
+## Weather for the winter holiday
+
+![Slippery in Tampere](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10648650)
+
+Open image viewer
+
+There is a lot of slippery ice on the streets now. Photo: Antti Eintola / Yle
+
+Winter holidays have begun in schools in Southern Finland. The winter holiday begins in unusually warm weather.
+
+During the night between Thursday and Friday it was 8.4 degrees warm in Rauma. It is only this warm in February once every 30 years.
+
+Winter is not over yet, though. On Saturday it will snow in Northern Finland, and on Sunday the weather will get colder across the whole country.
+
+In the north it may be as much as 15 degrees of frost on Sunday. In the south the temperature may be a little above zero.

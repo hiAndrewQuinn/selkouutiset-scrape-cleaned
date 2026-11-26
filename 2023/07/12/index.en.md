@@ -1,0 +1,69 @@
+# Radio Clear News Wednesday 12.7.2023
+
+The government and racism. NATO summit. Biden to Finland. The weather.
+
+## The government and racism
+
+![Prime Minister Petteri Orpo (National Coalition) and Finance Minister Riikka Purra (Finns Party) answered media questions at Kesäranta in Helsinki on 12 July 2023.](https://img.img-cdn.yle.fi/crop_extract,w_4987,h_2805,x_0,y_92/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114155064ae9c4592033/1689165129)
+
+Open image viewer
+
+Riikka Purra and Petteri Orpo at a press briefing on Wednesday. Photo: Silja Viitala / Yle
+
+Prime Minister Petteri Orpo says that the Finnish government does not accept racism.
+
+Orpo met journalists at a press briefing on Wednesday. The prime minister said at the press briefing that the government does not accept racism and discrimination at all.
+
+In Finland there has been talk in recent days about Minister Riikka Purra's racist writings. Purra is the government's finance minister and the chair of the Finns Party.
+
+Purra published racist writings on social media 15 years ago. On Tuesday, Purra apologised for the writings.
+
+On Wednesday Purra took part in the prime minister's press briefing. Purra said that she no longer thinks in the same way as at the time of the social media writings.
+
+## NATO summit
+
+![Volodymyr Zelenskyy smiling at the NATO summit with a NATO flag in the background.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114167664aec42f5cbec/1689175162)
+
+Open image viewer
+
+Ukraine's president took part in the NATO summit. Photo: Artur Widak / AOP
+
+The NATO defence alliance summit has ended. The meeting was in the Lithuanian capital Vilnius.
+
+An important theme at the NATO summit was Ukraine. NATO countries promised to support Ukraine, which is defending itself against Russia's attack.
+
+The meeting also talked about Ukraine's NATO membership. Ukraine has hoped that it will become a NATO member.
+
+In Vilnius, Ukraine did not yet get an invitation to NATO, or a timetable for when Ukraine could become a NATO member.
+
+However, it was promised that Ukraine's path to NATO would be made easier.
+
+## Biden to Finland
+
+![Joe Biden and Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_extract,w_1844,h_1037,x_1042,y_323/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114126164ae67834b58b/1689151431)
+
+Open image viewer
+
+Joe Biden and Sauli Niinistö in Vilnius, from where Biden travels to Finland. Photo: Matti Porre / Presidential Office / AOP
+
+Finland is getting a rare guest, as US President Joe Biden comes to Finland.
+
+Biden is coming to Finland from Lithuania, where he took part in the NATO defence alliance summit. Biden's aircraft lands at Helsinki-Vantaa airport late on Wednesday.
+
+On Thursday Biden will talk with President Sauli Niinistö. In Helsinki he also meets the prime ministers of the other Nordic countries.
+
+The police remind people that Biden's visit affects traffic in Helsinki. Traffic in the centre of Helsinki is blocked at times on Thursday, and some of the streets in the centre will be closed completely. Especially around the Presidential Palace and the Helsinki Market Square, moving around is difficult on Thursday.
+
+## The weather
+
+![Thursday's weather map.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114168564aed49de27f7/1689179334)
+
+Open image viewer
+
+On Thursday the weather is cloudy. In the south the temperature is over 20 degrees.
+
+It rains in the east and in the north. In the east the temperature is below 20 degrees.
+
+In Lapland it is warm on Thursday. In northern Lapland it may be over 25 degrees.
+
+At the weekend too there is beautiful summer weather. The weather is dry and sunny in a large part of the country.

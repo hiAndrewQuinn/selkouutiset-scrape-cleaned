@@ -1,0 +1,75 @@
+# Monday 8.2.2021 (radio)
+
+There are 9 new coronavirus deaths in Finland. Cottages are selling well. Sea trout are doing better than before. Emil Ruusuvuori won in Australia.
+
+## Coronavirus infections
+
+![Sign for a Mehiläinen drive-in coronavirus test in Rovaniemi.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_315/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7713026021003a56d2f/1612775555)
+
+Open image viewer
+
+Sign for a Mehiläinen drive-in coronavirus test in Rovaniemi. Photo: Perttu Ruokangas / Yle
+
+There are 9 new coronavirus deaths in Finland. 125 people are in hospital because of the coronavirus.
+
+There are 353 new coronavirus infections. Most new infections are clearly in the Helsinki and Uusimaa hospital district.
+
+In Finland there have been almost 48,000 infections in total so far. More than 170,000 people in Finland have received a coronavirus vaccine so far.
+
+## Cottage sales
+
+![View of a lake from the window of a summer cottage for sale.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6793815ec78ab0dd61a/1590136503)
+
+Open image viewer
+
+Sales of lakeside cottages and plots became more common in the coronavirus year. Photo: Jarkko Riikonen / Yle
+
+More cottages are being bought than before. Many cottages are bought, especially if they are on the shore of a lake or the sea.
+
+Lakeside cottages sold 40 percent more last year than the year before. Lakeside cottages also cost more than before.
+
+## European snowstorm
+
+![People push cars stuck in snow in the Netherlands.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11777420)
+
+Open image viewer
+
+People push cars stuck in snow in Haarlem, the Netherlands. Photo: Vincent Jannink / EPA
+
+A lot of snow fell in different parts of Europe at the weekend.
+
+The snowstorm caused hundreds of traffic accidents. Trains and flights were late. A lot of snow fell in some parts of Germany and Britain, for example.
+
+In the Netherlands the storm was stronger than it has been for a long time. Train traffic in the Netherlands was stopped completely.
+
+In Bulgaria, for example, there were many crashes on the roads.
+
+A lot more snow will fall during the early part of the week, at least in Germany and Poland.
+
+## Sea trout
+
+![Round stone gravel made into a spawning place for sea trout at Koirakoski rapids on the Pakajoki river in Muonio, August 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10906072)
+
+Open image viewer
+
+A spawning place for sea trout was made from round stones and gravel at Koirakoski rapids on the Pakajoki river in Muonio, August 2019. Photo: Uula Kuvaja / Yle
+
+Sea trout have bred very well in the Gulf of Finland last year, says the Natural Resources Institute. In some places in the Gulf of Finland, there have even been record numbers of young sea trout.
+
+Sea trout have bred well, because it rained a lot in the autumn and protecting sea trout has worked.
+
+Sea trout is a very endangered fish. Sea trout are protected by law.
+
+## Emil Ruusuvuori
+
+![Emil Ruusuvuori and Gael Monfils after their first-round match at the Australian Open 2021.](https://img.img-cdn.yle.fi/crop_extract,w_3239,h_1822,x_0,y_35/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7711816020ba8fa0eed/1612757695)
+
+Open image viewer
+
+Ruusuvuori won one of the sweetest wins of his career against Gael Monfils.
+
+Emil Ruusuvuori has reached the 2nd round of the tennis Australian Open. Ruusuvuori beat the French player Gael Monfils 3-2.
+
+Emil Ruusuvuori plays Spanish player Pedro Martinez in the 2nd round of the tournament. The match is played on Wednesday morning, Finnish time.
+
+Every year, there are 4 especially big and respected tennis tournaments in the world. The Australian Open is one of these tournaments.

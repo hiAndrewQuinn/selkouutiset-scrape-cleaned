@@ -1,0 +1,81 @@
+# Saturday 28.11.2020 (radio)
+
+There are more than 500 new coronavirus infections. In Europe more than 400,000 people have already died because of the coronavirus. The last Knight of the Mannerheim Cross, Tuomas Gerdt, was buried on Saturday. The Finnish Association of Hard of Hearing has given the Clear Speaker award to journalist Rosa Kettumäki. There is dry weather at the weekend.
+
+## Finland's coronavirus figures
+
+![People waiting for a bus in Helsinki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11671101)
+
+Open image viewer
+
+The face mask is already part of everyday life. Photo: Jorge Gonzalez / Yle
+
+The number of coronavirus infections in Finland is growing.
+
+The Finnish Institute for Health and Welfare reported 541 new coronavirus infections on Saturday. About 50 per cent of the new coronavirus infections are in the Helsinki and Uusimaa area.
+
+The total number of coronavirus infections in Finland is now over 24,000.
+
+## Europe's coronavirus figures
+
+![Coronavirus patients are being moved from an ordinary hospital to a separate coronavirus unit in Brussels, Belgium.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11667060)
+
+Open image viewer
+
+Europe is fighting the coronavirus. Photo: Stephanie Lecocq / EPA
+
+In Europe, the number of new coronavirus infections has started to fall. The tough coronavirus restrictions of different countries have worked well.
+
+In Europe there are over 17 million coronavirus infections, and more than 400,000 people have died because of the coronavirus.
+
+The most coronavirus deaths are in Britain and Italy. In both countries, more than 50,000 people have died because of the coronavirus.
+
+## Gerdt was buried
+
+![Tuomas Gerdt's coffin is carried to the grave](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7476545fc250817ae00/1606570171)
+
+Open image viewer
+
+Tuomas Gerdt was buried in Lappeenranta on Saturday. Photo: Petri Kivimäki/Yle
+
+Tuomas Gerdt was buried today, Saturday. Gerdt was the last Knight of the Mannerheim Cross who was alive.
+
+Gerdt died in early November. He was 98 years old.
+
+Gerdt was buried in Lappeenranta. President Sauli Niinistö took part in the funeral. The president also gave a speech at Gerdt's grave.
+
+Flags were flown at half-mast all over Finland on Saturday. The flags flew at half-mast in memory of Gerdt and the other Knights of the Mannerheim Cross.
+
+The Mannerheim Cross was the highest honour that a Finnish soldier could receive during the Second World War. Gerdt received the rank and decoration of Knight of the Mannerheim Cross in 1942.
+
+The Knights of the Mannerheim Cross had an important role during the war. It can be said that they are the war heroes of Finns.
+
+There were 191 Knights of the Mannerheim Cross in total. Now all of them have died.
+
+## Kettumäki was awarded
+
+![Rosa Kettumäki](https://img.img-cdn.yle.fi/crop_extract,w_5746,h_3232,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7270495f7c9ca6847ad/1602002116)
+
+Open image viewer
+
+Journalist Rosa Kettumäki received the Clear Speaker award. Photo: Mikko Ahmajärvi / Yle
+
+The Finnish Association of Hard of Hearing has given the award to journalist Rosa Kettumäki. Kettumäki received the Clear Speaker award.
+
+Kettumäki is a television journalist at Yle. The Finnish Association of Hard of Hearing says that Kettumäki speaks calmly and clearly. Because of this, people with poor hearing can also follow Kettumäki's programmes.
+
+There are about 800,000 people in Finland who have poor hearing. It is easier for them to follow various events and TV programmes if the speakers speak clearly.
+
+That is why the Finnish Association of Hard of Hearing gives the Clear Speaker award every other year.
+
+## Weather over the weekend
+
+![A shoreline scene with lots of reeds, grey autumn weather](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7348695f982df6c97a2/1603809114)
+
+Open image viewer
+
+The weather is autumn grey. Photo: Markku Lähdetluoma / Yle
+
+Over the weekend it is dry, no rain is expected. Only on the south coast may a little sleet or snow fall.
+
+At night there is frost. In the daytime the temperature rises a little above zero in southern Finland.

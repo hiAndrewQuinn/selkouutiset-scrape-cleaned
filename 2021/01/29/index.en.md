@@ -1,0 +1,89 @@
+# Friday 29.1.2021 (radio)
+
+The European Medicines Agency has approved the AstraZeneca corona vaccine. There are many new corona infections in Jyväskylä. Mandatory corona tests are being considered for Finland's borders. Estonia's new foreign minister has visited Finland. Across the whole country there is frost at the weekend.
+
+## The AstraZeneca corona vaccine
+
+![Close-up of a small vaccine bottle, from which vaccine is drawn into a syringe. On the side of the bottle the text reads: &quot;Vaccine AstraZeneca. 5 ml.&quot;](https://img.img-cdn.yle.fi/crop_extract,w_1306,h_735,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-76645860101dd3c8e23/1611669180)
+
+Open image viewer
+
+The AstraZeneca corona vaccine may come into use in EU countries. Photo: Dominic Lipinski / EPA
+
+The European Medicines Agency has approved the AstraZeneca corona vaccine.
+
+The drug company AstraZeneca has made the corona vaccine together with the University of Oxford.
+
+Next, the EU Commission will decide whether the AstraZeneca corona vaccine gets a marketing authorisation in the European Union area.
+
+2 corona vaccines are already in use in the European Union.
+
+## Finland's corona figures
+
+![A woman goes for a corona test.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-764519600860100cf7d/1611161682)
+
+Open image viewer
+
+More corona infections have been found again. Photo: Juuso Stoor / Yle
+
+363 new corona infections have been found in Finland, it was reported on Friday.
+
+In addition, it was reported that there are 7 new corona deaths. A total of 671 people have died of corona in Finland.
+
+## Corona infections in Jyväskylä
+
+![Heidi&#39;s Bier Bar's Facebook page. ](https://img.img-cdn.yle.fi/crop_extract,w_4096,h_2304,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-76715260126c8e9a97d/1611820265)
+
+Open image viewer
+
+A restaurant in Jyväskylä closed its doors because of corona infections. Photo: Heli Kaski / Yle
+
+There are especially many new corona infections in Jyväskylä. More than 150 corona infections have been found in Jyväskylä this week.
+
+The city of Jyväskylä says that more than 1,000 people are in quarantine. They cannot meet other people now.
+
+The coronavirus started spreading last week from a restaurant in Jyväskylä, where a large group of students spent the evening together. Now the restaurant is closed.
+
+## Mandatory corona tests are being considered
+
+![Jussi Saramo, Sanna Marin, Annika Saarikko and Maria Ohisalo](https://img.img-cdn.yle.fi/crop_extract,w_5415,h_3046,x_0,y_406/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-767581601325425c503/1611867550)
+
+Open image viewer
+
+Corona tests were also talked about in the party leaders' TV debate. Photo: Tiina Jutila / Yle
+
+In Finland, mandatory corona tests are being considered for the country's borders.
+
+The matter was also on the agenda in the party leaders' TV debate on Thursday. Almost all party leaders supported mandatory corona tests for passengers who come to Finland from abroad.
+
+The SDP party leader, Prime Minister Sanna Marin, said that the government is ready to propose compulsory tests. The government can quickly give a bill to Parliament if compulsory tests are wanted in law. In Finland, Parliament decides on laws.
+
+Finland is considering compulsory tests especially because of the coronavirus variant. Finland does not want the coronavirus variant to come into the country with passengers. The coronavirus variant spreads easily to people.
+
+## Estonia's foreign minister in Finland
+
+![Estonia's new government in a group photo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11756201)
+
+Open image viewer
+
+Estonia got a new government this week, and now the new government's foreign minister has come to Finland. Photo: Mattias Tammet / Office of the President of Estonia
+
+Estonia's new foreign minister has visited Finland.
+
+Foreign Minister Eva-Maria Liimets met Finland's Foreign Minister Pekka Haavisto. The foreign ministers discussed, for example, the corona situation.
+
+Estonia got a new government this week. The prime minister of the government is Kaja Kallas, the leader of the Reform Party. Foreign Minister Liimets is from the Centre Party.
+
+## The weekend weather
+
+![weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11763917)
+
+Open image viewer
+
+Photo: Yle
+
+At the weekend there is frost across the whole country.
+
+On Saturday it snows in the west and in the north.
+
+On Sunday it snows only in places, and the sun also shows itself.

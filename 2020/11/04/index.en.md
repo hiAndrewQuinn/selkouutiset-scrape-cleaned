@@ -1,0 +1,73 @@
+# Wednesday 4.11.2020 (radio)
+
+Voting has taken place in the US presidential election. THL has reported new coronavirus deaths and coronavirus infections. Christmas post must be sent early this year. The Father of the Year awards have been given out.
+
+## US presidential election
+
+![Republican presidential candidate Donald Trump and Democratic candidate Joe Biden.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11622753)
+
+Open image viewer
+
+Trump or Biden? The election has been close. Photo: Juha Rissanen
+
+Voting has taken place in the US presidential election.
+
+President Donald Trump is the Republican candidate, and Joe Biden is the Democratic candidate.
+
+The election is exciting and close. It is not yet known who the winner is, and who will be the next president of the United States.
+
+While votes were still being counted, Trump already said that he had won the election.
+
+Trump also doubted whether the election was honest. It is very unusual for a president of the USA not to trust his own country's election system.
+
+At the same time, Joe Biden led in the number of electors.
+
+In the USA, voters elect the electors of the states, who later meet to elect the president.
+
+It may take many more days before the result of the election is known.
+
+## Finland's coronavirus figures
+
+![THL sign on Mannerheimintie in Helsinki.](https://img.img-cdn.yle.fi/crop_extract,w_5172,h_2909,x_0,y_259/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6782355ec3516e816dd/1616069887)
+
+Open image viewer
+
+Photo: Tiina Jutila / Yle
+
+The Finnish Institute for Health and Welfare, THL, has reported new coronavirus deaths and coronavirus infections.
+
+In Finland there have been 2 new coronavirus deaths. In total, 361 people have died in Finland because of the coronavirus.
+
+There are 293 new coronavirus infections. The total number of coronavirus infections in Finland is almost 17,000.
+
+## Post during the coronavirus era
+
+![Post shop in Joensuu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8079068)
+
+Open image viewer
+
+Post does not run normally to foreign countries during the coronavirus era. Photo: Esa Huuhko / Yle
+
+Christmas post must be sent early this year.
+
+For destinations outside Europe, it is good to send Christmas post already in mid-November. For destinations in European countries, it is good to send Christmas post at the beginning of December.
+
+The reason is the coronavirus situation, which slows down the post. Normal routes for post transport do not always exist. For example, many flight routes abroad are cut because of the coronavirus.
+
+## Father of the Year awards
+
+![Fabrizio Trotti from Espoo is one of the winners of the Father of the Year 2020 award.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11628473)
+
+Open image viewer
+
+Espoo resident Fabrizio Trotti is one of the winners of the Father of the Year 2020 award. Photo: @theslowphotography
+
+The Father of the Year awards have been given out. The Ministry of Social Affairs and Health gave the awards on Tuesday. However, an awards party was not held because of the coronavirus situation.
+
+The award was given to 3 fathers this year. One of the award winners is Fabrizio Trotti from Espoo. He has moved from Italy to Finland.
+
+Trotti has a daughter and an adopted son, who is from India. In addition, the Trotti family is a support family for a 12-year-old girl.
+
+Fabrizio Trotti says that every father is a Father of the Year to his own children.
+
+The Father of the Year awards were given out this week, because Father's Day is celebrated on Sunday. In Finland, Father's Day is always on the second Sunday of November.

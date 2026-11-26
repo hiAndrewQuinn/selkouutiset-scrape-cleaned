@@ -1,0 +1,83 @@
+# Tuesday 13.12.2022 (radio)
+
+EU Parliament bribery investigation. Winter storm. Crowding at HUS emergency departments. Maternity package. Lucia Day. Weather forecast.
+
+## EU Parliament bribery investigation
+
+![Greek politician Eva Kaili.](https://img.img-cdn.yle.fi/crop_extract,w_4687,h_2636,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10464016394a85fa7437/1670686865)
+
+Open image viewer
+
+EU Parliament has dismissed Vice-President Eva Kaili. Photo: Philippe Buissin / EU
+
+EU Parliament has dismissed Vice-President Eva Kaili. 625 MEPs supported removing Kaili from the post of Vice-President. Only 1 person opposed Kaili's dismissal.
+
+Belgian police have arrested 6 people. The police suspect that some country has tried to influence EU Parliament decisions with money, that is, by giving bribes.
+
+One of those arrested is Eva Kaili, whom the EU Parliament has now removed from the post of Vice-President.
+
+## Winter storm
+
+![The train to the airport in Helsinki, photographed in a snowstorm at Mosabacka railway station.](https://img.img-cdn.yle.fi/crop_extract,w_4468,h_2513,x_0,y_86/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1046798639714952d7a9/1670845674)
+
+Open image viewer
+
+Many trains have been late because of the winter storm. Photo: Lehtikuva/Markku Ulander
+
+The winter storm has continued on Tuesday. The winter storm has disrupted car traffic, train traffic and air traffic.
+
+Driving conditions have been bad, because a lot of snow has fallen and the wind has blown the snow into drifts. There have been car crashes on the roads, because visibility has been poor and the roads are slippery. Lorries have got stuck. Train and air traffic have been delayed.
+
+On Monday the winter storm was in southern Finland. On Tuesday the storm also spread to the central parts of the country.
+
+## Crowding at HUS emergency departments
+
+![Signposts near Jorvi Hospital.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_196/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-104742063986aa22c2c8/1670935623)
+
+Open image viewer
+
+The worst crowding is at the Jorvi emergency department in Espoo. Photo: Juha Heikanen / Yle
+
+Emergency departments at hospitals have become very crowded at the HUS hospitals in Helsinki and Uusimaa.
+
+The worst crowding is at Jorvi Hospital. Because of the crowding, patients cannot be quickly admitted for treatment.
+
+Because of the crowding, some patients have had to wait in an ambulance for up to one and a half (1.5) hours, that is, an hour and a half, before they are admitted to the emergency department at Jorvi.
+
+## Maternity package
+
+![Contents of the maternity package. Clothes and other supplies.](https://img.img-cdn.yle.fi/crop_extract,w_1234,h_694,x_0,y_49/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1046867639724840e2ff/1670850038)
+
+Open image viewer
+
+The new maternity package has 38 products. Photo: Stoodio Oy / Kela
+
+The maternity package is being renewed. The maternity package next year will have fewer products than before. The new maternity package has 38 products, that is, 12 fewer products than before. The reason is the situation in the world and rising prices. Items left out include, for example, a soft toy, a bib and condoms.
+
+The maternity package is provided by Kela. Kela says that products that last a long time have been chosen for the maternity package.
+
+In Finland, mothers have been receiving the maternity package for 85 years already.
+
+## Lucia Day
+
+![Lucia and the Lucia choir perform.](https://img.img-cdn.yle.fi/crop_extract,w_3888,h_2187,x_0,y_398/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-104763963989d1eec878/1670946467)
+
+Open image viewer
+
+Finland's Lucia, Wilma Grönqvist, was crowned in Helsinki Cathedral. Photo: Marcus Rosenlund / Yle
+
+Lucia Day was celebrated on Tuesday. Finland's Lucia was crowned in Helsinki Cathedral. A candle crown was placed on Lucia's head.
+
+This year's Finnish Lucia is from Raasepori: **Wilma Grönqvist.** Lucia is important to Swedish-speaking Finns, that is, Finland-Swedes. For example, many Swedish-speaking schools celebrate the Lucia festival.
+
+They say that Lucia brings light to the dark winter.
+
+## The weather
+
+![Wednesday's weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12684573)
+
+Open image viewer
+
+Snowfall ends on Wednesday.
+
+On Wednesday there will still be light snowfall. It is mostly dry and cloudy. The temperature is between -15 and -5 degrees. It is colder in northern Lapland.

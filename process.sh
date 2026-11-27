@@ -54,6 +54,21 @@ if ! flock -n 9; then
   exit 0
 fi
 
+# --- Stay in step with GitHub (see lib/git-sync.sh) ---
+# Before any work: make sure there is room (the box's filesystem is RAM), then
+# take in whatever GitHub has that this checkout lacks (merged PRs, or a newer
+# process.sh), so this run's commit lands on top of it and its push is not
+# rejected. A rebase that conflicts is aborted and the run stops: nothing is
+# processed, nothing is pushed, and the checkout is left as it was.
+# A newer process.sh fetched here takes effect from the next run; this one
+# keeps reading the file it started with (git replaces files, it does not
+# rewrite them in place).
+GIT_REMOTE="${GIT_REMOTE:-origin}"
+GIT_BRANCH="${GIT_BRANCH:-master}"
+. "$SCRIPT_DIR/lib/git-sync.sh"
+check_free_space || exit 1
+git_sync || exit 1
+
 # --- ADDED: Handle --force argument ---
 force_regeneration=false
 if [ "$1" = "--force" ]; then
@@ -91,6 +106,13 @@ case "$MAX_API_TRANSLATIONS" in
 esac
 api_translations_made=0
 api_translations_capped=0
+# Always report what was spent, however the run ends (set -e exits included).
+TWIN_INDEX=""
+on_exit() {
+  [ -n "$TWIN_INDEX" ] && rm -f "$TWIN_INDEX"
+  log_message "Translate API usage this run: $api_translations_made paid translation(s) (cap $MAX_API_TRANSLATIONS), $api_translations_capped held back by the cap, plus the connectivity test."
+}
+trap on_exit EXIT
 log_message "Spending guards: no API translation for days before $TRANSLATE_FROM; at most $MAX_API_TRANSLATIONS API translation(s) this run."
 
 # --- Ensure $HOME/.local/bin is in PATH for cron ---
@@ -330,7 +352,7 @@ fi
 # matches one already translated (anywhere, not just the day before) copies
 # it instead of calling the API. Candidates are re-checked byte for byte.
 TWIN_INDEX=$(mktemp "${TMPDIR:-/tmp}/selkouutiset-twins.XXXXXX") # outside the repo: never committed
-trap 'rm -f "$TWIN_INDEX"' EXIT
+# (removed by on_exit)
 : >"$TWIN_INDEX"
 for resp in 20[0-9][0-9]/[0-1][0-9]/[0-3][0-9]/_response.fi.en.json; do
   [ -s "$resp" ] || continue
@@ -863,15 +885,19 @@ if [ -n "$(git status --porcelain)" ]; then
   log_message "Successfully committed changes."
 
   log_message "Pushing changes to the remote repository..."
-  git push
-  # set -e will cause exit if git push fails.
-  log_message "Successfully pushed changes to the remote repository."
+  # git_push re-syncs and retries if GitHub moved during the run. If it still
+  # fails, the commit stays here and the next run's sync + push sends it.
+  git_push || exit 1
 
   log_message "Git operations (add, commit, push) completed successfully."
 else
-  log_message "No uncommitted changes detected in the repository. Skipping git operations."
+  log_message "No uncommitted changes detected in the repository."
+  # A commit from an earlier run whose push failed is still only here.
+  if [ -n "$(git rev-list "$GIT_REMOTE/$GIT_BRANCH..HEAD" 2>/dev/null)" ]; then
+    log_message "Local commits not yet on $GIT_REMOTE/$GIT_BRANCH; pushing them."
+    git_push || exit 1
+  fi
 fi
 
-log_message "Translate API usage this run: $api_translations_made paid translation(s) (cap $MAX_API_TRANSLATIONS), $api_translations_capped held back by the cap, plus the connectivity test."
 log_message "Script execution finished."
 exit 0

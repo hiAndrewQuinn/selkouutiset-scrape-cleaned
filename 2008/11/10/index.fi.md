@@ -1,0 +1,29 @@
+# Maanantai 10.11.2008 (radio)
+
+Tässä maanantain Selkouutiset, studiossa on Salme Unkuri.
+
+* * *
+
+Suomalaisyritykset ovat kertoneet työntekijöiden lomautuksista. Työntekijöillä ei ole työtä lomautuksen aikana. Lomautukset kestävät viikkoja tai jopa kuukausia. Yritykset joutuvat lomauttamaan työntekijöitä, koska yritysten tuotteille ei ole tarpeeksi ostajia talouskriisin takia.
+
+Teräsyhtiö Outokumpu aikoo lomauttaa noin 1500 työntekijää. Työntekijät ovat töissä Tornion tehtaalla Pohjois-Suomessa.
+
+Metso Paper lomauttaa noin 1100 työntekijää. Metso Paper valmistaa esimerkiksi paperikoneita. Yhtiöllä on tehtaat Järvenpäässä ja Hollolassa Etelä-Suomessa sekä Jyväskylässä Keski-Suomessa.
+
+* * *
+
+Kiinassa valtio tukee maan taloutta. Kiinan hallitus on päättänyt noin 450 miljardin euron tuesta. Tuen avulla yritetään vähentää talouskriisin vaikutuksia Kiinassa. Rahat käytetään esimerkiksi teiden ja rautateiden rakentamiseen. Lisäksi rahaa käytetään sosiaalihuollon parantamiseen. Rahat on tarkoitus käyttää vuoden 2010 loppuun mennessä.
+
+Euroopan ja Yhdysvaltojen talouskriisi vaikuttaa myös Kiinan talouteen. Talouskriisi vaikuttaa Kiinaan, koska Kiina myy paljon tavaraa Eurooppaan ja Yhdysvaltoihin. Kiinan talouskasvu on jo hidastunut, jos talouden kasvua verrataan viime vuoteen.
+
+* * *
+
+Suomalaiset naiset opettavat suomen kieltä maahanmuuttajanaisille. Suomalaiset naisjärjestöt ovat aloittaneet suomen kielen opetuksen yli 20 kaupungissa. Suomalaiset naiset opettavat suomen kieltä maahanmuuttajanaisille, joille ei ole tarjolla suomen kielen koulutusta.
+
+Suomessa on muutama tuhat maahanmuuttajanaista, jotka eivät osaa lukea tai kirjoittaa. Heille tavalliset suomen kielen kurssit ovat liian vaikeita. Osa naisista on tullut Suomeen, ennen kuin suomen kielen kursseja alettiin järjestää. Kaikki maahanmuuttajanaiset eivät edes pääse kursseille. Esimerkiksi naiset, joilla on pieniä lapsia, eivät pääse kursseille.
+
+* * *
+
+Kuuluisa eteläafrikkalainen laulaja Miriam Makeba on kuollut. Makeba kuoli Italiassa sydänkohtaukseen. 76-vuotias Makeba tunnettiin "Afrikan äänenä".
+
+Miriam Makeba tunnettiin myös siitä, että hän arvosteli 1960-luvulla kotimaansa Etelä-Afrikan apartheidpolitiikkaa. Makeba asui monta vuotta Yhdysvalloissa, koska Etelä-Afrikan hallitus otti häneltä pois maan kansalaisuuden.

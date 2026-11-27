@@ -1,0 +1,27 @@
+# Maanantai 8.12.2008 (radio)
+
+Tässä maanantain selkouutiset, jotka toimittaa Brita Jokinen.
+
+* * *
+
+Irlantilainen sianliha otetaan pois Suomen markkinoilta. Saastunutta sianlihaa ei myydä kaupoissa. Suomeen on tuotu Irlannista sianlihaa noin 30 000 kiloa. Irlantilainen sianliha on kuitenkin ollut valmiita tuotteita kuten makkaraa. Sianlihaa on käytetty esimerkiksi pikaruokaketju Subwayssa.
+
+Irlantilaisesta sianlihasta on löydetty dioksiinia, joka on vaarallista terveydelle. Lihaa on viety 25:een maahan, esimerkiksi Britanniaan, Saksaan, Hollantiin ja Ranskaan. Irlantilainen lehti The Irish Times kertoo, että irlantilaiset joutuvat lopettamaan noin 100 000 sikaa.
+
+* * *
+
+Suomen talous ei kasva. Talouden kasvu on pysähtynyt. Suomen vienti laskee, koska suomalaisia tuotteita ei osteta tarpeeksi ulkomailla. Tilastokeskus on kertonut, miten talous kehittyy. Se ennustaa, että Suomen talous joutuu ensi vuonna taantumaan eli kansantuote vähenee ja talous ei kasva.
+
+Irtisanomiset ja lomautukset jatkuvat työpaikoilla. Metsäkoneiden valmistaja Ponsse vähentää noin 200 työpaikkaa. Ponsse työllistää yhteensä noin tuhat ihmistä.
+
+Tamfelt suunnittelee 160 työntekijän vähentämistä. Tamperelainen Tamfelt valmistaa paperikoneiden osia.
+
+Elektroniikan valmistaja Elcoteq aikoo vähentää noin 50 työntekijää. Elcotec suunnittelee lomautusta, osa-aikaisia töitä tai irtisanomisia. Lomautuksen aikana työntekijällä ei ole työtä eikä työantaja maksa hänelle palkkaa. Irtisanominen tarkoittaa, että työt loppuvat kokonaan.
+
+* * *
+
+Työnantajat ja työntekijät vaativat hallitukselta investointeja. Työntekijöiden ja työnantajien järjestöt haluavat, että hallitus tekee jotakin Suomen talouden parantamiseksi. Hallitukselta toivotaan, että se auttaa lisäämään työpaikkoja. Työtä voidaan lisätä esimerkiksi, jos valtio antaa rahaa uusien teiden ja asuntojen rakentamiseen.
+
+* * *
+
+Nuorten työkyvyttömyys lisääntyy. Nuoria aikuisia joutuu eläkkeelle, koska he ovat sairaita ja he eivät jaksa tehdä työtä. Nuorilla aikuisilla on ongelmia mielenterveydessä enemmän kuin ennen. Viime vuonna noin 2000 alle 30-vuotiasta jäi sairauseläkkeelle, koska heillä oli ongelmia mielenterveydessä. Yhä useampi nuori joutuu sairauseläkkeelle masennuksen takia. Varsinkin nuorten naisten masennus on lisääntynyt. Mielenterveysongelmien syynä ovat esimerkiksi perheen ongelmat.

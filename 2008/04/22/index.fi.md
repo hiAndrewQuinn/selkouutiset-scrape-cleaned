@@ -1,0 +1,15 @@
+# Tiistai 22.4.2008 (radio)
+
+Tässä tiistain selkouutiset, studiossa on Brita Jokinen.Kansanedustajat ovat muistelleet niitä suomalaisia, jotka kuolivat Espanjassa liikenneonnettomuudessa. Kansanedustajat viettivät hiljaisen hetken eduskunnassa tiistaina. Puhemies Sauli Niinistö sanoi, että onnettomuus jättää syvät jäljet ihmisten mieliin.
+
+Espanjassa on vielä sairaalahoidossa 12 suomalaista, jotka loukkaantuivat bussionnettomuudessa lauantaina. He pääsevät kotiin Suomeen ehkä tämän viikon lopulla.
+
+Potilaat tuodaan Suomeen ambulanssikoneella tai tavallisella lentokoneella.
+
+Bussionnettomuus tapahtui Espanjan Aurinkorannikolla lauantai-iltana. Bussi oli matkalla Malagan lentokentälle. Onnettomuudessa kuoli yhdeksän ihmistä. Onnettomuuden aiheutti maastoauto, joka ohitti bussin kovalla vauhdilla. Espanjan poliisi sanoo, että maastoauton espanjalainen kuljettaja oli humalassa.Poliisiylijohtaja Markku Salmisen virka-auton käyttö tutkitaan. Häntä epäillään virkavelvollisuuden rikkomisesta. Salminen on käyttänyt virka-autoaan kodin ja työpaikan välisiin matkoihin. Salminen sanoo, että hän sai luvan käyttää virka-autoa kotimatkoilla turvallisuussyistä. Poliisiylijohtaja Markku Salminen jää eläkkeelle kuukauden kuluttuaPääministeri Matti Vanhanen matkustaa Unkariin. Vanhanen tapaa Unkarin pääministerin ja presidentin. He keskustelevat EU-asioista, esimerkiksi ilmastokysymyksistä.
+
+Pääministeri Vanhanen käy Nokian unkarilaisella tehtaalla Komaromissa. Talous on yksi vierailun aiheista. Vanhanen keskustelee Suomen ja Unkarin teknologiayhteistyöstä sekä talousuudistuksista.Työttömyys on vähentynyt Suomessa. Työttömiä on nyt yli 20 000 vähemmän kuin viime vuonna maaliskuussa. Vähiten työttömiä on Etelä-Suomessa. Eniten työttömiä ihmisiä on Itä-Suomessa. Työttömiä työnhakijoita on noin 200 000.Kuuluisa laulaja Paul Anka esiintyy Suomessa. Anka laulaa tiistaina Helsinki Areenalla ja keskiviikkona Turkuhallissa. Hän esiintyi viime kesänä Porin Jazz-tapahtumassa.
+
+Paul Anka on vieraillut Suomessa kolme kertaa aikaisemmin.Uusien vauvojen suosituimmat etunimet ovat Ella ja Veeti. Viime vuonna syntyi yli 450 tyttöä, joiden nimeksi annettiin Ella. Veeti-nimen sai yli 480 poikaa.
+
+Suosituimpia tyttöjen nimiä ovat Maria, Sofia, Olivia ja Aino. Poikien suosituimpia nimiä ovat Juhani, Johannes, Matias ja Mikael.

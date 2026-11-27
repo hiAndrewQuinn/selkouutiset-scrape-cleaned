@@ -1,0 +1,31 @@
+# Tiistai 1.7.2008 (radio)
+
+Tässä tiistain Selkouutiset, studiossa on Eliisa Toivola.
+
+* * *
+
+Ranska on Euroopan unionin uusi puheenjohtaja. Euroopan unionilla on aina puheenjohtajamaa, joka vaihtuu puolen vuoden välein.
+
+Ranskan pääministeri Francois Fillon puhui tiistaina Ranskan puheenjohtajakaudesta. Pääministerin mielestä tuleva puheenjohtajakausi on vaikea. Ongelmia ovat esimerkiksi polttoaineen hinnan nouseminen Euroopassa ja Lissabonin sopimus.
+
+Ranskan täytyy selvittää, mikä on Lissabonin sopimuksen tulevaisuus. Uusi Euroopan unionin perussopimus eli Lissabonin sopimus yrittää selventää, miten EU tekee päätöksiä. Irlantilaiset äänestivät Lissabonin sopimusta vastaan kesäkuun puolivälissä. Kaikkien EU-maiden täytyy hyväksyä Lissabonin sopimus, että se tulee voimaan.
+
+Puolan presidentti kertoi maanantaina, että hän ei allekirjoita Lissabonin sopimusta. Presidentin mielestä sopimusta ei kannata allekirjoittaa, koska Irlanti hylkäsi sen.
+
+* * *
+
+Rypäleaseet halutaan kieltää Euroopassa. Euroopan turvallisuus- ja yhteistyöjärjestön kokous on keskustellut rypäleaseista. Rypäleaseessa on sisällä paljon pieniä pommeja. Sodassa maahan voi jäädä paljon rypälepommeja, jotka eivät ole vielä räjähtäneet. Nämä pommit ovat vaara ihmisille sen jälkeen, kun sota on loppunut.
+
+Euroopan turvallisuus- ja yhteistyöjärjestö haluaa, että sen jäsenmaat kieltävät rypäleaseet. Suomi ei ole halunnut kieltää kokonaan rypäleaseita. Suomi on sanoo, että se voi tarvita rypäleaseita, jos se joutuu sotaan.
+
+* * *
+
+Porvoon tuomiokirkossa voi taas käydä. Porvoon tuomiokirkko on ollut kiinni, koska kirkko paloi pahasti vuonna 2006, kun joku sytytti sen tuleen. Kirkko on nyt korjattu samanlaiseksi kuin ennen tulipaloa.
+
+Porvoon tuomiokirkon remontti jatkuu vielä syksyllä. Kirkko avattiin heinäkuun ajaksi, koska monet ihmiset halusivat käydä siellä.
+
+* * *
+
+Radio Peili kuuluu nyt melkein koko Suomessa. YLE:n radiokanava Radio Peili lähettää uutisia ja puheohjelmia ajankohtaisista aiheista. Radio Peili ei soita musiikkia.
+
+Radiopeilin kuuluvuusalue kasvoi tiistaina paljon. Nyt Radio Peilin ohjelmia voi kuunnella aina Ivalossa ja Utsjoella asti. Uudet Radio Peilin kanavatiedot löytyvät YLE:n internet sivuilta.

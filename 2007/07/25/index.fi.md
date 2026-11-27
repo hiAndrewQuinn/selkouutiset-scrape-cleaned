@@ -1,0 +1,47 @@
+# Keskiviikko 25.7.2007 (radio)
+
+Keskiviikon Selkouutisten aiheita ovat:
+
+Afganistanissa talibanit ovat tappaneet yhden panttivankinsa. Talibanit tappoivat panttivangin, koska viranomaiset eivät ole päästäneet järjestön jäseniä pois vankilasta.
+
+Kuumuus on tehnyt paljon tuhoa Euroopassa. Satoja ihmisiä on kuollut kuuman sään takia.
+
+Suomessa keskustellaan taas sairaanhoitajien palkoista. Keskustan puoluesihteeri on tehnyt suunnitelman sairaanhoitajien palkkojen parantamiseksi.
+
+Turussa on alkanut kaupunkifestivaali, jonka nimi on Down By The Laituri.
+
+Selkouutiset toimittaa Mikko Jylhä.
+
+* * *
+
+Afganistanissa talibanit kertovat, että he ovat tappaneet yhden panttivankinsa. Talibanit tappoivat panttivangin, koska viranomaiset eivät ole päästäneet järjestön jäseniä pois vankilasta. Samalla talibanit päästivät kahdeksan panttivankia vapaaksi.
+
+Talibaneilla oli yhteensä 23 panttivankia. Panttivangit ovat Etelä-Koreasta. Järjestö otti eteläkorealaiset vangiksi viime viikolla. He ovat vankina Etelä-Afganistanissa.
+
+Taliban on islamistinen järjestö, joka hallitsi Afganistanissa viime vuosikymmenellä. Nyt järjestö haluaa jäsenensä pois Afganistanin vankiloista.
+
+Energia-asiantuntija Harri Lammi on liikkunut Afganistanissa 20 vuotta. Hän sanoo, että ulkomaisten työntekijöiden täytyy tietää missä liikkuminen on turvallista.
+
+* * *
+
+Kuumuus on tehnyt paljon tuhoa Euroopassa. Kuuma sää on tehnyt tuhoa esimerkiksi Unkarissa, Kreikassa, Bulgariassa, Romaniassa ja Italiassa. Satoja ihmisiä on kuollut kuuman sään takia.
+
+Etelä-Euroopassa on ollut lämpöä yli 40 astetta. Esimerkiksi Unkarissa on ollut lämpöä 44 astetta. Unkarin viranomaiset sanovat, että helle tappoi viime viikolla viisi sataa (500) ihmistä.
+
+Lisäksi Etelä-Euroopassa on monia metsäpaloja. Metsäpaloja on esimerkiksi Italiassa, Kreikassa, Bulgariassa ja Makedoniassa. Italiassa tuhannet ihmiset ovat lähteneet pois kodeistaan metsäpalojen takia.
+
+* * *
+
+Suomessa keskustellaan taas sairaanhoitajien palkoista. Sairaanhoitajien palkat ovat paljon uutisissa. Esimerkiksi Keskustan puoluesihteeri on tehnyt suunnitelman sairaanhoitajien palkkojen parantamiseksi.
+
+Jarmo Korhonen ehdottaa, että Suomi maksaa sairaanhoitajille viisi sataa (500) euroa lisää palkkaa. Korhonen haluaa toteuttaa palkankorotuksen seuraavan kymmenen vuoden aikana. Sairaanhoitajien ammattiliitto ei halua odottaa kymmentä vuotta.
+
+Keskustan puoluesihteeri kertoi suunnitelmastaan Helsingin Sanomissa. Keskusta on Suomen suurin puolue ja se on hallituksessa. Viimeksi vaaleissa monet poliitikot lupasivat parempia palkkoja sairaanhoitajille.
+
+* * *
+
+Turussa on alkanut kaupunkifestivaali, jonka nimi on Down By The Laituri. Tapahtuma alkoi tiistaina ja se kestää koko viikon. Festivaali päättyy sunnuntaina.
+
+Festivaalin aikana Turussa on monia konsertteja. Down By The Laiturissa on mukana yhteensä 120 orkesteria tai artistia. Esimerkiksi Paula Koivuniemi, The 69 Eyes ja Anna Eriksson soittavat Turussa tällä viikolla. Lisäksi Aurajoen rannassa voi katsoa taide-esityksiä.
+
+Tämä vuosi on festivaalin juhlavuosi. Down By The Laituri täyttää 20 vuotta. Viime vuonna tapahtumassa kävi noin sata tuhatta (100 000) ihmistä.

@@ -1,0 +1,33 @@
+# Torstai 27.3.2008 (radio)
+
+Tässä torstain Selkouutiset, studiossa Salme Unkuri.
+
+* * *
+
+Espoossa on ollut paha tulipalo. Viisi ihmistä kuoli tulipalossa, joka syttyi torstaiyönä omakotitalossa. Lisäksi viisi ihmistä loukkaantui palossa, yksi heistä vakavasti.
+
+Tulipalo syttyi omakotitalossa lähellä Espoon keskusta. Talossa asui ihmisiä, joilla on ongelmia alkoholin kanssa. Tulipalon syytä ei tiedetä vielä, mutta talon asukkaat olivat ehkä juoneet paljon alkoholia.
+
+Espoon kaupunki omistaa talon, joka tuhoutui palossa pahasti. Talo oli huonossa kunnossa jo ennen tulipaloa.
+
+* * *
+
+Ulkoministeri Ilkka Kanervan tekstiviesteistä puhutaan taas. Hymy-lehti julkaisee osan tekstiviesteistä ensi viikon lehdessä. Ulkoministeri Ilkka Kanerva lähetti noin 200 tekstiviestiä eroottiselle tanssijalle.
+
+Hymy-lehti aikoo julkaista osan tekstiviesteistä, koska se haluaa lopettaa huhupuheet viesteistä. Lehden mielestä tekstiviestien julkaiseminen on hyvä asia myös ulkoministeri Ilkka Kanervan kannalta. Kanerva on kertonut, että viestit koskivat työasioita.
+
+Ulkoministeri Ilkka Kanerva on pyytänyt anteeksi käytöstään. Noin 70 prosenttia suomalaisista on sitä mieltä, että Kanerva voi jatkaa ulkoministerinä. Heidän mielestään riittää, että Kanerva on pyytänyt anteeksi.
+
+* * *
+
+Pörssiyhtiöiden johtajien palkat nousivat paljon viime vuonna. Suurten pörssiyhtiöiden johtajien palkat nousivat keskimäärin yli yhdeksän prosenttia. Samaan aikaan työntekijöiden palkat nousivat keskimäärin 3,3 prosenttia. YLE Uutiset selvitti johtajien palkkoja.
+
+Monille johtajille maksetaan tulospalkkioita. Tulospalkkioita maksetaan sen perusteella, kuinka hyvä yhtiön tulos on. Esimerkiksi Nokian toimitusjohtaja Olli-Pekka Kallasvuo sai viime vuonna niin suuren tulospalkkion, että hänen palkkansa oli 3,4 miljoonaa euroa.
+
+* * *
+
+Suomen yliopistoissa on vain vähän naisprofessoreita. Yliopistojen professoreista alle 25 prosenttia on naisia. Yliopistoissa on opiskellut jo kauan enemmän naisia kuin miehiä, mutta naisprofessorien määrä lisääntyy hitaasti. Nyt Suomessa on yli 500 naisprofessoria.
+
+Asiantuntijat ovat huolestuneita naisprofessorien pienestä määrästä. Tutkija Liisa Husu Helsingin yliopistosta pelkää, että monet naiset lähtevät töihin ulkomaille. Suomen yliopistoissa naisten on vaikea päästä eteenpäin urallaan.
+
+Suomalaiset naiset ovat saaneet opiskella vapaasti yliopistossa yli sadan vuoden ajan.

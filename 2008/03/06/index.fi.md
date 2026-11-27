@@ -1,0 +1,33 @@
+# Torstai 6.3.2008 (radio)
+
+Tässä torstain Selkouutiset, studiossa Salme Unkuri.
+
+* * *
+
+Viro haluaa ehkä palkata poliiseja Suomesta. Virossa on pulaa poliiseista ja Suomessa on paljon työttömiä poliiseja. Suomessa on nyt 300 työtöntä poliisia ja keväällä jopa 500 poliisia on ilman työtä.
+
+Jaanus Rahumägi Viron parlamentista kertoo, että Viro alkaa etsiä poliiseja muista EU-maista. Poliiseja halutaan palkata Suomesta, koska viron ja suomen kieli ovat lähellä toisiaan. Lisäksi maiden historiasta ja kulttuurista löytyy paljon yhteistä. Suomen ja Viron poliisit tekivät viime kesänä yhteistyötä ja kokemukset ovat hyvät.
+
+Poliiseista on pulaa esimerkiksi Itä- ja Pohjois-Virossa. Alueella tarvitaan 80 poliisia.
+
+* * *
+
+Suomen ainoa venäjänkielinen viikkolehti lopetetaan. Spektr Nedeli -lehti lopetetaan, koska sillä ei ole tarpeeksi tilaajia. Lehti ilmestyy viimeisen kerran tämän viikon perjantaina.
+
+Spektr Nedeli on kertonut Suomen ja maailman tapahtumista. Lisäksi siinä on kerrottu Suomen ja Venäjän tv-ohjelmista ja eri kaupunkien kulttuuritapahtumista. Lehteä on painettu alle 2000 kappaletta. Ennen eduskuntavaaleja lehteä painettiin 28 000 kappaletta ja se lähetettiin kaikille Suomen venäjänkielisille.
+
+Spektr-lehti, joka ilmestyy kerran kuukaudessa, jatkaa toimintaa. Spektr-lehteä painetaan 20 000 kappaletta.
+
+* * *
+
+Elämä Gazassa on vaikeampaa kuin pitkään aikaan. Ihmisoikeusjärjestöt kertovat, että elämä Gazassa on nyt yhtä vaikeaa kuin 40 vuotta sitten.
+
+Kansainvälinen raportti kertoo, että melkein kaikki gazalaiset tarvitsevat ruoka-apua. Terveys- ja koulutuspalvelut ovat nyt paljon huonommat kuin ennen. Myös köyhyys ja työttömyys ovat lisääntyneet Israelin sotatoimien ja saarron takia. Saarron takia Gazassa on pulaa esimerkiksi ruuasta ja bensasta, koska Israel ei päästä tavarakuljetuksia Gazaan.
+
+* * *
+
+Suomessa on ollut naispappeja 20 vuotta. Vuonna 1988 Suomessa vihittiin 92 naista luterilaisen kirkon papiksi. Helsingin tuomiokirkossa juhlitaan viikonloppuna sitä,
+
+että Suomessa on ollut naispappeja 20 vuotta. Kaikki suomalaiset eivät pidä siitä, että Suomessa on naispappeja. Asiasta on riidelty Suomessa paljon.
+
+Nyt noin 30 prosenttia luterilaisen kirkon papeista on Suomessa naisia. Roomalaiskatolisessa tai ortodoksisessa kirkossa ei ole naispappeja.

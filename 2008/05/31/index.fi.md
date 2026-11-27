@@ -1,0 +1,19 @@
+# Torstai 29.5.2008 (radio)
+
+Tässä torstain Selkouutiset, studiossa on Eliisa Toivola.
+
+* * *
+
+Terveydenhuoltoa uudistetaan Suomessa. Terveyskeskuksissa saa tulevaisuudessa enemmän erikoislääkärien palvelua. Tulevaisuudessa terveyskeskukset lähettävät vähemmän ihmisiä sairaaloihin jatkohoitoon. Tavoitteena on, että potilaiden ei tarvitse mennä paikasta toiseen. Uudistusta perustellaan sillä, että hoito paranee. Samalla uudistus säästää myös rahaa.
+
+Uudistuksen jälkeen vaikeimpia hoitoja tehdään vain muutamassa paikassa. Esimerkiksi uuden sydämen voi saada tulevaisuudessa vain muutamassa yliopistosairaalassa. Monen potilaan matka hoitoon pitenee paljon, mutta esimerkiksi vaikeat leikkaukset voidaan hoitaa paremmin.
+
+* * *
+
+Ruotsissa on alkanut kansainvälinen Irak-kokous. Kokouksen aiheita ovat esimerkiksi Irakin turvallisuus ja tulevaisuus. Irakissa on ollut pitkään rauhatonta. Kokoukseen osallistuu Tukholmassa noin 90 maata. Myös Irakin pääministeri Nuri al-Maliki on kokouksessa mukana. Irakin pääministeri on pyytänyt, että Irakin ei tarvitse maksaa naapurimailleen kaikkia velkoja takaisin. Irakin pääministeri pyysi myös, että Irakin ei tarvitse maksaa enää korvauksia Saddam Husseinin sodista. Esimerkiksi Yhdysvallat kannatti Irakin ehdotusta. Irakin tilanne paranee nopeammin, jos se saa velat anteeksi.
+
+* * *
+
+Neuvottelut rypäleaseista ovat päättyneet. Yli sata maata on hyväksynyt ehdotuksen, joka kieltää rypäleaseet. Maat haluavat kieltää rypäleaseet, koska ne voivat tappaa paljon siviilejä. Rypäleaseessa on paljon pienempiä pommeja. Sodassa maahan voi jäädä paljon rypälepommeja, jotka eivät ole vielä räjähtäneet. Nämä pommit ovat vaara ihmisille sen jälkeen, kun sota on loppunut.
+
+Suomi ei halua kieltää kokonaan rypälepommeja. Suomi sanoo, että se voi tarvita rypälepommeja, jos se joutuu sotaan. Suomi on hyväksynyt ehdotuksen, joka kieltää rypälepommit. Suomen ulkoministeri Alexander Stubb sanoo, että vielä ei ole varmaa, hyväksyykö Suomi lopullisen sopimuksen. Sopimus ei kiellä uudenlaisia rypäleaseita. Silloin Suomi voi ehkä käyttää uudenlaisia rypälepommeja maanpuolustuksessa.

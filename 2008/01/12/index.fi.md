@@ -1,0 +1,31 @@
+# Torstai 10.1.2008 (radio)
+
+Torstain uutiset ovat kertoneet Kemijärven sellutehtaasta. Uutiset kertovat tehtaasta, koska Stora Enso haluaa lopettaa sen toiminnan. Pääministeri Matti Vanhanen sanoo, että valtio ei voi muuttaa yhtiön päätöstä.
+
+Vanhasen mielestä valtio ei voi päättää Stora Enson asioista, vaikka se on yhtiön suurin omistaja. Kemijärven tehdas tekee sellua, josta tulee esimerkiksi paperia.
+
+Pääministeri sanoo, että valtio voi auttaa Kemijärveä vain elinkeinopolitiikalla. Valtio voi ehkä auttaa ihmisiä saamaan uutta työtä, jos tehdas menee kiinni. Sellutehdas on tärkeä asia Lapissa, koska tehtaassa on töissä noin 240 ihmistä.
+
+* * *
+
+Sosiaalidemokraatit arvostelevat hallituksen omistajapolitiikkaa. SDP:n mielestä hallitus ei toimi tarpeeksi aktiivisesti, kun se on mukana suurissa yhtiöissä. Suomen valtio omistaa suuren osan esimerkiksi Stora Ensosta, Fortumista, Finnairista ja Outokummusta.
+
+SDP on sitä mieltä, että ministereillä ei ole selvää linjaa Stora Enson kanssa. Puolueen mielestä Stora Enso ei saa lopettaa tehtaita, jos ne tekevät voittoa. SDP on opposition suurin puolue.
+
+Myös Vasemmistoliitto arvostelee hallitusta, koska hallitus antaa Stora Enson lopettaa Kemijärven sellutehtaan.
+
+* * *
+
+Venäjä kertoo, että se hyväksyy vaalitarkkailijat presidentinvaaleihin. Venäjä kertoi torstaina, että Etyjin vaalitarkkailijat saavat olla mukana presidentinvaaleissa. Vaalitarkkailijat katsovat, että vaalit ovat oikeudenmukaiset.
+
+Viime vuonna Venäjällä oli parlamenttivaalit. Etyjin vaalitarkkailijat eivät olleet mukana Venäjän parlamenttivaaleissa. Venäjän presidentinvaalit ovat maaliskuussa.
+
+Suomi on Euroopan turvallisuus- ja yhteistyöjärjestön puheenjohtaja tänä vuonna. Järjestössä on yhteensä 56 jäsenmaata. Etyjin vaalitarkkailijat olivat mukana esimerkiksi Georgian presidentinvaaleissa viime viikonloppuna.
+
+* * *
+
+Tämän talven ensimmäiset influenssatapaukset ovat löytyneet. Nyt noin 50 suomalaista on sairastunut influenssaan. Influenssa aiheuttaa esimerkiksi voimakasta kuumetta, päänsärkyä ja kurkkukipua.
+
+Yleensä influenssaa on paljon tammikuun ja helmikuun vaihteessa. Joskus jopa 30 prosenttia suomalaisista sairastuu influenssaan saman talven aikana. Influenssavirukset leviävät esimerkiksi, kun ihmiset yskivät ja aivastelevat.
+
+Influenssa on paljon vakavampi sairaus, kuin tavallinen flunssa. Yleensä influenssa pakottaa ihmisen sänkyyn, eikä hän pääse kouluun tai töihin.

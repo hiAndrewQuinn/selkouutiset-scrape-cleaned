@@ -1,0 +1,45 @@
+# Keskiviikko 14.11.2007 (radio)
+
+Keskiviikon Selkouutisten aiheita ovat:
+
+Monet sairaanhoitajat ovat osoittaneet mieltä Helsingissä. Hoitajat kävelivät keskiviikkona eduskuntatalolle.
+
+Pääministeri Matti Vanhanen sanoo, että kouluun ei kannata palkata vartijoita. Monet ihmiset haluavat, että kouluissa kiristetään kuria.
+
+Alkon työntekijät uhkaavat, että he menevät lakkoon. Alkon työntekijät neuvottelevat työnantajan kanssa palkoista ja työajoista.
+
+Eduskunta miettii alkoholiveroa. Hallitus ehdottaa, että alkoholivero nousee.
+
+Ranskassa on liikennekaaos. Monet julkisen liikenteen työntekijät ovat lakossa.
+
+Minä olen Jari Nyman, hyvää päivää!
+
+* * *
+
+Monet sairaanhoitajat ovat osoittaneet mieltä Helsingissä. Hoitajat haluavat, että palkoista neuvotellaan nopeasti. Hoitajat kävelivät keskiviikkona eduskuntatalolle.
+
+Sairaanhoitaja Maiju Salovaara-Hiltunen
+
+Sairaanhoitajat sanovat, että työnantaja ei halua neuvotella. Sairaanhoitajat kysyivät hallitukselta ja eduskunnalta, onko Tehy-laki hallituksen ja eduskunnan ainoa tapa ratkaista asia. Tehy-laki pakottaa jotkut sairaanhoitajat töihin myös lakon aikana. Lain avulla halutaan turvata potilaiden kiireellinen hoito.
+
+* * *
+
+Pääministeri Matti Vanhanen sanoo, että kouluun ei kannata palkata vartijoita. Jokelan koulussa oli viime viikolla ampumistapaus. Monet ihmiset haluavat nyt, että kouluissa kiristetään kuria. Pääministeri sanoo, että koulujen ongelmia ei ratkaista siten, että kuria kiristetään esimerkiksi niin, että kouluihin palkataan vartijoita. Pääministeri puhui keskiviikkona Kokkolassa Mäntykankaan koulussa. Mäntykankaan koulu otettiin käyttöön keskiviikkona. Vanhanen sanoi myös, että tietokoneen käyttämisestä täytyy puhua sekä kouluissa että kotona. Pääministeri sanoi, että jos internetissä on tekstiä tai kuvaa, joka on uhka turvallisuudelle, siitä täytyy ilmoittaa poliisille. Pääministeri sanoi myös, että vanhemmilla on vastuu lasten kasvatuksesta, mutta myös yhteistyötä koulun kanssa tarvitaan, että ongelmat huomataan.
+
+* * *
+
+Alkon työntekijät uhkaavat, että he menevät lakkoon. Alkon työntekijät neuvottelevat työnantajan kanssa palkoista. Myös työajasta neuvotellaan. Alkon myyjät eivät halua tehdä lyhyitä työpäiviä, koska niistä saa vain vähän palkkaa. Työntekijät uhkaavat mennä lakkoon torstaina. Alkon työntekijät aloittavat lakon torstaina, jos työnantaja ei tee sopimusta.
+
+Alko yrittää pitää osan myymälöistä auki, vaikka lakko alkaa torstaina. Esimiehet eli pomot eivät mene lakkoon. Pomot voivat myydä alkoholia, vaikka myyjät ovat lakossa. Jos lakko alkaa, Alko kertoo internetsivuilla, mitkä myymälät ovat auki lakon aikana.
+
+* * *
+
+Eduskunta miettii alkoholiveroa. Hallitus ehdottaa, että alkoholivero nousee. Eduskunta voi nyt päättää, nouseeko alkoholivero ensi vuonna. Hallitus haluaa, että alkoholivero nousee tammikuussa. Hallitus haluaa, että esimerkiksi oluen vero nousee 10 prosenttia ja vahvan viinan vero nousee 15 prosenttia. Oppositio halusi, että alkoholiveroa nostetaan enemmän kuin hallitus on ehdottanut.
+
+* * *
+
+Ranskassa on liikennekaaos. Monet julkisen liikenteen työntekijät ovat lakossa. Junat eivät kulje kaupunkien välillä ja suuri osa Pariisin busseista ja metrosta ei kulje. Monet ajavat työmatkat omalla autolla. Ruuhkat ovat jopa 400 kilometriä pitkiä.
+
+Ranskalainen nainen
+
+Lakossa olevat työntekijät vastustavat eläkeuudistuksia. Ranskan presidentti Nicholas Sarkozy haluaa uudistaa eläkkeitä. Presidentti haluaa, että ihmiset ovat työelämässä kauemmin kuin nyt.

@@ -1,0 +1,35 @@
+# Tiistai 26.8.2008 (radio)
+
+Tässä tiistain Selkouutiset, studiossa on Maritta Vehviläinen.
+
+* * *
+
+Venäjä on hyväksynyt Etelä-Ossetian ja Abhasian itsenäisyyden. Etelä-Ossetia ja Abhasia ovat halunneet erota Georgiasta. Venäjän presidentti Dmitri Medvedev tunnusti näiden alueiden itsenäisyyden tiistaina.
+
+Etelä-Ossetiassa ihmiset ovat olleet iloisia Venäjän päätöksestä. Georgia ei hyväksy sitä, että Venäjä on tunnustanut Etelä-Ossetian ja Abhasian itsenäisyyden.
+
+Suomen pääministeri Matti Vanhanen ja ulkoministeri Alexander Stubb eivät ole tyytyväisiä Venäjän päätökseen. Myös Ranska, Britannia, Saksa ja Ruotsi ovat pahoillaan Venäjän ratkaisusta.
+
+Yhdysvaltain ulkoministeri Condoleezza Ricen mielestä Venäjän päätös on huono. Rice on sitä mieltä, että Venäjän presidentti Dmitri Medvedev ei kunnioita tulitaukosopimusta.
+
+* * *
+
+Työttömien määrä on vähentynyt Suomessa. Työttömiä oli heinäkuussa 144 000. Se on 17 000 vähemmän kuin vuosi sitten.
+
+Työttömyys on vuoden aikana laskenut kaikissa ammateissa. Myös nuorten työttömyys on vähentynyt. Noin 5 prosenttia työikäisistä suomalaisista on ilman työtä.
+
+* * *
+
+Ydinvoimalan rakennustyöt voivat ehkä pysähtyä syyskuussa Olkiluodossa. Rakennusliitto on varoittanut, että työntekijät aloittavat ehkä lakon 3. ydinreaktorin työmaalla. Rakennusliitto hoitaa Suomessa rakennustyöntekijöiden asioita.
+
+Ydinvoimalan työmaalla on yritys, jossa on paljon puolalaisia työntekijöitä. Rakennusliitto on sitä mieltä, että puolalaisten palkka-asiat on hoidettu huonosti.
+
+Rakennusliitto on vaatinut, että palkka-asiat selvitetään.
+
+Jos asioista ei sovita, Rakennusliiton työntekijät aloittavat lakon 10. päivä syyskuuta. Jos lakko alkaa, se pysäyttää kaikki ydinvoimalan 3. reaktorin rakennustyöt.
+
+* * *
+
+Nuorten väkivalta on lisääntynyt. Nuoret joutuvat useammin tappeluun kuin ennen. Myös koulukiusaaminen on lisääntynyt. Pojista 25 prosenttia ja tytöistä 10 prosenttia on joutunut tappeluun tai väkivallan kohteeksi. Näin kertoo uusi Kouluterveyskysely. Siihen vastasi yli 100 000 koululaista ja opiskelijaa.
+
+Nuoret kertovat kyselyssä, että kiusaamisen uhrit eivät saa aina apua koulun työntekijöiltä. Noin 75 prosenttia kiusaamistapauksista ovat sellaisia, joita koulun työntekijät eivät ole nähneet.

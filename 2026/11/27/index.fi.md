@@ -1,63 +1,39 @@
-# Selkouutiset | torstai 26.11.2026
+# Selkouutiset | perjantai 27.11.2026
 
-Sähkökatkot maaseudulla. Ajokokeet eli inssiajot. Turun joulukuusi. Sää.
+Asekauppa. Korkeakoulut. Finlandia-palkinnot. Sää.
 
-## Sähkökatkojen korjaaminen
+## Asekauppa
 
-Aluksi sähkökatkoista maaseudulla.
+Ensin aiheena on armeija.
 
-Itäsuomalaiset sähköyhtiöt ehdottavat pidennystä sähkökatkojen korjaamiseen.
+Suomi ostaa panssarivaunuja Ruotsista. Armeija hankkii Ruotsista 160 panssarivaunua. Suomi maksaa asekaupasta 2,8 miljardia euroa.
 
-Yhtiöiden mielestä maaseudun sähkökatkot saavat kestää jopa 3 vuorokautta. Näin sanovat esimerkiksi PKS Sähkönsiirto ja Suur-Savon Sähkö.
+Ajoneuvot valmistetaan Ruotsissa ja Suomessa. Puolustusministeri **Antti Häkkänen** sanoo, että vaunutilaus tuo Suomeen uusia työpaikkoja.
 
-Nyt laki vaatii, että sähköyhtiöt korjaavat katkon 36 tunnissa.
+Suomi ostaa panssarivaunuja Ruotsista. Kaupassa ovat mukana myös Norja, Liettua ja Hollanti.
 
-Pitkä sähkökatko voi olla vaarallinen esimerkiksi maitotiloilla. Eläinten vointi voi kärsiä, jos sähköä ei tule.
+## Korkeakoulut Pisa-tulokisista
 
-Varavoima ei aina toimi varmasti.
+Nyt uutinen korkeakouluista.
 
-Itäsuomalaiset sähköyhtiöt ehdottavat pidennystä sähkökatkojen korjaamiseen maaseudulla.
+Suomalaisten nuorten huonot oppimistulokset näkyvät korkeakouluissa.
 
-Suur-Savon Sähkö sanoo, että maasto on usein vaikea, talot kaukana ja osa niistä saarissa.
+Korkeakouluissa pitää opettaa ihmisille asioita, jotka nuoret ennen oppivat jo lukiossa. Korkeakoulut järjestävät opiskelijoille kursseja, työpajoja ja lisäaikaa. Osa korkeakouluista on palkannut erityisopettajia.
 
-## Ajokokeet eli inssiajot
+Nuorten huonot oppimistulokset näkyvät korkeakouluissa. Pisa-tutkimusten tulokset ovat laskeneet Suomessa vuodesta 2006 lähtien. Suomalaisten nuorten lukutaito ja matematiikan osaaminen ovat heikompia kuin aiemmin.
 
-Nyt ajokokeesta.
+## Finlandia-palkinnot
 
-Ajokokeesta eli inssiajosta voi päästä läpi eri tavalla eri puolilla Suomea.
+Seuraavaksi kirjauutinen.
 
-Useimmin kokeesta pääsee läpi ensimmäisellä kerralla pohjoisessa. Eniten ajokokeita hylätään pääkaupunkiseudulla.
+Kaunokirjallisuuden Finlandia-palkinnon saa tänä vuonna **Dess Terentjeva**. Voittokirjan nimi on Suuri koira juoksee ja päätön kukko lentää. Kirja kertoo muun muassa siitä, kun Venäjä hyökkäsi Ukrainaan vuonna 2022. Kirjassa on monta eri tyylilajia.
 
-Eroihin voivat vaikuttaa sekä oppilaiden osaaminen että muu liikenne.
+Kaunokirjallisuuden Finlandia-palkinnon saa Dess Terentjeva. Voittajan valitsi oopperalaulaja **Helena Juntunen**.
 
-Vuoden 2018 ajokorttiuudistus vähensi pakollista ajo-opetusta.
-
-Moni oppilas menee hylkäyksen jälkeen ajokokeeseen ilman yhtään lisätuntia. Jokainen tunti maksaa.
-
-Ajokokeesta voi päästä läpi eri tavalla eri puolilla Suomea
-
-Liikennevirasto Traficom kuitenkin valvoo, että ajokokeita arvioidaan yhdenmukaisesti eri puolilla Suomea.
-
-## Turun tuomiokirkon joulukuusi
-
-Lopuksi valtakunnan ykköskuusesta.
-
-Turun tuomiokirkon joulukuusi on tänä vuonna haettu Aurasta Turun läheltä.
-
-Kuusi on 100 vuotta vanha ja 22 metriä korkea. Kuusen yli 700 lamppua sytytetään lauantaina.
-
-Turun tuomiokirkkoa on valaissut kuusi vuodesta 1900.
-
-Kuusen lahjoittaja **Marika Salminen** päätti luopua kuusesta, koska hän pelkäsi, että se kaatuu myrskyssä. Viereinen kuusi kaatui vuonna 2011.
-
-Turun joulukuusi on erityisen tärkeä, koska valtakunnallinen joulurauha julistetaan joka jouluaatto lähellä Tuomiokirkkoa.
+Tietokirjallisuuden Finlandia-palkinnon saavat **Antti Karisto** ja **Jussi Simpura**. Lasten- ja nuortenkirjallisuuden Finlandia-palkinnon voittajat ovat **Kristiina Wallin** ja **Erika Kallasmaa**.
 
 ## Sää
 
 Vielä sääennuste.
 
-Sää on poutainen.
-
-Pilvisyys vaihtelee, mutta paikoin on melko aurinkoistakin.
-
-Päivälämpötila on pakkasella koko maassa.
+Sää on lauantaina poutainen. Taivaalla on paljon pilviä suuressa osassa Suomea. Lämpötila on lähes koko maassa pakkasen puolella.

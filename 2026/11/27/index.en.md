@@ -1,63 +1,39 @@
-# Clear News | Thursday 26.11.2026
+# Clear News | Friday 27.11.2026
 
-Power outages in rural areas. Driving tests or inssia drives. Turku Christmas tree. Weather.
+Arms trade. Universities. Finlandia Prizes. Weather.
 
-## Repairing power outages
+## Gun shop
 
-Initially, power outages in rural areas.
+First, the topic is the army.
 
-Eastern Finnish electricity companies are proposing an extension to repair power outages.
+Finland buys tanks from Sweden. The army will acquire 160 tanks from Sweden. Finland will pay 2.8 billion euros for the arms deal.
 
-Companies believe that power outages in rural areas can last up to 3 days. This is what PKS Sähköni Siirto and Suur-Savon Sähkö say, for example.
+The vehicles will be manufactured in Sweden and Finland. Minister of Defense **Antti Häkkänen** says that the order for the vehicles will bring new jobs to Finland.
 
-Now the law requires that electricity companies repair an outage within 36 hours.
+Finland is buying tanks from Sweden. Norway, Lithuania and the Netherlands are also involved in the deal.
 
-A long power outage can be dangerous, for example on dairy farms. The well-being of animals can suffer if there is no electricity.
+## Universities from Pisa results
 
-Backup power doesn't always work reliably.
+Now news about higher education institutions.
 
-Eastern Finnish electricity companies are proposing an extension to repair power outages in rural areas.
+The poor learning outcomes of Finnish youth are visible in higher education institutions.
 
-Suur-Savon Sähkö says that the terrain is often difficult, the houses are far away and some of them are on islands.
+Universities need to teach people things that young people used to learn in high school. Universities organize courses, workshops, and extra time for students. Some universities have hired special educators.
 
-## Driving tests or driving tests
+The poor learning outcomes of young people are visible in higher education. The results of the Pisa studies have been declining in Finland since 2006. The literacy and mathematics skills of Finnish young people are weaker than before.
 
-Now about the driving test.
+## Finlandia Awards
 
-There are different ways to pass the driving test, or the driving test, in different parts of Finland.
+Next up, book news.
 
-Most people pass the test on the first try in the north. Most driving tests are failed in the Helsinki metropolitan area.
+This year's Finlandia Prize for Fiction goes to **Dess Terentjeva**. The winning book is called The Big Dog Runs and the Headless Cock Flies. The book tells, among other things, about when Russia invaded Ukraine in 2022. The book covers many different genres.
 
-The differences can be influenced by both the students' skills and other traffic.
+The Finlandia Prize for Fiction is awarded to Dess Terentjeva. The winner was chosen by opera singer **Helena Juntunen**.
 
-The 2018 driver's license reform reduced mandatory driving instruction.
-
-Many students take the driving test after failing without any extra lessons. Every lesson costs money.
-
-There are different ways to pass the driving test in different parts of Finland.
-
-However, the Finnish Transport Agency Traficom monitors that driving tests are assessed uniformly across Finland.
-
-## Turku Cathedral Christmas tree
-
-Finally, from the top six in the country.
-
-This year, the Turku Cathedral Christmas tree was sourced from Aura near Turku.
-
-The tree is 100 years old and 22 meters tall. The tree's more than 700 lights will be lit on Saturday.
-
-Turku Cathedral has been illuminated by six since 1900.
-
-The spruce donor **Marika Salminen** decided to give up the spruce because she was afraid it would fall in a storm. The spruce next door fell in 2011.
-
-The Turku Christmas tree is particularly important because a national Christmas truce is declared every Christmas Eve near the Cathedral.
+The Finlandia Prize for Non-Fiction Literature will be awarded to **Antti Karisto** and **Jussi Simpura**. The winners of the Finlandia Prize for Children's and Young Adult Literature will be **Kristiina Wallin** and **Erika Kallasmaa**.
 
 ## Weather
 
 Still a weather forecast.
 
-The weather is cloudy.
-
-Cloudiness varies, but it is quite sunny in places.
-
-Daytime temperatures are below freezing throughout the country.
+The weather will be blustery on Saturday. There are many clouds in the sky in most parts of Finland. The temperature will be below freezing almost throughout the country.

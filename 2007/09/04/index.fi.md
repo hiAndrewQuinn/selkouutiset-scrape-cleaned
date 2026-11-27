@@ -1,0 +1,51 @@
+# Tiistai 4.9.2007 (radio)
+
+Tiistain Selkouutisten aiheita ovat:
+
+Irak-kokouksen osanottajat ovat erittäin tyytyväisiä Suomen kokouksen tuloksiin.
+
+Tanskassa on pidätetty kahdeksan ihmistä, joita epäillään terrori-iskun suunnittelemisesta.
+
+Rasistiset hyökkäykset ovat lisääntyneet Venäjällä.
+
+Selkouutiset toimittaa Salme Unkuri.
+
+* * *
+
+Irak-kokous, joka järjestettiin Suomessa, päättyi maanantai-iltana. Kokouksen osanottajat tekivät niin sanotun Helsinki-sopimuksen. Kokouksessa oli mukana edustajia Irakin eri puolueista. Edustajat lupasivat tehdä työtä, että Irakiin saadaan rauha.
+
+Irakin shiiapuolueen edustaja ministeri Akram Al-Hakim kertoi YLE Uutisille, että hän on erittäin tyytyväinen Suomen kokoukseen. Myös viiden tärkeän sunniryhmän edustajat olivat mukana kokouksessa. Lisäksi kokoukseen osallistui asiantuntijoita Etelä-Afrikasta ja Pohjois-Irlannista. He kertoivat, kuinka heidän omissa maissaan on saatu rauha. He kertoivat irakilaisille, kuinka esimerkiksi aseellisten ryhmien kanssa voi neuvotella. Myös asiantuntijat ovat erittäin tyytyväisiä kokoukseen. Näin kertoo irlantilainen professori Padraig O´Malley:
+
+irlantilainen professori Padraig O´Malley
+
+Irlantilaisprofessori sanoo, että kokous onnistui paremmin kuin luultiin. Rauhanprosessi, joka alkoi Suomessa, jatkuu ehkä myöhemmin.
+
+Irak-kokouksen järjesti CMI-järjestö. Järjestön on perustanut presidentti Martti Ahtisaari. Ahtisaari on tunnettu rauhanneuvottelija.
+
+* * *
+
+Tanskassa on pidätetty kahdeksan ihmistä, joita epäillään terrori-iskun suunnittelemisesta. Tanskan turvallisuuspoliisi löysi pidätettyjen asunnoista räjähdysaineita. Tanskan turvallisuuspoliisin päällikkö kertoo, että pidätetyt ovat äärimuslimeja. Heillä on yhteyksiä al-Qaida -järjestöön.
+
+Tanskan turvallisuuspoliisin päällikkö
+
+Pidätetyt ovat 20 - 30 -vuotiaita. Suurin osa on Tanskan kansalaisia. Pidätykset tehtiin maanantain ja tiistain välisenä yönä Tanskan pääkaupungin Kööpenhaminan lähistöllä.
+
+* * *
+
+Venäjällä rasistiset hyökkäykset ovat lisääntyneet. Melkein 40 ihmistä on kuollut tänä vuonna Venäjällä rasistisissa hyökkäyksissä. Lisäksi yli 300 ihmistä on loukkaantunut. Esimerkiksi Moskovassa 24 ihmistä on kuollut skinheadien iskuissa. Näin kertovat ihmisoikeusjärjestö Sovan tilastot.
+
+Sova kertoo, että esimerkiksi kaukasialaiset ja keskiaasialaiset joutuvat helposti rasististen hyökkäysten uhreiksi. Järjestö varoittaa, että Venäjän skinheadit tekevät nyt hyökkäyksiä myös muita vähemmistöjä vastaan. Esimerkiksi homoseksuaalit ovat joutuneet skinheadien hyökkäysten kohteeksi.
+
+Sova-järjestö arvioi, että Venäjällä on yli 60 000 skinheadia.
+
+* * *
+
+Poliisin täytyy avata hautoja Nokialla Tampereen lähellä. Poliisi haluaa olla varma siitä, että kuolleita ei myrkytetty. Vainajat kuolivat Nokian terveyskeskuksen sairaalassa.
+
+Sairaanhoitaja, jota epäillään kahdesta murhasta, oli töissä Nokian terveyskeskuksessa viime keväänä. Sairaanhoitajaa epäillään myös kahdesta murhan yrityksestä. Murhat ja murhan yritykset eivät tapahtuneet Nokian terveyskeskuksen sairaalassa, vaan muualla Suomessa.
+
+* * *
+
+Suomessa on valmistunut uusi tutkimus matkapuhelimen terveysvaaroista. Tutkimuksessa ei löydetty näyttöä matkapuhelimen terveysvaaroista. Tutkimuksessa selvitettiin, kuinka matkapuhelinten sähkömagneettiset kentät vaikuttavat ihmisiin. Sähkömagneettisten kenttien vaikutuksia tutkittiin koe-eläimiin ja ihmisiin. Tutkimus selvitti myös, onko matkapuhelimesta haittaa tai vaaraa lapsille. Siinä tutkittiin, kuinka puhelimet vaikuttavat lasten ja nuorten hermostoon.
+
+Tutkimukseen osallistui esimerkiksi neljä suomalaista yliopistoa. Myös Nokia, Elisa ja TeliaSonera antoivat rahaa tutkimusta varten.

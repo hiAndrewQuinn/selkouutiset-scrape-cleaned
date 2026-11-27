@@ -1,0 +1,35 @@
+# Maanantai 3.11.2008 (radio)
+
+Tässä maanantain Selkouutiset, studiossa on Salme Unkuri.
+
+* * *
+
+Nokian Jorma Ollila sai viime vuonna Suomessa eniten ansiotuloja. Jorma Ollila on kännykkäyhtiö Nokian hallituksen puheenjohtaja. Ollilan ansiotulot olivat viime vuonna melkein 10 miljoonaa euroa.
+
+Ministerien ansiotulot olivat selvästi pienempiä. Esimerkiksi pääministeri Matti Vanhasen ja valtiovarainministeri Jyrki Kataisen ansiotulot olivat viime vuonna noin 150 000 euroa.
+
+Vuoden 2007 verotulot julkaistiin maanantaina.
+
+* * *
+
+Valtion Rautatiet eli VR joutuu maksamaan matkustajille korvauksia. VR maksaa matkustajille korvauksia, koska junaliikenteessä oli lokakuussa pahoja ongelmia. Tietokonevika pysäytti koko junaliikenteen. Monta kymmentä tuhatta matkustajaa jäi ilman junakyytiä.
+
+Tyypillinen korvausumma yhdelle matkustajalle on 40 - 50 euroa. VR korvaa yleensä bussi- ja taksimatkat, jos junavuoro on peruttu tai se on monta kymmentä minuuttia myöhässä. Toistaiseksi noin 1 500 matkustajaa on hakenut korvauksia lokakuun ongelmien takia. Melkein kaikki hakijat saavat korvauksen.
+
+VR joutuu maksamaan asiakkaille korvauksia yhteensä jopa 100 000 euroa. Tämä on enemmän kuin koskaan ennen.
+
+* * *
+
+Rikollisuus uhkaa kuljetuksia Suomesta Venäjälle. Näin arvioidaan selvityksessä, joka julkaistaan tällä viikolla. Nyt jopa 80 prosenttiin Venäjän viennistä liittyy rikollista toimintaa.
+
+Rikollista toimintaa on esimerkiksi kaksoislaskutus. Kaksoislaskutuksessa tavaran arvoa alennetaan. Silloin tavarasta maksetaan vähemmän tullia.
+
+Suomalaiset kuljetusfirmat eivät suostu kaksoislaskutukseen. Siksi suomalaiset hoitavat kuljetuksista nyt vähemmän kuin ennen. 1990-luvun lopussa suomalaiset hoitivat noin puolet kuljetuksista. Nyt 90 prosenttia kuljetusbisneksestä on venäläisillä.
+
+* * *
+
+Afrikkalaiseen Kongoon vietiin maanantaina hätäapua. Kongoon on vaikea viedä apua, koska maassa on väkivaltaisia taisteluita. Kongo sai viimeksi hätäapua yli viikko sitten.
+
+Yhdistyneiden Kansakuntien eli YK:n ajoneuvot lähtivät keskiviikkoaamuna kuljettamaan apua Goman kaupungista kohti Rutshurun kaupunkia. Pakolaisille vietiin esimerkiksi lääkkeitä.
+
+Avustusjärjestöt yrittävät auttaa noin 250 000 ihmistä, jotka ovat lähteneet sotaa pakoon. Yli 1,6 miljoonaa pakolaista kärsii Kongossa väkivallasta.

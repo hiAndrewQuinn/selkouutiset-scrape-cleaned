@@ -1,0 +1,29 @@
+# Tiistai 25.3.2008 (radio)
+
+Tässä tiistain Selkouutiset, studiossa on Brita Jokinen.
+
+* * *
+
+Sampo Pankilla on ollut tiistaina ongelmia. Pankkien nettisivut ja osa pankkikorteista eivät toimineet tiistaina. Pankkikortit eivät toimineet, koska Sampo Pankki vaihtoi pääsiäisenä tietojärjestelmää.
+
+Tiistaina joillakin Sampo Pankin pankkikorteilla ei voinut maksaa eikä niillä saanut rahaa pankkiautomaatista. Sampo Pankin uudet kotisivut internetissä eivät ole vielä käytössä.
+
+* * *
+
+Ranska ei hyväksy Kiinan poliisin väkivaltaa tiibetiläisiä vastaan. Ranska arvostelee Kiinaa Tiibetin tapahtumien takia. Ranskan ulkoministeri sanoo, että tiibetiläisiä mielenosoittajia on kohdeltu väkivaltaisesti. Ranskan presidentti sanoo, että Kiinan täytyy ottaa vastuu Tiibetin väkivaltasuuksista.
+
+Ranskan ulkoministeri ei boikotoi Pekingin olympialaisia vaan haluaa, että Kiina saa järjestää olympiakisat. Ranskan presidentti sanoo, että hän seuraa vielä tilannetta. Pekingin olympialaiset ovat elokuussa.
+
+Tiibetiläisten mielenosoitukset Kiinan hallintoa vastaan alkoivat kaksi viikkoa sitten. Mielenosoitukset alkoivat Tiibetin pääkaupungissa Lhasassa. Sen jälkeen mielenosoituksia on ollut myös Kiinan tiibetiläisalueilla ja Nepalissa. Tiibetin pakolaishallitus sanoo, että mielenosoituksissa on kuollut 130 ihmistä. Kiina sanoo, että 19 ihmistä on kuollut.
+
+* * *
+
+Helsingissä ryhmä turvapaikanhakijoita jatkaa syömälakkoaan, mutta kaksi on lopettanut lakon. Yksitoista miestä ja kaksi naista kieltäytyi maanantaina syömästä Metsälän vastaanottokeskuksessa. Turvapaikanhakijat protestoivat, koska he eivät pääse säilöönottoyksiköstä pois. He eivät pääse liikkumaan ulos, koska heillä ei ole lupaa olla Suomessa. Turvapaikanhakijat, jotka ovat syömälakossa, puhuvat kaikki arabiankieltä.
+
+* * *
+
+Ourvision laulukilpailuissa kahdeksan laulajaa on päässyt finaaliiin. Ensi perjantaina on Eurooppaviisut eli silloin kilpailevat eurooppalaiset laulajat. Ourvision on Kansainvälisen kulttuurikeskus Caisan laulukilpailu maahanmuuttajalaulajille. Ourvision finaali eli loppukilpailu on 26. päivä huhtikuuta Finlandia-talossa.
+
+* * *
+
+Keski-Euroopassa on ollut talvinen sää. Lunta on satanut paljon eri puolilla Itävaltaa, Saksaa ja Belgiaa. Itävallassa noin sata autoa ajoi ketjukolarin. Autot törmäsivät toisiinsa ja ihmisiä kuoli onnettomuudessa.

@@ -1,0 +1,33 @@
+# Torstai 24.7.2008 (radio)
+
+Tässä torstain Selkouutiset, studiossa on Eliisa Toivola.
+
+* * *
+
+Suomalaisilla metsäyhtiöllä menee huonosti. Torstaina Stora Enso ja UPM kertoivat, että yritysten tulos on huono.
+
+Stora Enson tulos oli viimeisen kolmen kuukauden aikana 30 miljoonaa euroa. Viime vuonna samaan aikaan tulos oli 191 miljoonaa euroa. Stora Enso aikoo vähentää tuotantoaan ja nostaa tuotteiden hintoja.
+
+Myös muilla metsäyhtiöllä on ollut ongelmia. Keskiviikkona Metsäliitto ja M-real kertoivat, että yritysten tulos on huono.
+
+Metsäteollisuudella on ongelmia, koska kustannukset ovat nousseet. Lisäksi yhtiöt eivät ole saaneet niin paljon puuta kuin ne ovat halunneet. Kiista Venäjän puutulleista aiheuttaa myös ongelmia Suomen metsäteollisuudelle.
+
+* * *
+
+Ulkomaankauppaministeri Paavo Väyrynen kannattaa sitä, että puun myymisen verotus alenee. Hallitus päätti keskiviikkona alentaa veroja, joita maksetaan puun myymisestä. Verotusta alennetaan melkein kolmen vuoden ajan. Aluksi verotus alenee 50 prosenttia.
+
+Hallitus alentaa puun myymisen verotusta, koska se haluaa auttaa Suomen metsäteollisuutta. Hallitus toivoo, että suomalaiset myyvät enemmän puuta, kun verotusta alennetaan. Suomen metsäteollisuus tarvitsee enemmän suomalaista puuta, jos Venäjä nostaa puutulleja ensi vuoden vaihteessa.
+
+Ulkomaankauppaministeri Paavo Väyrysen mielestä hallituksen päätös on hyvä. Kesäkuussa Väyrynen ehdotti, että Venäläiset rekka-autot maksavat tullimaksua, jos Venäjä nostaa puutulleja. Väyrynen sanoi torstaina, että hallituksen ehdotus auttaa enemmän suomen metsäteollisuutta.
+
+* * *
+
+Puhelinoperaattori TeliaSoneralla menee hyvin. TeliaSoneran tulos on nyt parempi kuin viime vuonna. Ranskalainen France Telecom yritti ostaa ruotsalais-suomalaisen TeliaSoneran keväällä. TeliaSonera ei hyväksynyt tarjousta.
+
+* * *
+
+Moskova on maailman kallein kaupunki. Tutkimuksessa verrattiin yli 200 tavaran hintaa eri kaupungeissa. Moskovassa eläminen ja asuminen maksoi enemmän kuin missään muualla.
+
+Myös Helsingissä asuminen on kallista. Maailmalla vain 20 kaupunkia on kalliimpia kuin Helsinki. Helsingissä eläminen maksaa enemmän kuin esimerkiksi Tukholmassa.
+
+Tutkimuksen teki yritys, jonka nimi on Mercer. Tutkimus tehdään joka vuosi.

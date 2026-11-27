@@ -1,0 +1,43 @@
+# Tiistai 11.9.2007 (radio)
+
+Tiistain selkouutisten aiheita ovat
+
+Syyskuun yhdennentoista päivän terrori-iskuista on kulunut tasan kuusi vuotta. Yhdysvaltojen terrori-iskuissa kuoli melkein 3000 ihmistä.
+
+Uutisissa kerrotaan taas iranilaisesta kurdinaisesta Naze Aghaista. Nyt Suomen ulkomaalaisvirasto sanoo, että karkotuspäätös oli oikea.
+
+Suomessa on liian vähän sairaanhoitajia. Sairaanhoitajia tarvitaan lisää.
+
+Iäkkäille maahanmuuttajille järjestetään Helsingissä omia kotouttamiskursseja.
+
+Selkouutiset toimittaa Lea Miettinen.
+
+Syyskuun yhdennentoista päivän terrori-iskuista on kulunut tasan kuusi vuotta. Terrori-iskut tehtiin vuonna 2001. Yhdysvaltojen terrori-iskuissa kuoli melkein 3000 ihmistä. Vuosipäivänä Yhdysvalloissa muistetaan niitä, jotka kuolivat terrori-iskuissa. Muistotilaisuudessa luetaan kuolleiden nimet.
+
+Terroristiverkosto Al-Qaida teki New Yorkin terrori-iskun. Terroristit kaappasivat neljä matkustajalentokonetta ja kaksi konetta lensi New Yorkiin. Lentokoneet törmäsivät New Yorkin korkeimpiin taloihin. New Yorkin World Trade Centerin kaksi tornia romahti kokonaan.
+
+Al-Qaida-ryhmä aikoo julkaista vuosipäivänä videon, jossa on viimeinen viesti yhdeltä terroristilta, joka osallistui iskuun.Uutisissa kerrotaan taas iranilaisesta kurdinaisesta Naze Aghaista.
+
+Nyt Suomen ulkomaalaisvirasto sanoo, että karkotuspäätös oli oikea. Ulkomaalaisvirasto ei myöntänyt naiselle turvapaikkaa Suomesta.
+
+Ulkomaalaisviraston ylijohtaja Jorma Vuorio sanoo, että kaikkia turvapaikanhakijoita pitää kohdella samalla tavalla. Media ei saa vaikuttaa viraston päätöksiin.
+
+(Ulkomaalaisviraston ylijohtaja Jorma Vuorio)
+
+Iranilainen kurdinainen Naze Aghai kertoi, että hän pakeni Iranista, koska häntä vainottiin ja kidutettiin siellä. Lisäksi vanhemmat olivat määränneet hänelle aviomiehen.
+
+Kirkko suojeli Naze Aghaita sen jälkeen kun hän sai ensimmäisen kielteisen turvapaikkapäätöksen keväällä. Aghai oli piilossa monta kuukautta.Suomessa on liian vähän sairaanhoitajia. Sairaanhoitajia tarvitaan lisää. Nyt suomalaiset yritykset yrittävät palkata hoitajia ulkomailta. Suomalainen yritys tarjoaa töitä noin sadalle filippiiniläiselle hoitajalle. Heille tarjotaan töitä vuosina 2008 ja 2009.
+
+Suomeen tulee ensi keväänä 20 filippiiniläistä hoitajaa. Heille annetaan lähihoitajan koulutus. Sen jälkeen he saavat olla töissä kaksi vuotta. He saavat samanlaiset työehdot kuin suomalaiset hoitajat.
+
+Suomalaiset yritykset sanovat, että Filippiineillä on liian paljon hoitajia. Maassa ei tarvita niin paljon hoitajia.Iäkkäille maahanmuuttajille järjestetään Helsingissä omia kotouttamiskursseja. Yli 55-vuotiaat maahanmuuttajat tapaavat toisiaan joka viikko palvelukeskus Kinaporissa Helsingissä. Yli 50-vuotiaat maahanmuuttajat eivät saa suomenkielen opetusta, kun he muuttavat Suomeen. Terveydenhuollon konsultti Päivi Sundell sanoo, että kursseilla ja työpajoissa opetellaan suomenkieltä ja arkipäiväisiä asioita, kuten kaupassa käymistä ja liikennevälineillä kulkemista.
+
+(Terveydenhuollon konsultti Päivi Sundell Helsingin kaupungin sosiaalivirastosta)
+
+Sanoi Päivi Sundell Helsingin kaupungin sosiaalivirastosta.
+
+Uusi tutkimus kertoo, että iäkkäät maahanmuuttajat ovat sairaampia kuin samanikäiset suomalaiset vanhukset. Iäkkäiden maahanmuuttajien sairauksia ei aina hoideta sen takia, että maahanmuuttajien kielitaito on huono ja kulttuuri on erilainen. Heidän on vaikea pyytää apua. Vanhukset eivät halua kertoa lääkärille esimerkiksi dementiasta. Gerontologi Johanna Myllymäki-Neuhoff
+
+(Gerontologi Johanna Myllymäki-Neuhoff)
+
+Sanoi gerontologi Johanna Myllymäki-Neuhoff

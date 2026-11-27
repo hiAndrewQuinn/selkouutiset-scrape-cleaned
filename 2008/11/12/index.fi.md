@@ -1,0 +1,29 @@
+# Keskiviikko 12.11.2008 (radio)
+
+Tässä keskiviikon selkouutiset, studiossa on Eliisa Toivola.
+
+* * *
+
+Venäjä ei nosta puutulleja ensi vuoden alussa. Suomen teollisuus maksaa tullia puusta, joka tulee Venäjältä. Venäjä on aikonut nostaa tullimaksua vuodenvaihteessa. Nyt Venäjä sanoo, että tulleja nostetaan vasta myöhemmin. Venäjä kertoo, että puutulleja ei muuteta ainakaan ennen ensi syyskuuta. Suomi on pelännyt, että teollisuus kärsii, jos tullimaksu nousee.
+
+Venäjän päätöksestä kertoi Venäjän pääministeri Vladimir Putin. Pääministeri Matti Vanhanen keskusteli puutulleista Putinin kanssa keskiviikkona Moskovassa. Puutullien lisäksi pääministerit puhuivat esimerkiksi Suomen ja Venäjän suhteista ja maailman talouskriisistä.
+
+* * *
+
+Eduskunnassa on puhuttu hallituksen energia- ja ilmastostrategiasta. Strategia kertoo, millaista energiapolitiikkaa Suomi tekee tulevaisuudessa.
+
+Suomi muuttaa energiapolitiikkaa, koska EU haluaa estää ilmaston lämpenemisen. Suomen strategian tavoite on, että Suomessa kulutetaan tulevaisuudessa vähemmän energiaa kuin nyt.
+
+Oppositio puolueet arvostelivat hallituksen energia- ja ilmastostrategiaa. Eduskunnassa keskusteltiin paljon siitä, rakentaako Suomi tulevaisuudessa lisää ydinvoimaloita.
+
+* * *
+
+Muslimien internet-sivusto lisää suosiotaan. Eri maiden muslimit voivat pitää yhteyttä toisiin muslimeihin internet-sivuilla, joiden nimi on Muxlim.com. Sivusto ei ole uskonnollinen internetsivu. Muxlim.com-sivut on perustettu Suomessa. Muxlim-sivuilla ihmiset voivat esimerkiksi keskustella, kirjoittaa internetpäiväkirjaa ja katsoa videoita, joita ihmiset ovat laittaneet sivuille. Sivuilla käy nyt noin 2 miljoonaa ihmistä kuukaudessa. Muxlim.com on maailman suurin muslimisivusto. Sivuilla käy ihmisiä 190 maasta.
+
+Muxlim-sivut on perustettu pari vuotta sitten. Sivuston internetosoite on www.muxlim.com
+
+* * *
+
+Turvapaikanhakijoita tulee Suomeen enemmän kuin ennen. Maahanmuuttovirasto kertoo, että tänä vuonna lokakuuhun mennessä noin 2800 ulkomaalaista on hakenut turvapaikkaa. Koko viime vuonna turvapaikanhakijoita oli noin 1500.
+
+Suoneen on tullut eniten turvapaikanhakijoita Irakista. Myös esimerkiksi somaliasta on tullut paljon turvapaikanhakijoita.

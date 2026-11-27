@@ -1,0 +1,47 @@
+# Maanantai 16.4.2007 (radio)
+
+Kokoomus nimesi ministereitä uuteen hallitukseen.
+
+Puolueen puheenjohtaja Jyrki Katainen saa valtiovarainministerin salkun.
+
+Ulkoministeriksi tulee Ilkka Kanerva.
+
+Uusi opetusministeri on Sari Sarkomaa, sisäministeri Anne Holmlund, puolustusministeri Jyri Häkämies ja peruspalveluministeri Paula Risikko, viestintäministeri Suvi LindÃ©n ja uusi asuntoministeri on Jan Vapaavuori.
+
+Eduskunnan puhemieheksi kokoomus esittää Sauli Niinistöä
+
+Ruotsalainen kansanpuolue nimesi myös ministerinsä. Astrid Thors on uusi maahanmuutto- ja eurooppaministeri. Puolueen puheenjohtaja Stefan Wallin toimii kulttuuri- ja urheiluministerinä.
+
+Vihreät kertoo ministeriehdokkaansa myöhemmin tänään.
+
+Keskusta kertoo uudet ministerit huomenna.
+
+* * *
+
+Ja seuraavaksi uutinen Kiinasta.
+
+Kiinan suurin joki Jangtse on saastunut niin pahasti, että jokea ei voi enää pelastaa. Kiinalainen tutkimuslaitos kertoo, että suuri osa joesta eli 600 kilometriä on kriittisessä tilassa. Jangtsen on 6200 kilometriä pitkä joki.
+
+Kiinan hallitus yrittää estää joen saastumista, mutta turhaan. Ihmiset rikkovat ympäristömääräyksiä.
+
+Jokiveteen pääsee valtavat määrät myrkkyjä, torjunta-aineita, lannoitteita, teollisuuden päästöjä ja viemärijätettä.
+
+Joki on Kiinan tärkein makean veden lähde. Kymmenet miljoonat kiinalaiset käyttävät sen vettä juomavetenään.
+
+* * *
+
+Vielä uutisia ulkomailta
+
+Irakissa hallitus on vakavassa kriisissä.
+
+Irakin shiiajohtaja Muqtada al-Sadrin poliittinen ryhmä aikoo lähteä pois hallituksesta.
+
+Al-Sadrin ryhmä haluaa, että amerikkalaisjoukot lähtevät pois Irakista.
+
+Al-Sadrinilla on hallituksessa kuusi ministeriä Nuri al-Malikin shiiakoalitiossa.
+
+Ryhmän päätös ei kaada Irakin hallitusta, mutta aiheuttaa jännitystä hallituksen sisällä.
+
+* * *
+
+Afganistanissa on yhdeksän poliisia kuollut ja useita on haavoittunut itsemurhapommittajan iskussa. Isku tapahtui Pohjois-Afganistanissa, jossa itsemurhaiskuja tapahtuu harvoin.

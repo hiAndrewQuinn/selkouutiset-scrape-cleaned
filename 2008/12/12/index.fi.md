@@ -1,0 +1,33 @@
+# Perjantai 12.12.2008 (radio)
+
+Tässä perjantain Selkouutiset, studiossa on Pertti Seppä.
+
+* * *
+
+EU-maiden johtajat ovat päättäneet ilmastopolitiikasta. Euroopan unionin johtajat neuvottelivat ilmastopolitiikasta Brysselissä. EU-johtajat olivat samaa mieltä siitä, että Euroopan unionin täytyy hidastaa ilmaston lämpenemistä.
+
+EU-maiden täytyy vähentää kasvihuonekaasuja, koska ilmasto lämpenee. Kasvihuonekaasuja tulee esimerkiksi tehtaista ja liikenteestä. EU-johtajat haluavat, että kaasuja tulee ilmaan vähemmän.
+
+EU-maat sopivat, että vuonna 2020 ne päästävät ilmaan 20 prosenttia vähemmän kasvihuonekaasuja kuin vuonna 1990. EU-johtajat olivat ilmastopolitiikasta samaa mieltä. Myös Suomen pääministerin Matti Vanhasen mielestä EU:n ilmastosopimus on hyvä.
+
+* * *
+
+EU-maiden johtajat ovat hyväksyneet lisäksi talouden tukipaketin. Tukipaketti on 200 miljardia euroa. EU auttaa tukipaketilla Euroopan taloutta, koska maailmassa on talouskriisi.
+
+EU-johtajat hyväksyivät talouden tukipaketin kokouksessaan Brysselissä. Kokous päättyi perjantaina. EU:n puheenjohtajamaa Ranska oli tyytyväinen kokouksen tuloksiin.
+
+* * *
+
+Ruotsin poliisi on saanut kiinni suomalaisen, joka ehkä huijasi internetissä miljoonia. Ruotsin poliisi otti kiinni Hannu Kailajärven, joka teki työtä WinCapitassa. Monet suomalaiset ovat menettäneet rahaa WinCapitan takia.
+
+WinCapita toimi internetissä. Se keräsi rahaa jopa 10 000 ihmiseltä. Ihmiset uskoivat, että he saavat paljon voittoa. WinCapita kuitenkin huijasi ihmisiä, jotka menettivät rahansa. Poliisi sanoo, että ihmiset menettivät yhteensä ainakin 13 miljoonaa euroa.
+
+Suomen ja Ruotsin poliisit tekivät yhteistyötä, että Hannu Kailajärvi saatiin kiinni. Tapauksen tutkimukset jatkuvat.
+
+* * *
+
+Suomi ei luovuta kahta iranilaista miestä Suomesta Iraniin. Iran pyysi, että Suomi luovuttaa miehet Iranille. Suomi ei suostu Iranin pyyntöön. Miehet saavat lähteä Suomesta, minne he itse haluavat.
+
+Iranilaiset miehet tulivat Ranskasta Suomeen joulukuun alussa. Iran sanoo, että miehet ovat terroristeja. Suomen ulkoministerin Alexander Stubbin mukaan miehet kuuluvat ihmisoikeusryhmään, joka kritisoi Iranin hallitusta.
+
+Suomen päätös tarkoittaa, että iranilaiset miehet voivat nyt matkustaa vapaasti.

@@ -1,0 +1,13 @@
+# Sunnuntai 18.1.2009 (radio)
+
+Tässä sunnuntain selkouutiset, jotka toimittaa Brita Jokinen.Pääministeri Matti Vanhanen sanoo, että osakkeenomistajien ei nyt ole hyvä vaatia yrityksiltä osinkoja. Vanhasen mielestä ihmiset, jotka omistavat osakkeita voisivat luopua osingoista. Vanhanen sanoo, että silloin yritysten ei tarvitse vähentää työpaikkoja, vaan niille jää rahaa työntekijöiden palkkoihin. Vanhanen toivoo, että osakkeenomistajat ottavat mallia valtiosta, joka ei odota suuria osinkoja. Yritykset antavat osakkeenomistajille osinkoja eli rahaa, jos ne ovat tuottaneet paljon voittoa.Ukraina ja Venäjä ovat päässeet sopuun kaasukiistassa. Sopimukset kirjoitetaan maanantaina. Kaasun tulo Ukrainan kautta Euroopan maihin voi kuitenkin kestää päiviä. Ukraina saa ostaa kaasua Venäjältä tänä vuonna 20 prosenttia halvemmalla kuin muut Euroopan maat. Ensi vuonna Ukraina maksaa kaasusta yhtä paljon kuin eurooppalaiset maat.
+
+Venäjä keskeytti kaasutoimitukset Ukrainaan kaksi viikkoa sitten maksuriidan takia. Samalla kaasun tulo moniin Euroopan maihin katkesi. Ukraina ja Venäjän kaasuyhtiö Gazprom ovat riidelleet kaasusta monina vuosina.Israel vetää joukkoja Gazasta. Israel ilmoitti sunnuntaina, että se on aloittanut tulitauon Gazassa. Myös Hamas-järjestö ja sen liittolaiset puhuvat tulitauosta. Kuitenkin israelilaiset sotilaat ja palestiinalaiset ovat ammuskelleet toisiaan sunnuntaina.
+
+Länsimaat ovat tyytyväisiä tulitaukoon. Yhdysvaltain ulkoministeri toivoo, että tulitauko kestää. Myös Yhdysvaltain tuleva presidentti Barack Obama on kiittänyt Israelin päätöstä.
+
+Euroopan maiden, palestiinalaisten ja YK:n edustajat tapasivat Egyptissä sunnuntaina. He lupasivat antaa humanitääristä apua Gazaan.Yhdysvaltain presidentiksi tuleva Barack Obama on mennyt Washingtoniin juhlajunalla. Myös presidentti Abraham Lincoln matkusti junalla Valkoiseen taloon vuonna 1861.
+
+Washingtonissa juhlittiin sunnuntaina Barack Obaman tulevaa presidenttikautta konsertilla. We Are One-konsertissa ovat mukana esimerkiksi Bono, Bruce Springsteen,
+
+Stevie Wonder ja Shakira. Barack Obamasta tulee virallisesti Yhdysvaltain uusi presidentti tiistaina.Suomalaiset uskovat, että pääministeri vaihtuu seuraavassa hallituksessa. Puolet suomalaisista uskoo, että seuraava hallitus muodostetaan keskustasta ja kokoomuksesta. Kyselyn teki Yleisradion Uutiset.

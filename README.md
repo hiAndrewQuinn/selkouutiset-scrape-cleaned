@@ -39,6 +39,16 @@ fish translation-code/generate-translations.fish $GCP_SELKOUUTISET_ARCHIVE_PROJE
 fd '_response\...\...\.json' | python translation-code/json2markdown.py
 ```
 
+## 2006–2009: pages from the old podcast feed
+
+`2006/` to `2009/` are not made by `process.sh`, which works from Yle's HTML pages. They come from selkouutiset-scrape's `podcast-feed/`: the full text of 632 radio broadcasts (27.4.2006 – 5.2.2009) recovered from Wayback Machine snapshots of Yle's old podcast feed. `tools/podcast_feed_pages.py` writes them:
+
+```sh
+uv run tools/podcast_feed_pages.py selkouutiset-scrape/podcast-feed .
+```
+
+Each broadcast gets `index.fi.md` (heading `# Torstai 27.4.2006 (radio)`, then the text, with the feed's story separators as rules) and `edition.json` with a `"source"` naming the snapshot. The programme went out Sunday to Thursday. A Friday or Saturday straight after a broadcast gets a repeat page; any other day without one gets no page and is listed on the site as lost media. They are Finnish-only and never translated: they predate `TRANSLATE_FROM`, and the tool writes no translation request. The tool is idempotent and only ever rewrites days it wrote itself.
+
 ## For end users: How things are named
 
 The bulk of this Git repo is contained in the `YYYY/MM/DD` folders. Each `YYYY/MM/DD` folder contains 2*n things, where n is the number of languages we are translating to (curently just Finnish and English).

@@ -1,0 +1,31 @@
+# Sunnuntai 14.12.2008 (radio)
+
+Tässä sunnuntain Selkouutiset, studiossa on Salme Unkuri.
+
+* * *
+
+Yhdysvaltain hallituksen raportti kertoo, että Irakin jälleenrakennus on epäonnistunut. The New York Times -lehti kertoo raportista. Irakin rakentaminen sodan jälkeen on epäonnistunut monen eri syyn takia.
+
+Irakin jälleenrakennus ei ole onnistunut, koska amerikkalaiset eivät tunne irakilaista yhteiskuntaa. Myös väkivalta ja byrokratia ovat häirinneet Irakin jälleenrakentamista. Esimerkiksi liikenneyhteydet toimivat Irakissa vielä huonosti ja maassa on paljon työttömiä.
+
+Yhdysvallat on ollut vastuussa Irakin jälleenrakennuksesta, joka on maksanut yli 100 miljardia dollaria. Sota Irakissa päättyi toukokuussa 2003.
+
+* * *
+
+Suomen elintarviketeollisuudella menee vielä hyvin, vaikka maan talouskasvu on pysähtynyt. Elintarviketeollisuus ei ole joutunut lomauttamaan työntekijöitä kuten monet muut teollisuuden alat. Elintarviketeollisuus valmistaa ruokaa ja se on Suomen neljänneksi suurin teollisuuden ala.
+
+Rahamarkkinoiden kriisi vaikuttaa kuitenkin ehkä elintarvikkeiden vientiin Venäjälle ja Baltian maihin. Venäjä on tärkeä vientimaa esimerkiksi Valiolle, joka valmistaa maitotuotteita.
+
+Suomessa talouden taantuma vaikuttaa jo siihen, millaista ruokaa ihmiset ostavat. Suomalaiset ostavat nyt enemmän esimerkiksi lenkkimakkaraa, joka on halpaa ruokaa. Lisäksi suomalaiset ostavat nyt halvempia juustoja kuin aikaisemmin.
+
+* * *
+
+Bensan ja dieselin hinnan lasku jatkuu. Bensa ja diesel halpenevat, koska raakaöljyn hinta laskee. Raakaöljyn hinta laskee talouden taantuman takia. Näin kertovat tilastot, jotka on kerännyt Öljyalan keskusliitto.
+
+Bensan ostajat kertovat bensan ja dieselin hinnoista internetissä. Ostajat kertovat, että Suomessa halvin bensa maksaa nyt vain vähän yli euron. Dieseliä saa jo vähän yli 90 sentillä.
+
+* * *
+
+Lopuksi urheilua: Suomi on voittanut salibandyn maailmanmestaruuden. Suomi voitti Ruotsin loppuottelussa Prahassa Tshekissä. Suomi voitti Ruotsin maalein 7 - 6 ottelun jatkoajalla. Suomen voittomaalin teki Tero Tiitu.
+
+Tämä on ensimmäinen kerta kun Suomi voitti salibandyn maailmanmestaruuden. Ruotsi on aina ennen ollut salibandyn maailmanmestari. Salibandy muistuttaa vähän jääpalloa, mutta sitä pelataan sisällä.

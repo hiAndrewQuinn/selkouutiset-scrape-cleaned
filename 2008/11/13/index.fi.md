@@ -1,0 +1,27 @@
+# Torstai 13.11.2008 (radio)
+
+Tässä torstain Selkouutiset, studiossa on Eliisa Toivola.
+
+* * *
+
+Kaupat ovat ehkä auki tulevaisuudessa enemmän kuin nyt. Suomen kaupan liitto ja palvelualojen ammattiliitto eli PAM ovat puhuneet torstaina siitä, voivatko kaikki kaupat olla auki sunnuntaisin koko vuoden. Osapuolet puhuivat myös siitä, miten sunnuntaityö korvataan työntekijöille. Osapuolet tekivät ehdotuksen siitä, kuinka kauppojen aukioloajat muuttuvat, mutta Palvelualojen ammattiliitto PAM ei hyväksynyt ehdotusta. PAM aikoo keskustella lisää Suomen kaupan liiton kanssa kauppojen aukioloajoista. Eduskunta päättää lopullisesti siitä, miten kaupat ovat tulevaisuudessa auki.
+
+Nyt isot kaupat eivät saa olla auki sunnuntaisin koko vuotta. Esimerkiksi ennen joulua kaikki kaupat saavat olla auki myös sunnuntaisin.
+
+* * *
+
+Monet ihmiset ovat tehneet WinCapitasta rikosilmoituksen. Suomalainen WinCapita-yritys lupasi ihmisille paljon voittoa, jos he sijoittavat rahaa yritykseen. WinCapita toimi internetissä, mutta se lopetti yhtäkkiä toiminnan maaliskuussa 2008. Ihmiset eivät nyt saa rahojaan takaisin WinCapitasta, koska WinCapitan pääomistajat ovat kadonneet. Yli 1000 ihmistä on tehnyt WinCapitasta rikosilmoituksen poliisille.
+
+Arvioidaan, että suomalaiset ovat sijoittaneet WinCapitaan noin 13 miljoonaa euroa. Poliisitutkinta voi kestää monta vuotta, koska juttuun liittyy niin monia ihmisiä.
+
+* * *
+
+Sitran johtaja vaihtuu. Sitra on Suomen itsenäisyyden juhlarahasto. Sitran tehtävä on esimerkiksi auttaa Suomen taloutta ja kehittää kansainvälistä yhteistyötä. Sitran uusi johtaja eli yliasiamies on Mikko Kosonen. Kosonen on tehnyt Sitrassa työtä aikaisemmin.
+
+Sitran edellinen johtaja Esko Aho siirtyi puhelinyhtiö Nokialle töihin marraskuun alussa.
+
+* * *
+
+Finlandia-kirjallisuuspalkinnon ehdokkaat on julkaistu. Joka vuosi Finlandia-palkinnon saa kirjailija, joka on kirjoittanut vuoden parhaan romaanin. Suomen kirjasäätiö antaa Finlandia-palkinnon. Tänä vuonna on ehdolla kuusi romaania.
+
+Finlandia-palkinnon arvo on tänä vuonna 30 000 euroa. Finlandia-palkinto on Suomessa tärkein kirjallisuuspalkinto. Finlandia-palkinnon voittaja kerrotaan 4. joulukuuta.

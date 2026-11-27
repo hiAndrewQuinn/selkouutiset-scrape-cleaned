@@ -1,0 +1,31 @@
+# Maanantai 21.4.2008 (radio)
+
+Tässä maanantain Selkouutiset, studiossa on Maritta Vehviläinen.
+
+* * *
+
+Espanjan bussionnettomuuden selvittelyt jatkuvat. Espanjan sairaaloissa on vielä yli kymmenen suomalaista, jotka loukkaantuivat bussionnettomuudessa. Onnettomuus tapahtui lauantaina.
+
+Kolmetoista potilasta pääsee Suomeen maanantai-iltana. Kaksitoista suomalaista jää vielä sairaalaan Espanjaan. Suomalainen lääkäri on tutkinut potilaat. Hän päättää siitä, voivatko potilaat matkustaa Suomeen. Suomeen tuli jo sunnuntaina yli kymmenen ihmistä, jotka olivat mukana onnettomuudessa.
+
+Bussionnettomuus tapahtui Espanjan Aurinkorannikolla lauantai-iltana. Bussi oli matkalla Malagan lentokentälle. Onnettomuusbussissa oli 48 suomalaista. Matkan järjesti Aurinkomatkat. Onnettomuudessa kuoli yhdeksän ihmistä: kuusi naista, kaksi miestä ja yksi lapsi. Poliisi on selvittänyt kuolleiden nimet.
+
+Finnair ja Aurinkomatkat järjestivät loukkaantuneiden sukulaisille lennon Espanjaan. He lähtivät Espanjaan maanantaina.
+
+Onnettomuuden aiheutti maastoauto, joka ohitti bussin kovalla vauhdilla. Maastoauto osui bussiin ja sen jälkeen bussi kaatui. Espanjan poliisi sanoo, että maastoauton kuljettaja oli humalassa.
+
+* * *
+
+Viron presidentti on esittänyt surunvalittelut Espanjan bussionnettomuuden takia. Presidentti Toomas Hendrik Ilves haluaa olla mukana suomalaisten surussa. Ilves esitti surunvalittelut presidentti Tarja Haloselle. Viron presidentti pyysi, että presidentti Halonen kertoo surunvalittelut kuolleiden perheille.
+
+Suomessa on ollut monissa kirkoissa tilaisuuksia, joissa on muistettu suomalaisia, jotka kuolivat bussionnettomuudessa.
+
+* * *
+
+Sairaanhoitajat ovat lakossa Ruotsissa ja Tanskassa. Sairaanhoitajien lakko alkoi Ruotsissa maanantaina. Noin 3500 sairaanhoitajaa on pois töistä lakon alussa. Sairaanhoitajien lakko laajenee koko maahan, jos neuvotteluissa ei tule sovintoa. Työnantaja ja työntekijät neuvottelivat asioista lauantaina. Neuvotteluissa ei päästy sovintoon. Sairaanhoitajat haluavat lisää palkkaa. He vaativat 14 prosenttia lisää palkkaa kahdessa vuodessa.
+
+Sairaanhoitajat ovat lakossa myös Tanskassa. Noin 100 000 sairaanhoitajaa aloitti lakon viime keskiviikkona. Lakon syynä on riita palkoista. Tanskalaiset hoitajat vaativat 15 prosenttia lisää palkkaa.
+
+* * *
+
+Poliisi on lisännyt nopeuksien valvontaa maanteillä. Poliisi mittaa nopeuksia enemmän kuin tavallisesti tämän viikon ajan. Nopeuksien valvontaa on lisätty sellaisissa paikoissa, joissa sattuu paljon liikenneonnettomuuksia.

@@ -1,0 +1,61 @@
+# Maanantai 26.3.2007 (radio)
+
+Maanantain Selkouutisten aiheita ovat:
+
+Etelä- ja Keski-Suomessa on nyt paljon katupölyä ilmassa.
+
+Britanniassa koulut voivat kieltää musliminaisilta hunnut, jotka peittävät kasvot.
+
+Sisäministeriö haluaa, että ulkomaiset marjanpoimijat saavat tarpeeksi tietoa Suomen oloista.
+
+Selkouutiset toimittaa Salme Unkuri.
+
+* * *
+
+Ilmassa on nyt paljon katupölyä eri puolilla Etelä- ja Keski-Suomea. Turun seudulla ilmanlaatu oli maanantaina aamupäivällä joissakin paikoissa erittäin huono. Ilmanlaatu on heikentynyt myös esimerkiksi Helsingin seudulla ja monissa pienissä kaupungeissa.
+
+Katupöly on ongelma varsinkin niille, jotka sairastavat astmaa tai ovat allergisia pölylle. Pieni osa pölystä menee keuhkoihin, kertoo professori Matti Jantunen Kansanterveyslaitokselta:
+
+(tutkimusprofessori Matti Jantunen, Kansanterveyslaitos)
+
+Syy ilmanlaadun heikentymiseen on hiekka, jota on kaduilla. Hiekka pöllyää ilmassa, kun sää on kuivaa. Helsingissä on alettu kastella katuja, jotta pöly vähenee.
+
+Ilmanlaatu on huono vielä lähipäivien ajan, jos ei tule sadetta.
+
+* * *
+
+Britanniassa koulut saavat luvan kieltää musliminaisilta hunnut, jotka peittävät kasvot. Britannian hallitus perustelee päätöstä sillä, että opiskelu on vaikeaa, jos kasvoja ei näy. Hallituksen mielestä opettajien on mahdoton tietää, kuinka oppilaalla menee, jos hän ei näe oppilaan kasvoja ja ilmeitä.
+
+Marzia Jaghori opiskelee Britanniassa islamilaisessa koulussa, mutta hän ei käytä huntua, joka peittää kasvot. Hallituksen päätös ärsyttää kuitenkin häntä.
+
+(Marzia Jaghori)
+
+Marzia Jaghorin mielestä hallituksella ei ole oikeutta ottaa tällaista asiaa esille ja sanoa, kuinka pitää pukeutua. Hänen mielestään hunnusta on tehty liian suuri asia.
+
+Islamilaisen koulun opettaja Mahmood Abolghasemi ymmärtää kiellon.
+
+(opettaja Mahmood Abolghasemi)
+
+Opettaja Mahmood Abolghasemin mielestä ei ole käytännöllistä tulla kouluun niin että huntu peittää kasvot.
+
+* * *
+
+Sisäministeriö haluaa, että ulkomaisille marjanpoimijoille annetaan tietoa Suomen oloista enemmän kuin aikaisemmin. Sisäministeriön mielestä marjanpoimijoilla täytyy olla tietoa esimerkiksi siitä, millaista työtä metsämarjojen poimiminen on. Lisäksi heillä täytyy olla tietoa palkasta ja työolosuhteista.
+
+Ministeriö ehdottaa, että viranomaiset tekevät yhdessä marja-alan järjestöjen kanssa esitteen, jota voidaan jakaa marjanpoimijoille. Esitteestä on hyötyä myös niille, jotka järjestävät marjanpoimintaa. Esitteen on tarkoitus valmistua ensi vuonna.
+
+Viime kesänä joukko ukrainalaisia marjanpoimijoita joutui vaikeuksiin Suomessa. Heillä ei ollut rahaa matkalippuihin. Siksi he eivät voineet palata takaisin Ukrainaan. Syy tähän oli se, että Suomen metsissä oli viime kesänä vähemmän marjoja kuin yleensä. Marjoja oli metsissä vähän, koska kesä oli kuiva.
+
+* * *
+
+Nopeusrajoitukset Suomen teillä muuttuvat tällä viikolla. Teillä saa taas ajaa nopeammin, koska sää on lämmintä. Esimerkiksi Lapin, Oulun ja Vaasan alueilla nopeusrajoituksia alettiin muuttaa maanantaina. Turun ja Hämeen alueella rajoitusmerkkejä aletaan vaihtaa tiistaina.
+
+Yleensä nopeusrajoitukset muuttuvat Suomessa vasta myöhemmin keväällä. Rajoituksia voidaan kuitenkin muuttaa jo aikaisemmin, jos sää on keväistä.
+
+* * *
+
+Kevät on tullut Suomeen epätavallisen aikaisin. Ilmatieteenlaitos kertoo, että lämpötilat olivat viikonloppuna esimerkiksi Etelä- ja Keski-Suomessa 10 - 15 astetta.
+
+Suomessa oli kuitenkin vuoden 1945 maaliskuussa vieläkin lämpimämpää. Ahvenanmaalla mitattiin silloin maaliskuussa 16 lämpöastetta.
+
+Ilmatieteenlaitos varoittaa ja kertoo, että säät muuttuvat ehkä Suomessa vielä kylmiksi. Tämän viikon lopussa jopa Etelä-Suomessa sataa ehkä lunta tai räntää. Ensi viikolla sää lämpenee luultavasti uudelleen.

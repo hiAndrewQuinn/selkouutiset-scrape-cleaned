@@ -1,0 +1,49 @@
+# Keskiviikko 11.10.2006 (radio)
+
+Keskiviikon selkouutisten aiheita ovat:
+
+Japani kieltää Pohjois-Korean aluksilta ja ihmisiltä pääsyn Japaniin.
+
+Venäjällä on ammuttu tärkeä pankinjohtaja.
+
+Suomalaiset koulukirjat kiinnostavat ulkomailla.
+
+Selkouutiset toimittaa Brita Jokinen.
+
+* * *
+
+Japani on ilmoittanut pakotteista Pohjois-Koreaa vastaan. Japani kieltää pohjois-korealaisilta aluksilta pääsyn Japanin satamiin. Japani ei päästä Pohjois-Korean kansalaisia maahan ja lopettaa kaiken tuonnin. Pohjois-Koreasta tuodaan Japaniin lähinnä hiiltä ja ruokakasviksia.
+
+* * *
+
+Pohjois-Korea sanoo, että se on valmis myös uusiin ydinkokeisiin. Pohjois-Korean ulkoministeriö sanoo, että kansainvälinen painostus ja sen lisääminen on sodanjulistus. Toisaalta maa haluaa myös neuvotella. Pohjois-Korea teki viikonloppuna maanalaisen ydinkokeen.
+
+Naapurimaat ovat huolestuneita Pohjois-Korean ydinkokeesta. Etelä-Korea pelkää ja tehostaa valmiutta torjua ydinasehyökkäys. Japanin televisiossa kerrottiin, että viranomaiset havaitsivat Pohjois-Koreassa maankuoren tärähtelyä, joka saattoi johtua ydinkokeesta. Samaan aikaan Japanissa oli maanjäristys.
+
+YK:n turvallisuusneuvosto jatkaa keskustelua Pohjois-Korean vastaisista toimista.
+
+* * *
+
+Venäjällä on surmattu merkittävä pankinjohtaja. Maan toiseksi suurimmassa pankissa työskennellyt johtaja Aleksander Plokhin ammuttiin Moskovassa. Moskovan syyttäjänvirasto sanoo, että se oli palkkamurha. Venäjän keskuspankin varajohtaja ammuttiin syyskuussa.
+
+* * *
+
+Intian pääministeri Manmohan Singh on Suomen-vierailulla. Singh tapaa pääministeri Matti Vanhasen torstaina.
+
+Pääministerit keskustelevat Suomen ja Intian yhteistyöstä kaupassa ja taloudessa sekä tietoteknologiassa.
+
+Singhin osallistuu EU:n ja Intian talousfoorumiin sekä EU:n ja Intian huippukokoukseen.
+
+* * *
+
+Filippiineillä on ollut pommi-isku, jsosa kuoli 12 henkeä. Lisäksi 40 ihmistä haavoittui. Pommi räjähti keskellä kaupunkijuhlaa Mindanaon saarella. Iskusta epäillään Al Qaeda-verkoston ääri-islamilaisia ryhmiä. Ne olivat uhkailleet väkivallalla vastalauseena Filippiinien halllituksen yhteistyölle Yhdysvaltain kanssa.
+
+* * *
+
+Professori Leena Palotie on kutsuttu Yhdysvaltain tiedeakatemian lääketieteen instituutin jäseneksi. Hän tutkii geenejä
+
+Helsingin yliopistossa ja Kansanterveyslaitoksella. Valintaa pidetään Yhdysvalloissa suurena kunnianosoituksena lääketieteen ja terveydenhoidon alalla.
+
+* * *
+
+Suomalaiset oppikirjat kiinnostavat muissa maissa. Suomalaisia koulukirjoja kysytään Baltiassa ja muualla Euroopassa sekä Japanissa. Japanissa on ilmestynyt versio suomalaisesta äidinkielen oppikirjasta. Nyt Japani haluaa käännösoikeuksia historian ja yhteiskuntaopin kirjasarjaan. Suosion yksi syy on se, että suomalainen koulujärjestelmä on arvostettu kansainvälisesti.

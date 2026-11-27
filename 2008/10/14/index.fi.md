@@ -1,0 +1,39 @@
+# Tiistai 14.10.2008 (radio)
+
+Tässä tiistain Selkouutiset, studiossa on Maritta Vehviläinen.
+
+* * *
+
+Rahamarkkinoilta on tiistaina kuulunut myös positiivisia uutisia. Osakkeiden hinnat ovat nousseet pörsseissä eri puolilla maailmaa. Esimerkiksi Japanissa osakekurssit nousivat yli 14 prosenttia.
+
+Islannin rahamarkkinoilla on edelleen vaikeuksia. Osakkeiden hinnat pörssissä laskivat tiistaina Islannissa monta kymmentä prosenttia.
+
+Pankit luottavat taas toisiinsa ja rahamarkkinoilla on nyt vähän rauhallisempaa kuin ennen. Esimerkiksi asuntolainojen korot ovat laskeneet.
+
+Valtiot eri puolilla maailmaa ovat tukeneet pankkeja. Osakkeiden hinnat ovat nousseet ja lainojen korot ovat laskeneet tukitoimien takia.
+
+* * *
+
+Eduskunnassa on keskusteltu terveyspalveluista. Oppositio vaatii hallitukselta 450 miljoonaa lisää rahaa terveysrahoihin.
+
+Oppositiopuolueet jättivät välikysymyksen lokakuun alussa. Oppositio haluaa tietää, miten hallitus aikoo parantaa koulujen ja mielenterveyspotilaiden terveyspalveluja.
+
+Hallitus on sitä mieltä, että terveyspalveluja pitää uudistaa. Peruspalveluministeri Paula Risikko kertoi tiistaina, että lakiin on tulossa muutoksia ensi keväänä.
+
+Ensi perjantaina äänestetään siitä, luottaako eduskunta hallitukseen.
+
+* * *
+
+Politiikka kiinnostaa monia nuoria enemmän kuin ennen. Nuoret haluavat esimerkiksi lähteä ehdokkaiksi vaaleihin. Nuorten kiinnostusta politiikkaan on lisännyt internet. Nuoret löytävät internetistä tietoa politiikasta. Näin kertoo Nuorisobarometri-tutkimus.
+
+Tutkimus kertoo myös, että nykyisin osa nuorista ei ole kiinnostunut politiikasta ollenkaan.
+
+* * *
+
+Kuntavaalien ennakkoäänestys alkaa keskiviikkona lokakuun 15. päivä. Äänestäjät voivat käydä äänestämässä etukäteen, jos he esimerkiksi eivät pääse vaalipaikalle varsinaisena äänestyspäivänä.
+
+Kuntavaalien varsinainen äänestyspäivä on lokakuun 26. päivä. Tänään esittelemme puolueen, jonka nimi on Keskusta. Keskusta on porvarillinen puolue oikeiston ja vasemmiston välissä.
+
+Keskusta puhuu paljon maaseudusta. Puolueen mielestä on tärkeää, että suomalaisia asuu myös maaseudulla. Monille keskustalaisille perinteiset arvot ovat tärkeitä.
+
+Keskusta on yksi Suomen suurista puolueista. Se on suurin puolue maaseudulla ja Pohjois-Suomessa. Etelä-Suomen kaupungeissa Keskustalla on vain vähän kannattajia.

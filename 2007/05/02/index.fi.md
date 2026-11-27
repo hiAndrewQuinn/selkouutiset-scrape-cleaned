@@ -1,0 +1,57 @@
+# Keskiviikko 2.5.2007 (radio)
+
+Keskiviikon selkouutisten aiheita ovat:
+
+Viron suurlähettilästä vastaan on hyökätty Moskovassa.
+
+EU vaatii, että Venäjä selvittää Viron ja Ruotsin diplomaattien kohtelua .
+
+Suomen ulkoministeri sanoo, että Viron ja Venäjän kiista on saanut keskiviikkona vakavia piirteitä
+
+Selkouutiset toimittaa Brita Jokinen.
+
+* * *
+
+Viron suurlähettilästä vastaan on hyökätty Moskovassa. Suurlähettiläs Marina Kaljurandin kasvoille sumutettiin kaasua, kun hän oli moskovalaisen lehden toimitiloissa tiedotustilaisuudessa. Viron ulkoministeriö on tyrmistynyt hyökkäyksestä ja sanoo, että se oli sopimatonta ja rikkoo kansainvälisiä diplomaattisia sopimuksia. Ministeriö vaatii kansainvälistä yhteisöä toimenpiteisiin hyökkäyksen vuoksi.
+
+Viron lähetystön työntekijöiden perheet on evakuoitu Moskovasta. Levottomuudet Moskovan Viron suurlähetystön edustalla ovat jatkuneet monta päivää. Kansallismieliset venäläiset aktivistit ovat yrittineet estää virolaisia diplomaatteja menemästä lähetystöön ja pois.
+
+Viron ja Venäjän välinen kriisi alkoi, kun neuvostosotilaan patsas siirrettiin pois vanhalta paikaltaan Tallinnan keskustasta.
+
+Venäläiset sanovat, että patsaan siirto häpäisee niiden sotilaiden muistoa, jotka kuolivat toisessa maailmansodassa.
+
+Virolaiset sanovat, että patsas on symboli neuvostomiehitykselle, jota kesti viisikymmentä vuotta.
+
+Neuvostosotilaan patsas on maanantaina siirretty sotilashautausmaalle Tallinnan ulkopuolella.
+
+* * *
+
+Euroopan komissio vaatii Venäjää huolehtimaan kansainvälisistä velvollisuuksista ja ulkomaisten edustustojen henkilökunnan koskemattomuudesta. Saksan liittokansleri Angela Merkel sanoo, että Saksa tekee kaikkensa, jotta kiista Viron ja Venäjän välillä lieventyy.
+
+* * *
+
+Suomen ulkoministeri Ilkka Kanerva sanoo, että Viron ja Venäjän kiista on saanut keskiviikkona vakavia piirteitä. EU:n pitää rauhoitella Viron ja Venäjän suhteita ja kiistaan on löydettävä myönteinen ratkaisu, sanoo Kanerva.
+
+(Ilkka Kanerva)
+
+Presidenttti Tarja Halonen sanoo, että Viron ja Venäjän kärjistyneet suhteet ovat koko EU:n asia. Halonen toivoo, että riidan osapuolet kunnioittavat Wienin sopimuksen velvoitteita diplomaattisesta koskemattomuudesta.
+
+Suomen oppositiopuolueiden mielestä on hyvä, että Suomi osoittaa tukeaan Virolle patsaskiistan yhteydessä. Sosialidemokraattien puheenjohtaja Eero Heinäluoma ei ole kuitenkaan tyytyväinen siihen, mitä Suomen poliittinen johto on sanonut.
+
+(Eero Heinäluoma)
+
+* * *
+
+Ruotsi on moittinut ankarasti Venäjää, koska mielenosoittajat hyökkäsivät väkivaltaisesti Ruotsin suurlähettilään virka-auton kimppuun keskiviikkona Moskovassa. Viron suurlähetystön edustalla venäläiset mielenosoittajat repivät suurlähettilään diplomaattiautosta Ruotsin lipun ja rikkoivat ikkunan. Ruotsin suurlähettiläs selvisi ilman vammoja.
+
+* * *
+
+Venäjän hallinnon neuvonantaja varoittaa Suomea Nato-jäsenyydestä.Venäjän parlamentin puhemiehen neuvonantaja Valeri Manilov sanoo, että Nato-jäsenyys ei lisää Suomen turvallisuutta. Jos Suomi liittyy Natoon, se tuo uusia uhkia Suomelle, sanoo Manilov.
+
+Hän arvelee, että Venäjä vahvistaa joukkojaan Suomen lähialueilla, jos Suomi liittyy Natoon.
+
+Suomen uusi puolustuministeri Jyri Häkämies on sanonut aikaisemmin, että hän kannattaa Nato-jäsenyyttä pitkällä aikavälillä, siis joskus tulevaisuudessa.
+
+* * *
+
+Euroviisujen tapahtumat alkavat Helsingissä. Kahden seuraavan viikon aikana on erilaisia tapahtumia yleisölle esimerkiksi Senaatintorilla ja Esplanadin puistossa. Euroviisujen mediakeskus on avattu Messukeskuksessa. Kilpailuihin osallistuu 42 maata. Euroviisujen loppukilpailu on lauantaina 12. toukokuuta.

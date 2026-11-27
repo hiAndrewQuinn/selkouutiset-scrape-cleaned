@@ -1,0 +1,49 @@
+# Keskiviikko 19.12.2007 (radio)
+
+Keskiviikon Selkouutisten aiheita ovat:
+
+Monet suomalaiset eivät halua, että Suomi liittyy sotilasliitto Natoon. Suomalaiset haluavat, että Naton kanssa tehdään yhteistyötä.
+
+Metsäyhtiö UPM haluaa rakentaa Venäjälle suuren tehtaan. UPM kertoi maanantaina, että Suomessa täytyy sulkea tehdas noin 10 kuukaudeksi.
+
+Passintarkastukset loppuvat laivaliikenteestä Viron ja Suomen välillä. Lentoliikenteessä passitarkastukset loppuvat vasta maaliskuun lopussa.
+
+Aikakauslehti Time sanoo, että Venäjän presidentti Vladimir Putin on vuoden 2007 henkilö.
+
+EU haluaa, että autot saastuttavat vähemmän kuin nyt. Autoteollisuus ei halua, että EU määrää uudet päästörajat.
+
+Selkouutiset toimittaa Jari Nyman.
+
+* * *
+
+Monet suomalaiset eivät halua, että Suomi liittyy sotilasliitto Natoon (NATO). Suomalaisilta kysyttiin, haluavatko he, että Suomi liittyy Natoon. Melkein 70 prosenttia sanoi, että he eivät halua, että Suomi liittyy Natoon. Vain 26 prosenttia suomalaisista haluaa, että Suomi liittyy Natoon. Monet suomalaiset pelkäävät, että suomalaisia sotilaita lähetetään sotaan ulkomaille, jos Suomi liittyy Natoon. Suomalaiset haluavat, että Naton kanssa tehdään yhteistyötä.
+
+* * *
+
+Metsäyhtiö UPM haluaa rakentaa Venäjälle suuren tehtaan. UPM selvittää venäläisen Sveza-yhtiön kanssa, voivatko yhtiöt rakentaa yhdessä tehtaan, johon tarvitaan yli 600 työntekijää. UPM kertoi maanantaina, että Suomessa täytyy sulkea tehdas noin 10 kuukaudeksi. UPM kertoi, että Suomessa on huono markkinatilanne. UPM kertoi myös, että yhtiö sulkee tehtaan Kanadassa.
+
+* * *
+
+Passintarkastukset loppuvat laivaliikenteestä Viron ja Suomen välillä. Baltian maat liittyvät perjantaina Schengen-alueeseen. Passitarkastajien koppien tilalle rakennetaan uudet automaattiset portit. Matkustaja pääsee portista, kun hän näyttää maihinnousukortin.
+
+Tove Wikstedt tuli keskiviikkona Tallinasta Suomeen. Hän on iloinen, kun matkustajilta ei enää tarkisteta passeja.
+
+Tove Wikstedt
+
+Passitarkastukset loppuvat myös muiden Baltian maiden sekä Puolan, Unkarin, Tshekin, Slovakian, Slovenian ja Maltan rajoilla. Lentoliikenteessä passitarkastukset loppuvat vasta maaliskuun lopussa. Vaikka passeja ei tarkasteta, matkustajalla täytyy olla mukana henkilökortti, jossa on kuva.
+
+merivartija Antti Paasio
+
+Helsingin sataman passintarkastajilta eivät lopu työt. Monet passintarkastajat menevät töihin Helsinki-Vantaan lentoasemalle, koska lentoliikenne Aasiaan on lisääntynyt.
+
+* * *
+
+Yhdysvaltalainen Time-aikakauslehti on valinnut vuoden 2007 henkilön. Hän on Venäjän presidentti Vladimir Putin. Lehti sanoo, että presidentti Putin on vahvistanut Venäjän asemaa. Time- lehden otsikossa sanottiin, että "Tsaari on syntynyt".
+
+Muita ehdokkaita olivat esimerkiksi Yhdysvaltain entinen varapresidentti Al Gore ja kirjailija J.K. Rowling. Al Gore on sanonut, että lämpötilan nousu maapallolla täytyy pysäyttää. J.K. Rowling on englantilainen kirjailija, joka on kirjoittanut Harry Potter -lastenkirjat.
+
+* * *
+
+EU haluaa, että autot saastuttavat vähemmän kuin nyt. EU:n komissio ehdottaa, että uusille autoille määrätään uudet päästörajat. Komissio haluaa myös, että autonvalmistajille määrätään sakkoja, jos ne valmistavat autoja, joiden päästöt ovat suuremmat kuin uudet päästörajat. Komission ehdotus vähentäisi EU:n liikenteen saasteita noin 20 prosenttia.
+
+Autoteollisuus ei halua, että EU määrää uudet päästörajat. EU:n komission ehdotus täytyy hyväksyä jäsenmaissa ja Euroopan parlamentissa.

@@ -1,0 +1,37 @@
+# Keskiviikko 5.3.2008 (radio)
+
+Keskiviikon selkouutisia, studiossa Anu Packalén
+
+* * *
+
+Uutiset ovat kertoneet pääministeri Matti Vanhasen oikeusjutusta.Oikeusjutussa annettiin päätös keskiviikkona.Helsingin käräjäoikeus hylkäsi kaikki syytteet pääministeri Matti Vanhasen ja Susan Ruususen oikeusjutussa.
+
+Syytteet olivat Susan Ruususta ja Kari Ojalaa vastaan Pääministerin morsian- kirjan takia.Susan Ruusunen on kirjan kirjoittaja ja Kari Ojala kirjan kustantaja.
+
+Ruususta ja Ojalaa syytettiin siitä, että he levittivät tietoa Matti Vanhasen yksityiselämästä.
+
+Susan Ruusunen on Matti Vanhasen entinen naisystävä. Pääministeri Matti Vanhanen ei ole tyytyväinen. Hän aikoo valittaa oikeuden päätöksestä. Asian käsittely jatkuu hovioikeudessa.
+
+* * *
+
+Demokraattien esivaalit jatkuvat jännittävinä Yhdysvalloissa. Hillary Clinton menestyi hyvin esivaaleissa tiistaina. Clinton voitti Barac Obaman Texasissa ja Ohiossa.  Nämä voitot ovat tärkeitä Hillary Clintonille, koska Barac Obama johtaa presidentinvaalikilpailua. Vielä ei tiedetä, onko demokraattien presidenttiehdokas Hillary Clinton vai Barac Obama..
+
+Toisen puolueen eli republikaanien presidenttiehdokas on varmistunut. Republikaanien presidenttiehdokas on senaattori John McCain
+
+Yhdysvaltain presidenttivaalit ovat marraskuussa.
+
+* * *
+
+Uutiset kertovat taas työvoimapulasta.Työpaikkoihin on vaikea saada työntekijöitä työvoimapulan takia, kertoo Elinkeinoelämän keskusliiton eli EK:n raportti.
+
+Yrityksissä oli viime syksynä jopa 6 500 avointa työpaikkaa, joihin ei ollut työnhakijoita. Työvoimapulasta kärsivät palvelu-, teollisuus- ja rakennusala. Esimerkiksi rakennusalalla 58 prosenttia yrityksistä kärsii työvoimapulasta.
+
+Myös palvelualalla tilanne on vaikea. Viime syksynä palvelualalla oli 19 000 avointa työpaikkaa, joihin oli vaikea saada työntekijöitä.
+
+Työvoimapula kasvaa lähivuosina, koska monet ihmiset jäävät eläkkeelle.
+
+* * *
+
+Suomi on päättänyt ne maat, joista otetaan pakolaisia.Tänä vuonna Suomi ottaa esimerkiksi Syyriasta 300 irakilaista pakolaista. Lisäksi Thaimaasta Suomeen tulee 200 pakolaista, jotka ovat eri kansalaisuuksia.
+
+Ruandasta tulee Suomeen 150 kongolaista pakolaista. Suomi ottaa vuodessa vastaan 750 pakolaista. Pakolainen on henkilö, joka saa turvapaikan rodun, uskonnon tai kansalaisuuden takia.

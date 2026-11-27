@@ -1,0 +1,51 @@
+# Tiistai 2.1.2007 (radio)
+
+Tiistain Selkouutisten aiheita ovat:
+
+Diktaattori Saddam Husseinin kuolemasta tehty video on levinnyt internetissä. Saddamin kannattajat ovat suuttuneet videon takia
+
+Indonesiassa armeija on etsinyt kadonnutta lentokonetta. Armeija on etsinyt lentokonetta, joka katosi maanantaina
+
+Kaksi uutta maata on tullut Euroopan Unioniin. EU:n uudet jäsenet ovat Romania ja Bulgaria
+
+Suomen veroviranomaiset ovat aloittaneet uuden palvelun. Nyt ihmiset voivat tilata verokortin internetissä
+
+Selkouutiset toimittaa Mikko Jylhä
+
+* * *
+
+Diktaattori Saddam Husseinin kuolemasta tehty video on levinnyt internetissä. Saddam Husseinin kannattajat ovat suuttuneet videon takia. Irakin hallitus haluaa tietää, kuinka laiton video on päässyt julkisuuteen.
+
+Toimittaja Sampo Vaarakallio kertoo, että videolla vartijat pilkkavat Saddam Husseinia ennen kuolemaa.
+
+Esimerkiksi Irakin sunnit ovat vihaisia videon takia. Sunnit ovat kokoontuneet yhteen ja he ovat pitäneet mielenosoituksia. Oikeus antoi Saddam Husseinille kuolemantuomion ja hänet hirtettiin maanantaina.
+
+* * *
+
+Indonesiassa armeija on etsinyt kadonnutta lentokonetta. Armeija on etsinyt lentokonetta, joka putosi maahan tai mereen maanantaina. Lentokone joutui onnettomuuteen, koska sää oli huono.
+
+Kadonneen lentokoneen omistaa lentoyhtiö, jonka nimi on Adam Air. Koneessa oli yhteensä 102 ihmistä. Lentokoneessa oli kolme amerikkalaista ihmistä ja muut matkustajat olivat indonesialaisia.
+
+Indonesiassa on tapahtunut myös toinen iso onnettomuus. Lauantaina Indonesiassa upposi laiva. Laiva meni meren pohjaan Jaavan saaren lähellä. Ainakin 60 ihmistä hukkui onnettomuudessa ja monet ihmiset ovat kateissa.
+
+* * *
+
+Euroopan Unionissa on tapahtunut mielenkiintoisia asioita. Vuodenvaihteessa EU sai kaksi uutta jäsenmaata. EU:n uudet jäsenet ovat Romania ja Bulgaria. Romaniasta ja Bulgariasta tuli EU:n jäseniä maanantaina. Nyt EU:ssa on 27 jäsentä.
+
+Saksasta tuli vuoden alussa EU:n uusi puheenjohtaja. Suomi oli puheenjohtaja viime syksynä. Nyt Saksa johtaa tärkeitä kokouksia Euroopan Unionissa.
+
+Myös Euroopan taloudessa tapahtui muutos. Maanantaina slovenialaiset alkoivat maksaa euroilla. Eurosta tuli Slovenian uusi raha. Nyt yhteensä 13 maata käyttää euroja. Suomeen euro tuli vuonna 2002.
+
+* * *
+
+Suomen veroviranomaiset ovat aloittaneet uuden palvelun. Nyt ihmiset voivat tilata verokortin internetissä. Uusi palvelu aloitti vuoden alussa.
+
+Verokortin voi tilata osoitteessa www.vero.fi. Turvallisuuden takia ihmisen täytyy todistaa henkilöllisyytensä, kun hän tilaa verokortin sähköisesti. Ihminen voi todistaa henkilöllisyytensä verkkopankkitunnuksilla tai sellaisella henkilökortilla, jossa on siru. Verkkopankkitunnukset saa pankista ja henkilökortin saa esimerkiksi poliisilta.
+
+Ihminen tarvitsee verokortin, jos hän käy töissä. Verokortti kertoo, kuinka paljon työntekijä maksaa veroa. Verokortin saa verotoimistosta tai sen voi tilata puhelimella. Nyt tilauksen voi tehdä myös internetissä, jos ei ehdi mennä verotoimistoon.
+
+* * *
+
+Suomessa oli lämmintä joulukuussa. Ilmatieteen laitos kertoo, että joulukuussa oli paljon lämpimämpää kuin yleensä. Joulukuun sää oli leuto.
+
+Ilmatieteen laitos tutkii sääasioita. Se tekee esimerkiksi sääennusteita. Laitos kertoo, että joulukuussa oli jopa kahdeksan astetta (8) enemmän lämpöä kuin yleensä talvella. Lisäksi joulukuussa satoi paljon vettä.

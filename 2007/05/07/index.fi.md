@@ -1,0 +1,61 @@
+# Maanantai 7.5.2007 (radio)
+
+Maanantain selkouutisten aiheita ovat
+
+Ranskan uusi presidentti on oikeistolainen Nicolas Sarkozy. Hän voitti presidentinvaalit sunnuntaina.
+
+Virossa muistetaan toisen maailmansodan sankareita.
+
+Venäjältä tuli perjantaina Suomeen moldovalaisia miehiä, jotka hakevat turvapaikkaa Suomesta.
+
+Ruotsin jääkiekkomaajoukkue voitti Suomen joukkueen sunnuntaina jääkiekon MM-kilpailuissa Moskovassa.
+
+Selkouutiset toimittaa Lea Miettinen.
+
+* * *
+
+Ranskan uusi presidentti on oikeistolainen Nicolas Sarkozy. Hän voitti presidentinvaalit sunnuntaina. Sarkozy sai 53,1 prosenttia äänistä, vastustaja sosialistien Segolene Royal sai 46,9 prosenttia äänistä.
+
+Sarkozyn kannattajat olivat iloisia, kun äänestystulos selvisi. Kannattajat lauloivat kaduilla Ranskan kansallislaulua.
+
+Sarkozy sanoi, että Ranska on voittanut. Ei ole kuin yksi ainoa Ranska.
+
+Sarkozy kiitti äänestäjiä. Nyt hän yrittää saada puolelleen ne ihmiset, jotka eivät häntä äänestäneet. Hän lupasi olla koko kansan presidentti.
+
+Nyt mietitään miten hän onnistuu lupauksessaan.
+
+(Dosentti Henri Vogt Helsingin yliopistosta)
+
+Presidentin vaalit kiinnostivat ranskalaisia. Monet ranskalaiset kävivät äänestämässä. Ã„änestysprosentti oli 85 prosenttia.
+
+* * *
+
+Virossa muistetaan toisen maailmansodan sankareita.
+
+Virossa muistetaan tiistaina sotilaita, jotka kuolivat toisessa maailmansodassa. Juhliin kuuluvat esimerkiksi kukkaseppeleet, joita viedään sotilashautausmaalle. Hautausmaalla on paljon virolaisten sotilaiden hautoja.
+
+Hautausmaalla on nyt myös patsas, joka esittää neuvostoliittolaista sotilasta. Patsaan siirtäminen pois Viron pääkaupungin Tallinnan keskusta on aiheuttanut mellakoita kaupungissa. Viron venäläiset eivät halunneet, että patsas siirretään hautausmaalle.
+
+Keskiviikkona Viron venäläisillä on muistopäivä, jossa he muistavat neuvostoliittolaisia sotilaita, jotka kuolivat toisessa maailmansodassa.
+
+Vanha tapa on, että venäläiset vievät kukkia sotilaspatsaalle, joka nyt on siirretty sotilashautausmaalle.
+
+Poliisi on varautunut levottomuuksiin Virossa. Se tehostaa valvontaa ja turvatoimia.
+
+* * *
+
+Venäjältä tuli perjantaina Suomeen moldovalaisia miehiä, jotka hakevat turvapaikkaa Suomesta. Miehet tulivat Suomeen ilman lupaa. He ovat kertoneet, että he lähtivät hakemaan töitä Schengen -maista. Schengen-maihin kuuluvat melkein kaikki Euroopan maat.
+
+Suomen rajavartijat ovat kuulustelleet miehiä viikonloppuna. Heitä epäillään rikoksesta. He ovat ylittäneet kahden valtion rajan ilman lupaa. Kuulusteluissa miehet eivät myönnä, että he ovat rikkoneet lakia.
+
+Tänä vuonna Suomen ja Venäjän raja on ylitetty kolme kertaa ilman lupaa. Kaksi ihmistä on tullut Suomeen ilman lupaa Venäjältä. Rajalla on myös otettu kiinni venäläismies, joka yritti mennä takaisin Venäjälle ilman lupaa.
+
+* * *
+
+Ruotsin jääkiekkomaajoukkue voitti Suomen joukkueen sunnuntaina jääkiekon MM-kilpailuissa Moskovassa. Ruotsi voitti Suomen numeroin 1 - 0. Ruotsi teki maalin ottelun ensimmäisessä erässä.
+
+Suomi pelaa seuraavan kerran keskiviikkona tai torstaina. Suomi pelaa Kanadaa tai USA:ta vastaan. Jos Suomi häviää, silloin joukkue ei enää pelaa tämän vuoden MM-kisoissa. Joukkue putoaa jatkopeleistä.
+
+(Jääkiekkoilija Mikko Koivu)
+
+Suomi on voittanut yhden kerran maailmanmestaruuden jääkiekossa. Vuonna 1995 Suomi voitti Ruotsin loppuottelussa numeroin 4 - 1.

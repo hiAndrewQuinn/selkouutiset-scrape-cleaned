@@ -1,0 +1,11 @@
+# Torstai 17.4.2008 (radio)
+
+Tässä torstain Selkouutiset, studiossa on Jari Nyman.
+
+Keskusrikospoliisi kertoi torstaina uutta tietoa Jokelan koulusurmista. Pekka-Eric Auvinen surmasi eli tappoi marraskuun seitsemäs päivä yhdeksän ihmistä Jokelan koulukeskuksessa. Poliisi sanoo, että 18-vuotias ampuja suunnitteli surmaa jo maaliskuussa. Poliisi sanoo, että Auvisella ei ollut rikostovereita. Auvinen teki surmat yksin. Poliisi ei ole löytänyt surmille motiivia. Tutkimuksissa on selvinnyt, että 18-vuotiasta ampujaa oli kiusattu koulussa kauan. Koulukiusaus oli alkanut, kun Auvinen oli 10-vuotias.
+
+Tampereen poliisi epäilee, että kaksi ihmistä on kuollut Nokian kaupungin vesikriisin takia. Kaupungin vesijohtoihin pääsi marraskuun alussa vahingossa jätevettä. Jätevedessä oli bakteereja, jotka aiheuttivat esimerkiksi ripulia ja oksentelua. Tuhannet ihmiset sairastuivat. Poliisi on tutkinut seitsemän kuolemantapausta. Tutkimuksissa on selvinnyt, että Nokian vesijohtoihin päässyt jätevesi on voinut aiheuttaa kaksi kuolemaa.
+
+Matkapuhelinyhtiö Nokia kertoi torstaina alkuvuoden tuloksesta. Nokian tulos oli parempi kuin vuoden 2007 alussa, ja yhtiön liikevaihto kasvoi. Sijoittajat kuitenkin pelästyivät, koska Nokia sanoi, että epävarmuus kasvaa maailmantaloudessa. Nokia ennusti myös, että kännykkämarkkinat eivät kasva, vaan pienenevät tänä vuonna. Nokian markkinaosuus supistui tammi-maaliskuussa 40 prosentista 39 prosenttiin. Myös kännyköiden keskihinta putosi alaspäin. Moni sijoittaja pelästyi ja myi Nokian osakkeita. Nokian osake painui torstaina Helsingin pörssissä yli 13 prosenttia miinukselle.
+
+Pakolaisten määrä on kasvanut. Monet ihmiset ovat pakolaisia, vaikka he elävät kotimaassa. Kotimaassa elää nyt enemmän pakolaisia kuin edellisten 10 vuoden aikana. Norjan pakolaisneuvosto sanoo, että vuonna 2007 yli 26 miljoonaa ihmistä pakeni omasta kodista väkivallan takia. Pakolaisten määrä kasvoi nopeasti Irakissa, Kongossa ja Somaliassa. Eniten uusia pakolaisia oli Sudanissa, jossa lähes kuusi miljoonaa ihmistä lähti omasta kodista, koska he pelkäsivät väkivaltaa.

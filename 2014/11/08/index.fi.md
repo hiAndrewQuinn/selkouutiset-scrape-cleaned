@@ -1,0 +1,53 @@
+# Lauantai 8.11.2014
+
+Työttömyyskorvauksen ehdot ehkä muuttuvat. Keskustan puheenjohtaja Juha Sipilä haluaa vähentää virkamiesten määrää. Saksalaiset juhlivat Berliinin muurin murtumista. Isänpäivän sää on pilvinen ja harmaa.
+
+## Työttömän täytyy pian ottaa työtä myös kaukaa
+
+![Lappeenrannan rautatieasema](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7446360)
+
+Avaa kuvien katselu
+
+Työpaikka voi löytyä yli 80 kilometrin päästä. Kuva: Yle
+
+Työttömyyskorvauksen ehdot ehkä muuttuvat. Työttömän täytyy tulevaisuudessa ehkä ottaa työtä myös pitkän matkan päästä. Nykyään työtön voi kieltäytyä työpaikasta, johon on matkaa yli 80 kilometriä.
+
+Tulevaisuudessa työttömän on ehkä pakko ottaa työpaikka myös kaukaa, jos työmatkat eivät kestä yli kolme (3) tuntia päivässä. Työmatka voi olla yli 80 kilometriä. Työpaikalle pitää kuitenkin päästä julkisella liikenteellä, esimerkiksi junalla tai bussilla.
+
+Tarkoitus on, että uudet ehdot tulevat voimaan vuoden 2015 alussa.
+
+## Keskustan Sipilän mielestä virkamiehiä on liikaa
+
+![Juha Sipilä TV1:n Ykkösaamussa vieraana 8. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7609735)
+
+Avaa kuvien katselu
+
+Keskustan puheejohtaja Juha Sipilä oli Ykkösaamu-ohjelman vieraana lauantaina. Kuva: Yle
+
+Keskustapuolueen puheenjohtaja Juha Sipilä haluaa vähentää virkamiesten määrää. Sipilän mielestä valtiolla ja kunnilla on liikaa työntekijöitä.
+
+Sipilä sanoo, että valtio ja kunnat voivat vähentää työntekijöitä, jos työntekijöiden ei tarvitse tehdä turhia tehtäviä. Sipilän mielestä esimerkiksi sairaanhoitajien täytyy nykyään kirjoittaa turhia raportteja. Sipilä uskoo myös, että tietokoneet voivat hoitaa joitakin tehtäviä. Sipilän mielestä valtion ja kuntien ei tarvitse palkata uusia työntekijöitä yhtä paljon, kuin heitä jää eläkkeelle.
+
+Keskustan puheenjohtaja Juha Sipilä kertoi ajatuksistaan TV1:n Ykkösaamu-ohjelmassa. Keskusta on nyt mielipidemittausten suurin puolue. Jos keskusta voittaa vaalit ensi keväänä, keskusta voi päästä hallitukseen ja Juha Sipilästä voi ehkä tulla pääministeri. Nyt keskusta on oppositiossa.
+
+## Berliinin muuri murtui 25 vuotta sitten
+
+Kuva: Reuters/BBC
+
+Saksan pääkaupungissa Berliinissä juhlitaan tänä viikonloppuna. Saksalaiset juhlivat, koska Berliinin muuri murtui tasan 25 vuotta sitten. Kun muuri murtui, ihmiset pääsivät vapaasti liikkumaan Itä-Berliinin ja Länsi-Berliinin välillä.
+
+Itä-Saksa eli DDR rakensi Berliinin muurin vuonna 1961. DDR ei halunnut päästää asukkaitaan Länsi-Berliiniin, joka oli osa Länsi-Saksan valtiota. Itä-Berliini oli kommunistisen DDR:n pääkaupunki.
+
+Berliinin muuri murtui marraskuun 9. päivä vuonna 1989, koska DDR:n asukkaat halusivat demokratiaa ja oikeutta matkustaa vapaasti. Itä-Saksa ja Länsi-Saksa yhdistyivät vuonna 1990. Nyt kaikki saksalaiset juhlivat muurin murtumista yhdessä.
+
+## Isänpäivän sää on harmaa
+
+![Suomen lippu liehuu lipputangossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5885300)
+
+Avaa kuvien katselu
+
+Isänpäivä on liputuspäivä. Kuva: YLE
+
+Sunnuntaina on isänpäivä. Isänpäivänä kaupat ovat kiinni.
+
+Isänpäivän sää on pilvinen ja harmaa. Myös vettä voi vähän sataa.

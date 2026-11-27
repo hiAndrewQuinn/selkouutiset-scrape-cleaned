@@ -1,0 +1,71 @@
+# Perjantai 22.5.2015
+
+Kauppoihin jää paljon ruokaa, jolle ei löydy ostajaa. Helsingissä on ulkosuomalaisparlamentin kokous. Pariisin Eiffel-torni oli perjantaina kiinni taskuvarkaiden takia. Yle Uutisten internet-sivut saivat esteettömyys-leiman. Viikonlopun sää on vaihtelevaa.
+
+## Kaupat eivät halua heittää ruokaa roskiin
+
+![Kaupan hedelmä- ja vihanneosasto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8012078)
+
+Avaa kuvien katselu
+
+Kaupat antavat avustusjärjestöille ruokaa, joka on menossa vanhaksi. Kuva: Vilja Vehkaoja / Lehtikuva
+
+Suomessa kauppoihin jää paljon ruokaa, jolle ei löydy ostajaa. Kaupat eivät kuitenkaan halua heittää suuria määriä ruokaa roskiin. Usein kaupat myyvät alennuksella ruokaa, joka on menossa vanhaksi.
+
+Kaupat antavat ruokaa myös järjestöille, jotka auttavat köyhiä. Järjestöt kertovat, että ne saavat kaupoilta melko paljon ruokaa. Vanhasta leivästä tehdään Suomessa myös polttoainetta.
+
+Ranskassa suuret supermarketit eivät saa heittää ruokaa roskiin enää ollenkaan.
+
+## Ulkosuomalaisten oma parlamentti kokoontuu
+
+![Suomalainen koulu Espanjassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7455850)
+
+Avaa kuvien katselu
+
+Esimerkiksi Espanjassa asuu niin paljon suomalaisia, että heillä on oma koulu. Kuva: Jyrki Palo/Yle
+
+Helsingissä on tänä viikonloppuna ulkosuomalaisparlamentin kokous. Ulkosuomalaisparlamentti tekee työtä ulkosuomalaisten hyväksi. Ulkosuomalaisia ovat ne suomalaiset, jotka asuvat ulkomailla.
+
+Ulkosuomalaisparlamentin kokoukseen osallistuu yli 200 ulkosuomalaista eri maista. He miettivät esimerkiksi, miten Suomi voi parantaa ulkosuomalaisten mahdollisuuksia äänestää Suomen vaaleissa ja opiskella Suomessa.
+
+Ulkosuomalaisparlamentti perustettiin vuonna 1997. Sen toimintaan osallistuu yli 500 ulkosuomalaisten järjestöä melkein 40 maasta.
+
+Ulkosuomalaisparlamentin suurin saavutus on se, että Suomi hyväksyi kaksoiskansalaisuuden vuonna 2003. Sen jälkeen suomalainen ei ole enää menettänyt Suomen kansalaisuutta, vaikka hän on ottanut myös jonkin toisen maan kansalaisuuden.
+
+## Eiffel-torni suljettiin
+
+![Eiffel-torni pimeänä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7729560)
+
+Avaa kuvien katselu
+
+Eiffel-torni oli perjantaina kiinni taskuvarkaiden takia. Kuva: Jose Rodriguez / EPA
+
+Ranskan pääkaupungin Pariisin kuuluisa Eiffel-torni on ollut perjantaina kiinni. Eiffel-torni suljettiin taskuvarkaiden takia. Eiffel-torni on hyvä paikka varkaille, koska tornissa käy joka päivä tuhansia turisteja.
+
+Taskuvarkaiden määrä on kasvanut niin paljon, että Eiffel-tornin työntekijät päättivät lähteä pois työpaikalta. Tilanne oli harvinainen. Eiffel-torni on tavallisesti auki joka päivä.
+
+Eiffel-torni avattiin uudelleen perjantaina illalla.
+
+## Yle Uutisten verkkosivut ovat esteettömiä
+
+![Esteettömyys huomioitu -leiman logo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7975505)
+
+Avaa kuvien katselu
+
+Yle Uutisten verkkosivuilla on esteettömyys-leima.
+
+Yle Uutisten internet-sivut ovat saaneet tänä keväänä esteettömyys-leiman. Ne ovat Suomen ensimmäiset verkkosivut, joilla on esteettömyys-leima.
+
+Esteettömyys tarkoittaa esimerkiksi sitä, että lukija voi vaihtaa tekstiin suuremmat kirjaimet. Näkövammaisilla on myös mahdollisuus lukea esteettömiä sivuja laitteilla, jotka muuttavat kirjoituksen puheeksi.
+
+## Lauantaina sataa, sunnuntaina paistaa
+
+![Sauvakävelijöitä metsätiellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7443630)
+
+Avaa kuvien katselu
+
+Sunnuntaista tulee hyvä ulkoilupäivä Etelä-Suomessa. Kuva: Derrick Frilund / Yle
+
+Viikonlopun sää on vaihtelevaa. Lauantaina sataa vettä ja tuulee kovaa eri puolilla Suomea.
+
+Sunnuntai on melko aurinkoinen päivä etelässä. Pohjoisessa voi kuitenkin sataa vettä myös sunnuntaina.

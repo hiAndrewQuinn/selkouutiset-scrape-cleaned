@@ -1,0 +1,57 @@
+# Tiistai 11.8.2015
+
+Kreikka pääsi sopuun lainoista. Venäjän talous kuralla. Ruotsissa tutkitaan puukotusta Ikeassa. Vinot postilaatikot saivat omat fanisivut Taiwanissa.
+
+## Kreikka saa uuden lainan
+
+![Kreikan talousministeri Euclid Tsakalotos ennen maan lainapakettia käsittelevän kokouksen alkua Ateenassa 11. elokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8218308)
+
+Avaa kuvien katselu
+
+Kreikan talousministeri Euclid Tsakalotos. Kuva: Olivier Hosler / EPA
+
+Kreikka on päässyt sopuun uudesta lainaohjelmasta. Kreikka saa lainaa 85 miljardia euroa kolmen vuoden aikana. Kreikan pankkeja tuetaan heti.
+
+Sopu on alustava, koska poliittista päätöstä kolmannesta (3.) lainaohjelmasta ei ole vielä tehty. Kreikan parlamentti käsittelee sopimusta keskiviikkona tai torstaina ja euromaiden kokous perjantaina. Suomen hallitus käsittelee lainaa keskiviikkona.
+
+Lainasta ovat neuvotelleet Kreikka, Euroopan komissio, Euroopan keskuspankki ja Kansainvälinen valuuttarahasto IMF. Kreikka tarvitsee nopeasti rahaa, koska Kreikan pitää maksaa seuraava laina takaisin Euroopan keskuspankille ensi viikolla.
+
+## Venäjän talous on kuralla
+
+![Stockmannin myymälän sisäänkäynti Venäläisessä ostoskeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8104395)
+
+Avaa kuvien katselu
+
+Venäläiset eivät enää kuluta rahaa ostoksiin.  Kuva: Martti Kainulainen / Lehtikuva
+
+Venäjän talous on pahoissa ongelmissa. Talous pieneni keväällä melkein viisi (5) prosenttia. Asiantuntijat uskovat, että pudotus voi olla vieläkin suurempi, kun luvut tarkentuvat.
+
+Venäjä sanoo, että maa on kärsinyt talouspakotteista. Pakotteet ovat aiheuttaneet 20 miljardin dollarin vahingon. Venäjän rupla on myös heikentynyt. Asiantuntija sanoo, että Venäjän talouskriisi on vaikea ja pahin voi olla vielä edessä. Varsinkin pankeille voi tulla lisää ongelmia.
+
+Yhdysvallat ja EU ovat määränneet talouspakotteita Venäjää vastaan, koska länsimaat eivät hyväksy Venäjän toimintaa Ukrainassa.
+
+## Ruotsin Ikean puukotusta tutkitaan
+
+![Västeråsin Ikea 10. elokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8218266)
+
+Avaa kuvien katselu
+
+Ruotsin poliisi tutkii Ikean puukotusta Västeråsissa.  Kuva: Jonathan Nackstrand / Lehtikuva
+
+Poliisi selvittää Ruotsissa puukotusta Ikea-tavaratalossa. Kaksi (2) ihmistä kuoli ja yksi (1) haavoittui maanantaina puukotuksessa Västeråsin Ikeassa. Uhrit olivat äiti ja poika, joista äiti oli 55-vuotta vanha ja poika 28-vuotta vanha. He olivat kotoisin Pohjois-Ruotsista.
+
+Poliisi on pidättänyt kaksi miestä. Vanhempi hyökkääjä on 35-vuotias ja nuorempi vain 23-vuotias nuori mies. Vanhempi mies loukkaantui myös itse välikohtauksessa.
+
+Molemmat miehet asuivat samassa vastaanottokeskuksessa ja ovat kotoisin Eritreasta.
+
+Poliisi ei vielä tiedä, miksi miehet hyökkäsivät äidin ja pojan kimppuun. Uhrien ja hyökkääjien välillä ei ole löydetty mitään yhteyksiä.
+
+## Vinot postilaatikot hitti Aasiassa
+
+![Taiwanilainen postimies poseeraa naisen kanssa kuvaa varten taifuuni Soudelorin vahingoittamien postilaatikoiden vierellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8217451)
+
+Avaa kuvien katselu
+
+Vinot postilaatikot ovat uusi turistihitti Taiwanissa.  Kuva: Henry Lin / EPA
+
+Vinoista postilaatikoista on tullut suuri hitti Taiwanissa ja Kiinassa. Kaksi (2.) postilaatikkoa vääntyi vinoon, kun taifuuni Soudelor pudotti mainoskyltin alas katolta. Nyt ihmiset ottavat kuvia itsestään postilaatikoiden vieressä.

@@ -1,0 +1,57 @@
+# Keskiviikko 1.4.2015
+
+Jäänmurtajalakko loppuu. Eduskuntavaalit kiihdyttävät puheita. Chilessä on rajuja tulvia. Poliisi julkaisi vitsin aprillipäivänä.
+
+## Jäänmurtajalakko loppuu
+
+![Jäänmurtajat Voima (edessä), Urho (kesk.) ja Sisu laiturissa Katajanokalla Helsingissä 27. maaliskuuta 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7897809)
+
+Avaa kuvien katselu
+
+Valtakunnansovittelija on ilmoittanut, että jäänmurtajalakkoon on saatu sovinto.  Kuva: Jussi Nukari / Lehtikuva
+
+Jäänmurtajalakko päättyy. Valtakunnansovittelija Minna Helle on kertonut twitter-viestissä, että neuvotteluissa on syntynyt sovinto. Lakon loppuminen tarkoittaa, että myös muu laivaliikenne toimii normaalisti pääsiäisenä.
+
+Vielä päivällä oli mahdollista, että esimerkiksi suuri osa matkustajalaivoista jää satamiin, koska lakon piti laajentua huomenna. Suomen hallitus julkaisi neuvottelijoille päivällä vetoomuksen, että lakko saadaan loppumaan.
+
+## Eduskuntavaalit kiihdyttävät puheita
+
+![Perussuomalaisten kansanedustaja Pentti Oinonen eduskunnan täysistunnossa Helsingissä 5. maaliskuuta 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7903352)
+
+Avaa kuvien katselu
+
+Keskusta syyttää perussuomalaisten kansanedustaja Pentti Oinosta väärän tiedon levittämisestä.  Kuva: Mikko Stig / Lehtikuva
+
+Eduskuntavaalit lähestyvät ja poliitikkojen puheet koventuvat.
+
+Keskusta on esimerkiksi suuttunut perussuomalaisille. Se sanoo, että perussuomalaisten kansanedustaja Pentti Oinonen on levittänyt keskustan puheenjohtajasta väärää tietoa.
+
+Oinonen on sanonut, että puheenjohtaja Sipilä on saanut kymmeniä miljoonia euroja jätevesisääntöjen takia. Keskustan puoluesihteeri Timo Laaninen sanoo, että puheenjohtaja Sipilä ei ole saanut hyötyä jätevesisäännöistä.
+
+Laaninen sanoo, että perussuomalaiset levittävät vääriä tietoja muun muassa vaalikojuilla.  Oinonen sanoo, että hän nojaa perussuomalaisten laskelmiin.
+
+## Chilessä on rajuja tulvia
+
+Pohjoisessa Chilessä on erittäin pahoja tulvia. Tulvissa on kuollut ja kadonnut useita kymmeniä ihmisiä. Lähes 30 000 ihmistä on menettänyt kotinsa.
+
+Pohjoinen Chile on yleensä kuivaa aluetta. Tänä vuonna siellä on kuitenkin satanut vettä niin paljon, että viimeksi yhtä rankkoja sateita on saatu 80 vuotta sitten.
+
+Valtava sademäärä muutti joet ja tiet suuriksi koskiksi.
+
+Atacaman alue on maailman kuivimpia, mutta alueella satoi päivässä kymmenen kertaa enemmän kuin tavallisesti vuodessa. Kuva: Reuters-TV
+
+## Poliisi julkaisi vitsin aprillipäivänä
+
+![Valvontalokki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7903021)
+
+Avaa kuvien katselu
+
+Poliisilokilla on päässä videokamera ja kainalossa puhelin.  Kuva: Suomen poliisi
+
+Tänään on ollut huhtikuun ensimmäinen päivä, joka on myös aprillipäivä. Aprillipäivänä ihmiset voivat puijata toisiaan. Myös jotkut tiedotusvälineet julkaisevat aprillipäivän juttuja. Ne näyttävät uutisilta mutta eivät ole kuitenkaan totta.
+
+Tänä vuonna esimerkiksi Suomen poliisi teki aprillipilan. Se kertoi internetissä, että Suomen poliisi saa omat ilmavoimat. Poliisi kertoi, että se lähettää tänään 250 poliisilokkia valvomaan turvallisuutta.
+
+Poliisi vitsaili, että uusi poliisi on nimeltään polokki. Polokit valvovat ensin esimerkiksi liikennettä, koska ne voivat istua kameratolppien päällä.
+
+Myöhemmin on tarkoitus, että lokit tekevät myös vaativia tehtäviä. Silloin niille voidaan antaa aseeksi esimerkiksi kaasusumutin tai hapansilakka. Hapansilakka haisee voimakkaasti.

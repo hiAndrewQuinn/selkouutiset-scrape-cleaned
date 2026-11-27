@@ -1,0 +1,57 @@
+# Torstai 7.5.2015
+
+Suomi saa todennäköisesti kolmen (3) puolueen hallituksen. Keskusta, perussuomalaiset ja kokoomus aloittavat hallitusneuvottelut. Turvapaikanhakijoiden määrä on kasvanut. Jäät sulivat merialueilta tänä vuonna aikaisin.
+
+## Hallitusneuvotteluissa on mukana kolme puoluetta
+
+![Vasemmalta, puolueiden puheenjohtajat, kokoomuksen Alexander Stubb, perussuomalaisten Timo Soini ja keskustan Juha Sipilä hallituspohjan tiedotustilaisuudessa eduskunnan Pikkuparlamentissa Helsingissä torstaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7979511)
+
+Avaa kuvien katselu
+
+Kokoomuksen puheenjohtaja Alexander Stubb, perussuomalaisten puheenjohtaja Timo Soini ja keskustan puheenjohtaja Juha Sipilä neuvottelevat uudesta hallituksesta. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Suomi saa todennäköisesti kolmen (3) puolueen hallituksen. Seuraavassa hallituksessa ovat todennäköisesti mukana keskusta, perussuomalaiset ja kokoomus. Ne alkavat neuvotella uudesta hallituksesta perjantaina.
+
+Keskustan puheenjohtaja Juha Sipilä kertoi torstaina, mitkä puolueet ovat mukana hallitusneuvotteluissa. Sipilä valitsi puolueet, koska keskusta voitti vaalit ja on nyt eduskunnan suurin puolue. Hallitusneuvotteluissa sovitaan, mitä uusi hallitus haluaa tehdä.
+
+Keskustan, perussuomalaisten ja kokoomuksen täytyy sopia myös ministerinpaikoista. Ehkä jo toukokuun aikana saadaan tietää, ketkä ovat Suomen uusia ministereitä. Varmaa on vain se, että Juha Sipilästä tulee pääministeri.
+
+## SDP ei pääse hallitukseen
+
+![Antti Rinne.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7979514)
+
+Avaa kuvien katselu
+
+SDP:n puheenjohtaja Antti Rinne oli pettynyt, koska SDP ei pääse hallitukseen. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Hallituksen ulkopuolelle eli oppositioon jää viisi (5) puoluetta. Suurin niistä on SDP eli sosiaalidemokraatit. Hallitukseen ei tule yhtään vasemmistopuoluetta, koska myös vasemmistoliitto jää oppositioon.
+
+Muut oppositiopuolueet ovat vihreät, ruotsalainen kansanpuolue ja kristillisdemokraatit. Ne ovat kaikki pieniä puolueita.
+
+## Turvapaikanhakijoiden määrä kasvaa
+
+![Turvapaikanhakijoita Joutsenon vastaanottokeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7042020)
+
+Avaa kuvien katselu
+
+Turvapaikanhakijoita on tullut Suomeen alkuvuonna paljon. Kuva: Tommi Parkkinen / Yle
+
+Turvapaikanhakijoiden määrä on kasvanut Suomessa. Noin 1350 ihmistä on hakenut turvapaikkaa Suomesta tänä vuonna huhtikuun loppuun mennessä. Määrä on selvästi suurempi kuin alkuvuonna 2014.
+
+Maahanmuuttovirasto arvioi, että tänä vuonna yhteensä jopa 5000 ihmistä hakee turvapaikkaa Suomesta. Suomen vastaanottokeskukset ovat nyt melkein täynnä. Tähän asti turvapaikanhakijoita on ollut yli 5000 vain vuonna 2009.
+
+Turvapaikanhakijat tulevat maista, joissa ei ole turvallista. Turvapaikanhakijoita tulee eniten Irakista, Somaliasta ja Kosovosta. Somalialaisten turvapaikanhakijoiden määrä on kasvanut paljon.
+
+## Talvi oli lyhyt Suomen merialueilla
+
+![Heikot jäät keväällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7915620)
+
+Avaa kuvien katselu
+
+Merellä oli tänä talvena vähemmän jäätä kuin tavallisesti. Kuva: Laura Valta / Yle
+
+Jäät ovat sulaneet Suomen merialueilta. Jäät sulivat tänä vuonna aikaisemmin kuin tavallisesti. Niin sanottu jäätalvi ei ole koskaan ennen loppunut Suomen merialueilla näin aikaisin.
+
+Jäätä oli tänä talvena myös vähän. Suomen merialueilla jäätä oli tänä talvena noin 50 000 neliökilometriä. Normaalin talven aikana jäätä on kolme (3) kertaa enemmän eli noin 150 000 neliökilometriä.
+
+Erikoista on myös se, että Suomen pohjoisin merialue eli Perämeri ei jäätynyt kokonaan. Tavallisesti Perämeri jäätyy talvella kokonaan. Edellisen kerran Perämeri oli osaksi sula eli ilman jäätä talvella 1930.

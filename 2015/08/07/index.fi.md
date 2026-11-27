@@ -1,0 +1,59 @@
+# Perjantai 7.8.2015
+
+Suomen valtio ostaa Talvivaaran kaivoksen. Nokian Renkaat aikoo vähentää työntekijöitä. Karvakaverit tuovat iloa lapsille ja vanhuksille. Viikonlopusta tulee lämmin.
+
+## Talvivaaran kaivoksen toiminta jatkuu
+
+![Talvivaaran bioliuotuskasoja ja metallitehdas.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7174903)
+
+Avaa kuvien katselu
+
+Talvivaaran metallikaivoksesta saadaan esimerkiksi nikkeliä. Kuva: Heikki Rönty / Yle 
+
+Suomen valtio ostaa Talvivaaran kaivoksen. Talvivaaran metallikaivos on Sotkamossa, ja se tuottaa esimerkiksi nikkeliä. Valtio haluaa, että työt Talvivaaran kaivoksella alkavat uudelleen jo syksyllä.
+
+Työt kaivoksella halutaan aloittaa nopeasti ympäristön takia. Talvivaaralla on isoja ja vaikeita ympäristöongelmia. Jos kaivosta ei hoideta oikein, ympäristöongelmat pahenevat.
+
+Syy vaikeaa tilanteeseen on se, että Talvivaaran kaivosfirman rahat loppuivat viime vuonna ja se teki konkurssin. Valtio ei ole löytänyt Talvivaaralle uutta omistajaa. Nyt valtio päätti ostaa Talvivaaran, niin että valtion firma Terrafame Mining voi jatkaa Talvivaaran toimintaa.
+
+Talvivaaran kaivoksen työntekijät ovat iloisia, että työt kaivoksella jatkuvat. Kaivokselle palkataan myös uusia työntekijöitä.
+
+## Nokian Renkaat vähentää työntekijöitä
+
+![Valmiita renkaita kuljetuslinjalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5284080)
+
+Avaa kuvien katselu
+
+Nokian Renkaat valmistaa autonrenkaita. Kuva: Antti Eintola / Yle
+
+Autonrenkaiden valmistaja Nokian Renkaat aikoo vähentää työntekijöitä. Työt loppuvat ehkä 150 työntekijältä. Nokian Renkaat vähentää työntekijöitä tehtaalta, joka on Nokialla Tampereen lähellä.
+
+Nokian Renkaat vähentää työntekijöitä, koska se aikoo valmistaa henkilöautonrenkaita vähemmän kuin ennen. Nokian Renkaat kertoo, että henkilöautonrenkaita ei osteta enää yhtä paljon kuin ennen. Myynti on pienentynyt esimerkiksi Venäjällä.
+
+## Karvakaverit tuovat iloa
+
+![Vilemon-aasi toimii lasten ja vanhusten karvakaverina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8209889)
+
+Avaa kuvien katselu
+
+Vilemon-aasi on karvakaveri, joka on vieraillut esimerkiksi vanhusten luona. Kuva: Lea Joutsensaari / Yle
+
+Lapset ja vanhukset saavat iloa karvakavereilta. Karvakaverit ovat esimerkiksi kissoja ja koiria. Ne vierailevat päiväkodeissa, kouluissa ja vanhainkodeissa.
+
+Karvakavereilla ja niiden omistajilla on oma yhdistys, jonka nimi on Suomen Karva-Kaverit. Esimerkiksi Marjaana Arponen ja hänen Vilemon-aasinsa ovat mukana yhdistyksen toiminnassa. Vilemon on hyvä karvakaveri, koska se pitää ihmisten seurasta.
+
+Marjaana Arponen kertoo, että Vilemon on käynyt esimerkiksi vanhainkodeissa. Vilemon kiinnostaa monia vanhuksia, jotka eivät ole ennen tavanneet aasia. Vilemonin vierailu tuo vaihtelua ja piristystä vanhusten päivään.
+
+## Viikonlopun sää on lämmin
+
+![Auringonottajia kalliolla ja laiturilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5371055)
+
+Avaa kuvien katselu
+
+Lauantaina voi sataa, mutta muuten viikonloppu on kaunis. Kuva: Yle
+
+Viikonloppu on alkanut lämpimässä säässä. Perjantai oli etelässä hellepäivä, eli lämpöä mitattiin jopa yli 25 astetta.
+
+Lauantaina sataa vettä, mutta päivä on lämmin. Sunnuntai on kuivempi ja aurinkoisempi, mutta myös vähän kylmempi kuin lauantai.
+
+Ensi viikon alussa sää on lämmin ja melko kuiva.

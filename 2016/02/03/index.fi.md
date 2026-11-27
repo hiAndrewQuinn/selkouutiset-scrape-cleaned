@@ -1,0 +1,71 @@
+# Keskiviikko 3.2.2016 (radio)
+
+Presidentti Niinistö: Kansainväliset pakolaissäännöt ovat liian löysät. EU lupaa muuttaa sääntöjä, jos Britannia pysyy mukana unionissa. Venäjän viranomaiset: Kaatopaikalta ei valu myrkkyjä. Saimaannorpalle tehdään lumikasoja. Päivä pitenee nopeasti.
+
+## Presidentti arvosteli pakolaissääntöjä
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8645119)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Yle
+
+Suomen eduskunnan kevätkausi on alkanut. Eduskunnassa on 200 kansanedustajaa. He päättävät Suomen lait.
+
+Eduskunnalla oli päivällä avajaiset, joissa puhui presidentti Sauli Niinistö. Niinistö sanoi, että kansainväliset pakolaissäännöt ovat liian löysät. Niinistö sanoi, että Eurooppaan pääsee jokainen, joka osaa sanoa rajalla sanan "turvapaikka". Kun Eurooppaan tulee tosi paljon ihmisiä, Eurooppa ei voi auttaa kaikkia, presidentti Niinistö sanoi.
+
+## EU haluaa pitää Britannian mukana
+
+![Tusk ja Cameron kättelevät Britannian pääministerin virka-asunnon Downing Street 10:n oven edessä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8641712)
+
+Avaa kuvien katselu
+
+Eurooppa-neuvoston puheenjohtaja Donald Tusk (vas.) ja Britannian pääministeri David Cameron. Kuva: Facundo Arrizabalaga / EPA
+
+Euroopan unioni lupaa muuttaa joitakin sääntöjä, jos Britannia pysyy mukana unionissa.
+
+EU lupaa esimerkiksi, että unionin jäsenmaan ei ole pakko noudattaa EU:n lakia. Britannia saa myös maksaa huonompia sosiaalietuja niille, jotka tulevat Britanniaan töihin toisesta EU-maasta.  
+
+Osa Britannian poliitikoista sanoo, että EU:n täytyy tarjota enemmän. Britannian kansa äänestää ensi kesänä, pysyykö Britannia EU:ssa vai eroaako se siitä.     
+
+## Venäjän viranomaiset: Ei myrkkyjä mereen
+
+![Kuvakaappaus Fotankan nettisivuilta jossa valokuva kaatopaikasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8642204)
+
+Avaa kuvien katselu
+
+Myrkyistä kertoi venäläinen verkkolehti Fontanka.  Kuva: fontanka.ru
+
+Venäjän viranomaiset sanovat, että kaatopaikalta Pietarin läheltä ei valu myrkkyjä. 
+
+Kaatopaikalla on kaksi miljoonaa tonnia öljy- ja kemikaalijätettä. Ympäristöjärjestöt sanovat, että kaatopaikalta valuu myrkkyjä Suomenlahteen. Venäjän viranomaiset kävivät katsomassa kaatopaikkaa keskiviikkona. He sanovat, että kaatopaikalta ei pääse myrkkyjä Neva-jokeen, jonka vettä Pietarin kaupunki käyttää.
+
+Neva-joen vedet tulevat lopuksi Suomenlahteen.   
+
+## Norppa tarvitsee ihmisten apua
+
+![Norppa ja kuutti elokuvassa Järven tarina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8592598)
+
+Avaa kuvien katselu
+
+Norpan lapsen nimi on kuutti. Kuva: Juha Taskinen
+
+Saimaa-järvellä ihmiset tekevät lumikasoja, joihin saimaannorpat voivat tehdä poikasia. 
+
+Lunta on satanut vähän, ja siksi saimaannorpat tarvitsevat ihmisten apua. Norpat kaivavat lumikasaan luolan ja synnyttävät sinne poikasen.   
+
+Saimaannorppa on hylje, joka on vaarassa kadota maailmasta. Koko maailmassa on vain 300 saimaannorppaa, kaikki Saimaa-järvessä. Saimaannorpat saavat noin 60 poikasta vuodessa. Paljon poikasia kuolee, kun ne tarttuvat kalaverkkoihin.  
+
+## Päivä pitenee, yö lyhenee
+
+![Keravan juna-asema aamuauringosssa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8644209)
+
+Avaa kuvien katselu
+
+Aurinko nousee joka aamu aikaisemmin. Kuva: Eija Kontio / Lehtikuva
+
+Päivä pitenee helmikuussa nopeasti.
+
+Pohjois-Suomessa päivä pitenee yli tunnin viikossa, etelässä puoli tuntia viikossa. Ihan pohjoisessa aurinko on nyt ylhäällä noin 5 tuntia ja etelässä 8 tuntia. 
+
+Päivä pitenee ja yö lyhenee koko kevään, kunnes tulee kesäkuun 20:s päivä. Sen jälkeen päivä alkaa taas lyhentyä.

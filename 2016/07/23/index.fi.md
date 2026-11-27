@@ -1,0 +1,71 @@
+# Lauantai 23.7.2016 (radio)
+
+Saksassa kuoli 10 ihmistä, kun nuori mies ampui ostoskeskuksessa. Partiolaisten Roihu-leirille osallistuu 17 000 ihmistä. Helsingin poliisi on tyytyväinen segwayhin. Suomen urheilijat kilpailevat viikonloppuna Kalevan kisoissa. Lauantaina mitattiin tämän kesän uusi lämpöennätys.
+
+## Ampumistapaus Saksassa
+
+![Ryhmä poliisin erikoisjoukkoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9046352)
+
+Avaa kuvien katselu
+
+Ampumistapaus aiheutti suuren poliisioperaation. Kuva: Andreas Gebert / EPA
+
+Saksassa on ollut paha ampumistapaus. Siinä kuoli 10 ihmistä. Loukkaantuneita on monta.
+
+Ampuja oli nuori mies. Hän ampui 9 ihmistä Münchenissä, Etelä-Saksassa. Mies ampui myös itsensä.
+
+Ampumistapaus sattui müncheniläisessä ostoskeskuksessa. Ostoskeskuksessa oli paljon ihmisiä, koska oli perjantai-ilta. Melkein kaikki kuolleet olivat nuoria.
+
+Ampuja oli 18-vuotias koululainen. Hän syntyi ja asui Saksassa, perheellä oli iranilainen tausta. Vielä ei tiedetä, miksi hän ampui ihmisiä. Miehellä oli psyykkisiä terveysongelmia, ja hän oli kiinnostunut ampumistapauksista.
+
+## Partiolaisten leiri
+
+![Partioleiriläisiä kännykkäkuvan otossa Piiru&#39;14-leirillä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8656564)
+
+Avaa kuvien katselu
+
+Partioleirillä saa ystäviä. Kuva: Lounais-Suomen Partiopiiri / Iisa Kinnunen
+
+Etelä-Suomeen Evon metsiin on rakennettu iso leiri. Leirin nimi on Roihu. Leirillä asuu noin 17 000 eri-ikäistä ihmistä viikon ajan. He ovat partiolaisia.
+
+Partio on maailman suurin nuorisoliike ja myös Suomessa suosittu harrastus. Partiossa lapset ja nuoret oppivat tekemään asioita yhdessä.
+
+Partiolaiset ovat rakentaneet myös Evon leirin yhdessä. Leirille on rakennettu sairaala, päiväkoti ja radioasema. Kun leiri on ohi, partiolaiset myös purkavat ja siivoavat kaiken pois.
+
+Suomen partiolaiset ovat saaneet leirille paljon vieraita myös ulkomailta. Vieraita on 45 maasta, heitä on yhteensä noin 3000.
+
+## Poliisin segwayt
+
+Poliisi esitteli uusinta kulkupeliään toukokuussa 2016. Kuva: Antti Kolppo / Yle
+
+Helsingin poliisi on tyytyväinen segwayhin. Poliisi on kulkenut segwayllä Helsingissä tänä kesänä.
+
+Segwayssä on 2 pyörää, ja se kulkee sähköllä. Kuljettaja seisoo segwayssä.
+
+Segwayllä kulkeminen on nopeampaa kuin käveleminen. Sillä on helppo liikkua myös puistoissa ja ihmisten keskellä. Segwayssä poliisi kuulee paremmin, mitä tapahtuu, kuin autossa.
+
+Myös helsinkiläiset ovat tykänneet poliiseista, jotka liikkuvat segwayllä.
+
+Helsingin poliisilla on nyt 4 segwaytä. Jos tämän kesän kokeilu onnistuu hyvin, poliisi ostaa niitä ehkä lisää.
+
+## Kalevan kisat
+
+![Kalevan kisojen kävely 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9043061)
+
+Avaa kuvien katselu
+
+Urheilijat tarvitsevat vettä kuumassa säässä. Kuva: Tomi Hänninen
+
+Pohjois-Suomessa Oulussa on tänä viikonloppuna iso urheilutapahtuma, Kalevan kisat. Kalevan kisat ovat yleisurheilun Suomen mestaruuskilpailut.
+
+Suomalaiset juoksijat, hyppääjät ja heittäjät kilpailevat tänä vuonna kuumassa säässä. Oulussa on ollut hellettä, eli lämpöä on ollut yli 25 astetta.
+
+## Lämmin lauantai
+
+![Mies makaa laiturilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8983222)
+
+Avaa kuvien katselu
+
+Heinäkuun helle. Kuva: Kaisa Siren / AOP
+
+Lauantaina mitattiin tämän kesän uusi lämpöennätys. Uusi ennätys on 29,1 astetta. Se mitattiin Lapissa Utsjoella.

@@ -1,0 +1,55 @@
+# Lauantai 7.2.2015
+
+Ukrainaan yritetään saada rauha. Kaikille kehitysvammaisille halutaan oma koti. Kirkossa voi kuulla myös selkokieltä. Viikonloppuna on Laina-myrsky.
+
+## Ukrainan kriisistä neuvotellaan
+
+![Angela Merkel, Vladimir Putin ja Francois Hollande tapaavat Moskovassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7788981)
+
+Avaa kuvien katselu
+
+Saksan liittokansleri Angela Merkel, Venäjän presidentti Vladimir Putin ja Ranskan presidentti François Hollande neuvottelivat perjantaina Moskovassa. Kuva: Michael Klimentjev / AFP
+
+Ukrainaan yritetään saada rauha. Saksan, Ranskan ja Venäjän johtajat neuvottelivat Ukrainan tilanteesta perjantaina Moskovassa. He jatkavat neuvotteluja puhelinkokouksella sunnuntaina. Puhelinkeskusteluun osallistuu myös Ukrainan presidentti.
+
+Saksan liittokansleri Angela Merkel sanoo, että Ukrainan kriisiä ei voida ratkaista sodalla. Eurooppa haluaa tehdä yhteistyötä Venäjän kanssa, Merkel sanoo. Hän haluaa kuitenkin pitää huolta siitä, että Ukraina saa päättää itse omista asioistaan.
+
+Ukrainan kriisi on jatkunut jo kauan. Itä-Ukrainan kapinalliset taistelevat Ukrainan armeijaa vastaan. Kapinalliset haluavat, että Itä-Ukraina eroaa Ukrainasta. Venäjä tukee kapinallisia. Itä-Ukrainan asukkaiden elämä on taistelujen keskellä vaikeaa.
+
+## Kaikille kehitysvammaisille halutaan oma koti
+
+![Mia Korhonen istuu palvelukeskuksessa, oman huoneensa sängyllä ja pitää sylissä rakkaita korsite-esinettä, joutsenmaljakkoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7783986)
+
+Avaa kuvien katselu
+
+Miia Korhonen asuu Kuusanmäen palvelukeskuksessa Kajaanissa. Kuva: Sini Salmirinne / Yle
+
+Suomessa pyritään siihen, että myös kaikki kehitysvammaiset ihmiset saavat oman kodin. Hallituksen tavoite on, että kukaan kehitysvammainen ei asu laitoksessa vuoden 2020 jälkeen.
+
+Kainuun alueella Pohjois-Suomessa pyritään siihen, että kaikki kehitysvammaiset pääsevät omaan kotiin jo vuoden 2016 loppuun mennessä. Kajaanin kaupunkiin suunnitellaan uutta kerrostaloa, jossa on omia asuntoja kehitysvammaisille. Hoitajat käyvät kehitysvammaisen kotona, eikä kehitysvammaisen tarvitse asua laitoksessa hoitajien luona.
+
+Kajaanilainen kehitysvammainen Miia Korhonen odottaa innokkaasti omaa kotia. Hän ei aina viihdy laitoksessa, vaikka henkilökunta on mukavaa. Korhonen toivoo, että omaan kotiin hän voi tuoda lemmikkikanin.
+
+## Selkokieltä voi kuulla myös kirkossa
+
+![Jumalanpalvelus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5984811)
+
+Avaa kuvien katselu
+
+Jumalanpalveluksissa voidaan käyttää myös helppoja selkokielisiä tekstejä. Kuva: YLE
+
+Suomen luterilainen kirkko on alkanut käyttää myös selkokieltä. Selkokieltä kokeillaan esimerkiksi jumalanpalveluksissa. Kirkossa tarvitaan selkokieltä eli helppoa suomea, koska uskonnolliset sanat ovat usein vaikeita.
+
+Kirkko kerää tänä keväänä palautetta siitä, kuinka hyvin selkokieli toimii jumalanpalveluksissa. Kevään aikana myös monissa radion hartausohjelmissa käytetään selkokieltä. Kirkko myös uudistaa selkokieliset internet-sivunsa.
+
+Selkokielisissä jumalanpalveluksissa ja hartausohjelmissa käytetään Selkoraamattua. Selkokirjailija Pertti Rajala on muokannut koko Raamatun selkokielelle. Selkoraamattua on helpompi ymmärtää kuin tavallista Raamattua.
+
+## Viikonloppuna myrskyää Laina
+
+![aallot pärskyvät tielläkulkevan ihmisen päälle](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7789773)
+
+Avaa kuvien katselu
+
+Pohjois-Euroopassa myrskyää. Kuva on Norjasta, jossa on ollut Ole-myrsky. Suomeen tulee Laina-myrsky. Kuva: Lehtikuva / Larsen, Marius Helge
+
+Viikonlopun sää on myrskyinen. Siitä pitää huolen Laina-myrsky. Laina nostaa merellä korkeita aaltoja. Aallot voivat olla jopa yli kuusi (6) metriä korkeita.

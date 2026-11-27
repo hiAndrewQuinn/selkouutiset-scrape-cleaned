@@ -1,0 +1,61 @@
+# Sunnuntai 21.9.2014
+
+Afganistan saa uuden presidentin. Venäjä ei osta enää suomalaista kalaa. Maailman suurin ilmastotapahtuma yhtä aikaa 150 maassa. Lapissa satoi vähän lunta.
+
+## Ashraf Ghani on Afganistanin uusi presidentti
+
+![Afganistanin presidenttiehdokkaat Ashraf Ghani Ahmadzai (oik.) ja Abdullah Abdullah (vas.) kättelivät allekirjoitettuaan vallanjakosopimuksen presidentin palatsissa Kabulissa 21. syyskuuta 2014. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7483556)
+
+Avaa kuvien katselu
+
+Ashraf Ghani sopi Abdullah Abdullahin kanssa, miten valta jaetaan. Kuva: Wakil Kohsar / AFP / Lehtikuva
+
+Afganistanissa on sovittu presidentistä. Uusi presidentti on Ashraf Ghani. Afganistanin uudeksi pääministeriksi tulee Abdullah Abdullah.
+
+Presidenttiehdokkaat Ghani ja Abdullah riitelivät kauan. Afganistanin presidentinvaalit olivat jo kesäkuussa. Ghani ehkä voitti vaalit, mutta Abdullahin mielestä vaalit eivät olleet rehelliset.
+
+Ghani ja Abdullah onnistuivat nyt sopimaan, miten he jakavat vallan. Ghani ja Abdullah saivat neuvotteluissa apua Yhdysvaltojen ulkoministeriltä John Kerryltä.
+
+Afganistanissa on monta etnistä ryhmää. Ashraf Ghani edustaa pashtuja. Abdullah Abdullahin kannattajia ovat tadzikit ja hazarat.
+
+## Kalan myynti Venäjälle loppui
+
+![Kotkan edustalta pyydettyä silakkaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7225770)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat myyneet Venäjälle esimerkiksi silakkaa. Kuva: Antti Kolppo / Yle
+
+Suomalaisilla kalastajilla menee huonosti. Kalan myynti Venäjälle on pysähtynyt. Venäläiset ostavat yleensä noin 30 prosenttia suomalaisesta kalasta.
+
+Venäjä on lopettanut monien ruokatavaroiden ostamisen EU-maista. Syynä on Euroopan unionin ja Venäjän riita Ukrainasta. Tilanne tulee suomalaisille kalastajille huonoon aikaan, koska syksyn kalastusaika alkaa pian.
+
+Ammattikalastajaliiton johtaja Kim Jordas ei vielä tiedä, mihin kalastajat voivat nyt myydä kalaa. Heidän täytyy löytää uusia ostajia, jos he eivät voi viedä kalaa Venäjälle. Jordas uskoo, että esimerkiksi turkistarhat voivat ostaa kalaa turkiseläinten ruoaksi. Silloin kalan hinta on kuitenkin pieni.
+
+## Ilmastonmuutos huolestuttaa ihmisiä
+
+![Belchatowin hiilivoimala Puolassa on Euroopan suurin yksittäinen hiilidioksidin päästölähde.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6947363)
+
+Avaa kuvien katselu
+
+Ilmasto lämpenee, kun voimalat päästävät ilmaan hiilidioksidia. Kuva: Petteri Juuti / Yle
+
+Sunnuntaina on järjestetty maailman suurin ilmastotapahtuma. Tapahtumassa on ollut mukana ympäristöjärjestöjä yli 150 maasta. Ne vaativat, että maailman johtajat taistelevat ilmastonmuutosta vastaan.
+
+Maapallon ilmasto lämpenee kovaa vauhtia, koska ihmiset päästävät ilmaan hiilidioksidia. Hiilidioksidia syntyy esimerkiksi, kun sähköä tehdään polttamalla öljyä tai kivihiiltä.
+
+llmastotapahtumassa ihmiset vaativat, että öljyn ja kivihiilen käyttöä vähennetään. Tapahtuma järjestettiin nyt, koska tiistaina alkaa YK:n eli Yhdistyneiden kansakuntien ilmastokokous.
+
+## Ensimmäiset lumihiutaleet tulivat
+
+![Ensilunta ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7483504)
+
+Avaa kuvien katselu
+
+Maa oli valkoinen sunnuntaiaamuna Enontekiöllä. Kuva: Sirpa Mikkola
+
+Talven ensimmäiset lumihiutaleet ovat sataneet Lapissa. Lumihiutaleita satoi kuitenkin niin vähän, että talven ensilumesta ei voi puhua. Ilmatieteen laitos sanoo, että ensilumi on silloin, kun maassa on ensimmäisen kerran vähintään yksi senttimetri lunta.
+
+Ensilumi sataa ehkä jo lähipäivinä. Lunta voi sataa ainakin Lapissa. Tiistaiaamuna maa voi olla valkoinen myös Itä-Suomessa.
+
+Viime talvena ensilumi satoi lokakuussa.

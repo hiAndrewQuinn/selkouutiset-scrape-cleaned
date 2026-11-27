@@ -1,0 +1,57 @@
+# Perjantai 3.7.2015
+
+Venäjän parlamentti kritisoi Suomea. Kehitysapu on suomalaisten mielestä tärkeää. Suomalainen katsoo hississä kattoon tai kenkiin. Perjantai on ollut kesän kuumin päivä.
+
+## Venäjän parlamentti moittii Suomea
+
+![Venäjän duuma](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6447728)
+
+Avaa kuvien katselu
+
+Venäjän parlamentin alahuoneessa eli duumassa on puhuttu Suomesta. Kuva: Maxim Shipenkov / EPA
+
+Venäjän parlamentti kritisoi Suomea. Parlamentin mielestä on väärin, että Suomi ei päästä venäläisiä poliitikkoja Etyj-kokoukseen Helsinkiin.
+
+Venäjä aikoi lähettää Etyj-kokoukseen myös poliitikkoja, jotka eivät saa matkustaa EU-maihin. He ovat Euroopan unionin matkustuskieltolistalla Ukrainan kriisin takia. Suomi ei antanut venäläisille poikkeuslupaa tulla kokoukseen, koska osa EU-maista vastusti sitä.
+
+Etyjin eli Euroopan turvallisuus- ja yhteistyöjärjestön kokous alkaa Helsingissä sunnuntaina. Se on samalla juhlakokous, koska Euroopan turvallisuus- ja yhteistyökonferenssi järjestettiin Helsingissä 40 vuotta sitten.
+
+## Suomalaiset haluavat auttaa köyhiä maita
+
+![Vesikaivo Sudanissa, lapsia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8124065)
+
+Avaa kuvien katselu
+
+Puhdas vesi on tuonut monille paremman elämän. Kuva: Radek Pietruszka / EPA
+
+Suomalaisten mielestä kehitysapu on tärkeää. Melkein 90 prosenttia suomalaisista on sitä mieltä, että Suomen on tärkeää auttaa köyhiä maita. Tiedot ovat Suomen ulkoministeriön kyselystä.
+
+Suomalaiset myös luottavat siihen, että kehitysapu oikeasti auttaa köyhiä maita. Noin 75 prosenttia suomalaisista luottaa siihen, että kehitysapu on tehokasta. Suomalaisten mielestä tehokasta apua on esimerkiksi se, että monet köyhien maiden asukkaat ovat saaneet puhtaan veden ja oikean vessan Suomen tuella.
+
+Suurin osa suomalaisista haluaa, että Suomi käyttää kehitysapuun yhtä paljon rahaa kuin ennen. Noin 25 prosenttia suomalaisista on kuitenkin valmis vähentämään kehitysapua. Hallitus on jo päättänyt, että Suomi vähentää kehitysapua valtion säästöjen takia.
+
+## Suomalainen ei puhu hississä
+
+![Hissi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7489402)
+
+Avaa kuvien katselu
+
+Hissimatkalla ehtii jutella, jos haluaa. Kuva: Jussi Kallioinen / Yle
+
+Suomalainen käyttäytyy hississä eri tavalla kuin muut. Näin kertoo Hannu Nousu hissifirma Koneesta. Kone on tutkinut, mitä sen asiakkaat odottavat hissimatkalta eri maissa.
+
+Monissa maissa hissimatka on sosiaalinen tapahtuma. Esimerkiksi ranskalaiset puhuvat mielellään hississä. Suomalaiset ovat poikkeus, he eivät halua tutustua hississä uusiin ihmisiin.
+
+Suomalainen katsoo hississä mielellään kenkiin tai kattoon. Hän toivoo, että kukaan ei tule liian lähelle. Suomalainen tarvitsee myös hississä paljon enemmän tilaa kuin esimerkiksi aasialainen.
+
+## Sää on kuuma
+
+![Auringonottajia Lappeenrannan Mylllysaaressa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8126484)
+
+Avaa kuvien katselu
+
+Perjantaipäivän viettoa Lappeenrannassa. Kuva: Yle
+
+Perjantai on ollut tämän kesän kuumin päivä. Lämpötila on noussut etelässä 30 asteeseen. Pohjoisessa on ollut kylmempää.
+
+Etelässä on lämmintä vielä lauantaina, mutta sunnuntaina sää jo kylmenee. Ensi viikolla lämpötila jää etelässä 15 ja 20 asteen välille, pohjoisessa 10 ja 15 asteen välille.

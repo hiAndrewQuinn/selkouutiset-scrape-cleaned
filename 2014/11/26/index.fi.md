@@ -1,0 +1,57 @@
+# Keskiviikko 26.11.2014
+
+Vanhusten hoitajia on liian vähän. EU yrittää työntää kasvua liikkeelle miljardeilla euroilla. Hongkongin mielenosoitusleiri tyhjennettiin. Helsingin yliopisto tutkii Kiinan saasteongelmia.
+
+## Vanhusten hoitajia on liian vähän
+
+![Vanhusta syötetään palvelukeskuksessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7591090)
+
+Avaa kuvien katselu
+
+Monessa vanhusten hoitopaikassa on liian vähän henkilökuntaa. Lain suositus ei toteudu. Kuva: Raila Paavola / Yle
+
+Monissa vanhusten hoitopaikoissa on liian vähän henkilökuntaa. Laki suosittelee, että kahta (2) vanhusta kohden pitää olla yksi hoitaja. Tämä suositus koskee hoitopaikkoja, joissa vanhuksia hoidetaan vuorokauden kaikkina tunteina.
+
+Viranomaisten selvityksen mukaan yli 200 palvelutalossa tai hoitopaikassa henkilökuntaa on vähemmän.
+
+Vuonna 2013 annettiin laki, johon sisältyi suositus hoitajien määrästä. Nyt näyttää siltä, että suositus ei toteudu, ja lakia pitää ehkä tiukentaa.
+
+## EU yrittää työntää kasvua liikkeelle miljardeilla euroilla
+
+![Jean-Claude Juncker](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7652069)
+
+Avaa kuvien katselu
+
+EU-komission puheenjohtaja Jean-Claude Juncker yrittää saada Euroopan talouden liikkeelle 300 miljardin euron kasvupaketilla. Kuva: John Thys / AFP
+
+EU-komission puheenjohtaja Jean-Claude Juncker on esitellyt Euroopan parlamentille yli 300 miljardin euron kasvupaketin. Ensin EU kerää omista varoistaan 21 miljardia euroa. Sen jälkeen se toivoo, että yksityiset sijoittajat lähtevät rahoittamaan julkisia projekteja. EU laskee, että sen omalla 21 miljardin sijoituksella saadaan lopulta yli 300 miljardin investoinnit 3 vuoden aikana.
+
+Rahasummalla on tarkoitus saada liikkeelle suuria liikenneprojekteja, koulutusta, tutkimusta tai uusiutuvaa energiaa. Esimerkiksi Suomi toivoo, että se saa rahaa LNG-kaasuterminaaliin ja nopean junayhteyden rakentamiseen Helsingin ja Turun välille.
+
+## Hongkongin mielenosoitusleiri tyhjennettiin
+
+![Mielenosoittajia ja poliiseja kadulla Hongkongissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7652564)
+
+Avaa kuvien katselu
+
+Mielenosoittajat kokoontuivat Hongkongin Mongkokissa keskiviikkona. Kuva: Jerome Fayre / EPA
+
+Hongkongissa poliisit tyhjensivät mielenosoittajien leirin ja pidättivät mielenosoittajia. Operaatiossa pidätettiin yli 20 ihmistä. Tiistai-iltana poliisi otti lisäksi kiinni yli 100 mielenosoittajaa. Samalla yhteenotoissa loukkaantui 20 poliisia.
+
+Operaatio on vakava tappio 2 kuukautta jatkuneille mielenosoituksille, joilla vaaditaan demokratiaa.
+
+Hongkongissa on edelleen kaksi mielenosoitusleiriä. Protestiliike on menettänyt kannatustaan lokakuun jälkeen.
+
+## Helsingin yliopisto tutkii Kiinan saasteongelmia
+
+![Autoja ruuhkassa savusumun keskellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7299181)
+
+Avaa kuvien katselu
+
+Savusumu leijui moottoritien yllä Pekingissä 26. maaliskuuta 2014. Kuva: Adrian Bradshaw / EPA
+
+Helsingin yliopisto auttaa kiinalaisia ratkaisemaan maan suuria saasteongelmia.
+
+Kiinaan rakennetaan tutkimusasemia, jotka mittaavat ilmanlaatua. Ne keräävät tietoa, jolla voidaan ratkaista saasteongelmia. Pekingissä ja Nanjingissa on jo tutkimusasemat. Tulevina vuosina niitä on tarkoitus rakentaa lisää. Ensi huhtikuussa Helsingin yliopisto alkaa myös järjestää kiinalaisille ilmanlaatuun liittyvää koulutusta.
+
+Kiinassa jopa 2,5 miljoonaa ihmistä kuolee joka vuosi ilmansaasteisiin.

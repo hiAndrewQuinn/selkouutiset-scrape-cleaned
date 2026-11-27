@@ -1,0 +1,55 @@
+# Torstai 8.1.2015
+
+Poliisi on etsinyt terrori-iskun tekijöitä Ranskassa. Myös suomalaiset ovat muistaneet ranskalaisia, jotka kuolivat iskussa. Teollisuuden Voima aikoo vähentää työntekijöitä. Tax-free-myynti on vähentynyt Suomessa.
+
+## Ranskassa on ollut surupäivä
+
+![Tuhansia ihmisiä osallistui suurmielenosoitukseen Place de La Républiquella Pariisissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7724717)
+
+Avaa kuvien katselu
+
+Ranskalaiset ovat osoittaneet mieltä terrorismia vastaan. Kuva: Ian Langsdon / EPA
+
+Ranskan poliisi on jatkanut terrori-iskun tutkimista. Poliisi on etsinyt kahta (2) miestä, jotka olivat mukana iskussa. Miehet ovat syntyneet Ranskassa, ja heillä on algerialainen tausta. Poliisi etsi aluksi kolmea (3) miestä, mutta yksi (1) miehistä ilmoittautui itse poliisille.
+
+Miehet tekivät terrori-iskun keskiviikkona Ranskan pääkaupungissa Pariisissa. Miehet hyökkäsivät ranskalaisen lehden toimitukseen ja ampuivat ihmisiä. 12 ihmistä kuoli. Iskun syy oli ehkä se, että lehdessä on ollut pilakuvia profeetta Muhammedista.
+
+Ranskassa on ollut torstaina surupäivä. Presidentti François Hollande päätti, että ranskalaiset viettävät yhteistä surupäivää terrori-iskun takia.
+
+## Suomalaiset ovat muistaneet ranskalaisia
+
+![Helsinki Charlie Hebdo muistohetki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7726188)
+
+Avaa kuvien katselu
+
+Noin 200 suomalaista tuli Ranskan suurlähetystön eteen viettämään hiljaista hetkeä. Kuva: Terhi Uusivaara / Yle
+
+Ihmiset ovat viettäneet hiljaisia hetkiä Ranskan terrori-iskun takia ympäri maailmaa. Ihmiset ovat halunneet muistaa ranskalaisia, jotka kuolivat iskussa.
+
+Myös suomalaiset ovat muistaneet ranskalaisia. Torstai-iltana oli hiljainen hetki Ranskan suurlähetystön edessä Helsingissä. Paikalla oli noin 200 ihmistä.
+
+## TVO vähentää työntekijöitä
+
+![Olkuluodon ydinvoimala.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7260030)
+
+Avaa kuvien katselu
+
+Teollisuuden Voimalla eli TVO:lla on ydinvoimaloita Olkiluodossa. Kuva: Hannu Huovila / TVO
+
+Teollisuuden Voima aikoo vähentää työntekijöitä. Teollisuuden Voima lopettaa ehkä noin 100 työpaikkaa. Teollisuuden Voima eli TVO on suuri suomalainen firma, joka tekee sähköä ydinvoimalla eli atomivoimalla.
+
+TVO aikoo vähentää työntekijöitä, koska se säästää rahaa. TVO haluaa säästää 15 miljoonaa euroa vuodessa. TVO haluaa säästää, koska sähkön hinta on laskenut.
+
+TVO omistaa ydinvoimaloita Olkiluodossa, Länsi-Suomessa. TVO:lle rakennetaan Olkiluotoon myös uutta ydinvoimalaa, joka on pahasti myöhässä. TVO on menettänyt paljon rahaa, koska ydinvoimala ei ole valmistunut ajoissa.
+
+## Venäläiset tekevät nyt vähemmän ostoksia Suomessa
+
+![Tax free - kauppa on kasvanut rajusti viime vuosina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6094875)
+
+Avaa kuvien katselu
+
+Tax free -myynti on nyt paljon pienempää kuin ennen. Kuva: Yle / Raine Martikainen
+
+Tax-free-myynti eli verovapaa myynti on vähentynyt paljon Suomessa. Turistit käyttivät vuoden 2014 joulukuussa noin 60 prosenttia vähemmän rahaa verovapaisiin ostoksiin kuin vuoden 2013 joulukuussa. Koko vuoden aikana verovapaa myynti väheni noin 30 prosenttia.
+
+Verovapaa myynti on vähentynyt, koska venäläiset tekevät ostoksia Suomessa paljon vähemmän kuin ennen. Venäläisten ei kannata ostaa Suomesta, koska ruplan kurssi on huono. Tavarat maksavat Suomessa venäläisille nyt kaksi (2) kertaa niin paljon ennen, kun eurohinta muutetaan ruplahinnaksi.

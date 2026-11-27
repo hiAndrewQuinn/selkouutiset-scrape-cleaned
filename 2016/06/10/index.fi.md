@@ -1,0 +1,71 @@
+# Perjantai 10.6.2016 (radio)
+
+Kilpailukykysopimus on varma. Bussiliput ovat nyt halpoja. Soldiers of Odin -ryhmissä on vähemmän ihmisiä kuin talvella. Puolueet pitävät isoja kokouksia viikonloppuna. Tuhannet lapset ovat kesäleirillä.
+
+## Kilpailukykysopimus on varma
+
+![Riku Aalto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8947016)
+
+Avaa kuvien katselu
+
+Metalliliiton johtaja Riku Aalto. Kuva: Jarno Kuusinen / AOP
+
+Työntekijöiden ja työnantajien kilpailukykysopimus on varma.
+
+Metallialan työntekijöiden ammattiliitto hyväksyi sopimuksen tänään perjantaina. Moni muu liitto on sanonut, että ne ovat mukana sopimuksessa vain, jos myös Metalliliitto on mukana. Nyt sopimuksessa on mukana 85 prosenttia Suomen työntekijöistä. 
+
+Uusi kilpailukykysopimus pidentää vähän suomalaisten työaikaa, vaikka palkka ei nouse. Suomen hallitus uskoo, että kilpailukykysopimus parantaa Suomen taloutta.
+
+## Bussiliput halpoja
+
+![Jyväskylän Matkakeskuksen liikennemäärät kasvavat reilusti ensi huhtikuussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8450221)
+
+Avaa kuvien katselu
+
+Pitkän matkan bussiliput ovat halpoja.  Kuva: Enja Heikkilä / Yle
+
+Busseissa on nyt paljon matkustajia, sillä pitkän matkan lippuja saa halvalla. Bussifirmat kilpailevat matkustajista ja myyvät halpoja lippuja netissä. 
+
+Vaikka matkustajia on paljon, bussifirmoilla ei ehkä mene hyvin. Firmoille ei ehkä tule tarpeeksi rahaa kassaan halvoista lipuista. Mutta firmat pärjäävät, jos tarpeeksi moni suomalainen jättää oman auton kotiin ja matkustaa bussilla.    
+
+## Poliisi tutkii viestit
+
+![Soldiers of Odinin jäseniä osallistui Rajat kiinni -mielenosoitukseen Rovaniemellä 9. huhtikuuta 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8837067)
+
+Avaa kuvien katselu
+
+Soldiers of Odin -ryhmän miehiä. Kuva: Perttu Ruokangas / Yle
+
+Maahanmuuton vastaisissa Soldiers of Odin -ryhmissä on vähemmän ihmisiä kuin talvella.
+
+Ylen toimittaja luki ryhmien Facebook-keskusteluja. Keskusteluista näkee, että monessa kunnassa ryhmän toiminta on loppunut. Ryhmien johtajilla on kiistaa keskenään. Jotkut johtajat yllyttävät jäseniä hakkaamaan ihmisiä, esimerkiksi vasemmistolaisia ja tummaihoisia.
+
+Poliisi aikoo tutkia, ovatko viestit laillisia. On rikos yllyttää toisia väkivaltaan.     
+
+Soldiers of Odin -ryhmiä perustettiin viime syksynä, kun Suomeen tuli paljon ulkomaalaisia. Ryhmien jäsenet sanovat, että he pitävät kadut turvallisina. Moni Odin-johtaja on aikaisemmin tehnyt väkivalta- tai huumerikoksia. 
+
+## Puolueet valitsevat johtajia
+
+![Alexander Stubb, Elina Lepomäki ja Petteri Orpo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8941716)
+
+Avaa kuvien katselu
+
+Kokoomuksen puheenjohtajaksi haluavat Alexander Stubb (vas.), Elina Lepomäki ja Petteri Orpo, Kuva: Jarno Kuusinen / AOP
+
+Viikonloppuna on isoja poliittisia kokouksia.
+
+Neljä puoluetta valitsee uusia johtajia. Kokoomus äänestää johtajan kolmesta ehdokkaasta. Vasemmistoliiton uudeksi johtajaksi tulee Li Andersson. RKP:n johtajaksi on kolme ehdokasta. Keskusta valitsee uuden puoluesihteerin. Myös perussuomalaisilla on iso kokous. 
+
+## Lapsia kesäleirillä
+
+![norsupalloa hämeenlinnalaisten kesäleirillä kariniemessä 2014](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7383190)
+
+Avaa kuvien katselu
+
+Leirillä lapset pelaavat ja leikkivät paljon. Kuva: Markku Karvonen / Yle
+
+Tuhannet lapset ovat nyt kesäleirillä, kun koulu loppui.
+
+Kesäleirillä lapset leikkivät, pelaavat ja uivat paljon. He käyvät saunassa ja paistavat nuotiolla makkaraa. Lapset ovat paljon ulkona ja nukkuvat yöt teltassa.
+
+Lapsilla on kesäleirillä hauskaa, vaikka ilma on kylmä ja vettä sataa.

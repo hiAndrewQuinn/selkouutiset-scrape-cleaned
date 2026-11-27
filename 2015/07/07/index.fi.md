@@ -1,0 +1,57 @@
+# Tiistai 7.7.2015
+
+Bryssel pohtii jälleen, mitä Kreikan kanssa pitää tehdä. Lontoon terrori-iskuista on kulunut vuosikymmen. Mansikka-aika on tänä kesänä pitkä.
+
+## Kreikkaa pohditaan taas Brysselissä
+
+![EU-komission puheenjohtaja Jean-Claude Juncker.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8135159)
+
+Avaa kuvien katselu
+
+EU-komission puheenjohtaja Jean-Claude Juncker. Kuva: Patrick Hertzog / AFP
+
+Euromaat pohtivat illalla Brysselissä, mitä Kreikan kriisin kanssa voidaan seuraavaksi tehdä. Euromaiden valtiovarainministerit kokoontuivat Brysselissä jo iltapäivällä ja euromaiden johtajat ovat kokoontuneet illalla.
+
+Kokoukseen odotetaan Kreikalta uusia ehdotuksia. EU-komission puheenjohtaja Jean-Claude Juncker sanoi päivällä, että hän haluaa pitää Kreikan euroalueen osana.
+
+## Stubb: kokoukselta ei odoteta paljon
+
+![Alexander Stubb](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8135839)
+
+Avaa kuvien katselu
+
+Valtiovarainministeri Alexander Stubb sanoo, että euromaiden kärsivällisyys Kreikan kanssa on pian loppu. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomen valtiovarainministeri Alexander Stubb sanoo, että ministereillä ei ole Brysselin Kreikka-kokouksesta suuria odotuksia. Hän kertoi, että euromaat kuuntelevat nyt, mitä Kreikka haluaa sanoa. Stubb sanoi myös, että euromailla alkaa loppua kärsivällisyys.
+
+Pääministeri Juha Sipilä sanoi iltapäivällä, että jatko riippuu siitä, mitä Kreikka ehdottaa. Hänen mukaansa ennen kokousta ei ole tiedetty mitään siitä, mitä Kreikka aikoo ehdottaa.
+
+Suomen hallitus sanoo, että se auttaa Kreikkaa, jos Suomen vastuu kriisin hoitamisessa ei kasva. Suomen mielestä Kreikan pitää lisäksi sitoutua uskottavasti uudistusten jatkamiseen.
+
+## Lontoon terrori-iskuista kymmenen vuotta
+
+![Boris Johnson ja David Cameron.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8134891)
+
+Avaa kuvien katselu
+
+Lontoon pormestari Boris Johnson ja pääministeri David Cameron laskivat seppeleet kymmenen vuotta sitten tehdyn terrori-iskun uhrien muistolle.  Kuva: Andy Rain / EPA
+
+Englantilaiset ovat muistelleet kymmenen vuotta sitten tapahtuneita terrori-iskuja. Lontoon metrojuniin ja bussiin tehtiin kymmenen vuotta sitten terrori-iskut, joissa kuoli 52 ihmistä. Lisäksi iskuissa haavoittui yli 700 ihmistä.
+
+Itsemurhapommittajat kantoivat räjähteitä repuissa. Kolme pommia laukaistiin metrojunissa noin yhdeksän aikaan aamulla. Tuntia myöhemmin yksi pommi räjäytettiin bussissa.  
+
+Britannian pääministeri David Cameron laski aamupäivällä seppeleen Lontoon Hyde Parkissa. Hyde Parkissa on monumentti, joka tehtiin Lontoon terrori-iskujen uhrien muistolle.
+
+Lontoossa järjestettiin päivällä myös minuutin hiljainen hetki, johon kaikkia lontoolaisia kehotettiin osallistumaan. Lisäksi uhrien omaisia ja pelastustyöntekijöitä kokoontui muistojumalanpalvelukseen St. Paulin katedraaliin.
+
+## Mansikoista tulee suuria
+
+![Kuvassa raaka ja kypsä mansikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8109344)
+
+Avaa kuvien katselu
+
+Mansikat voivat olla tänä vuonna suuria kylmän kesän takia.  Kuva: Karri Laihonen / Yle
+
+Mansikasta on luvassa tänä vuonna normaali sato. Mansikanviljelijät kertovat, että mansikka kypsyy tänä vuonna vähän myöhässä, koska alkukesä oli kylmä. Suomen rannikkoalueilla mansikan pääsato, eli suurin sato kypsyy loppuviikolla ja muualla maassa ensi viikolla.
+
+Mansikanviljelijä Rami Marttila Pöytyältä kertoo, että melko kylmä sää pidentää mansikka-aikaa. Hän sanoo, että tänä vuonna mansikan satokausi jatkuu elokuuhun asti. Luvassa on myös aika suuria mansikoita, koska sää on ollut kylmä silloin, kun mansikka on kukkinut.

@@ -1,0 +1,57 @@
+# Tiistai 18.8.2015
+
+Suomeen tulee pakolaisia ennätystahtia. Bangkokin pommi-iskun tekijää etsitään. Joku rikkoi ministerin ikkunat Kolea kesä täytti elokuvateatterit.
+
+## Pakolaisia tulee Suomeen ennätystahtia
+
+![Nykyiset vastaanottokeskukset ovat täyttyneet ääriään myöten täyteen Euroopan pakolaisvyöryn takia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8234458)
+
+Avaa kuvien katselu
+
+Suomeen on tullut niin paljon turvapaikanhakijoita, että vastaanottokeskukset ovat ihan täynnä. Kuva: Yle
+
+Suomeen perustetaan uusia vastaanottokeskuksia turvapaikanhakijoille. Uusia vastaanottokeskuksia tarvitaan neljä (4) tai viisi (5). Niillä on kiire, koska turvapaikanhakijoita on paljon enemmän kuin ennen. Vanhat vastaanottokeskukset ovat jo täynnä ihmisiä.
+
+Turvapaikanhakijoita on tullut Suomeen tänä vuonna jo yli 5000. Se on enemmän kuin koko viime vuonna yhteensä. Maahanmuuttovirasto sanoo, että tänä vuonna Suomesta hakee turvapaikkaa ennätysmäärä ihmisiä.
+
+Viime viikkoina Suomeen on tullut eniten turvapaikanhakijoita Somaliasta, Irakista ja Afganistanista.
+
+Pakolaisia pyrkii Eurooppaan paljon enemmän kuin ennen. Sen takia heitä tulee entistä enemmän myös Suomeen.
+
+## Bangkokin pommi-iskun tekijää etsitään
+
+Thaimaan poliisi on havainnut valvontakamerakuvista epäillyn pommittajan Erawanin pyhäkössä. Maanantaina suositussa turistikohteessa tapahtuneessa räjähdyksessä kuoli 20 ihmistä ja haavoittui yli 120. Kuva: Reuters
+
+Thaimaassa yritetään selvittää, kuka teki Bangkokin pommi-iskun. Thaimaan pääministeri sanoo, että isku oli Thaimaan historian pahin.
+
+Bangkokin keskustassa räjähti pommi maanantai-iltana. Pommin räjähdyksessä kuoli noin 20 ihmistä. Lisäksi yli 120 haavoittui. Kuolleista ainakin 8 on ulkomaalaisia.
+
+Poliisi etsii miestä, joka näkyy valvontakameran kuvissa lähellä räjähdyspaikkaa.
+
+## Joku rikkoi ministerin ikkunat
+
+![Puheenjohtaja ja valtiovarainministeri Alexander Stubb kokoomuksen puoluejohdon kesäkokouksessa Rovaniemellä tiistaina 18. elokuuta 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8236305)
+
+Avaa kuvien katselu
+
+Ministeri Stubb ja hänen perheensä olivat kotona, kun vahingonteko tapahtui. Kuva: Kaisa Siren / Str / Lehtikuva
+
+Valtiovarainministeri Alexander Stubbin koti on joutunut ilkivallan kohteeksi. Ilkivalta eli vahingonteko tapahtui maanantain ja tiistain välisenä yönä.
+
+Poliisi kertoo, että joku tunkeutui Stubbin kotitalon pihalle Espoossa ja rikkoi asunnon ikkunoita. Stubb ja hänen perheensä olivat kotona, mutta he eivät joutuneet vaaraan.
+
+Valtioneuvoston turvallisuusjohtaja Jari Ylitalo sanoo, että hyökkäykset ministereitä kohtaan ovat harvinaisia.
+
+## Kolea kesä täytti elokuvateatterit
+
+![Turun Kinopalatsin Finnkino-kyltti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7331923)
+
+Avaa kuvien katselu
+
+Tästä vuodesta voi tulla elokuvissakäynnin ennätysvuosi. Kuva: Pasi Mäenpää / Yle
+
+Suomalaiset ovat käyneet innokkaasti elokuvissa tänä kesänä. Kesä- ja heinäkuun aikana elokuvalippuja myytiin 70 prosenttia enemmän kuin viime kesänä.
+
+Suomen Filmikamari uskoo, että tästä vuodesta voi tulla jopa elokuvissakäynnin ennätysvuosi. Filmikamari uskoo, että vuoden loppuun mennessä elokuvissa on käynyt noin 8,5 miljoonaa katsojaa.
+
+Finnkino sanoo, että elokuvissa on käynyt paljon ihmisiä, koska ohjelmisto on ollut kiinnostava. Elokuvayleisön määrää voi lisätä myös se, että tänä kesänä ei ole ollut suuria urheilutapahtumia. Viime kesänä ihmiset eivät ehtineet elokuviin, koska he katselivat jalkapallon MM-kisoja televisiosta.

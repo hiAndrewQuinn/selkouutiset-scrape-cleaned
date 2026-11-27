@@ -1,0 +1,61 @@
+# Torstai 9.10.2014
+
+Suomen poliisi epäilee, että neljä (4) miestä on tehnyt terrorismirikoksia. Ranskalainen Patrick Modiano saa kirjallisuuden Nobel-palkinnon. Köyhät vanhukset saavat vähemmän apua kuin rikkaat vanhukset. Jääkiekkoilija Saku Koivu on mukana presidentti Niinistön vierailulla Kanadassa.
+
+## Harvinainen terrorismijuttu Suomessa
+
+![Keskusrikospoliisin talo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7519578)
+
+Avaa kuvien katselu
+
+Keskusrikospoliisi eli KRP on tutkinut terrorismijuttua. Kuva: Yle
+
+Suomen poliisi epäilee, että neljä (4) miestä on tehnyt terrorismirikoksia. Miehet ovat ehkä tehneet esimerkiksi murhan, jonka syy oli terrorismi.
+
+Poliisi pidätti miehistä kolme (3) tiistaina. Oikeus päättää perjantaina, vangitaanko heidät.
+
+Kaikki miehet ovat Suomen kansalaisia. Yle Uutiset kertoo, että ainakin kaksi (2) miehistä on kantasuomalaisia eli heillä ei ole maahanmuuttajataustaa.
+
+## Kirjalllisuuden Nobel-palkinto Ranskaan
+
+![Patrick Modiano.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7519350)
+
+Avaa kuvien katselu
+
+Patrick Modiano saa Nobel-palkinnon hyvistä romaaneistaan. Kuva: Elisabeth Grate Bokförlag
+
+Ranskalainen Patrick Modiano saa kirjallisuuden Nobel-palkinnon. Monet Modianon kirjat kertovat sota-ajasta ja 1940-luvusta. Viisi (5) Modianon kirjaa on käännetty myös suomeksi.
+
+Modiano on 69-vuotias kirjailija. Hän asuu Pariisissa, jossa hän on myös syntynyt. Modianon isä oli Italian juutalainen ja äiti belgialainen.
+
+Kirjallisuuden Nobel-palkinto annettiin ensimmäisen kerran vuonna 1901. Palkinto on noin miljoona euroa.
+
+## Köyhillä ja yksinäisillä vanhuksilla vaikeaa
+
+![Vanhus sairaalavuoteella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7519172)
+
+Avaa kuvien katselu
+
+Vanhukset tarvitsevat monenlaista hoitoa. Kuva: Juha-Pekka Inkinen / Yle
+
+Köyhät vanhukset saavat vähemmän apua kuin rikkaat. Vanhojen ihmisten eriarvoisuus on kasvanut Suomessa. Näin sanoo tutkija Lina Van Aerschot.
+
+Van Aerschot sanoo, että yhteiskunta ei pysty enää antamaan tarpeeksi apua kaikille vanhuksille. Julkisia palveluja on vähennetty jo pitkän aikaa. Julkiset palvelut ovat vanhuksille halpoja, koska kunnat ja valtio järjestävät ne verorahoilla.
+
+Van Aerschot kertoo, että vanhuksille on nykyään paljon yksityisiä palveluja. Monet firmat myyvät yksityisiä hoitopalveluja, mutta ne maksavat paljon. Van Aerschotin mielestä on väärin, että rikkaat vanhukset saavat palveluja helpommin kuin köyhät vanhukset.
+
+Perheenjäsenten apu on vanhuksille tärkeää, koska julkisia palveluja vähennetään. Van Aerschot kertoo, että vanhukset saavat nykyään enemmän apua perheenjäseniltään kuin yhteiskunnalta. Vaikeinta on köyhillä vanhuksilla, joilla ei ole perhettä tai rahaa ostaa palveluja.
+
+## Saku Koivu mukana Niinistön vierailulla Kanadassa
+
+![Anaheim Ducksin Saku Koivu harjoituksissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7477820)
+
+Avaa kuvien katselu
+
+Saku Koivu on kuuluisa jääkiekkoilija, joka on pelannut kauan Kanadassa. Kuva: Lehtikuva
+
+Jääkiekkoilija Saku Koivu on saanut kunniatehtävän. Koivu on mukana presidentti Sauli Niinistön vierailulla Kanadassa. Koivu kuuluu Niinistön kunniasaattueeseen.
+
+Presidentti Niinistö aloitti vierailun Kanadaan torstaina. Jääkiekko on hyvin esillä vierailun aikana. Niinistö käy esimerkiksi Hockey Hall of Famessa, jossa esitellään jääkiekon historiaa ja kuuluisia pelaajia.
+
+Saku Koivu pelasi Pohjois-Amerikan jääkiekkoliigassa NHL:ssä melkein 20 vuotta. Koivu kertoi tänä syksynä, että hän lopettaa jääkiekkouransa.

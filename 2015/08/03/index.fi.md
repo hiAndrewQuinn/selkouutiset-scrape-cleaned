@@ -1,0 +1,57 @@
+# Maanantai 3.08.2015
+
+Ääriliikkeitä halutaan seurata entistä tarkemmin. Nokian Here-karttapalvelu myytiin Saksaan. Tanska aloittaa ilmoituskampanjan pakolaisten vähentämiseksi. Konduktööri yllätti junamatkustajat puolustamalla monikulttuurisuutta.
+
+## Ääriliikkeitä halutaan seurata tarkemmin
+
+![Mielenosoittajia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8199434)
+
+Avaa kuvien katselu
+
+Suomen Vastarintaliikkeen mielenosoittajia Jyväskylässä lauantaina. Kuva: Yle
+
+Poliisi on jatkanut Jyväskylän lauantaisen mellakan tutkintaa. Äärioikeistolainen Suomen Vastarintaliike järjesti lauantaina Jyväskylän keskustassa mielenosoituksen. Mielenosoituksen lopuksi liikkeen jäsenet pahoinpitelivät kolme ihmistä.
+
+Suomen Vastarintaliike on ollut mukana myös useissa muissa väkivallanteoissa. Esimerkiksi pari vuotta sitten Jyväskylän kirjastossa sattui puukotus, jonka tekijät olivat Vastarintaliikkeen jäseniä.
+
+Sisäministeri Petteri Orpo sanoo, että äärijärjestöjä on seurattava entistä tarkemmin. Monet kansanedustajat ovat myös vaatineet, että Suomen Vastarintaliikkeen laillisuus täytyy tutkia.
+
+## Nokian karttapalvelu saksalaisille autofirmoille
+
+![Nokian Here-karttasovellus Nokia Lumia -puhelimessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8199106)
+
+Avaa kuvien katselu
+
+Nokian Here-karttapalvelu myytiin Saksaan. Kuva: Aleksi Tuomola / Lehtikuva
+
+Nokia myy Here-karttapalvelunsa. Saksalaiset autonvalmistajat ostavat Heren noin 3 miljardilla eurolla. Heren ostaa yhteenliittymä, johon kuuluvat Daimler, BMW ja Audi.
+
+Tampereella Here-karttapalvelun parissa työskentelee noin sata ihmistä. Vielä ei tiedetä, miten kauppa vaikuttaa henkilöstöön. Suurin osa Heren työntekijöistä on jo nyt Saksassa.
+
+## Tanska haluaa hillitä pakolaisten määrää lehti-ilmoituksilla
+
+![Tanskan ja Saksan välinen rajanylityspaikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8199164)
+
+Avaa kuvien katselu
+
+Rajanylityspaikka Tanskan ja Saksan rajalla. Kuva: Carsten Rehder / EPA
+
+Tanska yrittää vähentää pakolaisten määrää lehti-ilmoitusten avulla.  Ilmoituksissa esimerkiksi kerrotaan, että Tanskan sosiaaliedut eivät ole niin hyvät kuin monet luulevat.
+
+Tanska aikoo julkaista sanomalehti-ilmoituksia sellaisissa maissa, joista tulee paljon turvapaikanhakijoita Tanskaan. Ilmoituksia julkaistaan esimerkiksi Turkin sanomalehdissä.
+
+Tanskaan tuli viime vuonna lähes 15000 turvapaikanhakijaa. Tanskan hallitus sanoo, että esimerkiksi ihmissalakuljettajat antavat pakolaisille väärää tietoa Tanskan sosiaalieduista.
+
+## Konduktööri puolusti monikulttuurisuutta
+
+![Konduktöörit myyvät matkalippuja junassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6953921)
+
+Avaa kuvien katselu
+
+Lähijunan konduktööri halusi kertoa junamatkustajille mielipiteensä monikulttuurisuudesta. Kuva: Yle
+
+Konduktööri yllätti lähijunan matkustajat Helsingissä sunnuntai-iltapäivänä. Konduktööri piti junan kuulutuslaitteiden kautta pitkän puheen suvaitsevaisuuden ja monikulttuurisuuden puolesta.
+
+Konduktööri sanoi, että rasismin taustalla voi olla monia syitä. Ihminen voi esimerkiksí olla työtön, hänellä on pulaa rahasta, hän on yksinäinen ja hänellä voi olla väärää tietoa. Konduktööri sanoi, että tällaisia asioita vastaan on taisteltava.
+
+Konduktööri oli nimeltään Sameli Muurimäki. Sunnuntai oli hänen viimeinen työpäivänsä VR:n konduktöörinä. Hän kertoi maanantaiaamuna Ylen aikaisen radio-ohjelmassa, että halusi puhua junan matkustajille aiheesta, jota piti tärkeänä.

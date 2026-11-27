@@ -1,0 +1,57 @@
+# Maanantai 26.10.2015
+
+Perussuomalaisten puolue erotti varapuheenjohtajansa. Yli puolet suomalaisista ei halua Natoon. Makkara voi aiheuttaa syöpää. Uuden Bond-elokuvan tekeminen oli rankkaa.
+
+## Tynkkynen erotettiin puolueesta
+
+![Perussuomalaisten 3. varapuheenjohtaja Sebastian Tynkkynen perussuomalaisten eduskuntaryhmän kokouksessa Helsingissä torstaina 8. lokakuuta 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8370976)
+
+Avaa kuvien katselu
+
+Sebastian Tynkkynen. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Perussuomalaiset ovat erottaneet puolueesta varapuheenjohtajansa Sebastian Tynkkysen.
+
+Puolue sanoo, että Tynkkynen erotettiin siksi, että hän julkaisi internetissä nimilistan. Listassa on niiden perussuomalaisten nimet, jotka haluavat, että puolue harkitsee lähtöä hallituksesta. Puolue sanoo, että Tynkkynen julkaisi ihmisten nimet ilman heidän lupaansa. Tynkkynen itse sanoo, että hänet erotettiin siksi, että hän on moittinut puolueen tekoja hallituksessa. 
+
+Tynkkynen on yrittänyt kutsua koolle perussuomalaisten kokouksen, jossa päätetään, pysyykö puolue hallituksessa vai ei.
+
+## Natolle edelleen "ei"
+
+![Grafiikka Suomen Nato kannasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8408647)
+
+Avaa kuvien katselu
+
+Epävarmoja on enemmän kuin viime vuonna. Kuva: Yle Uutisgrafiikka
+
+Yli puolet suomalaisista vastustaa edelleen Suomen Nato-jäsenyyttä.
+
+Ylen kyselyssä 55 prosenttia vastaajista ei halua, että Suomi liittyy Natoon. 22 prosenttia vastaajista kannattaa Suomen Nato-jäsenyyttä. Sekä vastustajia että kannattajia on hieman vähemmän kuin viime vuoden kyselyssä. Mutta epävarmoja on nyt enemmän kuin viime vuonna. 23 prosenttia vastaajista ei osaa sanoa, pitääkö Suomen liittyä Natoon vai ei. Viime vuonna epävarmoja oli 16 prosenttia vastaajista.
+
+Suomalaisten Nato-mielipide on pysynyt aika samanlaisena kymmeniä vuosia.
+
+## Makkarasta syöpää
+
+![Grilling sausages.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7302026)
+
+Avaa kuvien katselu
+
+Makkara voi aiheuttaa syöpää. Kuva: Jyrki Lyytikkä / Yle
+
+Makkara, kinkku, pekoni ja muut teollisuuden lihatuotteet aiheuttavat syöpää, sanoo Maailman terveysjärjestö WHO.
+
+Järjestö sanoo, että makkara ja muut teollisuuden lihatuotteet ovat syöpäriski, jos niitä syö yli 50 grammaa joka päivä. Ne aiheuttavat esimerkiksi suolistosyöpää. WHO lisäsi nämä lihatuotteet samalle syöpäriskien listalle, jolla ovat myös esimerkiksi tupakka ja asbesti.
+
+WHO sanoo, että myös punainen liha on ehkä syöpäriski. Punaista lihaa ovat naudan, sian ja lampaan liha.
+
+## Väsynyt 007
+
+![Daniel Craig.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8407877)
+
+Avaa kuvien katselu
+
+Daniel Craig. Kuva: Metro-Goldwyn-Mayer Studios Inc., Danjaq, LLC and Columbia Pictures Industries.
+
+Uusin James Bond -elokuva Spectre tulee perjantaina Suomen elokuvateattereihin.
+
+Elokuvasta yritettiin tehdä niin hyvä, että ennätysmäärä ihmisiä käy katsomassa sen. Monet elokuvan tekijät olivat kuvausten jälkeen hyvin väsyneitä. Näyttelijä Daniel Craig sanoi, että hän ei halua enää koskaan tehdä yhtään Bond-elokuvaa. Craig esittää elokuvassa James Bondia eli agentti 007:ää. Nyt Craig sanoo, että hänen kommenttinsa syynä oli vain väsymys.

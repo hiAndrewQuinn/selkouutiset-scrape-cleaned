@@ -1,0 +1,59 @@
+# Torstai 3.9.2015
+
+Yli 100 000 pakolaista eri EU-maihin? Vasemmistopuolueiden suosio on pienempi kuin koskaan. Suomen viimeiset vaatetehtaat ehkä suljetaan. Närpiön kunnalle on paljon hyötyä maahanmuuttajista.
+
+## EU-maille pakolaiskiintiöt?
+
+![Tuhansia ihmisiä jonossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8277883)
+
+Avaa kuvien katselu
+
+Turvapaikanhakijoita tulee Kreikan, Italian ja Unkarin kautta. Kuva: Sakis Mitrolidis / AFP
+
+Eurooppalaiset lehdet kirjoittavat, että EU-komissio aikoo siirtää jopa 160 000 turvapaikanhakijaa Kreikasta, Italiasta ja Unkarista muihin EU-maihin.
+
+Lehdet sanovat, että EU-komissio ehdottaa ensi viikolla jokaiselle EU-maalle kiintiötä. Kiintiö tarkoittaa, että jokainen EU-maa ottaa vastaan tietyn määrän turvapaikanhakijoita. Suomen kiintiö on ehkä noin 2 000 - 3 000 ihmistä.
+
+EU-komissio aikoo myös tehdä listan maista, jotka ovat sen mielestä turvallisia. Turvallisista maista tulevien ihmisten turvapaikkahakemukset voidaan ehkä käsitellä nopeammin ja suurin osa hakemuksista voidaan hylätä.
+
+## Vasemmisto on epäsuosittu
+
+![Grafiikka puoluekannatuksesta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8277424)
+
+Avaa kuvien katselu
+
+Keskusta on yhä suurin puolue. Kuva: Yle Uutisgrafiikka
+
+Suomen vasemmistopuolueet ovat nyt epäsuositumpia kuin koskaan ennen. Ylen kyselyssä sosiaalidemokraatteja ja vasemmistoliittoa kannattaa yhteensä 22 prosenttia ihmisistä. Kymmenen vuotta sitten niitä kannatti vielä 35 prosenttia suomalaisista. 
+
+Ylen kyselyn suurin puolue on edelleen keskusta ja toiseksi suurin kokoomus. Perussuomalaiset on kolmas. Puolueen suosio on laskenut kolme prosenttiyksikköä viime kevään vaalien jälkeen. Sosiaalidemokraatit on neljänneksi suurin puolue ja se on aika lähellä perussuomalaisia. Vihreät ovat viides puolue ja vasemmistoliitto kuudes.
+
+## Viimeiset vaatetehtaat ehkä kiinni
+
+![Nanson myymälä kuvattuna Helsingin Mikonkadulla 15. syyskuuta 2011.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8277200)
+
+Avaa kuvien katselu
+
+Nanso on melkein 100 vuotta vanha firma. Kuva: Vesa Moilanen / Lehtikuva
+
+Vaatefirma Nanso sulkee ehkä tehtaansa Nokialla ja Torniossa.
+
+Nanson johtaja Leena Syrjälä sanoo, että firma on tehnyt viime vuosina tappiota. Siksi Nanson täytyy miettiä, voiko se vielä pitää tehtaansa Suomessa. Firmalla menee huonosti, koska ihmiset ostavat vähemmän vaatteita ja niitä täytyy myydä yhä halvemmalla.
+
+Syrjälä sanoo, että Nanso on viimeinen firma, jolla on isot vaatetehtaat Suomessa.
+
+## 
+
+## Maahanmuuttajat pelastivat Närpiön talouden ja kyläkoulut
+
+![Maahanmuuttajataustainen työntekijä karsii tomaattipensaita kasvihuoneessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8274514)
+
+Avaa kuvien katselu
+
+Mies hoitaa tomaattipensaita kasvihuoneessa. Kuva: Yle
+
+Pohjanmaalla Närpiössä maahanmuuttajista on paljon hyötyä.
+
+Närpiöön on muuttanut ihmisiä varsinkin Bosniasta ja Vietnamista. Monet heistä ovat töissä Närpiön kasvihuoneissa. He maksavat veroja ja Närpiön kunnalla ei ole rahapulaa. Maahanmuuttajat ostavat tyhjiä, vanhoja taloja Närpiön kylistä. Siksi kyläkouluihin riittää oppilaita ja niitä ei tarvitse sulkea.
+
+Melkein kaikki maahanmuuttajat ovat tulleet Närpiöön töihin, he eivät ole pakolaisia.

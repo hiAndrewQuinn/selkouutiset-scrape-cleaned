@@ -1,0 +1,61 @@
+# Keskiviikko 7.1.2015
+
+Ihmisiä kuoli terrori-iskussa Pariisissa. Eri maiden johtajat ovat tuominneet iskun. Suomalaiset eivät usko, että palkankorotuksista luopuminen pelastaa työpaikat. Lämpötila vaihtelee nyt paljon.
+
+## Ihmisiä kuoli terrori-iskussa Pariisissa
+
+![Palomiehet kantoivat uhria ambulanssiin keskiviikkona Pariisissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7723268)
+
+Avaa kuvien katselu
+
+Terrori-iskun jälkeen ihmisiä vietiin sairaalaan. Kuva: Philippe Dupeyrat / AFP / Lehtikuva
+
+Ranskassa on tapahtunut terrori-isku. Iskussa kuoli 12 ihmistä. Isku tapahtui keskiviikkona Ranskan pääkaupungissa Pariisissa.
+
+![Henkilö näyttää ranskalaisen satiirisen sanomalehden Charlie Hebdon etusivua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7723590)
+
+Avaa kuvien katselu
+
+Iskun kohde oli ranskalainen pilalehti Charlie Hebdo. Kuva: Bertrand Guay / AFP
+
+Iskussa kolme (3) ihmistä hyökkäsi ranskalaisen lehden toimitukseen ja alkoi ampua. Lehden nimi on Charlie Hebdo. Se on ranskalainen pilalehti, jossa on ollut pilakuvia esimerkiksi profeetta Muhammedista. Iskussa kuoli monta lehden pilapiirtäjää.
+
+Ranskan presidentti François Hollande kävi keskiviikkona ampumispaikalla. Presidentti kertoi, että Ranskan poliisi on estänyt monta muuta terrori-iskua viime viikkoina.
+
+## Pariisin isku järkyttää monia
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7603421)
+
+Avaa kuvien katselu
+
+Presidentti Niinistö sanoo, että suomalaiset ottavat osaa ranskalaisten suruun. Kuva: Yle
+
+Monien maiden johtajat ovat sanoneet, että isku ranskalaiseen lehteen oli väärin. Esimerkiksi Yhdysvaltojen, Venäjän ja Saksan johtajat ovat tuominneet iskun. Myös arabimaiden järjestö Arabiliitto sanoi, että isku oli väärin.
+
+Suomen presidentti Sauli Niinistö on lähettänyt Ranskan presidentille surunvalittelut terrori-iskun takia. Niinistö sanoi, että suomalaiset ottavat osaa ranskalaisten suruun. Niinistö myös tuomitsi terrori-iskun.
+
+## Osa suomalaisista on valmis luopumaan palkankorotuksesta
+
+![Naisen palkka kasvaa hitaasti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7591202)
+
+Avaa kuvien katselu
+
+Jotkut ovat valmiita luopumaan palkankorotuksesta, jos se auttaa säilyttämään työpaikkoja. Kuva: Yle / Isto Janhunen
+
+Täällä Suomessa puhutaan palkoista. Suomalaiset eivät usko, että työpaikat voidaan pelastaa niin, että palkkoja ei nosteta. Yli 60 prosenttia suomalaisista uskoo, että työpaikat voivat vähentyä, vaikka palkat pysyvät samoina kuin ennen. Tiedot ovat kyselystä, jonka Taloustutkimus teki Yle Uutisia varten.
+
+Osa suomalaisista on kuitenkin valmis luopumaan palkankorotuksesta, jos se oikeasti auttaa säilyttämään työpaikkoja. Noin 30 prosenttia suomalaisista on valmis siihen, että oma palkka ei nouse. Sitä mieltä ovat eniten ihmiset, joilla on iso palkka.
+
+Suomalaiset firmat ovat sanoneet, että ne eivät voi nostaa työntekijöiden palkkoja ainakaan paljon. Niiden mielestä suomalaiset firmat eivät pysty kilpailemaan ulkomaalaisten firmojen kanssa, jos Suomessa on kovin isot palkat. Firmat sanovat, että työpaikkoja on enemmän, jos palkat eivät nouse liikaa.
+
+## Lämpötilan muuttuminen on talvella tavallista
+
+![Ulkolämpömittari.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6458317)
+
+Avaa kuvien katselu
+
+Pakkanen on välillä kovaa, välillä heikkoa. Kuva: Ilkka Kemppinen / Yle
+
+Lämpötila vaihtelee nyt paljon. Välillä on kova pakkanen, ja välillä lauhtuu eli pakkanen vähenee. Meteorologi Asko Hutila kertoo, että se on Suomessa tavallista.
+
+Suomessa lämpötila voi muuttua yli 30 astetta yhdessä päivässä. Yleensä niin käy talvella, kun pakkanen lauhtuu. 30 asteen pakkasen jälkeen voi nopeasti tulla muutama aste lämmintä.

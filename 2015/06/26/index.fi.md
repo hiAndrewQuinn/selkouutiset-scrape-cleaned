@@ -1,0 +1,61 @@
+# Perjantai 26.6.2015
+
+Terroristit iskivät Tunisiassa, Kuwaitissa ja Ranskassa. Suomessa saadaan tänä kesänä paljon mustikkaa.
+
+## Terrori-isku Tunisiassa
+
+![Luodinreikä hotellin ovessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8108927)
+
+Avaa kuvien katselu
+
+Ampumisen jäljet näkyvät hotellin ovessa Soussessa. Kuva: Mohamed Messara / EPA
+
+Terroristit ovat tehneet iskuja eri puolilla maailmaa.
+
+Pahin terrori-isku tapahtui Tunisiassa, Pohjois-Afrikassa. Iskussa kuoli noin 40 ihmistä, kymmeniä ihmisiä loukkaantui. Isku tapahtui Soussen kaupungissa.
+
+Sousse on suosittu lomakaupunki, ja terrori-isku tehtiin rannalla hotellien vieressä. Iskun tekijä on tunisialainen miesopiskelija. Hän ampui ihmisiä aseella.
+
+Tunisian terrori-iskussa kuoli eniten ulkomaalaisia turisteja, ainakin brittejä, saksalaisia ja belgialaisia. Kuolleiden joukossa ei todennäköisesti ole suomalaisia. Suomalaiset matkatoimistot eivät järjestä matkoja Sousseen tähän aikaan vuodesta.
+
+## Terrori-isku Kuwaitissa
+
+![Sairaanhoitajia ja muita ihmisiä moskeijan sisäänkäynnillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8107893)
+
+Avaa kuvien katselu
+
+Pelastajat hakivat loukkaantuneita moskeijasta Kuwaitissa. Kuva: Yasser al-Zayyat / EPA
+
+Toinen terrori-isku tapahtui Kuwaitissa. Iskussa kuoli ainakin 25 ihmistä, loukaantuneita on 200. Kuwait on Irakin ja Saudi-Arabian naapurimaa.
+
+Kuwaitin terrori-isku tehtiin shiiamoskeijaan. Ääri-islamilainen Isis-järjestö sanoo, että se teki Kuwaitin terrori-iskun. Kysymys on islamin eri suunnista. Sunnalaisen Isis-järjestön mielestä shiialaiset ovat vääräuskoisia.
+
+## Terrori-isku Ranskassa
+
+![Pelastushhenkilöstöä Saint-Quentin-Fallavierissä 26. kesäkuuta 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8106957)
+
+Avaa kuvien katselu
+
+Pelastajia kaasutehtaan lähellä Ranskassa. Kuva: Philippe Desmazes / AFP / Lehtikuva
+
+Myös Ranskassa on tapahtunut terrori-isku. Iskussa kuoli yksi ihminen.
+
+Ranskan terrori-isku tehtiin kaasutehtaaseen. Tehtaassa räjähti, kun iskun tekijä ajoi autolla päin tehdasta. Räjähdyksessä loukkaantui kaksi ihmistä.
+
+Iskussa kuoli mies, jolta iskun tekijä irrotti pään. Miehen pää löydettiin tehtaan portilta, miehen ruumis oli tehtaan sisällä. Kuollut oli liikemies ja iskun tekijän pomo.
+
+Ranskan poliisi on saanut kiinni iskun todennäköisen tekijän. Hän jäi kiinni, koska palomies pysäytti hänet tehtaalla. Tekijä on 35-vuotias mies, ja hänellä on kontakteja ääri-islamilaisiin.
+
+## Mustikoita tulossa paljon
+
+![Mustikanvarpu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6641191)
+
+Avaa kuvien katselu
+
+Mustikassa on nyt paljon kukkia. Kuva: Antti Eintola / Yle
+
+Täällä Suomessa mustikoita saadaan tänä kesänä todennäköisesti paljon. Mustikka on yksi Suomen metsämarjoista. Mustikassa on nyt kukkia ennätyspaljon.
+
+Mustikkaan on tullut paljon kukkia, koska sää on ollut hyvä mustikalle. Viime syksy oli lämmin, ja talvella lumi suojasi mustikkaa. Viime talvena ei myöskään ollut kovia pakkasia.
+
+Mustikan marjat kypsyvät tänä kesänä vähän tavallista myöhemmin, koska kesä on ollut melko kylmä. Etelässä mustikat ovat kypsiä heinäkuun lopussa, pohjoisessa vasta elokuussa. Vain tosi kuiva heinäkuu voi enää haitata mustikan kypsymistä.

@@ -1,0 +1,59 @@
+# Keskiviikko 1.7.2015
+
+Fennovoiman tilanne on epäselvä. Suomalaiset syövät paljon maitotuotteita. Helsinki-Vantaan lentokentälle pääsee nyt junalla. Sää lämpenee.
+
+## Fennovoiman tilanne on epäselvä
+
+![Migrit Energijan toimisto kerrostalon alakerrassa Kroatian Zagrebissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8118503)
+
+Avaa kuvien katselu
+
+Migrit Energijan toimisto on kroatialaisessa kerrostalossa. Kuva: Petra Autio / Lehtikuva
+
+Suomessa kysytään, kuka on Fennovoiman uusi kroatialainen omistaja. Ydinvoimafirma Fennovoima haki tiistaina lupaa rakentaa ydinvoimala Pyhäjoelle, Pohjois-Suomeen. Hakupapereista näkyy, että yksi Fennovoiman omistajista on kroatialainen energiafirma Migrit Solarna Energija.
+
+Kroatialainen firma tuli Fennovoiman omistajaksi viime hetkellä. Fennovoiman täytyi tehdä hakemus ydinvoimalan rakentamisesta kesäkuun loppuun mennessä eli viimeistään tiistaina. Suomen valtio määräsi, että Fennovoima voi hakea lupaa ydinvoimalalle vain, jos vähintään 60 prosenttia sen omistajista on Suomesta tai Euroopan unionista.
+
+Venäläinen media on kertonut, että kroatialaisen firman omistajilla on venäläinen tausta. Silloin sitä ei ehkä voi laskea Fennovoiman eurooppalaisiin omistajiin. Suomen viranomaiset tutkivat asiaa.
+
+Fennovoima on tilannut ydinvoimalan venäläiseltä Rosatom-firmalta. Rosatom on myös yksi Fennovoiman omistajista. Jos Fennovoiman ydinvoimala rakennetaan, se alkaa tuottaa sähköä ehkä vuonna 2024.
+
+## Suomalainen syö paljon maitotuotteita
+
+![Mitä keskivertosuomalainen söi ja joi 2014](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8118358)
+
+Avaa kuvien katselu
+
+Suomalaisten tärkeimmät ruoka-aineet ovat maito, vilja ja liha. Kuva: Yle Uutisgrafiikka
+
+Suomalainen syö melkein 180 kiloa maitotuotteita vuodessa. Näin kertoo tutkimuslaitos, jonka nimi on Luonnonvarakeskus. Luonnonvarakeskus on laskenut, mitä ja kuinka paljon tavallinen suomalainen söi vuonna 2014.
+
+Luonnonvarakeskus kertoo, että tavallinen suomalainen söi viime vuonna viljaa 80 kiloa. Suurin osa siitä oli vehnää, jota meni 46 kiloa. Riisin kulutus oli vähän alle 5 kiloa.
+
+Suomalainen syö lihaa melkein yhtä paljon kuin viljaa. Lihan kulutus oli viime vuonna 77 kiloa henkilöä kohti. Suurin osa siitä eli 35 kiloa oli sianlihaa.
+
+Suomalaiset syövät vihanneksia enemmän kuin ennen. Vihanneksia kului viime vuonna 65 kiloa henkilöä kohti.
+
+## Junarata lentokentälle avattiin
+
+![Kehärata](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8117652)
+
+Avaa kuvien katselu
+
+Ihmiset jonottivat ensimmäiseen I-junaan aikaisin keskiviikkoaamuna. Kuva: Ella Mikkola / Yle
+
+Helsinki-Vantaan lentokentälle pääsee nyt junalla. Keskiviikkona avattiin rata, joka yhdistää Helsingin keskustan ja lentokentän. Radalla kulkevat paikallisjunat I ja P.
+
+Lentokentän oma juna-asema ei ole vielä ihan valmis. Se avataan myöhemmin heinäkuussa. Siihen asti matkustajat viedään lentokentälle Aviapoliksen asemalta bussilla.
+
+Odotetaan, että matkustajat tekevät uudella radalla noin 150 000 matkaa joka päivä. Uuden radan rakentaminen kesti 6 vuotta.
+
+## Lämmintä luvassa
+
+![Mies ottaa aurinkoa laiturilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6615660)
+
+Avaa kuvien katselu
+
+Etelä-Suomessa lämpötila voi nousta lähelle 30 astetta. Kuva: Martti Juntunen / Yle
+
+Sää lämpenee. Etelässä on aurinkoista ja lämpötila nousee torstaina jopa 25 asteeseen, perjantaina lähelle 30 astetta. Pohjoisessa on kylmempää.

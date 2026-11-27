@@ -1,0 +1,55 @@
+# Tiistai 14.4.2015
+
+Entisen pääministerin sähköposteja vuodettiin ulos valtioneuvostosta. Muhamed-pilapiirtäjän vierailu aiheutti järeät turvatoimet. Nokia haluaa ostaa Alcatel-Lucentin. Lentolakko perui jonkin verran lentoja.
+
+## Entisen pääministerin sähköposteja vuodettiin julkisuuteen
+
+![Jyrki Katainen Aamu-tv:n vieraana 5. maaliskuuta 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7846578)
+
+Avaa kuvien katselu
+
+EU-komission varapuheenjohtaja, entinen pääministeri Jyrki Katainen Kuva: Yle
+
+Valtioneuvoston kansliassa tutkitaan tietovuotoa. Entisen pääministerin Jyrki Kataisen sähköposteja on vuotanut ulos. Viestejä on päätynyt ainakin yhden median haltuun. Tietovuoto sattui viime keväänä, kun Euroopan unionissa valmisteltiin ensimmäisiä Venäjä-pakotteita.
+
+Valtioneuvoston kanslia on pääministerin oma ministeriö. Valtioneuvoston turvallisuuspäällikkö Marko Lavikkala sanoo, että vuodon selvittäminen on pahasti kesken. Suojelupoliisi avustaa valtioneuvostoa tapauksen selvittämisessä. Joidenkin työntekijöiden tietokoneita käydään läpi. Tässä vaiheessa ei epäillä, että joku ulkomaalainen ryhmä olisi tunkeutunut tietojärjestelmiin.
+
+Entinen pääministeri, nykyinen EU-komissaari Jyrki Katainen sanoo tietovuotoa ikäväksi asiaksi.
+
+## Muhammed-pilapiirtäjä Lars Vilks tuli Suomeen
+
+![Lars Vilks.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7927843)
+
+Avaa kuvien katselu
+
+Pilapiirtäjä Lars Vilks Helsingin Kaivohuoneella.  Kuva: Vesa Moilanen / Lehtikuva
+
+Ruotsalainen pilapiirtäjä Lars Vilks on osallistunut Suomessa sananvapaustilaisuuteen. Tilaisuus piti alunperin pitää eduskunnassa, mutta se kiellettiin turvallisuussyistä. Nyt tilaisuus pidettiin ravintola Kaivohuoneella Helsingissä. Vilksin kutsui Suomeen perussuomalaisten kansanedustaja Mika Raatikainen.
+
+Vilks on joutunut useiden hyökkäysten kohteeksi Muhamed-pilapiirrosten takia. Turvatoimet olivat tiukat ja esimerkiksi yleisö joutui kulkemaan metallinpaljastajien läpi. Reppuja ja laukkuja ei saanut tuoda sisälle. Lisäksi toimittajien tavarat haisteli pommikoira. Lisäksi poliiseja oli runsaasti ravintolan lähellä.
+
+## Nokia harkitsee suurta yritysostoa
+
+![Nokian ja Alcatel Lucent logot.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7927556)
+
+Avaa kuvien katselu
+
+Nokia harkitsee yhdistymistä Alcatel-Lucentin kanssa.  Kuva: Ben Stansall / Damien Meyer / AFP
+
+Verkkofirma Nokia harkitsee yhdistymistä toisen suurfirman kanssa. Nokia kertoo, että se keskustelee yhdistymisestä Alcatel-Lucentin kanssa. Molemmat firmat tekevät laitteita ja ohjelmistoja tietoliikennefirmoille.
+
+Jos Alcatel-Lucent ja Nokia yhdistyvät, uusi firma on maailman toiseksi (2.) suurin verkkovalmistaja. Vain ruotsalainen Ericsson on suurempi.
+
+Nokialle kauppa on kallis, sillä se maksaa Nokialle jopa 13 miljardia euroa. Nokian kurssi on laskenut pörssissä uutisen jälkeen.
+
+## Lentolakko perui joitakin lentoja
+
+![Matkalaukkuja kentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7926772)
+
+Avaa kuvien katselu
+
+Matkalaukut eivät liikkuneet lakon takia.  Kuva: Yle
+
+Ilmailualan työntekijöiden lakot ovat sotkeneet osan lennoista Helsinki-Vantaan lentoasemalla. Finavia sanoo, että lakon vaikutukset ovat jääneet odotettua pienemmiksi. Vain Norwegian on perunut paljon lentoja. Matkatavaroiden toimituksissa on ollut jonkin verran viivästyksiä. Finnairin, Flyben ja Blue1:n lennot on hoidettu koko ajan normaalisti.
+
+Lakon syynä on riita Airpro-firman työehtosopimuksista. Lakossa ovat matkalaukkuja siirtävät työntekijät ja joitakin lentoemäntiä. Lakko jatkuu vielä huomenna.

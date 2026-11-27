@@ -1,0 +1,73 @@
+# Perjantai 24.6.2016 (radio)
+
+Britannia eroaa Euroopan unionista. David Cameron jättää Britannian pääministerin työn. Suomen pääministerin mielestä Britannian ero EU:sta on huono asia Euroopan talouden kannalta. Suomessa vietetään juhannusta.
+
+## Britit äänestivät
+
+![Ääntenlaskua Lontoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8982960)
+
+Avaa kuvien katselu
+
+Äänet laskettiin EU-äänestyksen jälkeen. Kuva: Anthony Devlin / EPA
+
+Britannia lähtee Euroopan unionista.
+
+Britit äänestivät EU:sta torstaina. 52 prosenttia äänestäjistä halusi, että Britannia eroaa EU:sta. 48 prosenttia halusi, että Britannia pysyy Euroopan unionissa.
+
+Euroopassa mietitään nyt, miten ero tehdään. Mikään maa ei ole ennen eronnut EU:sta. Arvioidaan, että eroprosessi kestää ainakin 2 vuotta.
+
+Britannia on ollut EU:ssa jo yli 40 vuotta. Maa tuli mukaan Euroopan unioniin vuonna 1973.
+
+## Cameron eroaa
+
+![Britannian pääministeri David Cameron.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8983157)
+
+Avaa kuvien katselu
+
+Pääministeri David Cameron. Kuva: Rex / AOP
+
+Britannian pääministeri David Cameron jättää pääministerin työn.
+
+Cameron ei jatka pääministerinä, koska britit äänestivät EU-eron puolesta. Cameron kannatti EU:ssa pysymistä. Cameronin mielestä Britannia tarvitsee nyt uuden johtajan.
+
+Cameron sanoo, että uusi pääministeri tarvitaan viimeistään lokakuussa. Silloin Cameronin konservatiivipuolueella on puoluekokous.
+
+## Skotlanti pettyi
+
+![Britannian kartta, jossa EU-kansanäänestyksen tulos.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8983003)
+
+Avaa kuvien katselu
+
+Englanti ja Wales olivat EU-eron kannalla, Skotlanti ja Pohjois-Irlanti sitä vastaan. Kuva: Hilppa Hyrkäs / Yle Uutisgrafiikka
+
+EU-äänestyksessä Britannian eri alueiden välillä oli eroja. Englannissa ja Walesissa suurin osa äänestäjistä kannatti eroa Euroopan unionista, mutta Skotlannissa ja Pohjois-Irlannissa suurin osa äänestäjistä halusi pysyä unionissa.
+
+Monet skotlantilaiset haluavat nyt erota Britanniasta ja pysyä mieluummin EU:ssa. On jopa mahdollista, että Skotlannissa järjestetään taas äänestys itsenäisyydestä. Skotlantilaiset äänestivät itsenäisyydestä 2 vuotta sitten, mutta silloin suurin osa skotlantilaisista halusi kuulua Britanniaan. EU-äänestyksen jälkeen tilanne voi olla toinen.
+
+## Sipilä yllättyi
+
+![Juha Sipilä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8983306)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä. Kuva: Yle
+
+Suomen pääministeri Juha Sipilä on yllättänyt Britannian äänestystuloksesta.
+
+Sipilä sanoo, että Britannian ero EU:sta on huono asia myös Euroopan talouden kannalta. Sipilän mielestä EU-maiden johtajien pitää nyt löytää keinoja, joilla taloutta voidaan parantaa.
+
+Sipilä osallistuu EU-maiden johtajien kokoukseen Brysselissä ensi viikolla.
+
+## Juhannus alkoi
+
+![Juhannuskokko Seurasaaren rannassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6696043)
+
+Avaa kuvien katselu
+
+Juhannuskokko Seurasaaressa vuonna 2013. Kuva: Jyrki Lyytikkä / Yle
+
+Juhannuksenvietto on alkanut perjantaina eli juhannusaattona. Juhannuskokkoja poltetaan juhannusaaton iltana eri puolilla Suomea.
+
+Lauantaina on juhannuspäivä. Kaupat saavat nykyään itse päättää, milloin ne ovat auki. Siksi monet kaupat ovat auki myös juhannuksena.
+
+Juhannuksena myös liputetaan. Suomen lippu nostetaan lipputankoon juhannusaaton iltana. Lippu pysyy tangossa koko juhannusyön ja vielä juhannuspäivän.

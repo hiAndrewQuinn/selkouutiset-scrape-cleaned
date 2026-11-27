@@ -1,0 +1,5 @@
+# Torstai 21.1.2016 (tv)
+
+EU aikoo uudistaa Dublin-sopimusta. Poliisit ovat ottaneet kiinni ihmissalakuljettajia Turkissa ja Saksassa. Soneran matkapuhelinverkossa on paljon häiriöitä. Koskelan vastaanottokeskuksessa Helsingissä turvapaikanhakijat opiskelevat suomea laulamalla. Sää lämpenee lännestä alkaen.
+
+Yle Uutiset selkosuomeksi

@@ -1,0 +1,59 @@
+# Perjantai 13.5.2016 (radio)
+
+Talvivaaran entisille kaivosjohtajille tuomiot. Suomessa voi kohta opiskella somalin kielen opettajaksi. Puhu selkokieltä -kampanja oli menestys. Suomessa on paljon innokkaita pyöräilijöitä.
+
+## Talvivaaran entisille kaivosjohtajille tuomiot
+
+![Pekka Perä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8876894)
+
+Avaa kuvien katselu
+
+Toimitusjohtaja Pekka Perä sai kovimmat sakot.  Kuva: Ari Lahti / AOP
+
+Kaivosfirma Talvivaaran entiset johtajat on tuomittu sakkoihin ympäristörikoksesta. Oikeus tuomitsi 3 entistä johtajaa sakkoihin ympäristön turmelemisesta. Oikeus hylkäsi kokonaan 1 johtajan rikossyytteet.
+
+Syyttäjä vaati paljon kovempia rangaistuksia. Oikeus sanoi, että kaivoksen päästöt pilasivat ympäristöä. Päästöt eivät aiheuttaneet kuitenkaan selvää vaaraa ihmisten terveydelle. Siksi tuomio jäi sakkoihin.
+
+Myös kaivosyhtiö joutuu maksamaan sakkoja ja korvauksia valtiolle yhteensä melkein 4 miljoonaa euroa, koska kaivos laski jätevesiä luontoon ilman lupaa. 
+
+Valtio omistaa tällä hetkellä Talvivaaran kaivoksen, koska firmalta loppuivat rahat vuonna 2014. Kaivoksen tulevaisuus ratkeaa kesällä.
+
+## Suomessa voi opiskella kohta somalin kielen opettajaksi
+
+![Helsingin yliopisto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8725288)
+
+Avaa kuvien katselu
+
+Helsingin yliopisto on Suomen tunnetuin yliopisto.  Kuva: Ronnie Holmberg / Yle
+
+Helsingin yliopistossa voi tulevaisuudessa suorittaa somalin kielen yliopistotutkinnon. Uusi koulutus alkaa syksyllä 2017, mutta jo tänä syksynä voi suorittaa somalin kielen opintoja yliopistossa. Kielen opinnot on tarkoitettu niille, jotka puhuvat somalia äidinkielenään ja niille, jotka opiskelevat somaliaa vieraana kielenä.
+
+Yliopisto haluaa lisätä myös kiinan ja arabian kielten koulutusta. Yliopisto sanoo, että nuoria pitää kouluttaa aloille, joilta löytyy työtä. Varsinkin pätevistä somalin kielen opettajista on pulaa. Suomessa asuu 15 000 ihmistä, joiden äidinkieli on somalin kieli.
+
+## Puhu selkokieltä -kampanja oli menestys
+
+![A.B. Guy opiskelee Helsingin aikuisopistossa nuorisotakuukoulutuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8452051)
+
+Avaa kuvien katselu
+
+Puhu selkokieltä! -kampanja kesti 6 kuukautta. Kuva: Kaisa Kaatra / Selkokeskus
+
+Monilla työpaikoilla on viime kuukausina puhuttu selkosuomea. Noin 30 työpaikkaa ja oppilaitosta osallistui Puhu selkokieltä! -kampanjaan. Kampanja kesti 6 kuukautta. Sen järjestivät Selkokeskus ja Yle uutiset selkosuomeksi.
+
+Kampanjakoordinaattori Eliisa Uotila Selkokeskuksesta kertoo, että kampanja onnistui hyvin. Kampanjan aikana esimerkiksi annettiin vinkkejä selkokielen puhumiseen ja käännettiin työelämän vaikeita sanoja selkokielelle. Lisäksi kerättiin onnistumistarinoita eli etsittiin ihmisiä, jotka edistävät selkokielen puhumista työpaikoilla.
+
+Selkokeskus sanoo, että Suomessa on ehkä noin 500 000 ihmistä, jotka tarvitsevat selkokieltä.
+
+**Katso video kampanjan päätöstilaisuudesta**
+
+## Suomessa on paljon innokkaita pyöräilijöitä
+
+![Usein ratoja voi ajaa alas hyvinkin hitaasti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5379210)
+
+Avaa kuvien katselu
+
+Alamäkipyöräily on hauskaa, mutta vaarallista.  Kuva: Tapio Nykänen / Yle
+
+Suomessa vietetään pyöräilyviikkoa. Viikolla kannustetaan suomalaisia vaihtamaan auto sähköpyörään. Myös lasten kannattaa antaa pyöräillä kouluun, jos reitti on turvallinen ja matka sopivan mittainen.
+
+Suomessa pyöräilyharrastus kasvaa koko ajan ja varsinkin hurjat lajit, kuten alamäkipyöräily, kiinnostavat nuoria. Harrastajat sanovat, että nopeus ja vaarallisuus kiehtovat lajissa.

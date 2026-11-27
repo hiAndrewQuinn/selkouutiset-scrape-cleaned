@@ -1,0 +1,69 @@
+# Perjantai 19.2.2016 (radio)
+
+Rakennusalalla menee hyvin. Yhdysvaltojen presidentti Barack Obama on kehunut suomalaista jääkiekon pelaajaa Kimmo Timosta. Lukioissa on tänään vanhojen tanssit. Sää on harmaata ja sateista. Etelä-Suomen kouluissa on alkanut talviloma.
+
+## Rakennusalalla riittää töitä
+
+![Rakennusmies kerrostalon rakennustyömaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8685333)
+
+Avaa kuvien katselu
+
+Asuntoja rakentaminen on lisääntynyt vuoden aikana. Kuva: Jussi Nukari / Lehtikuva
+
+Rakennusalalla menee hyvin. Vuonna 2015 alkoi noin 30 000 uuden asunnon rakentaminen. Se on yli 15 prosenttia enemmän kuin vuotta aikaisemmin.
+
+Arvioidaan, että myös tänä vuonna asuntoja rakennetaan paljon. Myös kauppoja ja teollisuusrakennuksia rakennetaan enemmän kuin ennen.
+
+Rakennusala kasvaa tänä vuonna ehkä 3 prosenttia. Se tarkoittaa myös sitä, että rakennusalalla riittää töitä.
+
+## Vieraskielisten määrä kasvaa pääkaupunkiseudulla
+
+![Kaksi afrikkalaistaustaista maahanmuuttaja rautatieasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6086405)
+
+Avaa kuvien katselu
+
+Helsingissä asuu paljon ihmisiä, joilla on joku muu äidinkieli kuin suomi tai ruotsi. Kuva: Yle
+
+Vieraskielisten asukkaiden määrä Helsingin alueella kasvaa. Uusi arvio on, että melkein 25 prosenttia Helsingin alueen asukkaista on vieraskielisiä vuonna 2030. Vieraskielisten äidinkieli on muu kuin suomi tai ruotsi.
+
+Vieraskielisten määrä kasvaa eniten Vantaalla. Ehkä noin 30 prosenttia Vantaan asukkaista on vieraskielisiä vuonna 2030. Vantaa on suosittu asuinpaikka esimerkiksi siksi, että asunnot ovat siellä halvempia kuin Helsingissä ja Espoossa.
+
+## Obama kehui suomalaista jääkiekkoilijaa
+
+Obama kehuu Timosen uraa Valkoisessa talossa.  Kuva: Valkoisen talon verkkosivut
+
+Yhdysvaltojen presidentti Barack Obama on kehunut suomalaista jääkiekon pelaajaa Kimmo Timosta.
+
+Timosen joukkue Chicago Blackhawks voitti viime vuonna Stanley Cupin, ja 40-vuotias Timonen lopetti jääkiekkouran voittajana.
+
+Presidentti Obaman mielestä Timonen on hyvä esimerkki päättäväisyydestä, koska hän palasi jääkiekkokentille myös vaikean sairauden jälkeen.
+
+## Lukioissa tanssittiin
+
+![Vanhojen tanssit Lappeenrannassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8685878)
+
+Avaa kuvien katselu
+
+Vanhojen tansseissa nähdään kauniita pukuja. Kuva: Tommi Parkkinen/Yle
+
+Lukioissa on järjestetty vanhojen tanssit.
+
+Lukion 2. luokan oppilaat juhlivat sitä, että he ovat nyt koulun vanhimpia oppilaita. Abiturientit eli lukion 3. luokan oppilaat eivät tule enää kouluun, koska he lukevat kotona ylioppilaskokeisiin.
+
+Vanhojen tansseissa oppilailla on hienot juhlavaatteet. Tytöt käyttävät paljon rahaa myös juhlakampaukseen. Vanhojen tanssit on lukiolaisille tärkeä juhla.
+
+## Etelän talviloma alkoi
+
+![Pulkkailijoita Laskiaissunnuntaina Vantaan Malminkartanoss](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8655482)
+
+Avaa kuvien katselu
+
+Nyt on aika nauttia talvesta! Kuva: Heikki Saukkomaa / Lehtikuva
+
+Etelä-Suomen kouluissa on alkanut talviloma. Talviloma alkoi esimerkiksi Helsingissä ja Turussa. Talviloma kestää viikon.
+
+Keski-Suomen kouluissa talviloma on viikkoa myöhemmin kuin etelässä. Pohjois-Suomen ja Itä-Suomen kouluissa talviloma alkaa vasta maaliskuun 7. päivä.
+
+Talvilomaa sanotaan myös hiihtolomaksi, mutta talvilomalla voi tehdä paljon muutakin kuin hiihtää. Esimerkiksi Helsingissä järjestetään monenlaista ohjelmaa lapsille ja nuorille. Vinkkejä talviloman viettoon löytyy Yle Uutisten verkkosivuilta.
+
+**Katso Yle Uutisten talvilomavinkit**

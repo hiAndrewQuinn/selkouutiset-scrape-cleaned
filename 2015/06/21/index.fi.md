@@ -1,0 +1,61 @@
+# Sunnuntai 21.6.2015
+
+Kylmä sää on hidastanut perunan ja viljan kasvua. Kirjailija Veijo Meri on kuollut. Sunnuntaina on vietetty kansainvälistä joogapäivää. Makwan Amirkhani voitti vapaaottelun Berliinissä.
+
+## Kylmä sää haittaa maanviljelijöitä
+
+![Uutta perunaa torilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5585829)
+
+Avaa kuvien katselu
+
+Uudet perunat maksavat paljon, koska niitä on saatu vasta vähän. Kuva: Yle Etelä-Karjala
+
+Kesäkuu on ollut kylmä koko Suomessa. Kylmä sää on hidastanut viljan, perunan ja marjojen kasvua. Niitä saadaan tänä kesänä vähemmän kuin tavallisesti.
+
+Myös vettä on satanut paljon. Maanviljelijät eivät ole pystyneet tekemään kaikkia peltotöitä, koska maa on ollut märkää. Peltötyöt ovat nyt pahasti myöhässä.
+
+Alkukesän huono sää näkyy myös kaupoissa. Esimerkiksi suomalaisia uusia perunoita on ollut kaupoissa vasta vähän, ja ne ovat kalliita. Uusien perunoiden hinta laskee vasta, kun niitä saadaan enemmän.
+
+## Veijo Meri on kuollut
+
+![Veijo Meri](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8091983)
+
+Avaa kuvien katselu
+
+Veijo Meri oli 86-vuotias. Kuva: Jarno Mela / Lehtikuva
+
+Kirjalija Veijo Meri on kuollut. Meri oli kuuluisa suomlainen kirjailija. Hän oli 86-vuotias.
+
+Veijo Meri on kirjoittanut monta kirjaa. Hän on kirjoittanut romaaneja, runoja ja näytelmiä. Meren kirjoista on tehty myös elokuvia.
+
+Veijo Meri tunnetaan myös Suomen ulkopuolella. Meren kirjoja on käännetty yli 20 kielelle.
+
+## Kansainvälinen joogapäivä
+
+![Tuhansia joogaajia kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8091909)
+
+Avaa kuvien katselu
+
+Intian pääministeri Narendra Modi joogasi 35 000 intialaisen kanssa. Kuva: Harish Tyagi / EPA
+
+Sunnuntaina on vietetty ensimmäisen kerran kansainvälistä joogapäivää. Joogapäivää on vietetty innokkaasti Intiassa, jossa jooga on syntynyt.
+
+Intian pääkaupungissa Delhissä 35 000 ihmistä joogasi yhdessä. Intian pääministeri Narendra Modi johti joogaharjoitusta. Modi sanoi, että jooga ei ole vain kuntoilua. Jooga aloittaa uuden rauhan ajan, pääministeri Modi sanoi.
+
+Joogapäivää on vietetty myös noin 200 muussa maassa. Kansainvälisestä joogapäivästä päätti YK eli Yhdistyneet kansakunnat. Idea tuli Intiasta.
+
+## Makwan Amirkhani voitti Berliinissä
+
+![Makwan Amirkhani Berliini](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8091554)
+
+Avaa kuvien katselu
+
+Urheilutoimittajat uskovat, että Makwan Amirkhanista voi tulla supertähti. Kuva: Jani Mesikämmen
+
+Vielä urheilu-uutinen. Suomen Makwan Amirkhani on voittanut vapaaottelun Meksikon Masio Fullenia vastaan. Ottelu oli Berliinissä lauantai-iltana.
+
+Ottelu kesti vain minuutin ja 30 sekuntia. Amirkhani voitti Fullenin niin sanotulla takakuristuksella. Vapaaottelussa kilpailijat käyttävät monenlaista taistelutekniikkaa, esimerkiksi potkuja.
+
+Ottelun jälkeen Makwan Amirkhani sanoi, että voitto oli lahja hänen äidilleen. Perhe on Amirkhanille tärkeä. Ennen ottelua hän muisti myös isäänsä, joka on jo kuollut.
+
+Amirkhani on kotoisin Iranin Kurdistanista. Perhe pakeni sodan takia Suomeen, kun Makwan oli 5-vuotias. - Ilman Suomea en olisi täällä, mutta vereni tulee Kurdistanista, Makwan Amirkhani sanoi voiton jälkeen toimittajille Berliinissä.

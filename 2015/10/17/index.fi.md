@@ -1,0 +1,57 @@
+# Lauantai 17.10.2015
+
+Presidentti Sauli Niinistön mielestä turvapaikanhakijoiden kotoutuminen on tärkeää. Lauantaina on vietetty asunnottomien yötä. Vauvojen imetys kiinnostaa myös isiä. Autoilijoiden kannattaa jo vaihtaa talvirenkaat.
+
+## Presidentin mielestä kotoutuminen on tärkeää
+
+![Tasavallan presidentti Sauli Niinistö Ykkösaamun vieraana 17. lokakuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8388517)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö vieraili TV1:n Ykkösaamu-ohjelmassa lauantaina. Kuva: Yle
+
+Presidentti Sauli Niinistö uskoo, että Suomeen tulee lisää turvapaikanhakijoita. Niinistö sanoo, että turvapaikanhakijoita tulee paljon ehkä vielä monen vuoden ajan. Niinistö puhui asiasta televisio-ohjelmassa Ykkösaamu.
+
+Niinistö arvioi, että Suomeen tulee ihmisiä, jotka pakenevat sotaa. He etsivät rauhaa, eivät rahaa ja rikkautta. Niinistö sanoo myös, että turvapaikanhakijat haluavat itse rakentaa omaa elämäänsä Suomessa.
+
+Presidentti Niinistön mielestä on tärkeää, että turvapaikanhakijat kotoutuvat Suomeen. Niinistö sanoo, että kaikkien maahanmuuttajien täytyy noudattaa suomalaisia arvoja, joita ovat esimerkiksi tasa-arvo ja demokratia. Sen lisäksi myös monikulttuurisuudelle jää paljon tilaa, presidentti Niinistö sanoo.
+
+## Osa suomalaisista on ilman asuntoa
+
+![Ihmisiä Asunnottomien yö -tapahtumassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6891045)
+
+Avaa kuvien katselu
+
+Asunnottomien yönä järjestetään monia tapahtumia. Kuva: Milla Takala / Lehtikuva
+
+Lauantaina vietetään asunnottomien yötä. Asunnottomien yön tulet palavat eri puolilla Suomea. Näin halutaan muistaa ihmisiä, joilta puuttuu kodin lämpö.
+
+Suomessa yli 7000 ihmistä on ilman kotia. Joukossa on noin 1500 maahanmuuttajaa. Suurin osa asunnottomista asuu Helsingissä. He nukkuvat usein ystävien tai sukulaisten luona.
+
+Asunnottomien yönä on kerrottu myös hyvä uutinen. Suomessa on nyt asunnottomia vähemmän kuin vuosi sitten.
+
+## Isät keskustelevat imetyksestä Facebookissa
+
+![äiti imettää lastaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8186650)
+
+Avaa kuvien katselu
+
+Vaikka äiti imettää lasta, myös isä tarvitsee tietoa imetyksestä. Kuva: Päivi Meritähti / Yle
+
+Vauvojen imetys kiinnostaa myös isiä. Yksi syy siihen on sosiaalinen media. Isät ovat menneet mukaan Facebookin keskusteluryhmiin, joiden aiheena on imetys.
+
+Isät kysyvät Facebookissa neuvoa, jos perheessä on imetysongelmia. Isät myös laittavat kuvia omista vauvoistaan Facebookiin. Nuoret suomalaiset isät keskustelevat mielellään lapsiperheiden asioista sosiaalisessa mediassa.
+
+Kätilö Kaisa Äijälä sanoo, että imetysohjaukseen on hyvä ottaa mukaan koko perhe. Vaikka äiti imettää lasta, myös isä tarvitsee tietoa imetyksestä.
+
+## On aika vaihtaa talvirenkaat
+
+![Haalariasuinen mies siirtää rengasta rengasliikkeessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8388755)
+
+Avaa kuvien katselu
+
+Rengasliikkeissä alkaa nyt kiireinen aika. Kuva: Tuukka Lukinmaa / Yle
+
+Autoilijoiden kannattaa olla varovaisia tähän aikaan vuodesta. Yöllä on usein pakkasta, mutta päivällä on plusasteita. Kun aurinko nousee pakkasyön jälkeen, tienpinnalle tulee jäätä.
+
+Kantolan Renkaan toimitusjohtaja Jyrki Larvanto kertoo, että monet autoilijat vaihtavat talvirenkaat vasta, kun lunta sataa. Se on kuitenkin liian myöhään. Talvirenkaat kannattaa vaihtaa jo nyt, Larvanto sanoo.

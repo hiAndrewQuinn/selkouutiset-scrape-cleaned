@@ -1,0 +1,55 @@
+# Lauantai 4.6.2016 (radio)
+
+Kielteinen turvapaikkapäätös yhä useammalle. Nyrkkeilijä Muhammad Ali on kuollut. Seine-joki ei enää nouse Pariisissa. Tänään on juhlittu koulujen päättymistä.
+
+## Kielteinen turvapaikkapäätös yhä useammalle
+
+![Maahanmuuttoviraston myötämiä asiakirjoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8255172)
+
+Avaa kuvien katselu
+
+Maahanmuuttoviraston myöntämiä asiakirjoja. Kuva: Kare Lehtonen / Yle
+
+Turvapaikkahakemuksia hylätään tällä hetkellä useammin kuin viime vuonna. Tänä vuonna kielteisen päätöksen saa melkein joka kolmas hakija. Viime vuonna kielteisen päätöksen sai joka kuudes.
+
+Muutos johtuu ehkä siitä, että Maahanmuuttovirasto muutti arviotaan Irakin, Somalian ja Afganistanin turvallisuudesta. Viraston mukaan maat ovat muuttuneet turvallisemmiksi, ja niihin palautetaan helpommin turvapaikanhakijoita.
+
+Maahanmuuttovirasto on käsitellyt tänä vuonna 10 000 turvapaikkahakemusta. Päätöstä odottaa edelleen 20 000 turvapaikanhakijaa.
+
+## Nyrkkeilijä Muhammad Ali on kuollut
+
+![Muhammad Ali ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8931136)
+
+Avaa kuvien katselu
+
+Kuuluisa nyrkkeilijä Muhammad Ali on kuollut. Hän kuoli Yhdysvaltain Phoenixissä 74-vuotiaana. Ali sairasti Parkinsonin tautia jo 80-luvulta alkaen. Kuva: AOP
+
+Legendaarinen nyrkkeilijä Muhammad Ali on kuollut 74-vuotiaana Yhdysvalloissa. Hän sairasti Parkinsonin tautia.
+
+Ali voitti olympiakultaa vuonna 1960, ja hän oli 3 kertaa nyrkkeilyn raskaansarjan maailmanmestari. Ali lopetti nyrkkeilyuransa vuonna 1981.
+
+Muhammad Ali toimi myös aktiivisesti kansalaisoikeuksien puolesta. Hän kääntyi 22-vuotiaana islamin uskoon ja vaihtoi nimensä Cassius Claystä Muhammad Aliksi.
+
+## Seinejoki ei enää nouse Pariisissa
+
+![silta yli tulvivan joen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8931379)
+
+Avaa kuvien katselu
+
+Seinejoen tulva Pariisissa oli pahin yli 30 vuoteen. Nyt vesi on laskussa. Kuva: Jeremy Lempin / EPA
+
+Pariisissa Seinejoen tulva on kääntynyt laskuun. Viranomaiset sanovat, että tulvahuippu oli viime yönä. Vesi nousi vähän yli 6 metriin. Tulvat olivat pahimmat kaupungissa yli 30 vuoteen.
+
+Seinejoen tulvien takia Pariisin viranomaiset sulkivat siltoja ja metroasemia.  Myös joen varrella sijaitsevia taidemuseoita suljettiin.
+
+## Tänään on juhlittu koulujen päättymistä
+
+![Rosita Mäntyniemi on ylioppilas ja ylpeä siitä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8928237)
+
+Avaa kuvien katselu
+
+22-vuotias Rosita Mäntyniemi kirjoitti ylioppilaaksi Seinäjoen lukion aikuislinjalta. Hän haluaisi opiskella laulunopettajaksi tai musiikinteorian opettajaksi.  Kuva: Irina Mäntyniemi
+
+Tänään lauantaina on vietetty koulujen päättäjäisiä eri puolilla Suomea.
+
+Monessa kodissa on myös juhlittu uutta ylioppilasta tai ammatillisesta oppilaitoksesta valmistunutta nuorta. Peruskoulun päättötodistuksen sai noin 58 000 nuorta, ja ylioppilaita valmistui 27 000.

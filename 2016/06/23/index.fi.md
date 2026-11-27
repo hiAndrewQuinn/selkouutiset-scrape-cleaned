@@ -1,0 +1,59 @@
+# Torstai 23.6.2016 (radio)
+
+Oikeus on antanut tuomion valelääkäri Esa Laiholle. Britit äänestävät tänään siitä, eroaako Britannia EU:sta vai ei. Suomalaiset perunanviljelijät toivovat, että asiakkaat ostavat suomalaisia perunoita. Suomalaista kauraa viedään paljon ulkomaille.
+
+## Valelääkäri joutuu vankilaan
+
+![Esa Laiho Helsingin käräjäoikeudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8584749)
+
+Avaa kuvien katselu
+
+Valelääkäri Esa Laiho. Kuva: Kalevi Rytkölä / Yle
+
+Oikeus on antanut tuomion valelääkäri Esa Laiholle. Laiho joutuu vankilaan 4 vuodeksi ja 6 kuukaudeksi. Laihon pitää myös maksaa noin miljoonan euron palkat takaisin.
+
+Laiho sai tuomion pahoinpitelyistä ja petoksista, koska hän teki hoitovirheitä ja käytti tutkintotodistusta, joka ei ollut oikea. Oikeus ei kuitenkaan antanut Laiholle tuomiota taposta, vaikka häntä syytettiin 2 ihmisen tappamisesta.
+
+Esa Laihon oikeusjutusta on puhuttu Suomessa paljon. Valelääkäri Laiho ei ole oikea lääkäri. Hän teki lääkärin työtä ilman lääkärin koulutusta. Hän osti väärät lääkärin paperit ulkomailta. Monet potilaat kärsivät, koska Laiho ei osannut hoitaa heitä oikein.
+
+## Eroaako Britannia EU:sta?
+
+![David Cameron auton luona, näyttää peukalolla merkkiä ylöspäin. Takana näkyy EU:n tähtitunnus ja sanan alkua &#39;Euro&#39;.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8979561)
+
+Avaa kuvien katselu
+
+Pääministeri David Cameron haluaa, että Britannia pysyy EU:ssa. Kuva: Olivier Hoslet / EPA
+
+Britit ovat torstaina äänestäneet Euroopan unionista. Britit ovat äänestäneet siitä, eroaako Britannia EU:sta vai ei. Äänestys on jännittävä, koska eron kannattajia ja vastustajia on suunnilleen yhtä paljon.
+
+Pääministeri David Cameron haluaa, että Britannia pysyy EU:ssa. Cameronin mielestä Britannian taloudelle on hyötyä siitä, että Britannia on osa Euroopan unionia.
+
+Eron kannattajien mielestä Britannialla menee paremmin, jos se on unionin ulkopuolella. Silloin Britanniaan tulee esimerkiksi vähemmän maahanmuuttajia, he sanovat.
+
+Äänestyksen tulos selviää perjantaina. Silloin tiedetään, kuuluuko Britannia tulevaisuudessa Euroopan unioniin.
+
+## Nauti uusista perunoista!
+
+![Pestyjä uusia perunoita kattilassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7333316)
+
+Avaa kuvien katselu
+
+Suomalaiset haluavat juhannuksena uusia perunoita. Kuva: Juha Peltoperä / Yle
+
+Uusi peruna on juhannuksen herkkuruoka. Litra suomalaisia uusia perunoita maksaa nyt noin 3 euroa.
+
+Suomeen tuodaan paljon uusi perunoita myös Ruotsista. Ruotsalaiset perunat ovat halpoja, ja siksi perunan hinta laskee.
+
+Suomalaiset perunanviljelijät toivovat, että asiakkaat ostavat suomalaisia perunoita. Perunanviljelijä Dick Blomberg pelkää, että perunanviljely loppuu Suomesta. Perunanviljely ei kiinnosta nuoria, jos perunan hinta vain laskee, Blomberg sanoo.
+
+## Syö kauraa!
+
+![Kaurapelto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8236106)
+
+Avaa kuvien katselu
+
+Kaura on terveellinen vilja. Kuva: Kari Mustonen / Yle
+
+Kaura on nyt suosittu vilja. Suomalaista kauraa ostetaan paljon myös ulkomailla. Kauraa viedään Suomesta moniin maihin, aina Kiinaan asti. Siksi monet viljelijät ovat lisänneet kauran viljelyä.
+
+Kaura menee hyvin kaupaksi, koska sitä pidetään terveellisenä. Kauran terveellisyys on tunnustettu tieteellisesti ympäri maailmaa. Kauan syönti lisää esimerkiksi sydämen terveyttä.

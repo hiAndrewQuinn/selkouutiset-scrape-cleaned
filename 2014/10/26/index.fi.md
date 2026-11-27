@@ -1,0 +1,49 @@
+# Sunnuntai 26.10.2014
+
+Euroopan isoille pankeille on tehty stressitesti. Ukrainalaiset ovat äänestäneet parlamenttivaaleissa. Talviaika alkoi.
+
+## Euroopan isot pankit olivat stressitestissä
+
+![OP-Pohjolan logo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6300802)
+
+Avaa kuvien katselu
+
+Suomalaiset OP-Pohjola, Nordea ja Danske Bank selvisivät stressitestistä hyvin. Kuva: Yle
+
+Euroopan keskuspankki eli EKP on testannut Euroopan isot pankit. EKP teki niille stressitestin. EKP tutki, miten pankit selviävät, jos taloustilanteesta tulee todella huono.
+
+EKP tutki noin 130 pankkia. 25 pankkia ei selvinnyt stressitestistä. EKP:n mielestä niiden rahat loppuvat, jos tulee talouskriisi. EKP on määrännyt pankit hankkimaan lisää rahaa talouskriisin varalle.
+
+Stressitestissä oli mukana myös kolme (3) pankkia Suomesta. Ne olivat OP-Pohjola, Nordea ja Danske Bank. Ne selvisivät testistä hyvin.
+
+Euroopan maat haluavat stressitestien avulla varmistaa, että pankit kestävät myös huonoja aikoja. Pankeilla täytyy olla tarpeeksi omaa rahaa myös huonossa taloustilanteessa. Euroopan maat eivät halua enää käyttää verorahoja pankkien pelastamiseen niin kuin edellisen talouskriisin aikana.
+
+## Ukrainassa järjestettiin parlamenttivaalit
+
+![Vaalijulisteita Kiovan kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7549115)
+
+Avaa kuvien katselu
+
+Ukrainan vaaleissa on paljon ehdokkaita monista eri puolueista. Kuva: Tatyana Zenkovich / EPA
+
+Ukrainalaiset ovat äänestäneet vaaleissa. Ukrainalaiset valitsevat uuden parlamentin. Vaalit ovat tärkeät ukrainalaisille, jotka toivovat parempia aikoja. Ukrainan talous on nyt huonossa kunnossa, ja Itä-Ukrainassa on sota.
+
+Ukrainan kriisi alkoi viime talvena. Ukrainassa oli suuria mielenosoituksia presidentti Viktor Janukovitšia vastaan. Presidentti pakeni Venäjälle.
+
+Viime keväänä Venäjä otti Ukrainalta Krimin niemimaan. Venäjä on myös antanut tukea Itä-Ukrainan kapinallisille. Kapinalliset haluavat erota Ukrainasta.
+
+Nyt uskotaan, että Ukrainan vaaleissa voittavat ne puolueet, jotka kannattavat yhteistyötä Euroopan unionin kanssa. Esimerkiksi presidentti Petro Porošenkon puolue haluaa, että Ukraina on osa Eurooppaa. Porošenkosta tuli Ukrainan presidentti viime kesänä.
+
+## Talviaika alkoi
+
+![Unettomuus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7534171)
+
+Avaa kuvien katselu
+
+Monet nukkuvat huonosti, kun talviaika alkaa. Kuva: Yle
+
+Talviaika eli normaaliaika on alkanut. Kelloja siirrettiin tunti taaksepäin sunnuntaiaamuna. Talviaika jatkuu maaliskuun viimeiseen sunnuntaihin asti, ja sitten alkaa taas kesäaika. Suomessa on ollut erikseen kesäaika ja talviaika vuodesta 1981.
+
+Kellojen siirtäminen häiritsee monien ihmisten unta. Tutkimusprofessori Timo Partonen Terveyden ja hyvinvoinnin laitokselta sanoo, että ihmisten on vaikea tottua uuteen aikaan. Vanhoille se on vielä vaikeampaa kuin nuorille.
+
+Professori Partonen kertoo, että pimeä vuodenaika on ihmisille myös muuten vaikea. Monet nukkuvat talvella huonosti, ja jotkut lihovat. Partonen sanoo, että kirkasvalolamppu ja liikunta auttavat, kun on pimeää.

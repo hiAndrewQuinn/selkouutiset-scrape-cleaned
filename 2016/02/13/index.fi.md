@@ -1,0 +1,69 @@
+# Lauantai 13.2.2016 (radio)
+
+Suomen presidentti on tavannut Venäjän pääministerin. Suomi alkaa ehkä pian palauttaa turvapaikanhakijoita, jotka lähtevät Suomesta vapaaehtoisesti. Heinolassa voi nähdä jääveistoksia. Täi on tullut takaisin.
+
+## Niinistö tapasi Medvedevin
+
+![Sauli Niinistö ja Dmitri Medvedev.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8670847)
+
+Avaa kuvien katselu
+
+Suomen presidentti Sauli Niinistö ja Venäjän pääministeri Dmitri Medvedev. Kuva: Yle / Reijo Lindroos
+
+Suomen presidentti Sauli Niinistö on tavannut Venäjän pääministerin Dmitri Medvedevin. Niinistö ja Medvedev tapasivat Saksassa Münchenissä, jossa on iso turvallisuuskokous.
+
+Niinistö ja Medvedev keskustelivat tilanteesta Suomen ja Venäjän rajalla. Suomeen on tullut tänä vuonna monta sataa turvapaikanhakijaa Venäjän kautta. Presidentti Niinistö sanoi, että suomalaiset ja venäläiset yrittävät yhdessä ratkaista ongelman.
+
+Niinistö sai myös kutsun vierailla Venäjällä. Niinistö tapaa Venäjän presidentin Vladimir Putinin Moskovassa myöhemmin keväällä.
+
+## Turvapaikanhakijoiden palautukset alkavat
+
+![Turvapaikan hakijoita Evitskogin vastaanottokeskuksessa Kirkkonummella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8668699)
+
+Avaa kuvien katselu
+
+Usein turvapaikanhakijat, jotka haluavat palata takaisin kotimaanhan, ovat tulleet Suomeen ilman perhettä. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomi alkaa ehkä pian palauttaa turvapaikanhakijoita, jotka lähtevät pois Suomesta vapaaehtoisesti. Turvapaikanhakijoiden paluulennot alkavat ehkä ensi viikolla.
+
+Suomesta on vapaaehtoisesti lähtenyt jo noin 4000 turvapaikanhakijaa. He ovat itse ostaneet lentoliput.
+
+Viime viikkoina noin 20 tai 30 turvapaikanhakijaa päivässä on päättänyt lähteä Suomesta takaisin kotimaahan.
+
+## Heinolassa voi nähdä jääveistoksia
+
+![Yleisö kuvaa jääveistosta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8671159)
+
+Avaa kuvien katselu
+
+Yleisö tykkää Eeva Karhun jääveistoksesta "Ilmastonmuutos". Kuva: Mika Moksu / Yle
+
+Heinolassa voi nyt nähdä hienoja jääveistoksia. Jääveistokset ovat patsaita, jotka on tehty jäästä. Heinolan jääfestivaali on alkanut.
+
+Sää on ollut viime aikoina melko lämmin, ja vettä on satanut keskellä talvea. Heinolan jääfestivaali on kuitenkin onnistunut hyvin, koska tammikuussa oli kova pakkanen. Silloin syntyi kovaa jäätä, josta on ollut hyvä tehdä jääveistoksia.
+
+Tänä vuonna paras jääveistos yleisön mielestä on "Ilmastonmuutos". Sen on tehnyt Eeva Karhu.
+
+## Täi on tullut takaisin
+
+![Täi täikamman päällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8221710)
+
+Avaa kuvien katselu
+
+Täi on jäänyt täikampaan. Kuva: Yle
+
+Täi on taas monien perheiden ongelma. Täi on tosi pieni hyönteinen, joka elää hiuksissa. Se imee verta päänahasta.
+
+Täi oli kauan sitten tavallinen ongelma myös Suomessa, mutta sitten ne katosivat. 30 vuotta sitten monet suomalaiset eivät olleet koskaan nähneet täitä. Jos päähän tuli täitä, ne sai helposti pois täisampoolla.
+
+Viime vuosina täit ovat tulleet takaisin. Lapset ovat saaneet niitä koulusta tai päiväkodista. Vanhat täisampoot eivät ole enää auttaneet, koska täit ovat oppineet kestämään niitä. Nyt on onneksi myös uudenlaisia sampoita, jotka tappavat täit.
+
+## Lapissa riittää lunta
+
+![Latu lumisella järvellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8609263)
+
+Avaa kuvien katselu
+
+Jos nyt haluaa hiihtää, kannattaa matkustaa Lappiin. Kuva: Heli Mansikka / Yle
+
+Etelä-Suomessa lunta ei enää paljon ole, mutta Lapissa lunta on paljon. Kittilässä lunta on jo yli metri. Lumipeite on jopa 110 senttimetriä paksu.

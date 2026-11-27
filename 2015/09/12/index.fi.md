@@ -1,0 +1,61 @@
+# Lauantai 12.9.2015
+
+"Hallituksen suunnitelmat syrjivät turvapaikanhakijoita." Britannian työväenpuolue sai uuden johtajan. Euroopan kaupungeissa kokoonnuttiin piknikille. Suomi ja Ruotsi kilpailevat yleisurheilussa.
+
+## "Hallituksen suunnitelmat syrjivät turvapaikanhakijoita"
+
+![Turvapaikanhakijoita Kemin vastaanottokeskuksessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8299573)
+
+Avaa kuvien katselu
+
+Turvapaikanhakijoita Kemin vastaanottokeskuksessa. Kuva: Lehtikuva
+
+Suomen hallitus haluaa muuttaa Suomen sosiaaliturvajärjestelmää. Hallitus kertoi perjantaina, että se selvittää, voiko sosiaaliturvajärjestelmää muuttaa niin, että turvapaikanhakijoille maksetaan pienempiä tukia kuin muille.
+
+Perustuslain asiantuntijat professori Tuomas Ojanen ja apulaisprofessori Juha Lavapuro Helsingin ja Tampereen yliopistoista sanovat, että hallituksen suunnitelma on vastoin perustuslakia. Professorit sanovat, että jos turvapaikanhakija saa oleskeluluvan, hän on Suomessa aivan yhtä laillisesti kuin muutkin ulkomaalaiset. Perustuslaki ei salli, että turvapaikanhakijaa kohdellaan eri lailla kuin muita ihmisiä.
+
+Professorit sanovat, että hallituksen suunnitelma on myös vastoin kansainvälisiä ihmisoikeussopimuksia.
+
+## Britannian työväenpuolue sai uuden johtajan
+
+![Jeremy Corbyn ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8301225)
+
+Avaa kuvien katselu
+
+Jeremy Corbyn on on Britannian työväenpuolueen uusi puheenjohtaja. Kuva: Andy Rain / EPA
+
+Jeremy Corbyn on valittu Britannian työväenpuolueen uudeksi puheenjohtajaksi. 66-vuotias Jeremy Corbyn edustaa puolueen vasemmistosiipeä.
+
+Corbyn on ankara säästöpolitiikan vastustaja. Hän myös sanoo, että rikkaiden ihmisten täytyy maksaa korkeampia veroja. Corbyn on monta kertaa äänestänyt Britannian parlamentissa omaa puoluettaan vastaan. 
+
+Corbynia kannattavat etenkin nuoret ihmiset ja sellaiset äänestäjät, jotka ovat aiemmin pettyneet työväenpuolueen politiikkaan.
+
+Asiantuntijat arvioivat, että Britannian keskiluokalle työväenpuolueen äänestäminen voi nyt olla entistä vaikeampaa.
+
+## Euroopan kaupungeissa kokoonnuttiin piknikille
+
+![Suomi sanoo tervetuloa -kansalaispiknik Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8301400)
+
+Avaa kuvien katselu
+
+Helsingissä piknikille osallistui ainakin tuhat ihmistä. Kuva: Yle
+
+Eri puolilla Suomea järjestettiin lauantaina tapahtumia, joissa osoitettiin tukea ja solidaarisuutta pakolaisille. ”Suomi sanoo tervetuloa” -tapahtumia järjestettiin esimerkiksi Helsingissä, Espoossa, Kuopiossa, Oulussa, Mikkelissä ja Joensuussa.
+
+Tapahtumassa turvapaikanhakijat ja suomalaiset kokoontuivat yhteiselle retkelle, piknikille. Tarjolla oli musiikkia ja ruokaa ja tarkoitus oli, että ihmiset tutustuvat toisiinsa hyvässä ilmapiirissä. Helsingissä tapahtumaan tuli ainakin runsaat tuhat (1000) ihmistä.
+
+”Tervetuloa” -tapahtumia järjestettiin lauantaina myös muissa Euroopan kaupungeissa.
+
+## Suomi ja Ruotsi kilpailevat yleisurheilussa
+
+![Yleisurheilu kuvituskuva yleiskuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7896969)
+
+Avaa kuvien katselu
+
+Suomen ja Ruotsin yleisurheilumaaottelu pidetään tänä vuonna Tukholmassa. Kuva: Tomi Hänninen
+
+Tänä viikonloppuna käydään perinteinen yleisurheilun Suomi - Ruotsi -maaottelu. Ottelu pidetään tänä vuonna Tukholmassa.
+
+Viime vuosina Ruotsi on ollut maaotteluissa parempi kuin Suomi. Viime vuonna naisten ottelu oli kuitenkin tosi tiukka. Suomen naiset hävisivät Ruotsille vain kahdella (2) pisteellä.  
+
+Maaottelua voi seurata televisiosta TV2 -kanavalta.

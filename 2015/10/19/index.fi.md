@@ -1,0 +1,61 @@
+# Maanantai 19.10.2015
+
+Turvapaikanhakijat eivät pääse Serbiasta eteenpäin. UNHCR pyytää ottamaan leireiltä lisää pakolaisia. Kirkasvaloa vai liikuntaa kaamosväsymykseen? Luvassa on pilviä, tuulta ja sadetta.
+
+## Turvapaikanhakijat eivät pääse Serbiasta eteenpäin
+
+![Pakolaisreitit](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8391087)
+
+Avaa kuvien katselu
+
+Turvapaikanhakijat yrittävät päästä Serbiasta Kroatiaan ja Sloveniaan ja sieltä Itävaltaan. Kuva: Yle Uutisgrafiikka
+
+Eurooppaan yrittää edelleen päästä suuri määrä uusia turvapaikanhakijoita. Nyt turvapaikanhakijoiden täytyy kuitenkin pysähtyä Serbiaan.
+
+He eivät pääse Serbiasta eteenpäin, koska Unkari laittoi rajan kiinni perjantaina. Slovenia ja Kroatia eivät halua päästää kaikkia rajan läpi.
+
+YK:n pakolaisjärjestö UNHCR arvioi, että Serbiassa on yli 10 000 turvapaikanhakijaa odottamassa pääsyä eteenpäin.
+
+Ihmiset joutuvat nukkumaan sateessa ja he palelevat. Suojana on vain sadetakkeja ja huopia.
+
+Lisäksi turvapaikanhakijoita tulee koko ajan lisää Serbiaan. Kreikasta tulee Balkanille joka päivä 5 000 ihmistä.
+
+## UNHCR pyytää ottamaan leireiltä lisää pakolaisia
+
+![Pakolaisleiri Libanonissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8391777)
+
+Avaa kuvien katselu
+
+Syyrian pakolaisia Bekaan laaksossa Libanonissa 30. syyskuuta. Kuva: Nabil Mounzer / EPA
+
+EU valmistelee jäsenmaita ottamaan lisää pakolaisia Lähi-idän pakolaisleireiltä.
+
+EU:n sisällä liikkuu tietoja, että YK:n pakolaisjärjestö UNHCR pyytää Euroopan maita ottamaan 200 000 ihmistä. Komissio aikoo tehdä asiasta esityksen maaliskuun lopussa. Komissio ei ota vielä kantaa siihen, kuinka suuresta määrästä puhutaan.
+
+Kun pakolaiset otetaan suoraan leireiltä, he eivät joudu tekemään vaarallista ja kallista matkaa Eurooppaan.
+
+EU-maat päättivät kesällä ottaa vastaan 22 000 kiintiöpakolaista.
+
+## Kirkasvaloa vai liikuntaa kaamosväsymykseen?
+
+![Aamutv.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8390554)
+
+Avaa kuvien katselu
+
+Unitutkija Timo Partonen kävi aamu-tv:ssä kertomassa, miten kirkasvalohoito tehoaa.  Kuva: Yle
+
+Suomessa on taas monen kuukauden mittainen pimeä vuodenaika, eli kaamosaika. Pimeään aikaan monella on usein enemmän väsymystä kuin valoisan vuodenajan aikana.
+
+Jos väsymys lisääntyy, se voi tarkoittaa, että henkilöllä on kaamosoireita. Yksi kaamosoire voi olla se, että haluaa syödä jotakin makeaa iltapäivällä ja illalla.
+
+Väsymystä voi helpottaa liikunnalla. Lisäksi voi käyttää kirkasvalolamppua. Asiantuntija sanoo, että kirkasvalolamppu on parempi keino hoitaa väsymystä kuin liikunta.
+
+Unitutkija Timo Partonen kertoo, että kirkasvalolamppua pitää käyttää aamulla noin puoli tuntia esimerkiksi viikon ajan. Liikuntaa täytyy harrastaa noin 45 minuuttia kolme kertaa viikossa. Sitä ei saa harrastaa kuitenkaan liian myöhään illalla, koska yöuni voi huonontua.
+
+## Luvassa on pilviä, tuulta ja sadetta
+
+Alkuviikko on vielä poutainen, mutta sää muuttuu viikon puolivälissä matalapaineen myötä tuuliseksi ja sateiseksi. Kuva: Yle Sää
+
+Suomi ei enää saa nauttia auringosta lokakuussa. Sääennuste kertoo, että pilvien määrä taivaalla lisääntyy. Eri puolilla Suomea voi tulla vähän sadetta ja sumua on monessa paikassa.
+
+Tuuli on tiistaina voimakasta ja keskiviikkona ja torstaina Suomessa sataa paljon. Kun pilvisyys lisääntyy, tulee myös enemmän lämpöä.

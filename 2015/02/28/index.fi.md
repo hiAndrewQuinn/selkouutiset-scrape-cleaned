@@ -1,0 +1,57 @@
+# Lauantai 28.2.2015
+
+Venäläinen poliitikko Boris Nemtsov on murhattu. Virossa on sunnuntaina vaalit. Lauantaina on vietetty Kalevalan päivää. Kerttu Niskanen oli neljäs (4.) hiihdon MM-kilpailujen 30 kilometrin hiihdossa.
+
+## Kuuluisa poliitikko murhattiin Venäjällä
+
+![Pelastushenkilöstö siirtää Boris Nemtsovin ruumista Moskvoretskyn sillalla Moskovassa 28. helmikuuta 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7836499)
+
+Avaa kuvien katselu
+
+Boris Nemtsovin ruumis siirrettin pois rikospaikalta. Kuva: Dmitry Serebryakov / AFP / Lehtikuva
+
+Venäläinen poliitikko Boris Nemtsov on murhattu. Nemtsov kuoli, kun murhaajat ampuivat häntä myöhään perjantaina Moskovassa.
+
+Boris Nemtsov oli presidentti Vladimir Putinin arvostelija. Nemtsov kritisoi esimerkiksi Venäjän toimintaa Ukrainassa.
+
+Venäläiset ovat surullisia Nemtsovin murhan takia. Ihmiset ovat vieneet kukkia ja kynttilöitä paikalle, jossa murha tapahtui.
+
+Myös Venäjän ulkopuolella Nemtsovin murha on ollut suuri uutinen. Eri maiden johtajat, esimerkiksi Yhdysvaltojen ja Ranskan presidentit, eivät hyväksy murhaa. Suomen ulkoministeri Erkki Tuomioja sanoo, että Venäjän täytyy tutkia Nemtsovin murha huolellisesti.
+
+## Virolaiset valitsevat uuden parlamentin
+
+![Taavi Rõivas (vas.) ja Sven Mikser.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7831594)
+
+Avaa kuvien katselu
+
+Vaalien jälkeen Viron pääministeri on todennäköisesti joko reformipuolueen Taavi Rõivas tai sosiaalidemokraattien Sven Mikser. Kuva: Stephanie Lecocq, Nicolas Bouvy / EPA
+
+Virossa on sunnuntaina vaalit. Virolaiset valitsevat uudet edustajat parlamenttiin. Vaalien jälkeen Viro saa uuden hallituksen.
+
+Mielipidekyselyt ennustavat, että vaaleissa menestyvät hyvin reformipuolue, sosiaalidemokraatit ja keskustapuolue. On mahdollista, että Viron nykyinen pääministeri, reformipuolueen Taavi Rõivas, on myös Viron uuden hallituksen pääministeri. Myös sosiaalidemokraattien Sven Mikserillä on hyvät mahdollisuudet päästä pääministeriksi.
+
+Keskustapuolueen johtaja Edgar Savisaar tuskin on Viron seuraava pääministeri, koska muut puolueet eivät halua tehdä yhteistyötä keskustapuolueen kanssa. Muiden puolueiden mielestä keskustapuolue on Venäjän ystävä. Monet Viron venäjänkieliset asukkaat kannattavat keskustapuoluetta.
+
+## Kalevala täytti 180 vuotta
+
+![Akseli Gallen-Kallela: Väinämöisen lähtö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7834175)
+
+Avaa kuvien katselu
+
+Kalevalan päähenkilö on Väinämöinen. Tämän kuvan Väinämöisestä on maalannut Akseli Gallen-Kallela. Kuva: Arja Lento / Yle
+
+Lauantaina on vietetty Kalevalan päivää. Kalevala on Suomen kansalliseepos, jossa on vanhoja suomalaisia kansanrunoja. Elias Lönnrot keräsi runot 200 vuotta sitten kuuntelemalla runonlaulajia. Ensimmäinen versio Kalevalasta valmistui vuonna 1835 eli 180 vuotta sitten.
+
+Selkokirjailija Pertti Rajala on tehnyt Kalevalasta myös selkokielisen version. Selkokielinen Kalevala on lukijalle helpompi, koska Rajala on kirjoittanut sen kertomuksen muotoon. Selkokielisessä Kalevalassa on kuitenkin mukana myös joitakin Kalevalan runoja, niin että lukija saa hyvän kuvan Kalevalan kielestä.
+
+Lue lisää Kalevalan päivästä
+
+## Kerttu Niskanen oli 30 kilometrin hiihdossa neljäs
+
+![Kerttu Niskanen hiihdon 30 kilometrin MM-matkalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7836999)
+
+Avaa kuvien katselu
+
+Kerttu Niskanen hiihti MM-kilpailuissa hyvin. Kuva: Lehtikuva
+
+Suomen naishiihtäjät menestyivät melko hyvin lauantaina hiihdon MM-kilpailuissa. Naisten 30 kilometrin hiihdossa Kerttu Niskanen hiihti sijalle 4 ja Aino-Kaisa Saarinen sijalle 7. Kilpailun voittaja oli Norjan Therese Johaug.

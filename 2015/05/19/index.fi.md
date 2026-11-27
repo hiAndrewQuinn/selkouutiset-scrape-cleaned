@@ -1,0 +1,61 @@
+# Tiistai 19.5.2015
+
+Huumepoliisin entiselle päällikölle vaaditaan 13 vuoden vankeutta. Hallitusneuvotteluissa on edistytty. Afganistanissa on annettu tuomioita naisen lynkkauksesta. Pertti Kurikan Nimipäivät on tiistai-iltana Euroviisujen semifinaalissa Wienissä.
+
+## Suuri huumeoikeidenkäynti on alkanut Helsingissä
+
+![Jari Aarnio ja puolustusasianajaja Riitta Leppiniemi median huomion kohteena.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8002164)
+
+Avaa kuvien katselu
+
+Syytetty Jari Aarnio ja puolustusasianajaja Riitta Leppiniemi ovat median huomion kohteena Helsingin käräjäoikeudessa tiistaiaamuna 19. toukokuuta. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Helsingin huumepoliisin entisen päällikön Jari Aarnion huumeoikeudenkäynti on alkanut. Se pidetään Helsingin käräjäoikeudessa. Syyttäjä vaatii Aarniolle yhteensä 13 vuoden vankeustuomiota.
+
+Esitutkinnan materiaalia on yhteensä 25 000 sivua. Aarniota syytetään kahdeksasta (8) törkeästä huumerikoksesta.
+
+Aarniota syytetään myös kavalluksesta ja virkarikoksista. Rikossyytteitä on yhteensä melkein 30. Varsinainen oikeudenkäynti kestää ehkä yhdeksän (9) kuukautta.
+
+## Hallitusneuvottelut ovat edistyneet
+
+![Timo Soini, Juha Sipilä ja Alexander Stubb tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7993827)
+
+Avaa kuvien katselu
+
+Perussuomalaisten puheenjohtaja Timo Soini, hallitusneuvottelujen vetäjä, keskustan puheenjohtaja Juha Sipilä ja kokoomuksen puheenjohtaja Alexander Stubb tiedotustilaisuudessa Smolnassa eli valtioneuvoston juhlahuoneistossa Helsingissä. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Hallitusneuvotteluissa on edistytty. Keskustan, perussuomalaisten ja kokoomuksen eduskuntaryhmät ovat käsitelleet säästöehdotusta.
+
+Neuvottelijat ovat tehneet ensimmäisen pohjapaperin, jossa on neljän (4) miljardin euron säästöt.
+
+Säästöistä ei vielä kerrottu yksityiskohtia.
+
+## Afganistanissa on annettu tuomioita naisen murhasta
+
+![Afgaaninaiset vaativat oikeutta maaliskuussa surmatulle naiselle Kabulissa, Afganistanissa 27. huhtikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7967440)
+
+Avaa kuvien katselu
+
+Afgaaninaiset vaativat oikeutta maaliskuussa murhatulle naiselle Kabulisssa huhtikuussa. Kuva: Hedayatullah Amid / EPA
+
+Afganistanissa 11 poliisia on saanut vankeustuomion, koska he eivät estäneet naisen lynkkaamista kadulla. Väkijoukko murhasi 27-vuotiaan naisen Kabulissa maaliskuussa. Naisesta levitettiin väärää tietoa, jonka mukaan nainen oli polttanut Koraanin eli muslimien pyhän kirjan.
+
+Naisen murhasta levisi video. Sen jälkeen Afganistanissa oli paljon mielenosoituksia, joissa vaadittiin parannusta naisten asemaan. 
+
+Aikaisemmin oikeus tuomitsi neljä (4) miestä kuolemaan naisen murhasta. Oikeus tuomitsi myös 20 ihmistä, jotka olivat osallisia murhaan tai yllyttivät muita siihen.
+
+## Pertti Kurikan Nimipäivät pyrkii finaaliin Euroviisuissa
+
+![Pertti Kurikan Nimipäivät -yhtye Euroviisuissa 17. toukokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7998565)
+
+Avaa kuvien katselu
+
+Pertti Kurikan Nimipäivät -yhtye pursuaa voitontahtoa Euroviisuissa. Kuva: ORF
+
+Pertti Kurikan Nimipäivät esiintyy tiistai-iltana Euroviisuissa Itävallassa. Yhtye edustaa Suomea ensimmäisessä semifinaalissa Wienissä. Jos yhtye pääsee jatkoon, se kilpailee voitosta lauantaina.
+
+Toimittajat Wienissä kertovat, että Pertti Kurikan Nimipäivien musiikista ei aina pidetä, mutta heistä tykätään valtavan paljon. Yhtyeessä esiintyy neljä (4) kehitysvammaista miestä. He esittävät punkmusiikkia suomen kielellä.
+
+Yhtye on tuonut kehitysvammaisten asioita näkyvästi esille, ja heillä on paljon faneja ympäri maailmaa. Yhtyeen kilpailukappale on käännetty jopa latinan kielelle.
+
+Eurovision laulukilpailujen ensimmäinen semifinaali esitetään kello 22 alkaen Yle Radio Suomessa ja TV2:ssa.

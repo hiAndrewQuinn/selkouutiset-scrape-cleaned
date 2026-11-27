@@ -1,0 +1,73 @@
+# Maanantai 11.7.2016 (radio)
+
+Britannian uusi pääministeri on ehkä Theresa May. Portugali on jalkapallon Euroopan mestari. Tennispelaaja Henri Konttinen voitti Wimbledonissa. Öljykasveista tulee huono sato hyönteisten takia. Tämä on hyvä sienikesä.
+
+## Britannian johtoon Theresa May
+
+![Theresa May](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9017600)
+
+Avaa kuvien katselu
+
+Theresa May. Kuva: Will Oliver / EPA
+
+Britannian seuraava pääministeri on ehkä Theresa May. Hän on ainoa ehdokas Britannian konservatiivipuolueen puheenjohtajaksi, koska Andrea Leadsom ei enää yritä päästä virkaan.
+
+Theresa May on 59-vuotias. Hän on ollut kansanedustaja 20 vuotta ja sisäministeri 6 vuotta. 
+
+Britannian nykyinen pääministeri David Cameron eroaa, koska britit päättivät kansanäänestyksessä lähteä Euroopan unionista.
+
+Myös Britannian toisen suuren puolueen työväenpuolueen johtajaksi yrittää nainen, kansanedustaja Angela Eagle.
+
+## Portugali voitti EM-jalkapallon
+
+![Portugali on Euroopan mestari.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9016142)
+
+Avaa kuvien katselu
+
+Portugalin joukkueen riemua. Kuva: EPA
+
+Portugali on jalkapallon Euroopan mestari. Portugali voitti Ranskan 1-0 loppuottelussa Pariisissa sunnuntaina.
+
+Portugalilaiset jalkapallofanit ovat onnellisia, sillä tämä on Portugalin ensimmäinen jalkapallomestaruus.
+
+Ranskalaiset pettyivät. He ovat kuitenkin tyytyväisiä siihen, että EM-kisat sujuivat muuten hyvin. Stadionit olivat täynnä ja kisaturistit toivat paljon rahaa Ranskaan. Terrorismia ja lakkoja ei ollut ja fanien tappeluita vain vähän. Tunnelma oli hyvä ja ihmiset kävivät paljon ulkona yhdessä, esimerkiksi ravintoloissa syömässä.
+
+## Kontinen Wimbledon-voittoon
+
+![Heather Watson ja Henri Kontinen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9016082)
+
+Avaa kuvien katselu
+
+Heather Watson (vas.) ja Henri Kontinen. Kuva: AOP
+
+Henri Kontinen on ensimmäinen suomalainen, joka on voittanut kuuluisan tenniskilpailun.
+
+Henri Kontinen ja hänen parinsa britti Heather Watson voittivat sunnuntaina Wimbledonin mestaruuden. He pelasivat yhdessä toista paria vastaan. Kontinen ja Watson pelasivat Wimbledonin kilpailuissa ensimmäistä kertaa yhdessä.
+
+## Hyönteiset levisivät ympäri maata
+
+![Stig Winqvist tarkkailee tuholaisten jälkiä pelloillaan Tuusulassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9001855)
+
+Avaa kuvien katselu
+
+Stig Winqvistin pelloilla hyönteiset ovat syöneet 30% sadosta. Kuva: Jouni Immonen / Yle
+
+Suomeen tuli toukokuussa valtavan paljon hyönteisiä. Lämpimän ilman mukana tuli niin isoja hyönteisparvia, että ne näkyivät tutkassa.
+
+Hyönteiset levisivät joka puolelle Suomea. Ne ovat syöneet öljykasveja, joten rypsin ja rapsin sadosta tulee aika huono. Sato on ehkä 30 prosenttia huonompi kuin tavallisesti.
+
+Hyönteisistä on haittaa myös kotien puutarhoissa. Siellä hyönteisiä voi yrittää torjua niin, että suihkuttaa kasvien päälle vettä muutaman kerran viikossa. 
+
+## Sieniä tulee paljon
+
+![Sienestäjä puhdistaa keltavahveroita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9017027)
+
+Avaa kuvien katselu
+
+Kantarelli on mieto, herkullinen sieni. Kuva: Ismo Pekkarinen / AOP
+
+Tämä kesä on tavallista parempi sienikesä.
+
+Sienet kasvavat hyvin, koska on satanut paljon. Maa on yhtä aikaa märkää ja lämmintä. Tutkija Kauko Salo kertoo, että näin hyviä sienkikesiä on vain yksi tai kaksi 10 vuodessa.
+
+Metsissä näkyy jo esimerkiksi keltaisia kantarelli-sieniä.

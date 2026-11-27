@@ -1,0 +1,95 @@
+Peruskoulu
+
+# Maanantai 8.8.2016 (radio)
+
+Suomalainen peruskoulu kaipaa uudistusta. Koulutyö alkaa monissa kunnissa tällä viikolla. Media ei vaikuta poliittiseen päätöksentekoon. Keisari Akihito on ei pääse eläkkeelle.
+
+![Japanin keisari Akihito](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9022761)
+
+Avaa kuvien katselu
+
+Japanin keisari Akihito Kuva: Francis R. Malasig / EPA
+
+- 
+
+  
+
+  Merja Windia
+
+  
+
+  
+
+8.8.2016 18:05
+
+## Peruskoulu ei ole enää tasa-arvoinen
+
+![Lapsia luokassa tunnilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8218841)
+
+Avaa kuvien katselu
+
+Koululaisten oppimismahdollisuuksiin vaikuttavat asuinpaikka ja vanhempien koulutus. Kuva: Jyrki Lyytikkä / Yle
+
+Suomalainen peruskoulu kaipaa uudistusta. Koululaisten oppismistulokset ovat heikentyneet ja oppilaiden väliset erot ovat kasvaneet.
+
+Professori Jouni Välijärvi Jyväskylän yliopistosta sanoo, että peruskoulu ei ole enää tasa-arvoinen. Koululaisten oppismahdollisuuksiin vaikuttaa nyt se, missä he asuvat ja millainen koulutustausta heidän vanhemmillaan on.
+
+Professori Välijärvi sanoo, että esimerkiksi Itä- ja Pohjois-Suomessa poikien oppismistulokset ovat romahtaneet.
+
+Professori Välijärvi sanoo, että joka ikäluokassa on noin 10 000 nuorta, jotka ovat vaarassa syrjäytyä. Heillä on puutteita perusosaamisessa kuten lukemisessa, laskemisessa ja opiskelutaidoissa.
+
+## Koulujen syyslukukausi alkaa
+
+![Koululaisia Otsonkoulun pihalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9078996)
+
+Avaa kuvien katselu
+
+Ähtärin koululaiset aloittivat syyslukukauden maanantaina.  Kuva: Antti Kettumäki / Yle
+
+Koululaisten kesälomat päättyvät tällä viikolla.
+
+Esimerkiksi Lapissa Pelkosenniemellä ja Etelä-Pohjanmaalla Ähtärissä koulutyö alkoi jo maanantaina.
+
+Monessa muussa kunnassa kuten esimerkiksi Oulussa, Helsingissä, Tampereella ja Kuopiossa koulu alkaa myöhemmin tällä viikolla.
+
+Sen sijaan esimerkiksi Vantaalla, Espoossa ja Turussa koululaisten lomailevat yhä ja palaavat kouluun vasta ensi viikolla.
+
+## Media antaa poliitikoille puheenaiheita
+
+![Kuvaajia ja toimittajia eduskunnassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9078954)
+
+Avaa kuvien katselu
+
+Median edustajia hallituksen tiedotustilaisuudessa kesäkuussa. Kuva: Petteri Paalasmaa / AOP
+
+Median toiminta ei vaikuta poliittiseen päätöksentekoon. Sen sijaan media vaikuttaa poliittikkojen puheenaiheisiin, kertoo uusi tutkimus.
+
+Helsingin yliopiston tutkimuksessa kysyttiin kansanedustajien mielipidettä median vallasta.
+
+90 prosenttia kansanedustajista oli sitä mieltä, että median vaikutus näkyy esimerkiksi eduskunnan kyselytunnin puheenaiheissa.  Melkein yhtä moni sanoi, että eduskunnan valiokuntatyössä median vaikutus ei näy.
+
+## Keisari Akihito on huolissaan jaksamisestaan
+
+![Tokiolaiset seuraavat keisarin puhetta kadulla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9079132)
+
+Avaa kuvien katselu
+
+Tokiolaiset pysähtyivät katsomaan keisari Akihiton tv-puhetta. Kuva: Kiuoshi Ota / EPA
+
+Japanin keisari Akihito on pitänyt harvinaisen puheen maan televisiossa. Akihito sanoi, että hän on huolissaan siitä,
+
+![Japanin keisari Akihito](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9022761)
+
+Avaa kuvien katselu
+
+Japanin keisari Akihito Kuva: Francis R. Malasig / EPA
+
+miten hän jaksaa hoitaa keisarin tehtävät.
+
+Japanissa arvellaan, että Akihito toivoo, että osa keisarin tehtävistä siirretään kruununprinssi Naruhitolle ja hänen vaimolleen.
+
+Akihito on 82-vuotias. Hän on ollut sydänleikkauksessa ja hän on myös sairastanut eturauhassyöpää.
+
+Japanissa keisari ei voi luopua vallasta ja jäädä eläkkeelle, koska sitä ei mainita maan perustuslaissa.
+
+Tämä oli toinen kerta, kun keisari Akihito piti televisiopuheen. Ensimmäisen kerta oli vuonna 2011 Japanin maanjäristyksen ja tsunamin jälkeen.

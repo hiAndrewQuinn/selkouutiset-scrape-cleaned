@@ -1,0 +1,61 @@
+# Lauantai 25.4.2015
+
+Nepalissa on tapahtunut voimakas maanjäristys. Tällä viikolla on vietetty Lukuviikkoa. Kevät tulee eri aikaan eri puolille Suomea. Suomen paras jääkiekkojoukkue on Oulun Kärpät.
+
+## Maanjäristys tappoi ihmisiä Nepalissa
+
+![Romahtanut talo Kathmandussa 25. huhtikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7954864)
+
+Avaa kuvien katselu
+
+Nepalin pääkaupungissa Kathmandussa maanjäristys teki suurta vahinkoa. Kuva: Prakash Mathema / AFP / Lehtikuva
+
+Nepalissa on tapahtunut voimakas maanjäristys. Maanjäristyksessä kuoli yli tuhat (1000) ihmistä. Maanjäristys tapahtui lauantaina aamulla.
+
+Nepal on Kiinan ja Intian välissä. Maanjäristys teki paljon vahinkoa Nepalin pääkaupungissa Kathmandussa. Järistys tuhosi Kathmandussa esimerkiksi taloja.
+
+Nepalissa ei ole ollut näin pahaa maanjäristystä yli 80 vuoteen. Yhdysvaltojen seismologian laitos sanoo, että järistyksen voimakkuus oli 7,9 magnitudia. Se tarkoittaa, että maanjäristys oli erittäin voimakas.
+
+Maanjäristys oli niin voimakas, että se tuntui myös Nepalin naapurimaissa. Järistys tappoi ihmisiä myös Nepalin ulkopuolella. Ihmisiä on kuollut esimerkiksi Intiassa.
+
+## Lukuviikko innostaa lapsia lukemaan
+
+![Lapsi lukee kirjaa ikkunalaudalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7953438)
+
+Avaa kuvien katselu
+
+Alaluokkalaiset lukevat ahkerasti. Kuva: Yle
+
+Tällä viikolla on vietetty Lukuviikkoa. Lukuviikon aikana lapsia ja nuoria innostetaan lukemaan. Esimerkiksi koulut ovat järjestäneet Lukuviikon tapahtumia.
+
+Suomalaiset koululaiset lukevat ahkerasti alaluokilla. Myöhemmin lukeminen vähenee. Lasten lukuharrastus alkaa vähentyä jo neljännellä (4.) luokalla.
+
+Poikien lukutaito on Suomessa paljon huonompi kuin tyttöjen lukutaito. Esimerkiksi tietokonepelit vievät paljon poikien aikaa. Asiantuntijat ovat tästä huolissaan, koska huono lukutaito tuo ongelmia koko elämän ajan.
+
+## Suomen keväässä on kukkia ja lunta
+
+![Keväinen kukka. Lumi sulaa kukan ympäriltä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5079479)
+
+Avaa kuvien katselu
+
+Lumi sulaa, kukat kukkii. Nyt on kevät. Kuva: iStockphoto
+
+Kevät tulee taas eri aikaan eri puolille Suomea.
+
+Länsi-Suomessa kevät on alkanut jo jonkin aikaa sitten. Esimerkiksi Vaasassa kevät alkoi yli kuukautta aikaisemmin kuin tavallisesti. Ensimmäiset kevätkukat kukkivat jo lännessä.
+
+Itä-Suomessa kevät ei ole yhtä pitkällä kuin Länsi-Suomessa. On tavallista, että kevät alkaa Itä-Suomessa myöhemmin kuin Länsi-Suomessa. Lumi on kuitenkin jo sulanut pois monilta alueilta myös idässä.
+
+Pohjois-Suomessa kevät on tulossa tavalliseen aikaan. Lapissa järvet ovat vielä jäässä ja lunta on paljon. Esimerkiksi Saariselällä lunta on 55 senttimetriä.
+
+## Jääkiekon Suomen mestaruus meni Ouluun
+
+![Kärpät juhlii.jpg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7954888)
+
+Avaa kuvien katselu
+
+Kärppien pelaajat juhlivat mestaruutta. Kuva: Tomi Hänninen
+
+Suomen paras jääkiekkojoukkue on Oulun Kärpät. Kärpät voitti jääkiekon SM-liigan mestaruuden lauantaina. Kärpät oli mestari myös viime vuonna.
+
+Kärpät taisteli mestaruudesta tamperelaisen Tapparan kanssa. Tarvittiin seitsemän (7) loppuottelua, ennen kuin mestari selvisi. Myös viimeinen loppuottelu oli tasainen, ja Kärpät voitti mestaruuden vasta kahden (2) jatkoerän jälkeen.

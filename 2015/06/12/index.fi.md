@@ -1,0 +1,63 @@
+# Perjantai 12.6.2015
+
+Suomi haluaa vapaahtoisuutta turvapaikanhakijoiden siirroissa. Mers-epidemia vähenee Etelä-Koreassa. Piilokamera seuraa Suomen ensimmäistä kattohaikaraparia. Vihdoinkin ilmassa on kesän lämpöä.
+
+## Suomi haluaa vapaaehtoisuutta turvapaikanhaijoiden siirrossa
+
+![Pakolaisia saapumassa Kossin saarelle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8051309)
+
+Avaa kuvien katselu
+
+Nämäkin ihmiset ovat tulleet Välimeren yli Eurooppaan. Tässä heitä rantautuu Kosin saarelle Kreikassa. Kuva: Yannis Kolesidis / EPA
+
+Suomi haluaa, että turvapaikanhakijoiden siirrot EU-maasta toiseen tehdään vapaaehtoisesti. Hallituksen EU-ministerivaliokunta päätti asiasta perjantaina. Valiokunta haluaa, että siirrot tehdään vain poikkeustapauksissa ja hätätilanteessa. 
+
+Euroopan unionin komissio ehdottaa, että turvapaikanhakijoita siirretään Italiasta ja Kreikasta muihin EU-maihin. Komissio haluaa, että turvapaikanhakijoita sijoitetaan tasaisemmin EU-maihin.
+
+EU-maiden sisäministerit käsittelevät siirtoja tiistaina. Välimerellä on hukkunut tänä vuonna noin 2000 ihmistä, jotka ovat pyrkineet Eurooppaan Välimeren kautta.
+
+## Mers-epidemia vähenee Etelä-Koreassa
+
+![Mies desinfioi väliaikaisesti suljettua koulua Soulissa torstaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8069355)
+
+Avaa kuvien katselu
+
+Mers-epidemian takia hygienia on tärkeää. Esimerkiksi koululuokkia on desinfioitu Etelä-Korean pääkaupungissa Soulissa. Kuva: Yan Ji-Woon / EPA
+
+Etelä-Koreassa mers-tartunnat ovat kääntyneet laskuun. Perjantaina uusia tartuntoja oli neljä (4). Torstaina tartuntoja oli 14 ja keskiviikkona 13.
+
+Yhteensä Etelä-Koreassa on todettu 126 mers-tartuntaa. Tautiin on kuollut 11 ihmistä.
+
+Mers-epidemia alkoi toukokuussa. Virus aiheuttaa pahan infektion eli tulehduksen hengitysteissä. Mersiin ei ole rokotetta tai lääkettä.
+
+## Piilokamera seuraa Suomen ensimmäistä kattohaikaraparia
+
+![Kattohaikarat pesällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8007131)
+
+Avaa kuvien katselu
+
+Kattohaikaroita on paljon Suomen etelänaapurissa Virossa. Nyt Suomessa pesii ensimmäinen kattohaikarapari. Kuva: Micha Fager / Birdlife
+
+Suomen ensimmäinen kattohaikarapari näkyy nyt piilokamerassa. Kattohaikara on iso lintu, jolla on pitkät jalat ja pitkä kaula. 
+
+Kattohaikaran perheonnea voi seurata kamerassa lintujärjestö BirdLife Suomen nettisivuilla. Kamerasta näkyy, että haikaravanhemmat vaihtavat haudontavuoroa aamulla kello 8.30.
+
+Poikaset kuoriutuvat pian. Haikaranaaras alkoi hautoa ensimmäistä munaa 31 päivää sitten. Haudonta kestää ehkä 33 päivää. Haikara munii useamman kuin yhden munan.
+
+Kattohaikarat eivät ole ennen pesineet Suomessa.
+
+BirdLifen haikarakamera
+
+## Vihdoinkin ilmassa on kesän lämpöä
+
+![Lomalaisen varpaat rantavedessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5399613)
+
+Avaa kuvien katselu
+
+Helteestä kaikki eivät tykkää, mutta lämpimiä säitä varmasti jokainen on odottanut. Kuva: Kia-Frega Prepula / Yle
+
+Ilmatieteen laitos ennustaa, että perjantai on ollut kesän lämpimin päivä tähän mennessä. Uudellamaalla Nurmijärvellä mitattiin 22,8 astetta.
+
+Lauantaina helleraja voi mennä rikki, eli lämmintä voi olla yli 25 astetta maan eteläosassa.
+
+Sunnuntaina on taas viileämpää. Ensi viikolla eli juhannusviikolla on epävakaista.

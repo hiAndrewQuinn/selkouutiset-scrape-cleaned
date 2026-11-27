@@ -1,0 +1,61 @@
+# Perjantai 4.12.2015
+
+Tulipalo sattui jälleen vastaanottokeskuksessa. Poliisikoulun johtaja haluaa maahanmuuttajia opiskelijoiksi. Suomen tärkein juhla on sunnuntaina. Teitittely on tärkeää juhlissa ja asiakaspalvelussa.
+
+## Vastaanottokeskuksessa sattui taas tulipalo
+
+![Paloauto Rauman vastaanottokeskuksen vieressä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8502646)
+
+Avaa kuvien katselu
+
+Kerrostalossa asui ihmisiä ja muutama joutui sairaalaan.  Kuva: Katja Halinen / Yle
+
+Länsi-Suomessa on sattunut tulipalo talossa, johon suunniteltiin vastaanottokeskusta. Tulipalo sattui aamulla pienessä kerrostalossa Raumalla. Tulipalo alkoi rappukäytävästä.  Poliisi tutkii paloa.
+
+Tiistaina puutalo paloi Kankaanpäässä. Poliisi sanoo, että joku ehkä sytytti talon palamaan. Taloon piti muuttaa turvapaikanhakijoita.
+
+Viranomaiset ovat huolissaan tilanteesta ja vartiointia on lisätty vastaanottokeskuksissa.
+
+## Poliisikoulu haluaa maahanmuuttajia
+
+![Poliisiammattikorkeakoulu ulkoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6814924)
+
+Avaa kuvien katselu
+
+Poliisiammattikorkeakoulu haluaa maahanmuuttajia opiskelijoiksi.  Kuva: Petri Aaltonen / Yle
+
+Poliisikouluun toivotaan lisää maahanmuuttajia. Poliisikoulun johtaja Kimmo Himberg sanoo, että maahanmuuttajista halutaan kouluttaa poliiseja, koska he ymmärtävät muiden maahanmuuttajien kulttuuria ja kieltä.
+
+Himberg sanoo, että poliisi on pystynyt hoitamaan asioita turvapaikanhakijoiden kanssa melko hyvin.
+
+Poliisilla on ollut melko paljon tehtäviä vastaanottokeskuksissa. Poliisi on joutunut sovittelemaan turvapaikanhakijoiden välisiä riitoja.
+
+## Itsenäisyyspäivä on Suomen tärkein juhla
+
+![Piia Pasanen, Jussi-Pekka Rantanen Jaakko Selin itsenäisyyspäivä Linnan juhlat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8503035)
+
+Avaa kuvien katselu
+
+Piia ja Jussi-Pekka selostavat Linnanjuhlat. Jaakko kertoo puvuista.  Kuva: Yle
+
+Suomen valtion tärkeintä juhlaa, itsenäisyyspäivää, juhlitaan sunnuntaina. Presidentti Sauli Niinistö järjestää itsenäisyyspäivänä juhlan Presidentinlinnassa. Vieraita on kutsuttu melkein 2 000.
+
+Jussi-Pekka Rantanen ja Piia Pasanen selostavat Presidentinlinnan juhlia televisiossa. He sanovat, että vaikeinta on tuntea vieraat, jotka tulevat kättelemään presidenttiä. Jussi-Pekka ja Piia ovat opetelleet ihmisten nimiä ja kasvoja 3 viikkoa.
+
+Presidentin juhlavastaanotto on vuoden suosituin televisio-ohjelma, jolla on 2 miljoonaa katsojaa.
+
+## Teitittely on tärkeää juhlissa ja asiakastyössä
+
+![teitittely](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8501825)
+
+Avaa kuvien katselu
+
+Asiakkaita ja vanhuksia pitää teititellä, koska se on hyvää käytöstä.  Kuva: Lauri Silvander/Yle
+
+Suomessa osoitetaan kunnioitusta toiselle ihmiselle teitittelyllä. Teitittely eroaa sinuttelusta niin, että ihmiselle sanotaan te, ei sinä. Esimerkiksi "kuinka te voitte?"
+
+Teitittelystä on paljon sääntöjä, mutta 1 sääntö on tärkeä - presidenttiä teititellään aina. Sääntö on tärkeä muistaa varsinkin itsenäisyyspäivän juhlassa.
+
+Myös kaupassa asiakkaita on hyvä teititellä. Monet teitittelevät myös vanhempia ihmisiä, vaikka vanhempia ihmisiä teititellään nykyään vähemmän kuin aikaisemmin.
+
+Teitittely on vaikeaa suomen opiskelijoille, mutta myös suomalaisille. Esimerkiksi oikean verbimuodon valitseminen on vaikeaa. Oikea tapa on kysyä "oletteko ollut?" On väärin kysyä "oletteko olleet", koska teitittely tapahtuu aina yksikössä.

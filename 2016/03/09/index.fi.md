@@ -1,0 +1,77 @@
+# Keskiviikko 9.3.2016 (radio)
+
+Opiskelijat marssivat opintotuen puolesta. Poliisi pidätti 5 miestä, jotka ehkä yrittivät ryöstää arvokuljetusauton Salossa 2 viikkoa sitten. Balkanin reitti sulkeutuu turvapaikanhakjoilta. Pilkkijän stressi katoaa avannolla kevätauringossa. 
+
+## Opiskelijat marssivat opintotuen puolesta
+
+![Mielenosoittaja pitelee banderollia, jossa lukee &quot;Anna heille anteeksi. He eivät tiedä mitä tekevät.&quot;](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8730439)
+
+Avaa kuvien katselu
+
+Opiskelijat vastustavat hallituksen aikeita pienentää opintotukea. Kuva: Varpu Helpinen / Yle
+
+Helsingissä tuhannet opiskelijat ovat osoittaneet mieltään opintotuen puolesta. 
+
+Hallitus haluaa säästää 150 miljoonaa euroa opintotuesta. Hallitus aikoo maksaa opiskelijoille opintorahaa entistä vähemmän ja entistä lyhyemmän ajan. Opiskelijoita kannustetaan ottamaan lainaa opintoja varten.
+
+Opiskelijat sanovat, että hallituksen säästöt lisäävät opiskelijoiden työssäkäyntiä. Sen takia moni valmistuu hitaammin kuin on aikonut.
+
+Oppositiopuolueet tekevät hallitukselle välikysymyksen opintotuesta. Oppositio sanoo, että hallitus vaarantaa suomalaisen koulutuksen, osaamisen ja sivistyksen.
+
+## Balkanin reitti sulkeutuu
+
+![Kartta Balkanin pakolaisreitistä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8724925)
+
+Avaa kuvien katselu
+
+EU ja Turkki ovat sopineet, että turvapaikanhakijoiden Balkanin reitti katkaistaan. Kuva: Yle Uutisgrafiikka
+
+Slovenia, Kroatia ja Serbia ovat sulkeneet rajansa tiistain ja keskiviikon välisenä yönä. Maat haluavat katkaista pakolaisten ja siirtolaisten reitin Kreikasta Balkanin läpi muualle Eurooppaan.
+
+Makedonia on jo aikaisemmin rajoittanut pakolaisten pääsyä rajan yli. Sen takia Kreikan ja Makedonian rajalla on nyt jumissa noin 14 000 pakolaista.
+
+EU ja Turkki ovat sopineet Balkanin reitin katkaisusta. Sopimuksen mukaan EU alkaa palauttaa turvapaikanhakijoita Kreikasta Turkkiin.
+
+## Poliisi pidätti arvokuljetusryöstöä yrittäneet
+
+![Arvokuljetusauton ryöstöyritys E18-moottoritiellä Salon Suomusjärvellä 25.2.2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8698994)
+
+Avaa kuvien katselu
+
+Arvokuljetusauto yritettiin ryöstää Salon kohdalla Turun ja Helsingin välisellä moottoritiellä. Kuva: Kalle Mäkelä / Yle
+
+Poliisi on pidättänyt 5 miestä, jotka ehkä yrittivät ryöstää arvokuljetusauton 2 viikkoa sitten. Poliisi kertoo, että miehet pidätettiin pääkaupunkiseudulla tiistaina. Poliisi on myös tehnyt useita kotietsintöjä.
+
+Poliisi sanoo, että osa ryöstäjistä voi vielä olla vapaalla jalalla.
+
+Arvokuljetusauto yritettiin ryöstää moottoritiellä Salossa. Autossa oli rahalasti. Ryöstäjät eivät onnistuneet saamaan rahoja.
+
+## Stressi katoaa pilkillä kevätauringossa
+
+![Pilkkijöitä järven jäällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8597826)
+
+Avaa kuvien katselu
+
+Pilkkiminen on suosittu harrastus Suomessa. Kuva: Mika Moksu / Yle
+
+Näin kevättalvella monet suomalaiset lähtevät pilkille.
+
+Pilkkiminen on talvikalastusta. Pilkkijä tekee jäähän reiän eli avannon, jonka kautta hän onkii kaloja.
+
+Moni tykkää pilkkiä, koska se on hyvä tapa rentoutua. Jäällä on hiljaista ja kevätauringossa stressi unohtuu. Välillä voi juoda esimerkiksi kahvia termospullosta.
+
+Pilkkijän täytyy kuitenkin varmistaa, että jää on riittävän vahvaa. Koskaan ei saa mennä heikolle jäälle.
+
+## SAK neuvoo työelämän ongelmissa
+
+![Eve Kyntäjä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8730558)
+
+Avaa kuvien katselu
+
+SAK:n uusi palvelu neuvoo maahanmuuttajia ilmaiseksi, kertoo Eve Kyntäjä selkouutisten haastattelussa. Kuva: Tiina Jutila / Yle
+
+Työntekijäjärjestö SAK avaa tässä kuussa uuden neuvontapalvelun maahanmuuttajille. Palvelusta saa ilmaiseksi lakimiehen neuvoja työelämän kysymyksiin.
+
+SAK:n maahanmuuttoasioiden asiantuntija Eve Kyntäjä kertoo palvelusta selkouutisten haastattelussa, joka löytyy osoiteesta yle.fi/selkouutiset, kohdasta Kotoutujan Suomi.
+
+**Kuuntele Eve Kyntäjän haastattelu**

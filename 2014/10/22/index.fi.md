@@ -1,0 +1,71 @@
+Euroopan komissio
+
+# Keskiviikko 22.10.2014
+
+Euroopan parlamentti on hyväksynyt uuden EU-komission. Monet ovat työttöminä kauan. Pohjoismaiden somalijärjestöt kokoontuivat Suomessa. Tämän syksyn uusi pakkasennätys on 20,5 astetta.
+
+- 
+
+  
+
+  Pertti Seppä
+
+  
+
+  
+
+22.10.2014 19:45•Päivitetty 22.10.2014 19:45
+
+## Euroopan parlamentti hyväksyi uuden komission
+
+![Jean-Claude Juncker](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7543606)
+
+Avaa kuvien katselu
+
+Jean-Claude Juncker johtaa uuden komission työtä. Kuva: Frederik Florin / AFP / Lehtikuva
+
+Euroopan parlamentti on hyväksynyt Euroopan unionin uuden komission. Parlamentti äänesti asiasta keskiviikkona. Uusi komissio tarvitsi parlamentin hyväksymisen, että se voi aloittaa työnsä.
+
+Komissio toteuttaa Euroopan unionin politiikkaa. Uuden komission puheenjohtaja on Jean-Claude Juncker. Komissiossa on yksi jäsen jokaisesta EU-maasta. Suomen jäsen komissiossa on Jyrki Katainen, joka on yksi komission varapuheenjohtajista.
+
+Uusi komissio aloittaa työnsä marraskuussa. Uusi komissio on koottu Euroopan parlamentin vaalien jälkeen. Vaalit järjestettiin toukokuussa.
+
+## Monet ovat työttöminä kauan
+
+![Pasilan TE-toimisto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7293677)
+
+Avaa kuvien katselu
+
+Pitkäaikaistyöttömät ovat olleet työttöminä vähintään vuoden.  Kuva: Yle
+
+Monet suomalaiset ovat olleet ilman työtä pitkän aikaa. Melkein 100 000 suomalaista on ollut työttömänä ainakin vuoden. He ovat pitkäaikaistyöttömiä.
+
+Pitkäaikaistyöttömien määrä myös kasvaa. Eniten määrä kasvaa pääkaupunkiseudulla. Helsingissä ja Espoossa pitkäaikaistyöttömiä on nyt 50 prosenttia enemmän kuin vuosi sitten. Koko Suomessa pitkäaikaistyöttömien määrä on kasvanut vuodessa 20 prosenttia.
+
+Monet joutuvat etsimään työtä kauan, vaikka heillä on hyvä koulutus. Esimerkiksi pääkaupunkiseudulla on paljon pitkäaikaistyöttömiä, joilla on hyvä koulutus.
+
+## Pohjoismaiden somalialaisten kokous oli Suomessa
+
+![Kuvaa kokoussalista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7543435)
+
+Avaa kuvien katselu
+
+Pohjoismaiden somalijärjestöjen kokous oli Espoossa. Kuva: Yle
+
+Pohjoismaiden somalialaiset ovat kokoontuneet tällä viikolla Suomessa. Kokouksessa olivat mukana Suomen, Ruotsin ja Norjan somalijärjestöt. Järjestöt ovat huolissaan siitä, että jotkut somalinuoret ovat lähteneet taistelemaan Syyriaan.
+
+Suomen somalialaiset eivät tiedä, miksi heidän lapsensa kiinnostuvat radikaalista islamista ja lähtevät taistelemaan Syyriaan. Heidän mielestään nuoret eivät aina ymmärrä, että Syyrian taistelut eivät ole heidän asiansa. Ruotsista ja Norjasta somalinuoria on lähtenyt Syyriaan vielä enemmän kuin Suomesta.
+
+Pohjoismaiden somalijärjestöt haluavat yhdessä auttaa nuoria. Ne perustivat yhteistyötä varten verkoston, jonka nimi on Somali Nordic Federation.
+
+## Tämän syksyn uusi pakkasennätys on 20,5 astetta
+
+![Syksyn 2014 pakkasennätys](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7543242)
+
+Avaa kuvien katselu
+
+Tämän syksyn pakkasennätys mitattiin Ivalon lentokentällä Lapin Inarissa. Kuva: Yle Sää
+
+Kova pakkanen on jatkunut Pohjois-Suomessa. Eri puolilla Lappia oli tiistain ja keskiviikon välisenä yönä melkein 20 astetta pakkasta. Kylmin paikka oli taas Ivalon lentokenttä, jossa pakkasta oli 20,5 astetta. Se on tämän syksyn uusi pakkasennätys.
+
+Aurinkoinen pakkassää jatkuu vielä torstaina. Perjantaina sää muuttuu. Loppuviikolla on pilvistä, sateista ja lämpimämpää kuin nyt. Etelässä sataa vettä, pohjoisessa lunta.

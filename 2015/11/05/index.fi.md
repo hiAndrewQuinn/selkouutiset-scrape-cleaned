@@ -1,0 +1,63 @@
+# Torstai 5.11.2015
+
+Venäläisen lentokoneen putoamisen syy on ehkä pommi. Postin työntekijät aikovat mennä lakkoon kahden viikon päästä. Suomalaiset haaveilevat paljon auton ostamisesta. Perjantaina vietetään ruotsalaisuuden päivää.
+
+## Lentokone putosi ehkä pommin takia
+
+![Venäjän hätätilaministeriön välittämässä kuvassa näkyy A321-matkustajakoneen pyrstöosan jäännöksiö Siinain niemimaalla 1. marraskuuta 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8433903)
+
+Avaa kuvien katselu
+
+Venäläinen lentokone putosi Siinain autiomaahan Egyptissä. Kuva: Maxim Grigoryev / Venäjän hätätilaministeriö / AFP
+
+Venäläisen lentokoneen putoamisen syy on ehkä pommi. Yhdysvallat ja Britannia sanovat, että lentokone putosi, koska koneessa räjähti pommi. Pommin lentokoneeseen pani ehkä terroristijärjestö Isis.
+
+Venäjä on eri mieltä. Venäjä sanoo, että onnettomuuden syytä ei vielä tiedetä.
+
+Venäläinen lentokone putosi lauantaina Siinain autiomaahan Egyptissä. Koneessa oli 224 ihmistä. Kaikki ihmiset kuolivat.
+
+## Kahden viikon päästä on ehkä postilakko
+
+![Postin työntekijä jakaa postia Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8425241)
+
+Avaa kuvien katselu
+
+Posti ei ehkä kulje 19.-20.11. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Postin työntekijät aikovat mennä lakkoon kahden viikon päästä. Työntekijät eivät aio tehdä työtä kahtena päivänä. Lakkopäivät ovat marraskuun 19. ja 20. päivä.
+
+Postin jakamisessa on ollut häiriöitä työkiistan takia myös tällä viikolla. Työntekijät lähtivät maanantaina pois töistä monessa kaupungissa, vaikka työpäivä ei ollut lopussa.
+
+Postissa on kiistaa, koska posti vuokraa työntekijöitä toisesta firmasta. Vakituiset työntekijät eivät hyväksy vuokraamista.
+
+Torstaina protesteja oli vielä esimerkiksi Espoon kaupungissa. Siksi posti ehkä myöhästyy.
+
+## Matka on suomalaisten haave numero yksi
+
+![Auringonpalvominen ja etenkin ihon polttaminen altistavat melanoomalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6556606)
+
+Avaa kuvien katselu
+
+Etelän aurinko houkuttelee suomalaisia. Kuva: Pekka Sipilä / Yle
+
+Suomalaiset haaveilevat paljon auton ostamisesta. Auto on toivelistalla sijalla viisi. Suomalaiset haaveilevat enemmän auton ostamisesta kuin kodin laittamisesta.
+
+Suomalaiset haaveilevat eniten matkustamisesta. Matkustaminen on toivelistalla sijalla yksi. Sen jälkeen tulevat terveys, raha ja kodin remontit.
+
+Danske Bank tutki suomalaisten haaveita. Tutkimuksen teki Taloustutkimus. Tutkimus sanoo, että suomalaiset ostavat auton, koska he tarvitsevat sitä.
+
+Suomalaiset haaveilevat myös viihde-elektroniikasta, huonekaluista ja vapaa-ajasta.
+
+## Perjantaina on Svenska dagen
+
+![Kuvassa oikea, höger ja vasen, vänster kyltit eduskuntatalolla. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5305413)
+
+Avaa kuvien katselu
+
+Suomessa on kaksi virallista kieltä. Kuva: YLE / Touko Yrttimaa
+
+Perjantaina vietetään ruotsalaisuuden päivää. Ruotsalaisuuden päivä eli Svenska dagen on aina marraskuun 6. päivä. Ruotsalaisuuden päivänä juhlitaan Suomen toista virallista kieltä eli ruotsia.
+
+Noin 300 000 suomalaista puhuu äidinkielenä ruotsia. Ruotsinkielisiä suomalaisia eli suomenruotsalaisia asuu eniten rannikkoalueilla. Suomenruotsalainen kulttuuri on kuitenkin ollut tärkeä koko Suomelle.
+
+Monet kuuluisat suomalaiset ovat ruotsinkielisiä. Esimerkiksi kirjailijat Johan Ludvig Runeberg, Zachris Topelius ja Tove Jansson kirjoittivat ruotsiksi. Myös esimerkiksi presidentti, marsalkka Mannerheimin äidinkieli oli ruotsi.

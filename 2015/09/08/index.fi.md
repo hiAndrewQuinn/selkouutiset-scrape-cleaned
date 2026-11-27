@@ -1,0 +1,59 @@
+# Tiistai 8.9.2015
+
+Hallitus on kertonut uusista toimista. Ruualle on perustettu hävikkivarasto.Tiistaina on vietetty lukutaitopäivää. Golf-virta saattaa mennä sekaisin.
+
+## Lomia, ylityökorvauksia ja sunnuntailisiä leikataan
+
+![Hallituksen esityksiä leikkauskohteiksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8290016)
+
+Avaa kuvien katselu
+
+Hallitus on kertonut toimista, joilla korvataan kaatunut yhteiskuntasopimus. Kuva: Yle Uutisgrafiikka
+
+Hallitus on kertonut toimista, jotka korvaavat yhteiskuntasopimuksen. Hallitus yrittää saada talouden nousuun ja saada Suomeen lisää työpaikkoja.
+
+Toimia ovat esimerkiksi palkkojen sunnuntailisän ja ylityökorvausten pienentäminen sekä lomien lyhentäminen. Arkena olevat pyhäpäivät eli arkipyhät muuttuvat vapaapäiviksi, joista ei makseta palkkaa.
+
+Hallituksen ja työmarkkinajärjestöjen yhteiskuntasopimus kaatui elokuussa, kun osapuolet eivät päässeet sopuun. Moni työntekijäliitto on nyt sanonut, että hallituksen uudet toimet ovat liian kovia.
+
+## Ruokahävikki pannaan kuriin
+
+![Ihmiset ottavat leipää koreista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8288372)
+
+Avaa kuvien katselu
+
+Ruokaa menee roskiin ja biojätteeseen valtavia määriä, vaikka ruoka olisi vielä syötäväksi kelpaavaa. Vantaalla varastoidaan nyt ruokaa apua varten. Kuva: Kaisu Jansson / Yle
+
+Vantaan Koivukylään avataan ruokahävikkivarasto. Ruokahävikki tarkoittaa sitä, että ruokaa menee roskiin tai biojätteeksi, vaikka sitä voi vielä syödä.
+
+Hävikkivarasto on yhteysapuna kauppojen ja järjestöjen välillä. Mukana on kauppoja, jotka lahjoittavat ruokaa ja järjestöjä, jotka ottavat ruokaa vastaan.
+
+Varaston perustajat ovat Vantaan kaupunki ja seurakunnat. Kaupunki ja seurakunnat myös maksavat varaston kustannukset.
+
+## Lukutaito on arvokas asia
+
+![Nainen lukee kirjaa luonnossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8130359)
+
+Avaa kuvien katselu
+
+Kansainvälisenä lukutaitopäivänä on ollut mielenilmauksia, joissa on oltu lukemisen puolesta, ei mitään vastaan  Kuva: Henrietta Hassinen / Yle
+
+Tiistaina on vietetty kansainvälistä lukutaitopäivää. Esimerkiksi Suomessa ihmiset kokoontuvat lukutaitopäivänä julkisille paikoille lukemaan kirjallisuutta, josta he tykkäävät paljon.
+
+23 paikkakunnalla on järjestetty mielenilmaus lukemisen puolesta. Mielenilmauksessa tehtiin ihmisketjuja, joissa luettiin osallistujien suosikkikirjoja. Idea on korostaa sitä, että lukeminen ja lukutaito ovat tärkeitä asioita.
+
+Laura Karlsson Kirjan vuosi -yhdistyksestä sanoo, että lukutaito on ihmisoikeus. Se on myös tie tasa-arvoon, parempaan terveyteen ja demokratiaan.
+
+## Golf-virta muuttuu ja kylmentää pohjoista
+
+![Ilmaston lämpenemisen myötä ikiroudan alueet ovat alkaneet sulaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7802422)
+
+Avaa kuvien katselu
+
+Ilmastonmuutos on monimutkainen asia. Vaikka ilmasto lämpenee, Golf-virran muutokset voivat kylmentää ilmaa pohjoisessa. Kuva: Nick Cobbing / EPA
+
+Grönlannin jään sulaminen sotkee Golf-virtaa. Golf-virta on suuri ja lämmin merivirta Atlantin valtameressä. Se lähtee Meksikonlahdelta ja jatkuu kauas pohjoiseen Jäämerelle saakka.
+
+Tutkijat sanovat, että Golf-virran muutos ehkä kylmentää ilmastoa Suomessa. Vaikka ilmastonmuutos lämmittää ilmastoa, Pohjois-Euroopassa ehkä ilmasto kylmenee. Ilmasto reagoi ympäristömuutoksiin hitaasti. Siksi muutos vaatii pohjoisessa monta kymmentä vuotta.
+
+Tutkimuksesta kirjoitti amerikkalainen lehti The Washington Post.

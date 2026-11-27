@@ -1,0 +1,55 @@
+# Perjantai 20.2.2015
+
+Matkapuhelimen tietoturvasta ei tarvitse huolestua. Suomalaiset harrastavat liian vähän liikuntaa. Allergia-aika alkaa. Korkeasaaren karhut heräsivät talviunilta.
+
+## Puhelimen tietoturvasta ei tarvitse huolestua
+
+![Sim-kortteja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7818790)
+
+Avaa kuvien katselu
+
+Matkapuhelimen sim-kortilta löytyy paljon tietoa. Kuva: Mikko Stig / Lehtikuva
+
+Suomessa puhutaan matkapuhelimien tietoturvasta. Perjantaina kerrottiin, että Yhdysvaltojen ja Britannian tiedustelupalvelut ovat päässeet käsiksi Gemalton tietoihin. Gemalto on maailman suurin sim-korttien valmistaja. Sim-kortteja ovat esimerkiksi matkapuhelimien älykortit.
+
+Yhdysvaltojen ja Britannian tiedustelupalvelut voivat nyt seurata matkapuhelimia salaa ja ilman lupaa. Ne pystyvät seuraamaan myös monien suomalaisten puhelimia. Esimerkiksi puhelinoperaattori Elisa sanoo kuitenkin, että tavallisten suomalaisten ei tarvitse olla huolissaan.
+
+Viestintävirasto sanoo, että suomalaisten ei tarvitse tehdä mitään tässä tilanteessa. Viestintävirasto tutkii asiaa ja kertoo siitä tarkemmin ensi viikolla. Viestintäviraston tehtävä on valvoa, että viestintäverkot toimivat Suomessa.
+
+## Liikuntaa harrastetaan liian vähän
+
+![Kuntoilijat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7815464)
+
+Avaa kuvien katselu
+
+Liikuntaa voi harrastaa kuntosalilla tai vaikka kotona siivoamalla. Kuva: Stina Tuominen / Yle
+
+Suomalaiset harrastavat liian vähän liikuntaa. Noin 24 prosenttia suomalaisista ei harrasta liikuntaa ollenkaan. Tieto on Terveyden ja hyvinvoinnin laitoksen tutkimuksesta.
+
+Tutkija Tomi Mäki-Opas on huolissaan tilanteesta. Ihmisen on hyvä liikkua vähintään tunti päivässä. Mäki-Opas sanoo, että jo tavallinen hyötyliikunta riittää, esimerkiksi siivoaminen ja ostoskassien kantaminen.
+
+Naiset harrastavat liikuntaa enemmän kuin miehet. Liikunta on naisille tärkeää, koska he pitävät terveydestä parempaa huolta kuin miehet. Kaikkein vähiten liikkuvat nuoret miehet, joilla on huono koulutus.
+
+## Allergia-aika alkaa
+
+![Lepän kukinta on alkanut Kotkan Sapokassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5543238)
+
+Avaa kuvien katselu
+
+Lepän kukista lähtee paljon siitepölyä. Kuva: Yle Kymenlaakso
+
+Kevät on vaikeaa aikaa ihmisille, joilla on allergia. Tänä vuonna allergia-aika alkaa aikaisin, koska sää on lämmin. Allergiset ihmiset voivat saada oireita jo lähipäivinä.
+
+Ensimmäinen puu, joka alkaa kukkia, on leppä. Myös pähkinäpensaat alkavat kukkia ehkä pian. Lepän ja pähkinäpensaiden siitepölyä tulee ilmaan, kun lämpötila on monena päivänä plussan puolella.
+
+Allergisten olo pahenee myös siksi, että lumi sulaa pois kaduilta. Silloin katupöly nousee ilmaan. Hyvä uutinen allergisille on, että tänä vuonna koivun siitepölyä ei tule niin paljon kuin vuosi sitten.
+
+## Korkeasaaren karhut heräsivät talviunesta
+
+![Korkeasaaren karhut heräsivät talviunestaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7818855)
+
+Avaa kuvien katselu
+
+Karhujen kevät on alkanut Korkeasaaressa. Kuva: Yle
+
+Ja toinen uutinen Suomen keväästä. Karhut ovat heränneet talviunesta Helsingin eläinpuistossa Korkeasaaressa. Ne heräsivät tänä vuonna kaksi (2) viikkoa aikaisemmin kuin vuosi sitten. Korkeasaaresta kerrotaan, että karhut voivat hyvin.

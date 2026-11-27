@@ -1,0 +1,61 @@
+# Perjantai 21.8.2015
+
+Yhteiskuntasopimus kaatui. Kreikkaan uudet vaalit. Pakolaiset ja poliisi ottivat yhteen Makedoniassa. Suomessa suuri huumeliiga jäi kiinni.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Yhteiskuntasopimus kaatui
+
+![Juha Sipilä ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8242460)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä Kuva: Heikki Saukkomaa / Lehtikuva
+
+Hallituksen ja työmarkkinajärjestöjen yhteiskuntasopimus on kaatunut. Sopimus kaatui riitaan työn hinnan alentamisesta. Työnantajat halusivat viiden (5) prosentin alennusta työn hintaan. Työntekijät pitivät vaatimusta liian kovana. Ammattikeskusjärjestö SAK sanoo, että syyllisiä on turha etsiä, koska kaikki epäonnistuivat neuvotteluissa.
+
+Hallitus sanoo, että nyt pohditaan verojen korottamista ja säästöjä, koska sopimus kaatui. Vielä ei ole varmaa, mistä leikataan. Pääministeri Juha Sipilä sanoo, että hallituspuolueiden johtajat miettivät säästöjä viikonloppuna. Päätöksistä kerrotaan ensi viikon maanantaina.
+
+Yhteiskuntasopimuksella haluttiin lisätä kilpailukykyä eli auttaa suomalaisia firmoja kilpailemaan paremmin ulkomaalaisten firmojen kanssa.
+
+## Kreikassa hallitus kaatui
+
+![Alexis Tsipras](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8242962)
+
+Avaa kuvien katselu
+
+Kreikan pääministeri eroaa Kuva: Louisa Gouliamaki / AFP
+
+Kreikassa pidetään uudet parlamenttivaalit. Kreikan pääministeri Alexis Tsipras on ilmoittanut, että hallitus eroaa ja uudet vaalit pidetään syyskuussa.
+
+Kreikan hallitus kaatui, koska pääministerin oma Syriza-puolue hajoaa. 25 kansanedustajaa lähtee pois Syrizasta ja perustaa uuden puolueen. Ero johtuu Kreikan uudesta lainaohjelmasta, jota kansanedustajat ovat vastustaneet. Uudesta ryhmästä tulee Kreikan parlamentin kolmanneksi (3.) suurin puolue.
+
+## Poliisi kahakoi pakolaisten kanssa Makedoniassa
+
+![Aseistettu sotilas ja kymmeniä siirtolaisia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8244222)
+
+Avaa kuvien katselu
+
+Poliisi valvoo pakolaisia Makedonian ja Kreikan rajalla.  Kuva: Georgi Licovski / EPA
+
+Poliisi ja pakolaiset ovat ottaneet yhteen Kreikan ja Makedonian rajalla. Pakolaiset yrittävät päästä väkisin Makedoniaan, mutta poliisi esti tulon. Makedonian poliisi käytti kyynelkaasua ja ampui tainnutuskranaatteja. Viisi (5) pakolaista loukkaantui.
+
+Melkein 3 000 pakolaista on rajalla ja yrittää päästä turvaan Makedoniaan. Pakolaisten määränpää on Unkari, joka on EU-maa.
+
+Pakolaistilanne Kreikassa on vaikea, koska maahan on tullut Välimeren yli 160 000 pakolaista. Pakolaiset ovat tulleet Syyriasta ja Afganistanista.
+
+## Suuri huumeliiga jäi kiinni
+
+![Poliisin kuva miehestä huumekätköllä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8244562)
+
+Avaa kuvien katselu
+
+Poliisi sai miehen kiinni huumekätköltä.  Kuva: Poliisi
+
+Poliisi tutkii laajaa huumekauppaa Vantaalla. Huumerikoksista epäillään 20 ihmistä. Amfetamiinihuumetta tuotiin Virosta Suomeen yhteensä kuusi (6) kiloa. Poliisi sanoo, että huume oli hyvin vahvaa, jopa 85-prosenttista vahvuudeltaan.
+
+Päätekijä on 40-vuotias suomalainen mies. Poliisi seurasi miehen toimintaa huumekätköllä metsässä ja otti kiinni Vantaalla. Huumeita on myyty eteenpäin laajasti.
+
+Päätekijä pääsi vankilasta vuonna 2013 ja oli koevapaudessa samalla, kun hän pyöritti huumekauppaa.

@@ -1,0 +1,57 @@
+# Maanantai 29.6.2015
+
+Kreikan lainaehdot julkistettiin. Kreikan pankit olivat maanantain kiinni. Klassinen musiikki syrjii naisia. Kesän ensimmäinen helle.
+
+## Kreikan lainaehdot julki
+
+![Mies katsoo seinälehteä Ateenassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8112787)
+
+Avaa kuvien katselu
+
+EU haluaa, että kreikkalaiset lukevat lainaehdot. Kuva: Yannis Kolesidiis / EPA
+
+Euroopan unionin johto kertoi julkisuudessa, mitä muutoksia Kreikalta vaaditaan, ennen kuin sille annetaan uutta lainaa. Kreikka haluaa lisää lainaa niin sanotulta Troikalta, johon kuuluvat Euroopan unionin komissio, Euroopan keskuspankki EKP ja Kansainvälinen valuuttarahasto IMF.
+
+Troikka vaatii Kreikkaa muun muassa nostamaan monia veroja. Kreikan täytyy nostaa esimerkiksi ravintoloiden, hotellien ja muiden firmojen veroja. Troikka vaatii, että kreikkalaiset jäävät eläkkeelle vasta kun he täyttävät 67 vuotta. Troikka sanoo myös, että Kreikan armeijan täytyy säästää 400 miljoonaa euroa.  
+
+Kreikan kansa äänestää sunnuntaina, hyväksyykö se Troikan ehdot.
+
+## Pankit kiinni Kreikassa
+
+![Ihmiset, joilla ei ole pankkikorttia, odottavat pankin ulkopuolella Ateenassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8112321)
+
+Avaa kuvien katselu
+
+Ihmiset odottivat pankkien ulkopuolella muun muassa eläkkeitään. Kuva: EPA
+
+Kreikan pankit ovat olleet maanantaina kiinni talouskriisin takia. Pankit pidetään kiinni, että ihmiset eivät tyhjennä niitä rahasta.
+
+Eläkeläiset seisoivat pankkiautomaattien edessä jonossa odottamassa eläkkeitään. Esimerkiksi ateenalaisilta loppuu käteinen raha. Ateenan busseissa saa matkustaa ilmaiseksi, koska ihmisillä ei ole kolikoita. 
+
+## Klassisen musiikin orkesterit syrjivät naisia
+
+![Satu Simola tahtipuikko kädessään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8106183)
+
+Avaa kuvien katselu
+
+Kapellimestari Satu Simola. Kuva: Jussi Mankkinen / Yle
+
+Moni nainen sanoo, että klassisen musiikin orkestereissa syrjitään naisia.
+
+Kapellimestari Satu Simolalle miehet ovat sanoneet esimerkiksi, että naisen aivot eivät sovi kapellimestarin työhön eli johtamaan orkesteria. Toinen mies on sanonut, että orkesterin miehet eivät osaa keskittyä soittamaan, jos edessä seisoo nainen.
+
+Suomessa järjestetään heinä- ja elokuussa noin 70 klassisen musiikin konserttia, mutta vain yhdessä konsertissa orkesteria johtaa nainen. Saksassa on 130 orkesteria, mutta vain yhdessä on nainen kapellimestarina. Itävaltalaiseen Wienin filharmonikot -orkesteriin otettiin ensimmäinen naissoittaja vasta vuonna 1997.
+
+## Vihdoin hellettä
+
+![Ihmiset nauttivat lämpimästä päivästä Hietaniemen uimarannalla Helsingissä 29. kesäkuuta 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8113229)
+
+Avaa kuvien katselu
+
+Ihmiset nauttivat lämpimästä päivästä maanantaina Helsingissä. Kuva: Jarmo Stenmark / Lehtikuva
+
+Kesän ensimmäinen hellepäivä tuli vihdoinkin.
+
+Itä-Suomessa Varkaudessa lämpömittari näytti +25,2 astetta maanantaina kello 14.40. Myös Mikkelissä lämmintä oli vähän yli 25 astetta. Helle-sana tarkoittaa, että lämmintä on yli 25 astetta. Sääennusteen mukaan tiistaina ja keskiviikkona on vähän viileämpää kuin maanantaina, mutta torstaina ja loppuviikolla on jälleen lämpimämpää. 
+
+Kesäkuu on ollut koko Suomessa viileämpi kuin tavallisesti. Keskilämpötila on ollut paikoin jopa kaksi (2) astetta kylmempi kuin yleensä.

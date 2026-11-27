@@ -1,0 +1,63 @@
+# Lauantai 9.1.2016 (radio)
+
+Suomessa jatkuu keskustelu katupartioista. Ranskassa monet moskeijat ovat viikonloppuna auki kaikille. Merikarvialla satoi lunta 73 senttimetriä vuorokaudessa. Autoteillä on nyt liukasta.
+
+## Keskustelu katupartioista jatkuu
+
+![Tarja Halonen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8582227)
+
+Avaa kuvien katselu
+
+Presidentti Tarja Halosen mielestä katupartioita ei tarvita. Kuva: Yle
+
+Suomessa jatkuu keskustelu katupartioista. Katupartioita on jo monessa kaupungissa. Katupartiot kulkevat kaduilla ja valvovat järjestystä. Katupartioissa on mukana monia ihmisiä, jotka vastustavat maahanmuuttoa.
+
+Helsingin poliisipäällikkö Lasse Aapio sanoo, että katupartioita ei tarvita. Poliisi valvoo, että kadut ovat turvallisia, Aapio sanoo.
+
+Myös Suomen entinen presidentti Tarja Halonen on sitä mieltä, että katupartioita ei tarvita. Jos suomalaiset ovat huolissaan maahanmuutosta, he voivat auttaa maahanmuuttajia kotoutumaan, Halonen sanoo.
+
+Presidentti Halonen ja poliisipäällikkö Aapio olivat Ylen vieraina televisiossa lauantaina.
+
+## Moskeijat ovat auki Ranskassa
+
+![Pariisin suuri moskeija, Grande Mosquée de Paris, on yksi sadoista moskeijoista, joka viikonlopun aikana avaa ovensa yleisölle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8582456)
+
+Avaa kuvien katselu
+
+Myös Pariisin suuri moskeija avaa ovet viikonloppuna. Kuva: Etienne Laurent / EPA
+
+Ranskassa monet moskeijat ovat viikonloppuna auki kaikille. Ranskan muslimit haluavat, että kaikki ranskalaiset voivat tutustua moskeijoihin ja islamiin.
+
+Ranskalaisten ja muslimien välit ovat olleet huonot. Islamistiset terroristit tekivät viime vuonna Ranskassa iskuja, joissa kuoli paljon ihmisiä. Nyt Ranskan muslimit haluavat, että ranskalaiset voivat tutustua tavallisiin muslimeihin.
+
+Ranskan moskeijat avaavat ovet tänä viikonloppuna, koska terrori-iskusta Charlie Hebdo -lehteä vastaan on kulunut vuosi.
+
+## Lumisateen uusi Suomen ennätys
+
+![mies lapioimassa lunta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8582166)
+
+Avaa kuvien katselu
+
+Merikarvialla satoi paljon lunta yhdessä päivässä. Kuva: Yle
+
+Länsi-Suomessa Merikarvialla on satanut tosi paljon lunta. Lunta satoi yhden vuorokauden aikana 73 senttimetriä. Se on uusi Suomen ennätys.
+
+Vanha Suomen ennätys oli vuodelta 1971. Silloin lunta satoi Raumalla yhden vuorokauden aikana 50 senttimetriä. Uusi ennätys on siis selvästi suurempi kuin vanha.
+
+Ilmatieteen laitos kertoo, että kovia lumisateita syntyy usein meren lähellä. Syynä on kosteus. Merikarvia ja Rauma ovat molemmat merenrannalla.
+
+Tällä viikolla lunta satoi paljon myös lähellä Helsinkiä. Kova lumisade oli merellä, vain 50 kilometrin päässä Helsingistä. Lunta satoi ehkä yli metrin. Se ei ole Suomen ennätys, koska merellä lunta ei mitata.
+
+## Aja varovaisesti!
+
+![yksi auto ojassa, toisen keula hajalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8582663)
+
+Avaa kuvien katselu
+
+Liukkailla teillä on tapahtunut monta kolaria. Kuva: Yle
+
+Autoteillä on nyt liukasta. Autolla on ollut hankala ajaa Etelä-Suomessa. Uusi lumi on tehnyt tiet liukkaiksi.
+
+Esimerkiksi Espoossa on tapahtunut autokolareita. Kolareissa autot ajoivat toisen auton perään, koska tie oli liukas. Kukaan ei joutunut sairaalaan.
+
+Poliisi sanoo, että autoilijoiden täytyy nyt ajaa varovaisesti.

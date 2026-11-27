@@ -1,0 +1,73 @@
+# Lauantai 26.3.2016 (radio)
+
+Suomalaisten suurin huoli on työttömyys. Arkkipiispa sanoo, että hyvät asiat jäävät nykyään vihapuheen alle. Brysselin lentokentän kolmas terroristi on tunnistettu. Kiinassa on keksitty pieni, halpa ja tehokas akku. Tuuli kääntyy etelään ja tuo muuttolintuja Suomeen. Ensi yönä alkaa kesäaika.
+
+## Ykkösongelma on työttömyys
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8760590)
+
+Avaa kuvien katselu
+
+Suomalaisten huolet. Kuva: Yle Uutisgrafiikka
+
+Suomalaisten suurin huoli on työttömyys.
+
+Ylen tutkimuksessa 35 prosenttia sanoi, että työttömyys on Suomen suurin ongelma. 30 prosenttia vastaajista sanoi, että liian suuri määrä turvapaikanhakijoita on iso ongelma. 14 prosenttia sanoi, että on ongelma, kun hallitus ei tee päätöksiä.
+
+Verot ja Venäjä eivät olleet vastaajien mielestä kovin isoja ongelmia.   
+
+## Arkkipiispa: hyvät asiat jäävät vihapuheen alle
+
+![arkkipiispa Kari Mäkinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8767783)
+
+Avaa kuvien katselu
+
+Arkkipiispa Kari Mäkinen. Kuva: Toni Määttä / Yle
+
+Arkkipiispa Kari Mäkinen sanoo, että vihainen puhe kuuluu liian kovaa Suomessa ja hyviä asioita jää vihapuheen alle.
+
+Arkkipiispan mielestä liian moni ajattelee nyt, että heikot ihmiset ovat taakka tai uhka. Arkkipiispa toivoo, että poliitikot eivät anna vihapuheen vaikuttaa päätöksiin. Arkkipiispan mielestä Suomessa on yhä tärkeää pitää huolta toisista ihmisistä, varsinkin heikoimmista.
+
+Arkkipiispa haluaa, että ihmiset kunnioittavat toisiaan ja ovat samanarvoisia.
+
+## Lentokentän kolmas mies tunnistettu
+
+![Turvakameran kuvaa terriristiepäillyistä Brysselin lentokentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8761902)
+
+Avaa kuvien katselu
+
+Media kertoo, että poliisi on saanut kiinni valkotakkisen miehen. Kuva: EBU
+
+Belgiassa poliisi tietää nyt, kuka lentokentän valokuvien kolmas terroristi on. Miehen tunnisti taksikuski, joka vei pommimiehet lentokentälle tiistaina. Media sanoo, että poliisi otti miehen kiinni torstaina. 
+
+Kreikkalainen radioasema kertoi lauantaina, että Kreikan poliisi varoitti yli vuosi sitten, että joku suunnittelee terrori-iskua Brysselin lentokentälle. Kreikan poliisi löysi suunnitelmat asunnosta, jossa asui islamisteja.
+
+Belgian poliisi ei ottanut varoitusta vakavasti.
+
+## Kiinassa keksittiin pieni ja halpa akku
+
+![Auto kytkettynä sähköpistokkeeseen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8769789)
+
+Avaa kuvien katselu
+
+Sähköauton akkua ladataan. Kuva: Ian Langsdon / EPA
+
+Kiinassa tutkijat ovat keksineet halvan, pienen ja tehokkaan akun.
+
+Uusi AGDIB-akku on puolet halvempi valmistaa kuin litiumioniakku. Uusi akku on kevyempi, mutta siihen voi ladata enemmän sähköä. Esimerkiksi sähköauto kulkee yli 500 kilometriä, jos siinä on 500 kilon AGDIB-akku. Uusia akkuja voi käyttää myös esimerkiksi puhelimissa. Lisäksi niitä voi käyttää aurinkoenergian varastoina. 
+
+Uudessa akussa on vähemmän myrkyllisiä aineita kuin nykyisissä akuissa.
+
+## Kevät alkaa sunnuntaina
+
+![Hanhiparvi taivaalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7497399)
+
+Avaa kuvien katselu
+
+Hanhia odotetaan. Kuva: Antti Kolppo / Yle
+
+Suomessa alkaa huomenna kevät, kun sää lämpenee.  
+
+Tuuli alkaa puhaltaa etelän suunnalta, ja se tuo paljon muuttolintuja tänne pohjoiseen. Lintuharrastajat odottavat, että pääsiäisenä tulee paljon esimerkiksi hanhia ja töyhtöhyyppiä.
+
+Suomi siirtyy yöllä kesäaikaan. Kelloja siirretään tunti eteenpäin sunnuntaina kello 3.

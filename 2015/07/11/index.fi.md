@@ -1,0 +1,61 @@
+# Lauantai 11.7.2015
+
+Euromaat neuvottelevat Kreikan tilanteesta. Kiinassa on kova myrsky. Srebrenican joukkomurhasta on kulunut 20 vuotta. Heinolassa on leivottu Suomen pisin mansikkatorttu.
+
+## Kreikan tilanteesta neuvotellaan
+
+![Valtiovarainministereitä koolla Brysselissä 7. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8136472)
+
+Avaa kuvien katselu
+
+Euromaiden rahaministereillä on nyt kiireiset ajat. Kuva: Oliver Hoslet / EPA
+
+Euromaat neuvottelevat Kreikan tilanteesta. Euromaiden rahaministerit kokoontuivat lauantai-iltana Brysseliin. Euromaat miettivät, aloitetaanko Kreikan kanssa neuvottelut uudesta lainasta.
+
+Jos Kreikka ei saa uutta lainaa, sen rahat loppuvat. Silloin Kreikan täytyy ehkä erota euroalueesta. Euroalueeseen kuuluvat ne maat, joiden raha on euro.
+
+Euromaat ovat vaatineet Kreikalta tietoja siitä, miten Kreikka aikoo säästää rahaa. Kreikka on nyt kertonut, että se esimerkiksi nostaa monia veroja. Euromaiden täytyy päättää, onko Kreikan säästösuunnitelma niin hyvä, että Kreikalle voidaan antaa uutta lainaa.
+
+## Myrskytuuli puhaltaa Kiinassa
+
+![Taifuuni Chan-hom nostatti merenrannalle tyrskyjä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8148060)
+
+Avaa kuvien katselu
+
+Myrskytuuli tekee suuria aaltoja Kiinan rannikolla. Kuva: Shen Zc / EPA
+
+Kiinassa on kova myrsky. Myrskytuuli iski Kiinan itärannikolle lauantaina. Yli miljoona ihmistä on siirretty turvaan myrskyn tieltä.
+
+Myrskytuuli on häirinnyt pahasti Kiinan liikennettä. Esimerkiksi Shanghaissa on peruttu satoja lentoja. Myös junia on peruttu.
+
+Myrskytuuli on puhaltanut Aasiassa jo monta päivää. Filippiineillä myrsky tappoi 5 ihmistä. Japanissa 20 ihmistä loukkaantui myrskyn takia.
+
+## Srebrenican joukkomurhasta 20 vuotta
+
+![Nainen suri joukkomurhassa kuolleen veljensä haudalla Srebrenicassa 11. heinäkuuta. Launtaina vietettävässä muistotilaisuudessa haudataan 136 joukkomurhan uhria.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8147742)
+
+Avaa kuvien katselu
+
+Naiset surevat perheenjäsenten haudoilla Srebrenicassa. Kuva: Dimitar Dilkoff / AFP / Lehtikuva
+
+Balkanilla Bosnia-Hertsegovinassa on vietetty surujuhlaa. Ihmiset ovat muistaneet Srebrenican joukkomurhaa. Joukkomurha tapahtui tasan 20 vuotta sitten.
+
+Srebrenican joukkomurhassa kuoli 8000 muslimimiestä ja muslimipoikaa. Serbisotilaat tappoivat heidät. Joukkomurha tapahtui Bosnian sodan aikana.
+
+Balkanilla oli 1990-luvulla monta sotaa, joista yksi oli Bosnian sota. Sodat alkoivat, kun iso Jugoslavian valtio hajosi. Alueen etniset ja uskonnolliset ryhmät alkoivat silloin sotia toisiaan vastaan.
+
+Srebrenicassa oli lauantaina joukkomurhan muistotilaisuus. Tilaisuudessa haudattiin 136 ihmistä, jotka kuolivat Srebrenican joukkomurhassa. Heidät löydettiin vasta nyt, 20 vuotta joukkomurhan jälkeen.
+
+## Yli 100 metrin mansikkatorttu
+
+![Lionel Lallement (vas.) ja Sebastien Jerome mittaavat Suomen pisintä mansikkatorttua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8147859)
+
+Avaa kuvien katselu
+
+Ranskalaiset huippukondiittorit mittaavat ennätystorttua. Kuva: Aleksi Tuomola / Lehtikuva
+
+Mansikkakakku on monen suomalaisen kesäherkku. Nyt Heinolassa on leivottu Suomen pisin mansikkatorttu. Torttu on yli 100 metriä pitkä.
+
+Ennätystortun leipojat olivat suomalaisia ja ranskalaisia. Ranskasta mukana oli huippukondiittoreja, Suomesta esimerkiksi koulutuskeskus Salpaus.
+
+Ihmiset ovat ostaneet innokkaasti ennätystortun paloja. Rahat menevät vanhusten hyväksi.

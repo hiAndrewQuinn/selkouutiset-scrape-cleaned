@@ -1,0 +1,71 @@
+# Lauantai 23.4.2016 (radio)
+
+Suomalaiset eläkeläiset eivät voi enää paeta veroja Portugaliin. Fiat Chrysler aikoo tarkastaa yli miljoona autoa. Lauantaina on vietetty Kirjan ja ruusun päivää. Linnanmäki on taas auki. Ruotsin prinssi Alexanderista on julkaistu ensimmäinen virallinen kuva.
+
+## Suomi ja Portugali sopivat veroista
+
+![Alexander Stubb.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8059136)
+
+Avaa kuvien katselu
+
+Suomen rahaministeri Alexander Stubb on tyytyväinen uuteen verosopimukseen Portugalin kanssa. Kuva: Henrietta Hassinen / Yle
+
+Suomalaiset eläkeläiset eivät voi enää paeta veroja Portugaliin. Suomi on sopinut Portugalin kanssa eläkkeiden veroista. Suomi voi alkaa kerätä veroja kaikista eläkkeistä, joita maksetaan Suomesta Portugaliin.
+
+Tähän asti kaikkien suomalaisten eläkeläisten ei ole tarvinnut maksaa veroja, jos he asuvat Portugalissa. Esimerkiksi monet suomalaiset johtajat ovat muuttaneet Portugaliin, kun he ovat jääneet eläkkeelle. Silloin Suomi ei ole voinut ottaa veroja johtajien isoista eläkkeistä.
+
+Suomen ja Portugalin uusi verosopimus allekirjoitetaan pian. 
+
+## Fiat Chrysler korjaa vaihteita
+
+![Automaattivaihteiston valintakeppi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7677775)
+
+Avaa kuvien katselu
+
+Automaattivaihteet voivat toimia epäselvästi Fiat Chryslerin autoissa. Kuva: Yagmur Özberkan / Yle
+
+Autonvalmistaja Fiat Chrysler kutsuu yli miljoona autoa korjaukseen eri puolilla maailmaa. Autot täytyy tarkastaa ja korjata, koska niiden automaattivaihteet toimivat epäselvästi.
+
+Osa autoista on lähtenyt yksin liikkeelle, koska kuljettaja ei ole osannut käyttää vaihteita oikein. Ihmisiä on jopa loukkaantunut, kun pysäköity auto on lähtenyt yksin liikkeelle. Fiat Chrysler haluaa korjata autot niin, että se ei ole enää mahdollista.
+
+## Kirjan ja ruusun päivä
+
+![Kirjoja hyllyssä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8815127)
+
+Avaa kuvien katselu
+
+Kirja on ansainnut oman päivän. Kuva: Nina Keski-Korpela / Yle
+
+Lauantaina on vietetty Kirjan ja ruusun päivää. Päivä on kirjan juhlapäivä. Tänä vuonna juhlitaan lasten- ja nuortenkirjoja.
+
+Päivän juhlakirja oli tänä vuonna "Onks noloo?" Se on lastenkirja, jonka kirjoittaja on Ronja Salmi. Juhlakirjaa ei voi ostaa. Kirjakaupat antoivat sen ihmisille, jotka ostivat kirjoja Kirjan ja ruusun päivänä. 
+
+Kirjan ja ruusun päivää vietetään monissa maissa. Päivä syntyi Espanjassa yli 80 vuotta sitten. Kirjan ja ruusun päivän perinne on, että mies antaa naiselle punaisen ruusun ja saa naiselta kirjan.
+
+## Linnanmäen kesä alkoi
+
+![Vuoristorata täyttää tänä vuonna 60 vuotta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5350951)
+
+Avaa kuvien katselu
+
+Vuoristorata on vanha ja suosittu laite Linnanmäellä. Kuva: Linnanmäki
+
+Linnanmäki on taas auki. Linnanmäen huvipuisto on Helsingissä. Linnanmäellä käy joka vuosi yli miljoona vierasta.
+
+Linnanmäki on myös suosittu kesätyöpaikka. Linnanmäellä on kesällä yli 650 työntekijää. Tänä vuonna yli 5000 ihmistä haki työtä Linnanmäeltä.
+
+Linnanmäen omistaja on Lasten Päivän Säätiö. Se kerää Linnanmäen avulla rahaa työhön, jota tehdään lasten hyväksi.
+
+## Ruotsin prinssi Alexander
+
+![Prinssi Alexander](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8832329)
+
+Avaa kuvien katselu
+
+Prinssi Alexander kolmen päivän vanhana. Kuva: Prinssi Carl Philip / Ruotsin kuningashuone
+
+Suomen naapurimaassa Ruotsissa ihmiset ovat iloisia uudesta prinssistä.
+
+Ruotsin kuningasperhe julkaisi ensimmäisen virallisen kuvan uudesta prinssistä lauantaina. Prinssi Alexander syntyi tiistaina.
+
+Alexanderin vanhemmat ovat prinssi Carl Philip ja prinsessa Sofia. Carl Philip on kuningas Kaarle Kustaan poika.

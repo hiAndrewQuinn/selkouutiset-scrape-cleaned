@@ -1,0 +1,55 @@
+# Lauantai 31.1.2015
+
+Suomen Pankin pääjohtaja toivoo, että Kreikka jatkaa säästöjä. Ihmisellä on parempi muisti vanhana, jos hän on saanut tarpeeksi unta nuorena. Kaatumisonnettomuudet maksavat yhteiskunnalle paljon. Viikonloppuna sataa lunta.
+
+## Suomen Pankin pääjohtaja toivoo Kreikalta säästöjä
+
+![Suomen Pankin pääjohtaja Erkki Liikanen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7773098)
+
+Avaa kuvien katselu
+
+Suomen Pankin pääjohtaja Erkki Liikanen. Kuva: Yle
+
+Suomen Pankin pääjohtaja Erkki Liikanen toivoo, että Kreikka jatkaa säästöjä. Liikanen uskoo, että säästöjen avulla Kreikka selviää suurista veloistaan. Liikanen sanoo, että Kreikan taloudessa on merkkejä paranemisesta.
+
+Kreikan uusi hallitus on kertonut, että se ei aio jatkaa kovia säästöjä. Hallituksen Syriza-puolueen mielestä säästöt ovat tehneet kreikkalaisten elämästä vaikeaa. Syriza voitti Kreikan vaalit viime sunnuntaina.
+
+Kreikan tilanne huolestuttaa nyt koko Eurooppaa. Kreikan talous on niin huonossa kunnossa, että Kreikka tarvitsee lisää lainaa muilta Euroopan mailta. Ne aikovat kuitenkin jatkaa lainan antamista Kreikalle vain, jos Kreikka jatkaa säästöjä.
+
+## Uni parantaa muistia
+
+![Siluettigrafiikka päästä ja läpileikkauksesta aivoista tyynyllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6272155)
+
+Avaa kuvien katselu
+
+Aivot säilyvät paremmin, jos ihminen nukkuu nuorena tarpeeksi. Kuva: Yle Uutisgrafiikka
+
+Nuoren ihmisen kannattaa nukkua tarpeeksi. Ihmisellä on parempi muisti vanhana, jos hän on saanut tarpeeksi unta nuorena. Näin kertovat yhdysvaltalaiset tutkijat.
+
+Tutkijat sanovat, että nuoren hyvät yöunet vaikuttavat kauas tulevaisuuteen. Vanhalle ihmiselle on hyötyä siitä, että hän on nukkunnut hyvin ja tarpeeksi paljon jopa 30 vuotta aikaisemmin. Monet nukkuvat vanhana huonosti, mutta se ei enää haittaa muistia.
+
+85-vuotias ihminen on nukkunut elämänsä aikana melkein 250 000 tuntia. Ne ovat tärkeitä tunteja. Aika ei mene hukkaan nukkumalla, vaikka monet nuoret niin ajattelevat.
+
+## Kaatumiset tulevat kalliiksi
+
+![Talvella jalkakäytävällä liukastunut mies.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5454798)
+
+Avaa kuvien katselu
+
+Kaatumisen jälkeen ihminen voi tarvita kallista hoitoa. Kuva: Antti Karhunen / Yle
+
+Kaatumisonnettomuudet maksavat yhteiskunnalle paljon. Suomi käyttää melkein puoli miljardia euroa joka vuosi, kun se hoitaa potilaita, jotka ovat kaatuneet. Kaatumisonnettomuudet ovat tavallisia talvella, kun tiet ovat liukkaita.
+
+Eniten kaatumisonnettomuuksia tapahtuu yli 65-vuotiaille. Moni ei enää pärjää kotona kaatumisonnettomuuden jälkeen. Melkein 1000 yli 65-vuotiasta kuoli kaatumisen takia vuonna 2013.
+
+Itä-Suomen yliopisto aloittaa tänä vuonna suuren tutkimuksen siitä, miten vanhojen ihmisten kaatumisia voidaan estää. Tutkijat selvittävät, miten liikunta vahvistaa lihaksia ja estää kaatumisia. Tutkimuksessa on mukana vanhoja naisia, koska naisille tapahtuu enemmän pahoja kaatumisonnettomuuksia kuin miehille.
+
+## Viikonloppuna sataa lunta
+
+![Lumisade vaikeuttaa pysäköintiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7768985)
+
+Avaa kuvien katselu
+
+Lumisade haittaa liikennettä viikonloppuna. Kuva: Uula Kuvaja / Yle
+
+Tiet ovat liukkaita myös tänä viikonloppuna. Lunta sataa melkein koko Suomessa. Etelä-Suomen ja Keski-Suomen lumipeite kasvaa noin 10 tai 20 senttimetriä. Helsingissä voi sataa myös räntää.

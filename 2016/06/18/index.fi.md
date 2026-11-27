@@ -1,0 +1,77 @@
+# Lauantai 18.6.2016 (radio)
+
+Poliisi kuoli työtehtävissä Vihdissä. Presidentti Niinistö on surullinen poliisin kuoleman takia. Suomessa on tosi harvinaista, että poliisi kuolee työtehtävissä. Lappeenrannassa on tänä viikonloppuna iso suunnistuskilpailu.
+
+## Poliisi kuoli työtehtävissä
+
+![Poliisiviranomaisia Vihdissä tiellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8967877)
+
+Avaa kuvien katselu
+
+Poliiseja Vihdissä. Kuva: Yle
+
+Vihdissä on ammuttu poliisi. Poliisi kuoli työtehtävissä.
+
+Poliisi sai tietää perjantai-iltana, että Vihdissä ammutaan. Vihti on noin 45 kilometrin päässä Helsingistä.
+
+Ampumispaikalle lähti paljon poliiseja. Kun poliisit menivät ampujan taloon, ampuja ampui heitä kohti. Yksi poliisi kuoli, ja toinen loukkaantui pahasti.
+
+![Kuva Vihdin tapahtumapaikalta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8968003)
+
+Avaa kuvien katselu
+
+Ampujan talo. Kuva: Olli-Pekka Kursi / Yle
+
+Poliisi löysi ampujan myöhemmin ampumispaikalta, mutta ampuja oli kuollut. Hän ehkä ampui itsensä.
+
+Ampuja oli 67-vuotias mies. Miehellä ei ollut lupaa aseeseen, koska hän usein uhkasi ihmisiä. Perjantain tapahtumat alkoivat siitä, että mies ampui kohti sukulaista, joka asuu naapurissa. Sukulainen ei loukkaantunut.
+
+Tapauksen tutkiminen jatkuu.
+
+## Presidentti on järkyttynyt poliisin kuolemasta
+
+![Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8934159)
+
+Avaa kuvien katselu
+
+Sauli Niinistö. Kuva: Petteri Paalasmaa / AOP
+
+Presidentti Sauli Niinistö on surullinen poliisin kuoleman takia.
+
+Poliisit pitävät huolta siitä, että Suomi on turvallinen maa, Niinistö sanoo. Siksi väkivalta poliiseja vastaan on väkivaltaa koko Suomea vastaan.
+
+Presidentti Niinistö ottaa osaa suruun, joka on kohdannut kuolleen ja loukkaantuneen poliisin perheitä.
+
+## Poliiseja ei kuole työtehtävissä usein
+
+![Poliisimerkki Tampereen poliisitalon seinässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8225370)
+
+Avaa kuvien katselu
+
+Poliisin työ on Suomessa melko turvallista. Kuva: Petri Aaltonen / Yle
+
+Suomessa on tosi harvinaista, että poliisi kuolee työtehtävissä.
+
+Edellisen kerran poliisi kuoli työtehtävissä vuonna 2007. Silloin poliisi jäi auton alle, kun hän yritti pysäyttää humalaista autokuskia.
+
+Itsenäisessä Suomessa eli vuodesta 1917 lähtien työtehtävissä on kuollut yhteensä 130 poliisia. Suurin osa heistä on kuollut itsenäisyyden ajan alussa.
+
+Tavallisimmat syyt poliisien kuolemantapauksiin ovat, että poliisia ammutaan tai poliisin yli ajetaan autolla.
+
+## Norjalaiset voittivat Venlojen viestin
+
+![Venlojen viestin lähtö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8968460)
+
+Avaa kuvien katselu
+
+Näin alkoi Venlojen viesti lauantaina Lappeenrannassa. Kuva: Tomi Hänninen
+
+Lappeenrannassa on tänä viikonloppuna iso urheilutapahtuma. Tapahtuma on suunnistuskilpailu, joka tunnetaan nimellä Venlojen ja Jukolan viestit.
+
+Lappeenrannan metsissä juoksee melkein 18 000 suunnistajaa. He etsivät metsästä rasteja eli paikkoja, jotka on merkitty karttaan.
+
+Suunnistajat edustavat eri joukkueita. Kilpailu on viestikilpailu, eli suunnistaja pääsee juoksemaan, kun joukkueen edellinen urheilija on juossut oman osuuden.
+
+Lauantaina juostiin Venlojen viesti, jossa kilpailevat naisten joukkueet. Venlojen viestin voittaja oli norjalainen joukkue Halden SK. Toiseksi tuli suomalainen joukkue Tampereen Pyrintö.
+
+Lauantain ja sunnuntain välisenä yönä juostaan Jukolan viesti. Siihen osallistuvat miesten joukkueet.

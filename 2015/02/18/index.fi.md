@@ -1,0 +1,57 @@
+# Keskiviikko 18.2.2015
+
+Ukrainan armeija on lähtenyt Debaltseven kaupungista. Ihmiskaupan uhrit ovat usein seksikaupan uhreja. Tietokonepeli ei ole huono tapa viettää hiihtolomaa. Hiihdon MM-kilpailut ovat alkaneet Ruotsissa.
+
+## Ukrainan armeija lähtee Debaltsevesta
+
+![Venäjämieliset taistelijat kuvatuna Debaltsevessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7812674)
+
+Avaa kuvien katselu
+
+Itä-Ukrainan kapinallisia Debaltsevassa. Kuva: Vasili Maximov / AFP
+
+Tilanne Ukrainan kriisialueella on muuttunut. Ukrainan armeija on lähtenyt pois tärkeästä Debaltseven kaupungista. Kaupunki on nyt kapinallisten vallassa.
+
+Debaltseven kaupungissa on taisteltu viime päivinä, vaikka Ukrainassa alkoi tulitauko viime sunnuntaina. Tulitauko tarkoittaa, että sodan osapuolten täytyy lopettaa ampuminen. Euroopan unioni vaatii, että kapinalliset noudattavat tulitaukoa ja lopettavat taistelut.
+
+Maailmalla toivotaan, että Ukrainan tulitauko onnistuu. Ukrainan sodassa on kuollut tuhansia ihmisiä. Sodassa ovat vastakkain Ukrainan armeija ja kapinalliset. Kapinalliset haluavat, että Itä-Ukraina eroaa Ukrainasta. Kapinalliset saavat tukea naapurimaa Venäjältä.
+
+## Ihmiskaupan uhri on usein seksikaupan uhri
+
+![Prostituoitu ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6593521)
+
+Avaa kuvien katselu
+
+Ihmiskaupassa ihminen voidaan pakottaa esimerkiksi prostituutioon. Kuva: Yle 
+
+Maahanmuuttovirasto on kertonut ihmiskaupan uhreista Suomessa. Maahanmuuttovirasto kertoo, että viime vuonna autettiin 85 ihmiskaupan uhria. Suurin osa heistä oli seksikaupan uhreja.
+
+Viime vuonna ihmiskaupan uhrit tulivat noin 30 eri maasta. Eniten ihmiskaupan uhreja tuli Nigeriasta.
+
+Ihmiskauppa tarkoittaa, että ihminen pakotetaan työhön ilman kunnon palkkaa. Ihminen voidaan pakottaa myös esimerkiksi prostituutioon. Ihmiskauppa on rikos.
+
+## Hiihtolomalla saa pelata tietokonepelejä
+
+![Kuvassa lapsi pelaa tieokonepeliä kuulokkeet korvillaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6942226)
+
+Avaa kuvien katselu
+
+Tietokonepelit eivät aina ole paha juttu. Kuva: Heini Holopainen / Yle
+
+Etelä-Suomen koululaiset ovat tällä viikolla hiihtolomalla. Monessa perheessä vanhemmat ovat huolissaan siitä, että perheen nuori ei hiihdä, mutta pelaa tietokonepelejä.
+
+Asiantuntijat sanovat, että vanhempien huoli on turha. Asiantuntijoiden mielestä nuoren ei ole pakko ulkoilla ja urheilla hiihtoloman aikana. On tärkeää, että nuori saa joskus olla rennosti ilman pakollista ohjelmaa.
+
+Nuoriso-ohjaaja Jenni Lappalainen muistuttaa, että nuori pelaa tietokonepelejä internetissä usein yhdessä muiden nuorten kanssa. Hän ei ole yksin, vaikka ystäviä ei näy. Myös vanhempien kannattaa kokeilla tietokonepelejä yhdessä nuoren kanssa, Lappalainen ehdottaa.
+
+## Hiihdon MM-kilpailut alkoivat
+
+![Aino-Kaisa Saarinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7744494)
+
+Avaa kuvien katselu
+
+Aino-Kaisa Saarinen on yksi Suomen hiihtäjistä Falunissa. Kuva: Tomi Hänninen
+
+Hiihdon MM-kilpailut ovat alkaneet Ruotsissa. Urheilijat kilpailevat siitä, kuka on maailman paras eri hiihtolajeissa. Hiihdon MM-kilpailut eli maailmanmestaruuskilpailut jatkuvat Ruotsin Falunissa maaliskuun 1. päivään asti.
+
+Suomella on Falunissa 28 urheilijaa. Suomalaiset odottavat, että Suomen urheilijat onnistuvat hiihdossa ja mäkihypyssä hyvin, ja Suomi saa monta mitalia.

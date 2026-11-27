@@ -1,0 +1,79 @@
+# Keskiviikko 16.3.2016 (radio)
+
+Parasta kouluruokaa saa Kotkassa. Nordea pitää Suomen taloustilannetta heikkona. Belgiassa etsitään yhä terroristeja. Trump ja Clinton menestyivät jälleen Yhdysvaltain esivaaleissa. Firmat tarvitsevat ulkomaalaisia työntekijöitä.
+
+## Nordean arvion mukaan Suomen taloustilanne on huono
+
+![Nordea-pankin konttori.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8747112)
+
+Avaa kuvien katselu
+
+Nordea arvioi, että Suomen taloudella menee huonosti. Kuva: Ismo Pekkarinen / AOP
+
+Nordea-pankki arvioi, että Suomen taloustilanne on tosi heikko.
+
+Suomen talous kasvaa hitaasti. Nordea arvioi, että Suomen talous kasvaa tänä vuonna vain puoli prosenttia ja ensi vuonna alle prosentin.
+
+Euroalueen talous kasvaa nopeammin kuin Suomen talous.
+
+Nordean mielestä Suomen talouskasvun pitää saada vauhtia. Sen vuoksi Suomessa ei saa nostaa palkkoja, ja yrityksiä pitää tukea. Myös hallituksen pitää auttaa yrityksiä, Nordea sanoo.
+
+## Belgiassa etsitään terroristeja
+
+![Forest, Bryssel, 15. maaliskuuta 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8746276)
+
+Avaa kuvien katselu
+
+Belgian poliisi aloitti ison operaation terroristeja vastaan. Kuva: Laurent Dubrule / EPA
+
+Belgian pääkaupungissa Brysselissä etsitään terroristeja. Tilanne kaupungissa on vaarallinen, sanoo pääministeri.
+
+Tiistaina neljä poliisia haavoittui, kun he yrittivät tarkastaa asunnon. Poliiseja tulitettiin rynnäkkökiväärillä. Poliisit ampuivat miehen, joka oli asunnossa.
+
+Poliisit etsivät terroristeja, jotka surmasivat yli sata ihmistä Pariisissa marraskuussa. Tekijät tulivat Belgiasta.
+
+## Clinton ja Trump menestyivät esivaaleissa
+
+![Hillary Clinton ja Donald Trump.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8305286)
+
+Avaa kuvien katselu
+
+Hillary Clinton ja Donald Trump. Kuva: Thais Llorca, Sergei Ilnitsky / EPA
+
+Yhdysvalloissa republikaanipuolueen Donald Trump ja demokraattipuolueen Hillary Clinton menestyivät jälleen presidentinvaalien esivaaleissa.
+
+He ovat nyt vahvimmat ehdokkaat puolueiden presidenttiehdokkaiksi.
+
+Esivaalit järjestettiin tiistaina viidessä osavaltiossa eli Ohiossa, Floridassa, Pohjois-Carolinassa, Illinois'ssa ja Missourissa.
+
+## Työnantajien mielestä ulkomaalaisia työntekijöitä tarvitaan
+
+![Riitta Wärn](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8745539)
+
+Avaa kuvien katselu
+
+EK:n johtava asiantuntija Riitta Wärn. Kuva: Tiina Jutila / Yle
+
+Suomalaiset firmat tarvitsevat ulkomaalaisia työntekijöitä. Näin sanoo työnantajajärjestö EK:n johtava asiantuntija Riitta Wärn.
+
+Wärn kertoo selkouutisille, että ulkomaalaiset työntekijät ovat ahkeria, luotettavia ja uskollisia omalle työnantajalle. Ulkomaalaiset työntekijät tarvitsevat kuitenkin hyvän perehdytyksen, ja työpaikan asiat täytyy opettaa heille helpolla ja ymmärrettävällä suomen kielellä, Wärn sanoo.
+
+Riitta Wärnin haastattelun voi kuunnella osoitteesta yle.fi/selkouutiset, osasta Kotoutujan Suomi.
+
+**Kuuntele Riitta Wärnin haastattelu**
+
+## Kotkan kouluruoka on Suomen parasta
+
+![Kouluruokakilpailun voittajajoukkue](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8747681)
+
+Avaa kuvien katselu
+
+Suomessa kilpaillaan parhaasta kouluruuasta. Kuva: Kouluruokakilpailu
+
+Suomen parasta kouluruokaa tehdään Kotkan kaupungissa.
+
+Kotkan Ruonalan koulun keittäjät voittivat kouluruokakilpailun Gastro-messuilla, jotka pidettiin Helsingissä. Finaalissa eli loppukilpailussa oli viisi koulukeittiötä eri puolilta Suomea. Kaikki valmistivat kilpailussa tavallista kouluruokaa.
+
+Ruonalan koulun joukkue teki savulohikeittoa ja lihapullakastiketta. Tuomareiden mielestä se oli parasta kouluruokaa.
+
+Suomessa lapset saavat ilmaisen kouluruuan.

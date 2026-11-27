@@ -1,0 +1,61 @@
+# Torstai 13.11.2014
+
+Metsäfirma UPM vähentää työntekijöitä. Hallitus on päättänyt lukion oppimäärästä. Testit ebolalääkkeillä alkavat Länsi-Afrikassa. Komeetan pinnalta on saatu kuvia Maahan.
+
+## UPM lopettaa työpaikkoja paperitehtaista
+
+![UPM Kaukaan tehdas Lappeenrannassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7625099)
+
+Avaa kuvien katselu
+
+Työpaikat vähenevät esimerkiksi Kaukaan tehtaalla Lappeenrannassa. Kuva: Martti Kainulainen / Lehtikuva
+
+Metsäfirma UPM vähentää työntekijöitä. UPM aikoo lopettaa Suomesta yli 200 työpaikkaa. UPM aikoo vähentää eri maista yhteensä 550 työpaikkaa.
+
+UPM kertoo, että Euroopassa valmistetaan liikaa paperia. Lehtipaperille ei ole tarpeeksi ostajia. Siksi UPM sulkee paperikoneita Suomessa, Britanniassa ja Ranskassa.
+
+Suomessa UPM sulkee kaksi (2) paperikonetta. Ne ovat Jämsänkosken tehtaalla ja Kaukaan tehtaalla Lappeenrannassa. Molemmilla tehtailla noin 110 työntekijää voi menettää työpaikkansa.
+
+Työpaikkojen vähentäminen on osa UPM:n säästöjä. UPM aikoo säästää 150 miljoonaa euroa vuodessa. Säästöt alkavat ensi vuonna.
+
+## Lukiokurssien määrät eivät muutu paljon
+
+![Opiskelijan kädet kirjalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7616450)
+
+Avaa kuvien katselu
+
+Lukio kestää yleensä 3 vuotta. Kuva: Antti Karhunen / Yle
+
+Hallitus on päättänyt lukion oppimäärästä. Lukion oppimäärä on myös tulevaisuudessa 75 kurssia. Se tarkoittaa yleensä kolmen (3) vuoden opiskelua.
+
+Lukiokurssien määrät muuttuvat vain vähän eri aineissa. Maantiedossa, historiassa ja uskonnossa on tulevaisuudessa yksi pakollinen kurssi vähemmän kuin nyt. Filosofiaan ja yhteiskuntaoppiin tulee yksi pakollinen kurssi lisää.
+
+Lukioon tulee myös opintoja, jotka lisäävät eri aineiden yhteistyötä. Tarkoitus on, että lukiolaiset oppivat isoja asiakokonaisuuksia.
+
+Lukion uudet oppimäärät otetaan käyttöön viimeistään vuonna 2016.
+
+## Ebolalääkkeitä testataan potilailla
+
+![Punaisen Ristin työntekijät kantoivat ebolaan menehtyneen henkilön ruumista Monroviassa, Liberiassa, 24. lokakuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7610257)
+
+Avaa kuvien katselu
+
+Ebolaan on kuollut jo yli 5000 ihmistä. Kuva: Ahmed Jallanzo / EPA
+
+Afrikassa aloitetaan kokeet ebolalääkkeillä. Maailman terveysjärjestö on valinnut lääkkeet, joita testataan potilailla. Testit tehdään Länsi-Afrikassa, jossa on paljon ebolapotilaita.
+
+Vaarallinen ebolatauti on tappanut jo yli 5000 ihmistä. Ebolaa vastaan ei vielä ole lääkkeitä. Maailman terveysjärjestö kuitenkin uskoo, että ebolalääkkeet saadaan käyttöön jo vuoden 2015 alussa.
+
+Ebolatauti ei tartu helposti. Ebola tarttuu ihmisestä toiseen esimerkiksi veren ja syljen kautta. Ebola ei tartu ilman kautta niin kuin flunssa.
+
+## Komeetasta on saatu kuvia
+
+![Kuvakaappaus Philae-laskeutujan Twitter-tililtä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7627335)
+
+Avaa kuvien katselu
+
+Uusia kuvia komeetasta on julkaistu esimerkiksi Twitterissä. Kuva: Twitter
+
+Komeetan tutkiminen on jatkunut avaruudessa. Komeettaa tutkitaan laitteilla, jotka laskeutuivat komeetan pinnalle keskiviikkona. Komeetat ovat pieniä taivaankappaleita, jotka ovat suureksi osaksi jäätä ja pölyä.
+
+Tutkimuslaitteet ovat lähettäneet myös ensimmäiset kuvat komeetan pinnalta Maahan. Kuvat tulivat satojen miljoonien kilometrien päästä. Tutkijat ovat kuitenkin huolissaan, koska laitteet ovat pienessä aluksessa, joka ei ole kunnolla kiinni komeetan pinnassa.

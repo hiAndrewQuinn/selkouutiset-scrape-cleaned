@@ -1,0 +1,91 @@
+Syyria
+
+# Torstai 5.5.2016 (radio)
+
+Posti palkkaa hoitotyöntekijöitä. Lutikat tulivat taas. Aleppoon saatiin tulitauko. Turkin pääministeri eroaa. Donald Trump on nyt yksin. Kanadassa vakava metsäpalo.
+
+![Lutikoita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8856764)
+
+Avaa kuvien katselu
+
+Kuva: Anticimex Oy
+
+- 
+
+  
+
+  Petteri Löppönen
+
+  
+
+  
+
+5.5.2016 17:32•Päivitetty 5.5.2016 17:45
+
+## Posti palkkaa hoitoalan ammattilaisia
+
+![Postin työntekijä leikkaamassa ruohoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8826822)
+
+Avaa kuvien katselu
+
+Posti haluaa tarjota apua myös pihatöihin.  Kuva: Posti
+
+Posti uskoo, että se saa hyvää liiketoimintaa eli bisnestä palvelusta ihmisten kotona. Posti aikoo palkata töihin hoitohenkilökuntaa, jotta se voi tehdä esimerkiksi hoitotyötä ihmisten kotona.
+
+Posti tekee jo nyt myös muuta kuin jakaa postia. Se jakaa paljon koteihin esimerkiksi ruokaa. Tulevaisuudessa postinkantaja voi ehkä leikata myös nurmikon.
+
+## Lutikat tulivat takaisin Suomeen
+
+![Lutikoita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8856764)
+
+Avaa kuvien katselu
+
+Lutikka on taas suomalaisen kodin harmi.  Kuva: Anticimex Oy
+
+Lutikka eli lude on taas myös suomalainen harmi. Lutikoita ei ollut Suomessa pitkään aikaan mutta 10 vuotta sitten ne tulivat takaisin Suomeen. Nyt niitä on paljon.
+
+Lutikka imee ihmisestä verta, kun ihminen nukkuu. Lutikan hävittäminen on vaikeaa. Lutikoita hävittävillä firmoilla on joka vuosi tuhansia työtehtäviä. Lutikoiden hävittäminen kodista voi maksaa monta tuhatta euroa.
+
+## Aleppossa alkoi tulitauko
+
+![Pakolaisia suuressa salissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8861441)
+
+Avaa kuvien katselu
+
+Alepposta paenneita syyrialaisia helmikuussa 2016. Kuva: Sedat Suna / EPA
+
+Syyriassa Aleppon kaupungissa on tulitauko. Yhdysvallat ja Venäjä tekivät tulitauosta sopimuksen ja tulitauko alkoi Aleppossa keskiyöllä. Sen jälkeen Aleppossa on ollut vähän rauhallisempaa.
+
+Syyrian hallinnon lentokoneet eivät esimerkiksi ole tehneet ilmaiskuja. Aleppossa on kuitenkin taisteltu ilmeisesti vähän myös tulitauon aikana, koska kapinalliset ja Syyrian hallituksen joukot kiistelevät siitä, kuka on rikkonut tulitaukoa.
+
+Tulitauko on kahden vuorokauden pituinen. Aleppon taisteluista tuli pahoja huhtikuun lopussa.
+
+## Turkin pääministeri eroaa
+
+![Turkin eroava pääministeri kävelee Angela Merkelin kanssa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8861468)
+
+Avaa kuvien katselu
+
+Ahmet Davutoglu tapasi huhtikuussa Angela Merkelin.  Kuva: EPA / SEDAT SUNA
+
+Turkin pääministeri Ahmet Davutoglu ei halua olla enää Turkin pääministeri. Davutoglu kertoo, että hän ei enää halua AK-puolueen puheenjohtajaksi. Davutoglu ja Turkin presidentti Recep Tayyip Erdogan ovat olleet eri mieltä monista asioista.
+
+## Republikaanien John Kasich lopetti kampanjan
+
+![John Kasich](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8209436)
+
+Avaa kuvien katselu
+
+John Kasich. Kuva: Shawn Thew / EPA
+
+Yhdysvalloissa republikaanipuolueella on enää yksi henkilö, joka haluaa olla presidenttiehdokas. Ohion osavaltion kuvernööri John Kasich on kertonut, että hän lopettaa kampanjoinnin. Se tarkoittaa, että Donald Trump on ainoa henkilö, joka haluaa olla republikaanien presidenttiehdokas. 
+
+## Kanadassa suuri metsäpalo
+
+![Ilmakuva, jossa metsäpalo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8861325)
+
+Avaa kuvien katselu
+
+Satellitti kuvasi metsäpalon tiistaina. Nyt palo on lähellä kaupunkia.  Kuva: NASA / EPA
+
+Kanadassa on tosi iso metsäpalo. Metsäpalo raivoaa Kanadan keskiosassa Albertan provinssissa Fort McMurrayn kaupungissa. Metsäpalo on niin iso, että Albertassa on hätätila. Viranomaiset pelkäävät, että suuri osa Fort McMurrayn kaupungista voi tuhoutua. Yli 80-tuhatta ihmistä on evakuoitu metsäpalon takia.

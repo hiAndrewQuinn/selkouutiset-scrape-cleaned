@@ -1,0 +1,87 @@
+# Keskiviikko 23.3.2016 (radio)
+
+Brysselin terrori-iskun tekijöistä on saatu uutta tietoa. Belgialaiset surevat terrori-iskun uhreja. Suomalaiset ostavat nyt vähemmän matkoja suuriin kaupunkeihin kuin ennen terrori-iskujen takia. Työt ovat loppuneet Arabian keramiikkatehtaassa Helsingissä. Kehitysvammaliitto on aloittanut kampanjan, joka kannustaa firmoja ottamaan töihin kehitysvammaisia nuoria. Ammattijärjestö SAK:n uusi neuvontapalvelu maahanmuuttajille on avattu.
+
+## Uutta tietoa Brysselistä
+
+![Ibrahim ja Khalid el-Bakraoui.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8763305)
+
+Avaa kuvien katselu
+
+Veljekset Ibrahim ja Khalid el-Bakraoui olivat Brysselin terrori-iskun tekijöitä. He kuolivat iskussa. Kuva: Splash News / AOP 
+
+Brysselin terrori-iskun tekijöistä on saatu uutta tietoa.
+
+Belgian viranomaiset ovat saaneet selville 2 tekijän nimet. Tekijät ovat veljeksiä. Toinen heistä iski metroasemalle, ja toinen oli mukana iskussa lentokentälle.
+
+Poliisi uskoo, että lentokentälle iski yhteensä 3 miestä. Heistä 2 räjäytti itsensä lentokentällä. Poliisi etsii 3. miestä.
+
+Yli 30 ihmistä kuoli, kun terroristit räjäyttivät pommeja Brysselin lentokentällä ja metrossa tiistaina.
+
+## Belgiassa on suruaika
+
+![Ihmiset surevat Place de la Boursen aukiolla Brysselissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8762332)
+
+Avaa kuvien katselu
+
+Belgialaiset surevat yhdessä. Kuva: Yoan Valat / EPA
+
+Belgialaiset surevat terrori-iskun uhreja. Belgiassa on 3 päivän suruaika.
+
+Keskiviikkona Belgiassa vietettiin myös hiljainen hetki. Niin muistettiin kaikkia, jotka kuolivat iskussa.
+
+## Suomalaiset vähentävät kaupunkimatkoja
+
+![Runsaasti ambulansseja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8755780)
+
+Avaa kuvien katselu
+
+Istanbulissa on tapahtunut pommi-iskuja, eivätkä monet suomalaiset uskalla nyt matkustaa sinne. Kuva: Deniz Toprak / EPA
+
+Terrori-iskut pelottavat myös osaa suomalaisista matkustajista. Suomalaiset ostavat nyt vähemmän matkoja suuriin kaupunkeihin kuin ennen. Matkoja myydään vähemmän esimerkiksi Pariisin ja Istanbuliin, joissa on tapahtunut terrori-iskuja.
+
+Lomapaikat, joissa on paljon pakolaisia, eivät suomalaisia pelota. Suomalaiset tekevät matkoja Kreikkaan ja Turkkiin yhtä paljon kuin ennen. Monet ovat jopa kysyneet matkatoimistosta, miten he voivat lomamatkalla auttaa pakolaisia.
+
+## Arabian tehdas lopetti
+
+![Arabian keramiikkatehdas Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8293762)
+
+Avaa kuvien katselu
+
+Arabian tehdas Helsingissä. Kuva: Yle
+
+Työt ovat loppuneet Arabian keramiikkatehtaassa Helsingissä. Arabian astiat tehdään nyt Thaimaassa ja Romaniassa.
+
+Arabian tehdas on yli 140 vuotta vanha. Tehtaalla oli aikaisemmin jopa 1500 työntekijää, ja se oli Euroopan suurin keramiikan tekijä. Viime aikoina työntekijöitä oli paljon vähemmän.
+
+Arabian keramiikka-astiat ovat olleet monille suomalaisille rakkaita, ja Arabia on ollut osa kuuluisaa suomalaista designia.
+
+## Kehitysvammaiset haluavat tehdä työtä
+
+![Kahvilatyöntekijä kaataa maitoa kahviin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8750690)
+
+Avaa kuvien katselu
+
+Esimerkiksi kahvilat ovat palkanneet kehitysvammaisia työntekijöitä. Kuva: Jyrki Lyytikkä / Yle
+
+Kehitysvammaisten nuorten on vaikea löytää työpaikkaa.
+
+Kehitysvammaliiton toiminnanjohtaja Marianna Ohtonen kertoo, että Suomessa on 25 000 kehitysvammaista työikäistä. Heistä alle 500 on saanut oikean työpaikan.
+
+Kehitysvammaliitto on nyt aloittanut kampanjan, joka kannustaa firmoja ottamaan töihin kehitysvammaisia nuoria.
+
+## SAK avasi neuvonnan maahanmuuttajille
+
+![Eve Kyntäjä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8730558)
+
+Avaa kuvien katselu
+
+Eve Kyntäjä. Kuva: Tiina Jutila / Yle
+
+Ammattijärjestö SAK:n uusi palvelu maahanmuuttajille on nyt avattu. Maahanmuuttajien työsuhdeneuvonta antaa ilmaiseksi neuvoja työelämän asioista.
+
+SAK:n maahanmuuttoasioiden asiantuntija Eve Kyntäjä kertoo palvelusta selkouutisten haastattelussa. Haastattelun voi kuunnella osoitteesta yle.fi/selkouutiset, osasta Kotoutujan Suomi.
+
+**Eve Kyntäjän haastattelu**
+
+**Palvelun Facebook-sivu**

@@ -1,0 +1,67 @@
+# Sunnuntai 8.5.2016 (radio)
+
+Sunnuntaina on vietetty äitienpäivää. Afganistanissa on tapahtunut paha liikenneonnettomuus. Euromaat neuvottelevat maanantaina Kreikan lainoista. Helsingin uimastadion avasi ovensa talven jälkeen.
+
+## Äitejä palkittiin
+
+![Äitienpäiväkortteja. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8863033)
+
+Avaa kuvien katselu
+
+Äitienpäivä on perheiden juhlapäivä. Kuva: Hanne Leiwo/Yle
+
+Sunnuntaina on vietetty äitienpäivää.
+
+Helsingissä järjestettiin äitienpäiväjuhla, jossa presidentti Sauli Niinistö antoi kunniamerkin 29 äidille. Kunniamerkin saajat ovat tehneet hyvää työtä kasvattajina.
+
+![Mukakarera ja tytär Dorcine Mukarugira.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8841085)
+
+Avaa kuvien katselu
+
+Immaculée Mukakarera ja tytär Dorcine Mukarugira. Kuva: Derrick Frilund / Yle
+
+Kunniamerkin sai myös Immaculée Mukakarera. Mukakarera pakeni lasten kanssa Ruandan sotaa Suomeen vuonna 2005.
+
+Mukakarera on pitänyt huolta siitä, että lapset ovat kotoutuneet Suomeen ja oppineet suomen kielen. Mukakarera näytti itse esimerkkiä. Hän teki suomen kielen YKI-testin yli 60-vuotiaana.
+
+Koulutus ja työ ovat kotoutumisessa tärkeimmät asiat, Mukakarera sanoo selkouutisten haastattelussa. Haastattelun voi kuunnella selkouutisten verkkosivuilta.
+
+**Kuuntele Immaculée Mukakareran haastattelu**
+
+## Afganistanissa auto-onnettomuus
+
+![Valtava liikenneonnettomuus Afganistanissa. Kuvassa loukkaantuneita kuljetetaan sairaalaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8866283)
+
+Avaa kuvien katselu
+
+Loukkaantuneita kuljetettiin sairaalaan onnettomuuden jälkeen. Kuva: Sayed Mustafa / EPA
+
+Afganistanissa on tapahtunut paha liikenneonnettomuus. Onnettomuudessa kuoli ainakin yli 70 ihmistä.
+
+Onnettomuudessa 2 bussia ja säiliöauto törmäsivät toisiinsa. Säiliöautossa oli polttoainetta. Autot syttyivät onnettomuudessa tuleen.
+
+Pelätään, että kuolleiden määrä kasvaa. Busseissa oli yhteensä noin 125 matkustajaa.
+
+Afganistanin viranomaiset sanovat, että onnettomuuden syy oli se, että yksi tai moni kuljettaja oli huolimaton.
+
+## Kreikan lainoista neuvotellaan
+
+![Valtiovarainministeri Alexander Stubb.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8865344)
+
+Avaa kuvien katselu
+
+Ministeri Alexander Stubb edustaa Suomea euromaiden kokouksessa maanantaina. Kuva: Yle
+
+Euromaat neuvottelevat maanantaina Kreikan lainoista. Euromaita ovat ne maat, joiden raha on euro.
+
+Euromaat ovat eri mieltä siitä, voidaanko osa Kreikan lainoista antaa anteeksi. Esimerkiksi Ranskan ja Portugalin mielestä Kreikan tilannetta pitää helpottaa. Saksa ja Suomi ovat esimerkkejä maista, jotka eivät halua antaa Kreikalle lainoja anteeksi.
+
+Kreikka on tarvinnut jo monta vuotta lainaa muilta euromailta, koska sen talous on tosi huonossa kunnossa. Kreikan on täytynyt tehdä suuria säästöjä, että se on saanut lainaa. Tavalliset kreikkalaiset ovat vihaisia, koska euromaat vaativat, että Kreikka esimerkiksi nostaa veroja ja pienentää eläkkeitä.
+
+## Uimastadion avasi ovet
+
+Kuva: Yle
+
+Helsingin uimastadion on taas auki. Uimastadion avasi ovet sunnuntaina ensimmäistä kertaa talven jälkeen. Koska sunnuntai oli äitienpäivä, kaikki naiset pääsivät uimastadionille ilmaiseksi.
+
+Uimastadion on kuulunut helsinkiläisten kesään jo kauan. Urheilijat kilpailivat uimastadionilla vuoden 1952 olympialaisissa. Nykyään kaikki voivat nauttia kesästä uimastadionilla. Kauniina kesäpäivänä uimastadionilla käy noin 5000 ihmistä.

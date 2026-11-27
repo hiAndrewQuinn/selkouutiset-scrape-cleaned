@@ -1,0 +1,65 @@
+# Perjantai 22.7.2016 (radio)
+
+Kaksi ihmistä kuoli liikenneonnettomuudessa Hämeenlinnassa. Presidenttiehdokas Donald Trump puhui republikaanien puoluekokouksessa. Lääkepakkauksia muutetaan turvallisuuden takia. Marko Oinas on kulkenut pyörätuolilla Oulusta Helsinkiin. Karhuopas Joona Kaltio on kuvannut harvinaisen karhuvideon.
+
+## Liikenneonnettomuus Hämeenlinnassa
+
+![Hämeenlinnan moottoritiella kolaroituja autoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9045463)
+
+Avaa kuvien katselu
+
+Onnettomuudessa oli mukana 1 kuorma-auto ja 8 henkilöautoa. Kuva: Kati Turtola / Yle
+
+Hämeenlinnassa on tapahtunut paha liikenneonnettomuus. Onnettomuudessa kuoli 2 ihmistä. Loukkaantuneita on monta.
+
+Onnettomuus tapahtui moottoritiellä. Siinä oli mukana monta autoa, ja moottoritie suljettiin onnettomuuden jälkeen. Onnettomuuden takia liikenteessä oli ruuhkaa Hämeenlinnan kohdalla.
+
+## Trump puhui puoluekokoukselle
+
+![Trump puhujapöntössä, taustalla iso valkokangas, jolla hän näkyysuurennettuna, sekä rivi Yhdysvaltain lippuja. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9043137)
+
+Avaa kuvien katselu
+
+Donald Trump republikaanien puoluekokouksessa. Kuva: Shawn Thew / EPA
+
+Republikaanien puoluekokous USA:ssa on loppunut.
+
+Kokouksen lopuksi puhui republikaanien presidenttiehdokas Donald Trump. Trump lupasi, että USA:ssa on turvallisempaa, jos hänestä tulee presidentti. Trump haluaa, että rikokset ja luvaton maahanmuutto vähenevät.
+
+Trump sanoi, että demokraattien Hillary Clinton ei saa päästä USA:n presidentiksi. USA on heikko, jos valta on demokraateilla, Trump sanoi.
+
+USA:n presidentinvaalit ovat tämän vuoden lopussa. Vaaleissa kilpailevat republikaanien ja demokraattien ehdokkaat.
+
+## Lääketurvallisuutta parannetaan
+
+![Lääkepakkauksen koodeja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9035720)
+
+Avaa kuvien katselu
+
+Tulevaisuudessa kaikissa lääkepakkauksissa on koodi. Kuva: Yle
+
+Euroopan unioni haluaa parantaa lääkkeiden turvallisuutta. Siksi lääkkeiden pakkauksia muutetaan.
+
+Tulevaisuudessa jokaisessa lääkepakkauksessa on oma koodi. Pakkaukset myös suljetaan niin, että asiakas huomaa heti, jos pakkaus on avattu.
+
+Uusien pakkausten avulla halutaan varmistaa, että apteekkeihin ei tule väärennettyjä lääkkeitä. Väärennetty lääke ei ole yhtä hyvä kuin oikea lääke. Väärennetty lääke voi olla jopa vaarallinen.
+
+## Pyörätuolilla Oulusta Helsinkiin
+
+![Marko Oinas rullaa pyörätuolilla Oulunsalosta Helsinkiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8997017)
+
+Avaa kuvien katselu
+
+Marko Oinas matkalla Oulusta Helsinkiin. Kuva: Ensio Karjalainen / Yle
+
+Oululainen Marko Oinas on kulkenut pyörätuolilla Oulusta Helsinkiin. Matkaa oli 600 kilometriä. Oinas tuli perille Helsinkiin perjantaina.
+
+Oinas käyttää pyörätuolia, koska hän menetti toisen jalan onnettomuudessa monta vuotta sitten. Hän halusi nyt näyttää kaikille, että kannattaa lähteä ulos ja tavata muita ihmisiä, vaikka käyttää pyörätuolia.
+
+## Harvinainen karhuvideo
+
+Karhuopas Joona Kaltio on kuvannut harvinaisen videon Suomussalmella, Pohjois-Suomessa. Videolla näkyy karhuäiti, jolla on 4 pentua.
+
+Videon alussa pennut ovat korkealla puussa. Ne tulevat kiltisti alas, kun karhuäiti käskee. Kun pennut ovat maassa, karhuäiti antaa niille ruokaa. Se menee selälleen makaamaan, ja pennut tulevat imemään maitoa.
+
+Kaltiolla oli paljon hyvää onnea, kun hän kuvasi videon. Tilanne oli tosi harvinainen, ja kameran akku kesti juuri kuvaamisen ajan. Sitten kamera sammui.

@@ -1,0 +1,75 @@
+# Sunnuntai 15.5.2016 (radio)
+
+Ukraina voitti Euroviisut. Venäjä ei pidä Ukrainan euroviisuvoitosta. Suomeen tulee nyt miljardeja hyönteisiä etelästä. Helsingissä on järjestetty japanilainen Hanami-juhla. Suomen sisällissota herättää tunteita, vaikka se oli noin 100 vuotta sitten.
+
+## Euroviisujen voitto Ukrainalle
+
+Vuoden 2016 Euroviisujen voittaja, ukrainalainen Jamala kertoi voiton aikaansaamista tuntemuksista lehdistötilaisuudessa Tukholmassa. Kuva: Yle
+
+Ukraina on voittanut Euroviisut. Ukraina voitti laulukilpailun myöhään lauantaina Tukholmassa, Ruotsissa.
+
+Ukrainan laulu kertoo, mitä tataareille tapahtui Ukrainassa vuonna 1944. Silloin yli 200 000 tataaria siirrettiin pois omalta kotiseudulta Krimiltä. Tataarien oli pakko lähteä, koska Neuvostoliiton diktaattori Stalin niin määräsi. Ukraina kuului silloin Neuvostoliittoon, jonka tärkein alue oli Venäjä.
+
+Ukrainan laulun tekijä ja laulaja on Jamala. Hän on myös itse Krimin tataari. Laulu kertoo Jamalan isoäidin äidistä.
+
+## Ukrainan voitto harmittaa Venäjää
+
+![Refat Chubarov](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8876801)
+
+Avaa kuvien katselu
+
+Krimin tataareja. Kuva: Artur Shavarts / EPA
+
+Venäjä ei pidä Ukrainan euroviisuvoitosta. Venäjän mielestä Ukraina käytti Euroviisuja politiikkaan.
+
+Vaikka Ukrainan laulu kertoo vuodesta 1944, se tuo kuuntelijan mieleen vuoden 2014. Silloin Venäjä otti Krimin alueen Ukrainalta. Krimin tataarien tilanne on nyt vaikea.
+
+## Hyönteisiä lentää tuulen mukana Suomeen
+
+![Säätutkan kuva, jossa sinisenä näkyy kirvoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8882909)
+
+Avaa kuvien katselu
+
+Tutkakuvan sininen alue tarkoittaa hyönteisiä. Kuva: Jarmo Koistinen / Ilmatieteen laitos
+
+Suomeen muuttaa nyt paljon hyönteisiä. Hyönteisiä on ilmassa niin paljon, että hyönteispilvet näkyvät jopa Ilmatieteen laitoksen tutkakuvassa.
+
+![Kirvoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8882999)
+
+Avaa kuvien katselu
+
+Kirvoja kasvin oksalla. Kuva: Pixabay
+
+Meteorologi Jarmo Koistinen sanoo, että tuuli tuo etelästä Suomeen monia eri hyönteisiä. Suurin osa on pieniä kirvoja. Hyönteisiä on ilmassa miljardeja.
+
+Paras muuttoaika hyönteisille on toukokuussa ja kesäkuussa. Alkuviikolla kylmä sää ehkä vähentää hyönteisten lentämistä Suomeen.
+
+## Japanilaisia tunnelmia Helsingissä
+
+![Kirsikan kukkia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5566514)
+
+Avaa kuvien katselu
+
+Kirsikkapuun kukkia. Kuva: Yle/ Heidi Lindström
+
+Helsingissä on järjestetty japanilainen Hanami-juhla. Juhla oli Roihuvuoren kirsikkapuistossa.
+
+Hanami tarkoittaa suomeksi kukkien katselemista. Hanami on Japanissa tosi tärkeä juhla. Sen aika on keväällä, kun kirsikkapuut kukkivat.
+
+Helsingin Roihuvuoren puistossa kasvaa yli 200 kirsikkapuuta.
+
+## Sisällissodan vaikeat muistot
+
+![ Hennalan punavankileiri Fellmanin pellolla Vesijärven rannalla Lahdessa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8779517)
+
+Avaa kuvien katselu
+
+Vankileiri sisällissodan ajalta. Kuva: Yle 
+
+Suomen sisällissodasta on melkein 100 vuotta, mutta se herättää vielä tunteita. Yli 400 suomalaista vastasi, kun Yle kysyi muistoja sisällissodasta.
+
+Suomen sisällissota oli vuonna 1918. Sodassa olivat vastakkain valkoiset ja punaiset. Punaiset halusivat tehdä Suomesta kommunistisen maan, mutta valkoiset voittivat sodan.
+
+Suomalaiset kertovat, että sisällissota jätti perheisiin kipeitä muistoja. Muistot olivat usein niin kipeitä, että niistä ei puhuttu. Tappaminen ja muut pahat teot pysyivät ihmisten mielessä pitkään. Vaikeinta oli ehkä perheissä, joissa sukulaiset tappoivat toisiaan, koska toiset olivat valkoisia ja toiset punaisia.
+
+**Lue lisää Yle Uutisten verkkosivuilta**

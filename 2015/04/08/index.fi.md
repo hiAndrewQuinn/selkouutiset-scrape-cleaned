@@ -1,0 +1,61 @@
+# Keskiviikko 8.4.2015
+
+Myrsky on katkaissut sähköjä. Eduskuntavaalien ennakkoäänestys on alkanut. Suomalainen Aalto-yliopisto suunnittelee uudet talot intiaanikansalle. Keskiviikkona on ollut romanien kansallispäivä.
+
+## Monet kodit ovat olleet ilman sähköä
+
+![Sähkölinjalle kaatunut puu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7915820)
+
+Avaa kuvien katselu
+
+Tuuli on kaatanut puita sähköjohtojen päälle. Kuva: Antti Karhunen / Yle
+
+Kova tuuli on katkaissut sähköjä. Yli 40 000 kotia oli ilman sähköjä keskiviikkona. Sähköt menivät poikki, kun tuuli kaatoi puita sähköjohtojen päälle.
+
+Tuuli puhalsi kovimmin Länsi-Suomessa ja Etelä-Suomessa. Tuuli häiritsi myös liikennettä. Helsingin ja Tallinnan välillä peruttiin osa laivavuoroista.
+
+## Ennakkoäänestys alkoi
+
+![Ihmisiä jonottamassa Hollolan kunnanvirastolla ennakkoäänestykseen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7914776)
+
+Avaa kuvien katselu
+
+Monissa ennakkoäänestyspaikoissa kävi paljon äänestäjiä. Kuva: Yle / Tanja Perkkiö
+
+Eduskuntavaalien ennakkoäänestys on alkanut. Ennakkoäänestys tarkoittaa, että ihmiset voivat äänestää jo ennen vaalipäivää. Ennakkoäänestyspaikkoja on esimerkiksi posteissa.
+
+Ennakkoäänestys jatkuu ensi tiistaihin asti. Vaalipäivä on vasta myöhemmin. Vaalipäivä on tällä kertaa sunnuntai, huhtikuun 19. päivä.
+
+Eduskuntavaaleissa äänestäjät valitsevat uuden eduskunnan. Eduskuntaan valitaan 200 kansanedustajaa. Kansanedustajien tärkein tehtävä on päättää, minkälaisia lakeja Suomessa on.
+
+Selkouutisten internet-sivuilla voi tutustua puolueisiin, joilla on kansanedustajia eduskunnassa. Haastattelujen tekijät ovat suomen opiskelijoita.
+
+**Tavataan puolueet**
+
+## Suomalaiset suunnittelevat taloja intiaaneille
+
+![Vuori meressä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7899533)
+
+Avaa kuvien katselu
+
+Intiaanit haluavat muuttaa kauemmaksi rannasta, koska valaat varoittavat tsunamista. Kuva: Trev Harris, Aalto-yliopisto
+
+Suomalainen Aalto-yliopisto on saanut erikoisen tehtävän. Aalto-yliopisto suunnittelee uudet talot intiaanikansalle, joka asuu Pohjois-Amerikassa.
+
+Intiaanit asuvat nyt meren rannalla, mutta he haluavat rakentaa uudet talot vähän korkeammalle ja kauemmaksi rannasta. Syy on se, että valaat ovat varoittaneet intiaaneja suuresta tsunami-aallosta. Valaat tuntevat meren hyvin, ja ne ovat kertoneet intiaaneille, että tsunami-aalto iskee intiaanien asuinpaikkaan lähivuosina.
+
+Aalto-yliopisto suunnittelee intiaaneille noin 50 asuntoa ja uuden koulun. Tehtävä sopii hyvin Aalto-yliopistolle, koska talot rakennetaan puusta. Aalto-yliopistossa on paljon tietoa siitä, miten puusta rakennetaan hyviä taloja.
+
+## Suomessa on vietetty romanien kansallispäivää
+
+![Kuvassa lähikuva romaninaisesta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6858479)
+
+Avaa kuvien katselu
+
+Monet Suomen romanit käyttävät romanipukuja. Kuva: Sini Salmirinne / Yle
+
+Keskiviikkona on vietetty romanien kansallispäivää. Suomessa asuu noin 10 000 romania. Eniten romaneja asuu Etelä-Suomen kaupungeissa.
+
+Romaneja on asunut Suomessa jo yli 500 vuotta. Aikaisemmin monet romanit kulkivat paikasta toiseen, mutta se ei enää ole tapana Suomessa. Pohjanmaalla romanit ovat asuneet omissa taloissa jo noin 200 vuotta.
+
+Romanien kansallispäivä pääsi suomalaiseen kalenteriin vuosi sitten. Romanien kansallispäivää vietetään eri puolilla Suomea. Esimerkiksi Helsingin kaupunki nosti tänä vuonna Suomen lipun kaupungintalon lipputankoon romanien kansallispäivän kunniaksi.

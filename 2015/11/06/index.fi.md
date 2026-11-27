@@ -1,0 +1,61 @@
+# Perjantai 6.11.2015
+
+Suomen hallituksessa on riitaa. Rajapoliisi selvittää laitonta maahantuloa. Ilmastonmuutos huolestuttaa kiinalaisia ja yhdysvaltalaisia vähemmän kuin muita. Perjantaina kerrottiin, mitkä kirjat kilpailevat tänä vuonna Finlandia-palkinnosta.
+
+## Hallituksen puolueilla on paha riita
+
+![Juha Sipilä kommentoi sote-neuvotteluita käytyään suuren valiokunnan kuultavana eduskunnassa Helsingissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8438116)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä oli perjantaina vakava, koska hallituksen riita on paha. Kuva: Markku Ulander / Lehtikuva
+
+Suomen hallituksessa on riitaa. Hallituksen puolueet ovat riidelleet esimerkiksi siitä, kuinka monta sote-aluetta Suomessa tarvitaan. Sote-alueet järjestävät asukkaiden sosiaali- ja terveyspalvelut.
+
+Keskustapuolue ja kokoomuspuolue ovat olleet eri mieltä sote-alueiden määrästä. Keskusta on ehdottanut, että sote-alueita on tulevaisuudessa 18. Kokoomus on ollut sitä mieltä, että Suomessa ei tarvita niin monta sote-aluetta.
+
+Hallituksen riita on niin paha, että se on häirinnyt hallituksen työtä. Puolueet ovat keskustelleet koko perjantain, kun ne ovat etsineet riitaan ratkaisua.
+
+## Ihmisiä on tuotu Suomeen ilman lupaa
+
+![Rajavartiolaitoksen satama Katajanokalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8436268)
+
+Avaa kuvien katselu
+
+Rajavartiolaitos tutkii laitonta maahantuloa. Kuva: Trond H. Trosdahl / Lehtikuva
+
+Rajavartiolaitos eli rajapoliisi selvittää laitonta maahantuloa. Ainakin 4 ihmistä on kuljetettu ilman lupaa Ruotsista Suomeen. Laiton maahantulo paljastui Helsingin Eteläsatamassa.
+
+Rikoksista epäillään 3 ihmistä. Yksi on jo tunnustanut rikoksen.
+
+Suomessa on tänä vuonna paljastunut paljon laittomia maahantuloja. Rajavartiolaitos sanoo, että niistä epäillään ruotsalaista rikollisryhmää.
+
+Rikolliset saavat paljon rahaa ihmisten kuljettamisesta Suomeen.
+
+## Kaikki eivät ole yhtä huolestuneita ilmastonmuutoksesta
+
+![Hiili- ja tuulivoimaloita Saksan Bergheimissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8039455)
+
+Avaa kuvien katselu
+
+Ilmanstonmuutos syntyy, kun saasteet lämmittävät ilmastoa. Kuva: Oliver Berg / EPA
+
+Kiinalaiset ja yhdysvaltalaiset ovat vain vähän huolestuneita ilmastonmuutoksesta. Kiina ja Yhdysvallat ovat maita, jotka saastuttavat eniten. Silti maiden asukkaat ovat vähemmän huolestuneita ilmastonmuutoksesta kuin muiden maiden asukkaat.
+
+Kiinassa vain 18 prosenttia ihmisistä sanoo, että ilmastonmuutos on tosi vakava ongelma. Yhdysvalloissa 45 prosenttia sanoo, että ilmastomuutos on vakava ongelma. Muissa maissa suurin osa vastaajista sanoo, että ilmastonmuutos on vakava ongelma. 
+
+Tutkimus tehtiin 40 maassa. Tutkimukseen vastasi yli 45 000 ihmistä. 
+
+## Finlandia-ehdokkaat kerrottiin perjantaina
+
+![ Laura Lindstedt, Kari Hotakainen, Markku Pääskynen, Panu Rajala ja Selja Ahava](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8436330)
+
+Avaa kuvien katselu
+
+Kirjailijat Laura Lindstedt (vas), Kari Hotakainen, Markku Pääskynen, Panu Rajala ja Selja Ahava kilpailevat Finlandia-palkinnosta. Kuvasta puuttuu Pertti Lassila.  Kuva: Vesa Moilanen / Lehtikuva
+
+Perjantaina on kerrottu, mitkä kirjat kilpailevat tänä vuonna Finlandia-palkinnosta. Finlandia-palkinto on Suomen tärkein kirjallisuuspalkinto.
+
+Finlandia-palkinnosta kilpailee 6 kirjaa ja niiden kirjoittajaa. Tänä vuonna kaikki ehdokkaat ovat kokeneita kirjailijoita. Joukossa on esimerkiksi Kari Hotakainen, joka on jo kerran voittanut Finlandia-palkinnon.
+
+Finlandia-palkinnon voittajan valitsee yksi henkilö. Tänä vuonna muusikko Heikki Harma eli Hector valitsee voittajan. Hän kertoo marraskuun 26. päivä, kuka voittaa Finlandia-palkinnon.

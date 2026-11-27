@@ -1,0 +1,59 @@
+# Keskiviikko 4.3.2015
+
+Suomalainen Wärtsilä maksaa pieniä palkkoja Intiassa. Yksityiskoulut saavat paljon verorahaa. Ukrainassa on tapahtunut kaivosonnettomuus. Lihominen vahingoittaa aivoja.
+
+## Wärtsilä maksaa pieniä palkkoja Intiassa
+
+![Wärtsilän alihankkijan, Echjay Forgingsin tehdas Honandissa, Maharasthrassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7841645)
+
+Avaa kuvien katselu
+
+Työntekijöillä on huonot olot tehtaassa, joka valmistaa osia Wärtsilän tuotteisiin. Kuva: Päivi Koskinen/Yle
+
+Suomalainen firma Wärtsilä maksaa työntekijöille liian pientä palkkaa Intiassa. Näin sanoo Finnwatch-järjestö, joka tutkii firmojen toimintaa. Suomalainen Wärtsilä valmistaa esimerkiksi laivojen moottoreita, ja sillä on tehtaita monessa maassa.
+
+Finnwatch sanoo, että Wärtsilän Intian tehtaalla työntekijät saavat niin pientä palkkaa, että se ei riitä elämiseen. Wärtsilä on kuitenkin hoitanut työntekijöiden turvallisuuden ja terveydenhoidon hyvin, Finnwatch kertoo.
+
+Suurimmat ongelmat löytyvät Wärtsilän intialaisen alihankkijan tehtaalta. Alihankkija valmistaa osia Wärtsilän tuotteisiin. Finnwatch kertoo, että Wärtsilän alihankkijan työntekijät saavat liian vähän palkkaa, ja he tekevät työtä vaarallisessa ympäristössä.
+
+Wärtsilä lupaa, että se selvittää ongelmat.
+
+## Yksityiskoulut saavat paljon verorahaa
+
+![pohjois-haagan yhteiskoulu ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7842703)
+
+Avaa kuvien katselu
+
+Yksityiskoulut kertovat itsestään usein hienoilla internet-sivuilla. Kuva: Yle
+
+Helsingissä puhutaan yksityiskoulujen rahoista. Helsingissä yksityiskoulut saavat valtiolta enemmän rahaa oppilasta kohti kuin kaupungin koulut.
+
+Yksityiskoulut saavat lisärahaa erityisoppilaiden opetukseen. Erityisoppilaat tarvitsevat enemmän tukea kuin muut. Yksityiskouluissa on kuitenkin vähemmän erityisoppilaita kuin kaupungin kouluissa.
+
+Helsingissä on noin 20 yksityiskoulua, joiden omistaja ei ole kaupunki, vaan esimerkiksi jokin yhdistys. Yksityiskoulut ovat itse sitä mieltä, että ne eivät ole paremmassa asemassa kuin kaupungin koulut.
+
+## Kaivosmiehiä kuoli onnettomuudessa Ukrainassa
+
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7844151)
+
+Avaa kuvien katselu
+
+Onnettomuus tapahtui Zasjadkon kaivoksessa Itä-Ukrainassa. Kuva: Yle Uutisgrafiikka
+
+Ukrainassa on tapahtunut paha onnettomuus. Yli 30 ihmistä kuoli, kun hiilikaivoksessa räjähti. On mahdollista, että lisäksi maan alle jäi kaivosmiehiä, jotka eivät päässeet ulos kaivoksesta.
+
+Onnettomuus tapahtui Itä-Ukrainassa kapinallisten alueella. Vaikka Itä-Ukrainassa on ollut sota, sota ei ollut räjähdyksen syy. Onnettomuuden syy oli todennäköisesti kaasu.
+
+## Lihominen vahingoittaa aivoja
+
+![Henkilö vaa&#39;alla, jonka lukema on 138 kiloa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6832938)
+
+Avaa kuvien katselu
+
+Myös aivot kärsivät, kun paino nousee hurjasti. Kuva: Arja Lento / Yle 
+
+Lihominen vaikuttaa myös aivoihin. Suomalaiset tutkijat ovat saaneet selville, että lihavilla ihmisillä on vähemmän aivokudosta kuin normaalipainoisilla ihmisillä. Aivokudoksessa on hermosoluja.
+
+Tutkijat kertovat myös, että syöminen ei tuo lihaville yhtä paljon iloa kuin muille. Lihavien täytyy syödä usein ja paljon, että he saavat syömisestä saman ilon kuin muut. Tutkijat sanovat, että tämä on uusi ja yllättävä tieto.
+
+Tutkijat toivovat, että ihmiset huomaavat, että lihomisesta on monenlaista haittaa. Lihominen vahingoittaa myös aivoja.

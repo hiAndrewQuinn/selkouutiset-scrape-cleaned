@@ -1,0 +1,61 @@
+# Tiistai 22.3.2016 (radio)
+
+Terroristit hyökkäsivät Brysselissä, yli 30 ihmistä kuoli. Suomen ja Venäjän presidentit tapaavat. Yhdysvaltojen presidentin Kuuban vierailu jatkuu.
+
+## Terroria Brysselissä
+
+![Ihmisiä ohjataan pois Brysselin lentokentältä, jossa tapahtui kaksi räjähdystä tiistaiaamuna 22. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8761541)
+
+Avaa kuvien katselu
+
+Ihmiset tulevat pois Brysselin lentoasemalta, jossa terroristit räjäyttivät pommeja. Kuva: Laurent Dubrule / EPA
+
+Belgian pääkaupungissa Brysselissä tehtiin tiistaina aamulla terrori-iskuja.
+
+Kaksi pommia räjähti Brysselin lentoasemalla. Yksi pommi räjähti metrossa lähellä Euroopan Unionin rakennuksia. Iskuissa on kuollut yli 30 ihmistä ja loukkaantunut yli 200. Suomen ulkoministeriö sanoo, että myös muutama suomalainen loukkaantui räjähdyksissä.
+
+Räjähdysten jälkeen Brysselin lentokenttä suljettiin. Myös metro, bussit ja junat pysäytettiin.
+
+Terroristijärjestö Isis ilmoitti, että se räjäytti Brysselin pommit.
+
+## Euroopan johtajat järkyttyivät
+
+![Euroliput puolitangossa Bryssselissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8761703)
+
+Avaa kuvien katselu
+
+Suruliputus Brysselissä.  Kuva: Yoan Valat / EPA
+
+Euroopan johtajat tuomitsevat Brysselin iskut. 
+
+Ranskan pääministeri Manuel Valls sanoi, että "me olemme sodassa". Belgian pääministeri Charles Michel sanoi, että meidän täytyy pysyä rauhallisina. Ranskan presidentti Francois Hollande sanoi, että terroristien kohde oli koko Eurooppa ja koko maailma.
+
+Suomen presidentti Sauli Niinistö sanoi, että isku Euroopan sydämeen oli jatkoa iskuille Pariisiin marraskuussa - ja Istanbuliin viime lauantaina. Ulkoministeri Timo Soini sanoi, että pelko ei saa voittaa.
+
+## Suomen ja Venäjän presidentit tapaavat
+
+![Niinistö ja Putin istuvat tuoleilla pienen pyöreän pöydän molemmin puolin. Niinistö puhuu juuri. Miesten taustalla ovat Suomen ja Venäjän liput. Pöydällä on kukka-asetelma.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8761222)
+
+Avaa kuvien katselu
+
+Sauli Niinistö (vas.) ja Vladimir Putin. Kuva: Grigori Vorobjov / Yle
+
+Suomen presidentti Sauli Niinistö tapaa tänään tiistaina Venäjän presidentin Vladimir Putinin Moskovassa.
+
+Niinistö ja Putin keskustelevat ainakin Syyrian sodasta ja Ukrainasta. Presidentit puhuvat myös taloudesta. EU on määrännyt Venäjälle talouspakotteita, koska Venäjä otti Krimin niemimaan Ukrainalta noin kaksi vuotta sitten. Venäjä taas lopetti esimerkiksi ruuan ostamisen Euroopasta.
+
+Presidentti Niinistö tapasi presidentti Putinin edellisen kerran viime kesänä. Suurin osa EU:n johtajista ei ole tavannut Putinia sen jälkeen, kun Venäjä valtasi Krimin. Niinistö haluaa kuitenkin tavata Putinia, koska Venäjä on Suomen naapuri.
+
+## Obama ja Castro: Kauppasaarto täytyy lopettaa
+
+![Barack Obama ja Raul Castro pressitilaisuudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8759750)
+
+Avaa kuvien katselu
+
+Barack Obama ja Raul Castro. Kuva: Alejandro Ernesto / EPA
+
+Yhdysvaltojen presidentti Barack Obama on edelleen vierailulla Kuubassa. 
+
+Kuuban presidentti Raul Castro sanoi, että Yhdysvaltojen täytyy lopettaa Kuuban kauppasaarto. Kauppasaarto tarkoittaa, että yhdysvaltalaiset firmat eivät ole käyneet kauppaa Kuuban kanssa noin 50 vuoteen. Myös Barack Obama sanoi, että on aika lopettaa kauppasaarto. Obama sanoi myös, että Kuuban täytyy kunnioittaa ihmisoikeuksia ja lisätä demokratiaa. 
+
+Yhdysvaltojen presidentti on käynyt Kuubassa viimeksi noin 90 vuotta sitten.

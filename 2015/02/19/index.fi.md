@@ -1,0 +1,57 @@
+# Torstai 19.2.2015
+
+Sosiaali- ja terveyspalvelujen uudistus on vaikeuksissa. Hovioikeus sanoo, että Anneli Auer ei murhannut miestään. Monet lapset ovat yksinäisiä. Amerikkalaiset kehuvat suomalaista koulua.
+
+## Sosiaali- ja terveyspalvelujen uudistus on vaikeuksissa
+
+![Anu Urpalainen ja Johannes Koskinenperustuslakivaliokunnan sote-uudistuksen tiedotustilaisuudessa Helsingissä ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7816066)
+
+Avaa kuvien katselu
+
+Perustuslakivaliokunnan puheenjohtaja Johannes Koskinen (keskellä). Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Hallituksella on ongelmia sosiaali- ja terveyspalvelujen uudistuksen kanssa. Eduskunnan perustuslakivaliokunta sanoo, että uudistus ei noudata perustuslakia. Perustuslaki on tärkein laki.
+
+Valiokunnan mielestä uudistuksessa on ongelmia, jotka liittyvät hallintoon ja rahaan. Hallitus on suunnitellut, että viisi (5) suurta aluetta järjestää kaikki sosiaali- ja terveyspalvelut Suomessa. Hallitus on myös suunnittelut, että puolet kuntien rahoista siirretään näille alueille. Se on perustuslakivaliokunnan mielestä ongelma, koska kunnilla on oikeus päättää itse omista asioistaan.
+
+Hallitus harkitsee, miten se voi jatkaa uudistusta. Hallitus yrittää uudistuksella varmistaa, että rahat riittävät palveluihin myös tulevaisuudessa.
+
+## Auer on syytön murhaan
+
+![Anneli Auer Satakunnan käräjäoikeudessa huhtikuussa 2010.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7816253)
+
+Avaa kuvien katselu
+
+Anneli Auerin oikeudenkäynti on kestänyt monta vuotta. Kuva: Mikko Stig / Lehtikuva
+
+Hovioikeus on antanut päätöksen kuuluisassa Anneli Auerin tapauksessa. Hovioikeus sanoo, että Anneli Auer ei murhannut miestään. Hovioikeuden mielestä ei voida todistaa, että Auer tappoi tai murhasi miehensä.
+
+Käräjäoikeus oli aikaisemmin sitä mieltä, että Auer murhasi miehensä vuonna 2006. Auer valitti käräjäoikeuden päätöksestä hovioikeuteen. Auerin tapausta on käsitelty oikeudessa kauan, ja siitä on puhuttu mediassa paljon.
+
+## Yksinäisyys on lapselle raskasta
+
+![Niina Junttila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7815042)
+
+Avaa kuvien katselu
+
+Dosentti Tiina Junttila on tutkinut lasten yksinäisyyttä. Kuva: Yle
+
+Monet lapset ovat yksinäisiä. Noin 10 prosenttia lapsista on ilman kavereita pitkän aikaa. Yksinäisiä poikia on vähän enemmän kuin yksinäisiä tyttöjä.
+
+Dosentti Tiina Junttila Turun yliopistosta sanoo, että yksinäisyys on lapselle raskasta. Joskus lapsesta tuntuu, että kukaan ei huomaa häntä. Lapsi toivoo ystävää, joka kuuntelee ja ymmärtää.
+
+Yksinäiset lapset kärsivät usein myös ahdistuksesta ja masennuksesta, dosentti Junttila kertoo.
+
+## Amerikkalaiset kehuvat suomalaista koulua
+
+![Opettaja liitutaulun äärellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7817157)
+
+Avaa kuvien katselu
+
+Suomalaiset opettajat ovat hyviä, verkkojulkaisu Vox kirjoittaa. Kuva: Jyrki Lyytikkä / Yle
+
+Suomalainen koulu saa taas kehuja. Nyt suomalaista koulua kehuu yhdysvaltalainen internet-julkaisu Vox. Vox kertoo monta syytä, miksi suomalainen koulu on parempi kuin amerikkalainen.
+
+Yksi syy siihen, että suomalaiset koululaiset menestyvät paremmin kuin amerikkalaiset, on suomen kieli. On helpompi oppia lukemaan ja kirjoittamaan suomea kuin englantia. Suomea puhutaan samalla tavalla kuin kirjoitetaan, mutta englannissa ero voi olla iso.
+
+Vox kehuu paljon suomalaisia opettajia. Suomalaisilla opettajilla on parempi koulutus kuin amerikkalaisilla opettajilla. Suomalaisilla opettajilla on myös parempi palkka, ja heitä arvostetaan enemmän.

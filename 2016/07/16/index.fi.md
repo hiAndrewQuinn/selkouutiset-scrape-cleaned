@@ -1,0 +1,67 @@
+# Lauantai 16.7.2016 (radio)
+
+Joukko Turkin armeijan sotilaita yritti ottaa vallan Turkissa. Suomen viranomaiset sanovat, että Turkkiin ei kannata nyt matkustaa. Ranskan viranomaiset ovat pidättäneet ihmisiä Nizzan iskun takia. Suopotkupallon MM-kilpailut järjestettiin Hyrynsalmella.
+
+## Turkin valtataistelu
+
+![Turkin poliisi pidätti vallankaappaukseen osallistuneita sotilaita Taksim-aukiolla 16. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9030969)
+
+Avaa kuvien katselu
+
+Turkin poliisi otti kiinni sotilaita, jotka yrittivät ottaa vallan Turkissa. Kuva: EPA
+
+Turkissa taistellaan vallasta.
+
+Joukko Turkin armeijan sotilaita on yrittänyt ottaa vallan Turkissa. He ovat epäonnistuneet. Presidentti Erdoğanin hallitus määrää edelleen Turkin asioista.
+
+Osa Turkin armeijasta on sitä mieltä, että Erdoğanin hallitus tuo liian paljon uskontoa politiikkaan. Siksi osa sotilaista halusi ottaa vallan pois Erdoğanilta. He ovat sitä mieltä, että Erdoğan ei muista Turkin vanhaa sääntöä, että valtio ja uskonto ovat eri asioita.
+
+Taistelut Turkissa alkoivat myöhään perjantaina. Yöllä taisteluja oli Turkin pääkaupungissa Ankarassa ja Turkin suurimmassa kaupungissa Istanbulissa. Lauantaina oli jo selvää, että Erdoğanin vastustajat ovat hävinneet taistelut ja voittaja on Erdoğanin hallitus.
+
+Taistelujen aikana kuoli yli 160 ihmistä.
+
+## Matkat Turkkiin
+
+![Kaputas-ranta Antalyassa, Turkissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9031116)
+
+Avaa kuvien katselu
+
+Turkki on suosittu matkakohde. Kuva: AOP
+
+Suomen viranomaiset sanovat, että suomalaisten ei kannata matkustaa Turkkiin juuri nyt. Turkissa käy kesällä paljon suomalaisia turisteja.
+
+Monet matkatoimistot sanovat, että asiakas voi perua tai siirtää matkaa Turkkiin ilmaiseksi. Näin on viikonlopun ajan. Sen jälkeen matkatoimistot katsovat, minkälainen Turkin tilanne on.
+
+## Pidätyksiä Ranskassa
+
+![Ihmiset kerääntyivät Nizzan rantakadun läheisyyteen perjantai-iltana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9030631)
+
+Avaa kuvien katselu
+
+Ranskalaiset ovat muistaneet ihmisiä, jotka kuolivat Nizzan iskussa. Kuva: Ian Langsdon / EPA
+
+Ranskan viranomaiset ovat pidättäneet ihmisiä Nizzan iskun takia. Viranomaiset pidättivät 4 miestä ja iskun tekijän entisen vaimon. Viranomaiset eivät ole kertoneet, miksi heidät pidätettiin.
+
+Iskun tekijä tappoi yli 80 ihmistä torstai-iltana. Hän ajoi kuorma-autolla ihmisten päälle Nizzan rantakadulla, jossa juhlittiin Ranskan kansallispäivää.
+
+Iskun tekijä oli Tunisian kansalainen, mutta hän asui Nizzassa. Terroristijärjestö Isisin mielestä tekijä oli Isisin taistelija.
+
+## Suopotkupallo
+
+![Pelaajia ottelussa suopotkupallossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9029694)
+
+Avaa kuvien katselu
+
+Suopotkupalloa pelataan suolla. Kuva: Terhi Marjakangas / Yle
+
+Tänä viikonloppuna on kilpailtu suopotkupallon maailmanmestaruudesta. Suopotkupallo on yksi Suomen kesän hauska tapahtuma. Suopotkupallon MM-kilpailut järjestetään joka kesä Hyrynsalmella, Pohjois-Suomessa.
+
+![Söpöt pistorasiat -joukkueen pelaaja upposi polviaan myöten suohon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9029641)
+
+Avaa kuvien katselu
+
+Pelaaja upposi suohon polviin asti. Kuva: Terhi Marjakangas / Yle
+
+Suopotkupallo on melkein samanlaista kuin tavallinen jalkapallo, mutta sitä pelataan suolla. Suo on pehmeää, ja pelaajat voivat upota syvälle suohon. Siksi suolla on vaikea liikkua, ja suopotkupallossa kenttä on pienempi kuin jalkapallossa.
+
+Tänä vuonna Hyrynsalmen MM-kilpailuihin tuli pelaajia myös Venäjältä, Saksasta ja Puolasta. Voitto ei ole pelaajille tärkeintä. Tärkeää on se, että kaikilla on hauskaa.

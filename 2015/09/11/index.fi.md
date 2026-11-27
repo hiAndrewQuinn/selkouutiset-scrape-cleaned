@@ -1,0 +1,57 @@
+# Perjantai 11.9.2015
+
+Suomi ottaa lisää turvapaikanhakijoita. Suurmielenosoitus leikkauksia vastaan. Citymarketien myyjillä ulosmarssi. Suomi ei halua kiintiöitä turvapaikanhakijoille. Ihmiselle löytyi uusi esi-isä.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Suomi ottaa lisää turvapaikanhakijoita
+
+![Sisäministeri Petteri Orpo, pääministeri Juha Sipilä ja ulkoministeri Timo Soini.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8298231)
+
+Avaa kuvien katselu
+
+Sisäministeri Petteri Orpo, pääministeri Juha Sipilä ja ulkoministeri Timo Soini kertoivat, mitä mieltä Suomi on EU:n ehdottamista pakolaiskiintiöistä. Kuva: Seppo Samuli / Lehtikuva
+
+Suomi on valmis ottamaan vastaan 2 400 turvapaikanhakijaa. Määrä on sama, jota EU-komissio on Suomelle ehdottanut.
+
+EU-komissio haluaa, että turvapaikanhakijat jaetaan EU-maiden kesken. Jokaiselle maalle lasketaan kiintiö, joka kertoo, kuinka paljon niiden täytyy ottaa turvapaikanhakijoita.
+
+Suomen hallitus vastustaa pakollisia kiintiöitä. Hallitus sanoo, että eri maiden täytyy voida päättää asiasta vapaasti.
+
+## Suurmielenosoitus leikkauksia vastaan
+
+![Bussi pysäkillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6275582)
+
+Avaa kuvien katselu
+
+Mielenosoituspäivänä bussia voi joutua odottamaan turhaan, sillä AKT aikoo pysäyttää liikenteen. Kuva: Yle
+
+Ammattiyhdistysliike osoittaa ensi viikon perjantaina mieltään Helsingin Rautatientorilla. Mielenosoituksella vastustetaan hallituksen aikeita heikentää työehtoja.
+
+Auto-ja kuljetusalan työntekijäliitto AKT aikoo tuolloin myös pysäyttää liikenteen ja työt satamissa  ja lentokentällä.  Paperiliitto puolestaan pysäyttää paperitehtaat vuorokauden ajaksi.
+
+Hallitus kertoi alkuviikolla leikkauksista, jotka koskevat suurta osaa suomalaisista. Esimerkiksi ihmisten työaika pitenee, monien palkka pienenee ja lomat lyhenevät. Leikkausten avulla hallitus yrittää saada Suomen talouden nousuun. 
+
+Työmarkkinajärjestö SAK sanoo, että Suomessa on perinteisesti neuvoteltu ja sovittu asioista yhdessä. Nyt hallitus rikkoo tämän perinteen, kun se yksin päättää heikentää työehtoja.
+
+## Citymarketien myyjillä ulosmarssi
+
+![Ulosmarssi Lahdessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8298807)
+
+Avaa kuvien katselu
+
+Hallituksen leikkaukset pienentävät monien myyjien palkkoja. Kuva: Mika Moksu / Yle
+
+K-Citymarketien työntekijät osoittivat mieltään leikkauksia vastaan jo tänä perjantaina. Työntekijät marssivat puolenpäivän aikaan ulos työpaikoiltaan. Mielenilmaus kesti 15 minuuttia.
+
+Hallituksen leikkaukset pienentävät monien myyjien palkkoja. Myyjät tekevät paljon vuorotyötä, ja nyt hallitus aikoo leikata korvauksia, joita maksetaan sunnuntaityöstä ja ylityöstä.
+
+## Ihmiselle löytyi uusi esi-isä
+
+Etelä-Afrikasta on löytynyt uusi jäsen ihmisen sukupuuhun. Luolasta lähellä Johannesburgia löytyi muinaisen ihmislajin kivettyneitä jäännöksiä. Ihmislaji on saanut nimekseen Homo naledi.
+
+Tutkijat sanovat, että aikuinen Homo naledi oli 1,5 metriä pitkä. Sen aivot olivat pienet, noin appelsiinin kokoiset. Homo naledin käsistä näkee, että laji pystyi käyttämään työkaluja. Käyrät sormet taas kertovat, että Homo naledi kiipeili puissa.
+
+Tutkijat eivät vielä tiedä, milloin Homo naledi eli tai mihin kohtaan ihmisen sukupuuta se sijoittuu.

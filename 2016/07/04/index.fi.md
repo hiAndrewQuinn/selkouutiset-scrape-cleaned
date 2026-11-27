@@ -1,0 +1,77 @@
+# Maanantai 4.7.2016 (radio)
+
+Suomen poliisi otti kiinni kuubalaisia urheilijoita seksuaalirikoksen takia. Noin 12 000 nuorta aloitti maanantaina armeijan. Vähän alle 70-vuotiaat miehet pelaavat rahapelejä eniten. Turun yliopistossa tutkitaan punkkeja. Sunnuntaina syntyi tämän kesän salamaennätys.
+
+## Rikosepäily
+
+![Poliisimerkki Tampereen poliisitalon seinässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9001625)
+
+Avaa kuvien katselu
+
+Tampereen poliisitalo. Kuva: Petri Aaltonen / Yle
+
+Suomen poliisi on pidättänyt 6 kuubalaista urheilijaa seksuaalirikoksen takia. Poliisi otti ensin kiinni 8 miestä, mutta vapautti sitten 2.
+
+Poliisi epäilee, että miehet ovat raiskanneet naisen. He ehkä raiskasivat naisen Tampereella hotellissa, jossa he asuivat.
+
+Miehet pelaavat lentopalloa Kuuban maajoukkueessa. He olivat viikonloppuna pelaamassa Tampereella.
+
+Poliisi aikoo esittää oikeudelle, että miehet vangitaan.
+
+## Armeija
+
+![Alokkaat seisovat kahdessa jonossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6725611)
+
+Avaa kuvien katselu
+
+Armeija alkoi. Kuva: Jenny Huttunen / Yle
+
+Noin 12 000 nuorta on aloittanut maanantaina armeijan. Heistä suurin osa on miehiä, koska Suomessa miesten on pakko käydä armeija. Joukossa on myös noin 300 naista. Naisille armeijaan meneminen on vapaaehtoista.
+
+Nuoret voivat armeijan tilalta valita myös siviilipalveluksen. Siviilipalveluksen voi tehdä esimerkiksi sairaalassa.
+
+Armeijan voi aloittaa Suomessa tammikuun tai heinäkuun alussa.
+
+## Rahapelit
+
+![Peliriippuvuus ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6576404)
+
+Avaa kuvien katselu
+
+Pelaamisesta tulee ongelma, jos sitä ei pysty lopettamaan. Kuva: YLE
+
+Suomalaiset pelaavat mielellään rahapelejä. Vähän alle 70-vuotiaat miehet pelaavat rahapelejä enemmän kuin muut.
+
+Automaatteja on joka paikassa. Siksi myös huonokuntoisen eläkeläisen on helppo viettää aikaa pelaamalla rahapelejä.
+
+Eniten peliongelmia on kuitenkin alle 35-vuotiailla aikuisilla. Pelaamisesta tulee ongelma, jos pelaamista ei pysty lopettamaan ja se vie paljon rahaa.
+
+Monet kuitenkin pelaavat, koska he haluavat voittaa rahaa.
+
+## Punkkitutkimus
+
+![Punkki imee verta iholla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7372887)
+
+Avaa kuvien katselu
+
+Punkki on pieni, mutta se voi tuoda pahan sairauden. Kuva: Antti Heikinmatti / Yle
+
+Turun yliopistossa tutkitaan punkkeja. Tutkijat ovat saaneet työhön miljoonan euron lahjoituksen.
+
+Tutkijat pyysivät viime vuonna ihmisiä lähettämään punkkeja eri puolilta Suomea. Tutkijat saivat noin 20 000 punkkia.
+
+Nyt tutkijat haluavat tietää, kuinka suuri osa punkeista kantaa sairauksia ja missä päin Suomea. Uusista tiedoista on apua esimerkiksi lääkäreille.
+
+Ihminen voi saada esimerkiksi borrelioosin tai TBE-aivotulehduksen, jos punkki puree häntä. Molemmat ovat ihmiselle vakavia sairauksia.
+
+## Salamaennätys
+
+![Salama iskee maahan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9001121)
+
+Avaa kuvien katselu
+
+Sunnuntaina laskettiin 3670 salamaa. Kuva: Tommi Parkkinen / Yle
+
+Suomessa on ollut ukkosia. Sunnuntaina syntyi tämän kesän uusi salamointiennätys. Salama iski maahan 3670 kertaa. Salamat iskivät eniten Itä-Suomessa.
+
+Sadesää jatkuu. Ilmatieteen laitos varoittaa, että eri puolilla Suomea voi sataa tosi paljon. Vettä voi sataa yhdessä päivässä yhtä paljon kuin tavallisesti koko heinäkuussa.

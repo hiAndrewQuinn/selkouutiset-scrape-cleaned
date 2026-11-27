@@ -1,0 +1,59 @@
+# Lauantai 10.1.2015
+
+Ranskan terroritapahtumista on saatu lisää tietoa. Suomen ulkoministerin mielestä Ranskan terrori-isku ei ollut yllätys. Monet kodit ovat olleet ilman sähköä Itä-Suomessa. Vanhus voi kiroilla muistisairauden takia.
+
+## Ranska toipuu terrori-iskusta
+
+![Ihmiset marssivat terrori-iskuissa kuolleiden muistolle Nizzassa, Ranskassa lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7730070)
+
+Avaa kuvien katselu
+
+Ranskalaiset ovat muistaneet ihmisiä, jotka kuolivat terrori-iskussa. Monessa kaupungissa ihmiset ovat marssineet yhdessä. Kuva on Nizzasta. Kuva: Valery Hache / AFP / Lehtikuva
+
+Ranskan terroritapahtumista on saatu lisää tietoa. Perjantaina poliisin hyökkäyksissä kuoli yhteensä kolme (3) miestä, joita epäillään terrorismista. Kaksi (2) miehistä iski ranskalaisen lehden toimitukseen keskiviikkona, ja yksi (1) miehistä iski juutalaiseen ruokakauppaan perjantaina.
+
+Mies, joka iski juutalaiseen ruokakauppaan, tappoi neljä (4) ihmistä. Kaupassa oli myös muita ihmisiä, mutta mies ei löytänyt heitä. Ihmiset menivät piiloon kaupan kylmähuoneeseen.
+
+Miehet, jotka iskivät lehden toimitukseen, tappoivat 12 ihmistä. Isku tapahtui jo keskiviikkona, ja poliisi etsi miehiä kolme (3) päivää. Miehet olivat veljeksiä.
+
+Veljekset tekivät iskun lehteä vastaan ehkä siksi, että lehdessä on ollut pilakuvia profeetta Muhammedista. Veljesten perhe tuli Algeriasta Ranskaan, ja pojat syntyivät Ranskassa. Veljeksillä oli yhteyksiä terrorismiin, jo ennen kuin he tekivät terrori-iskun.
+
+## Terrori-isku ei ollut yllätys
+
+![Erkki Tuomioja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7729535)
+
+Avaa kuvien katselu
+
+Ulkoministeri Erkki Tuomioja sanoo, että terrorismi ei tunne maiden rajoja. Kuva: Yle
+
+Suomen ulkoministeri Erkki Tuomioja sanoo, että Ranskan terroritapahtumat eivät olleet yllätys. Terroritekoja tehdään koko ajan eri puolilla maailmaa, Tuomioja sanoi televisiohaastattelussa lauantaina.
+
+Tuomioja muistuttaa, että muslimit eivät ole terroristeja. Myös suurin osa muslimeista on sitä mieltä, että terrori-iskut ovat väärin, Tuomioja sanoo.
+
+Ulkoministerin mielestä on tärkeää, että maahanmuuttajat kotoutuvat Suomeen. Tuomioja toivoo, että maahanmuuttajien kanssa tehdään yhteistyötä.
+
+## Sähköt menivät poikki monelta kodilta
+
+![Sähkölinja lumisessa metsässä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7727876)
+
+Avaa kuvien katselu
+
+Raskas lumi painaa puita sähköjohtojen päälle. Kuva: Toni Pitkänen / Yle
+
+Monet kodit ovat olleet ilman sähköä Savon alueella Itä-Suomessa. Yli 16 000 kotia oli ilman sähköä lauantaina päivällä.
+
+Sähköt ovat menneet poikki lumisateen takia. Puissa on nyt paljon märkää lunta, joka on raskasta. Sähköt menevät poikki, kun lumi painaa puita sähköjohtojen päälle.
+
+## Muistisairaus voi aiheuttaa kiroilua
+
+![Vanhus juo kahviaan. Mehulasi ja voileipälautanen ovat myös pöydällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7378591)
+
+Avaa kuvien katselu
+
+Muistisairas vanhus ei aina ymmärrä, mitä saa sanoa ja mitä ei. Kuva: Jyrki Lyytikkä / Yle
+
+Muistisairaus voi muuttaa vanhuksen luonnetta. Muistisairas vanhus voi esimerkiksi puhua rumaa kieltä ja kiroilla.
+
+Vanhuksen perheelle voi olla vaikeaa, jos vanhus ei enää ymmärrä, mitä saa puhua ja mitä ei. Hoitokodeissa muut vanhukset voivat kärsiä, jos joku asukkaista puhuu rumasti.
+
+Hoitajan on helpompi tehdä työtä, jos hän tietää, että vanhus kiroilee muistisairauden takia. Muistisairaan vanhuksen hoitaminen on silti raskasta, jos vanhus koko ajan haukkuu hoitajaa.

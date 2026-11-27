@@ -1,0 +1,67 @@
+# Sunnuntai 15.11.2015
+
+Pariisin terrori-iskuista on saatu lisää tietoa. Ranskalaiset surevat ihmisiä, jotka kuolivat terrori-iskuissa. Eri uskontojen ihmiset ovat kävelleet rauhan puolesta Helsingissä ja Turussa. Yksi ihminen kuoli tulipalossa Kristiinankaupungissa.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Terrori-iskujen tutkimukset jatkuvat Ranskassa
+
+![Rikospaikkatutkijoita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8456978)
+
+Avaa kuvien katselu
+
+Tutkijat ovat saaneet selville lisää tietoa terrori-iskuista. Kuva: Julien Warnand / EPA
+
+Pariisin terrori-iskuista on saatu lisää tietoa. Ranskan viranomaiset kertovat, että terroristit liikkuivat Pariisissa 3 ryhmässä.
+
+Viranomaiset ovat löytäneet auton, jota 1 ryhmä käytti. Auto on musta Seat. Ryhmä ajoi autolla ja ampui ihmisiä, jotka istuivat kahviloissa ja baareissa.
+
+Viranomaiset kertovat myös, että 1 ryhmä ehkä pääsi pakoon terrori-iskujen jälkeen.
+
+Viranomaiset ovat saaneet selville 1 terroristin nimen. Hän oli noin 30-vuotias ranskalainen, jolla oli algerialainen tausta. Hän tappoi muiden terroristien kanssa melkein 100 ihmistä konserttipaikassa. Hän tappoi myös itsensä.
+
+Pariisin terrori-iskuissa kuoli yhteensä noin 130 ihmistä. Terroristit tekivät iskut myöhään perjantaina. Islamistinen terroristijärjestö Isis sanoo, että se teki iskut.
+
+## Ranskassa on suruaika
+
+![Eiffeltornin valot on sammutettu ja poliiseja on vartiossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8456780)
+
+Avaa kuvien katselu
+
+Pariisin Eiffel-torni on nyt pimeä. Kuva: Malte Christians / EPA
+
+Ranskalaiset surevat ihmisiä, jotka kuolivat terrori-iskuissa. Ranskalaiset ovat vieneet kukkia ja kynttilöitä paikoille, joissa iskut tapahtuivat.
+
+Pariisi on nyt hiljainen ja surullinen kaupunki. Esimerkiksi Eiffel-torni on suljettu. Myös tornin valot on sammutettu.
+
+Myös museot ja monumentit ovat olleet sunnuntaina kiinni. Myös ruokatorit olivat sunnuntaina kiinni Pariisissa.
+
+## Suomessa on kävelty rauhan puolesta
+
+![Eri uskontokuntien yhteinen rauhanmielenilmaus, kävely rauhan ja toivon puolesta Senaatintorilta Ranskan suurlähetystölle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8457052)
+
+Avaa kuvien katselu
+
+Ihmiset kävelivät rauhan puolesta Helsingissä. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Täällä Suomessa eri uskontojen ihmiset ovat kävelleet rauhan puolesta. Mukana on ollut kristittyjä, muslimeja ja juutalaisia.
+
+Helsingissä monta sataa ihmistä kokoontui Senaatintorille. Sieltä he kävelivät Ranskan suurlähetystölle. He halusivat muistaa ihmisiä, jotka kuolivat Pariisin terrori-iskuissa.
+
+Ihmiset kävelivät rauhan puolesta myös Turussa. Myös Turun tapahtumassa oli mukana eri uskontojen ihmisiä.
+
+## Yksi ihminen kuoli tulipalossa Kristiinankaupungissa
+
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8456868)
+
+Avaa kuvien katselu
+
+Kristiinankaupunki on Pohjanmaalla, Länsi-Suomessa. Kuva: Yle Uutisgrafiikka
+
+Kristiinankaupungissa on ollut tulipalo. Tulipalossa kuoli 1 ihminen. Kristiinankaupunki on Pohjanmaalla, Länsi-Suomessa.
+
+Tulipalo syttyi talossa, joka on melko lähellä Kristiinankaupungin keskustaa. Talon alakerrassa on kauppa ja yläkerrassa asuntoja. Kuollut ihminen löytyi asunnosta.
+
+Tulipalosta lähti paljon savua. Sunnuntaina aamupäivällä kaupungin asukkaille sanottiin, että ikkunat on hyvä pitää kiinni savun takia.

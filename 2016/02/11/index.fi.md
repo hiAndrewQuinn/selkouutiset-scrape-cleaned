@@ -1,0 +1,59 @@
+# Torstai 11.2.2016 (radio)
+
+Melkein 300 ulkomaalaista karkotettiin Suomesta. Tulvavedet uhkaavat monia paikkoja. Asunnottomia on paljon Suomessa. 112-hätänumeropäivä muistuttaa turvallisuudesta.
+
+## Ulkomaalaisia karkotettiin ennätysmäärä
+
+![Pakolaismiehiä puhumassa Metsälän vastaanottokeskuksen neuvontatiskillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5625579)
+
+Avaa kuvien katselu
+
+Melkein 300 ulkomaalaista karkotettiin viime vuonna. Kuva: Yle
+
+Suomi on karkoittanut ulkomaalaisia enemmän kuin koskaan aikaisemmin. Maahanmuuttovirasto kertoo, että Suomesta karkotettiin 279 ulkomaalaista vuonna 2015.
+
+Eniten ulkomaalaisia karkotettiin siitä syystä, että hän oli tehnyt rikoksia. Muita syitä olivat liian pienet tulot tai avioero suomalaisen puolison kanssa.
+
+Poliisi ehdotti kaikkiaan melkein 400 karkotusta. Karkotukset lisääntyvät, koska poliisi osaa perustella paremmin karkotusesitykset.
+
+## Tulvat ovat huipussaan
+
+![tulvila joki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8665011)
+
+Avaa kuvien katselu
+
+Vesi nousee ehkä 3 metriä. Kuva: Jari Pelkonen / Yle
+
+Tulvavedet uhkaavat monia paikkoja Etelä- ja Lounais-Suomessa. Vesi on noussut paljon joissa ja järvissä, koska lumi on sulanut nopeasti ja jäät jäävät jumiin esimerkiksi jokien mutkiin. Myös sateet ovat nostaneet veden pintaa korkealle. Erityisesti Uudellamaalla Vantaanjoen pinta on noussut paljon.
+
+Suomen ympäristökeskus sanoo, että tulvahuippu on torstaina. Vedenpinta nousee pahimmilla paikoilla ehkä 3 metriä. Tulvia yritetään estää niin, että kaivinkoneilla rikotaan jääpatoja.
+
+Vahinkoja ei ole vielä sattunut, mutta vesi voi katkoa teitä ja kastella taloja.
+
+## Asunnottomuus on iso ongelma
+
+![Yökiitäjä-autopartio helsinkiläisellä kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5005327)
+
+Avaa kuvien katselu
+
+Yökiitäjä auttaa asunnottomia. Kuva: YLE
+
+Suomessa on paljon ihmisiä, jotka asuvat kadulla. Vaikein tilanne on Helsingin seudulla. Melkein 4 000 ihmistä on ilman kotia ja asuu kadulla.
+
+Asiantuntijat pelkäävät, että tilanne pahenee, jos osa turvapaikanhakijoista jää Suomeen ilman lupaa. Asuntoa on vaikea saada Helsingissä, jos ihmisen rahat ovat vähissä.
+
+Kylmä sää tekee elämän kadulla vaikeaksi ja järjestöt yrittävät auttaa asunnottomia. Vailla Vakinaista asuntoa -yhdistys kiertää yöllä kaduilla auttamassa ihmisiä. Järjestö palkittiin keskiviikkona tästä työstä.
+
+## 112-hätänumero auttaa kaikissa hätätilanteissa
+
+![Ihminen näppäilee hätänumeroa puhelimeensa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7889716)
+
+Avaa kuvien katselu
+
+Hätänumeroon voi soittaa ulkomaalaisellakin liittymällä. Kuva: Hanna Lumme / Yle
+
+Tänään vietetään 112-hätänumeropäivää. Hätänumero 112 on yleinen hätänumero Suomessa ja muissa EU-maissa. Numerosta saa paikalle niin poliisin kuin palokunnan ja ambulanssin.
+
+Hätänumeroon saa soittaa ilmaiseksi eli se ei maksa mitään. Numeroon voi soittaa myös ulkomaalaisella matkapuhelinliittymällä. Älypuhelimeen voi ladata palvelun, joka auttaa hätätilanteessa löytämään paremmin ihmisen.
+
+Hätänumeroon soitettiin vuonna 2015 melkein 3,7 miljoonaa kertaa. Puheluista noin 25 prosenttia on turhia. Viranomaiset sanovat, että numeroon saa soittaa vain oikeassa hätätilanteessa.

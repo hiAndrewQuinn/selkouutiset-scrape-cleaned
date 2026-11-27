@@ -1,0 +1,47 @@
+# Keskiviikko 12.8.2015
+
+Ehdotus ensi vuoden budjetista on valmis. Suomalainen autokuski ei tööttää. Taivaalla näkyy nyt paljon tähdenlentoja.
+
+## Valtio säästää kehitysavusta ja opetuksesta
+
+![Budjetti -grafiikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8222473)
+
+Avaa kuvien katselu
+
+Opetus ja kehitysapu menettävät rahaa, mutta omaishoito, armeija ja poliisi saavat sitä lisää. Kuva: Yle Uutisgrafiikka
+
+Ehdotus ensi vuoden budjetista on valmis. Budjetti kertoo, kuinka paljon valtio käyttää rahaa vuodessa. Ehdotuksen ensi vuoden budjetista on tehnyt valtiovarainministeriö, joka hoitaa valtiontaloutta.
+
+Budjettiehdotus kertoo, että valtio aikoo säästää esimerkiksi kehitysavusta. Suomen apu köyhille maille vähenee 200 miljoonaa euroa. Valtio säästää noin 200 miljoonaa euroa myös opetuksesta ja korkeakoulujen rahoista.
+
+Valtio aikoo käyttää lisää rahaa esimerkiksi siihen, että omaishoitajille järjestetään vapaapäiviä. Omaishoitajat hoitavat kotona sairaita tai vanhoja perheenjäseniä. Budjettiehdotus lupaa lisää rahaa myös poliisille ja armeijalle.
+
+Koko budjettiehdotus kerrotaan perjantaina. Myöhemmin eduskunnan täytyy hyväksyä budjetti, koska Suomessa eduskunta päättää valtion rahoista.
+
+## Suomalainen on hiljainen myös liikenteessä
+
+![Kuljettaja ajaa autoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7082558)
+
+Avaa kuvien katselu
+
+Suomalainen ei tööttää liikenteessä. Kuva: Tommi Parkkinen / Yle
+
+Suomalainen autokuski ei tööttää. Kaikki kuskit ovat erilaisia, mutta suomalaisilla autoilijoilla on yksi yhteinen piirre. Suomalaiset ovat hiljaisia myös liikenteessä.
+
+Ylikomisario Arto Autio Oulun poliisista sanoo, että autoilijat käyttävät äänimerkkiä paljon enemmän lämpimissä maissa. Lämpimissä maissa auton ikkunat ovat usein auki, tai ihmiset ajavat avoautolla, jossa ei ole katoa. Silloin äänimerkki kuuluu hyvin.
+
+Suomessa auton ikkunat pidetään kiinni. Talvella autossa hurisee lämmityslaite, kesällä ilmastointi. Äänimerkki ei silloin kuulu selvästi. Autoilijat vain ihmettelevät, kuka tööttää ja kenelle. Se on ehkä yksi syy siihen, että suomalaiset eivät käytä äänimerkkiä, ylikomisario Autio sanoo.
+
+## Taivaalla näkyy nyt paljon tähdenlentoja
+
+![Kartta perseidien säteilypisteen löytämiseksi tähtitaivaalta. Kassiopeia on elokuun puolivälin tienoilla korkealla itäkoillisessa noin puolenyön aikaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6771702)
+
+Avaa kuvien katselu
+
+Perseidit ovat tähdenlentoja, joiden syy on Swift-Tuttle-komeetan pöly. Kuva: Yle
+
+Keskiviikon ja torstain välisenä yönä kannattaa katsoa taivaalle. Taivaalla näkyy paljon tähdenlentoja. Tähdenlento syntyy, kun pieni kivi tai pölyhiukkanen tulee avaruudesta kohti Maata.
+
+Keskiviikon ja torstain välisenä yönä Maata kohti tulee pölyä komeetasta, jonka nimi on Swift-Tuttle. Komeetta on taivaankappale, joka on suurimmaksi osaksi jäätä ja pölyä. Komeetan pölyä pääsee Maan ilmakehään, kun Auringon lämpö irrottaa sitä komeetasta. Kun pölyhiukkaset palavat ilmakehässä, näyttää siltä, että tähdet lentävät.
+
+Tähdenlentoja näkyy eniten tosi aikaisin torstaiaamuna. Paras tapa katsoa niitä on mennä ulos makaamaan. Katsoja tarvitsee vain lämpimät vaatteet ja pehmeän makuualustan.

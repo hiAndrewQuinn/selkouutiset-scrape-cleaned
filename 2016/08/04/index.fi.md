@@ -1,0 +1,69 @@
+# Torstai 4.8.2016 (radio)
+
+Verkkofirma Nokialla menee huonosti. Liikenteessä on tapahtunut tänä vuonna vähemmän onnettomuuksia kuin koskaan ennen. Olympialaisiin tulee 4 vuoden päästä uusia lajeja. Dosentin neuvot, miten työssä jaksaa.
+
+## Nokia
+
+![Nokian logo myymälän edustalla Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9071926)
+
+Avaa kuvien katselu
+
+Nokia on iso suomalainen firma. Kuva: Jarno Kuusinen / AOP
+
+Verkkofirma Nokialla menee huonosti. Nokian liikevoitto on laskenut. Liikevoitto oli huhti-, touko- ja kesäkuun aikana melkein 50 prosenttia huonompi kuin vuosi sitten.
+
+Nokialla menee huonosti, koska langattomia verkkoja rakennetaan nyt vähän. Nokia valmistaa verkkolaitteita. Aikaisemmin Nokia teki matkapuhelimia, mutta se myi matkapuhelinbisneksen Microsoftille vuonna 2013.
+
+Nokia aikoo säästää suuria summia, että se selviää tilanteesta. Vielä ei tiedetä, miten säästöt vaikuttavat Nokian työpaikkoihin.
+
+## Liikenneonnettomuudet
+
+![Liikenneonnettomuus moottoritiellä Helsingissä vuonna 1970. Paloauto ja muita autoja kolarissa, poliisi, palomiehiä ja ihmisiä onnettomuuspaikalla. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9071015)
+
+Avaa kuvien katselu
+
+Liikenneonnettomuus Helsingissä vuonna 1970. Kuva: Kalle Kultala.
+
+Suomen liikenteessä on turvallista. Liikenteessä on tapahtunut tänä vuonna vähemmän onnettomuuksia kuin koskaan ennen. Liikenneonnettomuuksissa on kuollut tänä vuonna vasta noin 100 ihmistä.
+
+Noin 40 vuotta sitten liikenteessä kuoli paljon enemmän ihmisiä. Esimerkiksi vuonna 1972 liikenneonnettomuuksissa kuoli melkein 1200 ihmistä.
+
+1970-luvun jälkeen on tehty paljon työtä turvallisuuden hyväksi. Nopeusrajoitukset ja turvavyöt ovat parantaneet turvallisuutta. Tärkeää on myös se, että kuljettajat eivät nykyään saa juoda alkoholia.
+
+## Pesuaineet
+
+![Pesuainepullo siivoojan kädessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9070556)
+
+Avaa kuvien katselu
+
+Pesuainetta pitää käyttää oikea määrä. Kuva: Jenny Huttunen / Yle
+
+Siivouksessa käytetään helposti liian paljon pesuainetta. Ihmiset luulevat, että tulee puhdasta, jos pesuainetta käyttää tosi paljon.
+
+Pesuainetta pitää kuitenkin käyttää oikea määrä. Se on tärkeää esimerkiksi sairaaloissa. Siksi sairaaloissa kokeillaan uusia annostelulaitteita. Ne helpottavat pesuaineen käyttöä. Laitteesta saa aina oikean määrän pesuainetta. Se säästää myös rahaa ja helpottaa siivoojan työtä.
+
+## Olympialajit
+
+![Kuvassa lainelautailija aallon harjalla. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5312188)
+
+Avaa kuvien katselu
+
+Lainelautailusta tulee olympialaji. Kuva: Yle / Anssi Leppänen
+
+Rion olympialaiset avataan perjantaina, mutta nyt suunnitellaan jo seuraavia olympialaisia. Ne ovat 4 vuoden päästä Tokiossa, Japanissa.
+
+Kansainvälinen olympiakomitea on päättänyt, että Tokion olympialaisiin otetaan ihan uusia urheilulajeja. Niitä ovat rullalautailu, lainelautailu, karate ja kiipeily. Ne ovat lajeja, jotka kiinnostavat nuoria. Olympiakomitea toivoo, että uudet lajit tuovat olympialaisille nuoria katsojia.
+
+## Työssä jaksaminen
+
+![Ihminen makaa sohvalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5409987)
+
+Avaa kuvien katselu
+
+Kiva harrastus auttaa stressiin paremmin kuin sohva. Kuva: YLE / Pekka Sipilä
+
+Onko lomasi loppunut? Pelkäätkö, että stressi taas iskee?
+
+Tässä vielä dosentti Marja-Liisa Mankan neuvot, miten työssä jaksaa:
+
+Mieti, mikä työssä on kivaa. Kehu ja kiitä työkavereita. Muista myös harrastukset.

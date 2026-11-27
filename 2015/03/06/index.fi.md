@@ -1,0 +1,59 @@
+# Perjantai 6.3.2015
+
+Valtion säästöt voivat huonontaa suomalaisten turvallisuutta. Monet suomalaiset jäävät ilman lasta. Noin 8000 peruskoululaista saa koulussa islamin opetusta. Theresa Ngouth on Vuoden pakolaisnainen.
+
+## Turvallisuuteen ehdotetaan lisää rahaa
+
+![Kokoomuksen kansanedustaja, poliisina pitkään työskennellyt Kari Tolvanen katseli mietteliäänä eduskuntatalon ohi marssinutta poliisijoukkoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7640084)
+
+Avaa kuvien katselu
+
+Kari Tolvanen johti työryhmää, joka käsitteli turvallisuusasioita. Kuva: Yle
+
+Valtion säästöt voivat huonontaa suomalaisten turvallisuutta. Näin kertoo raportti, jonka ryhmä kansanedustajia on tehnyt. Ryhmä sanoo, että turvallisuuteen tarvitaan lisää rahaa melkein 100 miljoonaa euroa.
+
+Esimerkiksi sisäministeriöllä on vuonna 2018 melkein 50 miljoonaa euroa vähemmän rahaa kuin tänä vuonna, jos säästöt tehdään, niin kuin on suunniteltu. Sisäministeriö hoitaa turvallisuusasioita. Esimerkiksi poliisiasiat kuuluvat sisäministeriölle.
+
+Työryhmän puheenjohtaja Kari Tolvanen sanoo, että rikolliset hyötyvät ja tavalliset ihmiset kärsivät, jos kaikki säästöt tehdään.
+
+## Monet suomalaiset jäävät ilman lasta
+
+![Aikuinen ja kaksi lasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7210267)
+
+Avaa kuvien katselu
+
+Suomessa on enää vähän perheitä, joissa on monta lasta. Kuva: Tommi Parkkinen / Yle
+
+Suomalaiset haluavat tavallisesti kaksi (2) tai kolme (3) lasta. Monilla suomalaisilla ei ole kuitenkaan yhtään lasta. Kohta jo 25 prosenttia naisista ja 30 prosenttia miehistä on lapsettomia. Vain hyvin pieni osa heistä ei halua lasta.
+
+Väestöliiton tutkija Anneli Miettinen kertoo, että nykyään lapsettomia ovat monet naiset, joilla on vain vähän koulutusta. Avioerot ovat yksi syy lapsettomuuteen. Myös tupakointi ja lihavuus aiheuttavat usein lapsettomuutta naisille, joilla on huono koulutus.
+
+Lapsettomuus on iso ongelma ihmisille, jotka toivovat lasta. Se on myös koko yhteiskunnan ongelma. Tulevaisuuden Suomessa on paljon vanhuksia, mutta vähän työntekijöitä.
+
+## Monet koululaiset saavat islamin opetusta
+
+![Henkilö selaa Koraania.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6210371)
+
+Avaa kuvien katselu
+
+Melkein 8000 peruskoululaista saa uskonnontunneilla islamin opetusta. Kuva: Yle
+
+Suomen kouluissa on paljon oppilaita, jotka osallistuvat islamin opetukseen. Opetushallitus kertoo, että melkein 8000 oppilasta saa islamin opetusta peruskoulun uskonnontunneilla.
+
+Islamin opetuksessa on nykyään enemmän koululaisia kuin ortodoksisessa uskonnonopetuksessa. Ortodoksinen kirkko on toinen Suomen vanhoista kristillisistä kirkoista. Ortodokseja on eniten Itä-Suomessa.
+
+Suurin osa suomalaisista kuuluu luterilaiseen kirkkoon, ja noin 90 prosenttia koululaisista osallistuu luterilaiseen uskonnonopetukseen.
+
+## Theresa Ngouth on Vuoden pakolaisnainen
+
+![Vuoden pakolaisnainen 2015 on eteläsudanilainen Theresa Ngouth.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7848611)
+
+Avaa kuvien katselu
+
+Theresa Ngouthin mielestä suomen kieli avaa tien maahanmuuttajalle. Kuva: Yle
+
+Suomen pakolaisapu on valinnut tällä viikolla Vuoden pakolaisnaisen. Hän on 41-vuotias Theresa Ngouth.
+
+Theresa Ngouth on kotoisin Etelä-Sudanista. Hän tuli Suomeen kiintiöpakolaisena. Hän tekee työtä Vantaalla Korson seurakunnan lastenohjaajana.
+
+Theresa Ngouthin mielestä suomen kielen oppiminen on tärkeää. Hän sanoo, että kieli on valo, joka avaa tien.

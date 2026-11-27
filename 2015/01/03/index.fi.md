@@ -1,0 +1,65 @@
+# Lauantai 3.1.2015
+
+Verkkohyökkäys OP-pankkia vastaan on jatkunut. Monet kodit ovat olleet ilman sähköä myrskyn takia. Suomalaiset eivät halua istua junassa vieraan vieressä. Näyttelijä Vesa-Matti Loiri täyttää 70 vuotta sunnuntaina.
+
+## OP-pankin internet-sivuilla on ollut vielä ongelmia
+
+![OP-Pohjolan ja Nordean verkkopankki-sivustot kuvattuna tietokoneen näytöltä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7717032)
+
+Avaa kuvien katselu
+
+OP-pankin ja Nordea-pankin verkkopankeissa on ollut ongelmia. Kuva: Martti Kainulainen / Lehtikuva
+
+Verkkohyökkäys suomalaista OP-pankkia vastaan on jatkunut. Verkkohyökkäys on häirinnyt OP-pankin internet-sivuja. Asiakkaat eivät ole voineet käyttää sivuja ulkomailla. Suomessa OP-pankin internet-sivut toimivat jo normaalisti.
+
+Verkkohyökkäys OP-pankkia vastaan alkoi keskiviikkona. Perjantaina verkkohyökkäys häiritsi myös Nordea-pankkia. Lauantaina Nordean internet-sivut toimivat taas normaalisti.
+
+Asiakkaiden rahat eivät ole vaarassa verkkohyökkäyksen takia. Vielä ei tiedetä, kuka hyökkääjä on. Poliisi tutkii asiaa.
+
+## Sähköt ovat olleet poikki monelta kodilta
+
+![Sähkökatkosta korjattiin Kangasalassa perjantai-iltana 2. tammikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7718888)
+
+Avaa kuvien katselu
+
+Sähkövikoja on korjattu eri puolilla Suomea. Kuva: Jukka Töyli
+
+Monet kodit ovat olleet ilman sähköä viikonloppuna. Sähköt ovat olleet poikki myrskyn takia. Kova tuuli on tehnyt vahinkoa sähköjohdoille, ja raskas lumi on painanut puita johtojen päälle.
+
+Yli 10 000 kotia oli ilman sähköä lauantaina päivällä. Pahin tilanne on ollut Itä-Suomessa. Vikoja on korjattu koko ajan.
+
+Myrsky loppuu sunnuntaina. Tuuli ja sateet vähenevät, ja tavallinen talvisää alkaa. Ensi viikon alussa koko maassa on kova pakkanen.
+
+## Suomalainen ei halua istua vieraan vieressä
+
+![Seutulippukokeilu konduktööri tarkastaa lipun](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6693907)
+
+Avaa kuvien katselu
+
+Junassa on mukava istua, jos vieressä on tuttu kaveri. Kuva: Marko Melto / Yle
+
+Suomalaiset haluavat tilaa ympärilleen myös junassa. Suomalainen ei halua istua liian lähellä vierasta ihmistä. VR:n viestintäpäällikkö Mika Heijari kertoo, että matkustajat istuvat mieluummin ikkunan vieressä kuin vieraan ihmisen vieressä.
+
+Joskus junissa on niin paljon matkustajia, että suomalaisen on pakko istua toisen ihmisen vieressä. Silloin suomalainen toivoo, että vieressä on ihminen, joka ei häiritse. Suomalaisten mielestä esimerkiksi matkustaja, joka on juonut alkoholia, häiritsee muita.
+
+Suomalainen ei valita junan istumapaikasta, vaikka se hänen mielestään on huono. Monet yrittävät unohtaa ympäristön ja keskittyvät puhelimeen tai tietokoneeseen. Joskus käy jopa niin, että vieraat ihmiset alkavat keskustella junassa.
+
+## Vesa-Matti Loiri täyttää 70 vuotta
+
+![Vesa-Matti Loiri mikrofonin ja nuottikirjan edessä lavalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7365545)
+
+Avaa kuvien katselu
+
+Vesa-Matti Loiri on suomalaisille rakas näyttelijä ja laulaja. Kuva: Miki Wallenius / Yle
+
+Vielä syntymäpäiväuutinen. Suomalainen näyttelijä ja laulaja Vesa-Matti Loiri täyttää sunnuntaina 70 vuotta.
+
+![Uuno Turhapuro](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5213585)
+
+Avaa kuvien katselu
+
+Elokuvien Uuno Turhapuro. Kuva: Kalle Kultala
+
+Vesa-Matti Loiri on näytellyt elokuvissa jo yli 50 vuotta. Hän on ollut mukana myös monissa suomalaisissa televisio-ohjelmissa. Loirin kuuluisin rooli on Uuno Turhapuro.
+
+Vesa-Matti Loiri on myös kuuluisa laulaja. Hän esittää esimerkiksi lauluja, joiden sanat ovat Eino Leinon runoja.

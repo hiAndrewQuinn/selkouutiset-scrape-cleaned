@@ -1,0 +1,5 @@
+# Keskiviikko 20.1.2016 (tv)
+
+Perheenyhdistäminen vaikeutuu. Ruokakaupat laskevat kilpaa hintoja. Suksikauppa käy hyvin talvisessa säässä. Suomalaiset matkailevat mielellään. Sää on kylmää.
+
+Yle Uutiset selkosuomeksi

@@ -1,0 +1,75 @@
+# Perjantai 3.6.2016 (radio)
+
+Työntekijöiden ja työnantajien sopimus on melkein valmis. Euroopassa on pahoja tulvia. Monet nuoret ovat valmistuneet ammattiin. Mansikka kypsyy tänä vuonna aikaisin. Polkupyörätaksit ovat tulleet myös Suomeen.
+
+## Työelämän uusi sopimus melkein valmis
+
+![Työntekijä ikkunanvalmistuslinjalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7981092)
+
+Avaa kuvien katselu
+
+Suomeen tarvitaan lisää työpaikkoja. Kuva: Petri Aaltonen / Yle
+
+Työntekijät ja työnantajat ovat saaneet uuden sopimuksen melkein valmiiksi. Sopimuksen nimi on kilpailukykysopimus.
+
+Viimeisenä sopimuksesta on neuvoteltu metallialalla. Metallialan neuvottelijat ovat jo tehneet ehdotuksen. Ehdotus tarvitsee vielä alan ammattiliiton hyväksymisen.
+
+Muut suuret alat ovat valmiita hyväksymään sopimuksen. Ne voivat suostua esimerkiksi siihen, että työaikaa vähän lisätään, vaikka palkka ei nouse. 
+
+Suomen hallitus uskoo, että kilpailukykysopimus parantaa Suomen taloutta. Hallitus lupaa laskea veroja, jos melkein kaikki alat ovat mukana kilpailukykysopimuksessa.
+
+## Tulvavesi tekee vahinkoa Euroopassa
+
+![Kaksi autoa upoksissa veden alla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8929785)
+
+Avaa kuvien katselu
+
+Pariisilainen parkkipaikka jäi tulvaveden alle. Kuva: EPA / Christophe Petit Tesson 
+
+Euroopassa on pahoja tulvia. Vettä on satanut niin paljon, että monen kaupungin kadut ovat jääneet veden alle. Tulvissa on myös kuollut ihmisiä.
+
+Tulvia on esimerkiksi Saksassa. Tulvavesi tappoi ihmisiä ja rikkoi taloja esimerkiksi pienessä Simbach am Innin kaupungissa.
+
+Ranskassa tulva häiritsee ihmisten elämää pääkaupungissa Pariisissa. Vettä on satanut niin paljon, että Seinejoen pinta on 6 metriä korkeammalla kuin tavallisesti. Pariisin kuuluisat taidemuseot ovat kiinni, ja taideteoksia on siirretty turvaan.
+
+## Uusia ammattilaisia valmistui
+
+![Lapin ammattiopiston opiskelijoita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5465686)
+
+Avaa kuvien katselu
+
+Monen opiskelijan opiskelu on nyt ohi. Kuva: Marjukka Talvitie / Yle
+
+Monet nuoret ovat valmistuneet ammattiin.
+
+He ovat suorittaneet koulussa ammatillisen tutkinnon eli heistä tulee esimerkiksi leipureita, maalareita tai partureita.
+
+Ammatillisen tutkinnon on suorittanut tänä keväänä yli 73 000 opiskelijaa.
+
+## Mansikka kypsyy aikaisin
+
+![Mansikkarasia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8923731)
+
+Avaa kuvien katselu
+
+Kohta saa taas suomalaisia mansikoita. Kuva: Jyrki Lyytikkä / Yle
+
+Mansikka kypsyy Etelä-Suomessa tavallista aikaisemmin tänä vuonna. Kevät on ollut niin lämmin, että mansikka kypsyy ehkä noin 2 viikkoa etuajassa.
+
+Tavallisesti mansikka ei edes kuki toukokuun lopussa. Nyt joissakin mansikkalajikkeissa on ollut mansikanalkuja jo toukokuussa.
+
+Tällä hetkellä näyttää siltä, että mansikkaa tulee ainakin yhtä paljon kuin viime vuonna.
+
+## Polkupyörätaksit tulivat
+
+![Mies ja nuorukainen pyörätaksin edessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8929237)
+
+Avaa kuvien katselu
+
+Jonni Blomqvist (oikealla) ajaa pyörätaksia Porvoossa. Vieressä on idean isä Timo Helle. Kuva: Lone Widestam / Yle
+
+Polkupyörätaksit ovat tulleet myös Suomeen. Turistit voivat tutustua polkupyörätaksin kyydissä esimerkiksi Porvoon kaupunkiin.
+
+Porvoossa pyörätaksia ajaa esimerkiksi Jonni Blomqvist. Hän tykkää ajaa pyörätaksia. Hän sanoo, että Porvoon vanha keskusta on kaunis työympäristö. Turistien kanssa on kiva keskustella, ja työssä saa liikuntaa, Jonni kertoo.
+
+Pyörätaksien idea on antaa työtä nuorille. Pyörätakseja on myös Helsingissä ja Kuopiossa.

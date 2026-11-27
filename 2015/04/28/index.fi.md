@@ -1,0 +1,57 @@
+# Tiistai 28.4.2015
+
+Armeija epäilee vedenalaista rajaloukkausta. Uusi eduskunta aloitti työnsä. Suomesta Nepaliin kaksi miljoonaa euroa. Maan keskiosiin ehkä valkoinen vappu.
+
+## Armeija tutkii rajaloukkausta merellä
+
+![Merivoimat etsivät vedenalaista kohdetta Helsingin edustalla 28. huhtikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7959968)
+
+Avaa kuvien katselu
+
+Suomen veneet eivät löytäneet mereltä mitään tiistaina.  Kuva: Jussi Nukari / Lehtikuva
+
+Suomen armeija epäilee, että joku tuli ilman lupaa Suomen merirajan yli maanantaina.
+
+Armeija epäilee, että joku tuli Suomen puolelle merellä vedenpinnan alla Helsingin kohdalla. Armeija kuuli kuuntelulaitteillaan vierasta ääntä veden alta. Armeijan veneet eivät löytäneet mitään. Yöllä ääni kuului uudelleen. Silloin armeijan veneet pudottivat syvyyspommeja. Syvyyspommit eivät ole vaarallisia, mutta niistä lähtee kova ääni. Armeija halusi varoittaa veden alla olevaa kohdetta. Varoituksen jälkeen vieras ääni hiljeni. Suomen armeija on käyttänyt varoituspommeja tosi harvoin.  
+
+Nyt armeija tutkii kuuntelulaitteiden materiaalia ja yrittää selvittää tapausta. Armeija ei tiedä, oliko kyseessä varmasti sukellusvene.      
+
+## Uusi eduskunta tuli töihin
+
+![Semi onnittelee Sipilää.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7959310)
+
+Avaa kuvien katselu
+
+Matti Semi onnitteli Juhani Sipilää. Kuva: Martti Kainulainen / Lehtikuva
+
+Uusi eduskunta on aloittanut työnsä. Ensin eduskunta valitsi puhemiehet, jotka johtavat eduskunnan keskusteluja. Eduskunta valitsi puhemieheksi keskustan Juha Sipilän.
+
+Puolueet valitsivat Juha Sipilän myös virallisesti hallitustunnustelijaksi. Se tarkoittaa, että Sipilä neuvottelee muiden puolueiden kanssa uudesta hallituksesta. Sipilä antoi puolueille 15 kysymystä. Vastaukset auttavat Sipilää päättämään, mitkä puolueet hän haluaa mukaan hallitusneuvotteluihin.
+
+Hallitusneuvotteluissa sovitaan, mitkä puolueet ovat mukana uudessa hallituksessa ja mitä uusi hallitus haluaa tehdä.
+
+## Suomesta rahaa Nepaliin
+
+![Eloonjääneitä etsitään raunioista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7958311)
+
+Avaa kuvien katselu
+
+Ihmisiä etsitään raunioista Nepalissa. Kuva: Prakash Mathema / AFP
+
+Suomi auttaa Nepalin maanjäristyksen uhreja kahdella (2) miljoonalla eurolla. Rahat lähetetään Nepaliin järjestöjen kautta.
+
+Suomen ulkoministeriön mukaan Nepalissa tarvitaan telttoja, lääkkeitä, puhdasta vettä ja vessoja. Ylen toimittaja Sari Taussi kertoi Kathmandusta, että kaupungissa riittää ruokaa - monet kaupat ja ravintolat ovat avanneet ovensa.
+
+## Valkoinen vappu maan keskiosiin?
+
+![Kuvassa jalankulkijoita lumisateessa Helsingissä 30. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7958017)
+
+Avaa kuvien katselu
+
+Maan keskiosissa on ehkä lumimyrsky torstaina. Kuva: Markku Ulander / Lehtikuva
+
+Vappu on kevään juhla, mutta vappuaattona Suomen keskiosissa on ehkä lumimyrsky.
+
+Lumisade alkaa maan keskiosissa keskiviikon ja torstain välisenä yönä ja lunta tulee ehkä yli 20 senttiä. Tuuli on niin kovaa, että puita ehkä kaatuu. Vappuaattona päivällä lumisade ja kova tuuli jatkuvat Itä- ja Pohjois-Suomessa.
+
+Etelä- ja Keski-Suomessa on vappuaattona päivällä poutaa ja pilvistä.

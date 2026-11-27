@@ -1,0 +1,59 @@
+# Sunnuntai 12.7.2015
+
+Euromaat ovat jatkaneet neuvotteluja Kreikan tilanteesta. Helsingissä on alkanut suuri voimistelutapahtuma Gymnaestrada. Aki Samuli on uusi tangokuningas. Sää jatkuu melko kylmänä.
+
+## Neuvottelut Kreikan tilanteesta jatkuivat
+
+![Alexander Stubb, Valdis Dombrovskis, Luis De Guindos ja Christine Lagarde.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8149262)
+
+Avaa kuvien katselu
+
+Euromaiden rahaministereitä Brysselissä. Vasemmalla Suomen Alexander Stubb.  Kuva: Thierry Charlier / AFP
+
+Euromaat ovat jatkaneet neuvotteluja Kreikan tilanteesta. Euromaiden rahaministerit sopivat sunnuntaina, mitä he vaativat Kreikalta. Kreikan täytyy tehdä isoja uudistuksia.
+
+Euromaiden rahaministerit vaativat, että Kreikka esimerkiksi muuttaa monia lakeja. Kreikan parlamentin täytyy päättää lakiuudistuksista viimeistään keskiviikkona. Jos Kreikka ei tee uudistuksia, euromaat eivät aloita lainaneuvotteluja sen kanssa.
+
+Kreikalle on tärkeää, että lainaneuvottelut voivat alkaa. Jos Kreikka ei saa uutta lainaa, sen rahat loppuvat ja sen täytyy ehkä erota euroalueesta. Siksi Kreikan talouskriisi on koko euroalueen ongelma. Euroalueeseen kuuluvat kaikki maat, joiden raha on euro.
+
+## Voimistelutapahtuma Gymnaestrada alkoi
+
+![Naisia voimistelemassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8034157)
+
+Avaa kuvien katselu
+
+Helsigin Naisvoimistelijoiden joukkue on harjoitellut paljon Gymnaestradaa varten. Kuva: Yle
+
+Suuri voimistelutapahtuma Gymnaestrada on alkanut Helsingissä. Tapahtumassa on mukana yli 20 000 ihmistä. Osallistujia tulee yli 50 eri maasta.
+
+Gymnaestrada ei ole kilpailu. Tapahtuma on tarkoitettu voimistelun harrastajille. He esittävät näytöksissä esimerkiksi joukkuevoimistelua ja akrobatiavoimistelua.
+
+Gymnaestrada järjestetään joka 4. vuosi jossakin päin maailmaa. Tapahtuma on niin suuri, että Helsingissä eri työtehtävissä on yli 3000 vapaaehtoista työntekijää. Gymnaestrada jatkuu ensi lauantaihin asti.
+
+## Aki Samuli on uusi tangokuningas
+
+![Uudeksi tangokuninkaaksi kruunattu Aki Hakonen ja torstaina uudeksi tangokuningattareksi kruunattu Susanna Heikki Seinäjoen Tangomarkkinoiden tangokuningasfinaalissa Seinäjoella 11. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8148941)
+
+Avaa kuvien katselu
+
+Aki Samuli voitti tangokuninkaan kruunun. Vieressä on tangokuningatar Susanna Heikki. Kuva: Timo Aalto / Lehtikuva
+
+Suuri suomalainen musiikkitapahtuma Tangomarkkinat on loppunut Seinäjoella. Lauantaina Tangomarkkinoilla valittiin uusi tangokuningas. Tämän vuoden tangokuningas on Aki Samuli.
+
+Aki Samuli voitti miesten tangolaulukilpailun selvästi. Kaikki tuomarit olivat sitä mieltä, että Aki Samuli oli kilpailun paras laulaja. Aki Samulilla on tumma ja syvä lauluääni, joka sopii hyvin tangoon.
+
+Tangokuningatar valittiin Tangomarkkinoilla jo torstaina. Tämän vuoden tangokuningatar on Susanna Heikki.
+
+Tangomarkkinat on jo 30 vuotta vanha musiikkitapahtuma. Tangomarkkinat järjestetään Seinäjoella joka kesä.
+
+## Sää ei lämpene
+
+![Rovaniemen tyhjä uimaranta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8142934)
+
+Avaa kuvien katselu
+
+Uimarannat ovat nyt tyhjiä, vaikka on heinäkuu. Kuva: Johanna Sarjas / Yle
+
+Kesäsää jatkuu melko kylmänä. Lämpötila on pohjoisessa 10 ja 15 asteen välillä, etelässä 15 ja 20 asteen välillä. Lämpötila ei paljon muutu viikon aikana.
+
+Alkuviikolla on melko kuivaa. Etelä-Suomessa ja Keski-Suomessa vettä voi sataa, mutta ei kovin paljon. Loppuviikolla vettä sataa enemmän.

@@ -1,0 +1,63 @@
+# Lauantai 9.4.2016 (radio)
+
+Belgian poliisi on ottanut kiinni tärkeän terroristin. Saudi-Arabia ja Egypti aikovat rakentaa sillan Punaisenmeren yli. Lauantaina on vietetty Mikael Agricolan ja suomen kielen päivää. Jokioisilla rakennetaan Suomen korkeimpia tuulivoimaloita.
+
+## Belgian poliisi on tehnyt pidätyksiä
+
+Silminnäkijä kuvasi perjantaina Brysselin Anderlechtin kaupunginosassa sijaitsevalla Prince Albert -aukiolla tapahtuneen pidätyksen. Videolla näkyy, miten siviilivaatteissa olevat naamioituneet poliisit ovat painaneet pidättämänsä miehen maahan ja kuljettavat hänet hetken päästä pois. Kuva: Reuters-TV
+
+Belgian poliisi on saanut kiinni vaarallisen terroristin. Poliisi pidätti miehen perjantai-iltana. Mies melko varmasti osallistui Brysselin lentokentän terrori-iskuun.
+
+Miehen nimi on Mohamad Abrini. Hän ehkä vei Brysselin lentokentälle pommin ja pakeni sitten paikalta. Poliisi räjäytti pommin myöhemmin.
+
+Brysselin terrori-iskut tehtiin yli 2 viikkoa sitten. Yli 30 ihmistä kuoli, kun terroristit räjäyttivät pommeja Brysselin lentokentällä ja metrossa. Poliisi on siitä lähtien etsinyt terroristia, joka pakeni lentokentältä. 2 muuta terroristia räjäytti itsensä lentokentällä.
+
+On mahdollista, että Mohamad Abrini osallistui myös terrori-iskuihin, jotka tehtiin Pariisissa marraskuussa.
+
+Belgian poliisi pidätti perjantai-iltana myös 5 muuta ihmistä. Yksi heistä on Ruotsin kansalainen. Pidätykset liittyvät Brysselin terrori-iskuihin.
+
+## Punaisenmeren yli suunnitellaan siltaa
+
+![Saudi-Arabian kuningas Salman bin Abdulaziz Al Saudi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8791900)
+
+Avaa kuvien katselu
+
+Saudi-Arabian kuningas Salman. Kuva: Olivier Douliery / EPA
+
+Saudi-Arabia ja Egypti aikovat rakentaa sillan Punaisenmeren yli. Punainenmeri on Arabian niemimaan ja Afrikan välissä.
+
+Saudi-Arabian kuningas Salman kertoi siltasuunnitelmasta perjantaina. Kuningas on vierailulla Egyptissä.
+
+Joka vuosi Saudi-Arabiasta matkustaa Egyptiin tuhansia turisteja, ja tuhannet egyptiläiset tekevät pyhiinvaellusmatkan Saudi-Arabiaan. Siksi sillasta voi olla hyötyä molemmille maille.
+
+## Mikael Agricolan ja suomen kielen päivä
+
+![Yksityiskohta Mikael Agricolan Abckiriasta (1543). ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6167149)
+
+Avaa kuvien katselu
+
+Agricolan Abc-kirja on ensimmäinen suomenkielinen kirja. Kuva: Kansalliskirjasto
+
+Täällä Suomessa on lauantaina vietetty Mikael Agricolan ja suomen kielen päivää.
+
+Mikael Agricola eli 1500-luvulla eli 500 vuotta sitten. Agricola oli ensimmäinen, joka kirjoitti suomen kielellä. Hän kehitti suomen kirjakielen. Sanotaan, että Mikael Agricola on suomen kirjakielen isä.
+
+Maailman ensimmäinen suomenkielinen kirja on Agricolan Abc-kirja. Se ilmestyi vuonna 1543. Agricola opettaa Abc-kirjassa lukemista ja kristinuskoa.
+
+Agricola kirjoitti ja käänsi suomeksi monta kirjaa. Hän käänsi suomeksi esimerkiksi Raamatun Uuden testamentin. Se ilmestyi vuonna 1548.
+
+Mikael Agricolan ja suomen kielen päivä on liputuspäivä.
+
+## Tuulivoimalat nousevat kohti taivasta
+
+![Tuulivoimala.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8544507)
+
+Avaa kuvien katselu
+
+Jokioisten tuulivoimalat nousevat yli 200 metrin korkeuteen. Kuva: Petri Lassheikki / Yle
+
+Jokioisilla rakennetaan Suomen korkeimpia tuulivoimaloita. Tuulivoimaloita rakennetaan 4. Kun tuulivoimalat ovat valmiit, ne ovat 210 metriä korkeita.
+
+Korkeat tuulivoimalat tuottavat paljon sähköä. Jokioisten 4 tuulivoimalaa pyörivät niin tehokkaasti, että niistä saadaan sähköä yhtä paljon kuin pieni kaupunki kuluttaa.
+
+**Lue lisää ja katso video rakennustöistä**

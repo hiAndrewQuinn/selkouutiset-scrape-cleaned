@@ -1,0 +1,73 @@
+# Torstai 25.8.2016 (radio)
+
+Pirkko Mattila on uusi ministeri. Forssassa kireä tunnelma joukkotappelun jälkeen. Italian maanjäristyksen pelastustyöt jatkuvat. Onko 4 valovuoden päässä elämää? Presidentti Urho Kekkosen salainen tyttöystävä kirjoitti kirjan.
+
+## Ministeri Mattila aloitti
+
+![Pirkko Mattila mikrofonien takana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9119631)
+
+Avaa kuvien katselu
+
+Pirkko Mattila. Kuva: Yle
+
+Suomen hallituksessa on uusi ministeri.
+
+Perussuomalaisten puolueen Pirkko Mattila on uusi sosiaali- ja terveysministeri. Presidentti nimitti Mattilan virkaan tänään torstaina. Pirkko Mattila on kansanedustaja ja hänellä on sairaanhoitajan, opettajan ja filosofian maisterin koulutus.
+
+Entinen sosiaali- ja terveysministeri, perussuomalaisten Hanna Mäntylä erosi viime viikolla perhesyiden takia. 
+
+## Joukkotappelu kiristää Forssan tunnelmaa
+
+![Kerrostalo, jossa toimii Forssan vastaanottokeskus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9118056)
+
+Avaa kuvien katselu
+
+Forssan vastaanottokeskus on kerrostalossa. Kuva: Tiina Kokko / Yle
+
+Forssassa on kireä tunnelma tiistain joukkotappelun jälkeen.
+
+Kymmeniä forssalaisia nuoria meni tiistaina turvapaikanhakijoiden vastaanottokeskuksen lähelle ja tappeli keskuksen asukkaiden kanssa. Poliisi tutkii, mikä tappelun syy oli.
+
+Kaupungin virkamiehet perustivat ryhmän, joka selvittää, mitä ongelmia forssalaisten ja turvapaikanhakijoiden välillä on. Kaupunki haluaa, että koulut, nuorisotyöntekijät, poliisi ja vastaanottokeskus yrittävät yhdessä estää väkivallan tulevaisuudessa.  
+
+## Italiassa pelastustyöt jatkuvat
+
+![Pelastustyöntekijät jatkoivat etsintöjä Amatricessa torstaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9119414)
+
+Avaa kuvien katselu
+
+Ihmisiä etsitään raunioista. Kuva: Flavio Lo Scalzo / EPA
+
+Italiassa talojen raunioista on löydetty noin 250 kuolonuhria. Pelastustyöt jatkuvat ja raunioista löytyy myös ihmisiä, jotka ovat elossa.   
+
+Maanjäristys tuhosi aikaisin keskiviikkona kolme pientä kaupunkia ja kyliä Italian vuorilla, noin 150 kilometrin päässä Roomasta.
+
+Tuhoalueella asuu noin 20 000 ihmistä, joista osa asuu siellä vain kesällä.    
+
+## Onko naapuritähden planeetalla elämää?
+
+![Kuva eksoplaneetasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9116526)
+
+Avaa kuvien katselu
+
+Proxima Centauri on tähtinaapurimme. Kuva: European Southern Observatory
+
+Tutkijat ovat löytäneet avaruudesta planeetan, joka kiertää Proxima Centauri -tähteä aurinkokunnan naapurissa.
+
+Planeetta on vähän isompi kuin Maa. Planeetta kiertää tähteä niin lähellä, että jos planeetan pinnalla on vettä, planeetalla on ehkä myös elämää.
+
+Tällaista planeettaa ei ole koskaan ennen löydetty näin läheltä maapalloa. Planeetta on noin 4 valovuoden päässä Maasta. Ensimmäiset merkit uudesta planeetasta löysi suomalainen tutkija Mikko Tuomi.       
+
+## Presidentin rakkaustarina
+
+![Maarit Tyrkkö halaa Urho Kekkosta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9116523)
+
+Avaa kuvien katselu
+
+Urho Kekkonen ja Maarit Tyrkkö. Kuva: Maarit Tyrkön arkisto
+
+Presidentti Urho Kekkosesta on julkaistu uusi kirja. Kirjan on kirjoittanut toimittaja Maarit Tyrkkö, joka oli Kekkosen salainen ystävä ja rakastettu 70-luvun lopulla.
+
+Kirja kertoo Kekkosen yksityiselämästä presidenttikauden viimeisinä vuosina. Kekkonen oli 47 vuotta vanhempi kuin Tyrkkö, mutta he olivat läheisiä. Tyrkkö myös toimitti monia Kekkosen kirjoja. 
+
+Urho Kekkonen oli Suomen presidentti yli 25 vuotta, vuoteen 1981 asti.

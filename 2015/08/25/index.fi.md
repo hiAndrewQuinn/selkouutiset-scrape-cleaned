@@ -1,0 +1,59 @@
+# Tiistai 25.8.2015
+
+Hallitus esittää kaupoille vapaata aukioloa. Sanoma vähentää työntekijöitä. Tasavallan presidentti on huolissaan siirtolaiskriisistä. Viro haluaa aidan itärajalle.
+
+## Hallitus esittää kaupoille vapaata aukioloa
+
+![Kuvassa punavalkoinen kauppakeskuksen kyltti, joka kertoo aukioloajat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8062005)
+
+Avaa kuvien katselu
+
+Tällaiset kyltit muuttuvat, jos laki sallii kauppojen vapaan aukiolon. Kuva: Jukka-Pekka Tyhtilä / Yle 
+
+Kaupat saavat ehkä pian olla auki koska vain. Hallitus esittää, että kauppojen ja kampaamoiden aukioloa koskeva laki kumotaan. Sen jälkeen kaupat ja kampaamot saavat olla auki aina, kun yrittäjä niin haluaa.
+
+Eduskunta päättää laista ehkä jo tänä vuonna. Kauppojen aukiolosta on keskusteltu Suomessa kymmeniä vuosia. Pyhäpäivien aukioloa on rajoitettu jo 1700-luvulta asti.
+
+Nykyinen laki sisältää paljon erilaisia poikkeuslupia. Niitä on myönnetty eri puolilla maata eri tavoin.
+
+## Mediayhtiö Sanoma vähentää työntekijöitä
+
+![Sanomatalo Helsingissä 25. elokuuta 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8251790)
+
+Avaa kuvien katselu
+
+Sanomatalossa lippu liehuu, vaikka yt-neuvotteluista ilmoitettiin. Kuva: Martti Kainulainen / Lehtikuva
+
+Mediafirma Sanoma vähentää työntekijöitä. Sanoma julkaisee esimerkiksi Helsingin Sanomia.  Sanoma aloittaa yt-neuvottelut eli yhteistoimintaneuvottelut. 280 ihmistä menettää ehkä työpaikan.
+
+Sanoma haluaa säästää 50 miljoonaa euroa. Sanomassa oli yt-neuvottelut myös vuosi sitten keväällä ja vuodenvaihteessa 2013-2014.  Yhtiö on myös myynyt Sanomatalon Helsingin keskustassa.
+
+Myös Työterveyslaitos aloittaa yt-neuvottelut. Vähennys on ehkä 200 työpaikkaa.
+
+## Tasavallan presidentti on huolissaan siirtolaiskriisistä
+
+![Presidentti Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8251587)
+
+Avaa kuvien katselu
+
+Tasavallan presidentti Sauli Niinistö sanoi suurlähettiläspäivillä sivistyneen maailman kunnian vaativan, että ihmisiä autetaan. Kuva: Yle
+
+Presidentti Sauli Niinistö sanoo, että jos siirtolaiskriisi hoidetaan huonosti, Euroopalle tulee vakavia seurauksia.
+
+Presidentti puhui Suomessa suurlähettiläspäivillä. Hän sanoi, että muuttoliike Eurooppaan on paisunut rajuihin mittasuhteisiin. Niinistön mukaan vapaa liikkuvuus ei voi olla hallitsematonta liikkuvuutta.
+
+Niinistö kuitenkin korosti, että hädänalaisia ihmisiä pitää auttaa.
+
+## Viro suunnittelee aitaa itärajalle
+
+![Rajatolppa 121](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8247156)
+
+Avaa kuvien katselu
+
+Viron ja Venäjän välinen raja on paikoin suota tai matalaa kasvustoa, ja rajan tarkkaa kulkua ei ole merkitty. Kuva: Siim Lõvi / Yle
+
+Suomen etelänaapuri Viro suunnittelee aitaa Viron ja Venäjän väliselle rajalle.  Aitaan suunnitellaan sähköisiä valvontalaitteita.
+
+Aidan rakentaminen maksaa ehkä yli 70 miljoonaa euroa.  Aidasta tulee noin 135 kilometriä pitkä ja 2,5 metriä korkea. Rakennustyöt alkavat vuonna 2018.
+
+Viron hallitus alkoi suunnitella Venäjän-rajan vahvistamista, kun rajavartioston upseeri siepattiin Venäjän puolelle melkein vuosi sitten.

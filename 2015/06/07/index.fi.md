@@ -1,0 +1,51 @@
+# Sunnuntai 7.6.2015
+
+Carl Haglund jatkaa RKP:n puheenjohtajana. Uusiutuvasta energiasta on tehty uusi tutkimus. Korealainen Seung-jae Kim laulaa karaokea suomeksi.
+
+## Carl Haglund johtaa ruotsalaista kansanpuoluetta
+
+![RKP:n puheenjohtaja Carl Haglund puhuu RKP:n puoluekokouksessa Pedersöressä lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8053791)
+
+Avaa kuvien katselu
+
+Carl Haglund puhui RKP:n puoluekokouksessa sunnuntaina. Kuva: Aki Paavola / Lehtikuva
+
+Carl Haglund jatkaa ruotsalaisen kansanpuolueen eli RKP:n puheenjohtajana. RKP valitsi Haglundin puolueen puheenjohtajaksi sunnuntaina. RKP:llä oli puoluekokous Pohjanmaalla.
+
+Carl Haglund on johtanut ruotsalaista kansanpuoluetta vuodesta 2012 lähtien. Haglund oli aikaisemmin myös ministeri, mutta nyt RKP ei ole hallituksessa.
+
+Monet ruotsinkieliset suomalaiset eli suomenruotsalaiset kannattavat RKP:tä. RKP:n mielestä on tärkeää, että Suomessa on 2 virallista kieltä, suomi ja ruotsi.
+
+## Uusiutuvasta energiasta on tehty uusi tutkimus
+
+![Suvilahden aurinkovoimala.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7877394)
+
+Avaa kuvien katselu
+
+Aurinkovoimala Helsingin Suvilahdessa. Kuva: Petteri Juuti / Yle
+
+Uusiutuva energia on Suomelle mahdollinen vaihtoehto. Näin kertoo uusi suomalainen tutkimus. Tutkijoiden mielestä on mahdollista, että Suomi käyttää vain uusiutuvaa energiaa vuonna 2050.
+
+Uusiutuvaa energiaa saadaan esimerkiksi auringosta ja tuulesta. Jos Suomi siirtyy kokonaan uusiutuvaan energiaan, Suomen täytyy rakentaa yli 100 000 aurinkovoimalaa ja melkein 10 000 tuulivoimalaa. Lisäksi tarvitaan esimerkiksi 3 miljoonaa sähköautoa. Kaikki tämä maksaa ehkä 175 miljardia euroa.
+
+Vaikka uuden tekniikan rakentaminen maksaa paljon, sen käyttäminen on halpaa. Aurinko ja tuuli eivät maksa mitään, eikä Suomen tarvitse ostaa öljyä tai kivihiiltä ulkomailta, tutkijat sanovat.
+
+Uusiutuva energia on myös ympäristöystävällistä. Siitä ei pääse ilmaan hiilidioksidia, niin kuin öljyn ja kivihiilen polttamisesta. Hiilidioksidi on yksi syy ilmastonmuutokseen.
+
+Uusi hallitus alkaa miettiä Suomen energiasuunnitelmaa syksyllä.
+
+## Seung-jae Kim laulaa karaokea tunteellisesti
+
+![Seung-jae Kim, 25, haaveilee siitä, että hän voisi joskus laulaa Oulun Rotuaarin lavalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8049363)
+
+Avaa kuvien katselu
+
+Ihmiset itkevät, kun Seung-jae Kim laulaa. Kuva: Anna Leppävuori / Yle
+
+Oulusta, Pohjois-Suomesta, löytyy harvinainen karaokelaulaja. Hän on korealainen Seung-jae Kim. Kun Kim laulaa karaokebaarissa herkästi ja tunteellisesti, ihmiset jopa itkevät.
+
+Seung-jae Kim on 25-vuotias. Hän muutti Ouluun vuonna 2014 ja meni naimisiin suomalaisen naisen kanssa. Kun Kim ensimmäisen kerran lauloi suomeksi, hän lauloi omalle vaimolle.
+
+Kim opiskelee suomea Oulun Aikuiskoulutuskeskuksessa. Jos suomalaisen laulun sanat ovat vaikeita, hän pyytää apua opettajalta tai vaimolta. Usein laulujen sanat ovat puhekieltä, joka on Kimin mielestä joskus vaikeaa.
+
+Seung-jae Kim on menestynyt hyvin karaokelaulussa. Hän osallistui toukokuussa karaoken Suomen mestaruuskilpailuihin. Kim oli kolmanneksi paras miesten kilpailussa, johon osallistui noin 1000 laulajaa.

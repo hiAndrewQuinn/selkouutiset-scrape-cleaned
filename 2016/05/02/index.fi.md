@@ -1,0 +1,87 @@
+Syyria
+
+# Maanantai 2.5.2016 (radio)
+
+Yhdysvaltain sotilaat ja panssarit harjoittelevat Niinisalossa. Syyrian tilanteesta neuvotellaan taas Sveitsissä. Malaria voi hävitä monesta maasta. Suomi sai terveisiä avaruudesta.
+
+![Kuvakaappaus astronautti Tim Kopran twiittaamasta kuvasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8852096)
+
+Avaa kuvien katselu
+
+Kuvakaappaus astronautti Tim Kopran twiittaamasta kuvasta. Kuva: Tim Kopra / Twitter
+
+- 
+
+  
+
+  Merja Windia
+
+  
+
+  
+
+2.5.2016 18:00•Päivitetty 2.5.2016 18:01
+
+## Yhdysvaltain sotilaat ja panssarit harjoittelevat Niinisalossa
+
+![Yhdysvaltalainen panssarivaunuosasto ajaa tietä pitkin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8682057)
+
+Avaa kuvien katselu
+
+Yhdysvaltain panssarivaunuosasto harjoitteli Puolassa helmikuussa 2015. Kuva: Maecin Bielecki / EPA
+
+Satakunnassa Kankaanpään Niinisalossa on alkanut iso sotaharjoitus, jossa on mukana yhdysvaltalaisia sotilaita. Harjoitukseen osallistuu 2300 suomalaista ja 185 yhdysvaltalaista sotilasta.
+
+Yhdysvaltalaiset sotilaat ovat tuoneet mukanaan noin 20 panssaroitua ajoneuvoa, joita he käyttävät harjoituksessa. Kaikkiaan harjoituksessa käytetään satoja ajoneuvoja.
+
+Harjoitus kestää vajaat 2 viikkoa. Se loppuu perjantaina 13. toukokuuta.
+
+## Syyrian tulitaukoa halutaan vahvistaa
+
+![John Kerry ja Staffan de Mistura.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8850812)
+
+Avaa kuvien katselu
+
+Yhdysvaltain ulkoministeri John Kerry ja YK:n Syyrian erityislähettiläs Staffan de Mistura.  Kuva: Hans Punz / EPA
+
+Sveitsissä on pohdittu keinoja vahvistaa Syyrian tulitaukoa.
+
+Yhdysvaltain ulkoministeri John Kerry on tavannut Genevessä Saudi-Arabian ulkoministerin ja YK:n Syyrian erityislähettilään. Kerry aikoi myös soittaa Venäjän ulkoministerille Sergei Lavroville.
+
+Syyrian tulitauko alkoi helmikuun lopussa. Sotatoimet ovat kuitenkin jatkuneet erityisesti Syyrian pohjoisosassa. Viime päivinä Syyrian armeija on iskenyt rajusti kapinallisia vastaan etenkin Aleppon kaupungissa.
+
+Ulkoministeri Kerry sanoo, että väkivaltaisuudet Aleppossa täytyy saada loppumaan.
+
+## Malaria voi hävitä monesta maasta
+
+![Anopheles gambiae moskiitto joka levittää malariaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6104750)
+
+Avaa kuvien katselu
+
+Hyttyset levittävät malariaa. Kuva: Stephen Morrison / EPA
+
+Noin 20 maata saattaa vapautua malariasta lähivuosien aikana.
+
+Maailman terveysjärjestö WHO on julkaissut raportin maailman malariatilanteesta. Raportissa sanotaan, että noin 20 maasta malaria voi ehkä kadota kokonaan tämän vuosikymmenen loppuun mennessä.
+
+Malaria voi kadota esimerkiksi Algeriasta, Botswanasta, Kap Verdestä ja Etelä-Afrikasta.
+
+Malaria on hengenvaarallinen kuumetauti, jota hyttyset levittävät.
+
+WHO kertoo, että vuonna 2014 malariaan kuoli yli 400 000 ihmistä. Malariaongelma on pahin Afrikassa.
+
+## Suomi sai terveisiä avaruudesta
+
+![Kuvakaappaus astronautti Tim Kopran twiittaamasta kuvasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8852096)
+
+Avaa kuvien katselu
+
+Astronautti Timothy Kopra lähetti avaruudesta terveisiä ja valokuvan Suomesta. Kuva: Tim Kopra / Twitter
+
+Suomi on saanut tervehdyksen avaruudesta. Astronautti Timothy Kopra on lähettänyt Suomelle terveisiä Twitter-tilillään.
+
+Tervehdyksen lisäksi Timothy Kopra julkaisi Twitterissä kuvan, jonka hän on ottanut avaruudessa. Kopra sanoo, että kuvassa näkyy Suomi. Hän sanoo, että Suomi on kaunis maa.
+
+Timothy Kopralla on suomalaiset sukujuuret. Hän on ollut kansainvälisellä avaruusasemalla viime joulukuusta lähtien.
+
+Presidentti Sauli Niinistö on vastannut Kopran tviittiin. Niinistö kiittää terveisistä ja sanoo, että avaruudesta otettu kuva Suomesta on sinivalkoinen kuten Suomen lippu. Niinistö myös sanoo, että Suomi on ehkä planeettamme kaunein paikka.

@@ -1,0 +1,55 @@
+# Perjantai 20.03.2015
+
+Keskusta on edelleen suosituin puolue. Auringonpimennys kiinnosti ihmisiä. Tutkijat haluavat vapauttaa ihmiset älylaitteista.
+
+## Vaaleista tulee jännittävät
+
+![Puoluekannatus 20.3.2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7879627)
+
+Avaa kuvien katselu
+
+Keskusta, sosiaalidemokraatit eli SDP, kokoomus ja perussuomalaiset ovat Suomen suurimmat puolueet. Kuva: Yle Uutiset / Taloustutkimus
+
+Keskustapuolueen kannatus on pysynyt korkealla. Keskusta on uuden mielipidekyselyn suurin puolue. Taloustutkimus teki kyselyn Yle Uutisia varten.
+
+Keskustan kannatus on edelleen noin 25 prosenttia. Jos keskustan kannatus pysyy näin korkealla, puolue pääsee todennäköisesti hallitukseen vaalien jälkeen. Vaalit ovat huhtikuussa.
+
+Muiden suurten puolueiden kannatus on vähän laskenut. Sosiaalidemokraattien ja kokoomuksen kannatus on noin 16 prosenttia. Perussuomalaisten kannatus on vähän alle 15 prosenttia.
+
+Sosiaalidemokraatit ja kokoomus kilpailevat siitä, kumpi on toiseksi suosituin puolue. Sosiaalidemokraattien kannatus on nyt vähän suurempi kuin kokoomuksen kannatus. Sillä puolueella, joka on vaaleissa toiseksi suurin, on paremmat mahdollisuudet päästä hallitukseen.
+
+Mielipidekysely kertoo, että monet suomalaiset eivät vielä tiedä, mitä puoluetta he äänestävät vaaleissa. Huhtikuun vaaleista tulee todennäköisesti melko jännittävät.
+
+## Aurinko pimeni
+
+![Auringonpimennys Hyvinkäällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7880070)
+
+Avaa kuvien katselu
+
+Kuu peitti suuren osan Auringosta myös Etelä-Suomen taivaalla. Tämä kuva on Hyvinkäältä. Kuva: Juha Kaikko 
+
+Suomen taivaalla oli perjantaina epätavallinen ilmiö. Taivaalla oli auringonpimennys, koska Kuu peitti Auringon melkein kokonaan. Lapissa Kuu peitti Auringosta yli 90 prosenttia, eli auringonpimennys oli melkein täydellinen.
+
+![Ihmisiä seuraamassa auringonpimennystä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7880862)
+
+Avaa kuvien katselu
+
+Ihmiset katsovat auringonpimennystä Helsingissä. Kuva: Yle
+
+Auringonpimennys kiinnosti ihmisiä. Monet rautakaupat myivät hitsauslasit loppuun auringonpimennyksen takia. Auringonpimennyksen katsominen ilman suojalaseja on silmille vaarallista.
+
+Edellinen täydellinen auringonpimennys näkyi Suomessa 25 vuotta sitten. Seuraavaa pitää odottaa 111 vuotta.
+
+## Älylaitteita ei kohta tarvita
+
+![Älypuhelin nuoren kädessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7440669)
+
+Avaa kuvien katselu
+
+Nykyään ihmiset tuijottavat paljon puhelimen pientä ruutua. Kuva: Pekka Havukainen / Yle
+
+Suomalaiset tutkijat haluavat vapauttaa ihmiset älylaitteista. He tutkivat, miten ihmiset voivat saada tietoa ilman omia laitteita. Nykyään ihmiset tuijottavat ja näppäilevät puhelimia ja tabletteja niin paljon, että silmät ja niska tulevat kipeiksi.
+
+Tutkijat haluavat, että ihmiset saavat tulevaisuudessa tietoa suoraan ympäristöstä. Esimerkiksi busseissa voi olla tarroja, joiden kautta tieto kulkee. Kotona voi olla älykäs seinä, josta ihminen aistii, mitä jossain muualla tapahtuu. Seinä kertoo ilman puhelinta tai videota, mitä esimerkiksi vanhalle äidille jossain kaukana kuuluu.
+
+Tutkijat sanovat, että tieto voi kulkea ilman älylaitteita jo lähivuosina. Ehkä jo viiden (5) vuoden päästä on palveluja, joita ihmiset voivat käyttää ilman laitteita.

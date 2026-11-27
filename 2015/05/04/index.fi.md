@@ -1,0 +1,67 @@
+# Maanantai 4.5.2015
+
+Juha Sipilä haluaa suomalaisille yhteen vuoteen sata tuntia lisää työtä. Keskusta ja perussuomalaiset keskustelivat hallituksesta. Merimies sai yökuvia sukellusveneestä.
+
+## Juha Sipilä ehdottaa Suomeen pitempää työaikaa
+
+![Mies työskentelee metallipajalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7942993)
+
+Avaa kuvien katselu
+
+Suomalaisten pitäisi olla Juha Sipilän mielestä enemmän töissä kuin nykyään.  Kuva: Jyrki Lyytikkä / Yle
+
+Eduskuntavaalien voittajan keskustan puheenjohtaja Juha Sipilä haluaa suomalaisten tekevän enemmän töitä vuoden aikana. Yle Uutisten tietojen mukaan Sipilä haluaa, että suomalaiset tekevät pian kaksi ja puoli viikkoa enemmän töitä vuodessa kuin nyt.
+
+Sipilän vaatimus on tullut esille, kun hän on keskustellut työmarkkinajärjestöjen kanssa yhteiskuntasopimuksesta. Se on laaja sopimus, jolla keskusta haluaa parantaa Suomen taloutta. Sipilä on esittänyt, että yhden vuoden työaikaan tulee sata tuntia lisää. 
+
+Työntekijäjärjestöt eivät pidä esityksestä. Niiden mielestä työajan pidennys tarkoittaa, että palkka laskee.
+
+## Keskusta ja perussuomalaiset keskustelivat hallituksesta
+
+![Perussuomalaisten puheenjohtaja Timo Soini puhuu medialle. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7969814)
+
+Avaa kuvien katselu
+
+Perussuomalaisten puheenjohtaja Timo Soini on keskustellut hallitukseen menosta keskustan Juha Sipilän kanssa.  Kuva: Roni Rekomaa / Lehtikuva
+
+Keskustan Juha Sipilä yrittää aloittaa Suomessa hallitusneuvottelut tällä viikolla. Sipilä aloitti tänään keskustelut perussuomalaisten kanssa.
+
+Jos puolueet ovat tärkeistä asioista eri mieltä, voi perussuomalaisten osallistuminen hallitukseen olla vaikeaa. Perussuomalaisten puheenjohtaja Timo Soini on kuitenkin sanonut, että puolue voi tehdä kompromisseja.
+
+Keskusta ja perussuomalaiset ovat eri mieltä esimerkiksi talousasioissa, EU-asioissa ja maahanmuuttoasioissa.
+
+Huomenna keskustan puheenjohtaja Juha Sipilä keskustelee muiden puolueiden kanssa. Jos kaikki menee hyvin, tiedetään torstaina, mitkä puolueet aikovat mennä hallitukseen. Sen jälkeen perjantaina voidaan aloittaa hallitusneuvottelut.
+
+## Lentoliikenteen lakkouhka siirtyy
+
+![Helsinki-Vantaan lentokenttä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7964036)
+
+Avaa kuvien katselu
+
+Lentoliikenne toimii tällä viikolla normaalisti, koska tukilakko siirtyy.  Kuva: Tommi Parkkinen / Yle
+
+Lentoliikenteeseen ei tule tukilakkoa tällä viikolla. Sen piti olla torstaina ja perjantaina. Tukilakko aiotaan nyt pitää noin kahden viikon kuluttua. Valtakunnansovittelija Minna Helle kertoo, että hän on pyytänyt lakon siirtoa. Siirtoa pyydettiin, jotta kiistan sovittelu saa lisää aikaa.
+
+Kiista on syntynyt Airpro-yhtiön työehtosopimuksesta. Airpro vie lentokentillä esimerkiksi matkatavarat lentokoneeseen.
+
+## Merimies kuvasi yöllä Suomenlahdella sukellusveneen
+
+![Sukellusvene vedessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7969066)
+
+Avaa kuvien katselu
+
+Sukellusvene ui kuun valossa kohti itää.  Kuva: Silminnäkijän ottama kuva 4.5.2015
+
+Merimies on ottanut harvinaisia yövalokuvia sukellusveneestä Suomenlahdella. Merimies oli töissä rahtilaivalla viime yönä, kun hän näki laivan lähellä sukellusveneen. Se oli noin 800 metrin päässä ja kulki pinnalla kohti itää.  
+
+![Sukellusvene vedessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7969067)
+
+Avaa kuvien katselu
+
+Merimies huomasi sukellusveneen sen valojen vuoksi.  Kuva: Silminnäkijän ottama kuva
+
+Sää merellä oli melko pimeä. Mies pystyi kuitenkin ottamaan veneestä valokuvia. Hän ei halua omaa nimeä julkisuuteen.
+
+Merimies sanoo, että hänen aluksensa oli kansainvälisellä merialueella Helsingistä lounaaseen. Sukellusvene ei ollut Suomen aluevesillä.
+
+Sukellusveneitä liikkuu Suomenlahdella melko paljon.

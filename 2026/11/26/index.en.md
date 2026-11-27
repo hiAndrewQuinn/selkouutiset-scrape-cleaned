@@ -1,77 +1,63 @@
-# Clear News | Wednesday 25.11.2026
+# Clear News | Thursday 26.11.2026
 
-Hazard bulletin. Russian ship. Women's futsal. Weather forecast.
+Power outages in rural areas. Driving tests or inssia drives. Turku Christmas tree. Weather.
 
-## New hazard information experiment
+## Repairing power outages
 
-First, news about hazard information.
+Initially, power outages in rural areas.
 
-The new hazard information experiment was quite successful.
+Eastern Finnish electricity companies are proposing an extension to repair power outages.
 
-Finland again experimented with sending danger alerts to people's phones on Tuesday. Yle monitored the experiment in a shopping mall with a large crowd.
+Companies believe that power outages in rural areas can last up to 3 days. This is what PKS Sähköni Siirto and Suur-Savon Sähkö say, for example.
 
-The test message was sent at 12 noon. People's phones started beeping. However, it took up to tens of minutes for the message to reach some phones.
+Now the law requires that electricity companies repair an outage within 36 hours.
 
-**Jouni Kempas** has two phones. One is on the Elisa network, and the other is on the Telia network. The message first arrived on his Telia phone.
+A long power outage can be dangerous, for example on dairy farms. The well-being of animals can suffer if there is no electricity.
 
-*"Well, now it's starting to get annoying. It's available on Telia's network, but not yet on Elisa."*
+Backup power doesn't always work reliably.
 
-The new hazard information experiment was quite successful.
+Eastern Finnish electricity companies are proposing an extension to repair power outages in rural areas.
 
-The warning was now sent as a larger alert than last week. The warning was also heard on the radio and seen on television.
+Suur-Savon Sähkö says that the terrain is often difficult, the houses are far away and some of them are on islands.
 
-## Finland and the Russian ship
+## Driving tests or driving tests
 
-Now news about security policy.
+Now about the driving test.
 
-The Finnish authorities acted correctly in the case of the Russian ship.
+There are different ways to pass the driving test, or the driving test, in different parts of Finland.
 
-This is what the Parliamentary Defense Committee says.
+Most people pass the test on the first try in the north. Most driving tests are failed in the Helsinki metropolitan area.
 
-It heard from authorities on the matter on Tuesday.
+The differences can be influenced by both the students' skills and other traffic.
 
-The Chairman of the Defense Committee **Heikki Autto** spoke to the media in Parliament.
+The 2018 driver's license reform reduced mandatory driving instruction.
 
-Ukraine attacked a Russian ship on Saturday in the Gulf of Finland.
+Many students take the driving test after failing without any extra lessons. Every lesson costs money.
 
-The ship drifted into Finnish waters.
+There are different ways to pass the driving test in different parts of Finland.
 
-The Finnish authorities acted correctly in the case of the Russian ship.
+However, the Finnish Transport Agency Traficom monitors that driving tests are assessed uniformly across Finland.
 
-Finland did not take possession of the ship, but instead released it back to Russia.
+## Turku Cathedral Christmas tree
 
-The Defense Committee says that the solution was the right one because it was safe for Finland.
+Finally, from the top six in the country.
 
-## European Futsal Championships
+This year, the Turku Cathedral Christmas tree was sourced from Aura near Turku.
 
-Finally, sports news.
+The tree is 100 years old and 22 meters tall. The tree's more than 700 lights will be lit on Saturday.
 
-The Finnish women's futsal team will qualify for the European Championship for the first time.
+Turku Cathedral has been illuminated by six since 1900.
 
-Finland defeated Norway 3–1 on Tuesday. The game was played in Nokia.
+The spruce donor **Marika Salminen** decided to give up the spruce because she was afraid it would fall in a storm. The spruce next door fell in 2011.
 
-Finland's goals were scored by Stella Enwena, Anna-Kaisa Hannuksela and Sandra Lind.
+The Turku Christmas tree is particularly important because a national Christmas truce is declared every Christmas Eve near the Cathedral.
 
-The victory secured Finland a place in the European Championship.
-
-Finland also won the first game in Norway 3–1.
-
-The Finnish women's futsal team qualifies for the European Championship for the first time.
-
-Head coach Jaakko Laitinen is happy for the entire sport of futsal.
-
-It's such a relief to have 10 years of work result in such a big reward.
-
-We've come a long way, and it's great to have a place that belongs to us.
-
-The European Futsal Championship will be played in March next year in Croatia.
-
-## Thursday's weather
+## Weather
 
 Still a weather forecast.
 
-The weather on Thursday will be sunny, meaning it will not rain.
+The weather is cloudy.
 
-The sun is shining in most parts of the country.
+Cloudiness varies, but it is quite sunny in places.
 
-Temperatures are below freezing in almost the entire country.
+Daytime temperatures are below freezing throughout the country.

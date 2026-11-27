@@ -1,77 +1,63 @@
-# Selkouutiset | keskiviikko 25.11.2026
+# Selkouutiset | torstai 26.11.2026
 
-Vaaratiedote. Venäläislaiva. Naisten futsal. Sääennuste.
+Sähkökatkot maaseudulla. Ajokokeet eli inssiajot. Turun joulukuusi. Sää.
 
-## Uusi vaaratiedotekokeilu
+## Sähkökatkojen korjaaminen
 
-Aluksi uutinen vaaratiedottamisesta.
+Aluksi sähkökatkoista maaseudulla.
 
-Uusi vaaratiedotekokeilu onnistui melko hyvin.
+Itäsuomalaiset sähköyhtiöt ehdottavat pidennystä sähkökatkojen korjaamiseen.
 
-Suomi kokeili tiistaina taas vaaratiedotteen lähetystä ihmisten puhelimiin. Yle seurasi kokeilua kauppakeskuksessa, jossa oli paljon ihmisiä.
+Yhtiöiden mielestä maaseudun sähkökatkot saavat kestää jopa 3 vuorokautta. Näin sanovat esimerkiksi PKS Sähkönsiirto ja Suur-Savon Sähkö.
 
-Testitiedote lähetettiin kello 12. Ihmisten puhelimet alkoivat piipata. Joihinkin puhelimiin viestin tulo kesti kuitenkin jopa kymmeniä minuutteja.
+Nyt laki vaatii, että sähköyhtiöt korjaavat katkon 36 tunnissa.
 
-**Jouni Kempaksella** on kaksi puhelinta. Toinen on Elisan verkossa, ja toinen on Telian verkossa. Hänelle viesti tuli ensin Telia-puhelimeen.
+Pitkä sähkökatko voi olla vaarallinen esimerkiksi maitotiloilla. Eläinten vointi voi kärsiä, jos sähköä ei tule.
 
-*”No nyt rupes pärisemään. Telian verkosta löytyy, mutta ei vielä Elisasta.”*
+Varavoima ei aina toimi varmasti.
 
-Uusi vaaratiedotekokeilu onnistui melko hyvin.
+Itäsuomalaiset sähköyhtiöt ehdottavat pidennystä sähkökatkojen korjaamiseen maaseudulla.
 
-Vaaratiedote lähetettiin nyt isompana hälytyksenä kuin viime viikolla. Vaaratiedote kuului myös radiossa ja näkyi televisiossa.
+Suur-Savon Sähkö sanoo, että maasto on usein vaikea, talot kaukana ja osa niistä saarissa.
 
-## Suomi ja venäläislaiva
+## Ajokokeet eli inssiajot
 
-Nyt uutinen turvallisuuspolitiikasta.
+Nyt ajokokeesta.
 
-Suomen viranomaiset toimivat oikein venäläisen laivan tapauksessa.
+Ajokokeesta eli inssiajosta voi päästä läpi eri tavalla eri puolilla Suomea.
 
-Näin sanoo eduskunnan puolustusvaliokunta.
+Useimmin kokeesta pääsee läpi ensimmäisellä kerralla pohjoisessa. Eniten ajokokeita hylätään pääkaupunkiseudulla.
 
-Se kuuli viranomaisia asiasta tiistaina.
+Eroihin voivat vaikuttaa sekä oppilaiden osaaminen että muu liikenne.
 
-Puolustusvaliokunnan puheenjohtaja **Heikki Autto** puhui medialle eduskunnassa.
+Vuoden 2018 ajokorttiuudistus vähensi pakollista ajo-opetusta.
 
-Ukraina iski venäläiseen laivaan lauantaina Suomenlahdella.
+Moni oppilas menee hylkäyksen jälkeen ajokokeeseen ilman yhtään lisätuntia. Jokainen tunti maksaa.
 
-Laiva ajautui Suomen vesille.
+Ajokokeesta voi päästä läpi eri tavalla eri puolilla Suomea
 
-Suomen viranomaiset toimivat oikein venäläisen laivan tapauksessa.
+Liikennevirasto Traficom kuitenkin valvoo, että ajokokeita arvioidaan yhdenmukaisesti eri puolilla Suomea.
 
-Suomi ei ottanut laivaa haltuun, vaan päästi sen takaisin Venäjälle.
+## Turun tuomiokirkon joulukuusi
 
-Puolustusvaliokunta sanoo, että ratkaisu oli oikea, koska se oli turvallinen Suomelle.
+Lopuksi valtakunnan ykköskuusesta.
 
-## Futsalin EM-kisat
+Turun tuomiokirkon joulukuusi on tänä vuonna haettu Aurasta Turun läheltä.
 
-Lopuksi urheilu-uutinen.
+Kuusi on 100 vuotta vanha ja 22 metriä korkea. Kuusen yli 700 lamppua sytytetään lauantaina.
 
-Suomen naisten futsaljoukkue pääsee ensimmäistä kertaa EM- eli Euroopan-mestaruuskisoihin.
+Turun tuomiokirkkoa on valaissut kuusi vuodesta 1900.
 
-Suomi voitti tiistaina Norjan 3–1. Peli pelattiin Nokialla.
+Kuusen lahjoittaja **Marika Salminen** päätti luopua kuusesta, koska hän pelkäsi, että se kaatuu myrskyssä. Viereinen kuusi kaatui vuonna 2011.
 
-Suomen maalit tekivät Stella Enwena, Anna-Kaisa Hannuksela ja Sandra Lind.
+Turun joulukuusi on erityisen tärkeä, koska valtakunnallinen joulurauha julistetaan joka jouluaatto lähellä Tuomiokirkkoa.
 
-Voitto varmisti Suomelle EM-kisapaikan.
-
-Suomi voitti myös ensimmäisen pelin Norjassa 3–1.
-
-Suomen naisten futsaljoukkue pääsee ensimmäistä kertaa EM-kisoihin.
-
-Päävalmentaja Jaakko Laitinen on iloinen koko futsal-lajin puolesta.
-
-Onhan siinä semmosta helpotusta siitä, että saa 10 vuoden työstä tulee näin iso palkinto.
-
-Me ollaan menty tosi paljon eteenpäin, ja on tosi hienoa saada semmonen paikka, mikä meille kuuluu.
-
-Futsalin EM-kisat pelataan ensi vuoden maaliskuussa Kroatiassa.
-
-## Torstain sää
+## Sää
 
 Vielä sääennuste.
 
-Torstaina sää on poutaista, eli ei sada.
+Sää on poutainen.
 
-Isossa osassa maata paistaa aurinko.
+Pilvisyys vaihtelee, mutta paikoin on melko aurinkoistakin.
 
-Lähes koko maassa lämpötilat ovat pakkasen puolella.
+Päivälämpötila on pakkasella koko maassa.

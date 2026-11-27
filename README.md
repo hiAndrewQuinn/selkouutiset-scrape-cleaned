@@ -39,6 +39,10 @@ fish translation-code/generate-translations.fish $GCP_SELKOUUTISET_ARCHIVE_PROJE
 fd '_response\...\...\.json' | python translation-code/json2markdown.py
 ```
 
+## On the box
+
+`process.sh` runs hourly on a Raspberry Pi running piCore, whose filesystem is RAM. How it stays in step with GitHub (`lib/git-sync.sh`), its locks, the crontab, and how to run it by hand are in **[BOX.md](BOX.md)**.
+
 ## 2006–2009: pages from the old podcast feed
 
 `2006/` to `2009/` are not made by `process.sh`, which works from Yle's HTML pages. They come from selkouutiset-scrape's `podcast-feed/`: the full text of 632 radio broadcasts (27.4.2006 – 5.2.2009) recovered from Wayback Machine snapshots of Yle's old podcast feed. `tools/podcast_feed_pages.py` writes them:

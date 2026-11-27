@@ -1,0 +1,73 @@
+# Radio Selkouutiset lauantai 6.5.2023
+
+Charles III. Vihreiden puheenjohtajakisa. Anna-Maja Henriksson. Tornien taisto. Sää.
+
+## Charles III
+
+![Charles kuninkaallisessa viitassa kirkossa.](https://img.img-cdn.yle.fi/crop_extract,w_4500,h_2519,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110961364562c15356cb/1683369127)
+
+Avaa kuvien katselu
+
+Charles III. Kuva: WPA-Pool/ MEGA
+
+Britanniassa Charles III on kruunattu kuninkaaksi. Charles sai pyhän Edvardin kruunun Westminster Abbey -kirkossa Lontoossa. Kruunun laittoi Charlesin päähän Canterburyn arkkipiispa Justin Welby.
+
+Kruunajaisissa oli noin 2000 vierasta. Paikalla olivat myös presidentti Sauli Niinistö ja rouva Jenni Haukio. Presidentti Niinistö kertoo Twitterissä, että hän onnitteli kuningas Charlesia ja kuningatarpuoliso Camillaa Suomen puolesta.
+
+Kruunajaisten jälkeen kuningas Charles matkusti kultaisissa hevosvaunuissa Buckinhamin palatsiin. Siellä kuningas tervehti ihmisiä palatsin parvekkeelta.
+
+Lontoon kaduilla oli paljon ihmisiä katsomassa kuninkaan juhlakulkuetta. Poliisi pidätti joitakin ihmisiä, jotka osoittivat mieltä kruunajaisia ja monarkiaa vastaan. Juhla jatkuu Britanniassa vielä huomenna sunnuntaina.
+
+## Vihreiden puheenjohtajakisa
+
+![Vihreiden vaalipalloja.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_560/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10941606429db57b670c/1680464767)
+
+Avaa kuvien katselu
+
+Vihreiden puheenjohtaja vaihtuu kesäkuussa. Kuvituskuva. Kuva: Sakari Piippo / Yle
+
+Vihreiden puheenjohtajakisaan on ilmoittautunut vasta 2 ehdokasta. Vihreiden puheenjohtajaksi haluavat kansanedustajat Saara Hyrkkö Uudeltamaalta ja Sofia Virta Varsinais-Suomesta.
+
+Vihreiden puheenjohtajakisan ehdokkaaksi pitää ilmoitautua viimeistään ensi maanantaina.
+
+Vihreiden puheenjohtaja vaihtuu, koska Maria Ohisalo ei jatka tehtävässä. Vihreät valitsee uuden puheenjohtajan Seinäjoella kesäkuussa.
+
+## Anna-Maja Henriksson
+
+![RKP:n puheenjohtaja Anna-Maja Henriksson puhui lehdistölle Säätytalolla perjantaina 5. toukokuuta.](https://img.img-cdn.yle.fi/crop_extract,w_4599,h_2586,x_250,y_30/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110898064549a8d84fff/1683536441)
+
+Avaa kuvien katselu
+
+RKP:n puheenjohtaja Anna-Maja Henriksson. Kuva: Petteri Sopanen / Yle
+
+RKP:n puheenjohtaja Anna-Maja Henriksson haluaa jatkaa puolueen johdossa. Henriksson kertoo, että hän lähtee ehdolle uudelle kaudelle.
+
+RKP:n seuraava puoluekokous on kesäkuussa Tampereella.
+
+Henriksson on johtanut RKP:tä vuodesta 2016 lähtien.
+
+## Tornien taisto
+
+![Rastunsuon lintutorni Rautalammilla.](https://img.img-cdn.yle.fi/crop_extract,w_1526,h_859,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106181463ca37b79dc2c/1674197118)
+
+Avaa kuvien katselu
+
+Tornien taisto -kilpailussa bongataan lintuja lintutorneista. Kuvituskuva. Kuva: Sakari Partanen / Yle
+
+Lauantaina bongattiin eli tunnistettiin kilpaa lintuja. Tornien taisto -kilpailussa lintutornit kilpailivat siitä, missä tornissa ihmiset tunnistavat eniten eri lintulajeja.
+
+Leikkimielisen kilpailun tarkoitus on, että ihmiset innostuvat lintuharrastuksesta.
+
+## Sää
+
+![Lähipäivien sääkartat](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110949964552294c07e3/1683301157)
+
+Avaa kuvien katselu
+
+Sääkartat. Kuva: Anne Borgström / Yle
+
+Sää lämpenee. Sää on seuraavina päivinä myös poutainen.
+
+Sunnuntaina lämpötila on yli 10 astetta Oulun eteläpuolella. Maanantaina lämmintä on yli 10 astetta myös Lapissa.
+
+Myöhemmin ensi viikolla lämpötila nousee jo yli 15 asteeseen Etelä-Suomessa ja Keski-Suomessa.

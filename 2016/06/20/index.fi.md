@@ -1,0 +1,79 @@
+# Maanantai 20.6.2016 (radio)
+
+Maailmassa on ennätysmäärä pakolaisia. Venäjän Karjalassa surraan veneturman uhreja. Suomessa suljetaan monta poliisiasemaa. Junamatka Euroopassa kiinnostaa yhä suomalaisia. Ilmastonmuutos uhkaa koralleja.
+
+## Pakolaisia on ennätysmäärä
+
+![Pakolaisleiri Kreikassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8750846)
+
+Avaa kuvien katselu
+
+Pakolaisleiri Kreikassa. Kuva: Antti Kuronen / Yle
+
+Maailmassa on enemmän pakolaisia kuin koskaan ennen.
+
+YK sanoo, että viime vuoden lopussa maailmassa oli yli 65 miljoonaa pakolaista. Vuoden aikana pakolaisten määrä kasvoi 5 miljoonalla.
+
+Pakolaisten määrä on kasvanut etenkin Syyrian sisällissodan ja Afganistanin huonon turvallisuustilanteen takia. Yli 50 prosenttia kaikista maailman pakolaisista on kotoisin Syyriasta, Afganistanista tai Somaliasta.
+
+## Karjalassa tutkitaan veneturman syytä
+
+![Kaksi univormupukuista miestä seisoo ambulanssin luona. Ambulanssin ratin takana istuu silmälasipäinen mies ja ikkunan läpi näkyy ambulanssin vieressä tupakkaa polttava mies.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8971614)
+
+Avaa kuvien katselu
+
+Säämäjärven kuolonuhrit tuotiin Moskovaan. Kuva: Maxim Shipenkov / EPA
+
+Venäjän Karjalassa on vietetty surupäivää sunnuntain veneonnettomuuden takia.
+
+Säämäjärvellä tapahtui sunnuntaina veneonnettomuus, jossa kuoli ainakin 14 lasta ja nuorta.
+
+Lapset olivat Säämäjärvellä kesäleirillä. He olivat veneretkellä, kun myrsky yllätti heidät.
+
+Venäjän viranomaiset sanovat, että pelastustyöt pääsivät alkamaan myöhään. Leiriläiset eivät voineet hälyttää apua, koska puhelimet olivat kastuneet.
+
+Onnettomuuden takia on pidätetty 4 ihmistä.
+
+## Poliisiasemia suljetaan säästöjen takia
+
+![Luminen kyltti poliisitalon seinässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7090280)
+
+Avaa kuvien katselu
+
+Sisäministeriö sulkee 11 poliisiasemaa.  Kuva: Tiia Korhonen / Yle
+
+Sisäministeriö lakkauttaa useita poliisiasemia eri puolilla Suomea. Yhteensä 11 poliisiasemaa sulkee ovensa keskiviikkona.
+
+Esimerkiksi pohjoisesta lakkautetaan Haukiputaan ja Limingan poliisiasemat ja Itä-Suomesta Mäntyharjun ja Siilinjärven poliisiasemat.
+
+Poliisiasemien lakkattaminen säästää noin 750 000 euroa vuodessa.
+
+## Junamatkalle Eurooppaan
+
+![InterRail](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5563631)
+
+Avaa kuvien katselu
+
+Interrail-matkat olivat aluksi vain nuoria varten. Nykyään junamatkalle Eurooppaan voivat lähteä kaikki halukkaat. Kuva: YLE
+
+Interrail-matkustaminen kiinnostaa yhä suomalaisia. Suomalaiset ostivat viime vuonna noin 5000 interrail-matkakorttia.
+
+Interrail tarkoittaa sitä, että matkustetaan junalla Euroopassa.  
+
+Interrail oli tosi suosittua 1970- ja 80-luvuilla. Silloin interrail-matkakortteja myytiin jopa melkein 20 000 vuodessa. Monelle suomalaiselle interrail oli 1. matka ulkomaille.
+
+Interrail-matkalle pääsivät aluksi vain nuoret. Nykyään junamatkalle Eurooppaan voivat lähteä myös aikuiset, lapsiperheet ja seniorit.
+
+## Meriveden lämpeneminen uhkaa koralleja
+
+![Vuonna 2012 julkaistu valokuva koralleista isolla valliriutalla, Queenslandin edustalla Australiassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7791192)
+
+Avaa kuvien katselu
+
+Terve koralli on värikästä. Kuva: Australian Institute for Marine Science / EPA
+
+Maailman koralleja uhkaa massakuolema. Maailman koralleista on jo kuollut runsaat 30 prosenttia, kertoo Sea Lifen intendentti Markus Dernjatin.
+
+Korallikuolemat johtuvat ilmastonmuutoksesta ja siitä, että merivesi on lämpimämpää kuin ennen.
+
+Kun vesi on liian lämmintä, korallit haalistuvat eli muuttuvat valkoisiksi. Kun haalistuminen jatkuu pitkään, koralli voi kuolla kokonaan.

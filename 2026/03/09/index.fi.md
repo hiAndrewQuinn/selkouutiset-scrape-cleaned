@@ -1,0 +1,55 @@
+# Selkouutiset | maanantai 9.3.2026
+
+Poliisiväkivalta. Suomen evakuointilento. Iranin uusi johtaja. Tiistain sää.
+
+## Poliisiväkivalta
+
+Aluksi uutinen poliisista.
+
+Suomessa on tuomittu poliiseja väkivallasta.
+
+Ylen MOT-ohjelma selvitti poliisien väkivaltatuomioita lähes 10 vuoden ajalta. Tapaukset liittyvät poliisin työhön.
+
+Poliisi on saanut tuomion pahoinpitelystä tai vammantuottamuksesta ainakin 19 kertaa. Uhreista 6 oli alaikäisiä.
+
+Suomessa on tuomittu poliiseja väkivallasta.
+
+Joskus väkivallasta epäilty poliisi on valehdellut tapahtumista. Tapahtumat näkyvät kuitenkin usein valvontakameravideolla.
+
+## Suomen evakuointilento
+
+Sitten aiheena on evakuointilento.
+
+Suomalaisia on saapunut yöllä pois Lähi-idän sota-alueelta.
+
+Ulkoministeriö järjesti suomalaisille lennon Omanista. Lento laskeutui yöllä Helsinki-Vantaan lentokentälle.
+
+Koneessa oli vähän yli 160 matkustajaa. Heistä 70 oli lapsia.
+
+**Otso Friström** oli lennolla perheensä kanssa. He ovat asuneet Dubaissa 13 vuotta. Friström sanoo, että Suomessa on nyt kuitenkin turvallisempaa.
+
+Suomalaisia on saapunut yöllä pois Lähi-idän sota-alueelta.
+
+Lähi-idän maissa oli noin 3 000 suomalaista, kun Iranin sota alkoi yli viikko sitten.
+
+## Iranin uusi johtaja
+
+Lopuksi uutinen Iranista.
+
+Iran on saanut uuden korkeimman johtajan.
+
+Uusi korkein johtaja on 56-vuotias **Mojtaba Khamenei**.
+
+Mojtaba Khamenei on edellisen korkeimman johtajan **Ali Khamenein** poika. Vanhempi Khamenei kuoli USA:n ja Israelin iskuissa.
+
+Korkein johtaja päättää Iranin politiikasta ja sotavoimien käytöstä. Asiantuntijat sanovat, että Mojtaba Khamenei on kovan linjan johtaja.
+
+Iran on saanut uuden korkeimman johtajan. Valinnan tekivät Iranin uskonnolliset johtajat.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Sää on suuressa osassa maata poutaista ja jopa aurinkoista.
+
+Päivälämpötila kohoaa etelässä lähes +10 asteeseen. Pohjoisessakin lämpötila on laajalti useita asteita plussan puolella.

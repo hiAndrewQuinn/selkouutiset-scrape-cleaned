@@ -1,0 +1,66 @@
+# Sunnuntai 15.8.2021
+
+Afganistan. Parisuhdeväkivalta. Asuntokaupat. Luottorekisteri. Sääennuste.
+
+TV:n selkouutisilla on kesätauko. Selkouutiset nähdään TV:ssä taas maanantaina 23.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Afganistanin tilanne
+
+![Ulkoministeri Pekka Haavisto](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_192/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-84161361168fd41fe4c/1628868621)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto sanoo, että tilanne Afganistanissa muuttuu nopeasti. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Afganistanissa monet maat ovat alkaneet evakuoida lähetystöjä pääkaupungissa Kabulissa.
+
+Myös Suomi evakuoi eli vie turvaan Suomen lähetystön työntekijät. Suomen ulkoministeri **Pekka Haavisto** sanoo, että evakuointi on vaikeaa, koska Talibanin hyökkäys etenee niin nopeasti.
+
+Afganistanin presidentti **Ashraf Ghani** sanoi sunnuntaina, että hän luopuu vallasta.
+
+## Iäkkäiden parisuhdeväkivalta
+
+![Kuvituskuvassa ihmisen käsi on painautunut lasia vasten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11606933)
+
+Avaa kuvien katselu
+
+Iäkkäiden parisuhdeväkivalta voi jatkua pitkään. Kuva: Emmi Korhonen / Lehtikuva
+
+Väkivalta on yleistä iäkkäiden eli vanhojen ihmisten parisuhteissa. Iäkkäiden parisuhdeväkivallasta puhutaan kuitenkin vähän. Väkivallan syy voi olla jokin sairaus tai runsas alkoholin käyttö.
+
+Terveyden ja hyvinvoinninlaitos kertoo, että Iäkkäiden parisuhdeväkivalta voi jatkua tosi pitkään, jopa kymmeniä vuosia.
+
+Nuorten suhteissa väkivalta ei usein jatku niin pitkään. Monet nuoret lähtevät pois väkivaltaisesta suhteesta tai hakevat apua.
+
+## Digitaaliset asuntokaupat
+
+![kauppakirja asunnon pöydällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10592201)
+
+Avaa kuvien katselu
+
+Kaikkia asuntokauppoja ei vielä voi tehdä digitaalisesti. Kuva: AOP
+
+Koronatilanne on lisännyt digitaalisia asuntokauppoja. Digitaalisessa asuntokaupassa asunnon myyjän ja ostajan ei tarvitse mennä pankin konttoriin.
+
+Asuntokaupan voi tehdä kotona omalla tietokoneella silloin kun itselle sopii. Siksi digitaalinen asuntokauppa on lisääntynyt paljon korona-aikana.
+
+Kaikkia asuntokauppoja ei voi vielä tehdä digitaalisesti. Monien asuntojen osakekirjat eivät ole vielä digitaalisessa muodossa. Kuluu vielä monta vuotta, että kaikkien asuntojen asunto-osakekirjat on muutettu digitaalisiksi.
+
+## Positiivinen luottorekisteri
+
+![Luottokortteja lompakossa](https://img.img-cdn.yle.fi/crop_extract,w_3895,h_2191,x_0,y_469/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6608195e85c282e206a/1691153351)
+
+Avaa kuvien katselu
+
+Pankit ja luottofirmat myöntävät myös esimerkiksi luottokortteja. Kuva: Petteri Sopanen / Yle
+
+Suomeen tulee positiivinen luottorekisteri. Tarkoitus on, että pankit ja luottofirmat saavat tiedot lainanhakijan kaikista lainoista ja tuloista. Silloin pankit ja luottofirmat tietävät, kuinka iso laina ihmiselle voidaan antaa.
+
+Rekisteriä pitää verohallinto. Tarkoitus on, että positiivinen luottorekisteri tulee käyttöön vuonna 2024.
+
+Hallitus antaa rekisteristä eduskunnalle esityksen syksyllä.
+
+## Sää
+
+Maanantaina on puolipilvistä tai pilvistä. Paikoin tulee sadekuuroja ja ukkossateita. Lapissa on poutaa eli ei sada. Lämpötila on 16 ja 21 asteen välillä. Lapissa on viileämpää.

@@ -1,0 +1,67 @@
+# TV | Selkouutiset | perjantai 4.7.2025
+
+Tampereen puukotukset. Ulla-myrsky. Mansikat. Poliisin tehovalvonta. Sää.
+
+## Tampereen puukotukset
+
+Tampereella sattui eilen vakava väkivallanteko. Nyt kerromme siitä lisää.
+
+Mies puukotti eilen ihmisiä Tampereen keskustassa Ratinan kauppakeskuksen luona.
+
+Kukaan ei kuollut, mutta 4 ihmistä sai vakavia vammoja.
+
+Poliisi otti kiinni tekijän. Hän on suomalainen, 23-vuotias mies.
+
+Poliisi sanoo, että tekijä ei tuntenut uhreja.
+
+Nuori mies puukotti eilen ihmisiä Tampereen keskustassa. Poliisi epäilee häntä 4 tapon yrityksestä.
+
+*HUOM! Päivällä tekijää epäiltiin vielä tapon yrityksistä. Iltapäivällä poliisi kertoi, että nyt miestä epäillään 4 murhan yrityksestä.*
+
+## Ulla-myrsky
+
+Sitten myrskyuutinen.
+
+Myrsky on kulkenut Suomen läpi viime yön ja tämän päivän aikana.
+
+Kova ja puuskainen tuuli on kaatanut puita ja katkonut sähköt tuhansista kodeista.
+
+Pelastuslaitoksilla on ollut paljon tehtäviä. Isoja vahinkoja ei kuitenkaan ole sattunut.
+
+Ulla-myrsky matkaa itään ja tuuli rauhoittuu iltaa kohti.
+
+## Mansikat
+
+Sitten asiaa mansikkasadosta.
+
+Mansikan pääsatokausi on alkanut Etelä-Suomessa.
+
+Sato on vähän myöhässä, koska alkukesä oli viileä ja sateinen.
+
+Viileät yöt ovat kuitenkin tehneet mansikalle hyvää. Marjat ovat makeita, kertoo Hedelmän ja marjanviljelijäin liitto.
+
+Mansikan pääsatokausi on alkanut Etelä-Suomessa.
+
+Näyttää siltä, että satokaudesta tulee pitkä ja tasainen.
+
+## Poliisin tehovalvonta
+
+Lopuksi uutinen liikenteestä maanteillä ja vesillä.
+
+Poliisi on aloittanut liikenteen tehovalvonnan mökkiseuduilla Itä-Suomessa.
+
+Poliisi valvoo heinäkuun ajan mökkiliikennettä maanteillä. Heinäkuussa lomaliikennettä on paljon.
+
+Poliisi valvoo myös vesillä liikkumista.
+
+Poliisi kertoo, että mökkiläiset tekevät usein valvontapyyntöjä esimerkiksi vesiskoottereista.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina sää vaihtelee.
+
+Päivällä voi sataa. Suuressa osassa maata on kuitenkin poutaa ja aurinko pääsee paistamaan.
+
+Lämpötila on alle 20 astetta.

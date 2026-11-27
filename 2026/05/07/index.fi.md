@@ -1,0 +1,77 @@
+# Selkouutiset | torstai 7.5.2026
+
+Puoluekannatus. Sotilasteknologia. Kaivokatu. Sääennuste.
+
+## Puoluekannatus
+
+Aluksi uutinen politiikasta.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Neljän puolueen kärki on pysynyt ennallaan.
+
+Suosituin puolue on edelleen SDP. SDP:n kannatus on laskenut hieman.
+
+SDP:tä kannattaa melkein 24 prosenttia suomalaisista.
+
+SDP on oppositiopuolue eli se ei ole hallituksessa.
+
+Toiseksi suosituin puolue on kokoomus.
+
+Sen kannatus on melkein 18 prosenttia.
+
+Kokoomus on hallituksessa ja myös pääministeri **Petteri Orpo** on kokoomuksesta.
+
+Kokoomuksen kannatuksen lasku on pysähtynyt.
+
+Neljän suosituimman puolueen kärki on ennallaan Ylen kyselyssä.
+
+Kolmanneksi suosituin puolue on oppositiopuolue keskusta.
+
+Ja neljänneksi suosituin puolue on hallituspuolue perussuomalaiset.
+
+Keskustan kannatus on laskenut hieman ja perussuomalaisten kannatus on noussut hieman.
+
+## Sotilasteknologia ja yliopistot
+
+Nyt uutinen sotilasteknologian kehittämisestä Suomessa.
+
+Suomalaisten yliopistojen keksinnöt kiinnostavat nyt puolustusteollisuutta enemmän kuin koskaan ennen.
+
+Keksinnöille saa nyt helposti rahoitusta, jos ne sopivat sotakäyttöön.
+
+Esimerkiksi Aalto-yliopistosta on tullut uusia firmoja, jotka tekevät tällaista teknologiaa.
+
+Yksi tällainen firma on Metaktik. Se on kehittänyt taipuisan antennin, jota voidaan käyttää esimerkiksi drooneissa.
+
+Toinen firma on Agate Sensors. Se valmistaa siruja, joiden avulla kone näkee tarkemmin kuin ennen.
+
+Suomalaisten yliopistojen keksinnöt kiinnostavat nyt puolustusteollisuutta enemmän kuin koskaan ennen.
+
+Asiantuntijat sanovat, että puolustukseen sijoitetaan nyt enemmän rahaa kuin ennen.
+
+## Helsingin Kaivokadun muutos
+
+Lopuksi uutinen Helsingin kaupunkisuunnittelusta.
+
+Helsingin kaupunginvaltuusto teki keskiviikkona illalla ison päätöksen.
+
+Kaivokadun alue Helsingin keskustassa suljetaan autoilta.
+
+Alue varataan kävelijöille, pyöräilijöille ja raitiovaunuille. Alueelle tulee uusia puita ja pensaita.
+
+Muutos valmistuu ehkä 2030-luvulla.
+
+Kaivokadun alue Helsingin keskustassa suljetaan autoilta.
+
+Muutos on iso. Autojen pitää siirtyä ajamaan Esplanadin puiston kautta.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina sää lämpenee.
+
+Etelässä ja maan keskiosissa paistaa aurinko.
+
+Pohjoisessa pilvisyys vaihtelee ja paikoin voi sataa vähän vettä.

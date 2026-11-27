@@ -1,0 +1,83 @@
+# Selkouutiset | keskiviikko 23.9.2026
+
+Alexander Stubb. Sotilaskoulutus. Budjettikeskustelu. Sääennuste.
+
+## Presidentti Stubb YK:n yleiskokouksessa
+
+Aluksi uutinen YK:sta.
+
+Suomen presidentti **Alexander Stubb** on pitänyt puheen YK:n yleiskokouksessa.
+
+Kokous alkoi tiistaina New Yorkissa.
+
+Stubb sanoo, että YK:n turvallisuusneuvostoa pitää uudistaa.
+
+Stubb haluaa poistaa turvallisuusneuvoston jäsenmailta veto-oikeuden.
+
+Veto-oikeus on estänyt monien päätösten tekemisen.
+
+Siksi se vaikeuttaa myös rauhantyötä.
+
+Stubb kertoi myös, että Suomi hakee YK:n turvallisuusneuvoston jäseneksi.
+
+Presidentti Stubb sanoo, että YK:n turvallisuusneuvostoa pitää uudistaa.
+
+Stubb toivoo, että kaikki maat noudattavat yhteisiä sääntöjä ja kunnioittavat toisia.
+
+## Uusi varusmieskoulutus
+
+Nyt uutinen Puolustusvoimista eli armeijasta.
+
+Armeija uudistaa varusmiesten koulutusta.
+
+Koulutusta pitää uudistaa, koska sodankäynti on muuttunut.
+
+Taisteluissa käytetään nyt enemmän drooneja kuin ennen.
+
+Uudessa koulutuksessa harjoitellaan, miten drooneilta suojaudutaan.
+
+Upseerikokelas **Jesper Taavitsainen** kertoo, että sotilaat eivät kokoonnu yhteen. Tulentekoa vältetään, koska droonit tunnistavat lämmön.
+
+*”Emme ole yhdessä ryppäässä. Olemme hajautettuna. Vältetään lämpösäteilyä. Ei kaminaa, jos ei ole ihan pakko.”*
+
+Armeija uudistaa varusmiesten koulutusta.
+
+Uusi koulutus tulee kaikkiin joukko-osastoihin ensi kesänä.
+
+Droonit kehittyvät koko ajan. Niiden teho ja vaarallisuus kasvaa. Siksi koulutus on tärkeää.
+
+## Eduskunnan budjettikeskustelu
+
+Lopuksi uutinen politiikasta.
+
+Eduskunta on aloittanut keskustelun ensi vuoden budjetista.
+
+Oppositio arvostelee hallitusta.
+
+SDP:n puheenjohtaja **Antti Lindtman** syyttää hallitusta työttömyydestä.
+
+Lindtman sanoo, että myös valtion velka kasvaa liikaa.
+
+Valtiovarainministeri, perussuomalaisten **Riikka Purra** puolustaa hallituksen politiikkaa.
+
+Purra sanoo, että Suomen talous ja työllisyys paranevat jo.
+
+Purra arvostelee opposition veroehdotuksia.
+
+Eduskunta on aloittanut keskustelun ensi vuoden budjetista.
+
+Keskustelu on tärkeä, koska budjetissa sovitaan valtion rahoista.
+
+Keskustelu jatkuu useita päiviä.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Torstaina sää on vaihtelevaa.
+
+Idässä ja pohjoisessa sataa. Myös ukkoset ovat mahdollisia.
+
+Päivä on pilvinen.
+
+Lämpötilat vaihtelevat 5-15 asteen välillä.

@@ -1,0 +1,63 @@
+# Torstai 8.6.2017 (radio)
+
+Kokoomus on edelleen Suomen suosituin puolue. Britit ovat äänestäneet parlamenttivaaleissa. Kasvit kukkivat tänä kesänä myöhemmin kuin tavallisesti. Lapissa voi nyt hiihtää kesäisessä säässä.
+
+## Puolueiden kannatus
+
+![Ville Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9558631)
+
+Avaa kuvien katselu
+
+Vihreiden puheenjohtaja Ville Niinistö. Vihreiden kannatus on noussut Niinistön aikana. Kuva: Marja Väänänen / Yle
+
+Kokoomus on edelleen Suomen suosituin puolue, kertoo Ylen puoluekysely. Kyselyn vastaajista vähän yli 20 prosenttia kannatti kokoomusta.
+
+Toiseksi eniten kannatusta sai keskusta, vähän yli 18 prosenttia. Keskusta ja kokoomus ovat hallituksessa.
+
+Sosiaalidemokraatit eli SDP on pudonnut kolmanneksi. Sen kannatus jäi alle 18 prosentin. SDP ei ole hallituksessa, se on opposition suurin puolue.
+
+Toisen oppositiopuolueen, vihreiden, kannatus on noussut. Vihreät oli kyselyn neljänneksi suurin puolue, sen kannatus oli noin 15 prosenttia.
+
+Vihreiden taakse jäi perussuomalaiset, joka on hallituksessa kokoomuksen ja keskustan kanssa. Perussuomalaisten kannatus kyselyssä oli 9 prosenttia.
+
+## Britanniassa vaalit
+
+![Jeremy Corbyn ja Theresa May.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9656252)
+
+Avaa kuvien katselu
+
+Britannian työväenpuolueen johtaja Jeremy Corbyn ja konservatiivien johtaja Theresa May. Kuva: Dan Kitwood, Lindsey Parnaby / AFP
+
+Britanniassa on torstaina järjestetty vaalit. Britit ovat äänestäneet parlamenttivaaleissa.
+
+Britannian suurimmat puolueet ovat konservatiivit ja työväenpuolue. Pääministeri Theresa May on konservatiivien johtaja, ja hän saa jatkaa pääministerinä, jos konservatiivipuolue voittaa vaalit.
+
+Mayn kilpailija on työväenpuolueen johtaja Jeremy Corbyn. Perjantaina selviää, kumpi puoluejohtajista on vaalien jälkeen Britannian pääministeri. Mielipidekyselyissä konservatiivit ovat saaneet enemmän kannatusta kuin työväenpuolue.
+
+## Kukat myöhässä
+
+![Mustikka kukkii.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9656703)
+
+Avaa kuvien katselu
+
+Mustikan kukkia voi nähdä vasta Etelä-Suomessa. Kuva: Ismo Pekkarinen / AOP
+
+Kasvit kukkivat tänä kesänä myöhemmin kuin tavallisesti. Kevät oli kylmä, ja siksi kukat ovat noin 2 viikkoa myöhässä.
+
+Esimerkiksi mustikka kukkii vasta Etelä-Suomessa. Kesäkuun sää ratkaisee, kuinka paljon mustikkaan tulee kukkia ja myöhemmin marjoja.
+
+Myös tuomen kukkia on nähty vasta Etelä-Suomessa ja osassa Keski-Suomea. Tuomi on puu, jonka kukkien tuoksu on monille suomalaisille kesän paras tuoksu.
+
+## Laskettelua kesäsäässä
+
+![Saariselkä Iisakkipään huippu 7. kesäkuuta 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9654704)
+
+Avaa kuvien katselu
+
+Saariselän laskettelurinteissä on vielä lunta. Kuva: Eki Saniola / Ski Saariselkä
+
+Lapissa voi vielä hiihtää, vaikka sää on lämmennyt. Kevät oli niin kylmä, että lunta on vielä jäljellä.
+
+Myös laskettelu onnistuu. Saariselän hiihtokeskus avasi laskettelurinteet torstaina. Laskettelemaan pääsee lauantaihin asti.
+
+Lasketella voi nyt kesäisessä säässä. Lappiin on luvattu lauantaihin asti noin 20 astetta lämmintä.

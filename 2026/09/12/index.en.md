@@ -1,0 +1,81 @@
+# News of the week in plain Finnish | Saturday 12.9.2026
+
+Finland's Pisa results have deteriorated further.
+
+Listen
+
+You can read the news simultaneously below.
+
+## Pisa study and Finland
+
+![The large screen presents the structure of the PISA 2025 study and the areas to be assessed using diagrams and texts.](https://img.img-cdn.yle.fi/crop_extract,w_5836,h_3282,x_12,y_283/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17038016a9fc872531ba/1788857175)
+
+Open image viewer
+
+Photo: Terhi Liimu / Yle
+
+There has been a lot of talk this week about the Pisa results of Finnish schoolchildren.
+
+The PISA study is an international study. It measures the skills of 15-year-olds in different countries. The study is conducted every 3 years.
+
+Finland used to be at the forefront of research. Now the results have been deteriorating for many years.
+
+Let's tell you more about Pisa now.
+
+## Literacy
+
+Skip the infographic
+
+The Pisa results of Finnish youth have deteriorated again. In particular, literacy has dropped significantly. Finland is now in 17th place in literacy, tied with Italy.
+
+In natural sciences, Finland is still better than average and ranked 12th.
+
+In mathematics, Finland is tied for 22nd place with Slovakia.
+
+In Finland, competence has fallen more in 10 years than in most other countries in the study.
+
+There were a total of 91 participating countries.
+
+## Natural Sciences
+
+Skip the infographic
+
+Finland's Pisa results were at the top in 2006. For example, in science, Finland was in first place. In literacy and mathematics, Finland was in second place.
+
+Since then, the results have deteriorated.
+
+In Finland, the differences within schools have grown a lot. In other parts of the world, there are many differences between different schools.
+
+What is new in Finland is that the skills have now declined the most among children from so-called well-off families.
+
+For example, young people in Estonia performed better than in Finland. Experts estimate that education is highly valued in Estonia.
+
+In Finland, many young people may not see as clearly how education affects their future life.
+
+Skip the infographic
+
+## Reasons for poor success
+
+![Graphic of PISA results in Finland in 2000–2022. Science, literacy and mathematics scores have decreased. Source: OECD, OKM.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-163525669f248d6860ca/1777486320)
+
+Open image viewer
+
+Photo: Pekka Sipilä / Yle
+
+Researchers say there are many reasons for the poor performance.
+
+Children and young people read too little. They have difficulty concentrating. Only 41 percent of students try harder if the work seems difficult.
+
+Phones and other digital devices easily distract attention. Teaching groups are often too large. People with an immigrant background do not always have sufficient knowledge of Finnish or Swedish.
+
+The teaching profession says that teachers should be able to focus specifically on teaching.
+
+## Repetition
+
+Let's say it again.
+
+The Pisa results of Finnish youth have deteriorated again. In particular, reading skills have declined significantly.
+
+In Finland, competence has fallen more in 10 years than in most comparison countries.
+
+Here was the News of the Week in plain Finnish. See you again, bye!

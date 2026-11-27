@@ -1,0 +1,65 @@
+# Lauantai 21.5.2016 (radio)
+
+Suomi pääsi jääkiekon MM-finaaliin. Itävallassa valitaan sunnuntaina uusi presidentti. Turvapaikanhakijat ovat tarjonneet ihmisille herkkuja Kotkassa. Nordea-pankin kortit eivät ehkä toimi sunnuntaina. Suomessa on kesällä erikoisia tapahtumia.
+
+## Suomi jääkiekon MM-finaaliin
+
+![Sebastian Aho tuulettaa Venäjää vastaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8898861)
+
+Avaa kuvien katselu
+
+Kuva: Tomi Hänninen
+
+Suomi on päässyt jääkiekon MM-finaaliin eli loppuotteluun. Jos Suomi voittaa finaalin, Suomi on tämän vuoden maailmanmestari. Finaalipeli on myöhään sunnuntai-iltana.
+
+Suomi pääsi finaaliin, kun se voitti Venäjän lauantaina. Suomi teki 3 maalia, Venäjä vain yhden. Nuoret Sebastian Aho ja Patrik Laine pelasivat taas hyvin. Nyt suomalaiset odottavat, että nuoret pelaajat vievät Suomen sunnuntaina MM-voittoon.
+
+## Itävallan presidentinvaalit
+
+![mies kävelee vaalijulisteen ohi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8898277)
+
+Avaa kuvien katselu
+
+Norbert Hofer sai eniten ääniä Itävallan presidentinvaalien ensimmäisellä kierroksella. Kuva: Uwe Tautenhahn
+
+Itävallassa valitaan sunnuntaina uusi presidentti. Vaalit kiinnostavat myös muita Euroopan maita, koska Itävallan politiikassa tapahtuu muutos.
+
+Sunnuntaina on vaalien toinen kierros. Toiselle kierrokselle pääsi 2 ehdokasta, mutta he eivät ole Itävallan vanhoista puolueista. Toiselle kierrokselle pääsivät oikeistopopulistien ja vihreiden presidenttiehdokkaat.
+
+Oikeistopopulistien ehdokas on Norbert Hofer. Hän ei halua, että Itävaltaan tulee paljon maahanmuuttajia.
+
+Vihreiden ehdokas on Alexander Van der Bellen. Hän syntyi Itävallassa pakolaisperheeseen toisen maailmansodan aikana. Van der Bellenin äiti oli virolainen ja isä venäläinen, jolla oli juuret Hollannissa.
+
+## Irakilaisia herkkuja Kotkassa
+
+Irakilainen perinneherkku maistui kotkalaisille, kun turvapaikanhakijat ja vastaanottokeskuksen työntekijät tarjosivat sitä ilmaiseksi Kotka-päivillä kahvin kera.  Kuva: Juha Korhonen / Yle
+
+Turvapaikanhakijat ovat tarjonneet ihmisille herkkuja Kotkassa. Vastaanottokeskuksen asukkaat leipoivat kurabiye-leivonnaisia. He tarjosivat niitä kotkalaisille ilmaiseksi, kun kaupungissa vietettiin Kotka-päivää perjantaina.
+
+Kurabiye-leivonnainen on irakilainen herkku. Siinä on esimerkiksi mantelia. Turvapaikanhakijat leipoivat 1000 kurabiye-leivonnaista, ja kotkalaiset tykkäsivät niistä.
+
+## Nordean kortit
+
+![Käsi laittaa luottokorttia pankkiautomaatin siniseen kortinlukijaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5471660)
+
+Avaa kuvien katselu
+
+Nordean asiakkaiden kannattaa nostaa rahaa lauantaina. Kuva: Elina Melamies / Yle
+
+Nordea-pankin kortit eivät ehkä toimi sunnuntaina, koska Nordea uusii maksujärjestelmää. Nordea sanoi lauantaina, että asiakkaiden kannattaa nostaa rahaa, ennen kuin järjestelmätyöt sunnuntaiaamuna alkavat.
+
+## Erikoisia kesätapahtumia
+
+![Hiljaisuus-festivaalin pressikuva.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8897146)
+
+Avaa kuvien katselu
+
+Kesätapahtumassa ei tarvitse aina olla äksöniä. Kuva: Ryoko Uyama
+
+Suomessa on kesällä paljon erilaisia tapahtumia. Osa tapahtumista on aika erikoisia.
+
+Puolangan torilla on heinäkuun 1. päivä pessimismi-ilta. Heinäkuun alussa on kaunis kesä, mutta Puolangan pessimistit muistavat, että edessä on pitkä, pimeä ja kylmä talvi.
+
+Kruunupyyssä ollaan heinäkuussa hiljaa. Yhden viikonlopun ajan kruunupyyläiset tarjoavat vieraille aikaa ja tilaa. Kaikki saavat vain olla.
+
+Kurikassa järjestetään heinäkuussa tapahtuma aikuisille. Tapahtuma on rakkausfestivaali, ja sen nimi on Haku Päällä.

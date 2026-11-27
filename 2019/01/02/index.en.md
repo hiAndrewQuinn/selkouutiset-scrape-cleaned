@@ -1,0 +1,63 @@
+# Wednesday 2.1.2019 (radio)
+
+A strong winter storm came to Finland. The storm cut off a lot of power. A serious train accident in Denmark. Registrations of passenger cars increased. Tellervo Koivisto turns 90. The wind weakens by Thursday.
+
+## A strong winter storm came to Finland
+
+![A ferry rocks in stormy waves.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10578914)
+
+Open image viewer
+
+Waves at sea have been higher than previously measured. Photo: Vesa-Matti Ruuska / Yle
+
+There has been a strong winter storm in Finland. The waves at sea have been big. The ships have rocked a lot. Trains have run late. Traffic weather has been very bad. A lot of trees have fallen on the roads. On Åland people have been advised to stay indoors, because it is not safe outside because of the strong wind.
+
+## The storm knocked trees onto power lines
+
+![A power line cut by the storm in Vaasa on 2 January 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10578645)
+
+Open image viewer
+
+Power faults have been repaired all day. Photo: Mikko Stig / Lehtikuva
+
+The winter storm has caused a very large number of power cuts. Up to 100,000 homes have been without electricity. Trees have fallen onto power lines in the wind. There is also a lot of snow on the trees, and trees fall onto power lines more because of the weight of the snow.
+
+## Serious train accident in Denmark
+
+![The side of a freight train torn open.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10578519)
+
+Open image viewer
+
+Goods flew from a freight train onto a passenger train, and the passenger train made an emergency brake. People died and were injured. Photo: Reuters
+
+A strong winter storm is also blowing in the other Nordic countries. In Denmark the storm has caused a serious train accident. 6 passengers died and 16 were injured when goods flew from a freight train towards a passenger train. The passenger train made an emergency brake. The Danish train accident happened in the morning on the Great Belt Bridge.
+
+## Toyota is Finland's most popular car brand
+
+![Car dealership.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10566277)
+
+Open image viewer
+
+Registrations by model in 2018: Nissan Qashqai (5,540), Skoda Octavia (5,500), Toyota Yaris (4,157), Volkswagen Golf (3,990), Toyota Auris (3,926), Ford Fiesta (3,040), Volvo XC60 (2,703), Ford Focus (2,647), Volkswagen Polo (2,586) Toyota Avensis (2,489) Photo: Toni Pitkänen / Yle
+
+More new passenger cars were registered last year than before. More than 120,000 new passenger cars were registered, which is 1.6% more than the year before last. The most registered car brands were Toyota, Volkswagen and Skoda.
+
+## Tellervo Koivisto turns 90
+
+![Tellervo Koivisto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10558517)
+
+Open image viewer
+
+Tellervo Koivisto (née Kankaanranta) was born on 2.1.1929. Photo: Intervisio
+
+The wife of President Mauno Koivisto, Tellervo Koivisto, turns 90 today, Wednesday. Tellervo Koivisto has spoken a lot in favour of the position of women and equality. President Mauno Koivisto died in 2017. Mauno and Tellervo Koivisto were married for 54 years. An interview with Tellervo Koivisto can be watched on Yle Areena.
+
+## The wind weakens
+
+![Weather forecast maps from Thursday to Saturday.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10579277)
+
+Open image viewer
+
+On Thursday it is clear. At the weekend it is cloudy. Photo: Yle Sää
+
+The wind weakens by Thursday. On Thursday it is clear over wide areas. In the evening the cloud cover starts to increase in the west. It is frosty across the whole country.

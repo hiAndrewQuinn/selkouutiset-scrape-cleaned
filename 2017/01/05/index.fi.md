@@ -1,0 +1,89 @@
+# Torstai 5.1.2017 (radio)
+
+Sähkön kulutuksessa ennätys ja joukkoliikenne takkuilee pakkasen takia. Tutkijoita lähtee nyt paljon ulkomaille. Kalastusmaksut ovat vähentyneet. Smith saa syytteet salakatselusta. Venäjän presidentti Vladimir Putin vierailee Suomen 100-vuotisjuhlissa.
+
+## Sähkönkulutuksessa ennätys
+
+![Suuria sähkötolppia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9381847)
+
+Avaa kuvien katselu
+
+Pakkasella sähköä kuluu tosi paljon etenkin omakotitalojen lämmittämiseen. Kuva: AOP
+
+Sähkönkulutuksessa on tehty tänään talven ennätys. Syynä on kova pakkanen.
+
+Suomessa ei ole riittävästi sähköntuotantoa, joten sähköä joudutaan tuomaan esimerkiksi Venäjältä.
+
+Kova pakkanen aiheuttaa myös ongelmia joukkoliikenteelle.
+
+Junat ovat olleet pahasti myöhässä rataongelmien vuoksi.
+
+Aamulla osa busseista ei päässyt liikkelle, koska niihin oli tullut vikoja pakkasessa.
+
+Myös metro hyytyi aamulla kesken matkan.
+
+## Tutkijat lähtevät Suomesta
+
+![Mikroskoopilla tutkitaan H1N1-virusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5922028)
+
+Avaa kuvien katselu
+
+Monet tutkijat lähtevät Suomesta ulkomaille.  Kuva: AP GraphicsBank
+
+Suomesta lähtee paljon korkeasti koulutettuja tutkijoita muihin maihin.
+
+Monet tutkijat ja tutkimusryhmät lähtevät ulkomaille, koska Suomessa ei ole enää riittävästi rahaa tehdä tutkimusta.
+
+Valtio on vähentänyt rahaa esimerkiksi yliopistoilta ja valtion tutkimuslaitoksilta.
+
+Tieteentekijöiden liitto kertoo, että Suomesta lähtee ulkomaille etenkin biotieteilijöitä, ihmistieteilijöitä, psykologeja ja tilastotieteilijöitä. 
+
+Monet heistä lähtevät Ruotsiin tai Norjaan, koska siellä tutkimustyöhön annetaan paremmin rahaa kuin Suomessa.
+
+Tieteentekijöiden liitto toivoo, että Suomen hallitus ei enää vähennä rahaa yliopistoilta ja tutkimuslaitoksilta, vaan antaa niille lisää rahaa.
+
+## Kalastusmaksut vähentyneet reippaasti
+
+![Miehet virvelöivät kalliolta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9017758)
+
+Avaa kuvien katselu
+
+Kalastus on suosittu harrastus. Yli 65-vuotiaiden ei tarvitse maksaa kalastusmaksua.  Kuva: Kare Lehtonen / Yle
+
+Maksut kalastamisesta ovat vähentyneet niin paljon, että viranomaiset ovat huolissaan.
+
+Kalastusmaksujen avulla viranomaiset voivat huolehtia siitä, että Suomen vesissä riittää kalaa myös tulevaisuudessa.
+
+Kalastusmaksut vähenivät viime vuonna 2 miljoonaa euroa, kun uusi kalastuslaki tuli voimaan.
+
+18 - 64-vuotiaat kalastajat maksavat kalastusmaksun, joka on esimerkiksi 39 euroa vuodessa.
+
+## Smithille syytteet salakatselusta
+
+![Mediapersoona Axl Smith Helsingin käräjäoikeudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8994613)
+
+Avaa kuvien katselu
+
+Axl Smith oikeudessa viime toukokuussa. Kuva: Jarno Kuusinen / AOP
+
+Suomalainen juontaja Axl Smith on saanut oikeudessa syytteet 32:sta salakatselusta.
+
+Smithillä oli makuuhuoneessa videokamera, jolla hän oli kuvannut salaa seksikumppaneita.
+
+Smith saa syytteet myös kolmesta kunnianloukkauksesta ja kahdesta yksityiselämää loukkaavasta tiedon levittämisestä.
+
+Helsingin käräjäoikeus käsittelee Smithin syytteitä parin viikon kuluttua.
+
+## Putin vierailee Suomen 100-vuotisjuhlissa
+
+![Venäjän presidentti Vladimir Putin hymyilee annettuaan äänensä parlamenttivaaleissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9176396)
+
+Avaa kuvien katselu
+
+Vladimir Putin ilahtui kutsusta Suomen 100-vuotisjuhliin. Kuva: Grigory Dukor / EPA
+
+Venäjän presidentti Vladimir Putin vierailee Suomessa tänä vuonna.
+
+Presidentti Sauli Niinistö on kutsunut Putinin Suomen itsenäisyyden 100-vuotisjuhliin. 
+
+Venäjän presidentin nettisivuilla kerrotaan, että Putin on ottanut kutsun vastaan ilomielin.

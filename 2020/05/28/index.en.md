@@ -1,0 +1,68 @@
+# Thursday 28.5.2020 (radio)
+
+Over 20,000 students can get into university with a certificate. Payment difficulties are increasing. No new coronavirus deaths on Thursday. Today is Clear Language Day. It will rain in Lapland on Friday.
+
+## University student selection
+
+![Teaching in a lecture hall at the University of Lapland, where the introductory course in administrative science is taught](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6204875dee3ca9a956a/1575894324)
+
+Open image viewer
+
+Teaching in a lecture hall at the University of Lapland. Photo: Annu Passoja
+
+Universities have published information about new students who can get into university without an entrance exam. Over 21,000 students can get into university with a certificate.
+
+About half of them got a place to study at a university, and about half of them got a place to study at a university of applied sciences.
+
+The student selection for universities was reformed this spring. Most students are now selected on the basis of their certificate without an entrance exam. Some students are still also accepted to universities on the basis of an entrance exam.
+
+## Payment difficulties
+
+![Woman looking through bills](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10761105)
+
+Open image viewer
+
+More time to pay bills can be obtained. Photo: Jouni Koutonen / Yle
+
+The corona situation has increased people's payment difficulties. Many people have been laid off and have less money than before.
+
+Many Finns have asked companies for more time to pay bills. Many companies allow the due date to be moved, for example by two weeks.
+
+Many Finns have asked their bank for a repayment holiday on their housing loan. About 180,000 families have applied for a repayment holiday.
+
+## Coronavirus deaths
+
+![A health nurse Pia and a doctor examine patient records at the Malmi corona clinic.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11325523)
+
+Open image viewer
+
+A health nurse and a doctor examine a patient. Photo: Mårten Lampén / Yle
+
+In Finland, no new coronavirus deaths have been reported today, on Thursday. A total of 313 coronavirus deaths have been reported in Finland. No more came on Thursday.
+
+Coronavirus infections have been confirmed in over 6,700 Finns so far. 83 people are in hospital care.
+
+## Clear Language Day
+
+![Logo of the International Clear Language Day.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11367011)
+
+Open image viewer
+
+Clear Language Day is celebrated on 28 May. Photo: Heidi Ahlström/Selkokeskus
+
+Today is International Clear Language Day. The day is being celebrated for the first time on 28 May.
+
+Clear language is easier than general language. For example, in offices it is easier for a customer to understand if they get service in clear language. With the help of clear language, it can be ensured that everyone gets information and everyone can handle their own affairs themselves. International Clear Language Day is celebrated in many countries.
+
+In Finland, about 750,000 people need clear language.
+
+## Weather
+
+![Wood anemone](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11276860)
+
+Open image viewer
+
+Wood anemone flowers in spring. They can still be seen in the forest.
+
+On Friday it will rain in Lapland. In most of the country it will not rain, and the sun will also shine.
+The daytime temperature on Friday is between 14 and 18 degrees. In Northern Finland the temperature is between 8 and 14 degrees.

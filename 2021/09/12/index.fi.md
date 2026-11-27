@@ -1,0 +1,75 @@
+# Sunnuntai 12.9.2021 (radio)
+
+Vihreät ja kannabis. Norjassa vaalit. Rallivoitto. Elokuvapalkinto. Sää.
+
+## Vihreät kannabiksesta
+
+![Vihreiden puoluekokous.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_100/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-852713613c5c20a6f24/1631345798)
+
+Avaa kuvien katselu
+
+Vihreiden puoluekokouksessa keskusteltiin myös kannabiksesta. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Vihreät haluaa, että kannabis sallitaan Suomessa. Vihreillä oli puoluekokous sunnuntaina.
+
+Kannabis on Suomessa nykyään laiton tuote. Laki sanoo, että kannabis on huumausaine, jota ei saa käyttää tai myydä.
+
+Vihreiden mielestä kannabiksen käyttö ja myynti pitää sallia. Silloin valtio voi myös kerätä veroja kannabiksen myynnistä, vihreät sanoo.
+
+## Norjassa vaalit
+
+![Erna Solberg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11876423)
+
+Avaa kuvien katselu
+
+Mielipidekyselyt kertovat, että pääministeri Erna Solberg voi hävitä vaalit maanantaina. Kuva: Valda Kalnina / EPA
+
+Suomen naapurimaassa Norjassa on maanantaina parlamenttivaalit.
+
+Mielipidekyselyt kertovat, että Norjan pääministeri voi vaihtua vaalien jälkeen. Nyt Norjan pääministeri on Erna Solberg. Solberg on oikeiston konservatiivipuolueesta.
+
+Mielipidekyselyissä eniten kannatusta on kuitenkin saanut vasemmiston työväenpuolue. Norjan seuraava pääministeri voi siis ehkä olla työväenpuolueen johtaja.
+
+## Elokuvapalkinto suomalaisille
+
+![Den rullstolsbundna Petri Poikolainen får hjälp inför en scen.](https://img.img-cdn.yle.fi/crop_extract,w_1686,h_948,x_86,y_91/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-852039613a6bd8c0b63/1631218762)
+
+Avaa kuvien katselu
+
+Näyttelijä Petri Poikolainen (keskellä). Kuva: Niina Virtanen
+
+Suomalainen elokuva on saanut tärkeän palkinnon. Elokuva voitti palkinnon Venetsian elokuvajuhlilla Italiassa.
+
+Elokuvan nimi on *Sokea mies joka ei halunnut nähdä Titanicia*. Se voitti Venetsian elokuvajuhlilla kilpailun, jossa yleisö valitsee voittajan.
+
+Elokuva kertoo miehestä, joka on sokea ja halvaantunut. Hän ei pysty liikkumaan. Mies saa kuitenkin apua toisilta, kun hän haluaa lähteä liikkeelle rakkauden takia.
+
+Elokuvan ohjaaja on Teemu Nikki. Elokuvan miestä esittää näyttelijä Petri Poikolainen. Poikolainen on myös oikeasti sokea, eikä hän pysty liikkumaan sairauden takia.
+
+Elokuva *Sokea mies joka ei halunnut nähdä Titanicia* on nyt myös Suomen elokuvateattereissa.
+
+## Rovanperän rallivoitto
+
+![Kalle Rovanperä ajaa Kreikan MM-rallissa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_344/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-852896613df83f07981/1631451233)
+
+Avaa kuvien katselu
+
+Kalle Rovanperä oli nopein Kreikan MM-ralllissa. Kuva: imago images/PanoramiC/ All Over Press
+
+Suomalainen rallikuljettaja Kalle Rovanperä on voittanut ison rallikilpailun. Rovanperä voitti Kreikan MM-rallin, joka loppui sunnuntaina.
+
+Kreikan MM-rallin voiton jälkeen Rovanperä nousee taistelemaan koko MM-sarjan mitaleista. Rovanperä on nyt rallin MM-sarjan sijalla 4.
+
+Sarjan seuraava kilpailu ajetaan lokakuussa Suomessa, Jyväskylän seudulla.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12096461)
+
+Avaa kuvien katselu
+
+Sää on maanantaina sateinen Pohjois-Suomessa. Lapissa voi sataa myös lunta.
+
+Länsi-Suomessa sää poutaantuu eli sateet loppuvat. Samalla tuuli kuitenkin voimistuu.
+
+Lämpötila on Suomessa alkuviikon aikana 5 ja 15 asteen välillä.

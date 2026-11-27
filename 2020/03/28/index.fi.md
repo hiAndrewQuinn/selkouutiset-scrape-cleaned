@@ -1,0 +1,73 @@
+# Lauantai 28.3.2020 (radio)
+
+Uusimaa on eristetty muusta Suomesta. Ravintolat ja kahvilat suljetaan. Terveydenhuollon ammattilaisille tulee työvelvoite. Metsähallitus sulki luontokohteita. Kesäaika alkaa sunnuntaina.
+
+## Uusimaa on nyt eristetty kolmeksi viikoksi
+
+![Poliisi ja varusmiehet hiljaisella tarkastuspisteellä Lohjan ja Salon rajalla Ykköstiellä liittymän 20 kohdalla lauantaina 28. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11280850)
+
+Avaa kuvien katselu
+
+Poliiseja ja varusmiehiä tarkastuspisteellä Lohjan ja Salon rajalla Ykköstiellä. Kuva: Vesa Moilanen / Lehtikuva
+
+Uudenmaan eristäminen on alkanut. Eduskunta on hyväksynyt lain, että liikkumista Uudenmaan rajan yli rajoitetaan. Poliisit ja varusmiehet valvovat Uudenmaan rajaa maanteillä ja junissa.
+
+Uudeltamaalta ei saa lähteä esimerkiksi kesämökille muualle Suomeen. Rajoituksella hidastetaan koronaviruksen leviämistä.
+
+Rajan yli saa mennä vain, jos siihen on tosi hyvä syy. Rajan yli saa mennä, jos pitää mennä esimerkiksi töihin, lääkärin tai kotiin. Myös varusmiehet saavat mennä rajan yli kotiin lomalla.
+
+Uudenmaan eristys kestää 3 viikkoa.
+
+## Ravintolat suljetaan - moni ravintola on jo kiinni
+
+![La Famiglia ravintolan ravintolasali Flamingossa.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6546145e7205f1568be/1585148426)
+
+Avaa kuvien katselu
+
+Ravintoloissa ei saa olla asiakkaita, että koronavirus ei tartu. Mukaan saa myydä ruokaa. Kuva: Eleni Paspatis / Yle
+
+Eduskunta on hyväksynyt lain, että kaikki ravintolat ja kahvilat pitää sulkea koronaviruksen takia.
+
+Ravintolat saavat myydä ruokaa mukaan, mutta ravintoloissa ei saa istua asiakkaita. Määräys ei koske työpaikkojen henkilöstöravintoloita. Ne saavat jatkaa toimintaa.
+
+Lain tekeminen ravintoloiden sulkemiseksi on ollut vaikeaa. Laki tulee voimaan ehkä maanantaina. Monet ravintolat ovat jo sulkeneet toiminnan tai asiakastilat.
+
+## Metsähallitus sulki retkikohteita
+
+![Päivätupa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8752494)
+
+Avaa kuvien katselu
+
+Päivätupa. Kuva: Petri Lassheikki / Yle
+
+Metsähallitus on sulkenut suosittuja retkikohteita, koska niihin on tullut paljon ihmisiä.
+
+Luontokohteissa käy nyt paljon ihmisiä, koska kaikki tapahtumat ja harrastukset on peruttu koronaviruksen takia.
+
+Metsähallitus on sulkenut esimerkiksi retkitupia ja lintutorneja, että niihin ei kokoonnu liikaa ihmisiä. Myös kansallispuistojen luontokeskukset on suljettu.
+
+## Lääkäreille ja sairaanhoitajille työvelvoite
+
+![Sairaanhoitaja käsittelee hengityskonetta Meilahden tornisairaalassa,](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11275156)
+
+Avaa kuvien katselu
+
+Sairaaloissa tarvitaan ehkä paljon työntekijöitä, jos paljon ihmisiä sairastuu koronavirustartuntaan. Kuva: Anni Reenpää / Lehtikuva
+
+Eduskunta on päättänyt terveydenhuolto-alan työvelvoitteesta. Se tarkoittaa, että lääkäreitä ja sairaanhoitajia voidaan määrätä töihin muista töistä tai eläkkeeltä.
+
+Myös terveydenhoitoalan opiskelijoita, esimerkiksi lääkäriopiskelijoita tai sairaanhoitajaopiskelijoita, voidaan määrätä töihin.
+
+Sairaaloissa tarvitaan ehkä paljon työntekijöitä koronaepidemian takia.
+
+## Kesäaika alkaa sunnuntaina
+
+![Kellloa siirretään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11032026)
+
+Avaa kuvien katselu
+
+Muista siirtää kello kesäaikaan eli tunti eteenpäin. Kuva: Ismo Pekkarinen / AOP
+
+Ensi yönä siirrytään kesäaikaan Suomessa ja muualla Euroopassa. Kellonaikaa siirretään lauantain ja sunnuntain välisenä yönä tunti eteenpäin.
+
+Suomessa kesäaikaan siirrytään virallisesti kello 3 yöllä. Kotona voi kääntää kellonaikaa eteenpäin jo illalla.

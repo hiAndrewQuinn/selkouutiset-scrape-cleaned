@@ -1,0 +1,60 @@
+# TV \| Selkouutiset \| keskiviikko 24.4.2024
+
+Yöpäivystys. Kaupanmyyjät. Presidentti Stubb. Sääennuste.
+
+## Yöpäivystykset
+
+Aluksi uutinen sairaanhoidosta.
+
+Suomessa ehkä suljetaan sairaanhoidon yöpäivystyksiä.\
+Syy on säästöt, joista hallitus sopi kehysriihessä.
+
+Yöpäivystys loppuu ehkä Iisalmessa, Varkaudessa, Jämsässä, Raahessa ja Kouvolassa.
+
+Kouvola on suurin kaupunki, jossa yöpäivystys ehkä loppuu. Kouvolan yöpäivystyksessä kävi viime vuonna noin 6000 potilasta.
+
+Sairaanhoitaja **Tuulia Suihkonen** on huolissaan sulkemisesta.
+
+Hän sanoo, että yöpäivystyksessä voidaan aloittaa monen vakavan sairauden hoito.
+
+Suihkonen sanoo, että ihmisten turvallisuus voi huonontua, jos yöpäivystys loppuu.\
+"*Kyl varmaan Kouvolan alueen ihmisten terveys saattaa kärsiä, ja turvallisuus. Jos mietitään että me pystytään täällä moni asia hoitamaan."*
+
+Suomessa ehkä suljetaan sairaanhoidon yöpäivystyksiä.
+
+## Kaupanmyyjien tulospalkkiot
+
+Nyt uutinen kaupanmyyjien tulospalkkioista.
+
+Kaupoilla on mennyt hyvin viime vuosina. Siksi kaupat ovat maksaneet myyjille tulospalkkioita. Esimerkiksi K-Citymarketin myyjä voi saada yli 1000 euroa palkan lisäksi.
+
+Myyjä saa tulospalkkion, jos kaupan ja myyjän yhteiset tavoitteet täyttyvät. Tavoite on esimerkiksi tyytyväiset asiakkaat ja siistit hyllyt.
+
+Asiakkaille tehdään kyselyitä. Jos asiakkaat ovat tyytyväisiä, tavoitteet täyttyvät.
+
+Kaupat ovat alkaneet maksaa myyjille tulospalkkioita. Myyjät sanovat, että palkkio kannustaa hyvään palveluun.
+
+## Presidentti Stubbin Ruotsin-vierailu
+
+Lopuksi uutinen presidentti Stubbin Ruotsin-vierailusta.
+
+Presidentti **Alexander Stubb** on ollut valtiovieraillulla Ruotsissa.
+
+Vierailun isäntä oli kuningas **Kaarle Kustaa**. Kaarle Kustaa ja Stubb tarkastivat kunniakomppanian.
+
+Kuninkaanlinnassa otettiin valokuvat yhdessä kuningasperheen kanssa.
+
+Stubb piti puheen Ruotsin valtiopäivien edustajille. Stubb korosti, että Ruotsi ja Suomi ovat läheisiä maita. Stubb myös sanoi, että Nato-yhteistyö on maille tärkeää.
+
+Presidentti Alexander Stubb on ollut valtiovierailulla Ruotsissa.\
+Stubb tapasi myös Ruotsin pääministerin Ulf Kristerssonin.
+
+## Sää
+
+Vielä sääennuste.
+
+Etelässä sataa vettä. Muualla on poutaista, mutta pilvistä.\
+Maan keskivaiheilla aurinko voi paistaa välillä.
+
+Lämpötila on +3 ja +7 asteen välillä.
+

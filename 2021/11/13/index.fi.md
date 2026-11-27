@@ -1,0 +1,77 @@
+# Lauantai 13.11.2021 (radio)
+
+Valko-Venäjä. EU:n digivertailu. Nenäpäivän tulos. Jalkapallon MM-karsinta. Sää.
+
+## Puolan ja Valko-Venäjän rajakriisi
+
+![Putin ja Lukashenka](https://img.img-cdn.yle.fi/crop_extract,w_2542,h_1430,x_0,y_71/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-878602618d1092bce33/1636634856)
+
+Avaa kuvien katselu
+
+Valko-Venäjän presidentti Aljaksandr Lukašenka ja Venäjän presidentti Vladimir Putin. Kuva: Mikhail Metzel / AOP
+
+Kriisi Puolan ja Valko-Venäjän rajalla jatkuu. Rajalla on paljon ihmisiä, jotka yrittävät päästä Puolaan ja muualle Euroopan unioniin.
+
+Rajalla on esimerkiksi ihmisiä, jotka tulevat Lähi-idästä. Puola sanoo, että Valko-Venäjä on lähettänyt heidät kohti Euroopan unionia.
+
+Euroopan unioni epäilee, että Venäjä tukee Valko-Venäjän toimia. Venäjän presidentti Vladimir Putin sanoo, että Venäjällä ei ole mitään tekemistä kriisin kanssa.
+
+## EU:n digivertailu
+
+![Helsingin keskustakirjasto Oodi. 27.4.2021.](https://img.img-cdn.yle.fi/crop_extract,w_4256,h_2394,x_0,y_219/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-79950560881c9aa1be3/1619534970)
+
+Avaa kuvien katselu
+
+Suomessa esimerkiksi kirjastoilla on paljon erilaisia digipalveluja. Kuva: Jorge Gonzalez / Yle
+
+Suomi on tänä vuonna toiseksi paras maa Euroopan unionin digivertailussa. Digivertailun paras maa oli tällä kertaa Tanska.
+
+Digivertailussa selvitetään, kuinka hyvin EU-maat toimivat digitaalisesti. Vertailu kertoo myös EU-maiden digitaalisesta kehityksestä.
+
+Suomi on menestynyt digivertailuissa hyvin. Kahtena edellisenä vuonna Suomi oli vertailun paras maa.
+
+## Nenäpäivän tulos
+
+![Piia Pasanen, Jenni Kokander ja Ernest Lawson lavalla.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_507/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-879371618eeafb255be/1636756322)
+
+Avaa kuvien katselu
+
+Television Nenäpäivä-lähetyksen juontajat Piia Pasanen, Jenni Kokander ja Ernest Lawson. Kuva: Tomi Palsa / Nenäpäivä-säätiö
+
+Ylen Nenäpäivä keräsi perjantaina yli 3 miljoonaa euroa. Nenäpäivä-lähetyksiä oli televisiossa ja radiossa.
+
+Lähetysten aikana katsojat ja kuuntelijat lahjoittivat rahaa hyvään tarkoitukseen. Rahoilla autetaan lapsia Aasiassa, Afrikassa ja Etelä-Amerikassa.
+
+Nenäpäivä-keräys jatkuu vuoden loppuun asti.
+
+## Suomen jalkapallovoitto
+
+![Huuhkajat juhli voittoa Zenicassa.](https://img.img-cdn.yle.fi/crop_extract,w_5294,h_2977,x_0,y_589/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-879463618fe9d8beb31/1636824878)
+
+Avaa kuvien katselu
+
+Suomen joukkue juhlii tärkeää voittoa. Kuva: Lehtikuva
+
+Vielä urheilua: Suomi on saanut tärkeän jalkapallovoiton.
+
+Suomi voitti lauantaina MM-karsintaottelun Bosnia-Hertsegovinaa vastaan. Suomi voitti Bosnia-Hertsegovinan 3-1.
+
+Suomen ensimmäisen maalin teki Marcus Forss. Pian sen jälkeen Suomen Jukka Raitala teki virheen ja joutui pois pelistä.
+
+Suomen joukkue kuitenkin jatkoi hienoa peliä ja teki vielä 2 maalia. Maalintekijät olivat Robin Lood ja Daniel O'Shaughnessy.
+
+Bosnia teki pelissä vain 1 maalin. Suomi siis voitti Bosnian selvästi 3-1.
+
+Voitto tarkoittaa, että Suomella on mahdollisuus päästä jalkapallon MM-kisoihin. Jalkapallon maailmanmestaruuskisat järjestetään ensi vuonna Qatarissa.
+
+## Sunnuntain sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12187422)
+
+Avaa kuvien katselu
+
+Sää on sunnuntaina aurinkoinen ja poutainen eli vettä ei sada. Sunnuntaina on kuitenkin kylmää.
+
+Etelässä lämpötila on päivällä vähän plussan puolella. Lapissa on noin 10 pakkasastetta.
+
+Ensi viikon alussa sää vähän lämpenee. Samalla Suomeen tulee sateita.

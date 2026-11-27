@@ -1,0 +1,71 @@
+# Perjantai 1.11.2019 (radio)
+
+Aktiivimallin vaikutus on epäselvä. Teollisuusliitto ja Pro aloittavat ylityökiellon. Kansalaisaloite lentoverosta menee eduskunnan käsittelyyn. Lokakuu oli viileä.
+
+## Aktiivimallista ei ole tarkkoja lukuja
+
+![Aktiivimallia vastustava mielenosoitus Helsingin Senaatintorilla.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_564/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4614825a745ae4caf35/1517574908)
+
+Avaa kuvien katselu
+
+Aktiivimallia vastustava mielenosoitus Helsingin Senaatintorilla helmikuussa 2018. Kuva: Kimmo Hiltunen / Yle
+
+Työttömien aktiivimallin vaikutus on epäselvä. Tarkkoja lukuja ei ole. Näin sanoo työryhmä, joka on tutkinut aktiivimallia.
+
+Aktiivimalli ei lisännyt työttömien pääsyä töihin. Osa työttömistä saa ansiosidonnaista päivärahaa. Heidän työllisyyttä aktiivimalli paransi.
+
+Aktiivimalli lisäsi työttömien osallistumista erilaisille kursseille.
+
+Työttömien aktiivimalli tuli voimaan vuoden 2018 alussa. Aktiivimallissa työtön saa vähemmän rahaa, jos hän ei esimerkiksi osallistu kursseille.
+
+Pääministeri Antti Rinteen hallitus aikoo lopettaa mallin ensi vuoden alussa.
+
+## Teollisuusliitto aloittaa ylityökiellon
+
+![Teknologiateollisuus ry ja Teollisuusliitto ry aloittivat 29. elokuuta 2019 Etelärannassa Helsingissä neuvottelut työehtosopimuksen uudistamisesta. ](https://img.img-cdn.yle.fi/crop_extract,w_5176,h_2912,x_0,y_267/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5867485d67dd62b2020/1567088132)
+
+Avaa kuvien katselu
+
+Teknologiateollisuus Teollisuusliitto aloittivat 29. elokuuta 2019 neuvottelut työehtosopimuksen uudistamisesta. Kuva: Laura Hyyti / Yle
+
+Teollisuusliitto aloittaa ylityökiellon. Kielto alkaa ensi maanantaina ja päättyy perjantaina. Ylityökielto koskee noin 100 000 työntekijää.
+
+Myös Ammattiliitto Pro aloittaa ylityökiellon, joka koskee teknologiateollisuuden toimihenkilöitä.
+
+Ylityökielto tarkoittaa, että työntekijät eivät tee ollenkaan ylitöitä. Tarkoitus on, että sopimusneuvottelut etenevät ehkä nopeammin.
+
+Teollisuusliiton ja Teknologiateollisuuden väliset sopimusneuvottelut ovat kesken. Alan sopimukset päättyivät lokakuun lopussa eli torstaina.
+
+Teollisuusliitto kertoo, että neuvotteluissa on ollut kiistaa varsinkin työajasta.
+
+## Kansalaisaloite lentoverosta menee eduskuntaan
+
+![Lentokone](https://img.img-cdn.yle.fi/crop_extract,w_3594,h_2022,x_70,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-39653392b6d4305e/1561378107)
+
+Avaa kuvien katselu
+
+Kansalaisaloitteen allekirjoittajat vaativat, että Suomeen tulee lentovero. Kuva: EPA/Daniel Reinhardt
+
+Kansalaisaloite lentoverosta menee eduskuntaan. Kansalaisaloitteen allekirjoittajat vaativat, että Suomeen tulee lentovero.
+
+Allekirjoittajat sanovat, että lentomatkan pitää maksaa enemmän. Tarkoitus on vähentää päästöjä. Lentäminen nopeuttaa ilmastonmuutosta.
+
+Lentovero on jo esimerkiksi Ruotsissa.
+
+Kansalaisaloite on esimerkiksi lakiehdotus, jonka kansalaiset tekevät. Eduskunnan pitää käsitellä kansalaisaloite, jos sen on allekirjoittanut yli 50 000 ihmistä.
+
+## Lokakuu oli viileä
+
+![Lumisateinen syysmaisema Joensuun Heinävaarassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11026161)
+
+Avaa kuvien katselu
+
+Lumisateinen syysmaisema Joensuun Heinävaarassa. Kuva: Ismo Pekkarinen / AOP
+
+Lokakuu oli tavallista viileämpi.
+
+Lokakuun keskilämpötila oli Pohjois-Lapissa -3 ja -4 asteen välillä, lounaissaaristossa vähän yli 7 astetta.
+
+Ilmatieteen laitos kertoo, että lokakuussa myös satoi enemmän kuin tavallisesti. Varsinkin Pohjois-Karjalassa satoi tosi paljon.
+
+Lokakuun lopussa idässä ja pohjoisessa oli lunta.

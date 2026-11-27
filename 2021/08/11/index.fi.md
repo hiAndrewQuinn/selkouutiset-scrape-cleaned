@@ -1,0 +1,90 @@
+# Keskiviikko 11.8.2021
+
+Budjettineuvottelut. Yläkoululaisten koronarokotukset. Koronatoimet työpaikoilla. Valmisruokien suosio. Sää.
+
+TV:n selkouutisilla on kesätauko 20.8. asti.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Budjettineuvottelut
+
+![Keskustan puheenjohtaja valtiovarainministeri Annika Saarikko.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83045260e836e9638b2/1625831623)
+
+Avaa kuvien katselu
+
+Rahaministeri Annika Saarikko johtaa budjettineuvotteluja. Kuva: Benjamin Suomela / Yle
+
+Neuvottelut valtion budjetista ovat alkaneet. Budjetti kertoo, mihin valtio käyttää rahaa.
+
+Ensi vuoden budjettiehdotus tehdään valtiovarainministeriössä. Monia kiinnostaa, miten budjettiehdotuksessa näkyvät esimerkiksi toimet työttömyyttä ja ilmastonmuutosta vastaan.
+
+Valtiovarainministeri eli rahaministeri Annika Saarikko esittelee budjettiehdotuksen myöhemmin tällä viikolla.
+
+Koko hallitus neuvottelee budjetista syyskuussa. Sen jälkeen eduskunnan pitää vielä hyväksyä budjetti.
+
+## Koronatartunnat
+
+![Hoitaja otti nenä-nielunäytettä Mehiläisen drive-in-testausasemalla Helsingissä 2. heinäkuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_320/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82808860df14bbd7050/1625561394)
+
+Avaa kuvien katselu
+
+Mies koronatestissä. Kuva: Silja Viitala / Yle 
+
+Koronatartuntojen määrä kasvaa.
+
+Terveyden ja hyvinvoinnin laitos kertoi keskiviikkona, että Suomessa on 844 uutta koronatartuntaa.
+
+Myös koronakuolemien määrä kasvaa. Suomessa on nyt kuollut yhteensä 995 ihmistä koronan takia. Se on 11 enemmän kuin viikko sitten.
+
+## Koronarokotukset
+
+![Nuori henkilö saa koronarokotteen Energia-areenan rokotuspisteessä Vantaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12051522)
+
+Avaa kuvien katselu
+
+Kuva: Seppo Samuli / Lehtikuva
+
+Yläkoululaisten koronarokotukset alkavat kouluissa. Koulutyö on käynnistynyt monessa kunnassa keskiviikkona.
+
+Esimerkiksi Vantaan yläkouluissa koronarokotukset aloitettiin heti, ja lähipäivinä yläkoululaisten koronarokotukset alkavat myös Helsingissä ja Espoossa.
+
+Yläkouluikäiset eli 12-15-vuotiaat voivat yleensä itse päättää, ottavatko he koronarokotuksen.
+
+## Koronatoimet
+
+![Kaksi naista tervehtii toimistossa toisiaan kyynärpäätervehdyksellä](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-779790603d06e060179/1614612490)
+
+Avaa kuvien katselu
+
+Maskia on vielä hyvä pitää työpaikalla. Kuva: Tiina Kokko / Yle
+
+Työpaikoilla on hyvä jatkaa koronatoimia. Näin sanoo Työterveyslaitos.
+
+Työpaikoilla pitää muistaa, että kaikki eivät ole vielä saaneet toista koronarokotusta. Siksi esimerkiksi etätyötä on hyvä jatkaa.
+
+Jos etätyö ei ole mahdollista, työpaikalla pitää suojautua koronaa vastaan. Työntekijät voivat esimerkiksi käyttää edelleen kasvomaskia.
+
+## Valmisruuat
+
+![Valmisruuat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10566504)
+
+Avaa kuvien katselu
+
+Valmisruokia myydään nyt paljon. Kuva: Esa Syväkuru / Yle
+
+Valmisruuat ovat nyt suosittuja. Näin kertoo kaupanalan järjestö.
+
+Valmisruokia myytiin nyt huhti-, touko- ja kesäkuun aikana 20 prosenttia enemmän kuin vuosi sitten.
+
+Samaan aikaan kun suomalaiset ostavat enemmän valmisruokia, he tekevät vähemmän ruokaa itse. Esimerkiksi perunalastujen myynti on noussut, mutta perunan myynti on laskenut.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12055456)
+
+Avaa kuvien katselu
+
+Sää poutaantuu eli sateet vähenevät torstaina ja perjantaina.
+
+Sää on myös melko aurinkoista, ja lämpötila on yli 20 astetta suuressa osassa maata.
+
+Viikonloppuna Suomeen tulee uusia sateita.

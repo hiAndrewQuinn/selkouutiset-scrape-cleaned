@@ -1,0 +1,60 @@
+# Selkouutiset TV \| Selkouutiset \| maanantai 26.2.2024
+
+Hodorkovski Suomessa. Mäntyniemen remontti. Kirja Martta Wendelinistä. Sää.
+
+## Hodorkovski Suomessa
+
+Ensin uutinen Venäjästä.
+
+Venäjän opposition edustaja Mihail Hodorkovski on vieraillut Suomessa.
+
+Hodorkovski osallistui eilen Suomen venäjänkielisten mielenosoitukseen Helsingissä. Mielenosoituksessa vastustettiin Venäjän sotaa Ukrainassa.
+
+Hodorkovski sanoi, että presidentti Vladimir Putin aloitti sodan, koska hän halusi pysyä vallassa.
+
+Hodorkovski sanoi myös, että Putin on syyllinen oppositiojohtaja Aleksei Navalnyin kuolemaan. Navalnyi kuoli venäläisessä vankilassa 10 päivää sitten.
+
+Mihail Hodorkovski vieraili Suomessa eilen.
+
+Hodorkovski on presidentti Putinin vastustaja. Siksi hän oli Venäjällä monta vuotta vankilassa. Nyt hän elää ulkomailla.
+
+## Mäntyniemen remontti
+
+Sitten uutinen presidentin virka-asunnosta.
+
+Presidentin virka-asunto Mäntyniemi remontoidaan.
+
+Mäntyniemi valmistui 33 vuotta sitten. Rakennus tunnetaan siitä, että se yhdistyy kauniisti luontoon.
+
+Mäntyniemen remontti maksaa 55 miljoonaa euroa. Hintaa nostaa se, että myös Mäntyniemen turvatekniikka uudistetaan.
+
+Presidentin virka-asunnon Mäntyniemen remontti alkaa maaliskuussa.
+
+Siksi Alexander Stubb aloittaa presidenttikauden väistötiloissa. Hän pääsee Mäntyniemeen 2 vuoden kuluttua.
+
+## Kirja Martta Wendelinistä
+
+Sitten uutinen taiteesta.
+
+Taiteilija Martta Wendelinin elämästä on tehty kirja.
+
+Wendelin oli suomalainen kuvataiteilija. Hän piirsi ja maalasi erityisesti lehtien kansia ja kortteja.
+
+Wendelin kuvat kertovat onnellisesta perhe-elämästä maaseudulla.
+
+Wendelin oli itse kovin erilainen kuin kuvat, joista hänet tunnetaan. Näin sanoo Päivi Ahdeoja-Määttä, joka on kirjoittanut kirjan Wendelinin elämästä.
+
+Ahdeoja-Määttä sanoo, että Wendelin oli kaupunkilainen. Hän ei koskaan perustanut omaa perhettä. Wendelinille ura oli tärkeä.
+
+Uusi kirja kertoo Martta Wendelinin urasta.
+
+Wendelinin pitkä ura alkoi jo 1920-luvulla.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Tiistaina sää on lauhaa ja pilvistä. Aurinko paistaa paikoitellen.
+
+Lämpötila on +2 ja -6 asteen välillä, pohjoisessa on kylmintä.
+

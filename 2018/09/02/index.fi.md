@@ -1,0 +1,65 @@
+# Sunnuntai 2.9.2018 (radio)
+
+Muovikassit. Vuoden kylä. Äänikirjat. Rotat.
+
+## Muovikassien kulutus vähentynyt
+
+![Muovikasseja pinossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10311084)
+
+Avaa kuvien katselu
+
+Muovikasseja pinossa. Kuva: Antti Haanpää / Yle
+
+Suomalaiset ostavat entistä vähemmän muovikasseja. Kaupat ovat alkaneet laskuttaa muovikasseista ja ihmisiä myös kannustetaan käyttämään muita kuin muovisia kasseja.
+
+Monet ihmiset käyttävät nykyään kangaskasseja ruokakaupassa. Muovin haitoista käydään juuri nyt paljon keskustelua, koska muoviroska on tosi iso ongelma.
+
+Muovi esimerkiksi kertyy mereen ja meressä muovi on vaarallinen eläimille. Suomessa on tavoitte, että vuoden 2025 lopussa suomalainen kuluttaa enintään 40 muovikassia vuodessa.
+
+## Vuoden kylä on valittu
+
+![Teuron kylätalo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10382813)
+
+Avaa kuvien katselu
+
+Teuron kylätalo on tehty talkootyöllä. Kuva: Teuro-Kuuslammi kylän Facebook-sivu
+
+Vuoden kyläksi on valittu Teuro-Kuuslammin kylä.
+
+Kylä sijaitsee Hämeessä, vähän yli sadan kilometrin päässä Helsingistä. Valintaraadin mielestä kylässä on hyvä asua.
+
+Kylässä on vain 250 asukasta, mutta palvelut ovat tosi hyvät. Kylältä löytyy esimerkiksi kahvio, leikkikenttä, palkattu kyläavustaja, harrastuksia joka illalle ja useita vuokratiloja.
+
+Kylällä on aktiivisia asukkaita, jotka tekevät paljon asioita yhdessä.
+
+Äänikirjat ovat suosittuja
+
+![Äänikirjojen suosio on kasvanut nopeasti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9818971)
+
+Avaa kuvien katselu
+
+Äänikirjoja voi ostaa useista eri sovelluksista. Kuva: Nella Nuora / Yle
+
+Äänikirjojen suosio on kasvanut viime vuosina kovaa vauhtia. Äänikirja on kirja, jota voi kuunnella.
+
+Äänikirjoja voi ostaa useista eri sovelluksista. Lukemista on tutkittu paljon. Tutkimusten mukaan lukeminen parantaa sanavarastoa ja muistia sekä vähentää stressiä.
+
+Aivotutkijan mukaan myös äänikirjat vähentävät stressiä. Tutkijan mukaan kirjan kuunteleminen parantaa sanavarastoa yhtä tehokkaasti kuin kirjan lukeminen.
+
+Sen sijaan esimerkiksi kielioppisäännöt muistaa paremmin, kun ne lukee kirjasta.
+
+Rottia ei saa itse myrkyttää
+
+![Kaksi rottaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10382968)
+
+Avaa kuvien katselu
+
+Rottia voi edelleen pyydystää loukulla. Kuva: Pat Morris / AOP
+
+Pihamaalta ei saa enää itse myrkyttää rottia. Uuden lain mukaan oikeus rottien myrkyttämiseen on nyt vain ammattilaisilla.
+
+Kuluttajat eivät myöskään saa enää ostaa rottien torjuntaan käytettäviä myrkkyjä.
+
+Myrkyt voivat aiheuttaa myrkytysoireita ihmisille, ja myrkyt ovat tosi vaarallisia lapsille.
+
+Ihminen saa myrkytyksen usein ihon tai suun kautta. Myrkytyksen oireita voivat olla esimerkiksi hallitsematon verenvuoto ja hengitysvaikeudet.

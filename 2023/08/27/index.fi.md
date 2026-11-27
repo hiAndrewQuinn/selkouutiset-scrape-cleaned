@@ -1,0 +1,87 @@
+# Radio | Selkouutiset | Sunnuntai 27.8.2023
+
+Lapsiperheköyhyys. Sari Essayah. Jevgeni Prigožin. Sauli Niinistö. Selkouutiset. Sääennuste.
+
+## Lapsiperheköyhyys
+
+![Tiina Ristikari, Itlan tutkimusprofessori, lapsiperheköyhyys, asiantuntija, saunalahti, espoo, ](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_144/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116031464e4865ab1ef2/1692698263)
+
+Avaa kuvien katselu
+
+Itlan tutkimusprofessori Tiina Ristikari. Kuva: Markku Rantala / Yle
+
+Lapsiperheköyhyys on lisäänytynyt Suomessa. Kahdessa vuodessa köyhien lasten määrä on kasvanut noin 30 000 lapsella. Köyhässä perheessä elää melkein 125 000 lasta.
+
+Monien köyhien lapsiperheiden huoli omasta taloudesta kasvaa, koska hinnat ja korot nousevat ja esimerkiksi työttömyys lisääntyy.
+
+Lastensäätiö Itlan tutkimusprofessori **Tiina Ristikari** sanoo, että hallituksen pitää huomata lapsiperheiden tilanne. Ristikari toivoo, että hallitus ei tee leikkauksia, jotka vaikeuttavat lapsiperheiden taloutta.
+
+## Kristillisdemokraattien presidenttiehdokas
+
+![Maa- ja metsätalousministeri ja kristillisdemokraattien presidenttiehdokas Sari Essayah, Kristillisdemokraattien puoluekokous 2023,](https://img.img-cdn.yle.fi/crop_extract,w_5987,h_3362,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116317264eb02ba15097/1693123790)
+
+Avaa kuvien katselu
+
+Kristillisdemokraattien puheenjohtaja ja presidenttiehdokas Sari Essayah. Kuva: Hans-peter Dhuy / Yle
+
+Kristillisdemokraattien presidenttiehdokas on puolueen puheenjohtaja **Sari Essayah**. Kristillisdemokraattien puoluekokous valitsi Essayahin presidenttiehdokkaaksi sunnuntaina. Essayahilla ei ollut vastaehdokkaita.
+
+Sari Essayah on ollut kristillisdemokraattien puheenjohtaja vuodesta 2015.
+
+Hän on myös nykyisen hallituksen maa- ja metsätalousminiseri.
+
+## Jevgeni Prigožinin kuolema
+
+![Ett foto av Wagnergruppens ledare Prigozjin med gevär i handen, fotot omgivet av röda nejlikor.](https://img.img-cdn.yle.fi/crop_extract,w_5363,h_3017,x_0,y_42/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116296464e968781a0fb/1693018408)
+
+Avaa kuvien katselu
+
+Monet asiantuntijat uskovat, että Prigozhinin kuolema oli salamurha. Kuva: EPA
+
+Venäjä vahvistaa, että keskiviikon lento-onnettomuudessa kuoli palkka-armeija Wagnerin johtaja **Jevgeni Prigožin**. Venäjän tutkintakomitea sanoo, että dna-tutkimus vahvistaa, että yksi kuolleista on Jevgeni Prigozhin.
+
+Myös Venäjän lentoliikennevirasto sanoo, että koneen matkustajalista täsmää vainajiin, jotka löydettiin onnettomuuspaikalta.
+
+Lentokone, joka kuljetti Prigožinia ja 9 muuta henkilöä, syöksyi keskiviikkona maahan Venäjällä. Länsimaiden asiantuntijat uskovat, että putoaminen oli salamurha.
+
+## Presidentti Niinistö
+
+![Sauli Niinistö toimittajian ja kuvaajien ympäröimänä.](https://img.img-cdn.yle.fi/crop_extract,w_3983,h_2241,x_0,y_207/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116323564eb3a4c7be39/1693142685)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö kävelytapahtumassa Töölönlahdella Helsingissä sunnuntaina. Kuva: Silja Viitala / Yle
+
+Presidentti **Sauli Niinistö** haastaa suomalaisia liikkumaan ja keskustelemaan. Presidentti osallistui sunnuntaina Helsingin Töölönlahdella kävelytapahtumaan.
+
+Tapahtumassa ihmiset saivat kävellä ja jutella presidentti Niinistön kanssa.
+
+Presidentti Niinistö sanoo, että ihmisten on tärkeää keskustella asioista ja ymmärtää muita ihmisiä. Niinistö sanoo, että jo lyhyt kävely tuottaa hyvää oloa ja virkistää ajattelua.
+
+## Selkouutisten TV-lähetykset
+
+![Toimittajat Pälvi Tammi ja Pertti Seppä. ](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5142835bb5ce8fa54f4/1538641629)
+
+Avaa kuvien katselu
+
+Selkouutisia toimittavat esimerkiksi Pälvi Tammi ja Pertti Seppä. Kuva: Henrietta Hassinen / Yle
+
+Selkouutisten TV-lähetykset jatkuvat huomenna maanantaina. TV:n selkouutiset on ollut kesätauolla.
+
+Yle uutiset selkosuomeksi nähdään TV1:ssä arkisin kello 16.40.
+
+Lähetyksen voi katsoa myös Yle Areenassa ja selkouutisten nettisivulta yle.fi/selkouutiset.
+
+## Sää
+
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116330064eb5f7282fc4/1693147022)
+
+Avaa kuvien katselu
+
+Vettä voi sataa paljon maan eteläosissa.
+
+Maanantaina maan etelä- ja keskiosaan sataa vettä. Paikoin voi sataa paljon.
+
+Pohjoisessa on poutaista eli ei sada, mutta pilvisyys lisääntyy.
+
+Lämpötila on 16 ja 21 asteen välillä.

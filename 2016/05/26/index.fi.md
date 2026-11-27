@@ -1,0 +1,7 @@
+# Torstai 26.5.2016 (tv)
+
+Sotkamon Talvivaaran kaivos ehkä suljetaan. Ohjelmistofirma Microsoft lopettaa Suomesta ehkä yli 1300 työpaikkaa. Monet koululaiset ovat tänä keväänä harjoitelleet tietoisuustaitoja. Didrichsenin taidemuseo esittelee Tamara Piilolan maisemamaalauksia. Sää.
+
+Yle Uutiset selkosuomeksi
+
+Sotkamon Talvivaaran kaivos ehkä suljetaan. Ohjelmistofirma Microsoft lopettaa Suomesta ehkä yli 1300 työpaikkaa. Monet koululaiset ovat tänä keväänä harjoitelleet tietoisuustaitoja. Didrichsenin taidemuseo esittelee Tamara Piilolan maisemamaalauksia. Sää.

@@ -1,0 +1,81 @@
+# Perjantai 7.7.2017 (radio)
+
+Saksassa on alkanut suurten talousmaiden kokous. Tulvavedet ovat tappaneet ihmisiä Japanissa. Suomen ensimmäinen tukikeskus seksuaalirikosten uhreille on avattu Helsingissä. Suomen naisten viestijoukkue sai pronssimitalin suunnistuksen MM-kilpailuisssa. Aino Niemi on uusi tangokuningatar.
+
+## Suurten talousmaiden kokous
+
+![Saksan poliisi käytti vesitykkejä mielenosoittajia vastaan Hampurissa torstaina 6. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9710518)
+
+Avaa kuvien katselu
+
+Poliisi käytti vesitykkejä mielenosoittajia vastaan Hampurissa. Kuva: Ronald Wittek / EPA
+
+Saksassa on suurten talousmaiden kokous. Mukana ovat esimerkiksi USA:n ja Venäjän presidentit. Donald Trump ja Vladimir Putin tapasivat nyt ensimmäistä kertaa.
+
+Kokous on Hampurissa, ja kaupungissa on paljon mielenosoittajia.
+
+Mielenosoittajat ovat esimerkiksi polttaneet autoja. He ovat myös tapelleet poliisien kanssa. Monet poliisit ovat loukkaantuneet.
+
+Hampurissa oli perjantaina 20.000 poliisia, ja kaupunkiin tulee vielä lisää poliiseja.
+
+## Japanin tulvat
+
+![Fire department rescue workers dig our mud with local residents to search for missing people at Yamada district in Asakura, Fukuoka Prefecture, southwestern Japan, 06 July 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9710532)
+
+Avaa kuvien katselu
+
+Tulvavedet veivät mukanaan rakennuksia ja autoteitä. Kuva: EPA / Kimimasa Mayama
+
+Tulvavedet ovat tehneet vahinkoa Japanissa. Tulvissa on kuollut ihmisiä. Tulvavesi on myös vienyt mukanaan rakennuksia ja autoteitä.
+
+Tulvien syy on se, että Japanissa on satanut tosi paljon. Säätiedot kertovat, että kovat sateet Japanissa jatkuvat.
+
+## Tukikeskus raiskauksen uhreille
+
+![Leena Malmi kätilö HUS Seri-tukikeskus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9706986)
+
+Avaa kuvien katselu
+
+Tukikeskuksen kätilö Leena Malmi. Kuva: Ronnie Holmberg / Yle
+
+Helsingin Naistenklinikalla on avattu Suomen ensimmäinen tukikeskus seksuaalirikosten uhreille.
+
+Kätilö Leena Malmi kertoo, että asiakas ei tarvitse lääkärin lähetettä tukikeskukseen. Hän voi kävellä ovesta sisään, kun haluaa.
+
+Jos ihminen on raiskattu, hän saa tukikeskuksessa apua kätilöltä ja psykologilta. Kaikki apu löytyy samasta paikasta.
+
+Samanlaisia tukikeskuksia aiotaan perustaa myös muualle Suomeen.
+
+## Suomen naisille MM-pronssimitali
+
+![Venla Harju](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9699904)
+
+Avaa kuvien katselu
+
+Venla Harju oli mukana naisten viestijoukkueessa, joka sai pronssia. Se oli Harjun toinen pronssimitali MM-kilpailuissa Virossa. Kuva: Markku Ulander/Lehtikuva
+
+Suomi on saanut toisen mitalin suunnistuksen MM-kilpailuissa. Suomen naisten joukkue oli viestissä kolmas ja sai pronssimitalin.
+
+Ruotsi oli naisten viestin voittaja ja maailmanmestari. Venäjä oli kilpailussa toinen.
+
+Viestijoukkueessa oli 3 suunnistajaa, jotka juoksivat vuorotellen. He etsivät metsässä rasteja eli paikkoja, jotka on merkitty karttaan.
+
+Suomen Venla Harju sai naisten suunnistuskilpailussa pronssimitalin torstaina.
+
+Suunnistuksen MM-kilpailut järjestettiin Virossa.
+
+## Tangokuningatar Aino Niemi
+
+![Aino Niemi on uusi tangokuningatar.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9710510)
+
+Avaa kuvien katselu
+
+Aino Niemi on tämän vuoden Tangokuningatar. Kuva: Timo Aalto / Lehtikuva
+
+Seinäjoella on nyt suuri musiikkitapahtuma Tangomarkkinat. Torstaina Tangomarkkinoilla oli naisten tangolaulukilpailu. Kilpailun voitti Aino Niemi, joka on uusi tangokuningatar.
+
+Uusi tangokuningatar tulee Kouvolasta. Aino Niemi on 18-vuotias. Kilpailun tuomarit sanoivat, että Niemi on hurmaava, herkkä ja runollinen laulaja.
+
+Tangomarkkinat jatkuu viikonloppuna. Miesten tangolaulukilpailu on lauantaina. Miesten kilpailun voittajasta tulee uusi tangokuningas.
+
+Tangomarkkinat järjestetään Seinäjoella joka kesä.

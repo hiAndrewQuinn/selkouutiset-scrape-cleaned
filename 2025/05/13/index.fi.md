@@ -1,0 +1,63 @@
+# TV | Selkouutiset | tiistai 13.5.2025
+
+Työttömyys. Ooppera Ratsumies. Jääkiekon MM-kultajoukkue. Sää.
+
+## Työttömyys on pahentunut
+
+Aluksi Suomen työttömyydestä.
+
+Työttömyys on 2 vuodessa pahentunut.
+
+Suomessa on nyt yli 60 000 työtöntä enemmän kuin vuonna 2023. Avoimia työpaikkoja on vain puolet 2 vuoden takaisesta.
+
+Yhteen työpaikkaan voi olla monta sataa hakijaa.
+
+Helsinkiläismies haki noin 100 työpaikkaan vuoden aikana. Tänä keväänä hän sai töitä ja aloitti kesätyön tässä kuussa.
+
+Hän sanoi, että vuoden työnhaku tuntui pitkältä ajalta.
+
+Työttömyys on 2 vuodessa pahentunut.
+
+Suomessa odotetaan, että työllisyys ehkä paranee. Siihen vaikuttavat korkojen lasku, inflaation eli hintojen lasku sekä palkkojen nousu.
+
+## Ooppera Ratsumies
+
+Sitten suomalaista oopperaa.
+
+Säveltäjä Aulis Sallinen viettää 90-vuotisjuhlia.
+
+Sallisen ooppera Ratsumies esitetään ensimmäistä kertaa Suomen Kansallisoopperassa.
+
+Ratsumiehen ensi-ilta oli 50 vuotta sitten Savonlinnan Oopperajuhlilla.
+
+Ratsumies on nyt yhtä ajankohtainen kuin kylmän sodan aikana. Silloin olivat vastakkain 2 suurvaltaa eli Yhdysvallat ja Neuvostoliitto sekä niiden liittolaiset.
+
+Ratsumiehen on nyt ohjannut Jussi Nikkilä. Ooppera kertoo tulevaisuudesta, jossa nykyajan uhkakuvat ovat totta. Suomi on oopperassa suurvaltojen välissä ei-kenenkään-maata.
+
+*- Oopperapartituuri on yleensä on niin kuin kaleidoskooppi, joka voidaan panna kuvastamaan hyvin paljon erilaisia asioita.*
+
+## Jääkiekon MM-kultajoukkue
+
+Lopuksi urheilua ja nostalgiaa.
+
+Suomi voitti miesten jääkiekon maailmanmestaruuden 30 vuotta sitten.
+
+Se oli Suomen ensimmäinen kiekon MM-kulta. Suomi voitti loppuottelussa Tukholmassa Ruotsin 4–1.
+
+Ensimmäinen kulta oli suomalaisille tärkeä tapahtuma, jota muistellaan edelleen.
+
+Vuoden 1995 kultajoukkue on kokoontunut 10 vuoden välein. Joukkue tapasi jälleen eilisiltana Tukholmassa.
+
+*- Yleensä se kun tultiin Suomeen, niin ei me tajuttukaan, kuinka iso juttu se oli ja se hulabaloo kesti koko kesän.*
+
+Eilen Ruotsi voitti Suomen 2 - 1.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna sataa vettä vaihtelevasti. Vettä voi sataa paljon kerralla.
+
+Etelässä on noin 10 lämpöastetta, pohjoisessa on 5 - 11.
+
+Tuuli on puuskaista.

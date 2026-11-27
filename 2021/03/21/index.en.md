@@ -1,0 +1,77 @@
+# Sunday 21.03.2021 (radio)
+
+Intensive care times for corona patients have become shorter. Climate emissions from government travel can be cut in half. The state will start supporting regional airports. Next week's EU summit will be held remotely.
+
+## Intensive care for corona has become shorter
+
+![Workers in protective equipment on both sides of a patient's bed.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11833615)
+
+Open image viewer
+
+A corona patient at the Rikshospitalet hospital in Oslo, November 2020. Photo: Jil Yngland / EPA
+
+Intensive care times for corona patients have become shorter. In the autumn and winter, the time spent in intensive care has been shorter than last spring.
+
+This year, an intensive care period has lasted on average 11 days. By the end of last August, it was 14 days.
+
+The reasons for the shorter time may be a medicine that holds back lung damage, and lighter breathing machine treatment.
+
+The data covers the time up to the end of February.
+
+At the same time, deaths in intensive care have risen somewhat. More people over 60 have come into intensive care than before. They have a higher risk of dying from corona than younger people.
+
+## Government cuts emissions by travelling less
+
+![Aircraft were being serviced in the Finnair hangar at the end of October 2020.](https://img.img-cdn.yle.fi/crop_extract,w_2956,h_1663,x_0,y_1834/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7630276002e3d0b6556/1610802548)
+
+Open image viewer
+
+Cutting flights for meetings saves nature and state money. Photo: Silja Viitala / Yle
+
+Climate emissions from government travel can be cut in half.
+
+The Ministry of Finance estimates that emissions can be halved over the coming years.
+
+Emissions can be reduced when flights and other trips, for example to meetings, are replaced by remote meetings.
+
+As well as emissions, money is also saved when costs are halved.
+
+The state will soon have a new travel strategy. It aims to reduce work trips.
+
+Because of corona, for example, the ministries' flight kilometres have been about 80 percent lower than before.
+
+## Regional airports are supported
+
+![Kajaani airport.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7084285f367dde4613d/1597406772)
+
+Open image viewer
+
+Kajaani airport. Photo: Timo Sihvonen / Yle
+
+The state will start supporting regional airports. Because of corona, only a small part of normal numbers of air passengers are flying.
+
+Purchased flights are about to start from the airports in Jyväskylä, Joensuu, Kajaani, Kemi-Tornio and Kokkola-Pietarsaari to Helsinki-Vantaa.
+
+The Finnish Transport and Communications Agency, Traficom, will decide next week who will operate the routes.
+
+The state plans to support individual flight tickets at about 100 euros on 5 regional airports.
+
+The state has set aside 11.5 million euros for buying flights. The purchased flights are due to start on 19 April and continue until the end of the year.
+
+## The EU meeting became a video meeting
+
+![Meeting](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11692260)
+
+Open image viewer
+
+Next week's summit cannot be held in Brussels because of corona. Photo: EPA
+
+Next week's EU summit will be held remotely. The leaders of the EU countries were due to meet in Brussels on Thursday and Friday.
+
+However, the President of the European Council, Charles Michel, has decided to hold a video meeting.
+
+Corona infections are rising in the member states of the Union.
+
+The meeting's agenda includes the corona pandemic and corona vaccinations. The list also includes the EU's digital single market and the Union's relations with Turkey and Russia.
+
+The next meeting is due to be held in Porto, Portugal, in early May.

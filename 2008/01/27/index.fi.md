@@ -1,0 +1,31 @@
+# Sunnuntai 27.1.2008 (radio)
+
+Tässä sunnuntain selkouutiset, studiossa on Lea Miettinen
+
+* * *
+
+Pääministeri Matti Vanhanen on vieraillut Kemijärvellä. Vanhanen matkusti Kemijärvelle sen takia, että hän haluaa keskustella ihmisten kanssa sellutehtaan lopettamisesta. Vanhanen sanoo, että kemijärveläisten pitää uskoa, että sellutehtaan lopettaminen on totta. Kemijärven ihmisten pitää hyväksyä se, että sellutehdasta ei enää ole. Kemijärvelle pitää saada uusia työpaikkoja. Vanhanen sanoo, että työpaikkoja pitää saada nopeasti.
+
+Torstaina uutisissa kerrottiin, että Kemijärven sellutehtaalla aletaan tehdä puusta tarvikkeita, joita käytetään talojen rakentamisessa. Vanhanen sanoo, että on hyvä asia, kun paikkakunnalle saadaan uusia työpaikkoja.
+
+Kemijärven asukkaat olivat pettyneitä pääministerin vierailuun. Asukkaat pelkäävät, että uudet työpaikat ovat vain tilapäisiä. Ihmiset vaativat, että sellutehtaan pitää jatkaa Kemijärvellä.
+
+* * *
+
+Indonesian entinen presidentti Suharto on kuollut. Näin kertovat lääkärit, jotka hoitivat Suhartoa. Suharto oli 86-vuotias, kun hän kuoli.
+
+Suharto hallitsi Indonesiaa yli 30 vuotta. Hän nousi valtaan vuonna 1965. Suhartoa pidettiin diktaattorina, koska hän hallitsi maata yksin ja omavaltaisesti.
+
+Suharto joutui eroamaan presidentin virasta vuonna 1998 suurten mielenosoitusten ja mellakoiden jälkeen. Maan talous oli silloin vaikeassa kriisissä. Suhartoa syytettiin valtion rahojen varastamisesta. Syyttäjät sanoivat, että Suharto varasti valtion kassasta satoja miljoonia euroja. Suhartoa syytettiin myös ihmisoikeusrikoksista. Hänen aikanaan Indonesiassa tapettiin ehkä noin miljoona poliittista vankia.
+
+Entinen presidentti ja kenraali Suharto ei saanut syytettä rikoksistaan, koska hänen terveytensä oli niin huono.
+
+Kenraali Suharto ei ollut julkisuudessa enää moneen vuoteen. Hän asui maan pääkaupungissa Jakartassa.
+
+* * *
+
+Presidentinvaalin esivaalit ovat jatkuneet Yhdysvalloissa. Nyt esivaali pidettiin Etelä-Carolinassa.
+
+Senaattori Barack Obama voitti demokraattisen puolueen esivaalin. Voitto tuli sen takia, että Etelä-Carolinassa on paljon mustaihoisia äänestäjiä. Senaattori Obama sai yli puolet äänistä. Toiseksi eniten ääniä sai Hillary Clinton, joka voitti edellisen esivaalin New Hampshiressa.
+
+Yhdysvaltojen presidentti valitaan marraskuussa.

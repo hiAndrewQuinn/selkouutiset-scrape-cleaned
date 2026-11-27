@@ -1,0 +1,65 @@
+# Lauantai 13.10.2018 (radio)
+
+3 ihmistä kuoli auto-onnettomuudessa Pohjois-Suomessa. Vihreiden puheenjohtajan sairausloma jatkuu. Hirvenmetsästys on alkanut koko Suomessa. Ilveksenmetsästystä vähennetään.
+
+## Kalajoen liikenneonnettomuus
+
+![Henkilöauto katollaan ojassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10455587)
+
+Avaa kuvien katselu
+
+Auto ajoi ulos tieltä kovaa vauhtia. Kuva: Tomi Hirvinen / Lehtikuva
+
+Pohjois-Suomessa on tapahtunut paha auto-onnettomuus. 3 ihmistä kuoli ja 1 ihminen loukkaantui onnettomuudessa. Kaikki olivat nuoria.
+
+Onnettomuus tapahtui Pohjois-Pohjanmaalla Kalajoella. Auto ajoi ulos tieltä perjantain ja lauantain välisenä yönä.
+
+Poliisi sanoo, että kuljettaja ehkä aiheutti onnettomuuden. Kuljettaja ajoi liian kovaa vauhtia. Auton nopeus oli ainakin 150 kilometriä tunnissa.
+
+Poliisi jatkaa onnettomuuden tutkimista.
+
+## Aallon sairausloma
+
+![Vihreiden puheenjohtaja Touko Aalto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10455593)
+
+Avaa kuvien katselu
+
+Vihreiden puheenjohtaja Touko Aalto. Kuva: Mikko Stig / Lehtikuva
+
+Vihreiden puheenjohtajan sairausloma jatkuu. Puolue kertoi lauantaina, että puheenjohtajan sairausloma jatkuu marraskuun puoliväliin asti.
+
+Puheenjohtaja Touko Aalto jäi sairauslomalle syyskuussa. Aalto kertoi silloin Facebookissa, että hän ei jaksa jatkaa raskasta työtä ilman taukoa. Aalto toivoi, että työssä jaksamisesta ja uupumisesta puhutaan Suomessa avoimesti.
+
+## Hirvenmetsästys
+
+![Hirvi tapettuna maassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10455600)
+
+Avaa kuvien katselu
+
+Hirvenmetsästys on taas alkanut. Kuva: Jussi Nukari / Lehtikuva
+
+Hirvenmetsästys on alkanut tänä viikonloppuna koko Suomessa. Viranomaiset ovat antaneet melkein 55 000 pyyntilupaa. Yhdellä luvalla saa ampua 1 aikuisen hirven tai 2 nuorta hirveä.
+
+Hirviä metsästetään esimerkiksi liikenneturvallisuuden takia. Suomessa tapahtuu yli 1800 hirvikolaria vuodessa. Hirvikolarit ovat vaarallisia, koska hirvi voi painaa jopa 700 kiloa.
+
+Hirvien määrä kasvaa myös kaupunkien lähellä. Siksi metsästäjiä liikkuu myös kaupunkien lähimetsissä.
+
+Metsästys ei saa kuitenkaan aiheuttaa vaaraa ihmisille. Metsästyksen johtajan pitää huolehtia siitä, että metsästys sujuu turvallisesti.
+
+## Ilveksenmetsästys
+
+![Kaksi ilvestä lumisessa metsässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5303369)
+
+Avaa kuvien katselu
+
+Ilves on ainoa kissaeläin Suomen luonnossa. Kuva: Yle
+
+Viranomaiset ovat myöntäneet tämän talven luvat myös ilveksenmetsästykseen.
+
+Ilveksenmetsästystä vähennetään, koska ilveksiä on vähemmän kuin ennen. Suomessa on nyt noin 2000 ilvestä.
+
+Viranomaiset ovat antaneet luvan ampua 205 ilvestä poronhoitoalueen ulkopuolella. Viime vuonna viranomaiset antoivat luvan ampua 404 ilvestä.
+
+Viranomaiset eivät määrää tarkkaan, kuinka monta ilvestä metsästäjät saavat ampua pohjoisen poronhoitoalueella. Syy on se, että ilvekset syövät poroja.
+
+Ilves on ainoa kissaeläin Suomen luonnossa. Ilves voi painaa yli 20 kiloa. Aikaisemmin ihmiset metsästivät ilveksiä, koska ilveksen turkki oli arvokas.

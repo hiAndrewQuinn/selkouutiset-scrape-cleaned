@@ -1,0 +1,79 @@
+# Tiistai 26.11.2019 (radio)
+
+Postin työriitaan on löytymässä ratkaisu. Joulupaketit ehtivät ajoissa perille. Väkiluku kasvaa enää maahanmuuton takia. Albaniassa on tapahtunut maanjäristys. Tampereen liukkailla kaduilla kaatui ja loukkaantui paljon ihmisiä.
+
+## Postilakko
+
+![Palvelualojen työnantajat Palta ry:n toimitusjohtaja Tuomas Aarto ja Posti- ja logistiikka-alan unioni PAU:n puheenjohtaja Heidi Nieminen kertoivat neuvottelutilanteesta lähtiessään Paltan tiloista kohti valtakunnansovittelijan toimistoa Helsingissä 26. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11088533)
+
+Avaa kuvien katselu
+
+Postilakon neuvottelijat olivat kiireisiä tiistaina. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Postin työriitaan on löytymässä ratkaisu. Postilakon neuvottelijat uskovat, että ratkaisu on lähellä.
+
+Neuvottelijat kertovat ratkaisusta tarkemmin, kun sopimus on valmis. Kun työriita on sovittu, myös postilakko loppuu.
+
+Postilakko on kestänyt jo yli 2 viikkoa. Lakko alkoi marraskuun 11. päivä. Lakon takia esimerkiksi kirjeet eivät ole kulkeneet.
+
+## Joulupaketit
+
+![Paketti Postin lajittelukeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9610349)
+
+Avaa kuvien katselu
+
+Paketit ehtivät hyvin jouluksi perille. Kuva: Yle
+
+Kotimaan joulupaketit ehtivät ajoissa perille, vaikka postilakko on jatkunut pitkään. Näin sanoo Posti.
+
+Jos asiakas postittaa joulupaketin jonnekin päin Suomea viimeistään joulukuun 20. päivä, paketti on jouluna perillä.
+
+Postilakko on hidastanut eniten paketteja, jotka tulevat Suomeen Euroopan ulkopuolelta.
+
+## Suomen väkiluku
+
+![Ihmisvilinää kauppakeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10097979)
+
+Avaa kuvien katselu
+
+Suomen väkiluku on kasvanut maahanmuuton ansiosta. Kuva: Henrietta Hassinen / Yle
+
+Suomen väkiluku on kasvanut vähän tänä vuonna. Suomessa oli lokakuun lopussa noin 8400 asukasta enemmän kuin tammikuun alussa.
+
+Suomalaisia on kuitenkin kuollut enemmän kuin syntynyt. Kuolleita oli yli 6000 enemmän kuin syntyneitä.
+
+Väkiluku on kasvanut vain maahanmuuton takia. Ulkomailta muutti Suomeen 15 000 ihmistä enemmän kuin Suomesta ulkomaille.
+
+Luvut koskevat siis aikaa tammikuun alun ja lokakuun lopun välillä.
+
+Suomen asukasluku on noin 5,5 miljoonaa.
+
+## Albanian maanjäristys
+
+![Järistyksen jälkiä Thumanessa Albaniassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11087086)
+
+Avaa kuvien katselu
+
+Ihmisiä jäi raunioihin, kun talot romahtivat. Kuva: Malton Dibra / AOP
+
+Balkanilla, Albaniassa on tapahtunut maanjäristys. Maanjäristyksessä on kuollut ihmisiä. Kuolleita on noin 20.
+
+Kuolleiden tarkkaa määrää ei tiedetä, koska ihmisiä on jäänyt raunioihin. Pelastajat yrittävät löytää heitä. Pelastustyöt ovat vaikeita, koska maanjäristyksessä romahti monta kerrostaloa.
+
+Järistys tapahtui aikaisin tiistaiaamuna. Järistyksen keskus oli 30 kilometrin päässä Albanian pääkaupungista Tiranasta.
+
+## Loukkaantumiset Tampereella
+
+![Tays ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10890572)
+
+Avaa kuvien katselu
+
+Tampereen ensiavussa oli tiistaina kiire. Kuva: Antti Eintola / Yle
+
+Täällä Suomessa Tampereen seudulla on ollut liukasta. Kadut olivat niin liukkaita, että monet kaatuivat pahasti.
+
+Tampereen ensiapuun tuotiin tiistaina noin 60 kaatunutta. He kaatuivat ja loukkaantuivat liukkaan kelin takia.
+
+Monet kaatuneista tarvitsivat jopa leikkaushoitoa. Noin 10 kaatunutta joutui leikkaussaliin.
+
+Liukkaan kelin syy oli vesisade. Vesi jäätyi teiden ja katujen pintaan.

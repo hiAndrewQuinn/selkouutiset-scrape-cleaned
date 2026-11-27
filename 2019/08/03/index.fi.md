@@ -1,0 +1,69 @@
+# Lauantai 3.8.2019 (radio)
+
+Poliisi on pidättänyt satoja mielenosoittajia Moskovassa. YK varoittaa terrori-iskuista. Turun saaristossa on ollut veneonnettomuus. Kristillisdemokraattien puheenjohtaja Sari Essayah on sairastunut rintasyöpään.
+
+## Moskovan mielenosoitus
+
+![Moskovan poliisi partioimassa opposition luvattomassa mielenosoituksessa 3. elokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10907122)
+
+Avaa kuvien katselu
+
+Moskovan poliisi partioimassa opposition luvattomassa mielenosoituksessa 3. elokuuta. Kuva: Maxim Shipenkov / EPA
+
+Venäjällä Moskovassa on ollut taas iso mielenosoitus. Poliisi on ottanut kiinni satoja ihmisiä.
+
+Mielenosoittajat vaativat esimerkiksi vapaita vaaleja.
+
+Viime viikolla poliisi otti Moskovassa kiinni lähes 1 400 mielenosoittajaa.
+
+## YK:n varoitus terrori-iskuista
+
+![Pelastustyöntekijöitä Rue de la Loin kadulla Brysselissä Maelbeekin metroasemalla tapahtumeen räjähdyksen jälkeen 22. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8760897)
+
+Avaa kuvien katselu
+
+Pelastustyöntekijöitä Brysselissä Maelbeekin metroasemalla tehdyn terrori-iskun jälkeen 22. maaliskuuta 2016. Kuva: Olivier Hoslet / EPA
+
+YK varoittaa, että tulossa voi olla uusia terrori-iskuja. YK:n raportti kertoo, että useita uusia iskuja tehdään ehkä ennen vuodenvaihdetta.
+
+Äärijärjestö Isisissä mukana olleet taistelijat ovat suuri uhka. Isisiin kuului noin 30 000 ulkomailta matkustanutta taistelijaa.
+
+Euroopasta Isisin joukkoihin matkusti noin 6 000 ihmistä. Raportti arvioi, että ehkä 2 000 entistä Isis-taistelijaa on palannut takaisin Eurooppaan.
+
+Terrori-iskuja on tehty länsimaissa vähemmän kuin vuosina 2015 ja 2016. Iskujen uhka on kuitenkin yhä korkea.
+
+## Veneonnettomuus Turun saaristossa
+
+![Onnettomuus veneet kuvassa pelastusyksiköiden välissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10907152)
+
+Avaa kuvien katselu
+
+Onnettomuusveneet ovat kuvassa pelastusyksiköiden välissä. Kuva: Länsi-Suomen Merivartiosto
+
+Turun saaristossa on sattunut veneonnettomuus.
+
+Moottorivene ja purjevene törmäsivät toisiinsa lähellä Seilin saarta.
+
+Merivartiosto kertoo, että 2 ihmistä on loukkaantunut vakavasti ja 4 ihmistä lievemmin. Vakavasti loukkaantuneet ovat kriittisessä tilassa. Loukkaantuneet on viety Turun yliopistolliseen keskussairaalaan.
+
+## Sari Essayahilla rintasyöpä
+
+![Sari Essayah](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10906953)
+
+Avaa kuvien katselu
+
+Sari Essayah. Kuva: AOP
+
+Kristillisdemokraattisen puolueen puheenjohtaja Sari Essayah on sairastunut rintasyöpään. Puolueen KD-lehti kertoo, että Essayah jää 2 viikon sairauslomalle syöpähoitojen takia. Essayah myös harkitsee, lähteekö hän enää ehdolle puolueen puheenjohtajaksi.
+
+Kristillisdemokraatit pitävät puoluekokouksen Oulussa elokuun lopulla. Kokouksessa valitaan puolueen puheenjohtaja.
+
+Sari Essayah on myös kansanedustaja. Hän toivoo, että voi jatkaa kansanedustajan työtä eduskunnassa syyskuussa, kun istuntokausi alkaa.
+
+## Kaupunkifestivaali Pointti
+
+Helsingissä on ollut 3 päivää kestänyt kaupunkifestivaali Pointti. Pointti-festivaalin järjestivät Yle ja Helsingin kaupunki.
+
+Pointissa ihmiset ovat voineet tavata ohjelmien tekijöitä ja osallistua ohjelmien tekemiseen.
+
+Selkouutiset oli mukana Pointissa tänään lauantaina. Lämmin kiitos kaikille, jotka kävitte tapaamassa meitä!

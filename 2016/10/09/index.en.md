@@ -1,0 +1,63 @@
+# Sunday 9.10.2016 (radio)
+
+The Ministry of the Interior hopes that Iraqi asylum seekers will return to Iraq voluntarily, if they do not get a residence permit in Finland. Lithuanians have voted in the parliamentary election. Soon it is time to get a flu vaccine. A researcher on sisu recommends mini-sisu.
+
+## Iraqi asylum seekers
+
+![Sahdoon Dzwar has already told his story to many media in Finland. &quot;I would rather go to a Finnish prison than return to Iraq&quot;, Sahdoon says. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9217284)
+
+Open image viewer
+
+Sahdoon Dzwar is one of the Iraqis who have received a negative asylum decision.
+
+The Ministry of the Interior is planning what to do with Iraqi asylum seekers who do not get a residence permit in Finland.
+
+This year more than 6,000 Iraqis have received a negative asylum decision, which means they are not allowed to stay in Finland. The Ministry of the Interior is trying to get them to return to Iraq voluntarily. Iraqis cannot be forced to return, because Finland and Iraq do not have a return agreement.
+
+When an asylum seeker gets a negative asylum decision, he or she may not stay living in the reception centre. However, the Ministry of the Interior says that nobody will be left outside in the frost in winter.
+
+## The Lithuanian election
+
+![An election advert and a campaign tent behind it. Passers-by under umbrellas in front. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9216606)
+
+Open image viewer
+
+An election advert on a Lithuanian street. Photo: Valda Kalnina / EPA
+
+Lithuanians have voted in the parliamentary election on Sunday. Lithuania is one of the Baltic countries.
+
+The main issue in the Lithuanian election is the economy. Many Lithuanians have moved abroad, because wages in Lithuania are low.
+
+Lithuania has 3 million inhabitants, but 400,000 Lithuanians live in other EU countries. Half of them are in Britain.
+
+All the parties have now promised Lithuanians higher wages and new jobs. On Monday it will be revealed which party is the winner of the election.
+
+## Flu vaccine
+
+![A vaccination in progress.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8643679)
+
+Open image viewer
+
+The vaccine gives protection against flu. Photo: Susanna Wacklin / Yle
+
+Soon it is flu time again. Flu is a more serious illness than an ordinary cold. A flu patient often has a very high fever, for example.
+
+More than a million Finns need a flu vaccine. People who have asthma, for example, need the vaccine. Small children and elderly people also get the vaccine for free.
+
+Researchers around the world are trying to develop a vaccine that gives long-lasting protection against flu. There is no such vaccine yet, and so people need a new flu vaccine every year.
+
+## Mini-sisu
+
+![Emilia Lahti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9219056)
+
+Open image viewer
+
+Sisu researcher Emilia Lahti. Photo: Yle
+
+Emilia Lahti is a Finnish sisu researcher. Lahti studies sisu, and she also has sisu.
+
+Now Lahti is preparing for next year's run across New Zealand. That means a running distance of 2,300 kilometres.
+
+To others Lahti recommends mini-sisu, that is, small sisu. Mini-sisu is, for example, walking the dog in sleet.
+
+"It is important that you do things with your heart, and praise and encourage others," Lahti says. "You should not be afraid of new tasks. You get through them by taking one step at a time," sisu researcher Emilia Lahti advises.

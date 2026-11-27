@@ -1,0 +1,71 @@
+# Maanantai 11.2. (radio)
+
+Hyönteisten määrä vähentyy. Euroopan komission mielestä ydinvoimaloita pitää rakentaa lisää. Intiassa yli 100 ihmistä on kuollut myrkkyviinaan. Lapissa kävi ennätysmäärä turisteja. Suomessa on uusi nimilaki.
+
+## Hyönteisten määrä vähentyy
+
+![Vehnää puidaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10640615)
+
+Avaa kuvien katselu
+
+Myrkyt vähentävät hyönteisten määrää. Kuva: Jim Pickerell / AOP
+
+Hyönteiset vähentyvät maailmassa. Kansainvälinen tutkimus kertoo, että 10 vuoden kuluttua 25 prosenttia hyönteisistä on poissa. 
+
+Tutkimuksesta selviää, että 100 vuoden kuluttua hyönteisiä ei ole enää ollenkaan. Jos hyönteisiä ei ole, luonto ei selviä. 
+
+Hyönteisten vähentyminen johtuu hyönteismyrkyistä. Myös esimerkiksi kaupunkien laajentuminen ja ilmaston lämpeneminen vähentävät hyönteisiä.
+
+## EU tarvitsee uusia ydinvoimaloita, sanoo komissio
+
+![Cattenomissa, Ranskassa sijaitseva ydinvoimala.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10636429)
+
+Avaa kuvien katselu
+
+Ydinvoimaloita tarvitaan lisää, sanoo Euroopan komissio. Kuva: Julien Warnand / EPA
+
+Euroopan komissio sanoo, että EU tarvitsee monta kymmentä uutta ydinvoimalaa. 
+
+Euroopan komission mielestä ydinvoimaloita on pakko rakentaa lisää, että ilmastopäästöjä tulee vähemmän. Euroopan unioni haluaa lopettaa kivihiilen käytön kokonaan 30 vuoden kuluttua. Kivihiili aiheuttaa paljon päästöjä. 
+
+Tulevaisuudessa EU:n sähkö tulee vain ydinvoimasta ja uusiutuvasta energiasta. Esimerkiksi tuulivoima on uusiutuvaa energiaa. Ilmastonmuutos nostaa maapallon lämpötilaa. Päästöt nopeuttavat ilmastonmuutosta.
+
+## Myrkkyviina tappaa ihmisiä Intiassa
+
+![Itsevalmistettua maalaisviinaa juodaan kadulla Kalkutassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10640840)
+
+Avaa kuvien katselu
+
+Itse tehtyä viinaa juodaan kadulla Intiassa. Kuva: Piyal Adhikary / EPA
+
+Intiassa yli 100 ihmistä on kuollut, kun he ovat juoneet laitonta alkoholia. Lisäksi moni on joutunut sairaalaan myrkytyksen takia. 
+
+Myrkytyksen uhrit kärsivät vatsakivuista ja hengitysvaikeuksista ennen kuolemaansa. 
+
+Intiassa köyhillä ihmisillä ei ole aina varaa ostaa alkoholia kaupasta. Myrkyllinen alkoholi tappaa usein ihmisiä Intiassa. Nyt sattunut tapaus on kuitenkin harvinaisen paha.
+
+## Lapissa kävi ennätysmäärä turisteja
+
+![Joulupukin Pajakylä Rovaniemellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10589803)
+
+Avaa kuvien katselu
+
+Turisteja joulupukin Pajakylässä Rovaniemellä Lapissa. Kuva: Esko Jämsä / AOP
+
+Lapissa kävi viime vuonna enemmän turisteja kuin koskaan aikaisemmin. 
+
+Eniten ulkomaalaisia turisteja tuli Lappiin Iso-Britannista ja Ranskasta. Ulkomaalaiset yöpyivät Lapissa lähes 6 prosenttia enemmän kuin vuotta aikaisemmin. Lapissa matkailijoiden määrä on lisääntynyt paljon nopeammin kuin muualla Suomessa. 
+
+Turisteja menee Lappiin eniten joulukuussa.
+
+## Uusi laki määrää nimistä
+
+![Sukunimitaulu ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10581556)
+
+Avaa kuvien katselu
+
+Suomessa on uusi nimilaki. Kuva: Timo Sihvonen/ Yle
+
+Suomessa on uusi nimilaki. Laki tuli voimaan tämän vuoden alussa. Nimilaki määrää, minkälaisia etunimiä ja sukunimiä Suomessa saa olla. 
+
+Selkouutisten nettisivuilla on nyt 2 videota, jotka kertovat uudesta nimilaista. Toinen video kertoo etunimistä, ja toinen video kertoo sukunimistä.

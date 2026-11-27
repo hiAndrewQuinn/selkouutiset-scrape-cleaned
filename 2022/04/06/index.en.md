@@ -1,0 +1,95 @@
+# Wednesday 6.4.2022 (radio)
+
+Ukraine's President. Finnish army. Municipal sector strike. Nurses' strike. Construction site supervisors. Weather.
+
+## Ukraine's President
+
+![Volodymyr Zelenskyy](https://img.img-cdn.yle.fi/crop_extract,w_1043,h_586,x_0,y_19/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-932348623b5da6ece7c/1648185562)
+
+Open image viewer
+
+Ukrainian President Volodymyr Zelenskyy. Photo: Handout / AFP
+
+The Ukrainian President will speak to the Finnish Parliament, the Eduskunta, on Friday.
+
+President Volodymyr Zelenskyy will speak to Parliament via a remote connection. Zelenskyy will speak in Ukrainian, but the speech will be interpreted into English for Parliament.
+
+All Finns can follow the speech on Yle Areena or TV1. In the TV broadcast, the speech will be interpreted into Finnish.
+
+The Ukrainian President has spoken to the parliaments of many countries during the war in Ukraine. The war in Ukraine began at the end of February, when Russia attacked Ukraine.
+
+## The Finnish army
+
+![Defence Minister Antti Kaikkonen and Defence Forces Commander Timo Kivinen speak at a press conference.](https://img.img-cdn.yle.fi/crop_extract,w_5808,h_3267,x_0,y_75/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-938605624d5c0b5d5cd/1649237031)
+
+Open image viewer
+
+Defence Minister Antti Kaikkonen told about the army's procurements. Photo: Henrietta Hassinen / Yle
+
+The Finnish army is improving its defence capability. The army is buying more weapons and hiring more employees.
+
+The army can make purchases because the government has promised the army about 2 billion euros more money in the coming years.
+
+Finland's defence is being strengthened because of the war in Ukraine. Peace in Europe ended when Russia attacked Ukraine in February.
+
+## Municipal sector strike
+
+![Strikers at Lordinaukio in Rovaniemi.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_4,y_567/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-938707624d7493b40ae/1649243342)
+
+Open image viewer
+
+Strikers in Rovaniemi. Photo: Mia Sivula / Yle
+
+Many municipal sector employees are on strike.
+
+There are strikes in 4 cities: Turku, Jyväskylä, Oulu and Rovaniemi. The strike lasts 2 days, that is, Wednesday and Thursday.
+
+During the strike, employees do not work. The strike includes social workers and librarians, for example.
+
+Teachers are also on strike, and therefore schools are now closed in Turku, Jyväskylä, Oulu and Rovaniemi.
+
+## Nurses' strike
+
+![SuPer chair Silja Paavola (left) and Tehy chair Millariikka Rytkönen led their forces in the nurses' demonstration in the Meilahti campus area in Helsinki on 1 April 2022.](https://img.img-cdn.yle.fi/crop_extract,w_5107,h_2875,x_0,y_194/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-938285624c4b7bc3f98/1649682067)
+
+Open image viewer
+
+Nurses demand more pay. Photo: Markku Ulander / Lehtikuva
+
+The nurses' strike also continues. Part of Finland's nurses are on strike.
+
+The strike began at the start of April, and it will last 2 weeks.
+
+About 25,000 nurses are on strike in different parts of Finland. Nurses demand more pay.
+
+Because of the strike, for example, operating theatres have been closed and operations cancelled.
+
+## Construction site supervisors
+
+![Construction site of Kotka's new event centre.](https://img.img-cdn.yle.fi/crop_extract,w_2079,h_1170,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9190596215f26e5cf86/1645605691)
+
+Open image viewer
+
+There are many construction sites in Finland. Photo: Juulia Tillaeus / Yle
+
+More construction site supervisors are needed in the construction sector. More supervisors are needed than before, because a lot is being built in Finland.
+
+In addition, construction sites often need several supervisors, because construction is now technical and complicated. If a large construction site has only one supervisor, they have too much work.
+
+The lack of supervisors is already slowing the growth of construction companies.
+
+## The weather
+
+![Weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12394028)
+
+Open image viewer
+
+On Thursday more snow and sleet will spread to the south and east of the country.
+
+In the north, local snowfalls will also continue.
+
+In the west the sun shines in places during the day.
+
+On Thursday the temperature will rise above zero in a large part of the country.
+
+On Friday the next snowfall will come to Finland. Part of the precipitation will be rain in the southern and central parts of the country.

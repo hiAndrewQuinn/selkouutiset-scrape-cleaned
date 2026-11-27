@@ -1,0 +1,7 @@
+# Keskiviikko 27.4.2016 (tv)
+
+Maahanmuuttajamiehet voivat saada Suomessa töitä aika hyvin. Maahanmuuttajanaisten työllisyys on paljon huonompaa. Yhdysvaltain mielestä Isis heikkenee. Tappara on Suomen mestari jääkiekossa. Suomessa alkaa kesämökkikausi. Sää lämpenee.
+
+Yle Uutiset selkosuomeksi
+
+Maahanmuuttajamiehet voivat saada Suomessa töitä aika hyvin. Maahanmuuttajanaisten työllisyys on paljon huonompaa. Yhdysvaltain mielestä Isis heikkenee. Tappara on Suomen mestari jääkiekossa. Suomessa alkaa kesämökkikausi. Sää lämpenee.

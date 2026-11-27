@@ -1,0 +1,79 @@
+# Maanantai 21.11.2022 (radio)
+
+Indonesian maanjäristys. Finnairin työpaikat. Kahvin hinta. Marinin muotokuva. Sää.
+
+## Indonesian maanjäristys
+
+![Romahtanut talo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12679778)
+
+Avaa kuvien katselu
+
+Indonesian maanjäristyksessä romahti paljon taloja. Kuva: EPA
+
+Indonesiassa Jaavan saarella on tapahtunut maanjäristys. Maanjäristyksessä kuoli yli 160 ihmistä. Loukkaantuneita on monta sataa. 
+
+Luvut voivat vielä kasvaa, kun pelastustyöt etenevät. Pelastustyöntekijät voivat löytää lisää ihmisiä taloista, jotka sortuivat maanjäristyksessä.
+
+Suomen presidentti Sauli Niinistö on ottanut osaa indonesialaisten suruun. Niinistö lähetti asiasta viestin Indonesian presidentille Joko Widodolle.
+
+## Finnairin työpaikat
+
+![Finnairin lentokone nousee kentältä](https://img.img-cdn.yle.fi/crop_extract,w_2875,h_1617,x_703,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1005590631b1ba07bfb1/1701790760)
+
+Avaa kuvien katselu
+
+Kuva: Tuomas Rimpiläinen / Yle
+
+Lentoyhtiö Finnair vähentää työpaikkoja. 
+
+Finnair lopettaa Suomesta 90 työpaikkaa. Yhteensä Finnair lopettaa 150 työpaikkaa.
+
+Työpaikat vähenevät Finnairin toimistoissa. Esimerkiksi johtajien ja asiantuntijoiden työpaikat vähenevät.
+
+Finnair kertoo, että se vähentää työpaikkoja Venäjän tilanteen takia. Finnairin lentokoneet eivät voi enää lentää Venäjän yllä.
+
+Finnair suunnittelee myös matkustamotyöntekijöiden irtisanomisia. Asiasta ei ole kuitenkaan vielä tehty päätöksiä.
+
+## Kahvin hinta
+
+![Valmiiksi paahdettuja kahvipapuja pyörimässä jäähdyttimellä Lehmus Roastery-kahvipaahtimolla Lappeenrannassa.](https://img.img-cdn.yle.fi/crop_extract,w_3664,h_2061,x_1,y_381/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90264061e531de4864c/1642411598)
+
+Avaa kuvien katselu
+
+Kahvin hinta maailmanmarkkinoilla on alkanut laskea. Kuva: Mikko Savolainen / Yle
+
+Kahvin hinta laskee maailmalla. 
+
+Kahvi on ollut jo jonkin aikaa tosi kallista. Nyt sen hinta maailmanmarkkinoilla laskee.
+
+Kahvin maailmanmarkkinahinta vaikuttaa kaupan hintoihin hitaasti. Suomalaiset kahvipaahtimot kertovat, että Suomessa kahvin hinta alkaa laskea vasta monen kuukauden kuluttua.
+
+Suomalaiset juovat edelleen paljon kahvia, vaikka kahvi on nyt kallista.
+
+## Marinin muotokuva
+
+![Meeri Koutaniemi seisoo Sanna Marinin muotokuvan vieressä. Punaisen ja kullan sävyisessä kuvassa Sanna Marin katsoo yläviistoon.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_351/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1036856637b45c5b0d63/1669023527)
+
+Avaa kuvien katselu
+
+Valokuvataiteilija Meeri Koutaniemi on tehnyt Sanna Marinin uuden muotokuvan. Kuva: Jani Aarnio / Yle
+
+Tampereella on paljastettu uusi muotokuva pääministeri Sanna Marinista. Muotokuva tulee Tampereen virastotaloon.
+
+Sanna Marin oli aikaisemmin Tampereen kaupunginvaltuuston puheenjohtaja. Marinin muotokuva tulee samaan paikkaan kuin aikaisempien puheenjohtajien muotokuvat.
+
+Marinin muotokuva on kuitenkin uudenlainen. Se ei ole maalaus, vaan valokuva. Sanna Marin halusi itse, että muotokuvan tekee valokuvataiteilija Meeri Koutaniemi.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12679779)
+
+Avaa kuvien katselu
+
+Maanantai on ollut kylmä päivä. Lapissa Sodankylässä mitattiin 26 pakkasastetta.
+
+Etelässä Uudellamaalla ajokeli on huono, koska lunta on satanut 3-5 senttimetriä.
+
+Tiistaina koko maassa on poutaista pakkassäätä. Aurinko voi paistaa paikoin maan länsi- ja pohjoisosassa.
+
+Lämpötila on tiistaina -1 ja -5 asteen välillä, pohjoisessa -10 ja -25 asteen välillä. Keskiviikkona pakkanen vähän heikkenee pohjoisessa.

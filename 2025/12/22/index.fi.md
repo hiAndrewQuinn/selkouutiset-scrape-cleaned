@@ -1,0 +1,81 @@
+# TV | Selkouutiset | maanantai 22.12.2025
+
+Kalan tuoreus. Sinihomejuusto. Joululahjat. Tiistain sää.
+
+## Kalan tuoreus kaupoissa
+
+Aluksi uutinen kalojen myynnistä.
+
+Monilla kalatiskeillä myydään melko vanhaa kalaa.
+
+Yle tutki kalojen tuoreutta 29:ssä kaupassa eri puolilla Suomea.
+
+Monilla kalatiskeillä oli kalaa, joka oli noin viikon vanhaa.
+
+Joillakin kalatiskeillä oli jopa 10 päivää vanhaa kalaa.
+
+Asiantuntija sanoo, että yli viikon vanhaa kalaa ei kannata syödä.
+
+Esimerkiksi sushiin tai graavaukseen kalan pitää olla tuore.
+
+Jos kala paistetaan, myös viikon vanhaa kalaa voi syödä.
+
+Näin sanoo Marttaliiton johtava asiantuntija **Marjo Rantapusa**.
+
+*”Jos tekisin sushia tai graavikalaa niin en käyttäisi enää viikon vanhaa, mutta jos olisin tekemässä uunilohta tai muuta uunikalaa niin siihen voisin käyttää.”*
+
+Monilla kalatiskeillä myydään melko vanhaa kalaa.
+
+Kalatiskeillä pitää olla taulu, josta näkee kalojen iän.
+
+## Sinihomejuusto
+
+Nyt uutinen sinihomejuustosta.
+
+Suomalaiset syövät paljon sinihomejuustoa jouluna.
+
+Sinihomejuustojen myynti yli kaksinkertaistuu joulun aikaan.
+
+Juustoloissa on kova kiire.
+
+Tämä on Valion tehdas Äänekoskella.
+
+Aura-juustoa tehdään jo lokakuusta alkaen 2 vuorossa 7 päivää viikossa. Apuna on noin 15 kausityöntekijää.
+
+Suomalaiset syövät joulukuussa yli 350 000 kiloa sinihomejuustoa.
+
+Valion lisäksi Suomessa on myös pieniä valmistajia, esimerkiksi Peltolan juustola Suonenjoella.
+
+Se myy sinihomejuustoa erityisesti ravintoloille.
+
+Sinihomejuusto on suomalaisten suosituin erikoisjuusto.
+
+## Joululahjaostokset
+
+Lopuksi uutinen joululahjaostoksista.
+
+Joululahjakauppa on nyt vilkasta.
+
+Lautapelit ja palapelit ovat edelleen suosittuja lahjoja.
+
+Suosittuja ovat myös pehmolelut.
+
+Ainakin yksi vanha lelu on tehnyt paluun.
+
+Lelukauppias **Leena Anttila** kertoo, että kurkkumopojen myynti on yllättänyt.
+
+Kurkkumoposta on tehty myös pehmolelu.
+
+Joululahjakauppa on nyt vilkasta.
+
+Myös kierrätyslahjojen myynti kasvaa. Tämä näkyy kierrätysmyymälöissä. Esimerkiksi kirjat ja pelit ovat suosittuja kierrätyslahjoja.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Tiistaina sää kylmenee etelässä.
+
+Pohjoisessa sää lauhtuu eli lämpötila nousee.
+
+Pohjois-Suomessa ja idässä tulee lumisateita.

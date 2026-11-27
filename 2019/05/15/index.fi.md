@@ -1,0 +1,67 @@
+# Keskiviikko 15.5.2019 (radio)
+
+Eurovaalien ennakkoäänestys alkoi. Yksi kirjoitti kymmenen laudaturia. Kaksi kuoli pahassa kolarissa. Monet'n taulusta maksettiin huippuhinta. Look away ei päässyt Euroviisujen finaaliin.
+
+## Eurovaalien ennakkoäänestys alkoi
+
+![Ennakkoäänestyspaikka postissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10783950)
+
+Avaa kuvien katselu
+
+Eurovaalit ovat ihan lähellä. Nyt voi käydä jo äänestämässä.  Kuva: Heikki Saukkomaa / Lehtikuva
+
+Eurovaalien ennakkoäänestys on alkanut. Päivällä näytti siltä, että äänestäjiä oli liikkeellä enemmän kuin eurovaaleissa 5 vuotta sitten ensimmäisenä äänestyspäivänä. Äänestäminen oli päivällä vilkkainta Helsingissä ja hiljaisinta Vaasan vaalialueella.
+
+Eurovaaleissa voi äänestää ennakkoon ensi tiistaihin asti esimerkiksi kauppakeskuksissa, kunnantaloissa ja posteissa. Eurovaaleissa ehdokkaat ovat samat koko maassa.
+
+Vaalit pidetään ensi viikon sunnuntaina. Suomalaiset valitsevat 13 edustajaa Euroopan parlamenttiin. Sopivaa vaaliehdokasta voi etsiä esimerkiksi Ylen vaalikoneesta osoitteessa: vaalikone.yle.fi.
+
+## Yksi kirjoitti kymmenen laudaturia
+
+![Nuori nainen ylioppilaslakki päässään](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_146/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5079605b910936e9d5b/1536231896)
+
+Avaa kuvien katselu
+
+Suomessa ylioppilaan merkki on valkolakki. Kuva: Henrietta Hassinen / Yle
+
+Tänään kerrottiin ylioppilaskirjoitusten tulokset. Ylioppilaskokeen paras arvosana on laudatur. Tänä keväänä viisi henkilöä kirjoitti 8 laudaturia.
+
+Yksi henkilö kirjoitti jopa 10 laudaturia. Hän on Amanda Sandelin Kauniaisten ruotsinkielisestä lukiosta.
+
+Kevään ylioppilaskokeeseen osallistui noin 40 000 oppilasta. Kokeet pidettiin maaliskuussa. Ylioppilaaksi pääsee nyt yli 25 000 henkilöä. Heitä juhlitaan kesäkuun ensimmäinen päivä. Uudet ylioppilaat saavat valkolakin.
+
+## Kaksi kuoli pahassa kolarissa
+
+![Liikenneonnettomuus Simossa 15.5.2019](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10783906)
+
+Avaa kuvien katselu
+
+Valtatie 4 meni poikki, kun kaksi ihmistä kuoli henkilöauton ja rekan kolarissa Lounais-Lapissa Simossa. Kuva: Jutta Huovinen / Yle
+
+Kaksi ihmistä on kuollut pahassa kolarissa Lapissa. Onnettomuus sattui aamulla Simossa valtatiellä 4. Onnettomuudessa henkilöauto ja rekka ajoivat nokkakolarin.
+
+Poliisin mukaan sekä rekan että henkilöauton kuljettaja kuolivat. Viranomaiset joutuivat sulkemaan valtatien onnettomuuden takia. Se on ollut poikki pitkän ajan keskiviikkona.
+
+## Monet'n taulusta maksettiin huippuhinta
+
+![Maalaus seinällä esillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10784314)
+
+Avaa kuvien katselu
+
+Claude Monet'n maalaus Meules.  Kuva: Justin Lane / EPA
+
+Yhdysvalloissa New Yorkissa on maksettu 98 miljoonaa dollaria ranskalaisen taidemaalarin Claud Monet'n taulusta. Maailmassa ei ole koskaan maksettu näin paljon Monet'n maalauksesta.
+
+Hinta on tosi korkea myös koko taidemaailmassa. Suomessa on myös samaan maalausten sarjaan kuuluva teos. Se on Mäntän kaupungissa, Serlachiuksen taidemuseossa.
+
+## Look away ei päässyt Euroviisujen finaaliin.
+
+![Darude ja Sebastian Rejman](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10783159)
+
+Avaa kuvien katselu
+
+Darude ja Sebastian Rejmanin biisi Look away ei päässyt Euroviisujen finaaliin Tel Avivissa Israelissa. Kuva: Thomas Hanses
+
+Suomea ei nähdä tänä vuonna Euroviisujen finaalissa. Suomen viisuedustajat Darude ja Sebastian Rejman esiintyivät eilen tiistaina semifinaalissa. Suomen esitystä Look away ei valittu mukaan finaaliin.
+
+Esitys kertoi ilmastonmuutoksesta. Suomen edustajat olivat pettyneitä.

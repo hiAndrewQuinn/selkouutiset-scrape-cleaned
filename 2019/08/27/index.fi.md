@@ -1,0 +1,67 @@
+# Tiistai 27.8.2019 (radio)
+
+Poliisipartio ei ehtinyt käyttää asetta Porvoon ampumistilanteessa, Ylen tiedot kertovat. Joka kuudes taksiyrittäjä on jättänyt maksamatta veroja tai ulosottomaksuja. Helsingin keskustakirjasto Oodi on saanut maailman parhaan yleisen kirjaston palkinnon. Suomen järvet ovat hyvässä kunnossa.
+
+## Poliisi on kuullut Porvoon epäiltyjä ampujia
+
+![Porvoossa oli meneillään suuri poliisioperaatio varhain sunnuntaina 25. elokuuta. Tutkintaa tehtiin Ölstensin teollisuusalueella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10937487)
+
+Avaa kuvien katselu
+
+Porvoossa oli meneillään suuri poliisioperaatio varhain sunnuntaina 25. elokuuta. Tutkintaa tehtiin Ölstensin teollisuusalueella. Kuva: Roni Rekomaa / Lehtikuva
+
+Yle on saanut tiedon, että poliisipartio ei ehtinyt käyttää asetta Porvoon ampumistilanteessa. 2 poliisia loukkaantui, kun heitä ammuttiin virkatehtävissä lauantain ja sunnuntain välisenä yönä Porvoossa.
+
+Ampumisista epäillään ruotsalaisia veljeksiä. He ovat 25- ja 30-vuotiaita. Heidät saatiin kiinni takaa-ajon jälkeen sunnuntai-iltana Ikaalisissa lähellä Tamperetta.
+
+Keskusrikospoliisi on kuullut epäiltyjä tiistaina ensimmäistä kertaa. Poliisi epäilee miehiä useista murhan yrityksistä.
+
+Veljekset ovat Ruotsin kansalaisia. Toisella heistä on myös Suomen kansalaisuus.
+
+Poliisi aikoo vaatia keskiviikkona, että miehet vangitaan.
+
+## Taksiyrittäjillä on maksurästejä
+
+![Taksiautoja taksiasemalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10856197)
+
+Avaa kuvien katselu
+
+Monilla taksiyrityksillä on 3 kuukautta aikaa hoitaa maksurästit pois. Kuva: Antti Lähteenmäki / Yle
+
+Sadat taksiyritykset ovat talousvaikeuksissa. Yli 300 taksiyrittäjää eli joka kuudes taksiyrittäjä on jättänyt maksamatta veroja tai ulosottomaksuja. Verovelka on keskimäärin 16 500 euroa.
+
+Traficom lähettää lähipäivinä taksiyrittäjille kehotuskirjeen. Traficom on virasto, joka myöntää taksiluvat. Kirjeessä kehotetaan hoitamaan maksut kuntoon 3 kuukauden aikana. Jos se ei onnistu, taksilupa otetaan pois.
+
+Kehotuksia on yli 2 kertaa niin paljon kuin vanhan taksilain aikana. Uusi taksilaki tuli voimaan viime vuoden heinäkuussa. Uusia taksilupia myönnettiin 4000.
+
+## Oodi on maailman paras yleinen kirjasto
+
+![Keskustakirjasto Oodi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10940186)
+
+Avaa kuvien katselu
+
+Keskustakirjasto Oodi on saanut taas uuden tunnustuksen.  Kuva: Ismo Pekkarinen / AOP
+
+Helsingin uusi keskustakirjasto Oodi on saanut maailman parhaan yleisen kirjaston palkinnon. Palkinnon takana ovat Kirjastojen kansainvälinen liitto IFLA ja tietotekniikka-yritys Systematic.
+
+16 kirjastoa eri puolilta maailmaa haki palkintoa. Finalistit valitsi kansainvälinen tuomaristo, jossa on kirjastoalan asiantuntijoita.
+
+Palkinnon arvo on 5000 Yhdysvaltain dollaria.
+
+Oodi avattiin viime joulukuussa itsenäisyyspäivän aattona. Oodissa on ollut tänä vuonna jo yli 2,1 miljoonaa käyntiä.
+
+## Suomen järvet ovat kunnossa
+
+![Pielinen heinäkuussa 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10882223)
+
+Avaa kuvien katselu
+
+Kuva: Pauliina Tolvanen / Yle
+
+Suomen ympäristökeskus kertoo, että Suomen järvet voivat hyvin.
+
+Järvien pinta-alasta 87 prosenttia on hyvässä tai erinomaisessa tilassa. Pienet järvet ovat huonommassa tilassa kuin suuret.
+
+Sisävesien tila ei ole muuttunut merkittävästi vuodesta 2013.
+
+Merien rannikoiden vedet eivät sen sijaan ole yhtä hyvässä kunnossa. Pohjanlahti on paremmassa kunnossa kuin Suomenlahti.

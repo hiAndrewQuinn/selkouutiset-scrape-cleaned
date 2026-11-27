@@ -1,0 +1,79 @@
+# Tiistai 22.9.2020 (radio)
+
+Ulkomaalaiset eivät aina uskalla hakea työttömyyskorvausta. Työttömyys on kasvanut. PVL pitää lakkauttaa. Suomessa on yli sata uutta koronatartuntaa. Saavutettavuusdirektiivi tulee voimaan.
+
+## Työttömyys on kasvanut
+
+![Kerrostalon rakennustöitä.](https://img.img-cdn.yle.fi/crop_extract,w_3587,h_2018,x_0,y_376/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6689505ea80c6d06f00/1588072177)
+
+Avaa kuvien katselu
+
+Kuva: Henrietta Hassinen / Yle
+
+Työttömien määrä lisääntyi viime kuussa neljänneksen vuoden takaisesta.
+
+Tilastokeskus kertoo, että elokuussa oli noin 210 000 työtöntä. Se on yli 42 000 enemmän kuin vuosi sitten samaan aikaan.
+
+Työttömyysaste oli 7,7 prosenttia, kun vuotta aiemmin se oli noin 6.
+
+Lomautettuna oli noin 60 000 ihmistä.
+
+## Ulkomaalaiset eivät uskalla kertoa työttömyydestä
+
+![Ikkunanpesua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11433984)
+
+Avaa kuvien katselu
+
+Kuva: Tiina Jutila / Yle
+
+Suomen ulkomaalaiset eivät aina uskalla tai osaa hakea työttömyyskorvausta. Maahanmuuttovirasto voi perua oleskeluluvan, jos se saa tiedon työttömyydestä.
+
+Työt esimerkiksi siivousalalla ja ravintola-alalla ovat koronan takia vähentyneet. Se ei kuitenkaan näy työttömyystilastoissa.
+
+Työntekijän oleskeluluvalla on Suomessa yli 10 000 ulkomaalaista.
+
+## Korkein oikeus lakkautti PVL:n
+
+![Pohjoismaisen vastarintaliikkeen kulkue Hakaniemessä 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10533870)
+
+Avaa kuvien katselu
+
+PVL:n kulkue. Kuva: Jyrki Lyytikkä / Yle
+
+Korkein oikeus on määrännyt, että uusnatsijärjestö Pohjoismainen vastarintaliike PVL pitää lakkauttaa.
+
+Oikeus sanoo, että järjestön lähes koko toiminta on ollut lainvastaista. Se on loukannut perusoikeuksia ja ihmisoikeuksia. Lisäksi se on kiihottanut kansanryhmää vastaan ja käyttänyt väkivaltaa.
+
+Korkein oikeus sanoo, että PVL:n toiminta oli yhdistymisvapauden ja sananvapauden väärinkäyttöä.
+
+Järjestön lakkauttamista vaati Poliisihallitus. Samalla kannalla ovat olleet myös käräjäoikeus ja hovioikeus. Korkein oikeus määräsi jo aiemmin PVL:n väliaikaiseen toimintakieltoon.
+
+Järjestön jäsenet ovat kuitenkin jatkaneet uusnatsistista toimintaa. Ainakin osa järjestön jäsenistä toimii tällä hetkellä nimellä Kohti vapautta.
+
+## Suomessa on 149 uutta koronatartuntaa
+
+![Hoitaja puhuu autossa olevalle asiakkaalle Eksoten drive-in koronanäytteenottopisteessä Lappeenrannassa.](https://img.img-cdn.yle.fi/crop_extract,w_2869,h_1614,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7207535f64935a51d30/1600776279)
+
+Avaa kuvien katselu
+
+Koronatestausta Lappeenrannassa. Kuva: Mikko Savolainen / Yle
+
+Suomessa on todettu 149 uutta koronavirustartuntaa, kertoo Terveyden ja hyvinvoinnin laitos.
+
+Kuudessa kaupungissa raportoitiin tiistaina yli 10 tartuntaa. Eniten uusia tartuntoja todettiin Jyväskylässä. Muutos eiliseen on 29 uutta tapausta.
+
+Lahdessa raportoitiin 16 tartuntaa, Vantaalla 14, Tampereella ja Helsingissä 13 sekä Mikkelissä 12.
+
+## Digitaalisten palveluiden pitää olla saavutettavia
+
+![Nordean mobiilipankin sisäänkirjautumisikkuna.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11223568)
+
+Avaa kuvien katselu
+
+Nordean digitaalinen pankkipalvelu. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Digitaalisten palveluiden pitää olla keskiviikosta alkaen saavutettavia. Sivujen ja sovellusten pitää olla sellaisia, että kaikki pystyvät käyttämään ja ymmärtämään niitä. Apuna voidaan käyttää esimerkiksi puhetta ja tekstitystä.
+
+Asiasta määrää Euroopan unionin saavutettavuusdirektiivi. Se koskee kaikkia julkisia organisaatioita sekä monia järjestöjä ja firmoja.
+
+Esimerkiksi verkkopankki on digitaalinen palvelu.

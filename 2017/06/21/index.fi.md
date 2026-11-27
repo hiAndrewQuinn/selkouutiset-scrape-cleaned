@@ -1,0 +1,7 @@
+# Keskiviikko 21.6.2017 (tv)
+
+Juhannuksen menoliikenne. Kehitysvammaisten työllistyminen. Hilla kukkii. Sää on sateista.
+
+Yle Uutiset selkosuomeksi
+
+Nesteen työntekijöiden lakko on peruttu. Pahoittelemme vanhentunutta tietoa tv-lähetyksessämme.

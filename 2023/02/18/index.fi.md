@@ -1,0 +1,85 @@
+# Lauantai 18.2.2023 (radio)
+
+Münchenin turvallisuuskonferenssi. Hedelmöityshoidot. Karhujen talviunet. Lumimyräkkä. Sää.
+
+## Münchenin turvallisuuskonferenssi
+
+![Sanna Marin under säkerhetskonferensen i Munchen.](https://img.img-cdn.yle.fi/crop_extract,w_4677,h_2630,x_0,y_84/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107469363f0a657980e9/1676715648)
+
+Avaa kuvien katselu
+
+Münchenin turvallisuuskonferenssi alkoi perjantaina Saksassa ja jatkuu sunnuntaihin 19. päivä asti. Konferenssissa on päättäjiä ja asiantuntijoita ympäri maailmaa. Kuvassa pääministeri Sanna Marin. Kuva: EPA-EFE
+
+Suomi on viestinyt Turkille ja Unkarille, että Suomi liittyy Natoon mieluiten yhdessä Ruotsin kanssa. Näin sanoi pääministeri Sanna Marin Münchenin turvallisuuskokouksessa Saksassa. 
+
+Myös presidentti Sauli Niinistö on vakuuttanut, että Suomi hakee Natoon Ruotsin kanssa. Nato-maista vain Turkki ja Unkari eivät vielä ole hyväksyneet Suomen ja Ruotsin hakemuksia.
+
+Münchenin turvallisuuskonferenssi kehitettiin kylmän sodan aikana toisen maailmansodan jälkeen. Kylmän sodan aikana vastakkain olivat USA ja Neuvostoliitto ja niiden liittolaiset.
+
+## Kamala Harris
+
+![Yhdysvaltain varapresidentti Kamala harris](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_107/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8818776197e47fec62b/1650558228)
+
+Avaa kuvien katselu
+
+USA:n varapresidentti Kamala Harris sanoi, että sotarikolliset pitää saada vastuuseen rikoksista Ukrainassa. Kuva: Yuri Gripas / EPA
+
+Myös USA:n varapresidentti Kamala Harris puhui Münchenin turvallisuuskonferenssissa. Harrisin mielestä on selvää, että Venäjä on tehnyt Ukrainassa rikoksia ihmisyyttä vastaan. 
+
+Harris sanoi, että USA aikoo tukea tutkimuksia sotarikoksista. 
+
+Hän sanoi, että Venäjä on tehnyt laajoja ja järjestelmällisiä iskuja siviiliväestöön.
+
+## Hedelmöityshoidot
+
+![Hedelmöityshoitoklinikan säiliö, jossa säilytetään muun muassa pakastettua munasarjakudosta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8576541)
+
+Avaa kuvien katselu
+
+Hedelmöityshoitoklinikan säiliö, jossa säilytetään muun muassa pakastettua munasarjakudosta. Kuva: Juha Kokkala / Yle
+
+Hedelmöityshoidot voivat vähentyä, koska hallitus muutti Kela-korvauksia vuoden alussa. Kela-korvausta ei enää saa hedelmöityshoidoista, jotka tekee yksityislääkäri.
+
+Tämä voi lisätä ruuhkia julkisen terveydenhuollon hedelmöityshoidoissa.
+
+Suomessa 5 prosenttia lapsista syntyy hedelmöityshoitojen avulla. Hedelmöityshoidot tarkoittavat hoitoja, joissa sukusoluja eli munasoluja tai siittiöitä käsitellään laboratoriossa.
+
+Suomessa hedelmöityshoitoa saavat nais-miesparit, naisparit ja naiset, jotka toivovat yksin lasta.
+
+## Karhujen talviunet
+
+![Morgonpigga björnar på Högholmen. Björnarna har precis vaknat ur sin vintersömn. Det snöar.](https://img.img-cdn.yle.fi/crop_extract,w_2043,h_1149,x_0,y_127/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107469763f0abeb2bd5d/1709982704)
+
+Avaa kuvien katselu
+
+ Viime vuosina Korkeasaaren eläintarhan karhut ovat heränneet talviunilta tavallisimmin helmikuun aikana. Kuva: Bild: Annika Sorjonen / Korkeasaari Zoo
+
+Helsingin Korkeasaaren karhut ovat heränneet talviunilta. Eläintarhan 22- ja 17-vuotiaat naaraskarhut menivät talviunille marraskuussa. 
+
+Karhut eivät heränneet tänä talvena kertaakaan kesken talviunien.
+
+Karhut laihtuivat talviunilla noin 50 kiloa eli noin 25 prosenttia painosta.
+
+## Talvimyräkkä
+
+![Lumipyry Helsinki-Vantaan lentoasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10055042)
+
+Avaa kuvien katselu
+
+Lumipyry Helsinki-Vantaan lentoasemalla. Arkistokuva. Kuva: AOP
+
+Viikonlopun voimakas lumisade Etelä-Suomessa haittaa lentoliikennettä. Lennot voivat olla myöhässä Helsinki-Vantaan, Turun ja Tampere-Pirkkalan lentokentillä. 
+
+Märän lumen puhdistaminen kiitotieltä ja lentokoneiden siiviltä on hidasta.
+
+Lunta on ennustettu myös muille Pohjois-Euroopan kentille.
+
+## Sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689078)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Lumisade jatkuu sunnuntainakin. Lunta sataa suuressa osassa maata muutaman senttimetrin. Sää kylmenee, ja pakkasta on 1–7 astetta. Kylmintä on idässä.

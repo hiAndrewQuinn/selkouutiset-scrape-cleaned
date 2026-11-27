@@ -1,0 +1,77 @@
+# Maanantai 6.3.2023 (radio)
+
+Mannerheimintien remontti. Pankkitunnusten kalastelu. Nuorten vaalit. Presidentti Niinistö USA:ssa. Talven pakkasennätys. Säätiedot.
+
+## Mannerheimintien remontti
+
+![Liikennettä Mannerheimintiellä Helsingissä](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_756/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10816416405d90d1142b/1678105660)
+
+Avaa kuvien katselu
+
+Helsingin Mannerheimintiellä alkaa iso remontti, joka kestää yli 2 vuotta. Kuva: Matti Myller / Yle
+
+Helsingissä on alkanut sen historian isoin katuremontti. Mannerheimintien peruskorjaus alkoi tänään, ja remontti kestää yli 2 vuotta.
+
+Peruskorjauksessa uusitaan esimerkiksi vesiputket ja sähkökaapelit, jotka kulkevat Mannerheimintien alla.
+
+Peruskorjaus tehdään kahdessa vaiheessa. Ensin korjataan Postitalon ja Oopperan välinen tieosuus. Sen jälkeen korjataan Oopperan eli Runeberginkadun ja Reijolankadun välinen osa.
+
+Korjaustyön takia bussien ja raitiovaunujen reitteihin tulee muutoksia.
+
+## Pankkitunnusten kalastelu
+
+![Käsi pitelee kännykkää, jonka näytöllä on Osuuspankin kirjautumissivulla varoitus verkkopankkitunnusten kalastelusta.](https://img.img-cdn.yle.fi/crop_extract,w_5183,h_2915,x_0,y_290/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-108088664023b897d7fd/1677868093)
+
+Avaa kuvien katselu
+
+Pankki varoittaa nettipankin kirjautusmissivulla pankkitunnusten kalastelusta.  Kuva: Petteri Bülow / Yle
+
+Suomalaiset menettivät viime vuonna 10 miljoonaa euroa rikollisille, jotka kalastelivat pankkitunnuksia. 
+
+Kalasteluviestejä tuli esimerkiksi pankkien ja viranomaisten nimissä. Huijauksen uhreiksi joutui kaikenikäisiä kansalaisia.
+
+Kyberturvallisuuskeskuksesta kerrotaan, että pankkitunnusten kalastelu on lisääntynyt viime vuosina. Esimerkiksi viime vuonna ilmoituksia kalastelusta tuli jopa 200 kuukaudessa.
+
+## Nuorten vaalit
+
+![Inna Mattila saa äänestyslipukkeen Nuorten vaaleissa.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_307/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10816316405d368136e2/1678103461)
+
+Avaa kuvien katselu
+
+Inna Mattila äänestää Nuorten vaaleissa Raumalla. Kuva: Karri Laihonen / Yle
+
+Nuorten vaalit ovat käynnistyneet ympäri Suomea. Nuorten vaaleissa äänioikeutettuja ovat kaikki alle 18-vuotiaat. 
+
+Äänestyspaikkoja on pystytetty esimerkiksi peruskouluihin, lukioihin, työpajoille ja ammattillisiin oppilaitoksiin. Vaaleissa äänestetään samoja ehdokkaita kuin eduskuntavaaleissa huhtikuussa.
+
+Vaalit järjestää nuorisoalan kattojärjestö Allianssi. Allianssi sanoo, että Nuorten vaalit on ennen kaikkea oppimis- ja opetustapahtuma nuorille. Näin nuoret tutustuvat vaaleihin, puolueisiin ja ehdokkaisiin sekä saavat kokemuksen äänestämisestä.
+
+Nuorten vaalien tulokset julkaistaan 2 viikon kuluttua, tiistaina 21.maaliskuuta.
+
+## Talven pakkasennätys
+
+![Talvinen pakkasmaisema kuuraisen ikkuna takana. Aurinko paistaa vaaran takaa.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_142/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10815746405be67f2912/1678098181)
+
+Avaa kuvien katselu
+
+Pakkasennätys meni rikki Lapin Utsjoella. Kuva: Kaisa Aikio / Yle
+
+Lapissa on mitattu tämän talven pakkasennätys.
+
+Ilmatieteen laitos kertoo, että Lapissa Utsjoen Kevojärvellä oli tänä aamuna pakkasta 35 astetta.
+
+Tämän talven aiempi pakkasennätys oli Lapin Muoniosta. Siellä mitattiin tammikuun alussa vähän alle 35 miinusastetta.
+
+## Tiistain sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689670)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Tiistaina sää on pääosin poutaista. 
+
+Pohjoisessa on melko pilvistä, etelässä on aurinkoista. Länsirannikon lähellä voi tulla lumikuuroja.
+
+Pakkasta on 3...10 astetta, pohjoisessa on paikoin kylmempää.

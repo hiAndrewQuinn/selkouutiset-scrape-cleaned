@@ -1,0 +1,71 @@
+# Perjantai 2.3.2018 (radio)
+
+SDP on suosituin puolue. USA aikoo määrätä teräkselle tuontitullit. Vakituista työtä on tarjolla enemmän kuin ennen. Vanhustenhoito on Suomessa raskasta työtä. Lahdessa on talvisurffauksen MM-kilpailut.
+
+## SDP on suosituin
+
+![Tilastografiikka puoluekannatuksesta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10097041)
+
+Avaa kuvien katselu
+
+Suosituimmat puolueet ovat SDP, Kokoomus ja Keskusta. Kuva: Yle Uutisgrafiikka
+
+Suosituin puolue on vaihtunut. SDP on nyt suosituin Ylen kyselyssä.
+
+Yksi syy SDP:n suosioon ovat mielenosoitus ja lakot, jotka pidettiin tammikuussa työttömyysturvan aktiivimallia vastaan. Aktiivimalli tarkoittaa, että työttömyysraha pienenee, jos työtön ei tee välillä vähän töitä tai opiskele. 
+
+Myös vasemmistoliiton suosio kasvoi vähän. Kokoomus oli suosituin puolue melkein vuoden. Nyt se on kakkonen ja Keskusta kolmas.
+
+Oppositiopuolueita kannattaa nyt 44 prosenttia suomalaisista. Hallituspuolueita kannattaa noin 39 prosenttia.
+
+## USA:lta tullimaksut teräkselle
+
+![Coilstorage Hämeenlinna](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7045033)
+
+Avaa kuvien katselu
+
+Terästä tehtaassa. Kuva: Jukka Male / Rautaruukki
+
+USA aikoo määrätä tuontitullit teräkselle ja alumiinille.
+
+Se tarkoittaa, että ulkomaisen teräksen hinta kallistuu USA:ssa. Presidentti Donald Trump toivoo, että sen jälkeen USA:n tehtaat käyttävät enemmän kotimaista terästä. Tullimaksut vähentävät kauppaa maiden välillä. Jos kauppa vähenee paljon, tulee ehkä uusi lama ja paljon ihmisiä jää työttömäksi.
+
+## Vakituista työtä tarjolla
+
+![Rakennusmiehiä työskentelemässä Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10098151)
+
+Avaa kuvien katselu
+
+Rakennusmiehille on paljon myös vakituisia töitä. Kuva: Markku Ulander / Lehtikuva
+
+Suomalaiset firmat ottavat nyt vakituisia työntekijöitä enemmän kuin pitkään aikaan.
+
+Firmoilla alkoi viime vuonna mennä paremmin ja ne ottivat lisää työntekijöitä. Suurin osa työntekijöistä sai vakituisen paikan. Aiemmin suurin osa palkattiin vain määräaikaisesti. Nyt hyvistä työntekijöistä on jopa pulaa, ja siksi firmat haluavat palkata heitä vakituisiksi.
+
+Miehet saavat enemmän vakituisia työpaikkoja kuin naiset. Miehistä 80 prosenttia on vakituisessa kokopäivätyössä, naisista vain 66 prosenttia.
+
+## Vanhustenhoito raskaampaa kuin muissa pohjoismaissa
+
+![Lähhihoitajia työssään vanhusten asumispalveluosastolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10098499)
+
+Avaa kuvien katselu
+
+Vanhustenhoitajia työssä. Kuva: Markku Sandell / Yle
+
+Vanhusten hoitajien työ on Suomessa raskasta.
+
+Uusi tutkimus vertasi Suomen, Ruotsin, Norjan ja Tanskan hoitajien työtä. Suomessa vanhusten hoitajilla on enemmän asiakkaita kuin muissa pohjoismaissa. Laitoksissa yhtä suomalaista hoitajaa kohden on 4 asiakasta - muissa pohjoismaissa 2 tai 3.
+
+Samanlainen tutkimus tehtiin noin 10 vuotta sitten. Silloin asiat olivat Suomen vanhustenhoidossa paremmin kuin nyt.
+
+## Talvisurffaajat vauhdissa Lahdessa
+
+![Talvisurffaus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10097794)
+
+Avaa kuvien katselu
+
+Leija vetää talvisurffaajia jäällä. Kuva: Heikki Kiseleff / Yle
+
+Lahdessa on talvisurffauksen maailmanmestaruuskilpailut. Niissä kilpailee yli 100 ihmistä 10 maasta. 
+
+Talvisurffauksessa liikutaan jäällä suksien, lautojen, purjeiden ja leijojen avulla. Jäällä mennään kovaa: vauhtia voi olla jopa 80 kilometriä tunnissa. moottoreita ei kuitenkaan tarvita, vaan ihmiset liikkuvat tuulen voimalla.

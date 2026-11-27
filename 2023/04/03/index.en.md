@@ -1,0 +1,85 @@
+# Monday 3.4.2023 (radio)
+
+The National Coalition won the parliamentary elections. This is what the new Parliament looks like. Government negotiations begin after Easter. Finland becomes a NATO member on Tuesday. Weather.
+
+## The National Coalition won the election
+
+![People clap their hands together in a row.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_106/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1094429642a79f42963c/1680505999)
+
+Open image viewer
+
+National Coalition chairman Petteri Orpo was happy about the election victory. Photo: Antti Aimo-Koivisto / Lehtikuva
+
+The National Coalition has won Finland's parliamentary elections. The National Coalition will get 48 MPs in the new Parliament in total.
+
+The Finns Party received the second most votes. The Finns Party will get 46 MPs.
+
+The SDP came third. It will get 43 seats in the new Parliament.
+
+The National Coalition, the Finns Party and the SDP are all election winners, because their support rose. Each of them got about 20 percent of the votes.
+
+The losers of the election are the Centre, the Greens and the Left Alliance. All of them lost seats.
+
+RKP, the Christian Democrats and Liike Nyt will get the same number of MPs as before.
+
+## The new Parliament
+
+![Olga Oinas-Panuma, candidate number 16 for the Oulu constituency (Centre).](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10919126424218e3d31e/1680089756)
+
+Open image viewer
+
+Olga Oinas-Panuma is the youngest in the new Parliament. Photo: Paulus Markkula / Yle
+
+The average age of the new Parliament is 47 years. Seven people under 30 were elected in total.
+
+Of the new MPs, the youngest is Olga Oinas-Panuma of the Centre Party. She is 23 years old, and she was elected from the Oulu constituency.
+
+Of the MPs, 92 are women and 108 are men.
+
+About 60 new representatives were elected.
+
+## Government negotiations
+
+![Marin, Orpo and Purra.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_366/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1094629642ab384db2c7/1680520763)
+
+Open image viewer
+
+National Coalition chairman Petteri Orpo starts negotiations on a new government. He is also negotiating with Sanna Marin of the SDP and Riikka Purra of the Finns Party. Photo: Silja Viitala / Yle
+
+The new Parliament meets after Easter.
+
+Then the negotiations on a new government also begin. The negotiations are led by the National Coalition, because it is the largest party in the new Parliament.
+
+National Coalition chairman Petteri Orpo says that the parties' attitude to the economy is the most important thing, as the National Coalition looks for government partners.
+
+If the National Coalition finds suitable government partners in the negotiations, Petteri Orpo will become Finland's new Prime Minister.
+
+Experts say that the government negotiations will be difficult.
+
+## Finland becomes a NATO member
+
+![Finnish flag and NATO flag.](https://img.img-cdn.yle.fi/crop_extract,w_1915,h_1075,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9450856262a4cc40091/1651752198)
+
+Open image viewer
+
+Finland becomes a full member of NATO on Tuesday. Photo: Eetu-Mikko Pietarinen / Yle
+
+Finland becomes a member of the NATO defence alliance tomorrow, on Tuesday.
+
+The official accession ceremony will be held tomorrow in Brussels at NATO headquarters. Taking part in the ceremony are President Sauli Niiistö, Foreign Minister Pekka Haavisto and Defence Minister Antti Kaikkonen.
+
+In the ceremony Finland will deposit the NATO treaty's accession instrument with the US government. After that the Finnish flag will be raised on the flagpole at NATO headquarters.
+
+NATO Secretary General Jens Stoltenberg says that he is completely sure that Sweden will also become a NATO member.
+
+## Tuesday's weather
+
+![Finland's weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690219)
+
+Open image viewer
+
+Photo: Yle
+
+Tomorrow it is dry and sunny. In northern Lapland it may be cloudier.
+
+In the daytime the temperature is between 0 and 5 degrees.

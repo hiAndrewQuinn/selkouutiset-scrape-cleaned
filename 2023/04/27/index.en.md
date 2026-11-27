@@ -1,0 +1,87 @@
+# Radio Clear News 27.4.2023
+
+Bourgeois government. Tactical voting. Rising interest rates. Protection of vipers. Veterans' Day. The weather.
+
+## Government negotiations
+
+![The National Coalition Party chairman Petteri Orpo speaks at a press conference in the State Hall of the Parliament House, where it is announced which parties will take part in the actual government negotiations held at the House of Estates.](https://img.img-cdn.yle.fi/crop_extract,w_3984,h_2241,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1105280644a609133e4c/1682774883)
+
+Open image viewer
+
+National Coalition Party chairman Petteri Orpo, Finns Party chairman Riikka Purra, Swedish People's Party (RKP) chairman Anna-Maja Henriksson and Christian Democrats chairman Sari Essayah. Photo: Silja Viitala / Yle
+
+A right-wing government is being formed in Finland. Petteri Orpo of the National Coalition Party, who is forming the government, will start government negotiations with 3 other parties. They are the Finns Party, RKP and the Christian Democrats.
+
+Orpo says that a shared view of Finland's economy made the basis for the government. Orpo admits that there are differences of view between the parties. However, he believes that a joint government programme can be reached.
+
+If Orpo gets the government together, he will become the new prime minister.
+
+The actual negotiations on the government programme start at the House of Estates on Tuesday, after May Day.
+
+## Tactical voting
+
+![Blank ballot paper for the Parliamentary elections](https://img.img-cdn.yle.fi/crop_extract,w_3643,h_2049,x_4,y_435/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-109372764299fe0729bf/1680449603)
+
+Open image viewer
+
+26 percent of SDP's votes were tactical, while only 11 percent of the Finns Party's and National Coalition's votes were. Photo: Kirsi Matson-Mäkelä / Yle
+
+Many Finns voted tactically in the spring Parliamentary elections. For example, they thought about which party they could vote for to stop another party from gaining power.
+
+About 14 percent of voters voted tactically in the spring Parliamentary elections. Kantar Public studied the matter.
+
+Almost 67 percent of tactical voters voted for a party other than their first choice.
+
+## High interest rates
+
+![Bank of Finland logo.](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_607,x_0,y_549/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-96936062a720759033f/1729510878)
+
+Open image viewer
+
+Photo: Timo Nykyri / Yle
+
+The Bank of Finland warns of a fast rise in interest rates. The Bank of Finland is Finland's central bank. It says that Finland's economy may weaken more than expected. This is affected by people starting to spend less than before.
+
+Many households took on a lot of debt when interest rates were low. Now people's finances are at risk as interest rates rise.
+
+Indebted households spend less money on purchases and services.
+
+## Vipers
+
+![A viper warms itself on a melted rock in Rovaniemi in spring 2021](https://img.img-cdn.yle.fi/crop_extract,w_2500,h_1406,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-796258607d9100a3e78/1685589412)
+
+Open image viewer
+
+Spring has once again woken the vipers from their torpor. The viper is Finland's only venomous snake. Photo: Marko Junttila
+
+Protection of the viper starts in Finland.
+
+A new nature conservation law protects the viper from the beginning of June. The law says that a viper may only be killed if it causes danger. If a viper is in a yard, people must first try to move it somewhere else.
+
+Finland is the last Western European country to protect the viper.
+
+The viper is Finland's only venomous snake.
+
+## Veterans' Day
+
+![Two medals on the chest of a woman's jacket. One is awarded by the President, the other is a Lottas' medal.](https://img.img-cdn.yle.fi/crop_extract,w_3999,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1104958644a1ddc9382d/1682579495)
+
+Open image viewer
+
+This year's theme of Veterans' Day is "Lessons of our wars - To secure our future". Photo: Mikko Mykkänen / Yle
+
+On Thursday, National Veterans' Day was celebrated. The day is celebrated in honour of Finland's war veterans.
+
+It is also a day of remembrance for the end of the war and the start of peace. 27 April is the day the Lapland War ended.
+
+This year, the national main Veterans' Day celebration was held in Turku.
+
+## The weather
+
+![Friday's weather map.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106461063d34527ddde7/1674790222)
+
+Open image viewer
+
+Photo: Yle
+
+On Friday there will be rain and sleet in North Ostrobothnia and Kainuu. In Southern and Central Finland it will also rain a little, but the sun will shine too. It will not rain in Lapland, and the sun will shine there too. The temperature will be around 10 degrees at most.

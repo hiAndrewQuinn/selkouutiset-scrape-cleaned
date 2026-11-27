@@ -1,0 +1,65 @@
+# Lauantai 17.11.2018 (radio)
+
+Kalifornian tulipaloissa on kadonnut paljon ihmisiä. Kauppakeskus Redi ei ole saanut niin paljon asiakkaita kuin odotti. Lauantaina on vietetty keskoslasten päivää. Suomalaisilla on taas ollut onnea Eurojackpot-pelissä.
+
+## Kalifornian tulipalot
+
+![Maastopalon tuhoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10511011)
+
+Avaa kuvien katselu
+
+Tuli tuhoaa Kaliforniaa. Kuva: AOP
+
+Isot tulipalot jatkuvat Kaliforniassa, USA:ssa. Yli 70 ihmistä on kuollut tulipaloissa, ja yli 1000 ihmistä on kadonnut.
+
+Suurin osa kadonneista on Paradisen kaupungista ja sen ympäristöstä. Tuli on polttanut kaupungin kokonaan.
+
+Monissa Kalifornian kaupungeissa ilma on täynnä savua. Siksi monet koulut ovat kiinni.
+
+Presidentti Donald Trump käy lauantaina tapaamassa paloalueen asukkaita ja palomiehiä.
+
+## Kauppakeskus Redi
+
+![Kauppakeskus Redin ja Majakan työmaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10474323)
+
+Avaa kuvien katselu
+
+Kauppakeskus Redi on Helsingin Kalasatamassa. Kuva: Timo Korhonen / AOP
+
+Helsingin uusi kauppakeskus Redi ei ole saanut niin paljon asiakkaita kuin odotti. Redi avattiin Helsingin Kalasatamassa syyskuussa.
+
+Redissä on melkein 200 kauppaa. Monilla kaupoilla on ongelmia, koska asiakkaita on vähän. 5 firmaa on jo lopettanut.
+
+Professori Pekka Mattila arvioi, että ihmiset eivät ole vielä tottuneet käyttämään Redin palveluita. Redi ei ole vielä osa alueen asukkaiden arkea.
+
+Mattila sanoo myös, että Redistä puuttuu iso hypermarket. Esimerkiksi lapsiperheet haluavat ostaa kaiken tarpeellisen 1 isosta kaupasta.
+
+Redi voi kuitenkin menestyä, professori Mattila sanoo. Kalasataman alue kasvaa koko ajan.
+
+## Keskoslasten päivä
+
+![keskosvauvan jalat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10339008)
+
+Avaa kuvien katselu
+
+Pieni keskoslapsi tarvitsee paljon hoitoa. Kuva: AOP
+
+Lauantaina on vietetty keskoslasten päivää. Lapsi on keskonen, jos hän syntyy, ennen kuin raskaus on kestänyt 37 viikkoa, tai jos hän painaa alle 2500 grammaa.
+
+Keskosia on muistettu violetilla värillä. Violetti kuvaa herkkyyttä. Esimerkiksi Ylistön silta Jyväskylässä, Kuopion kaupunginteatteri ja Lahden radiomastot valaistiin lauantaina violetilla valolla.
+
+Tänä vuonna keskoslasten päivän teema on perhekeskeinen hoitotyö. Tutkimukset kertovat, että keskoslapsi voi paremmin, jos vanhemmat osallistuvat lapsen hoitoon sairaalassa.
+
+## Eurojackpot-miljonäärit
+
+![Eurojackpot-kuponkeja Loimaan Prismassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10192425)
+
+Avaa kuvien katselu
+
+Eurojackpot on eurooppalainen lotto. Kuva: Mari Kahila / Yle
+
+Suomi on saanut 2 uutta Eurojackpot-miljonääriä. Perjantaina espoolainen pelaaja sai 18 miljoonaa euroa ja kajaanilainen pelaaja sai 3,8 miljoonaa euroa.
+
+Eurojackpot on eurooppalainen lotto. Se alkoi vuonna 2012.
+
+Suomessa on yhteensä jo 59 Eurojackpot-miljonääriä. Joukko on iso, koska monet suuret voitot ovat Suomessa menneet monen pelaajan porukoille.

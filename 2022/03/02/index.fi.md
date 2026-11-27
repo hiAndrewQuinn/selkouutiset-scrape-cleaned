@@ -1,0 +1,93 @@
+# Keskiviikko 2.3.2022 (radio)
+
+Venäjän hyökkäys kiihtyy Ukrainassa. EU-antaa ukrainalaisille oleskeluluvat. Suomalaisfirmat boikotoivat Venäjää. EU asetaa uusia pakotteita Valko-Venäjää vastaan. Sääennuste.
+
+## Sota Ukrainassa
+
+![Palomiehiä pommituksissa vaurioituneessa hallintorakennuksessa Harkovassa.](https://img.img-cdn.yle.fi/crop_extract,w_4615,h_2595,x_0,y_481/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922108621e1b42d5ed1/1646235119)
+
+Avaa kuvien katselu
+
+Palomiehiä pelastustöissä Harkovassa. Kuva: Sergey Bobok / AFP
+
+Venäjä on kiihdyttänyt hyökkäystä Harkovan kaupunkiin Ukrainassa. Harkova on Ukrainan toiseksi suurin kaupunki. Harkovaan laskeutui keskiviikkona Venäjän laskuvarjojoukkoja. Kaupungissa on ollut sen jälkeen katutaisteluita.
+
+Ukrainan armeija sanoo, että venäläissotilaat ovat hyökänneet esimerkiksi sairaalaan. Venäjä on tulittanut Harkovaa voimakkaasti useita päiviä.
+
+Ukraina sanoo, että vuorokauden aikana on kuollut yli 20 ihmistä ja haavoittunut yli sata ihmistä.
+
+## Ukrainan pakolaiset
+
+![Ukrainalaisia pakolaisia kävelemässä tien vartta pitkin.](https://img.img-cdn.yle.fi/crop_extract,w_3297,h_1854,x_0,y_343/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922274621e49255c008/1646161140)
+
+Avaa kuvien katselu
+
+Ukrainalaiset pakolaiset kävelevät tien vartta. Kuva: Nikolay Doychinov / AFP
+
+YK:n pakolaisjärjestö arvioi, että Ukrainasta on paennut ulkomaille noin 840 000 ihmistä. EU auttaa ukrainalaisia, jotka pakenevat sotaa Ukrainasta.
+
+EU-komissio valmistelee ohjetta, että ukrainalaisille annetaan 2 vuoden oleskelulupa EU-maissa. Ukrainalaiset saavat myös luvan tehdä työtä ja opiskella EU-maissa.
+
+Jos tilanne Ukrainassa muuttuu, EU-komissio voi pyytää jäsenmaita lyhentämään tai pidentämään ukrainalaisten oleskelulupia. EU:n sisäministerit päättävät ukrainalaisten oleskeluluvasta torstaina.
+
+## Stora Enso Venäjällä
+
+![Stora Enson logo Helsingin konttorin portissa.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_533/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922460621f2cc53598a/1646225229)
+
+Avaa kuvien katselu
+
+Stora Enso. Kuva: Silja-Riikka Seppälä/Lehtikuva
+
+Metsäfirma Stora Enso keskeyttää tuotannon ja myynnin Venäjällä.
+
+Stora Ensolla on Venäjällä 3 pakkaustehdasta ja 2 sahaa. Niissä on töissä yhteensä vähän yli 1000 ihmistä.
+
+Stora Enso keskeyttää myös viennin ja tuonnin Venäjältä.
+
+## Fazerin vienti Venäjälle
+
+![Fazer mainoskyltti Lahden tehtaanmyymälän katolla](https://img.img-cdn.yle.fi/crop_extract,w_4029,h_2266,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-777028603390da179a4/1613992245)
+
+Avaa kuvien katselu
+
+Fazer valmistaa esimerkiksi makeisia, keskejä ja jauhoja ja puurohiutaleita. Kuva: Petri Niemi/Yle
+
+Myös elintarvikefirma Fazer keskeyttää viennin Venäjälle. Fazer on vienyt Venäjälle makeisia ja esimerkiksi jauhoa ja hiutaleita.
+
+## Hartwall Arena
+
+![Hartwall Arenan nimikylttiä revittiin Helsingin areenasta keskiviikkona.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2268,x_0,y_661/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922510621f392b6a37e/1646213555)
+
+Avaa kuvien katselu
+
+Hartwallin kyltti poistettiin keskiviikkona Helsingin areenan seinästä. Kuva: Emma Hyyppä / Yle
+
+Juomafirma Hartwall lopettaa yhteistyön Helsingin areena urheiluhallin kanssa. Urheiluhallin nimi on ollut Hartwall Arena.
+
+Hartwall ei enää tue hallia, koska halli on venäläisten omistuksessa.
+
+Hartwallin nimi ja liikemerkki on jo poistettu Helsingin areenan seinästä.
+
+## Pakotteita Valko-Venäjälle
+
+![Lukashenka seisoo koppalakki päässään, paksulla turkiskauluksella varustetussa päällystakissa, jossa on kullaväriset olkalaatat.](https://img.img-cdn.yle.fi/crop_extract,w_2680,h_1507,x_74,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-91169762015ee488bbc/1661344418)
+
+Avaa kuvien katselu
+
+Valko-Venäjän johtaja Aljaksandr Lukašenka. Kuva: EyePress News / Shutterstock / AOP
+
+EU asettaa uusia pakotteita Valko-Venäjää vastaan. EU-maiden edustajat ovat hyväksyneet uusia pakotteita Valko-Venäjälle, koska Valko-Venäjä tukee Venäjää hyökkäyksessä Ukrainaan.
+
+EU ehkä pysäyttää tavaroiden tuonnin Valko-Venäjältä EU-maihin.
+
+EU asettaa pakotteita myös valkovenäläisille liikemiehille oligarkeille ja Valko-Venäjän keskuspankille.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12340799)
+
+Avaa kuvien katselu
+
+Torstaina paistaa aurinko laajoilla alueilla.
+
+Torstaina suuressa osassa maata paistaa aurinko. Lapissa sataa paikoin vähän lunta. Lämpötila on 0...+4 asteen välillä, Lapissa on vähän pakkasta. Pohjoistuuli lisää kylmän tuntua.

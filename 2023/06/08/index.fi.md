@@ -1,0 +1,75 @@
+# Radio Selkouutiset torstai 8.6.2023
+
+Puukotus Ranskassa. Haavistosta presidenttiehdokas. Puolueiden kannatus. Pohjois-Amerikan savuongelma. Sää.
+
+## Puukotus Ranskassa
+
+![Ranskan kartta, jossa Pariisin ja Annecyn kaupungit merkittyinä.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11265636481a16d7579e/1686217136)
+
+Avaa kuvien katselu
+
+Puukotus tapahtui Annecyn kaupungissa. Kuva: Tommi Pylkkö / Yle, MapCreator, OpenStreetMap
+
+Ranskassa on tapahtunut vakava puukotus. Mies hyökkäsi lasten kimppuun leikkipuistossa.
+
+Mies löi ihmisiä puukolla. Puukotuksessa loukkaantui 4 pientä lasta, joista 2 sai pahoja vammoja. Lisäksi loukkaantui 1 aikuinen.
+
+Poliisi sai puukottajan kiinni. Puukottaja on syyrialainen pakolainen. Poliisi ei tiedä, mikä oli teon syy.
+
+## Haavistosta presidenttiehdokas
+
+![Pekka Haavisto kävelee senaatintorin läheisyydessä.](https://img.img-cdn.yle.fi/crop_extract,w_3984,h_2241,x_0,y_83/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11264726481920763593/1686213185)
+
+Avaa kuvien katselu
+
+Pekka Haavisto. Kuva: Silja Viitala / Yle
+
+Pekka Haavisto pyrkii presidentin tehtävään. Suomessa järjestetään presidentinvaalit ensi vuoden alussa.
+
+Haavisto on 65-vuotias, ja hän ollut viime vuodet Suomen ulkoministeri.
+
+Haaviston puolue on vihreät. Hänestä tulee kuitenkin valitsijayhdistyksen presidenttiehdokas. Valitsijayhdistyksen toimintaan voivat osallistua kaikki, jotka haluavat.
+
+Suomen nykyinen presidentti Sauli Niinistö ei voi enää jatkaa presidentin työssä. Hän on ollut presidentti pian jo 12 vuotta. Se on maksimiaika Suomen presidentin tehtävässä.
+
+## Puolueiden kannatus
+
+![Graafi näyttää viimeisimmän puoluekannatusmittauksen tulokset.](https://img.img-cdn.yle.fi/crop_extract,w_2544,h_1431,x_0,y_200/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112569864803e8e437bc/1686132899)
+
+Avaa kuvien katselu
+
+Kuva: Nanna Sarkka / Yle
+
+Puolueiden kannatuksessa ei ole tapahtunut isoja muutoksia eduskuntavaalien jälkeen. Eduskuntavaalit järjestettiin noin 2 kuukautta sitten eli huhtikuun alussa.
+
+Vaalien voittaja kokoomus on myös uuden kannatusmittauksen suurin puolue. Kokoomuksen kannatus on nyt yli 22 prosenttia.
+
+Kannatusmittauksen toiseksi suurin puolue on perussuomalaiset. Se oli myös vaaleissa toiseksi suurin puolue.
+
+Kokoomus ja perussuomalaiset neuvottelut nyt uudesta hallituksesta. Mukana ovat myös RKP ja kristillisdemokraatit.
+
+Hallitusneuvottelut ovat jatkuneet jo monta viikkoa. Tavoite on, että hallitusneuvottelut saadaan valmiiksi kesäkuun aikana.
+
+## Savua Pohjois-Amerikassa
+
+![New Yorkin Manhattanin siluetti kellertävän savun peitossa. ](https://img.img-cdn.yle.fi/crop_extract,w_8256,h_4644,x_0,y_860/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125822648061763d928/1686135442)
+
+Avaa kuvien katselu
+
+New York savun peitossa. Kuva: Erik Pendzich / AOP
+
+USA:ssa ihmisiä varoitetaan likaisesta ilmasta. Ilmassa on paljon savua, joka tulee Kanadasta asti. Kanadassa on isoja metsäpaloja.
+
+USA:n viranomaiset varoittavat yli 100 miljoonaa ihmistä savuisesta ilmasta. Esimerkiksi New Yorkin pormestari sanoo, että kaupunkilaisten on hyvä pysyä sisällä.
+
+## Sää
+
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11268466481ccfce1563/1686228252)
+
+Avaa kuvien katselu
+
+Perjantaina sää on poutainen eli vettä ei sada. Myös aurinko pääsee paistamaan. Pohjoisessa on pilvisempää.
+
+Perjantain jälkeen sää lämpenee koko maassa. Sunnuntaina lämpötila on jo yli 20 astetta koko maassa.
+
+Lämmin ja kuiva sää jatkuu ensi viikolla. Jo alkuviikon aikana voi olla hellettä eli lämpötila nousee jopa 25 asteeseen.

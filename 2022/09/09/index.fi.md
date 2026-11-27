@@ -1,0 +1,83 @@
+# Perjantai 9.9.2022 (radio)
+
+Kuningatar Elisabet on kuollut. Britanniassa perutaan tapahtumia kuningatar Elisabetin kuoleman takia. Ulkoministeriö Helsingissä valaistaan juhlavalaistuksella kuningatar Elisabetin muistoksi. Puolustusvaliokunnan uusi puheenjohtaja on Antti Häkkänen. Kesä on ollut Euroopassa ennätyslämmin. Sääennuste.
+
+## Kuningatar Elisabetin kuolema
+
+![Kuningataar Elisabet 2.6.2022.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1005247631a305aa4297/1662661914)
+
+Avaa kuvien katselu
+
+Kuningatar Elisabet II 1926 – 2022.  Kuva: Backgrid London LTD / AOP
+
+Britanninan hallitsija kuningatar Elisabet on kuollut. Kuningatar Elisabet kuoli torstaina Balmoralin linnassa Skotlannissa.
+
+Kuningatar oli 96-vuotias. Siksi Lontoossa ammuttiin perjantaina 96 tykinlaukausta kuningattaren muistoksi. Myös kirkonkelloja soitettiin kuningattaren muistoksi. Elisabet oli kuningatar yli 70 vuotta.
+
+Britannian uusi hallitsija on kuningattaren vanhin poika Charles. Kuningas Charles on aloittanut heti kuninkaan tehtävät.
+
+## Suruaika
+
+![Salutskott för drotttning Elizabet II i London.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_116/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1005793631b44a9ad9af/1662731463)
+
+Avaa kuvien katselu
+
+Lontoossa ammuttiin perjantaina 96 tykinlaukausta kuningattaren muistoksi. Kuva: AFP/Lehtikuva
+
+Britanniassa on peruttu paljon tapahtumia kuningatar Elisabetin kuoleman takia.
+
+Esimerkiksi Englannin Valioliigan jalkapallo-otteluita ei pelata viikonloppuna. Myös hevosurheilukilpailuja on peruttu. Britannian rautateiden ja postin työntekijät ovat peruneet lakon, jonka piti alkaa viikonloppuna.
+
+Britanniassa on 10 päivän suruaika kuningatar Elisabetin kuoleman takia.
+
+## Ellisabetia muistetaan Suomessa
+
+![Ihmiset veivät kukkia ja kynttilöitä Iso-Britannian suurlähetystön eteen 9.9.2022.](https://img.img-cdn.yle.fi/crop_extract,w_5733,h_3224,x_15,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1005615631b1ce8cbbd0/1662722524)
+
+Avaa kuvien katselu
+
+Ihmiset toivat kukkia ja kynttilöitä Britannian suurlähetystön eteen. Kuva: Kimmo Hiltunen / Yle
+
+Monet suomalaiset ovat tuoneet kukkia ja kynttilöitä Britannian Suomen suurlähetystön edustalle Helsingissä.
+
+Suurlähetystössä on myös suruliputus kuningatar Elisabetin muistoksi.
+
+Suomen ulkoministeriö Helsingissä valaistaan perjantaina illalla juhlavalaistuksella kuningatar Elisabetin muistoksi.
+
+## Puolustusvaliokunan puheenjohtajuus
+
+![Mäntyharjulainen kansanedustaja Antti Häkkänen hymyilee kameralle Kisalan avajaisissa.](https://img.img-cdn.yle.fi/crop_extract,w_3745,h_2108,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-872690617a4f8e356e3/1635406620)
+
+Avaa kuvien katselu
+
+Puolustusvaliokunnan puheenjohtaja on nyt kokoomuksen varapuheenjohtaja Antti Häkkänen. Kuva: Sari Ursin / Yle
+
+Eduskunnan puolustusvaliokunta on valinnut uuden puheenjohtajan. Puolustusvaliokunnan uusi puheenjohtaja on **Antti Häkkänen**. Häkkänen on myös kokoomuksen varapuheenjohtaja.
+
+Häkkänen seuraa tehtävässä kokoomuksen puheenjohtaja Petteri Orpoa, joka oli puolustusvaliokunnan puheenjohtaja keväästä lähtien.
+
+Puolustusvaliokunnan puheenjohtajan tehtävä kuuluu tällä vaalikaudella aina kokoomukselle vaikka puheenjohtaja välillä vaihtuu.
+
+## Ennätyslämpötilat Euroopassa
+
+![Kuivuudesta halkeilevaa joenpenkkaa Rein joella ](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99684262ff8950ab7b7/1660914054)
+
+Avaa kuvien katselu
+
+Rein-joki Düsseldorfissa kuivui kesällä. Kuva: Sascha Steinbach / EPA
+
+Kesä on ollut Euroopassa ennätyslämmin. EU:n ilmastopalvelu on julkaissut tilaston kesän lämpötiloista. Viime kesä oli Euroopassa lämpimämpi kuin koskaan aikaisemmin on mitattu.
+
+Euroopan lämpötilat olivat mittaushistorian korkeimmat elokuussa. Lämpötilat olivat mittaushistorian korkeimmat myös koko kesän eli kesä-heinä-elokuussa.
+
+Monissa Euroopan maissa mitattiin historiallisen korkeita lämpötiloja kesällä. Monessa maassa on myös kärsitty kuivuudesta enemmän kuin aiemmin.
+
+## Sää
+
+![Lauantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12617979)
+
+Avaa kuvien katselu
+
+Pilvisyys vaihtelee lauantaina.
+
+Lauantaina sää on melkein koko maassa poutainen. Pohjoisessa voi sataa vähän vettä. Aurinko paistaa etelässä ja ehkä myös paikoin muualla maassa. Lämpötila on 10 ja 17 asteen välillä.

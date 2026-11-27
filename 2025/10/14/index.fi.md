@@ -1,0 +1,51 @@
+# TV | Selkouutiset | tiistai 14.10.2025
+
+Gaza. Ukrainalaispakolaiset. Ammattikoulut. Sää.
+
+## Gazan aselepo
+
+Aluksi aiheena on Gaza.
+
+Gazan tulevaisuutta on pohdittu huippukokouksessa Egyptissä.
+
+Neljä maata allekirjoitti illalla asiakirjan Gazan aseleposopimuksesta. Sopimuksen allekirjoittivat USA, Egypti, Qatar ja Turkki, jotka ovat sopimuksen takaajia.
+
+Myös Britannia on luvannut osallistua aselevon valvomiseen Gazassa.
+
+Egyptin huippukokouksessa puhuttiin myös Gazan humanitaarisesta tilanteesta.
+
+## Ukrainalaispakolaiset
+
+Sitten kerromme ukrainalaispakolaisista Suomessa.
+
+Suurin osa Suomen ukrainalaispakolaisista ei aio palata takaisin Ukrainaan.
+
+Sisäministeriö selvitti nyt kolmatta kertaa ukrainalaispakolaisten mielialoja.
+
+66 prosenttia vastaajista sanoi, että ei aio palata takaisin kotimaahan. Määrä on kasvanut selvästi aiemmista kyselyistä.
+
+Vain 6 prosenttia aikoo palata Ukrainaan, kun Venäjän hyökkäys on päättynyt.
+
+Suurin osa ukrainalaispakolaisista haluaa jäädä tänne. Sopeutumista Suomeen on helpottanut esimerkiksi kielitaidon kehittyminen.
+
+## Ammattikoulujen lähiopetus
+
+Sitten aiheena ovat ammattikoulut.
+
+Lähiopetus ammattikouluissa on vähentynyt merkittävästi.
+
+Ylen MOT:n kyselyssä kolmasosa ammatillisista oppilaitoksista kertoo, että lähiopetusta on karsittu tällä vuosikymmenellä. Sen määrä on vähentynyt noin 300 tunnilla tutkintoa kohden.
+
+Lähiopetus tarkoittaa perinteistä opetusta, joka tapahtuu luokissa ja työsaleissa.
+
+Lähiopetusta ammattikouluissa on karsittu uudistusten ja säästötoimien takia.
+
+Se näkyy myös työelämässä. 80 prosenttia yrityksistä sanoi, että opiskelijoiden taidot ovat heikentyneet tällä vuosikymmenellä.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona lähes koko maassa on pilvistä. Länsirannikolla ja pohjoisessa voi paikoin paistaa aurinko.
+
+Etelässä ja lännessä on lämmintä, idässä ja pohjoisessa viileämpää.

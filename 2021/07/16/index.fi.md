@@ -1,0 +1,74 @@
+# Perjantai 16.7.2021
+
+Euroopan tulvakatastrofi. Ravintolarajoitukset. Aivoaalloista puhetta. Suomalainen elokuva USA:han.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Euroopan tulvakatastrofi
+
+![Tulvan tuhoamia taloja.](https://img.img-cdn.yle.fi/crop_extract,w_4779,h_2688,x_0,y_112/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83235760f043a5ae1f4/1626358913)
+
+Avaa kuvien katselu
+
+Tulvavahinkoja Schuldissa, Saksassa. Kuva: Sascha Steinbach / EPA
+
+Euroopassa on tulvakatastrofi. Ihmisiä on kuollut ja taloja on hajonnut, kun tulvavesi vyöryy kaupunkien kaduille.
+
+Monien jokien vesi on noussut ennätyskorkealle kovien sateiden takia. Joillakin alueilla on satanut 2 päivässä yhtä paljon kuin tavallisesti 2 kuukaudessa.
+
+Pahoja tulva-alueita on monissa Euroopan maissa, esimerkiksi Saksassa ja Belgiassa. Tulva-alueilla pelastustyöntekijät siirtävät ihmisiä turvaan.
+
+## Suomen koronatilanne
+
+![ Ihmisiä Kasarmintorin terassilla helteisessä säässä Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_152/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82504260d41a0ae8c1b/1626416263)
+
+Avaa kuvien katselu
+
+Ravintolarajoituksia tulee ehkä uusille alueille. Kuva: Roni Rekomaa / Lehtikuva
+
+Suomen koronatilanne huononee. Uusia koronatartuntoja löydetään nyt 3 kertaa enemmän kuin kuukausi sitten.
+
+Nyt uusia koronatartuntoja on yli 1600 viikossa. Sairaalahoidossa on yli 40 koronapotilasta.
+
+Uusia koronatartuntoja on erityisesti nuorilla. Nuoret ovat saaneet koronatartuntoja esimerkiksi baareissa.
+
+Ministeri Krista Kiuru sanoo, että ravintolarajoituksia tulee ensi viikolla ehkä uusille alueille. Rajoituksia voi tulla esimerkiksi Turun seudulle.
+
+Rajoitukset määräävät, että ravintolat menevät kiinni viimeistään kello 1 yöllä. Alkoholin myynti loppuu tuntia aikaisemmin.
+
+Helsingin seudulla on jo samat ravintolarajoitukset, ja ne jatkuvat edelleen.
+
+## Aivoaalloista puhetta
+
+![Kuvassa on potilas tehohoidossa Ranskassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11558692)
+
+Avaa kuvien katselu
+
+Ihminen voi menettää puhekyvyn esimerkiksi sairauden tai onnettomuuden takia. Kuva: Caroline Blumberg / EPA
+
+Amerikkalaiset tutkijat ovat rakentaneet laitteen, joka tekee ihmisen aivoaalloista puhetta.
+
+Laitetta testattiin miehellä, joka oli halvaantunut. Hän ei pystynyt enää itse puhumaan.
+
+Laite mittasi miehen aivoja ja muutti aivoaallot puheeksi. Laite oli miehen ääni.
+
+Tutkimus antaa toivoa monille ihmisille. Joka vuosi tuhannet ihmiset menettävät kyvyn puhua. Syy voi olla aivohalvaus, sairaus tai onnettomuus.
+
+## Suomalaiselokuva USA:han
+
+![Näyttelijät Seidi Haarla ja Juri Borisov elokuvassa Hytti nro 6](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82825060e02be9bc5ee/1625304508)
+
+Avaa kuvien katselu
+
+"Hytti numero 6" kertoo suomalaisesta tytöstä ja venäläisestä miehestä, jotka tapaavat junassa. Kuva: Festival de Cannes
+
+Suomalainen elokuva pääsee elokuvateattereihin USA:ssa. Elokuvan nimi on "Hytti numero 6".
+
+Sama elokuva on mukana myös Cannesin elokuvakilpailussa. Kilpailun palkinnot jaetaan lauantaina.
+
+"Hytti numero 6" kertoo junamatkasta Venäjällä. Matkan aikana suomalainen opiskelijatyttö ja venäläinen mies tutustuvat toisiinsa.
+
+Elokuvan tarina on Rosa Liksomin kirjasta. Elokuvan ohjaaja on Juho Kuosmanen.
+
+On harvinaista, että amerikkalaisiin elokuvateattereihin tulee suomalainen elokuva.

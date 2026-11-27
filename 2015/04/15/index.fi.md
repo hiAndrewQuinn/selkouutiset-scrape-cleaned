@@ -1,0 +1,59 @@
+# Keskiviikko 15.4.2015
+
+Nokian yritysosto on Suomen historian suurin. Vanha eduskunta lopetti työnsä. Syyttäjä haluaa Jari Aarnion neljäksi vuodeksi vankilaan. Kahvi säilyy parhaiten papuina.
+
+## Nokia teki Suomen historian suurimman yritysoston
+
+![Nokian hallituksen puheenjohtaja Risto Siilasmaa (vas.), Nokian toimitusjohtaja Rajeev Suri, Alcatel-Lucentin toimitusjohtaja Michel Combes ja Alcatel-Lucentin hallituksen puheenjohtaja Philippe Camus kättelemässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7930592)
+
+Avaa kuvien katselu
+
+Nokian ja Alcatel-Lucentin johtajia. Kuva: Thomas Samson / AFP
+
+Nokia ostaa toisen ison verkkofirman, Alcatel-Lucentin. Nokia maksaa firmasta 15,6 miljardia euroa. Yritysosto on Suomen historian suurin.
+
+Nokiasta tulee maailman toiseksi suurin verkkofirma. Firman kautta kulkee vuodessa rahaa 26 miljardia euroa, mikä on esimerkiksi puolet Suomen valtion vuosimenoista. Kun Nokia myi puhelimet Microsoftille, hinta oli vain noin 30 prosenttia tästä.
+
+Nokian pääkonttori pysyy Suomessa. Työntekijät pelkäävät kuitenkin, että yritysoston jälkeen Nokia vähentää työntekijöitä Suomesta.
+
+## Vanhan eduskunta lopetti
+
+![Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7930171)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö puhui eduskunnalle. Kuva: Yle
+
+Eduskunta on lopettanut työnsä. Ensi sunnuntain vaaleissa valitaan uusi eduskunta.
+
+Eduskunnan päättäjäisissä puhui muun muassa presidentti Sauli Niinistö. Hän sanoi, että Suomen täytyy säilyttää hyvät suhteet naapuriinsa Venäjään. Niinistö sanoi, että Suomen täytyy olla mukana kansainvälisessä turvallisuusyhteistyössä, mutta samalla Suomen täytyy pitää huolta omista suhteistaan Venäjään.
+
+Eduskunnan puhemies Eero Heinäluoma sanoi, että nyt tarvitaan vuoropuhelua ja yhteistyötä Venäjän kanssa.
+
+## Syyttäjä vaatii Aarniolle neljä vuotta vankeutta
+
+![Jari Aarnio häntä koskevien lahjus- ja virkarikosepäilyjen pääkäsittelyn alkaessa Helsingin käräjäoikeudessa 13. tammikuuta 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7930389)
+
+Avaa kuvien katselu
+
+Jari Aarnio. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Syyttäjä vaatii, että Helsingin huumepoliisin entinen päällikkö Jari Aarnio joutuu noin neljäksi (4) vuodeksi vankilaan muun muassa lahjuksen otosta.
+
+Jari Aarniota syytetään oikeudessa siitä, että hän on hankkinut Trevoc-firmalta laitteita Helsingin poliisille ja samalla ollut mukana firman toiminnassa. Aarnio sanoo, että hän ei ole päättänyt laitteiden ostosta eikä hän ole saanut Trevocista rahaa.
+
+Toukokuussa alkaa oikeudenkäynti, jossa Aarniota syytetään huumerikoksista. Syyttäjä vaatii niistä hänelle 13 vuoden vankilatuomiota. 
+
+## Kahvi säilyy parhaiten papuina
+
+![Kaksi Kahvipurkkia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7919032)
+
+Avaa kuvien katselu
+
+Kahvin aromit häviävät nopeasti. Kuva: Erik Tiessalo
+
+Kahvi säilyy huonosti paketissaan. 
+
+Kun kahvi jauhetaan tehtaassa ja pakataan tyhjiöpussiin, kahvi ei enää elä, sanoo asiantuntija Mikko Virtaperko. Kun pussi avataan, kahvin aromit häviävät muutamassa tunnissa. Kahvipaketti ei säily hyvin myöskään jääkaapissa.  
+
+Virtaperko sanoo, että kahvi säilyy parhaiten papuina. Kahvi kannattaa ostaa papuina ja jauhaa pavut juuri ennen kuin keittää kahvin. Pavut jauhetaan kahvimyllyllä. Halvin kahvimylly maksaa vain noin 10 euroa ja sitä käytetään käsivoimalla, Virtaperko sanoo.

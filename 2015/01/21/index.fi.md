@@ -1,0 +1,61 @@
+# Keskiviikko 21.1.2015
+
+Sota Itä-Ukrainassa kiihtyy. Amnesty: Ukrainassa soditaan siviilien keskellä. Sähköautot tulevat hiljalleen Suomen maanteille. Laulujoutsenet jäivät talveksi Suomeen.
+
+## Sota Itä-Ukrainassa kiihtyy
+
+![Ukrainalainen miehistönkuljetusvaunu Debaltsevon kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7749851)
+
+Avaa kuvien katselu
+
+Ukrainan armeijan panssarivaunu Debaltsevon kadulla Itä-Ukrainassa. Kuva: Anastasia Vlasova / EPA
+
+Ukrainan armeijan ja kapinallisten väliset taistelut kiihtyvät Itä-Ukrainassa. Ukraina myös sanoo, että Venäjän joukot ovat hyökänneet Ukrainan armeijaa vastaan Luhanskin alueella.
+
+Ukraina sanoo, että Venäjä lähettää nyt lisää aseita ja sotilaita Itä-Ukrainaan, koska kapinalliset ovat olleet alakynnessä eli olleet heikompia kuin Ukrainan armeija. Presidentti Petro Porošenko sanoo, että Ukrainassa on yli 9000 venäläissotilasta.
+
+Venäjän ulkoministeri Sergei Lavrov sanoo, että Ukrainalla ei ole todisteita siitä, että Itä-Ukrainassa on Venäjän joukkoja tai aseita.
+
+## Amnesty: Ukrainassa soditaan siviilien keskellä
+
+![Ukrainalainen asukas tarkastelee kranaattien aiheuttamaa tuhoa kodissaan Sartanan kylässä, joka sijaitsee lähellä Mariupolia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7750456)
+
+Avaa kuvien katselu
+
+Itäukrainalainen mies katsoo, miten kranaatit ovat tuhonneet hänen kotinsa. Kuva: Sergey Vaganov / EPA
+
+Ihmisoikeusjärjestö Amnesty International moittii Ukrainan armeijaa ja Itä-Ukrainan kapinallisia sodankäynnistä siviilialueilla.
+
+Amnesty sanoo, että molemmat rikkovat kansainvälisiä sääntöjä, kun ne käyttävät siviilialueita tykistön ampumapaikkoina.
+
+Amnesty sanoo, että sodan molemmat osapuolet vievät tykkejä auton lavoilla kyliin ja kaupunkeihin, jolloin siviilit eli tavalliset ihmiset joutuvat tulituksen ja vastatulituksen keskelle.
+
+## Sähköautot tulevat hiljalleen Suomen maanteille
+
+![Latausjohto kiinni sähköautossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7075961)
+
+Avaa kuvien katselu
+
+Sähkoautoille tarvitaan lisää latausasemia. Kuva: Yle
+
+Liikenne- ja viestintäministeriö uskoo, että sähköautojen suosio kasvaa Suomessa. Viime syksynä Suomen maanteillä ajoi noin 300 sähköautoa. Ministeriö uskoo, että viiden (5) vuoden kuluttua sähköautoja on jo ainakin 20 000.
+
+Sähköautoille tarvitaan lisää latausasemia. Liikenneministeriö sanoo, että lähivuosina pitää rakentaa ainakin 2000 latausasemaa. Nyt Suomessa on noin 250 sähköauton latauspistettä.
+
+Esimerkiksi Norjassa valtio tukee sähköautoja monin tavoin. Norjassa sähköautoja on käytössä yli 40 000.
+
+## Laulujoutsenet jäivät talveksi Suomeen
+
+![Laulujoutsenparvi ruokailee pellolla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7751008)
+
+Avaa kuvien katselu
+
+Joutsenparvi ruokailee pellolla Eckerössä Ahvenanmaalla. Kuva: Aleksi Lehikoinen
+
+Suuri määrä laulujoutsenia on jäänyt talveksi Suomeen. Lintujärjestö Birdlife Suomi kertoo, että noin 1300 laulujoutsenta viettää talvea Suomessa.
+
+Joutsenten määrää laskettiin viime viikonloppuna. Eniten laulujoutsenia nähtiin Ahvenanmaalla. Joutsenia on kuitenkin myös sisämaassa ja pohjoisessa. Pohjoisimmat paikat, joissa laulujoutsenia nähtiin, olivat Kolari ja Muonio.
+
+Laulujoutsenet ovat jääneet Suomeen, koska tämän talven sää on ollut niin leuto. Tavallisesti ne muuttavat talveksi Itämeren eteläosiin ja Pohjanmeren rannikolle.
+
+Iso, valkoinen ja pitkäkaulainen laulujoutsen on Suomen kansallislintu. Se on rauhoitettu eli sitä ei saa metsästää.

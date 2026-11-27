@@ -1,0 +1,77 @@
+# Sunnuntai 15.3.2020 (radio)
+
+Suomessa nyt 240 koronatapausta. Espanjassa alkoi hätätila. Lääkkeiden myynti kasvoi. Luontokohteissa on ruuhkaa. Korona-pelin suosio kasvaa.
+
+## Suomessa 240 koronatapausta
+
+![Keskussairaalan yhteispäivystys Kokkolassa.](https://img.img-cdn.yle.fi/crop_extract,w_4305,h_2422,x_0,y_249/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6524785e69eaaaef46e/1584000659)
+
+Avaa kuvien katselu
+
+Keskussairaalan päivystys Kokkolassa. Kuva: Sari Vähäsarja / Yle
+
+Suomessa on tullut tietoon 30 uutta koronavirustartuntaa. Yhteensä Suomessa on nyt 240 koronavirustartuntaa.
+
+Kaikkia koronavirustartuntoja ei ehkä tiedetä, koska kaikkia ihmisiä, joilla on flunssaoireita, ei enää testata.
+
+Lääkärit sanovat, että jos ei ole pahoja oireita, pitää sairastaa kotona. Jos on pahoja oireita, pitää soittaa terveyskeskukseen.
+
+## Lisää koronatoimia monissa maissa
+
+![Työntekijät siivoavat Madridin metroa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11254268)
+
+Avaa kuvien katselu
+
+Työntekijät siivoavat metroa Madridissa Espanjassa. Kuva: COMUNIDAD DE MADRID handout / Lehtikuva
+
+Espanja on julistanut hätätilan koronaviruksen takia. Liikkumista ja kauppojen aukioloa rajoitetaan Espanjassa.
+
+Myös Itävallassa rajoitetaan liikkumista. Yli 5 ihmisen kokoontumiset kielletään Itävallassa.
+
+Viro sulkee rajat kahdeksi viikoksi. Ulkomaalaisia matkustajia ei päästetä Viroon tiistaista alkaen.
+
+## Lääkkeitä ostetaan nyt paljon
+
+![apteekki valomainos apteekissa](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6408575e4146c11a76a/1581336329)
+
+Avaa kuvien katselu
+
+Apteekeista on ostettu nyt paljon lääkkeitä. Kuva: Marko Väänänen / Yle
+
+Lääkkeiden myynti on lisääntynyt paljon. Suomalaiset lääkefirmat kertovat, että apteekit ovat tilanneet nyt paljon kuume- ja kipulääkkeitä.
+
+Apteekit ovat tilanneet paljon lääkkeitä, koska ihmiset ovat ostaneet niitä paljon.
+
+Lääkefirmat sanovat, että Suomessa riittää lääkkeitä. Lääkkeistä ei ole pula, vaikka niitä on nyt myyty paljon.
+
+## Metsään tuli ruuhka
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5822188"
+
+Avaa kuvien katselu
+
+Nuuksion kansallispuisto. Kuva: Pekka Kauranen / YLE
+
+Monet ihmiset ovat lähteneet viikonloppuna luontoon.
+
+Helsingin seudulla luontokohteissa on ollut ruuhkaa. Luontokohteita hoitaa Metsähallitus. Metsähallitus sanoo, että Haukkalammella Nuuksiossa ja Meikossa Kirkkonummella on käynyt tosi paljon ihmisiä viikonloppuna.
+
+Ihmiset ovat lähteneet luontoon, koska monet tapahtumat ja harrastukset on peruttu koronaviruksen takia.
+
+Metsähallitus sanoo, että ihmisten on hyvä mennä esimerkiksi lähimetsään, missä ei ole niin paljon ihmisiä.
+
+## Korona-pelistä tuli uudelleen suosittu
+
+![Lähikuva Korona lautapelistä](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_628/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6529185e6b484f6bbde/1584089307)
+
+Avaa kuvien katselu
+
+Koronapeli tehdään puusta. Nappuloita lyödään kepillä koloihin nurkissa. Kuva: Minna Matintupa / Yle
+
+Lopuksi erilainen korona-uutinen. Korona-pelin suosio on lisääntynyt, koska koronasta puhutaan nyt paljon.
+
+Korona-peliä valmistaa Suomessa pieni lelutehdas Jyväskylässä. Tehtaalta kerrotaan, että korona-pelejä ostetaan nyt enemmän kuin yleensä. Myös vanhoihin korona-peleihin ostetaan varaosia.
+
+Korona-peliä pelataan puisella laudalla. Värikkäitä muovinappuloita lyödään puukepillä koloihin, joita on pelilaudan kulmissa.
+
+Korona-peliä on valmistettu Suomessa yli 75 vuotta.

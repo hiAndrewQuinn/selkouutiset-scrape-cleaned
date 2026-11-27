@@ -1,0 +1,97 @@
+# Uutisviikko selkosuomeksi | sunnuntai 22.11.2026
+
+Rajalaki. Venäläisalus. Sabotaasit. Työttömyys. Vaaratiedotus.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Rajalaki
+
+![Vaalimaan suljettu rajanylityspaikka Virolahdella.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_288/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-14010276773b87d5b93f/1735639571)
+
+Avaa kuvien katselu
+
+Suomen Vaalimaan raja-asema Venäjälle on suljettu, samoin kaikki muut Suomen raja-asemat. Kuva: Antro Valo / Yle
+
+Ensin aiheena on rajalaki.
+
+Suomi jatkaa rajalakia 2 vuotta. Se tarkoittaa, että Suomen rajat Venäjälle pysyvät kiinni.
+
+Eduskunta hyväksyi väliaikaisen rajalain vuonna 2024. Silloin Suomen itärajalle tuli nopeasti suuri joukko turvapaikanhakijoita.
+
+Suomi epäili, että Venäjän valtio järjesti turvapaikanhakijat rajalle.
+
+## Venäläisalus tulessa Suomenlahdella
+
+![Merellä kaksi punavalkoista pelastusalusta suihkuttaa vettä savua tuottavaan rahtilaivaan.](https://img.img-cdn.yle.fi/crop_extract,w_1081,h_610,x_114,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17420706b02ef34a2943/1795354581)
+
+Avaa kuvien katselu
+
+Venäläisalusta (kuvassa keskellä) saatetaan kohti Venäjän talousvesialuetta Suomenlahdella. Kuva: Rajavartiolaitos
+
+Sitten Venäjän hyökkäyssodan vaikutuksia.
+
+Venäläiseen rahtilaivaan iskettiin lauantaiaamuna Suomenlahdella. Droonit olivat ehkä ukrainalaisia.
+
+Laiva syttyi tuleen, ja sitä yritettiin sammuttaa ja jäähdyttää vielä sunnuntaina.
+
+Suomen Rajavartiolaitos johtaa pelastustoimia, koska laiva ajelehti Suomen aluevesille. Miehistö on siirretty venäläiseen pelastusalukseen.
+
+Rahtilaivan hinaaminen alkoi sunnuntai-iltana kohti Venäjän talousvesiä.
+
+Laiva on USA:n pakotelistalla ja kuuluu Venäjän puolustusministeriön alaisuuteen.
+
+Lastin sisällöstä ei tällä hetkellä ole tietoa.
+
+## Suojelupoliisi sabotaaseista
+
+![Suojelupoliisin päällikkö Juha Martelius, Ylen ykkösaamun ohjelma.](https://img.img-cdn.yle.fi/crop_extract,w_6991,h_3932,x_0,y_15/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17417916b015ef456b7a/1795252617)
+
+Avaa kuvien katselu
+
+Suojelupoliisin päällikkö Juha Martelius. Kuva: Mohamed El Bouari / Yle
+
+Sitten Suomen turvallisuudesta.
+
+Suojelupoliisi on havainnut Suomessa henkilöitä, jotka ovat valmistelleet sabotaasi-iskuja. Niitä on valmisteltu erityisesti puolustusalan yrityksiin.
+
+Suojelupoliisin päällikkö Juha Martelius muistuttaa, että esimerkiksi Viron kaltaiset iskut ovat mahdollisia. Virossa puolustusalan yritys yritettiin polttaa.
+
+Viro sanoo, että iskun takana oli Venäjä.
+
+## Työttömyys
+
+![Lasisen ulko-oven kyltissä lukee ”Tampereen seudun työllisyysalue&quot;.](https://img.img-cdn.yle.fi/crop_extract,w_5524,h_3107,x_0,y_283/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16860616a71ca43ddc06/1785845153)
+
+Avaa kuvien katselu
+
+Kuva: Miikka Varila / Yle
+
+Nyt uutinen työttömyydestä.
+
+Työ- ja elinkeinoministeriö ennustaa, että työllisyys paranee jo loppuvuoden aikana.
+
+Ensi vuonna ilman työtä on kuitenkin yhä 340 000 suomalaista.
+
+Vuonna 2028 työttömiä on ehkä hieman vähemmän, 328 000.
+
+Suomen talouden kasvu vaikuttaa siihen, kuinka paljon eri aloilla on työpaikkoja.
+
+## Vaaratiedote
+
+![ FI-Alert -testi-ilmoitus kännykän ruudulla.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_1149/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17395636afc4014c5d7c/1794916770)
+
+Avaa kuvien katselu
+
+Kuva: Jari Kovalainen / Yle
+
+Vielä vaaratiedottamisesta.
+
+Suomessa testattiin tiistaina, miten vaarasta varoitetaan suoraan puhelimiin.
+
+Testiviestin piti tulla kello 12, mutta kaikki eivät saaneet sitä. Osa sai viestin myöhemmin. Osa sai viestin ensin kolmella saamen kielellä ja vasta sitten suomeksi ja ruotsiksi.
+
+Tiistaina 24. marraskuuta testi tehdään uudelleen. FI-Alert-tiedotteesta tulee kello 12 ilmoitusääni, eikä sitä pysty puhelimen asetuksista estämään.
+
+Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

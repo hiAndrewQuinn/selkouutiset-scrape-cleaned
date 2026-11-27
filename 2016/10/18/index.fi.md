@@ -1,0 +1,73 @@
+# Tiistai 18.10.2016 (radio)
+
+Liettuan presidentti sanoo, että Venäjä näyttää aggressiivisesti voimaansa. Perhepäivähoitajia tarvitaan lisää. Koululaisilla on syysloma. Museot muuttuvat. Oulun kaupungin työntekijät Outi Ansamaa ja Sini Sivonen saivat palkinnon selkeästä kielestä.
+
+## Liettuan presidentti Suomessa
+
+![Liettuan presidentti Dalia Grybauskaitė.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9236350)
+
+Avaa kuvien katselu
+
+Dalia Grybauskaitė. Kuva: Kay Nietfeld / EPA
+
+Liettuan presidentti Dalia Grybauskaitė sanoo, että Venäjä näyttää voimaansa, kun se vei Iskander-ohjuksia Kaliningradiin.
+
+Liettuan presidentti on vierailulla Suomessa. Hän sanoi Helsingissä, että Iskander-ohjukset ovat hyökkäysaseita. Presidentti Grybauskaité sanoi, että Venäjä näyttää avoimesti ja aggressiivisesti voimaansa Baltialle ja Euroopan pääkaupungeille.
+
+Kaliningrad on Venäjän sotilastukikohta ja se sijaitsee Itämeren rannalla, Liettuan ja Puolan välissä.
+
+## Perhepäivähoitajia liian vähän
+
+![Lapset syövät makkaraa metsäretkellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9231484)
+
+Avaa kuvien katselu
+
+Hoitolapsia retkellä metsässä.  Kuva: Antti Kolppo / Yle
+
+Suomessa tarvitaan lisää lasten perhepäivähoitajia.
+
+Perhepäivähoitaja hoitaa omassa kodissaan lapsia, joiden vanhemmat ovat töissä. Perhepäivähoitajalla voi olla enintään neljä hoitolasta. Monet vanhemmat toivovat, että pieni lapsi pääsee perhepäivähoitoon, eikä joudu isoon päiväkotiin.
+
+Perhepäivähoitajia on kuitenkin liian vähän, koska iso osa heistä on jäänyt eläkkeelle. Työstä maksetaan pientä palkkaa, ja siksi se ei kiinnosta nuoria.
+
+Perhepäivähoitajia on enää alle 9 000. Esimerkiksi vuonna -90 heitä oli 30 000. 
+
+## Koululaiset lomalla
+
+![Tyhjä luokkahuone.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8669181)
+
+Avaa kuvien katselu
+
+Kouluissa on tällä viikolla hiljaista. Kuva: Petri Lassheikki / Yle
+
+Koululaisilla on tällä viikolla syysloma.
+
+Monissa kouluissa lomaa on koko viikko, joissakin kouluissa vain torstai ja perjantai. Moni perhe lähtee syyslomalla ulkomaille. Suosittuja matkakohteita ovat Viro, Ruotsi ja Espanja.
+
+## Museot muuttuvat
+
+![Aikakone](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9234097)
+
+Avaa kuvien katselu
+
+Helsingin kaupunginmuseossa voi kokeilla virtuaalitodellisuutta. Kuva: Maija Astikainen
+
+Museot kertovat historiasta, mutta moni museo haluaa tehdä sen uudella tavalla. Muuten museot eivät enää kiinnosta ihmisiä.
+
+Tavallisesti museossa on vanhoja tavaroita, valokuvia ja tekstejä. Uudenlaisissa museoissa on esimerkiksi hologrammeja, liikkuvaa kuvaa ja virtuaalitodellisuutta. Helsingin kaupunginmuseo uudistui viime keväänä, ja se on tosi suosittu. Sinne voi mennä myös esimerkiksi kahville, tapaamaan toisia ihmisiä tai tekemään töitä.
+
+Myös Suomen kansallismuseo uudistuu.    
+
+## Vuoden selväsanaiset
+
+![johtaja kädet neuvottelu sopimus mies nainen paperi kokous päätös](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6615465)
+
+Avaa kuvien katselu
+
+Jotkut Oulun kaupungin päätökset ymmärtää nyt helpommin. Kuva: Yle
+
+Oulun kaupungin työntekijät Outi Ansamaa ja Sini Sivonen ovat saaneet Vuoden selväsanainen -palkinnon.
+
+Ansamaa ja Sivonen muuttivat kaupungin päätösten kieltä helpommaksi. Päätösten kieli on nyt selkeämpää, joten ne on helpompi ymmärtää.
+
+Ansamaa ja Sivonen muuttivat päätöstekstejä kaupunkilaisten avulla. He pyysivät ihmisiltä palautetta ja muuttivat tekstejä sellaisiksi kuin ihmiset halusivat.

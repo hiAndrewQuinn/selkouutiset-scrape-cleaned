@@ -1,0 +1,77 @@
+# Keskiviikko 7.12.2022 (radio)
+
+Hallituspuolueiden riita. Linnan juhlien katsojat. Bensan hinta. Google-hakusanat. Sää.
+
+## Hallituspuolueiden riita
+
+![Pääministeri Sanna Marin tiedotustilaisuudessaan eduskunnassa Helsingissä ennen täysistuntoa 7. joulukuuta 2022.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-104484263908a2a51a76/1670420910)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin sanoo, että kaikkien hallituspuolueiden pitää puolustaa hallituksen ehdotuksia. Kuva: Vesa Moilanen / Lehtikuva
+
+Hallituspuolueet ovat sopineet riidan.
+
+Hallituspuolueille tuli riitaa, kun yksi hallituspuolueista eli keskusta äänesti eduskunnassa hallituksen omaa lakiehdotusta vastaan.
+
+Keskusta äänesti luonnonsuojelulaista opposition mukana. Oppositiossa ovat ne puolueet, jotka eivät kuulu hallitukseen.
+
+Pääministeri Sanna Marin sanoo, että tämän jälkeen kaikkien hallituspuolueiden pitää puolustaa hallituksen ehdotuksia eduskunnassa.
+
+## Linnan juhlien katsojat
+
+![Linnan juhlien vastaanotto.](https://img.img-cdn.yle.fi/crop_extract,w_1984,h_1116,x_0,y_562/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1044407638f7bcbcd891/1701606648)
+
+Avaa kuvien katselu
+
+Myös miehen puku voi yllättää. Tässä balettitanssia Atte Kilpinen Linnan juhlissa. Kuva: Benjamin Suomela / Yle
+
+Monet suomalaiset katsoivat itsenäisyyspäivänä Linnan juhlia televisiosta. Linnan juhlilla oli melkein 3 miljoonaa katsojaa.
+
+Linnan juhlat kiinnostivat katsojia, koska presidenttipari kutsui taas vieraita Presidentinlinnaan. Vuosina 2020 ja 2021 presidenttipari ei voinut kutsua vieraita koronan takia.
+
+Linnan juhlien vieraina oli tänä vuonna esimerkiksi sairaanhoitajia ja lääkäreitä. Vieraita oli yhteensä noin 1300. Se on vähemmän kuin ennen koronaa.
+
+Presidentti Sauli Niinistö ja rouva Jenni Haukio kättelivät vieraita myös tänä vuonna kuten ennen korona-aikaa. He kuitenkin puhdistivat käsiä käsidesillä monta kertaa.
+
+## Bensan hinta
+
+![Ihminen tankkaa autoa.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_456/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98817362e3b649c164f/1659092483)
+
+Avaa kuvien katselu
+
+Kuva: Aalto Puutio / Yle
+
+Bensan hinta on vähän laskenut.
+
+Bensalitran hinta oli viime viikolla pitkästä aikaa vähän alle 2 euroa. Bensalitra maksoi keskimäärin 1 euron ja 98 senttiä.
+
+Edellisen kerran bensalitra maksoi alle 2 euroa viime helmikuussa. Venäjä hyökkäsi Ukrainaan helmikuun lopulla. Sodan takia bensa on ollut tänä vuonna tosi kallista.
+
+Diesel maksaa nyt enemmän kuin bensa. Viime viikolla diesellitran hinta oli keskimäärin 2 euroa ja 14 senttiä.
+
+## Google-hakusanat
+
+![iPhone.](https://img.img-cdn.yle.fi/crop_extract,w_5052,h_2842,x_0,y_529/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5107665ba211ffc61a9/1723036768)
+
+Avaa kuvien katselu
+
+Myös puhelimella voi googlettaa eli tehdä Google-hakuja. Kuva: Carolina Husu / Yle
+
+Google on kertonut, mitä hakusanoja suomalaiset ovat käyttäneet netissä tänä vuonna.
+
+Suomalaiset ovat hakeneet tietoa Googlen avulla esimerkiksi Venäjän sodasta Ukrainassa. Suosittuja hakusanoja ovat olleet Ukraina, Venäjä, Nato ja Putin.
+
+Sodan takia myös energian hinta on noussut. Siksi suomalaiset ovat etsineet tietoa hakusanoilla pörssisähkön hinta ja bensan hinta.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12683849)
+
+Avaa kuvien katselu
+
+Torstaina sää on pilvistä ja lunta sataa suuressa osassa maata. Etelärannikolla lumisade on runsasta. 
+
+Torstaina on pakkasta 2 ja 10 asteen välillä, etelärannikolla lämpötila on nollan vaiheilla.
+
+Lumisateita saadaan vähän myös perjantaina. Pakkasta on perjantaina alle 10 astetta koko maassa.

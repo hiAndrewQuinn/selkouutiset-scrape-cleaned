@@ -1,0 +1,73 @@
+# Viikon uutinen selkosuomeksi | lauantai 8.8.2026
+
+Afrikkalainen sikarutto
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Tällä viikolla on puhuttu paljon afrikkalaisesta sikarutosta.
+
+Virolahdella lähellä itärajaa on löytynyt villisikoja, jotka ovat kuolleet afrikkalaiseen sikaruttoon.
+
+Tautia ei ole aiemmin ollut Suomessa. Sen leviämistä yritetään estää laajoilla rajoituksilla.
+
+Nyt kerromme asiasta lisää.
+
+## Tartunta-alue itärajalla
+
+![Kartta Kaakkois-Suomesta, jossa on keltaisella merkitty afrikkalaisen sikaruton tartuntavyöhyke Virolahdella, Miehikkälässä ja Lappeenrannan Ylämaalla.. Oranssilla on merkitty tartuntavyöhykkeen ydinalue.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16854726a7059768eb50/1785748468)
+
+Avaa kuvien katselu
+
+Virolahti, Miehikkälä ja Lappeenrannan Ylämaa ovat afrikkalaisen sikaruton tartunta-aluetta. Kuva: Pekka Sipilä / Yle, Mapcreator, OpenStreetMap
+
+Afrikkalaista sikaruttoa on löydetty Suomesta ensimmäistä kertaa. Tautia löytyi viime viikolla villisioista Virolahdella. Toissapäivänä, torstaina, samalta alueelta löytyi lisää kuolleita villisikoja.
+
+Afrikkalainen sikarutto on vakava eläintauti. Sika tai villisika kuolee tautiin. Siihen ei ole hoitoa tai rokotetta.
+
+Ihmiseen sikarutto ei tartu. Virus kuitenkin leviää helposti ihmisen mukana
+
+## Pitkät ja tiukat rajoitukset
+
+![kaksi villisikaa seisoo korkeassa ruohikossa.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_155/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7390275fa4c50796495/1636121863)
+
+Avaa kuvien katselu
+
+Suomessa on noin 2400 villisikaa, arvioi Luonnonvarakeskus. Eniten niitä on Kaakkois-Suomen raja-alueella. Kuva: Mostphotos
+
+Ruokavirasto on määrännyt itärajalle tiukat rajoitukset, joilla afrikkalaisen sikaruton leviäminen yritetään estää.
+
+Tartunta-alueella ei esimerkiksi saa metsästää, tehdä metsätöitä tai ulkoiluttaa koiraa vapaana. Ydinalueella eli kuolleiden villisikojen löytöpaikan lähellä ei saa kerätä marjoja tai sieniä eikä edes kävellä metsässä.
+
+Metsässä liikkumista on rajoitettu, jotta villisiat eivät pelästy ja siirry uusille alueille. Rajoituksilla halutaan myös estää viruksen siirtyminen esimerkiksi ihmisen kengissä tai koiran tassuissa.
+
+Rajoitukset voivat kestää yli vuoden.
+
+## Kova isku lihateollisuudelle
+
+![Kuvassa on keltamustaraitainen pahvilaatikko. Sen sisällä on ohje, jossa neuvotaan afrikkalaisen sikaruton tutkimukseksi villisiasta otettavan näytteet otto. Kuvan reunassa on verinäytteen ottamiseen käytettävät tyhjiöputki ja ruisku. ](https://img.img-cdn.yle.fi/crop_extract,w_4080,h_2295,x_0,y_174/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-151997768c0692150e04/1757440571)
+
+Avaa kuvien katselu
+
+Suomessa on osattu odottaa afrikkalaisen sikaruton tuloa, sillä tautia on tavattu naapurimaissa Ruotsissa ja Virossa. Kuva: Jarmo Koponen / Yle
+
+Ruokavirasto ja paikalliset metsästäjät käyvät parhaillaan läpi tartunta-aluetta. Tavoitteena on löytää kaikki kuolleet villisiat ja tutkia ne sikaruton varalta. Sen jälkeen Ruokavirasto voi arvioida, miten laajalle alueelle tauti on levinnyt.
+
+Afrikkalainen sikarutto on kova isku Suomen lihateollisuudelle. Vaikka tautia on nyt löytynyt vain villisioista, sianlihan vienti esimerkiksi Kiinaan ja Japaniin on jo pysähtynyt. Vientikiellot voivat kestää useita vuosia.
+
+Tappioita tulee myös metsätaloudelle, koska hakkuut ja metsätyöt on kielletty rajoitusalueella.
+
+## Kertaus
+
+Viikon uutinen kertoi tällä kertaa afrikkalaisesta sikarutosta. Kerrataan vähän.
+
+Suomesta on löytynyt ensimmäistä kertaa afrikkalaista sikaruttoa.
+
+Löytöpaikan ympärille itärajalle on määrätty rajoituksia, joilla sikaruton leviäminen yritetään estää.
+
+Siat ja villisiat kuolevat tautiin, mutta ihmiseen se ei tartu.
+
+Sikaruton takia sianlihan vienti moniin Aasian maihin on keskeytynyt.
+
+Tässä oli Viikon uutinen selkosuomeksi. Kuulemiin!

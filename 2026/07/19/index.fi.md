@@ -1,0 +1,99 @@
+# Uutisviikko selkosuomeksi | sunnuntai 19.7.2026
+
+Eduskunta koolle kesätauolta. Puukotuskuolema ja räjähdyskuolema. Veronpalautukset. Kuuttikuolemat. Britannian pääministeri.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Eduskunta keskeyttää kesätauon
+
+Aluksi sisäpolitiikkaa.
+
+Valtioneuvosto kokoontuu maanantaina ylimääräiseen yleisistuntoon. Hallitus käsittelee tiedonantoa Helsingin Garden-hallihankkeesta.
+
+Hallitus päätti aiemmin varata hankkeelle 35 miljoonan euron ehdollisen tuen. Oppositio on arvostellut pääministeri **Petteri Orpoa** ja päätöstä.
+
+Eduskunta kokoontuu käsittelemään tiedonantoa tiistaina.
+
+Eduskunta siis keskeyttää loman. Istuntokausi on keskeytetty Suomessa historian aikana vain 7 kertaa.
+
+![Ilmakuva Helsingin jäähallista ja sen ympäristöstä, taustalla Töölönlahti ja kaupungin rakennuksia.](https://img.img-cdn.yle.fi/crop_extract,w_5278,h_2970,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16767206a577ef073717/1784119351)
+
+Avaa kuvien katselu
+
+Monitoimihalli tulisi jäähallin viereiselle tontille, jossa on nyt pysäköintialue. Kuva: Jade Silpo / Lehtikuva
+
+## Kuolemat kadulla ja ruutitehtaalla
+
+![Ambulanssi Nammon Vihtavuoren tehtaan alueella.](https://img.img-cdn.yle.fi/crop_extract,w_3091,h_1738,x_1,y_131/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16768376a579ec4f1b57/1784127464)
+
+Avaa kuvien katselu
+
+Ambulanssi Nammon Vihtavuoren tehtaan alueella. Kuva: Jaana Polamo / Yle
+
+Noin 80-vuotias nainen on kuollut puukotuksessa Helsingin Kontulassa
+
+Teko tapahtui lauantaina julkisella paikalla metroaseman edessä.
+
+Poliisi otti kiinni 50-vuotiaan miehen, joka pakeni tapahtumapaikalta.
+
+Yksi ihminen on kuollut keskiviikkona räjähdyksessä Nammon Vihtavuoren ruutitehtaalla Laukaassa.
+
+Onnettomuustutkintakeskus kertoo, että räjähdys sai alkunsa paineputken sahaamisesta. Kuollut henkilö oli ulkopuolisen urakoitsijan edustaja.
+
+Tehtaassa on kesätauko.
+
+## Veronpalautukset
+
+![Veroilmoitus.](https://img.img-cdn.yle.fi/crop_extract,w_3677,h_2068,x_0,y_190/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-5943257a2f1525d353/1714978043)
+
+Avaa kuvien katselu
+
+Tilinumeroita puuttuu erityisesti nuorilta ensikertalaisilta. Kuva: Henrietta Hassinen / Yle
+
+Nyt uutinen veroista.
+
+Veronpalautus uhkaa viivästyä lähes 33 000 ihmiseltä. Syy on tilinumeron puuttuminen.
+
+Palautuksia on lähes 2,2 miljoonaa euroa.
+
+Tilinumeroita puuttuu erityisesti nuorilta ensikertalaisilta.
+
+Tilinumero pitää ilmoittaa OmaVerossa viimeistään 27. heinäkuuta. Jos tilinumero puuttuu, veronpalautus pitää lunastaa myöhemmin Nordea-pankista.
+
+## Kuuttikuolemat
+
+![Kuollut saimaannorppa katiskan sisällä rannalla.](https://img.img-cdn.yle.fi/crop_extract,w_1500,h_843,x_0,y_844/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16651076a3a5b2f3344d/1782209379)
+
+Avaa kuvien katselu
+
+Kuollut saimaannorppa katiskan sisällä rannalla. Kuva: Metsähallitus
+
+Sitten uhanalaisesta luonnosta.
+
+Jo 9. saimaannorpan poikanen eli kuutti on kuollut pyydykseen tänä kesänä. Viime viikonloppuna veneilijä löysi Pitkällä Pihlajavedellä kuolleen kuutin katiskasta.
+
+10 edellisen vuoden aikana keskimäärin 6 norppaa on kuollut vuodessa pyydyksiin.
+
+Kuolleita norppia on tullut tietoon tänä vuonna yhteensä 37. Metsähallituksella ei ole tietoa siitä, mistä kasvu pyydyskuolemissa johtuu.
+
+Saimaannorppa on erittäin uhanalainen. Saimaannorppa elää vain Saimaa-järvessä Itä-Suomessa.
+
+## Britannian uusi pääministeri
+
+![Andy Burnham puhujakorokkeella, taustalla lukee Labour Leadership 2026.](https://img.img-cdn.yle.fi/crop_extract,w_6129,h_3440,x_0,y_512/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16780506a5a1d1006336/1784300255)
+
+Avaa kuvien katselu
+
+Britannian työväenpuolueen johtaja ja tuleva päämministeri Andy Burnham. Kuva: Henry Nicholls / AFP
+
+Vielä ulkomailta.
+
+Britanniassa työväenpuolueen johtajaksi on valittu **Andy Burnham**.
+
+Hänestä tulee maanantaina Britannian seuraava pääministeri. Edellinen pääministeri **Keir Starmer** erosi viime kuussa.
+
+Burnham on jo 7. Britannian pääministeri 10 viime vuoden aikana.
+
+Tässä oli Uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

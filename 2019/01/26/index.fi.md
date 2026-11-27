@@ -1,0 +1,73 @@
+# Lauantai 26.1.2019 (radio)
+
+Viranomaiset keskeyttivät hoivakodin toiminnan Kristiinankaupungissa. Poliittiset puolueet ovat alkaneet valmistautua vaaleihin. Viveca Lindfors sai taitoluistelun EM-pronssia. Jäänmurtajat auttavat jo laivoja merellä. Ilmatieteen laitos varoittaa kovasta pakkasesta.
+
+## Hoivafirmaa tutkitaan
+
+![Kainalosauvoja tarvitseva mies.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10529716)
+
+Avaa kuvien katselu
+
+Hoivakodin pitää tarjota vanhuksille hyvää hoitoa. Kuva: Ismo Pekkarinen / AOP
+
+Viranomaiset ovat tällä viikolla keskeyttäneet hoivakodin toiminnan Länsi-Suomessa Kristiinankaupungissa. Viranomaiset sanovat, että vanhusten hoito on ollut huonoa hoivakoti Ulrikassa.
+
+Hoivakoti kuuluu firmalle, jonka nimi on Esperi Care. Koska Esperi Care ei ole antanut vanhuksille tarpeeksi hyvää hoitoa, kunta on nyt ottanut vastuun hoivakodista.
+
+Esperi Care myöntää, että hoivakodissa on ollut ongelmia. Se lupaa palkata lisää työntekijöitä.
+
+Viranomaiset tutkivat myös muita Esperi Caren hoivakoteja eri puolilla Suomea.
+
+## Vaalikampanjat käynnistyvät
+
+![Varapuheenjohtaja Sanna Marin SDP:n eduskuntavaalien kampanja-avauksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10615632)
+
+Avaa kuvien katselu
+
+SDP:n varapuheenjohtaja Sanna Marin. Kuva: Markku Ulander / Lehtikuva
+
+Poliittiset puolueet ovat alkaneet valmistautua vaaleihin. Eduskuntavaalit eli parlamenttivaalit järjestetään huhtikuussa.
+
+Lauantaina sosiaalidemokraatit ja vihreät aloittivat vaalikampanjan. Ne lupaavat äänestäjille esimerkiksi, että toisen asteen koulutus on opiskelijoille ilmaista, jos ne pääsevät valtaan.
+
+Sosiaalidemokraatit eli SDP ja vihreät ovat oppositiopuolueita, eli ne eivät ole nyt hallituksessa. Vaalituloksesta riippuu, mitkä puolueet pääsevät hallitukseen vaalien jälkeen.
+
+## Lindforsille EM-pronssia
+
+![Viveca Lindfors ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10615413)
+
+Avaa kuvien katselu
+
+Lindfors sai EM-mitalin taitoluistelussa. Kuva: Kirill Kudryavtsev / AFP
+
+Suomi on saanut mitalin taitoluistelun EM-kilpailuissa. Viveca Lindfors toi Suomelle pronssimitalin.
+
+Lindfors tuli sijalle 3 tiukassa kilpailussa. Kilpailun voittaja ja Euroopan mestari on Venäjän Sofia Samodurova. Sijalle 2 tuli Venäjän Alina Zagitova.
+
+Suomi ei ole saanut mitalia taitoluistelun EM-kilpailuissa moneen vuoteen. Viimeksi Kiira Korpi toi Suomelle EM-hopeaa 7 vuotta sitten.
+
+Taitoluisten EM-kilpailut järjestetään tällä kertaa Valko-Venäjän pääkaupungissa Minskissä.
+
+## Voima auttaa
+
+![Jäänmurtaja Otso](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10095588)
+
+Avaa kuvien katselu
+
+Jäänmurtajilla on nyt paljon työtä. Kuva: Arctia Oy
+
+Merellä on jo paksu jää. Jäänmurtaja Voima lähti lauantaina auttamaan laivoja Suomenlahdelle. Jäänmurtaja murtaa eli rikkoo jäätä, niin että laivat pääsevät kulkemaan.
+
+Pohjoisessa Perämerellä laivat ovat tarvinneet jäänmurtajien apua jo jonkin aikaa. Jäänmurtajat Otso, Kontio ja Polaris auttavat laivoja Perämerellä.
+
+## Pakkanen jatkuu
+
+![Talvimaisema Muoniosta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10605688)
+
+Avaa kuvien katselu
+
+Lapissa on nyt kova pakkanen. Kuva: AOP
+
+Ilmatieteen laitos varoittaa kovasta pakkasesta. Pakkasvaroitus koskee sunnuntaina ja maanantaina koko maata.
+
+Sunnuntain ja maanantain välinen yö on tosi kylmä. Pohjoisessa pakkasta voi olla melkein 40 astetta ja etelässä jopa 25 astetta.

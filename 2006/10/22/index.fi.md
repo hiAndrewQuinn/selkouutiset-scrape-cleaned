@@ -1,0 +1,33 @@
+# Sunnuntai 22.10.2006 (radio)
+
+Sunnuntain Selkouutisten aiheita ovat:
+
+Helsingin Hanasaaren maaperästä on löytynyt paljon syanidia.
+
+Nordean asiakkaille on taas lähetetty sähköpostia, jossa kysytään tunnuksia verkkopankkiin.
+
+Rekkajono Suomen ja Venäjän rajalla Vaalimaan tullissa oli sunnuntaina lyhyempi kuin lauantaina.
+
+Minä olen Lea Miettinen, hyvää päivää.
+
+* * *
+
+Helsingin Hanasaaren maaperästä on löytynyt paljon syanidia. Helsingin kaupunki on suunnitellut, että se rakentaa Hanasaareen taloja. Alueelle rakennetaan asuntoja noin 15 000 asukkaalle. Kalasataman kaupunginosaa aletaan rakentaa noin vuoden kuluttua.
+
+Hanasaaren maaperässä on syanidia jopa 360 kertaa enemmän kuin suosituksissa sanotaan. Syanidi on päässyt maaperään kaasulaitoksesta, joka on toiminut Hanasaaren lähellä.
+
+Syanidi on vaarallista ympäristömyrkkyä. Syanidi voi muuttua tappavaksi kaasuksi.
+
+* * *
+
+Nordean asiakkaille on taas lähetetty sähköpostia, jossa kysytään tunnuksia verkkopankkiin. Viestit ovat englanninkielisiä. Nordeasta sanotaan, että viestejä on lähetetty perjantaista lähtien. Huijarit yrittävät saada tunnuksia. He yrittävät päästä Nordean asiakkaiden pankkitileille.
+
+Pankki sanoo, että viestit pitää tuhota. Niitä ei saa avata eikä niihin saa missään nimessä vastata. Pankki ei koskaan kysy asiakkaiden verkkotunnuksia sähköpostilla.
+
+Pankki antaa myös ohjeita asiakkaille. Pankkikorttien tunnusluvut ja luottokorttinumerot ovat jokaisen asiakkaan henkilökohtaista tietoa. Verkkopankin henkilökohtaista asiakasnumeroa ja pankkitunnuksia ei saa säilyttää samassa paikassa. Jos ne ovat samassa paikassa, rosvot voivat helposti tyhjentää pankkitilin.
+
+* * *
+
+Rekkajono Suomen ja Venäjän rajalla Vaalimaan tullissa oli sunnuntaina lyhyempi kuin lauantaina. Lauantaina jono oli noin 35 kilometriä pitkä. Sunnuntaina jono oli noin 20 kilometriä pitkä. Rekat ovat matkalla Venäjälle. Rekat joutuvat jonottamaan rajalla sen takia, että tulli haluaa tarkastaa ne. Työ on hidasta.
+
+Presidentti Tarja Halonen ja Venäjän presidentti Vladimir Putin keskustelivat rekkajonoista perjantaina. Venäjän presidentti Vladimir Putin myönsi, että ruuhkille pitää tehdä jotakin. Venäjän puolella on parantamisen varaa.

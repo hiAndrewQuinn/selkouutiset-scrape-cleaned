@@ -1,0 +1,77 @@
+# Selkouutiset | torstai 25.6.2026
+
+Datakeskukset. Sote-rakennukset. Pionipuisto. Sääennuste.
+
+## Datakeskusten rakentaminen
+
+Aluksi uutinen datakeskuksien rakentamisesta.
+
+Datakeskukset työllistävät nyt monia suomalaisia.
+
+Datakeskuksia rakentaa noin 10 000 työntekijää. Yli puolet on suomalaisia.
+
+Veljekset **Antti** ja **Ville Finér** rakentavat parkkipaikkaa datakeskukselle Kouvolassa.
+
+Antti Finér kertoo, että veljesten firma tekee maanrakennustöitä yhdeksällä datakeskustyömaalla.
+
+Ville Finer kertoo, että firma on kasvanut viisinkertaiseksi.
+
+Datakeskukset työllistävät nyt monia suomalaisia.
+
+Ne työllistävät myös suunnittelutoimistoja.
+
+Suunnittelutoimisto Granlundin johtaja **Jari Innanen** kertoo, että datakeskukset ovat jo isoin suunnittelukohde.
+
+Kysyntä myös kasvaa nopeasti.
+
+## Sote-rakennukset
+
+Nyt uutinen vanhoista sote-rakennuksista.
+
+Tämä on entinen palvelutalo Iltarusko Pylkönmäellä.
+
+Se on tyhjä, koska hyvinvointialue irtisanoi vuokrasopimuksen.
+
+Suomessa on nyt paljon tyhjiä sote-rakennuksia.
+
+Syy on hyvinvointialueiden säästöt.
+
+Tyhjiä sote-rakennuksia on yli sata. Se on noin 25 prosenttia kaikista rakennuksista, joissa oli aiemmin sosiaali- ja terveyspalveluja.
+
+Kun sote-rakennukset vähenevät, myös monet työpaikat vähenevät.
+
+Esimerkiksi kiinteistönhoitajia ja vartijoita tarvitaan vähemmän kuin ennen.
+
+Kun työpaikat vähenevät, kunnasta muuttaa pois ihmisiä, ja kunnan verotulot vähenevät.
+
+Suomessa on nyt paljon tyhjiä sote-rakennuksia.
+
+Kunnat yrittävät myydä niitä, mutta ostajia on vaikea löytää.
+
+## Kotkan pionipuisto
+
+Lopuksi uutinen Kotkasta.
+
+Kotkan pionipuisto ilahduttaa kesällä monia ihmisiä.
+
+Pionipuistossa on noin 200 pionilajia ja yhteensä noin 800 pionia.
+
+Pionipuisto perustettiin 6 vuotta sitten.
+
+Idean pionipuistosta keksi kotkalainen **Jyrki Karppinen**.
+
+Hän kertoo, että tällainen pionipuisto on harvinainen koko Euroopassa.
+
+Kotkan pionipuisto ilahduttaa kesällä monia ihmisiä.
+
+Puistossa on käynyt vieraita esimerkiksi USA:sta, Kiinasta ja Japanista.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina tulee sadekuuroja idässä ja pohjoisessa.
+
+Etelässä ja lännessä on poutaa eli ei sada. Myös aurinko paistaa välillä.
+
+Lämpötila on pohjoisessa noin 15 astetta ja etelässä noin 20 astetta.

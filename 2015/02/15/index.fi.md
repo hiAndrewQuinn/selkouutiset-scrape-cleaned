@@ -1,0 +1,57 @@
+# Sunnuntai 15.2.2015
+
+Mies ampui ihmisiä Tanskassa. Suomen poliisi on huolestunut Tanskan iskujen takia. Pankkitilin puute on ongelma monille maahanmuuttajille. Suomi sai 20 uutta lottomiljonääriä.
+
+## Mies ampui ihmisiä Tanskassa
+
+![Poliisit tutkivat Kööpenhaminan ammuskelun jälkiä kulttuuritalon ovessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7806734)
+
+Avaa kuvien katselu
+
+Poliisi tutkii iskun jälkiä Kööpenhaminassa. Kuva: Liselotte Sabroe / EPA
+
+Tanskassa on tapahtunut kaksi (2) ampumisiskua. Iskuissa kuoli yhteensä kolme (3) ihmistä. Tanskan poliisi kertoo, että yksi (1) kuolleista on mies, joka melko varmasti teki iskut. Mies kuoli taistelussa poliisin kanssa.
+
+Ensimmäinen isku tapahtui Tanskan pääkaupungissa Kööpenhaminassa lauantaina iltapäivällä. Mies ampui tilaisuudessa, jossa oli mukana myös ruotsalainen taiteilija Lars Vilks. Vilks on tehnyt pilakuvia profeetta Muhammedista. Vilks ei loukkaantunut ampumisessa, mutta iskussa kuoli yksi (1) ihminen.
+
+Toinen isku tapahtui Kööpenhaminassa myöhään lauantaina. Silloin sama mies ampui lähellä juutalaisten synagogaa. Hän tappoi juutalaisen miehen, joka vartioi synagogan ovella. Synagogassa oli samaan aikaan paljon ihmisiä.
+
+Molemmissa iskuissa loukkaantui poliiseja.
+
+## Suomen poliisi on huolissaan Tanskan tapahtumista
+
+![Mikko Paatero](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6953218)
+
+Avaa kuvien katselu
+
+Poliisiylijohtaja Mikko Paatero. Kuva: Yle
+
+Suomen poliisi on huolestunut Tanskan iskujen takia. Poliisiylijohtaja Mikko Paatero sanoo, että poliisi haluaa olla valmis, jos joku aikoo matkia iskuja Suomessa. Paatero sanoo kuitenkin, että Tanskan tapahtumat eivät liity Suomeen.
+
+Suomen sisäministeri Päivi Räsänen sanoo, että viranomaisten täytyy huolehtia juutalaisten turvallisuudesta Suomessa. Poliisi valvoo tilannetta tarkasti, sisäministeri sanoo. Suomessa sisäministeri on vastuussa turvallisuudesta ja poliisin toiminnasta.
+
+## Pankkitilin puute voi olla ongelma maahanmuuttajalle
+
+![pankkitili tilinumero verkkopankki tili](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5766470)
+
+Avaa kuvien katselu
+
+Elämä on Suomessa melkein mahdotonta ilman pankkitiliä. Kuva: Juha Kemppainen / Yle
+
+Monilla maahanmuuttajilla on ongelmia työpaikalla, koska heillä ei ole pankkitiliä. Asiasta kirjoittaa sanomalehti Keskisuomalainen.
+
+Suomessa palkka maksetaan pankkitilille. Monilla maahanmuuttajilla on kuitenkin vaikeuksia pankkitilin avaamisessa. Myös tunnusten saaminen internetin verkkopankkia varten voi olla maahanmuuttajille vaikeaa.
+
+Joskus maahanmuuttaja saa palkan käteen seteleinä, joskus palkka maksetaan ystävän pankkitilille. On jopa mahdollista, että maahanmuuttaja menettää työpaikkansa, jos hänellä ei ole pankkitiliä.
+
+## Suomi sai uusia lottomiljonäärejä
+
+![Loton suosikkirivit.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7803397)
+
+Avaa kuvien katselu
+
+Lotto toi lauantaina onnen 20 ihmiselle. Kuva: Yle
+
+Suomi on saanut 20 uutta miljonääriä. Lauantaina lotossa löytyi kaksi (2) täysosumaa, joissa kaikki seitsemän (7) numeroa olivat oikein. Kummallakin täysosumalla voittaa melkein 14 miljoonaa euroa.
+
+Molemmat täysosumat menivät lottoporukalle, ja kummassakin lottoporukassa oli kymmenen (10) ihmistä. Se tarkoittaa, että jokainen 20 voittajasta sai yli miljoona euroa..

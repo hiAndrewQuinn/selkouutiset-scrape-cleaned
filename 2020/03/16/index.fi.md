@@ -1,0 +1,57 @@
+# Maanantai 16.3.2020 (radio)
+
+Suomi ottaa käyttöön valmiuslain koronaviruksen takia. Rajat laitetaan kiinni, koulut suljetaan ja julkiset kokoontumiset kielletään.
+
+## Suomi ottaa käyttöön valmiuslain
+
+![Li Andersson, Katri Kulmuni ja Sanna Marin hallituksen infotilaisuudessa 16. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11260448)
+
+Avaa kuvien katselu
+
+Opetusministeri Li Andersson, valtiovarainministeri Katri Kulmuni ja pääministeri Sanna Marin kertoivat uusista rajoituksista, joilla koronaviruksen leviämistä yritetään hillitä. Kuva: Petteri Bülow / Yle
+
+Suomi ottaa käyttöön valmiuslain. Valmiuslaki antaa viranomaisille mahdollisuuden rajoittaa kansalaisten perusoikeuksia.
+
+Valtioneuvosto eli hallitus ja Tasavallan presidentti ovat tänään todenneet yhdessä, että koronaviruksen takia tilanne Suomessa on niin poikkeuksellinen, että valmiuslaki pitää ottaa käyttöön.
+
+Tämä on ensimmäinen kerta Suomen historiassa, kun valmiuslaki otetaan käyttöön. Eduskunnan pitää vielä hyväksyä asia.
+
+## Kansalaisten elämää rajoitetaan monin tavoin
+
+![Yläkouulaisia oppitunnilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10998716)
+
+Avaa kuvien katselu
+
+Oppilaitokset siirtyvät etäopetukseen.  Kuva: Kalle Niskala / Yle
+
+Suomessa otetaan käyttöön paljon uusia rajoituksia koronaviruksen takia. Rajoituksilla halutaan estää koronaviruksen leviäminen Suomessa.
+
+Suomi aikoo esimerkiksi sulkea rajat ulkomaille. Tavaraliikenne rajojen yli kuitenkin jatkuu.
+
+Oppilaitokset suljetaan ja opetus pitää järjestää jollakin muulla tavalla, esimerkiksi etäopetuksena. Sen sijaan päiväkodit pidetään auki. Näin pienten lasten vanhemmat, jotka työskentelevät tärkeillä aloilla kuten esimerkiksi terveydenhuollossa, voivat edelleen käydä työssä.
+
+Yli 70-vuotiaita ihmisiä kehotetaan välttämään kontakteja muiden ihmisten kanssa. Lisäksi kielletään ulkopuolisten vierailut esimerkiksi vanhusten hoivakodeissa ja sairaaloissa.
+
+Museot, teatterit, kirjastot ja esimerkiksi urheilu- ja harrastustilat suljetaan. Lisäksi kielletään julkiset kokoontumiset, joissa on yli 10 ihmistä.
+
+Kaupat, apteekit ja kauppakeskukset pysyvät auki. Näissä paikoissa ei kuitenkaan saa oleskella turhaan.
+
+Rajoitukset ovat voimassa kuukauden.
+
+## Koronatartuntojen määrää ei tiedetä
+
+![Sairaanhoitaja ja hengityskone.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11259184)
+
+Avaa kuvien katselu
+
+Sairaanhoitaja ja hengityskone. Kuva: Anni Reenpää / Lehtikuva
+
+Suomessa on nyt todettu ainakin 272 koronavirustartuntaa. Terveyden ja hyvinvoinnin laitos sanoo, että tartuntoja voi oikeasti olla paljon enemmän.
+
+Tartuntojen oikeaa määrää ei enää tiedetä tarkasti, koska kaikkia tartuntaepäilyjä ei enää testata. Testi tehdään vain sellaisille potilaille, jotka ovat vakavasti sairaita tai kuuluvat riskiryhmiin tai ovat hoitohenkilökuntaa.
+
+Suomessa ensimmäinen koronaviruspotilas on joutunut tehohoitoon. Tähän asti koronaviruspotilaat ovat sairastaneet taudin lievänä.
+
+Koronavirus voi aiheuttaa hengitysvaikeuksia, jolloin potilas voi tarvita tehohoitoa. Hengitysvaikeuksia tulee vain pienelle osalle potilaista.
+
+Tietoa koronaviruksesta selkokielellä.

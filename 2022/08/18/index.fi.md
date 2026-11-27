@@ -1,0 +1,81 @@
+# Torstai 18.8.2022 (radio)
+
+Passien sormenjälkitiedot. Stressihormoni. Kauppojen sähkönkäyttö. EM-kulta. Sää.
+
+## Sormenjäljet
+
+![Kumihanskainen käsi pyörittelee sutia seinällä jossa on sormenjälkiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11841835)
+
+Avaa kuvien katselu
+
+Sormenjälkiä tutkitaan. Kuva: Jani Aarnio / Yle
+
+Passien sormenjälkitietoja halutaan käyttää rikosten tutkinnassa.
+
+Sisäministeriö selvittää, voiko poliisi käyttää passi- ja henkilökorttirekisterien sormenjälkiä rikostorjunnassa.
+
+Poliisi sanoo, että useat vakavat rikokset voivat selvitä, jos tiedot annetaan rikostutkijoiden käyttöön.
+
+Rekistereissä on noin 3 miljoonan henkilön sormenjäljet.
+
+Selvitys annetaan eduskunnan hallintovaliokunnalle lähiviikkoina.
+
+## Kylmälaitteet
+
+![Kylmää vaativien tuotteiden välikkö, oikealla rasvapaketteja, käytävän toisella puolella valmisruokia, käytävän päässä joitakin asiakkaita.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99502862fb85509f727/1660650968)
+
+Avaa kuvien katselu
+
+Kylmälaitteet kuluttavat paljon sähköä. Avoimet kuluttavat enemmän kuin suljetut. Pakastekaapeissa on useimmiten kansi tai ovi. Kuva: Saara Hirvonen / Yle
+
+Suomessa kaupan ala käyttää noin 3–4 prosenttia kaikesta sähköstä. Eniten sähköä kuluu valaistukseen ja kylmälaitteisiin.
+
+Monissa marketeissa on kymmeniä metrejä avoimia kylmähyllyjä. Niissä on yleensä eineksiä, lihoja ja maitotuotteita.
+
+Valtion kestävän kehityksen yhtiö Motivan asiantuntija Harri Heinaro suosittelee suljettuja hyllyjä. Ne voivat kuluttaa sähköä noin 40 prosenttia vähemmän kuin avohyllyt.
+
+Kaupan alan suurimmat ketjut ovat S- ja K-ryhmä sekä Lidl. Ne kertovat, että ovien ja kansien käyttö on suositus kaikissa myymälöissä, joita uudistetaan.
+
+Uusimiseen menee vielä vuosia.
+
+## Korona ja kortisoli
+
+![Positiivista tulosta näyttävä koronan kotitesti.](https://img.img-cdn.yle.fi/crop_extract,w_3024,h_1701,x_0,y_1454/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98198662cff047c14e4/1657794732)
+
+Avaa kuvien katselu
+
+Koronasairaus on monilla ihmisillä pitkäkestoinen. Kuva: Antti Seppälä / Yle
+
+Stressihormoni kortisolin määrä elimistössä voi ennustaa sitä, ketkä sairastuvat pitkittyneeseen koronatautiin. Niin sanottuun long covidiin sairastumisesta kertoo yhdysvaltalainen tutkimus.
+
+Tutkimuksessa verrattiin verrokkiryhmiin niitä, jotka olivat sairastuneet pitkittyneeseen koronatautiin.
+
+Pitkittyneessä koronataudissa veren kortisolitaso oli noin puolet matalampi kuin verrokkiryhmissä.
+
+## EM-kulta
+
+![Wilma Murto tuulettaa.](https://img.img-cdn.yle.fi/crop_extract,w_4865,h_2736,x_0,y_101/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99582162fd7003eefc9/1660776476)
+
+Avaa kuvien katselu
+
+Wilma Murto hyppäsi EM-kultaa seiväshypyssä. Kuva: Filip Singer / EPA
+
+Vielä iloinen urheilu-uutinen.
+
+Suomi on saanut uuden Euroopan-mestarin yleisurheilussa. Wilma Murto voitti myöhään keskiviikkona seiväshypyn Euroopan- mestaruuden Münchenissä.
+
+Murto voitti kultaa tuloksella 485. Murron aiempi Suomen ennätys parani nyt 13 senttimetriä.
+
+Murron voittotulos 485 on EM-kisaennätys ja tämän vuoden toiseksi kovin tulos koko maailmassa.
+
+Wilma Murron voitto on historiallinen: viimeksi suomalaisnainen on voittanut yleisurheilussa EM-kultaa vuonna 1994.
+
+## Sää
+
+![Kolme punaisena ja oranssina hehkuvaa sääkarttaa vierekkäin. Pe, la ja su.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12582587)
+
+Avaa kuvien katselu
+
+Etelästä virtaa perjantaina lämmintä ilmaa. Sade- ja ukkoskuuroja tulee monin paikoin lännessä ja pohjoisessa. Lapissa päivä on paikoin sateinen.
+
+Maan etelä- ja keskiosassa lämpötila kohoaa 25 ja 30 asteen välille. Lauantaina Lapissakin lämpötila nousee 25 asteeseen.

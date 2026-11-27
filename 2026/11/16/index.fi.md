@@ -1,0 +1,51 @@
+# Selkouutiset | maanantai 16.11.2026
+
+Suomen puolustuksen rahat. Paikallisliikenteen lippujen hinnat. Seurakuntavaalien äänestäminen.
+
+## Suomen puolustamisen rahat
+
+Aluksi Suomen puolustuksen rahoista.
+
+Puolustusministeri **Antti** **Häkkänen** sanoo, että rahaa puolustukseen ei saa vähentää.
+
+Häkkänen sanoo, että suunnitelmat säästää puolustuksesta ovat vastuuttomia.
+
+Suomen pitää varata useita miljardeja euroja lisää rahaa puolustukseen Nato-jäsenyyden takia.
+
+Puolustusministeri Antti Häkkänen sanoo, että rahaa puolustukseen ei saa vähentää.
+
+Kristillisdemokraatit ovat sanoneet, että myös puolustusrahoista pitää säästää.
+
+## Paikallisliikenteen lippuhinnat
+
+Sitten bussippujen hinnoista.
+
+Paikallisliikenteen lippujen hinnat vaihtelevat paljon eri kaupungeissa. Paikallisliikenteessä voi matkustaa bussilla, junalla, metrolla tai raitiovaunulla.
+
+Yle vertaili 18 suuren kaupunkiseudun lippuhintoja. Vertailussa olivat halvimmat liput, joilla voi matkustaa pienimmällä alueella.
+
+Kallein kuukausilippu on Helsingin seudulla, jossa se maksaa lähes 74 euroa. Halvin kuukausilippu on Seinäjoella, jossa se maksaa 42 euroa.
+
+Paikallisliikenteen lippujen hinnat vaihtelevat paljon eri kaupungeissa.
+
+Joissakin kaupungeissa lippujen hinnat voivat vielä nousta.
+
+## Seurakuntavaalien äänestäminen
+
+Vielä evankelis-luterilaisen kirkon vaaleista.
+
+Seurakuntavaalien äänestysprosentti nousi monissa suurissa kaupungeissa. Koko maan äänestysprosentti oli hieman yli 14 prosenttia.
+
+Edellisen kerran kirkon vaalit olivat neljä vuotta sitten. Silloin äänestysprosentti oli 12,7.
+
+Seurakuntavaalien äänestysprosentti nousi monissa suurissa kaupungeissa.
+
+Esimerkiksi Helsingissä ja Tampereella äänestysprosentti nousi pari prosenttiyksikköä edellisistä vaaleista.
+
+## Sää
+
+Vielä sääennuste.
+
+Tiistaina isossa osassa maata sataa vettä, räntää tai lunta. Pohjoisessa ei sada.
+
+Lämpötilat vaihtelevat -10 ja +7 asteen välillä.

@@ -1,0 +1,51 @@
+# Selkouutiset | perjantai 13.2.2026
+
+Ministeriero. Wolt-ruokalähetit. Talvilomat. Sää.
+
+## Ministeriero
+
+Aluksi kotimaan politiikkaa.
+
+Sosiaali- ja terveysministeri vaihtuu.
+
+Perussuomalaisten **Kaisa Juuso** jättää sosiaali- ja terveysministerin työn.
+
+Juuso sanoo tiedotteessa, että ministerin työ on ollut raskasta, ja hän on joutunut tekemään vaikeita päätöksiä.
+
+Juuson ministeriaikana hallitus on tehnyt isoja leikkauksia sosiaali- ja terveyspalveluihin.
+
+Sosiaali- ja terveysministeri vaihtuu. Perussuomalaisten puheenjohtaja **Riikka Purra** sanoo, että uusi sosiaali- ja terveysministeri valitaan mahdollisimman pian.
+
+## Wolt-ruokalähetit
+
+Sitten kerromme ruokaläheteistä.
+
+Wolt-ruokalähettipalvelu on palkannut ensimmäiset ruokalähetit työsuhteeseen. Se tarkoittaa, että lähetit ovat Woltin työntekijöitä, kun he tähän asti ovat olleet yrittäjiä.
+
+Työsopimuksessa sanotaan, että ruokalähetti saa päättää omat työajat. Lähetti ei saa palkkaa tilausten odottamisesta. Wolt maksaa lähetille vain ajasta, joka kuluu ruokatilausten kuljettamiseen. Lähetin pitää käyttää työssä omaa ajoneuvoa ja puhelinta.
+
+Wolt on palkannut ensimmäiset ruokalähetit työsuhteeseen. Wolt aikoo palkata yhteensä sata lähettiä maaliskuun loppuun mennessä.
+
+Suurin osa ruokaläheteistä tekee silti yhä työtä yrittäjänä.
+
+## Talvilomat
+
+Sitten aiheena talvilomat.
+
+Koululaisten talvilomat ovat alkamassa.
+
+Etelä-Suomen kouluissa loma on ensi viikolla. Sen jälkeen lomavuorossa ovat koululaiset esimerkiksi Keski-Suomessa. Lopuksi on Pohjois- ja Itä-Suomen vuoro.
+
+Talvilomat ovat alkamassa.
+
+Monet ihmiset lähtevät lomalle pohjoisen hiihtokeskuksiin.
+
+Maanteillä voi olla paljon lomaliikennettä jo tänään ja viikonloppuna. Myös pohjoisen junissa on paljon matkustajia.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Sää on huomenna aurinkoista ja kylmää koko maassa. Vain Pohjois-Pohjanmaalla pilvisyys on runsaampaa.
+
+Pakkasta on 10...20 astetta. Lapissa pakkasta voi olla jopa 30 astetta.

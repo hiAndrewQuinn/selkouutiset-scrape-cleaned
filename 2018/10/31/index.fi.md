@@ -1,0 +1,71 @@
+# Keskiviikko 31.10.2018 (radio)
+
+10 ihmistä tuomittiin vankilaan, koska he myivät taideväärennöksiä. Ville Niinistö ei halua Vihreiden puheenjohtajaksi eikä enää eduskuntaan. Suomalaisia sotilaita on mukana Naton isossa sotaharjoituksessa Norjassa. Ylen verkkosivujen Verolaskurilla voi katsoa, mihin veroeurot menevät. Elokuva Queen-yhtyeestä tulee Suomeen perjantaina.
+
+## Pitkiä vankilatuomioita taidehuijareille
+
+![Kuvassa taideväärennöksiä, Ilkka Lammin ja Fernand Légerin teokset.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7760946)
+
+Avaa kuvien katselu
+
+Väärennettyjä tauluja. Kuva: Keskusrikospoliisi
+
+10 ihmistä on tuomittu vankilaan, koska he ovat myyneet taideväärennöksiä.
+
+Helsinkiläisen taidekaupan omistajat myivät väärennettyjä tauluja 5 vuotta, yhteensä yli 13 miljoonalla eurolla. Toinen heistä joutuu vankilaan 5 vuodeksi ja toinen 4 vuodeksi. Oikeus määräsi pariskunnan myös maksamaan korvauksia yhteensä 13 miljoonaa euroa. Muut 8 ihmistä auttoivat pariskuntaa huijaamaan ostajia.
+
+Väärennösjuttu menee ehkä vielä hovioikeuteen.
+
+## Ville Niinistö ei halua Vihreiden johtajaksi
+
+![Ville Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10484404)
+
+Avaa kuvien katselu
+
+Ville Niinistö. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Kansanedustaja Ville Niinistö ei halua Vihreiden puheenjohtajaksi. Niinistö jää pois myös eduskunnasta keväällä.
+
+Vihreä puolue valitsee uuden puheenjohtajan lauantaina. Ehdokkaita on kuitenkin vasta yksi: kansanedustaja Outi Alanko-Kahiluoto. Uuden puheenjohtajan ensimmäinen tärkeä tehtävä on vaalikampanja. Eduskuntavaalit pidetään noin 5 kuukauden päästä.
+
+Vihreiden puheenjohtaja vaihtuu, koska Touko Aalto sairastui ja lopetti puheenjohtajana viime viikolla.
+
+## Suomalaiset harjoittelevat Naton kanssa
+
+![Nato järjesti taistelunäytöksen Trondheimin liepeillä osana Trident Juncture -sotaharjoitusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10483943)
+
+Avaa kuvien katselu
+
+Nato harjoittelee Norjassa. Kuva: Petri Raivio / YLE
+
+Sotilasliitto Natolla on iso sotaharjoitus Norjassa.
+
+Suomi ei ole Naton jäsen, mutta suomalaisia sotilaita on mukana Naton harjoituksessa. Suomalaiset sotilaat harjoittelevat puolustusta yhdessä muiden eurooppalaisten kanssa. Nato ei ole pitänyt näin suurta sotaharjoitusta moneen kymmeneen vuoteen. Harjoituksessa on mukana noin 50 000 sotilasta.
+
+Venäjä testaa tällä viikolla ohjuksia samalla alueella, missä Nato harjoittelee. Nato toivoo, että Venäjä tekee testit turvallisesti.
+
+## Laskuri kertoo, mihin verot kuluvat
+
+![Yle verolaskuri 2018](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10483506)
+
+Avaa kuvien katselu
+
+Verolaskuri löytyy osoitteesta: yle.f.i Kuva: Yle
+
+Huomenna torstaina vietetään veropäivää.
+
+Media kertoo, ketkä saivat viime vuonna eniten rahaa ja kuinka paljon he maksoivat veroja.
+
+Jokainen voi tutkia omia veroja jo nyt. Ylen verkkosivuilla on Verolaskuri. Se kertoo, kuinka paljon annat rahaa esimerkiksi kouluihin, eläkkeisiin tai ympäristönsuojeluun.
+
+## Elokuva Queen-yhtyeestä
+
+![Gwilym Lee Brian Mayn roolissa ja Rami Malek Freddie Mercuryn roolissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10482669)
+
+Avaa kuvien katselu
+
+Rami Malek esittää Freddie Mercuryä elokuvassa. Kuva: Alex Bailey / Twentieth Century Fox
+
+Perjantaina on Queen-yhtyeestä kertovan elokuvan ensi-ilta Suomessa.
+
+Queen-yhtyeen laulaja Freddie Mercury oli kuuluisa rock-tähti eri puolilla maailmaa. Hän oli ensimmäinen supertähti, joka kuoli aidsiin. Elokuva kertoo myös Freddie Mercuryn parisuhteista naisten ja miesten kanssa, mutta pääosassa on musiikki.

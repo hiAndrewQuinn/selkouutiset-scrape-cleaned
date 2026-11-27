@@ -1,0 +1,70 @@
+# TV \| Selkouutiset \| tiistai 28.1.2025
+
+Ikä. Talous. Historia. Sää.
+
+## Ikä
+
+Ensin aiheena ikä.
+
+Ikäsyrjintä on Suomessa yleinen ongelma.
+
+Ikäsyrjintää on se, että ihminen ei saa työpaikkaa, koska hän ei ole enää nuori.
+
+Ikäsyrjintä on ongelma monelle yli 55 vuotta vanhalle ihmiselle.
+
+Suomessa joka neljäs yli 55-vuotias on kokenut ikäsyrjintää.
+
+Suomessa ikäsyrjintä on yleinen ongelma.
+
+Jotkut isot työnantajat yrittävät torjua ikäsyrjintää.
+
+Esimerkiksi S-ryhmän kaupat eivät kysy, mikä on työnhakijan ikä.
+
+Posti kouluttaa pomot niin että he tietävät ikäsyrjinnästä enemmän.
+
+## Talous
+
+Sitten aiheena talous.
+
+Suomalaiset ajattelevat, että heidän rahatilanne on nyt huono.
+
+Heillä on synkät ajatukset myös koko Suomen taloudesta.
+
+Monet pelkäävät, että työnantaja irtisanoo heidät pian.
+
+Suomalaiset ajattelevat, että rahatilanne on huono.
+
+Siksi ihmiset eivät uskalla ostaa esimerkiksi autoa tai uutta asuntoa.
+
+Ihmiset pelkäävät käyttää rahaa. Se on huono asia Suomen taloudelle.
+
+## Historia
+
+Sitten aiheena historia.
+
+Auschwitzin keskitysleiri vapautettiin 80 vuotta sitten.
+
+Maanantaina oli Auschwitzin vapauttamisen muistopäivä.
+
+Maanantaina oli myös kaikkien holokaustin uhrien muistopäivä.
+
+Holokausti tarkoittaa juutalaisten kansanmurhaa toisen maailmansodan aikana.
+
+Auschwitzin keskitysleiri on Puolassa. Saksalaiset rakensivat sen, kun oli toinen maailmansota.
+
+Auschwitzin keskitysleiri vapautettiin 80 vuotta sitten.
+
+Auschwitzissa saksalaiset murhasivat yli miljoona ihmistä. Heistä suurin osa oli juutalaisia.
+
+## Sää
+
+Vielä sääennuste.
+
+Keskiviikkona sataa. Etelässä on plusasteita.
+
+Sade on vettä, ja maa on märkä. Sade liikkuu pohjoiseen.
+
+Samalla ilma kylmenee, ja sade muuttuu lumisateeksi.
+
+Pohjoisessa ei sada.
+

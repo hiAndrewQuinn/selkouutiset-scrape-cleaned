@@ -1,0 +1,71 @@
+# Torstai 15.11.2018 (radio)
+
+Britannian pääministeri Theresa May on vaikeuksissa brexitin takia. Suomen pääministeri uskoo, että Britannian parlamentti hyväksyy sopimuksen EU-erosta. Suomalaisessa hanavedessä on vain vähän mikromuovia. Vantaa etsii kummiperheitä nuorille maahanmuuttajille. Sää on viikonloppuna kuivempaa ja kylmempää kuin viime päivinä.
+
+## Brexit-sopimusta vastustetaan
+
+![Theresa May](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10510507)
+
+Avaa kuvien katselu
+
+Britannian pääministeri Theresa May. Kuva: AFP
+
+Britannian pääministeri Theresa May on vaikeuksissa brexitin takia. Brexit tarkoittaa Britannian eroa Euroopan unionista.
+
+Britannian hallitus hyväksyi keskiviikkona suunnitelman erosopimuksesta, mutta jo torstaina ministereitä erosi hallituksesta suunnitelman takia.
+
+Myös Britannian parlamentti riitelee sopimuksesta. Parlamentti päättää todennäköisesti joulukuussa, hyväksyykö se sopimuksen.
+
+Erosopimuksen vaikein asia on, miten Britannian ja EU-maa Irlannin raja voidaan pitää auki. Asia on tosi tärkeä Pohjois-Irlannille, joka on osa Britanniaa.
+
+Britit päättivät kansanäänestyksessä vuonna 2016, että maa eroaa EU:sta. Tarkoitus on, että ero tulee voimaan ensi vuonna.
+
+## Sipilä uskoo sopimukseen
+
+![Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10502662)
+
+Avaa kuvien katselu
+
+Suomen pääministeri Juha Sipilä. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Suomen pääministeri Juha Sipilä uskoo, että Britannian parlamentti hyväksyy sopimuksen EU-erosta. Sipilän mielestä suunnitelma sopimuksesta on hyvä.
+
+Brexit vaikuttaa myös suomalaisiin. Suomelle on tärkeää, että esimerkiksi vapaakauppa Britannian ja EU:n välillä jatkuu myös Britannian EU-eron jälkeen. Jos suomalaisista tavaroista pitää maksaa tullia Britanniassa, suomalaisten firmojen toiminta kärsii.
+
+## Hanavedessä ei mikromuovia
+
+![Vettä valutetaan lasiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6829865)
+
+Avaa kuvien katselu
+
+Suomalainen hanavesi on turvallista. Kuva: Yle
+
+Suomalaisessa hanavedessä on vain vähän mikromuovia. Mikromuovi tarkoittaa tosi pieniä muovihiukkasia. Mikromuovia irtoaa eniten autonrenkaista.
+
+Tutkijat tutkivat Helsingin, Tuusulan ja Nurmijärven seudun hanavesiä. Tulokset kertovat, että vedenpuhdistus toimii Suomessa hyvin.
+
+Viranomaiset kuitenkin muistuttavat, että vesiä tutkittiin vain osassa Suomea.
+
+## Kummiperheitä tarvitaan
+
+![Naiset kävelylenkillä pellolla - koira kuvan etualalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10405224)
+
+Avaa kuvien katselu
+
+Kummiperhe voi esimerkiksi ulkoilla yhdessä nuoren kanssa. Kuva: Pixabay
+
+Vantaa etsii kummiperheitä nuorille maahanmuuttajille. Kummiperhe on tärkeä alle 18-vuotiaalle maahanmuuttajalle, joka on tullut Suomeen yksin.
+
+Kummiperhe voi olla ihan tavallinen perhe. Perheellä pitää vain olla aikaa maahanmuuttajanuorelle. Perhe voi esimerkiksi ulkoilla tai tehdä ruokaa yhdessä nuoren kanssa.
+
+## Sää kylmenee
+
+![Lämpötilakarttoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10509613)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää muuttuu viikonloppuna. Sää on viikonloppuna kuivempaa ja kylmempää kuin viime päivinä.
+
+Sunnuntaina pohjoisessa on jo vähän pakkasta. Etelässä lämpötila on vähän nollan yläpuolella.

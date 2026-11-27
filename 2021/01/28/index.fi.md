@@ -1,0 +1,73 @@
+# Torstai 28.1.2021 (radio)
+
+Helsingin seudun kaupungit avaavat lasten ja nuorten harrastustilat. Koronatartuntojen määrä kasvaa. Hallitus haluaa hidastaa sähkön siirtohintojen nousua. Näyttelijä Tiina Rinne on kuollut.
+
+## Koronatartuntoja tulee lisää
+
+![Terveyden ja hyvinvoinnin laitoksen THL:n kyltti Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11760661)
+
+Avaa kuvien katselu
+
+THL eli Terveyden ja hyvinvoinnin laitos kertoo Suomen koronaluvut. Kuva: Emmi Korhonen / Lehtikuva
+
+Koronatartuntojen määrä kasvaa Suomessa edelleen.
+
+Viimeisten 2 viikon aikana on raportoitu noin 1000 koronatartuntaa enemmän kuin edellisten 2 viikon aikana.
+
+Torstaina raportoitiin yli 400 uutta koronatartuntaa. Lisäksi kerrottiin, että uusia koronakuolemia on 4. Suomessa on kuollut yhteensä 664 ihmistä koronan takia.
+
+## Lasten harrastustilat aukeavat
+
+![Nuoria pelaamassa koripalloa liikuntasalissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11662848)
+
+Avaa kuvien katselu
+
+Lapset ja nuoret pääsevät taas harrastuksiin Helsingin seudulla. Kuva: Janne Lindroos / Yle
+
+Helsingin seudun kaupungit avaavat lasten ja nuorten harrastustilat ensi viikolla. Helsinki, Espoo ja Vantaa kertoivat asiasta keskiviikkona.
+
+Kaupunkien päätös tarkoittaa, että alle 20-vuotiaat pääsevät taas harrastamaan sisätiloissa. Harrastuksissa on ollut yli 2 kuukauden tauko.
+
+Harrastuksissa pitää kuitenkin muistaa koronaohjeet, esimerkiksi käsien pesu ja turvavälit.
+
+## Sähkön siirtohintojen nousua hidastetaan
+
+![Miehet asentavat sähkömaakaapelia maan alle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10909730)
+
+Avaa kuvien katselu
+
+Sähkökaapeleita kaivetaan maahan. Kuva: Markku Rantala / Yle
+
+Hallitus haluaa hidastaa sähkön siirtohintojen nousua. Hallitus ehdottaa, että sähkön siirtohinnat eivät saa nousta yli 8 prosenttia vuodessa.
+
+Sähkönsiirto tarkoittaa sähköenergian kuljetusta asiakkaille sähköverkkoja pitkin. Siirtofirmat ottavat siirrosta maksun asiakkailta, esimerkiksi kodeilta. Monien asiakkaiden mielestä maksut ovat liian korkeita.
+
+Lisäksi hallitus antaa siirtofirmoille lisää aikaa varmistaa sähkönsiirto esimerkiksi kaivamalla sähkökaapeleita maahan. Siirtofirmojen pitää saada työ valmiiksi vuoden 2036 loppuun mennessä. Työ on kallista, mutta sähkökaapelit toimivat varmemmin kuin sähkölinjat, jotka ovat ilmassa.
+
+## Tiina Rinne on kuollut
+
+![Näyttelijä Tiina Rinne ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11756755)
+
+Avaa kuvien katselu
+
+Näyttelijä Tiina Rinne. Kuva: Anne Hämäläinen / Yle
+
+Näyttelijä Tiina Rinne on kuollut. Rinne oli 91-vuotias.
+
+Tiina Rinne teki pitkän uran näyttelijänä. Hän aloitti näyttelijän työt vuonna 1950. Rinne näytteli teatterissa ja televisiossa.
+
+Monet suomalaiset muistavat Tiina Rinteen tv-sarjasta Kotikatu. Rinne näytteli sarjassa Maija Mäkimaata. Rinne oli mukana Kotikadussa niin kauan kuin sarjaa tehtiin, yhteensä 17 vuotta.
+
+Tiina Rinne oli teatterisuvusta. Molemmat Rinteen vanhemmat olivat näyttelijöitä. Myös monet Rinteen sukulaiset valitsivat näyttelijän ammatin.
+
+## Suomeen tulee lisää lumisateita
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11762012)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Perjantaina lumisateita leviää idästä Suomeen. Viikonloppuna lunta sataa koko maassa.
+
+Lämpötila on koko maassa pakkasella. Pohjoisessa pakkasta on 10 - 20 astetta. Maan etelä ja keski-osassa pakkasta on vähemmän.

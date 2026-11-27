@@ -1,0 +1,73 @@
+# Maanantai 4.4.2022 (radio)
+
+Unkarin vaalit. Pakotteet Venäjää vastaan. Koronaluvut. Sähköautojen suosio. Sää.
+
+## Unkarin vaalit
+
+![Viktor Orban heiluttaa kättään.](https://img.img-cdn.yle.fi/crop_extract,w_1962,h_1098,x_0,y_122/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-937315624a669a076c4/1649043245)
+
+Avaa kuvien katselu
+
+Unkarin pääministeri Viktor Orbán. Kuva: Attila Kisbenedek / AFP
+
+Unkarissa on järjestetty parlamenttivaalit. Unkarilaiset äänestivät parlamenttivaaleissa sunnuntaina.
+
+Vaalien voittaja on pääministeri Viktor Orbánin puolue. Orbánin Fidesz-puolue sai noin 53 prosenttia äänistä.
+
+Vaalitulos tarkoittaa, että Orbán voi jatkaa pääministerin tehtävässä. Orbán on ollut Unkarin pääministeri jo 12 vuotta.
+
+Orbánin vastustajat menestyivät vaaleissa huonosti. Orbánin vastustajien oli vaikea tehdä vaalityötä, koska Orbánin puolue valvoo esimerkiksi Unkarin televisiota.
+
+Unkari on osa Euroopan unionia. Orbán on kuitenkin saanut EU-mailta kritiikkiä siitä, että Unkari ei noudata demokratiaa.
+
+## Pakotteet Venäjää vastaan
+
+![Ukrainalainen mies joukkohaudan edessä Butšan kaupungissa Ukrainassa.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_136/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-937774624b080e1d0f8/1649084608)
+
+Avaa kuvien katselu
+
+Ukrainalaisesta Butšan kaupungista on löydetty myös joukkohautoja.  Kuva: Sergei Supinsky / AFP
+
+Euroopan unioni suunnittelee uusia pakotteita Venäjää vastaan. Pakotteet ovat rangaistus Venäjälle, joka on hyökännyt Ukrainaan.
+
+Seuraavaksi EU ehkä vähentää öljyn ja kivihiilen ostamista Venäjältä. Syynä ovat Venäjän teot Ukrainassa.
+
+Ukraina sanoo, että Venäjä on tappanut monia tavallisia ukrainalaisia, jotka eivät olleet sotilaita. Ukraina kertoo, että esimerkiksi Butšan kaupungissa Venäjän sotilaat ampuivat ihmisiä kadulle.
+
+Venäjä sanoo, että se ei ole syyllinen näihin tekoihin.
+
+## Koronaluvut
+
+![Suojavarusteisiin pukeutunut lähihoitaja Janina Kinnunen koronapotilaan kanssa.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2806,x_10,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90015261dc1ea0a80f2/1641816347)
+
+Avaa kuvien katselu
+
+Vielä on paljon koronapotilaita, jotka tarvitsevat sairaalahoitoa. Kuva: Henrietta Hassinen / Yle
+
+Suomessa on viikonloppuna ollut 74 kuolemantapausta, jotka liittyvät koronavirukseen.
+
+Viikonlopun aikana on todettu melkein 12 000 uutta koronatartuntaa. Luvussa ei ole mukana tartuntoja, jotka on todettu kotitestillä. Siksi uusia koronatartuntoja on yhteensä paljon enemmän.
+
+Terveyden ja hyvinvoinnin laitos eli THL sanoo, että tästä lähtien se kertoo koronatietoja vain kerran viikossa. THL kertoo uudet koronaluvut aina torstaina.
+
+## Sähköautojen suosio
+
+![Tesla-sähköautoja latauksessa Norjassa. ](https://img.img-cdn.yle.fi/crop_extract,w_4792,h_2696,x_0,y_217/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-862659615c0f93e8442/1730535785)
+
+Avaa kuvien katselu
+
+Sähkön hinta ei ole noussut yhtä paljon kuin bensan hinta. Kuva: Tore Meek / EPA
+
+Suomessa ostetaan nyt paljon sähköautoja. Sähköautojen suosio kasvaa, koska bensa on nyt kallista. Bensan hinta on noussut enemmän kuin sähkön hinta.
+
+Ostopäätös voi kuitenkin olla vaikea, koska ostajan pitää odottaa uutta sähköautoa ehkä jopa vuosi. Yksi syy siihen on se, että auton komponenteista eli osista on maailmalla pulaa. Se myös nostaa auton hintaa.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12390286)
+
+Avaa kuvien katselu
+
+Tiistaina koko maassa sataa paljon lunta ja tuulee kovaa. Lämpötila on -9 ja +1 asteen välillä. Ajokeli on huono tai erittäin huono.
+
+Keskiviikkona lunta sataa pohjoisessa. Viikon loppupuolella lumisateita voi tulla taas etelään.

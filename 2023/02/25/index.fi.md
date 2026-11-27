@@ -1,0 +1,77 @@
+# Lauantai 25.2.2023 (radio)
+
+Saamelaiskäräjälaki. Vastaamon tietomurto. Korvaushoito. Kevätseuranta. Sää.
+
+## Saamelaiskäräjälaki
+
+![Pääministeri Sanna Marin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689341)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin Ylen tv-studiossa lauantaina. Kuva: Sakari Piippo / Yle
+
+Pääministeri Sanna Marin on pettynyt, koska saamelaiskäräjälain uudistus ei onnistunut. Uudistus kaatui perjantaina, koska osa puolueista vastusti sitä. 
+
+Marinin hallituksen tavoite on ollut edistää saamelaisten oikeuksia. Hallituspuolueet ovat kuitenkin riidelleet saamelaiskäräjälain uudistuksesta, ja hallituspuolue keskusta on vastustanut uudistusta.
+
+Uudistuksen tavoite oli lisätä saamelaisten oikeutta päättää itse omista asioista. Saamelaiskäräjälaki määrää esimerkiksi sen, kuka saa äänestää saamelaiskäräjävaaleissa.
+
+Saamelaiskäräjien tehtävä on turvata se, että saamelaisten kulttuuri säilyy Suomessa. Saamelaiset ovat alkuperäiskansa, ja Suomessa saamelaisia asuu noin 10 000.
+
+## Vastaamon tietomurto
+
+![Miehen kasvot ja Vastaamon kyltti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688819)
+
+Avaa kuvien katselu
+
+25-vuotias Julius Kivimäki oli ehkä Vastaamon tietomurron tekijä. Kuva: Europol, Juha Kemppainen / Yle, grafiikka: Aalto Puutio / Yle
+
+Psykoterapiakeskus Vastaamon tietomurrosta on saatu uutta tietoa. 
+
+Ranskasta on tuotu Suomeen mies, joka ehkä teki tietomurron. Ranskan poliisi otti miehen kiinni helmikuun alussa.
+
+Mies on 25-vuotias suomalainen. Hän on nyt Vantaan vankilassa.
+
+Poliisi epäilee, että mies murtautui psykoterapiakeskus Vastaamon tietojärjestelmään muutama vuosi sitten. Mies varasti ihmisten potilastietoja ja yritti ehkä kiristää rahaa tietojen avulla.
+
+Rikostapaus on iso, koska tietomurrossa varastettiin yli 33 000 ihmisen potilastietoja.
+
+## Korvaushoito
+
+![Helsingissä Harjun nuorisotalon vieressä käytetään suonensisäisiä huumeita. Paikalta löytyy muun muassa käytettyjä &quot;värkkejä&quot; eli pumppuja, neuloja ja puhdistuslappuja.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_286/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1006413631ed7ec4754d/1668069460)
+
+Avaa kuvien katselu
+
+Huumeruisku. Kuva: Silja Viitala / Yle
+
+Nuorten huumekuolemia voidaan vähentää korvaushoidoilla. Näin arvioi ylilääkäri Margareeta Häkkinen. 
+
+Nykyään korvaushoitoja ei anneta alle 18-vuotiaille. Ylilääkäri Häkkinen sanoo, että nuorten korvaushoidoille ei ole lääketieteellistä estettä.
+
+Korvaushoidossa potilas saa vahvoja lääkkeitä, jotta hän voi lopettaa huumeiden käytön.
+
+## Kevätseuranta
+
+![Kukka ja sammakko auringossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689342)
+
+Avaa kuvien katselu
+
+Kevätseurannassa tehdään havaintoja kasvi- ja eläinlajeista. Kuva: Anna Sirén / Yle
+
+Luonto-Liiton kevätseuranta alkaa tänä viikonloppuna. 
+
+Kevätseurannassa tutkitaan 8 viikonlopun aikana, miten Suomen kevät edistyy. Havaintoja tehdään yli 40 kasvi- ja eläinlajista.
+
+Kaikki voivat osallistua Kevätseurantaan. Omista havainnoista voi kertoa Kevätseurannan nettisivuilla osoitteessa kevatseuranta.fi.
+
+Luonto-Liitto on ympäristöjärjestö, joka järjestää esimerkiksi luontoleirejä lapsille.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689345)
+
+Avaa kuvien katselu
+
+Sunnuntai on aurinkoinen pakkaspäivä. Pakkasta on päivällä 5 ja 10 asteen välillä. Lapissa voi sataa lunta. 
+
+Maanantaina sää lämpenee. Föhntuuli puhaltaa lännestä ja tuo lämmintä ilmaa koko maahan. Lämpötila on Länsi-Suomessa jopa 5 plusastetta.

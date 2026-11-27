@@ -1,0 +1,79 @@
+# Selkouutiset | tiistai 31.3.2026
+
+Sotilasdroonit. Nuorten työttömyys. Öylätit. Sääennuste.
+
+## Sotilasdroonit
+
+Aluksi uutinen drooneista.
+
+Suomessa keskustellaan Ukrainan sotilaslennokeista eli drooneista.
+
+Suomeen putosi sunnuntaina kaksi Ukrainan sotilasdroonia.
+
+Putoamispaikat eristettiin.
+
+Armeija räjäytti toisen droonin, koska siinä oli ehkä räjähde.
+
+Toinen drooni hajosi, kun se putosi.
+
+Suomessa keskustellaan Ukrainan sotilasdrooneista.
+
+Ulkoministeri **Elina Valtonen** sanoo, että syy drooneihin on Venäjä, koska se on hyökännyt Ukrainaan.
+
+Suomi ei kiellä Ukrainaa lähettämästä drooneja Venäjää kohti.
+
+Ukraina on pyytänyt anteeksi, että sen drooneja putosi Suomeen.
+
+## Nuorten naisten työttömyys
+
+Nyt uutinen nuorten naisten työttömyydestä.
+
+Nuorten naisten työttömyys kasvaa.
+
+Se kasvoi viime vuonna enemmän kuin muiden ikäryhmien työttömyys.
+
+Vantaalainen **Taru Kyllönen** on etsinyt töitä jo joulukuusta lähtien.
+
+Nuorten naisten työttömyys on nyt suurempaa kuin nuorten miesten työttömyys.
+
+Esimerkiksi sosiaali- ja terveysala työllistää paljon naisia, mutta alalta on vähennetty paljon työpaikkoja.
+
+Kun työllisyystilanne on huono, nuoret kärsivät ensimmäisinä.
+
+Taru Kyllönen sanoo, että työn löytäminen tuntuu vaikealta.
+
+”Pikkuhiljaa alkaa tuntua että jaksaako tässä hakea niitä työpaikkoja kun kaikista vastataan suoraan, että ”emme nyt valinneet sinua”.
+
+Kyllönen jatkaa kuitenkin työn hakemista.
+
+## Ehtoollisleivät eli öylätit
+
+Lopuksi asiaa ehtoollisleivistä.
+
+Tämä on Diakonissalaitoksen leipomo Helsingin Kalliossa.
+
+Täällä on tehty ehtoollisleipiä eli öylättejä jo 100 vuotta.
+
+Leipomossa valmistetaan joka vuosi noin 800 000 öylättiä.
+
+Leivät tehdään käsityönä vehnäjauhoista ja vedestä.
+
+Tärkein asia on ulkonäkö ja kaunis krusifiksikuvio leivän päällä.
+
+Leipuri **Pia Greus** kertoo, että öylätit eivät maistu miltään.
+
+”Ne ei juurikaan maistu miltään, mutta sehän meillä ei ookaan tärkeintä.”
+
+Diakonissalaitoksen leipomossa on tehty ehtoollisleipiä jo 100 vuotta.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona pohjoisessa ja idässä sataa. Tuulenpuuskat voivat olla kovia.
+
+Etelässä ja Keski-Suomessa on aurinkoista.
+
+Lämpötila on sateisilla alueilla vähän nollan yläpuolella.
+
+Aurinkoisilla alueilla lämpötila on noin 10 astetta.

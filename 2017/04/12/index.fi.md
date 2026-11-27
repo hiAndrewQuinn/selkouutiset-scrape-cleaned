@@ -1,0 +1,73 @@
+# Keskiviikko 12.4.2017 (radio)
+
+Venäjän ja USAn suhteet huonot Syyrian takia. Pieniä asuntoja edelleen liian vähän. Poliisi paljasti enemmän huumerikoksia. Junalipun ostaminen muuttuu. Pääsiäisen liikenne on vilkasta.
+
+## Venäjän ja USA:n suhteet huonot Syyrian takia
+
+![Yhdysvaltain ulkoministeri Rex Tillerson ja Venäjän ulkoministeri Sergei Lavrov](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9563377)
+
+Avaa kuvien katselu
+
+Venjän ja USA:n ulkoministerit tapasivat Moskovassa.  Kuva: Sergei Chirkov / EPA
+
+Venäjä varoittaa USA:ta uudesta iskusta Syyriaan. Asiasta puhui Venäjän ulkoministeri Sergei Lavrov, kun hän tapasi Moskovassa USA:n ulkoministerin Rex Tillersonin.
+
+USA:n ja Venäjän suhteet huonontuivat, kun USA laukaisi ohjuksia Syyriaan viime viikon alussa. USA:n mielestä Venäjä peittelee Syyrian syyllisyyttä kemialliseen iskuun Syyriassa.
+
+Iskussa kuoli kymmeniä ihmisiä.
+
+## Pieniä asuntoja edelleen liian vähän
+
+![Yksiön pohjapiirros](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8350233)
+
+Avaa kuvien katselu
+
+Eniten pulaa on yksiöistä.  Kuva: Arkkitehtitoimisto Lukkaroinen Oy
+
+Suomessa on edelleen pulaa pienistä kodeista. Pieniä asuntoja ei ole tarpeeksi esimerkiksi Helsingin seudulla.
+
+Pienistä kodeista on pulaa myös muualla Suomessa kaupungeissa, joihin muuttaa lisää ihmisiä.
+
+Eniten tarvitaan yksiöitä eli yhden huoneen ja keittiön asuntoja. Myös kahden huoneen ja keittiön asunnoista eli kaksioista on pulaa. Asuntopula nostaa hintoja.
+
+## Poliisi paljasti enemmän huumerikoksia
+
+![Huumekätkö rekassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8627633)
+
+Avaa kuvien katselu
+
+Vaasassa rekka-autosta löytyi amfetamiinipiilo vuonna 2016.  Kuva: Tulli.
+
+Poliisi on selvittänyt huumerikoksia enemmän kuin ennen. Poliisin tietoon tuli viime vuonna lähes 10 prosenttia enemmän pahoja huumerikoksia kuin vuonna 2015.
+
+Poliisin mukaan törkeissä huumejutuissa epäilty on usein ulkomaalainen. 
+
+Poliisin tietoon tuli viime vuonna yhteensä yli 25 000 huumausainerikosta. Se on noin 2000 enemmän kuin vuonna 2015.
+
+## Junalipun ostaminen muuttuu
+
+![Pukinmäen asema.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8412944)
+
+Avaa kuvien katselu
+
+Lähijunasta ei voi enää ostaa lippua kesäkuun puolivälin jälkeen.  Kuva: Henrietta Hassinen / Yle
+
+Junalipun ostaminen muuttuu Helsingin seudulla. Kesäkuun puolen välin jälkeen junalippua ei voi ostaa enää lähiliikenteen junassa. Halutaan, että lippu ostetaan ennen kuin junaan mennään.
+
+Lähiliikenteen junat kulkevat vain Helsingin lähellä. Jos matkustaa kaukojunalla eli esimerkiksi InterCity-junalla Helsingistä toiseen kaupunkiin, voi lipun ostaa edelleen myös junasta.   
+
+Muutoksen jälkeen lähijunissa näkyy paljon enemmän VR:n työntekijöitä kuin nykyään. He tarkastavat lippuja ja huolehtivat matkustajien turvallisuudesta.
+
+## Pääsiäisen liikenne on vilkasta
+
+![Renkaanpainetta mitataan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8784093)
+
+Avaa kuvien katselu
+
+Viranomaisten mielestä vielä ei kannata vaihtaa autoon kesärenkaita.  Kuva: Yle
+
+Huomenna torstaina on paljon liikennettä, koska pääsiäinen alkaa. Moni suomalainen matkustaa esimerkiksi tervehtimään sukulaisia.
+
+Viranomaiset sanovat, että auton talvirenkaita ei kannata vielä vaihtaa kesärenkaisiin, koska tie voi olla liukas.
+
+Poliisi valvoo autojen nopeuksia esimerkiksi yli sadalla tolppakameralla. Jos kamera välähtää, voi kodin postilaatikkoon tulla sakkolappu.

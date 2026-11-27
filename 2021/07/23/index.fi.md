@@ -1,0 +1,84 @@
+# Perjantai 23.7.2021
+
+Olympialaisten avajaiset. Koululaisten koronarokotukset. Postinjakajan rikosepäily. Sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Olympialaisten avajaiset
+
+![Ihmiset kuvaavat valaistuja olympiarenkaita auringon laskiessa Tokiossa 22. heinäkuuta.](https://img.img-cdn.yle.fi/crop_extract,w_2999,h_1687,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83460560f98a6cf171b/1626967328)
+
+Avaa kuvien katselu
+
+Tokio on nyt olympiakaupunki. Kuva: Philip Fong / AFP
+
+Olympialaiset on avattu. Avajaisia vietettiin Japanin pääkaupungissa Tokiossa perjantaina.
+
+Uimari Ari-Pekka Liukkonen ja ampuja Satu Mäkelä-Nummela kantoivat Suomen lippua, kun Suomen joukkue saapui stadionille. Suomen joukkueessa on 45 urheilijaa.
+
+Tokion olympialaiset piti järjestää jo vuosi sitten. Ne kuitenkin siirrettiin koronan takia. Nyt olympialaiset järjestetään, mutta koronan takia ilman yleisöä.
+
+Suomessa olympialaisia voi seurata TV2:sta ja Yle Areenasta.
+
+## Koululaisten koronarokotukset
+
+![Nainen saa koronarokotuksen. ](https://img.img-cdn.yle.fi/crop_extract,w_4539,h_2553,x_0,y_404/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83309160f412098b03e/1633521111)
+
+Avaa kuvien katselu
+
+Yläkoululaisten koronarokotukset alkavat ehkä heti syksyllä. Kuva: /All Over Press
+
+Suomessa suunnitellaan koululaisten koronarokotuksia.
+
+Rokotetutkimuskeskuksen johtaja Mika Rämet arvioi, että yläkoululaisten koronarokotukset voivat alkaa pian. Yläkoululaisilla tarkoitetaan 12-15 -vuotiaita.
+
+Yläkoululaisten koronarokotukset alkavat ehkä samaan aikaan, kun koulut alkavat. Koulut alkavat noin 3 viikon kuluttua.
+
+Rämetin mielestä on mahdollista, että koululaiset saavat koronarokotukset kouluterveydenhuollosta. Rämät sanoo, että yläkouluikäinen osaa jo itse päättää, ottaako hän koronarokotuksen.
+
+Mika Rämet kertoo myös, että alakouluikäisten eli alle 12-vuotiaiden lasten rokottamista tutkitaan. Jos alakoululaiset päätetään rokottaa koronaa vastaan, rokotukset alkavat vasta ensi vuoden puolella eli koulujen kevätlukukaudella.
+
+## Suomen koronaluvut
+
+![Mieheltä otetaan koronatesti](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82110660c87b18bdba3/1623751620)
+
+Avaa kuvien katselu
+
+Koronatestipisteillä on paljon asiakkaita. Kuva: Yrjö Hjelt / Yle
+
+Koronatartuntojen määrä kasvaa. Perjantaina kerrottiin, että Suomessa on 412 uutta koronatartuntaa.
+
+Uusia koronakuolemia ei ole viime päivinä ilmoitettu.
+
+Melkein 65 prosenttia suomalaisista on saanut ensimmäisen koronarokotuksen, ja 30 prosenttia suomalaisista on saanut molemmat koronarokotukset.
+
+## Postinjakajan rikosepäily
+
+![Postinkantaja](https://img.img-cdn.yle.fi/crop_extract,w_4214,h_2370,x_0,y_270/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-413991595e03bf6df55/1571807253)
+
+Avaa kuvien katselu
+
+On epätavallista, että postinjakajaa epäillään rikoksesta. Kuva: Henrietta Hassinen / Yle
+
+Poliisi epäilee, että postinjakaja teki rikoksen Porissa, Länsi-Suomessa.
+
+Postinjakaja jätti jakamatta noin 2000 lähetystä. Lähetykset löytyivät pukukaapista.
+
+Poliisi sanoo, että postinjakaja oli nuori ja kokematon. Hän ei ole enää töissä Postissa.
+
+## Viikonlopun sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12033138)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää lämpenee viikonloppuna.
+
+Etelässä on sunnuntaina ehkä jo hellettä. Lämpötila on siis yli 25 astetta.
+
+Pohjoisessa on vielä sunnuntaina viileämpää ja vettä voi vähän sataa.
+
+Ensi viikon alussa sää lämpenee myös pohjoisessa.

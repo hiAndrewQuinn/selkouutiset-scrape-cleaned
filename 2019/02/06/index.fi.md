@@ -1,0 +1,87 @@
+# Keskiviikko 6.2.2019 (radio)
+
+Hoivakodeissa on sattunut ehkä kuolemia, jotka ovat johtuneet huonosta hoidosta. USA:n presidentti Donald Trump ja Pohjois-Korean johtaja Kim Jong-un tapaavat 3 viikon kuluttua. Melkein kaikille lapsille annetaan Suomessa rokotus. Henkilökorttia joutuu odottamaan jopa 2 kuukautta. Keskiviikkona on vietetty saamelaisten kansallispäivää.
+
+## Yle selvitti kuolemia hoivakodeissa
+
+![Kainalosauvoja tarvitseva mies.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10529716)
+
+Avaa kuvien katselu
+
+Hoivakodeissa on sattunut epäilyttäviä kuolemantapauksia. Kuva: Ismo Pekkarinen / AOP
+
+Yle on selvittänyt vanhusten kuolemia hoivakodeissa.
+
+Hoivakodeissa on sattunut ehkä 15 kuolemaa, jotka ovat johtuneet huonosta hoidosta. Kuolema on voinut johtua esimerkiksi hoitovirheestä. Viranomaiset tutkivat kuolemia 2:n viime vuoden ajalta.
+
+Lisäksi Ylen tiedossa on monta tapausta, joissa omainen syyttää hoivakotia vanhuksen kuolemasta.
+
+## Eduskunta keskusteli opposition välikysymyksestä
+
+![Oppositiopuolueet jättivät välikysymyksen vanhustenhoidon tilasta eduskunnan lainsäädäntöjohtaja Tuula Kulomäelle (oik) Helsingissä perjantaina 1. helmikuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10625324)
+
+Avaa kuvien katselu
+
+Oppositio jätti välikysymyksen vanhustenhoidosta viime viikolla. Kuva: Jussi Nukari / Lehtikuva
+
+Eduskunnassa hallitus ja oppositio ovat keskustelleet hoitajien määrästä. Oppositio jätti viime viikolla välikysymyksen vanhustenhoidosta.
+
+Eduskunta äänestää hallituksen luottamuksesta perjantaina.
+
+## Presidentti Trump puhui kongressissa
+
+![Donald Trump pitää Kansakunnan tila -puhetta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10632796)
+
+Avaa kuvien katselu
+
+USA:n presidentti Donald Trump puhui kongressissa. Kuva: EPA / Shawn Thew
+
+USA:n presidentti Donald Trump on pitänyt puheen kongressissa.
+
+Trump sanoi, että Pohjois-Korean johtaja Kim Jong-un on ystävä. Trump ja Kim tapaavat 3 viikon kuluttua Vietnamissa.
+
+Trump otti kunnian USA:n hyvästä taloudesta. Trump sanoi, että USA:ssa on entistä enemmän työpaikkoja.
+
+## Suomen rokotuskattavuus on hyvä
+
+![vauvaa rokotetaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10440819)
+
+Avaa kuvien katselu
+
+Suomessa lapset rokotetaan. Kuva: AOP
+
+Melkein kaikille lapsille annetaan Suomessa rokotus. Rokotus estää tautien tarttumisen.
+
+Esimerkiksi tuhkarokko on tarttuva tauti. Tuhkarokko tarttuu helposti, jos rokotus puuttuu.
+
+Jotkut vanhemmat ajattelevat, että rokotuksista voi olla haittaa. Esimerkiksi Pohjanmaalla lapsia rokotetaan liian vähän.
+
+## Henkilökorttia joutuu odottamaan
+
+![Kuva vuoden 2017 alussa käyttöön otettujen uusien passien ja henkilökorttien ulkoasusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9873107)
+
+Avaa kuvien katselu
+
+Henkilökorttia joutuu odottamaan kauan. Kuva: Poliisi
+
+Poliisiasemilla on edelleen pahoja ruuhkia. Henkilökorttia joutuu odottamaan ehkä 2 kuukautta.
+
+Ajokortilla ei voi enää todistaa henkilöllisyyttä, kun hakee passia. Siksi monet hakevat uutta henkilökorttia.
+
+Ajokortilla voi edelleen todistaa henkilöllisyyden esimerkiksi kaupassa ja postissa. Henkilökortin tarvitsee vain verkkopankkitunnuksia tai passia varten. Voimassa olevalla passilla henkilöllisyyden voi todistaa aina.
+
+## Saamelaiset ovat viettäneet kansallispäivää
+
+![Saamelaisten kansallispäivä 2019](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10633181)
+
+Avaa kuvien katselu
+
+Inarilaiset Riitta Lehtola ja Anne Kirste Aikio viettävät saamelaisten kansallispäivää. Kuva: Vesa Toppari / Yle
+
+Keskiviikkona on vietetty saamelaisten kansallispäivää. Saamelaiset ovat alkuperäiskansa. Saamelaisilla on oma historia, kieli ja kulttuuri.
+
+Saamelaisia asuu Suomessa, Ruotsissa, Norjassa ja Venäjällä. Suomessa on noin 10 000 saamelaista. Saamelaiset asuvat Saamenmaalla Lapissa. Saamelaisia asuu paljon myös esimerkiksi Helsingissä.
+
+Saamelaiset puhuvat saamen kieltä. Suomessa on 3 saamen kieltä.
+
+Saamelaisilla on myös oma lippu.

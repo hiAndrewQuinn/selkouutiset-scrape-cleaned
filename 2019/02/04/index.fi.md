@@ -1,0 +1,7 @@
+# Maanantai 4.2.2019 (tv)
+
+Mäkihyppääjä Matti Nykänen on kuollut. Reseptilääkkeiden pakkauksiin tulee uusi koodi. Uusi asuntoja valmistuu paljon. Viime päivinä on satanut paljon lunta, ja lumisateet jatkuvat.
+
+Yle Uutiset selkosuomeksi 
+
+Mäkihyppääjä Matti Nykänen on kuollut. Reseptilääkkeiden pakkauksiin tulee uusi koodi. Uusi asuntoja valmistuu paljon. Viime päivinä on satanut paljon lunta, ja lumisateet jatkuvat

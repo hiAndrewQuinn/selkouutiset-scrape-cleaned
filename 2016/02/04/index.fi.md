@@ -1,0 +1,87 @@
+# Torstai 4.2.2016 (radio)
+
+Poliisi on ottanut kiinni miehen Petäjävedellä, jossa tehtiin polttopulloisku vastaanottokeskukseen. Saksassa etsitään terroristeja useissa kaupungeissa. Suomessa kuuluisa poliitikko Paavo Väyrynen perustaa uuden puolueen. Maahanmuuttajille halutaan antaa lisää koulutusta, mutta rahaa ei ole tarpeeksi. Puhu selkokieltä -kampanja jatkuu - Oulun Palvelualan Opistossa tuetaan maahanmuuttajaopiskelijoiden suomen oppimista.
+
+## Mies myönsi Petäjäveden polttopulloiskun
+
+![Palomestari Matti Palosaari ja Suomen Punaisen Ristin Länsi-Suomen piirin toiminnanjohtaja Pekka Annala Petäjäveden vastaanottokeskuksella 4. helmikuuta. Petäjäveden vastanottokeskukseen tehtiin yöllä polttopulloisku. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8647402)
+
+Avaa kuvien katselu
+
+Palomestari ja Suomen Punaisen Ristin työntekijä tutkivat rikottua ovea Petäjävedellä. Kuva: Juha Sorri / Lehtikuva
+
+Poliisi on ottanut kiinni miehen Keski-Suomessa Petäjävedellä. Petäjävedellä tehtiin polttopulloisku vastaanottokeskukseen.
+
+Mies sanoo, että hän on tehnyt iskun, kertoo poliisi.
+
+Petäjäveden vastaanottokeskuksen oveen heitettiin viime yönä 5 polttopulloa.
+
+Kukaan ei loukkaantunut.
+
+Vastaanottokeskuksessa on 80 turvapaikanhakijaa. Heistä noin puolet on lapsia.
+
+## Saksassa etsitään terroristeja
+
+![Alexanderplatz kuvattuna 5. huhtikuuta 2013. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8648390)
+
+Avaa kuvien katselu
+
+Terrori-iskua suunniteltiin Berliinin Alexanderplatzille Kuva: Joerg Carstensen / EPA
+
+Saksassa etsitään terroristeja useissa kaupungeissa. Meneillään on terrorismiratsia.
+
+Poliisi on ottanut kiinni kaksi algerialaista miestä. He suunnittelivat ehkä terrori-iskua Berliinin keskustaan, kertoo saksalainen Bild-sanomalehti.
+
+Miehillä on yhteys Isis-terroristijärjestöön ja ehkä myös ihmisiin, jotka tekivät Pariisin terrori-iskun. 
+
+## Paavo Väyrynen perustaa uuden puolueen
+
+![Paavo Väyrynen ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8649003)
+
+Avaa kuvien katselu
+
+Paavo Väyrynen on ollut tosi pitkään keskustan poliitikko Kuva: Vesa Moilanen / Lehtikuva
+
+Suomessa kuuluisa poliitikko Paavo Väyrynen perustaa uuden puolueen.
+
+Väyrynen kuuluu pääministeripuolue keskustaan, mutta hän ei ole tyytyväinen keskustan toimintaan. 
+
+Väyrynen aikoo perustaa puolueen, jonka nimi on kansalaispuolue. Sen tärkeä tehtävä on irrottaa Suomi euroalueesta.
+
+Väyrynen on nyt europarlamentissa. Hän on keskustan kunniapuheenjohtaja. Hän oli myös keskustan ulkoministeri ja presidenttiehdokas.
+
+Väyrynen valittiin vaaleissa myös Suomen eduskuntaan eli parlamenttiin. Hän aikoo siirtyä europarlamentista eduskuntaan.
+
+## Maahanmuuttajille lisää koulustusta pienellä budjetilla
+
+![Suomenkielen oppitunti menossa Hennalan vastaanottokeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8643512)
+
+Avaa kuvien katselu
+
+Maahanmuuttajilla on intoa opiskella Kuva: Kalevi Rytkölä / Yle
+
+Maahanmuuttajille halutaan antaa lisää koulutusta, mutta rahaa ei ole tarpeeksi.
+
+Opetusministeriössä on mietitty, miten maahanmuuttajat saavat lisää koulutusta ja voivat kotoutua Suomeen.
+
+Ministeriö ehdottaa 56 keinoa.
+
+Esimerkiksi äideille halutaan antaa lisää koulutusta, ja lapset halutaan päiväkotiin.
+
+Myös tulkkeja halutaan lisää ja kirjoja maahanmuuttajien omalla kielellä.
+
+Valtio antaa tänä vuonna maahanmuuttajien koulutukseen 100 miljoonaa euroa.
+
+## Oulun Palvelualan Opistossa käytetään selkokieltä
+
+![Eeva Tiirola (alhaalla vasemmalla) opettaa Oulun Palvelualan Opistossa suomea maahanmuuttajille. Nanci de Sousa ylärivissä toinen oikealta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8648410)
+
+Avaa kuvien katselu
+
+Oulun Palvelualan Opiston opiskelijoita. Eeva Tiirola (alhaalla vasemmalla) opettaa maahanmuuttajille suomea. Kuva: Jaani Föhr
+
+Oulun Palvelualan Opistossa tuetaan maahanmuuttajaopiskelijoiden suomen oppimista. Opistossa on 2 maahanmuuttajaryhmää, joissa opiskellaan kotityö- ja puhdistuspalveluja.
+
+Opiston suomen opettaja Eeva Tiirola sanoo, että selkokieli on hyvä askel suomen opiskelussa. Siksi opisto on mukana\*\*Puhu selkokieltä -kampanjassa\*\*.
+
+Oulun Palvelualan Opistosta voi lukea lisää Selkosanomista. Selkosanomien internet-osoite on **selkosanomat.fi**.

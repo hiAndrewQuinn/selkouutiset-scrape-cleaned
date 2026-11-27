@@ -1,0 +1,79 @@
+# Lauantai 8.4.2023 (radio)
+
+Työttömyysturva. Pääsiäisnäytelmä Via Crucis. Kansainvälinen romanipäivä. Naton sauna. Sää.
+
+## Työttömyysturva
+
+![Työvoimatoimiston ovella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11514762)
+
+Avaa kuvien katselu
+
+Kuva: Henrietta Hassinen / Yle
+
+Suomessa puhutaan työttömyysturvasta. Työttömyysturva tarkoittaa korvausta, jota maksetaan ihmiselle työttömyyden takia.
+
+Monet poliitikot kannattavat ansiosidonnaisen työttömyysturvan lyhentämistä. Ansiosidonnaisen työttömyysturvan suuruus riippuu palkasta, jota ihminen sai ennen työttömyyttä.
+
+Tutkijat sanovat, että ansiosidonnaisen päivärahan kestoa kannattaa lyhentää. Työttömät palaavat nopeammin takaisin työelämään, jos he saavat ansiosidonnaista työttömyysturvaa lyhyemmän aikaa kuin nyt.
+
+Ansiosidonnaisen päivärahan lyhentäminen on yksi keino säästää rahaa. Asiasta ei ole kuitenkaan vielä päätöksiä. 
+
+Uusi eduskunta joutuu miettimään, miten Suomen rahat riittävät myös tulevaisuudessa. Uuden eduskunnan työ alkaa ensi viikolla.
+
+## Pääsiäisnäytelmä Via Crucis
+
+![Näytttelijöitä Helsingin Senaatintorilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690346)
+
+Avaa kuvien katselu
+
+Pääsiäisnäytelmä Via Crucis on perinne Helsingin Senaatintorin ympäristössä. Kuva: Tanja Heino / Yle
+
+Helsingin keskustassa voi taas nähdä pääsiäisnäytelmän Via Crucis. Näytelmä esitetään lauantai-iltana ulkona Senaatintorin ympäristössä.
+
+Via Crucis on kuulunut Helsingin pääsiäiseen jo 25 vuoden ajan. Korona-aikana näytelmää ei esitetty.
+
+Pääsiäisnäytelmä Via Crucis kertoo Jeesuksen viimeisistä päivistä. Tänä vuonna Jeesusta esittää näyttelijä Panu Haavisto.
+
+## Kansainvälinen romanipäivä
+
+![Romano mirits -sarjan pääkuva, kaksi romaninaista ja -mies](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7479905fc4e2cc9bacd/1606738786)
+
+Avaa kuvien katselu
+
+Monet romanit käyttävät perinteisiä asuja. Kuva: Romano mirits / Yle
+
+Lauantaina on vietetty kansainvälistä romanipäivää. Päivän teema on romanien kulttuuri. Romaneja asuu monissa maissa.
+
+Suomessa on asunut romaneja jo yli 500 vuotta. Nykyään Suomessa on noin 10 000 romania. Osa heistä osaa vieläkin romanikieltä.
+
+Monet Suomen romaneista pukeutuvat perinteisellä tavalla. Romaninaiset käyttävät esimerkiksi isoja hameita.
+
+Romaneja on ollut Suomessa jo kauan, mutta romanit kokevat vielä syrjintää. Romanipäivän aikana pohditaan myös romanien asemaa.
+
+Kansainvälinen romanipäivä tuli Suomen kalenteriin vuonna 2014. 
+
+## Naton sauna
+
+![Naton päämaja Brysselissä.](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_216/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9627686295fd0a91d76/1653996999)
+
+Avaa kuvien katselu
+
+Naton keskus on Brysselissä, Belgiassa. Kuva: Stephanie Lecocq / EPA
+
+Vielä uutinen puolustusliitto Naton keskuksesta Brysselissä. Keskuksessa voi jo huomata, että Suomi on Naton jäsen.
+
+Keskuksessa on nykyään myös sauna. Sitä voivat käyttää Naton työntekijät ja työntekijöiden perheet.
+
+Suomesta tuli Naton jäsen virallisesti tämän viikon tiistaina.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690349)
+
+Avaa kuvien katselu
+
+Pääsiäisen sää jatkuu aurinkoisena.
+
+Sunnuntaina aurinko paistaa suuressa osassa maata, ja maanantai on vielä aurinkoisempi päivä kuin sunnuntai.
+
+Sää on myös melko lämmin. Päivälämpötila on noin 10 astetta koko maassa.

@@ -1,0 +1,79 @@
+# News of the week in plain Finnish | Saturday 25.4.2026
+
+Government monetary decisions.
+
+Listen
+
+You can read the news simultaneously below.
+
+This week, the government decided how the Finnish state will spend money in the coming years.
+
+The government plans to save money on, for example, health services and state administration.
+
+The government is spending more money, for example, to support people's commutes more than before.
+
+We will now tell you more about the government's decisions.
+
+## Government savings targets
+
+![Minister of Finance Riikka Purra.](https://images.cdn.yle.fi/image/upload/c_crop,h_1917,w_3408,x_0,y_235/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1776884806/39-163175569e91c0c9f63b)
+
+Open image viewer
+
+Photo: Susanna Pesonen / Yle
+
+The government will save about 400 million euros next year.
+
+The Finnish state is saving the most on social and health services. Many health service customer fees are rising.
+
+For example, people have to pay more money at health centers than before. The government also decided on a new surgery fee. The surgery fee must be paid if a person undergoes any surgery or procedure at a hospital. The fee is almost 260 euros.
+
+Dental care costs are rising.
+
+The government also saves money on state administration.
+
+Organizations receive less money than before.
+
+## Extra money for household deduction
+
+![A mobile phone screen illustrates the impact of the household deduction on taxation.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1776942157/39-163203169e9fc2516159)
+
+Open image viewer
+
+Photo: Matti Kurkela / Yle
+
+The government also decided on the areas where the state will invest more money.
+
+The government is increasing the household deduction. A person receives a household deduction when they hire a cleaner for their home, for example.
+
+There will be more government subsidies for commuting by car than before. Car tax will be reduced.
+
+The government is also spending more money on Finnish defense. Finland continues to support Ukraine.
+
+## Opposition review
+
+![Antti Lindtman in the speaker's booth.](https://images.cdn.yle.fi/image/upload/c_crop,h_2106,w_3744,x_0,y_121/ar_1.77777777777 77777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1777110198/39-163300869ec8b8e356dd)
+
+Open image viewer
+
+Photo: Jorma Vihtonen / Yle
+
+The opposition criticizes the government's decisions.
+
+**Antti Lindtman**, the chairman of the largest opposition party, the Social Democrats, says that the government has failed in everything. Lindtman believes that the government should resign.
+
+The Center Party says that the government's decisions will not bring new jobs to Finland.
+
+The Left Alliance believes that sick and elderly people are suffering from the government's decisions.
+
+## Repetition
+
+Let's repeat the most important things.
+
+The government has decided on the use of Finland's money.
+
+The government is saving money on people's health services. For example, health center fees will be higher in the future than before. The government also decided on the areas where the state will spend more money.
+
+The opposition believes that many of the government's decisions are bad.
+
+Here was the News of the Week in plain Finnish. Let's hear it!

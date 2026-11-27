@@ -1,0 +1,75 @@
+# Lauantai 23.1.2016 (radio)
+
+Ammattiopetukseen tulee ehkä uusi koulutusmalli. Yhdysvalloissa on kova lumimyrsky. VR peruu junavuoroja. Eurojackpotin päävoitto on taas tullut Suomeen. Kemin lumilinna avataan tänä viikonloppuna.
+
+## Työssä oppimista halutaan lisätä
+
+![nuori mies hioo puulautasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8255559)
+
+Avaa kuvien katselu
+
+Monia ammatteja oppii parhaiten tekemällä. Kuva: Juha Korhonen / Yle
+
+Ammattiopetukseen tulee ehkä uusi koulutusmalli. Sen idea on, että opiskelija oppii kaiken työpaikalla. Opiskelijan ei tarvitse istua luokassa yhtään tuntia.
+
+Opetusministeri Sanni Grahn-Laasonen sanoo, että uusi koulutus on konkreettista työn tekemistä. Se sopii nuorille, jotka eivät halua oppia kirjoista. Ministeri uskoo, että koulutus sopii esimerkiksi maahanmuuttajille, jotka haluavat päästä työelämään.
+
+Uudesta koulutusmallista ei ole vielä päätetty. Viranomaiset selvittävät asiaa. Selvitys on valmis ehkä kuukauden päästä.
+
+## Lumimyrsky haittaa elämää Yhdysvalloissa
+
+![Vielä on aikaa varautua myrskyyn](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8618431)
+
+Avaa kuvien katselu
+
+Washingtonissa ihmiset ostivat ruokaa varastoon, ennen kuin lumimyrsky alkoi. Kuva: Pirkko Pöntinen / Yle
+
+Yhdysvalloissa on kova lumimyrsky. Yhdysvaltojen itärannikolla on satanut tosi paljon lunta ja tuuli on kovaa. Esimerkiksi pääkaupunki Washington on lumen peitossa.
+
+Lumimyrsky on haitannut pahasti liikennettä Yhdysvalloissa. Ihmisiä on kuollut onnettomuuksissa. Myrskyn takia on myös peruttu tuhansia lentoja.
+
+Yhdysvaltojen viranomaiset sanovat, että lumimyrsky aiheuttaa ehkä miljardin dollarin vahingot.
+
+## VR peruu junavuoroja
+
+![Ihmisiä Helsingin rautatieasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8592325)
+
+Avaa kuvien katselu
+
+Junavuoroja perutaan, koska junia täytyy huoltaa pakkasten jälkeen. Kuva: Hanna Lumme / Yle
+
+Täällä Suomessa kova pakkanen on ohi, mutta monia junavuoroja on peruttu talvisään takia.
+
+VR kertoo, että monet junat ovat vielä huollossa tammikuun kovan pakkasen takia. Siksi VR peruu monia Pendolino-junavuoroja.
+
+Junavuoroja on vähemmän kuin tavallisesti keskiviikkoon asti.
+
+## Eurojackpotin päävoitto tuli Suomeen
+
+![Eurojackpot-palloja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7469752)
+
+Avaa kuvien katselu
+
+Eurojackpotin numerot ovat tuoneet rahaa Suomeen.  Kuva: Veikkaus
+
+Eurooppalaisen loton Eurojackpotin päävoitto on taas tullut Suomeen. Voittosumma oli tällä kertaa melkein 20 miljoonaa euroa.
+
+Suomalaisilla on ollut hyvä onni Eurojackpotissa. Päävoitto on tullut Suomeen jo 9 kertaa.
+
+Eurojackpot alkoi vuonna 2012, ja sitä voi nykyään pelata 17 maassa.
+
+## Kemin lumilinna on valmis
+
+![Kemin lumilinna 2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8616815)
+
+Avaa kuvien katselu
+
+Jäinen vartiosotilas vartioi Kemin lumilinnassa. Kuva: Heidi Hannukainen / Yle
+
+Kemin lumilinna avataan tänä viikonloppuna. Kemiin rakennetaan suuri lumilinna joka talvi. Ensimmäinen lumilinna rakennettiin vuonna 1996.
+
+Tämän talven lumilinna on samannäköinen kuin vanhat kivilinnat. Linnan lumiseinät näyttävät siltä, että ne on tehty suurista kivistä. Linnasta löytyy myös vartiosotilaat, jotka on tehty jäästä.
+
+Lumilinnan sisällä on toinen linna. Se on lasten satulinna, joka on tehty jäästä. Lapset voivat leikkiä satulinnan sisällä.
+
+Kemin lumilinna on auki turisteille huhtikuun alkupuolelle asti. Linnan ravintola ja hotelli on tehty tietysti lumesta ja jäästä.

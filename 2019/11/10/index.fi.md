@@ -1,0 +1,73 @@
+# Sunnuntai 10.11.2019 (radio)
+
+Postin lakko kestää ehkä kuukauden. Miksi perussuomalaiset on niin suosittu puolue? Turkin ottamien 300 Isis-vangin joukossa ei ole suomalaisia. Kalliita luksustuotteita ostetaan käytettyinä netistä. Suomalainen laulaja Alma esiintyy Christina Aguileran konserteissa Britanniassa.
+
+## Postilakko pitenee
+
+![Sara Luostarinen / postinjakaja / postinjakaja / Pasila 11.10.2019](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5993385da09abca98ad/1570806510)
+
+Avaa kuvien katselu
+
+9 000 Postin työntekijää menee lakkoon maanantaina. Kuva: Jouni immonen / Yle
+
+Postilakko kestää ehkä kuukauden. Postin työntekijöiden ammattiliitto sanoo, että se pidentää 4 viikkoon lakon, joka alkaa huomenna. Alunperin lakon piti kestää 2 viikkoa.
+
+Jos Postin sopimusneuvotteluissa ei löydy sopua, Postin työntekijät ovat lakossa 8. joulukuuta asti. Se tarkoittaa, että kirjeet ja paketit tulevat perille paljon hitaammin kuin tavallisesti.
+
+Huomenna menee lakkoon noin 9 000 Postin työntekijää.
+
+## Tyytymättömyys kasvattaa perussuomalaisten suosiota
+
+![Emilia Palonen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9493069)
+
+Avaa kuvien katselu
+
+Emilia Palonen. Kuva: Yle
+
+Tutkija Emilia Palonen sanoo, että ihmisten kaikenlainen tyytymättömyys muihin puolueisiin kasvattaa perussuomalaisten suosiota. Perussuomalaisia kannattavat kaikki, jotka vastustavat esimerkiksi muiden puolueiden ilmastopolitiikkaa.
+
+Tutkija Emilia Palonen sanoo myös, että ulkomaalaisvastaisia mielipiteitä sanotaan ääneen enemmän nyt, kun perussuomalaiset on suosittu.
+
+Ylen uudessa kyselyssä perussuomalaiset oli selvästi suosituin puolue. Sitä kannatti 23 prosenttia vastaajista. Seuraavaksi suosituimman eli Kokoomuksen kannatus oli 6 prosenttiyksikköä pienempi.
+
+## Turkin Isis-vangeissa ei suomalaisia
+
+![Turkin sotilaita tankeissaan Pohjois-Syyriassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11014679)
+
+Avaa kuvien katselu
+
+Turkin sotilaat ottivat Syyriassa vangiksi Isis-terroristeja. Kuva: EPA
+
+Turkin Syyriassa ottamien 300 Isis-vangin joukossa ei ole suomalaisia.
+
+Turkki haluaa lähettää noin 300 Isis-vankia näiden kotimaahan. Turkin sisäministeriö sanoi Ylelle, että Suomeen ei lähetetä ketään, koska näiden vankien joukossa ei ole suomalaisia.
+
+Isis on terroristijärjestö, joka yritti perustaa oman valtion Irakiin ja Syyriaan.
+
+## Kalliita luksustavaroita ostetaan käytettyinä
+
+![Chanelin näyteikkuna.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11061001)
+
+Avaa kuvien katselu
+
+Luksuslaukku voi maksaa jopa tuhansia euroja. Kuva: imago images / Levine-Roberts/ AOP
+
+Suomalaiset ostavat käytettyjä luksustavaroita enemmän kuin ennen.
+
+Ihmiset ostavat kalliita, käytettyjä luksustavaroita netistä. Moni ajattelee, että esimerkiksi käytetystä laukusta voi maksaa paljon, koska sen voi myöhemmin myydä eteenpäin suunnilleen samalla hinnalla.
+
+Ennen ajateltiin, että vain köyhät ihmiset ostavat käytettyjä tavaroita. Nyt moni ajattelee, että on fiksua ostaa käytettyjä laatutavaroita, jotka kestävät kauan.
+
+Luksustavaroita myydään netin kirpputoreilla. On olemassa myös verkkokauppoja, jotka myyvät vain käytettyjä luksustavaroita.
+
+## Alma esiintyi Christina Aguileran konserteissa
+
+![Alma](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6100925dc7b0157bc8e/1573368141)
+
+Avaa kuvien katselu
+
+Alma. Kuva: Mårten Lampén / Yle
+
+Suomalainen laulaja Alma on esiintynyt viikonloppuna Lontoossa. Alma esiintyi konserteissa ennen pääesiintyjää, amerikkalaista Christina Aguileraa. Alma laulaa yhteensä kuudessa Aguileran konsertissa Britanniassa ja Irlannissa.
+
+Alma on viime aikoina myös tehnyt lauluja esimerkiksi amerikkalaiselle Miley Cyrukselle. Alma on tehnyt lauluja myös Charlien Enkelit -elokuvaan.

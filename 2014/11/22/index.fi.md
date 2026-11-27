@@ -1,0 +1,57 @@
+# Lauantai 22.11.2014
+
+Puolueet kertoivat, miten ne yrittävät voittaa vaalit. Euroopan parlamentti haluaa pilkkoa Googlen. Poliisi etsii rattijuoppoja. Helsingissä avattiin neljä luistinrataa.
+
+## Puolueet antoivat lupauksia suomalaisille
+
+![SDP:n puheenjohtaja, valtiovarainministeri Antti Rinne saapumassa SDP:n puoluevaltuuston kokoukseen Kotkan Konserttitaloon lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7645771)
+
+Avaa kuvien katselu
+
+Antti Rinne on SDP:n puheenjohtaja. SDP lupaa auttaa ihmisiä, jotka tekevät pätkätöitä.  Kuva: Martti Kainulainen / Lehtikuva
+
+Puolueet kertoivat lauantaina, mitä ne tekevät, jos ne menestyvät ensi kevään eduskuntavaaleissa ja pääsevät hallitukseen.
+
+Keskusta-puolue sanoo, että se yrittää tehdä Suomeen 200 000 uutta työpaikkaa. Keskusta sanoo myös, että Suomen täytyy ottaa velkaa vähemmän kuin nykyään. Keskusta on suosituin puolue Suomessa tällä hetkellä.
+
+Sosialidemokraattinen puolue, eli SDP, sanoo, että se auttaa ihmisiä, jotka tekevät pätkätöitä. Pätkätyö on sellaista, että työnantaja antaa ihmiselle työtä vain vähäksi aikaa. SDP sanoo myös, että naisten täytyy saada lisää palkkaa.
+
+## Euroopan parlamentin mielestä Google-yhtiöllä on liikaa valtaa
+
+![Mies kävelee ohi seinässä olevan Googlen logon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7645434)
+
+Avaa kuvien katselu
+
+Kuva: Boris Roess / EPA
+
+Euroopan parlamentti haluaa pilkkoa Google-yhtiön. Euroopan parlamentin mielestä Google-yhtiöllä on Euroopassa liian paljon valtaa. Parlamentti haluaa, että Googlen hakukone ja muut osat ovat eri yhtiöissä.
+
+Amerikkalainen Google on tosi iso yhtiö. Google on melkein ainoa internetin hakukone, jota eurooppalaiset käyttävät. Lisäksi Google omistaa esimerkiksi Youtube-internetsivun ja Android-ohjelman, jota monet puhelimet käyttävät.
+
+## Poliisi etsii rattijuoppoja
+
+![Takseja jonossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6911840)
+
+Avaa kuvien katselu
+
+Ota taksi, jos olet ottanut pikkujouluissa alkoholia.  Kuva: Yle
+
+Poliisi valvoo viikonloppuna liikennettä enemmän kuin tavallisesti. Poliisi etsii rattijuoppoja, eli ihmisiä, jotka ajavat autoa humalassa. Poliisi valvoo eniten sellaisissa paikoissa, joissa ihmiset juhlivat pikkujoulua. Pikkujoulu on juhla, jossa juodaan paljon alkoholia.
+
+Poliisi haluaa estää auto-onnettomuudet, joita rattijuopot aiheuttavat. Tänä vuonna Suomessa on kuollut 27 ihmistä, kun rattijuoppo on aiheuttanut auto-onnettomuuden.
+
+Rattijuopot aiheuttavat Suomessa 25 prosenttia sellaisista auto-onnettomuuksista, joissa kuolee ihminen.
+
+## Helsingissä avattiin neljä luistinrataa
+
+![Helsingin Rautatientorin jääpuisto avattiin yleisölle lauantaina 22. marraskuuta 2014.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7645755)
+
+Avaa kuvien katselu
+
+Helsingissä Rautatientorin luistinradalla oli lauantaina paljon ihmisiä. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Helsingissä avattiin lauantaina neljä (4) luistinrataa, eli jääkenttää, joilla voi luistella. Suosituin luistinrata on Helsingin keskustassa Rautatientorilla.
+
+Rautatientorin luistinradalla on viikonloppuna paljon ohjelmaa. Esimerkiksi pienille lapsille opetetaan luistelua ja jääkiekkoa.
+
+Rautatientorilla opetetaan myös aikuisille luistelua.

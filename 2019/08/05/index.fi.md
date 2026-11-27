@@ -1,0 +1,73 @@
+# Maanantai 5.8.2019 (radio)
+
+Suomessa on entistä enemmän ihmiskaupan uhreja. Kauppojen määrä vähenee. Presidentti Trump haluaa, että USA:n aselait säädetään uudelleen. Honkongissa on ollut yleislakko. Lontoossa Tate Modern -museon näköalatasanteelta alas heitetty pikkupoika ei ole hengenvaarassa.
+
+## Ihmiskaupan uhrit
+
+![Maahanmuuttoviraston ovi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10908912)
+
+Avaa kuvien katselu
+
+Turvakodit ovat tärkeitä pakkoavioliittoon liittyvien uhrien tunnistamisessa. Kuva: Lotta Sundström / Yle
+
+Maahanmuuttovirasto kertoo, että Suomessa on aiempaa enemmän ihmiskaupan uhreja. Suomessa annettiin alkuvuonna apua yhteensä 155 ihmiselle, jotka olivat joutuneet ihmiskaupan uhriksi.
+
+Maahanmuuttovirasto sanoo, että seksuaaliseen hyväksikäyttöön liittyvän ihmiskaupan uhreja on tunnistettu tosi vähän. Virasto arvelee, että poliisilla on liian vähän resursseja.
+
+## Kauppojen ongelmat
+
+![Paketissa olevat bokserit hyllyssä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10597107)
+
+Avaa kuvien katselu
+
+Vaatekauppojen määrä on ollut laskussa. Kuva: Lucas Holm / Yle 
+
+Kauppojen määrä vähenee paljon, arvioi Kaupan liitto. Monet kaupat ehkä katoavat kokonaan ja työpaikat vähentyvät. Suuri syy on se, että nettikauppa on koko ajan suositumpaa.
+
+Kaupan liitto sanoo, että varsinkin erikoiskauppoja on tulevaisuudessa vähemmän kuin nyt. Kaupan alalle on jo monta vuotta tullut entistä vähemmän uusia yrityksiä.
+
+## USA:n joukkoammuskelut
+
+![Poliisi partioimassa rikospaikalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10908318)
+
+Avaa kuvien katselu
+
+9 ihmistä kuoli joukkoampumissa Ohiossa. Kuva: Megan Jelinger / AFP
+
+USA:n presidentti Donald Trump on ottanut kantaa viikonvaihteen tuhoisiin ammuskeluihin.
+
+Trump vaatii, että aseiden ostajien taustat tarkastetaan entistä tarkemmin. Trump haluaa myös, että aselait säädetään uudelleen.
+
+USA:ssa tapahtui viikonlopun aikana kolme pahaa ampumista, joissa kuoli 30 ihmistä. Loukkaantuneita on jopa 60.
+
+Ihmisiä kuoli ampumisissa El Pasossa Texasissa ja Daytonissa Ohiossa. Lisäksi parikymppisiä nuoria kohti ammuttiin puistossa Chicagossa. Seitsemän ihmistä loukkaantui.
+
+## Hongkongin mielenosoitukset
+
+![Poliisi laukaisi kyynelkaasua mielenosoittajien joukkoon Hongkongin keskustassa Admiraltyn alueella 5. elokuuta 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10909207)
+
+Avaa kuvien katselu
+
+Poliisi laukaisi kyynelkaasua mielenosoittajien joukkoon Hongkongin keskustassa 5. elokuuta 2019. Kuva: Jerome Favre / Epa
+
+Hongkongissa suuri lakko on sekoittanut liikennettä ja satoja lentoja on peruttu.
+
+Hongkongissa on ollut taas myös mielenosoituksia. Mielenosoitukset ovat jatkuneet jo 2 kuukautta. Mielenosoittajat vaativat esimerkiksi suoraa demokratiaa.
+
+Koko kesän aikana yli 400 ihmistä on pidätetty protesteissa.
+
+Hongkong on osa Kiinaa, mutta sillä on oma perustuslaki.
+
+## Tate Modernin murhayritys
+
+![Poliiseja museon edessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10908476)
+
+Avaa kuvien katselu
+
+Poliisin mukaan pahasti loukkaantunut poika löytyi viidennen kerroksen katolta. Kuva: Daniel Sorabji / AFP
+
+Lontoossa Tate Modern -museon näköalatasanteelta heitettiin eilen alas pikkupoika. Lontoon poliisi kertoo, että 6-vuotias poika ei ole hengenvaarassa. Poika on sairaalassa.
+
+Poliisi on pidättänyt 17-vuotiaan pojan murhayrityksestä epäiltynä. Teon syy ei ole tiedossa.
+
+Modernin taiteen museo Tate Modern on Britannian suosituin turistikohde.

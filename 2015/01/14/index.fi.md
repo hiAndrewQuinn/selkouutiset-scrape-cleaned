@@ -1,0 +1,61 @@
+# Keskiviikko 14.1.2015
+
+Mies tappoi kaksi ihmistä Oulussa. Kaupat myyvät vähemmän kuin ennen. Halvin energia saadaan pian auringosta ja tuulesta. Ikä on suomalaisille hankala asia.
+
+## Mies tappoi kaksi ihmistä Oulussa
+
+![Oulun Tuiran kaupunginosassa on meneillään iso poliisioperaatio.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7737926)
+
+Avaa kuvien katselu
+
+Oulussa oli suuri poliisioperaatio rikoksen takia. Kuva: Hannu Karjalainen / Yle
+
+Oulussa on tapahtunut vakava rikos. Mies löi teräaseella kahta (2) ihmistä. Molemmat kuolivat.
+
+Rikos tapahtui pubissa, joka on lähellä Oulun keskustaa. Rikos tapahtui keskiviikkona noin kello 18.
+
+Tekijä lähti poliisia pakoon. Hänellä oli kirves. Poliisi on etsinyt miestä koko keskiviikkoillan. Etsinnöissä on ollut mukana suuri joukko poliiseja.
+
+## Kaupat myyvät vähemmän kuin ennen
+
+![Stockmannin tavaratalo Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5542621)
+
+Avaa kuvien katselu
+
+Myös Stockmannin tavaratalolla on vaikeaa. Kuva: Touko Yrttimaa / YLE
+
+Suomen kaupoilla menee huonosti. Kaupat myyvät vähemmän kuin ennen. Tavaratalot myivät viime marraskuussa seitsemän (7) prosenttia vähemmän kuin vuosi aikaisemmin. Ruokakauppojen myynti laski neljä (4) prosenttia.
+
+Esimerkiksi Stockmann-tavaratalolla on ollut vaikeaa jo kauan aikaa. Stockmannilla on Suomen vanhin tavaratalo Helsingin keskustassa. Stockmann on irtisanonut eli vähentänyt työntekijöitä.
+
+Tavaroiden hinnat nousevat Suomessa paljon hitaammin kuin ennen. Viime vuoden lopussa hintojen nousu eli inflaatio oli vain 0,5 prosenttia.
+
+## Uusiutuvasta energiasta tulee halpaa
+
+![El Hierro -saaren tuulivoimala Kanariansaarilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7735945)
+
+Avaa kuvien katselu
+
+Esimerkiksi tuulivoima on uusiutuvaa energiaa. Kuva: Gelmert Finoil / EPA
+
+Halvin energia saadaan pian auringosta ja tuulesta. Ne ovat uusiutuvaa energiaa.
+
+Uusiutuvaa energiaa syntyy koko ajan lisää. Esimerkiksi tuulet eivät lakkaa puhaltamassa. Vastakohta on esimerkiksi öljy, joka joskus loppuu.
+
+Suomalaiset tutkijat sanovat, että esimerkiksi Kiinassa halvin energia saadaan auringosta ja tuulesta viimeistään 10 vuoden päästä. Se on hyvä asia ympäristölle, koska uusiutuva energia ei likaa ympäristöä niin kuin esimerkiksi öljy.
+
+Uusiutuva energia voi tuoda lisää työtä myös suomalaisille firmoille. Firmat yrittävät keksiä, miten uusiutuva energia saadaan parhaiten esimerkiksi sähköautojen käyttöön. Tarvitaan myös tekniikkaa, jolla uusiutuvaa energiaa voidaan varastoida.
+
+## "Vanha" on hankala sana
+
+![Aino sisätossut.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7643085)
+
+Avaa kuvien katselu
+
+Kaikki eivät ole samaa mieltä siitä, milloin ihmisestä tulee vanha. Kuva: Yle
+
+Ikä on suomalaisille hankala asia. Suomen kielen sana "vanha" on monille suomalaisille vaikea. Suomalaiset ovat eri mieltä siitä, milloin ihmisestä tulee vanha.
+
+Monien mielestä on epäkohteliasta, jos ihmistä sanoo vanhaksi. Monet käyttävät esimerkiksi sellaisia sanoja kuin "ikäihminen" tai "seniori". Ne ovat monien mielestä kohteliaampia sanoja, vaikka ne käytännössä tarkoittavat samaa kuin vanha.
+
+Asiantuntija Eija-Riitta Grönros sanoo, että iästä voi joskus puhua numeroilla. Se on myös tarkempaa. Esimerkiksi "yli 90-vuotiaat" on tarkempi ilmaus kuin "vanhat ihmiset".

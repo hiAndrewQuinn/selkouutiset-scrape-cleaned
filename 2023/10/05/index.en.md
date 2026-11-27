@@ -1,0 +1,75 @@
+# Radio | Clear News | Thursday 5.10.2023
+
+Party support. Economic difficulties. Demonstrations. Nobel Prize in Literature. The weather forecast.
+
+## Party support
+
+![Graphic shows the order of parties in support polls after the parliamentary elections. The National Coalition returned to first place after a break, and SDP fell to second.](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_607,x_0,y_56/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1181190651d5eae42596/1696493908)
+
+Open image viewer
+
+The National Coalition Party's support rose to first place. SDP's support fell to second place. Photo: Eleni Paspatis / Yle, graphic: Nanna Särkkä / Yle
+
+Yle has again asked Finns which party they support.
+
+The most popular party is the National Coalition Party. The National Coalition is clearly supported by over 21 percent of Finns. The National Coalition is the prime minister's party, that is, it is in the government and the prime minister is from the National Coalition.
+
+The second most popular party is SDP. SDP is supported by a little under 21 percent of Finns. SDP is an opposition party, that is, it is not in government.
+
+The third most popular party is the Finns Party. The Finns Party is clearly supported by over 17 percent of Finns. The Finns Party is a government party.
+
+The National Coalition's support has risen a little. The support of SDP and the Finns Party has fallen a little.
+
+The fourth most popular party is the Centre, and the fifth most popular party is the Left Alliance.
+
+## People's economic difficulties
+
+![Fresh oat breads on a shelf in the bread department of Prisma.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_118/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1180448651bdc19decb4/1706690942)
+
+Open image viewer
+
+Some people save, for example, on food. Photo: Esa Syväkuru / Yle
+
+Many Finns have economic difficulties. About one million adults in Finland have economic difficulties. This is what the Institute for Health and Welfare, THL, says. THL has asked Finns how they cope in everyday life.
+
+About 20 percent of Finns save on food, medicines or doctor's visits because of economic difficulties. Young people have the most economic difficulties.
+
+Economic difficulties have been caused, for example, by the corona pandemic, Russia's attack on Ukraine and rising prices.
+
+## Demonstrations against the government
+
+![People queue for security screening at Helsinki-Vantaa airport on 5.10.2023 during the employees' walk-out.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1181703651e9a2023b31/1696509116)
+
+Open image viewer
+
+A long queue formed at security screening because employees stopped work. Photo: Petteri Juuti / Yle
+
+A protest against the government's cuts was held at Helsinki-Vantaa airport on Thursday. The security screening staff stopped work for about half an hour in the afternoon. A big queue formed at security screening, because a large part of the employees stopped work.
+
+On Thursday, protests were also held in theatres. In many theatres, for example, actors and technical staff walked out in the afternoon.
+
+The demonstrators are not opposing their own employer, but they are opposing the government's savings.
+
+## Nobel Prize in Literature
+
+![Jon Fosse.](https://img.img-cdn.yle.fi/crop_extract,w_5047,h_2838,x_0,y_88/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1181705651e9b0435dd0/1696504644)
+
+Open image viewer
+
+Jon Fosse has brought forward Nynorsk. Photo: BORIS ROESSLER / Lehtikuva
+
+The Nobel Prize in Literature has been awarded to the Norwegian **Jon Fosse**. Fosse has written plays that are performed a lot around the world. Fosse's plays have also been performed in Finland.
+
+The Nobel Prize is given to Jon Fosse especially because he has brought forward Nynorsk, the Norwegian written language, which is little known.
+
+The value of the Nobel Prize in Literature is about 950 000 euros.
+
+## The weather
+
+![Friday's weather map.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1181959651ec23e54b98/1696514650)
+
+Open image viewer
+
+On Friday it is mostly sunny.
+
+On Friday, during the day, cloudiness increases in the west, and in the afternoon in the west it rains in places. In the east and north the weather is fairly sunny. The temperature is between 5 and 12 degrees', in the north between 1 and 7 degrees.

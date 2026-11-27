@@ -1,0 +1,85 @@
+# Tiistai 18.4.2017 (radio)
+
+Britannian ennenaikaiset vaalit. Turkin kansanäänestys. Kouluruuan hinnassa eroja. Edelfeltin taulu. Puutarhat muuttuvat.
+
+## Britanniaan ennenaikaiset vaalit
+
+![Theresa May pitämässä tiedotustilaisuutta virka-asuntonsa edessä tiistaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9569667)
+
+Avaa kuvien katselu
+
+Pääministeri Theresa May antoi harvinaisen ilmoituksen virka-asuntonsa edustalla Lontoossa.  Kuva: Daniel Leal-Olivas / EPA
+
+Britannian pääministeri Theresa May haluaa, että Britannia järjestää ennenaikaiset parlamenttivaalit 8. kesäkuuta.
+
+Oikea vaalivuosi on vasta vuonna 2020. Parlamentin pitää hyväksyä ennenaikaiset vaalit keskiviikon äänestyksessä.
+
+Pääministeri May sanoo, että ennenaikaiset vaalit tarvitaan Britannian EU-eron eli brexitin takia.
+
+Britannian parlamentissa on kiistaa EU-erosta ja pääministerin mielestä kiistely vaikeuttaa Britannian asemaa, kun maa neuvottelee EU-erosta.
+
+## Turkissa epäillään vaalivilppiä
+
+![Mielenosoittajia kyltteineen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9569994)
+
+Avaa kuvien katselu
+
+Turkissa on protestoitu kansanäänestyksen tulosta. Kuva: Tolga Bozoglu / EPA
+
+EU haluaa, että Turkki selvittää epäilyt vaalivilpistä.
+
+Ulkomaiset vaalitarkkailijat sanovat, että sunnuntain kansanäänestyksessä oli vilppiä.
+
+Turkissa on myös osoitettu mieltä kansanäänetyksen tulosta vastaan.
+
+Kansanäänestyksessä 51 prosenttia turkkilaisista kannatti uutta perustuslakia, joka lisää Turkin presidentin valtaa.
+
+## Kouluruoka kallista pikkukunnissa
+
+![Kesäkurpitsa-jauhelihapaistosta ja kasviksia lautasella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9420042)
+
+Avaa kuvien katselu
+
+Lapset saavat kouluruuan ilmaiseksi. Kunnat maksavat kouluruuasta erilaisia hintoja.  Kuva: Kati Rantala / Yle
+
+Suomessa pienet kunnat maksavat lasten kouluruuasta usein paljon enemmän kuin isot kunnat.
+
+Esimerkiksi pieni Puumala maksaa yhden oppilaan kouluruuasta yli 8 euroa päivässä. Puumalassa lapset saavat lounaan ja välipalan.
+
+Vantaalla kouluruoka on halvinta. Vantaalla yhden oppilaan kouluruoka maksaa noin 1,7 euroa päivässä.
+
+Suomessa yhden oppilaan kouluruoka maksaa keskimäärin 2,76 euroa päivässä.
+
+Isoissa kaupungeissa yhden oppilaan kouluruoka tulee halvemmaksi usein siksi, että ruokaa voidaan tehdä kerralla paljon.
+
+## Edelfeltin taulu löytyi Venäjältä
+
+![Albert Edelfeltin öljyvärimaalaus kullatuissa kehyksissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9568497)
+
+Avaa kuvien katselu
+
+Edelfeltin taulussa on kaksi poikaa. Aiemmin luultiin, että siinä on kaksi tyttöä.  Kuva: Erkka Mikkonen / Yle
+
+Kuuluisan suomalaisen taiteilijan Albert Edelfeltin taulu on löytynyt Venäjältä.
+
+Edelfelt maalasi taulun vuonna 1881. Taulun luultiin kadonneen.
+
+Suomalainen taidetutkija löysi taulun internetin avulla venäläisestä Rybinskin kaupungin museosta. Taulussa on kaksi poikaa, jotka ovat tsaari Aleksanteri II:n veljenpoikia.
+
+Suomessa toivotaan, että taulu saadaan joskus näyttelyyn Suomeen.
+
+## Pohjoisen puutarhoissa uusia kasveja
+
+![Siirtolapuutarhan istutuksia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9073491)
+
+Avaa kuvien katselu
+
+Lapin Torniossa viihtyvät monenlaiset puutarhakasvit. Kuva: Kyösti Vaara/Yle
+
+Suomalaisissa puutarhoissa kasvaa nyt kasveja, jotka eivät pärjänneet aikaisemmin Suomen kylmässä säässä.
+
+Ilmasto on lämmennyt, ja puutarhoihin voi istuttaa uusia kasvilajeja.
+
+Puutarhakasvien viljelijät kertovat, että muutos on tapahtunut 20 vuoden aikana. Tulevaisuudessa ilmasto lämpenee lisää ja Suomessa voidaan saada paljon satoa puutarhasta.
+
+Esimerkiksi hedelmäpuut eivät aikaisemmin pärjänneet kovin hyvin Pohjois-Suomessa. Nyt omenapuita kasvaa paljon esimerkiksi Rovaniemellä.

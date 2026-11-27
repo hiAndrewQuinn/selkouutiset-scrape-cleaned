@@ -1,0 +1,59 @@
+# Thursday 25.3.2021 (radio)
+
+The government proposes movement restrictions. The technology industry has pulled out of collective bargaining. Parents of children are getting tired. The pollen season begins.
+
+## The government proposes movement restrictions
+
+![Face masks were worn in Hakaniemi, Helsinki, on 16 March.](https://img.img-cdn.yle.fi/crop_extract,w_4653,h_2617,x_117,y_719/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7850096051b1b6e3b05/1615967767)
+
+Open image viewer
+
+The government has made a proposal on movement restrictions. Photo: Silja Viitala / Yle
+
+The government has given Parliament a proposal on movement restrictions and a mask requirement. The proposal will first be handled by the Constitutional Law Committee of Parliament. The committee assesses whether the law has been made correctly. After that, Parliament will discuss the proposal and decide whether the new law is approved.
+
+The proposal says, for example, that outdoor exercise is allowed with at most two (2) other people. Visiting people at home and gatherings are banned. For example, you may go to work, the grocery shop or the pharmacy. Masks must be worn in public spaces and on public transport.
+
+If Parliament approves the proposal, movement restrictions may be introduced in the Helsinki area and in Turku. Parliament can also change the proposal.
+
+## The technology industry no longer negotiates
+
+![Logo and picture in the background.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9526937)
+
+Open image viewer
+
+Technology Industries of Finland is the joint organisation of technology companies. Photo: Technology Industries of Finland
+
+The technology industry is ending the general collective bargaining negotiations. Technology Industries of Finland is the joint organisation of technology companies. It has taken part when collective agreements have been made for the companies.
+
+The technology industry wants companies to be able to make their own local agreements with employees.
+
+The forest industry's organisation, Metsäteollisuus, also stopped employment contract negotiations last year. Metsäteollisuus and Technology Industries of Finland no longer take part in collective bargaining.
+
+## Parents of children under pressure
+
+![Lack of money affects not only unemployed people and single parents, but also families where people work.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8593396)
+
+Open image viewer
+
+Many parents need support, because the corona time is hard. Photo: Riikka Pennanen / Yle
+
+Many parents of children are finding things hard because of the corona situation.
+
+Parents are taking on a lot of responsibility for their children's wellbeing, because other services are restricted. For example, many hobbies have ended and teaching in schools may be remote.
+
+Many parents need support, because everyday life feels hard. The Mannerheim League for Child Welfare's parent services received more than 2,000 calls or messages last year. That is more than ever before.
+
+## Allergy season begins
+
+![Alder catkins in Joensuu in March 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10119691)
+
+Open image viewer
+
+Alder catkins. Photo: Ismo Pekkarinen / AOP
+
+The spring allergy season is starting in Finland. In southern Finland, allergy sufferers may already get symptoms from alder and hazel pollen.
+
+Alder pollen comes to Finland in the air from other countries. Alder flowering in Finland will also start soon.
+
+Birch flowering starts in about a month. The Natural Resources Institute Finland predicts that a lot of birch pollen will come this spring.

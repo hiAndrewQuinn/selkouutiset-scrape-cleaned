@@ -1,0 +1,77 @@
+# Torstai 17.3.2016 (radio)
+
+Palvelualojen ammattiliitto PAM lähtee mukaan neuvotteluihin kilpailukykysopimuksesta. Posti irtisanoo melkein 200 työntekijää. Kaikki kuurot turvapaikanhakijat pääsevät asumaan Helsinkiin. Osa asuntovälitysfirmoista on kohdellut väärin ihmisiä, jotka ovat juuri saaneet oleskeluluvan. Lahdessa tapahtui säiliöauto-onnettomuus.
+
+## PAM lähtee neuvotteluihin kilpailukykysopimuksesta
+
+![Ann Selin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8749683)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Neuvottelut kilpailukykysopimuksesta ovat menneet eteenpäin.
+
+Palvelualojen ammattiliitto PAM päätti torstaina lähteä mukaan neuvotteluihin. PAMissa on työntekijöitä esimerkiksi kaupan alalta.
+
+PAM vaatii neuvotteluissa esimerkiksi osa-aikaisten työntekijöiden tilanteen parantamista. PAM päättää toukokuun lopussa, hyväksyykö se kilpailukykysopimuksen.
+
+Suomen hallitus toivoo, että kilpailukykysopimus syntyy. Sopimus voi hallituksen mielestä parantaa Suomen taloutta. Tarkoitus on esimerkiksi, että työntekijöiden työaika pitenee 3 päivällä vuodessa.
+
+Neuvotteluissa on mukana työnantajien ja työntekijöiden järjestöjä.
+
+## Posti irtisanoo melkein 200 työntekijää
+
+![Postikärryt](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8724193)
+
+Avaa kuvien katselu
+
+Paperipostin määrä vähenee sähköpostin takia. Kuva: Ronnie Holmberg / Yle
+
+Postista katoaa melkein 700 työpaikkaa. Posti irtisanoo alle 200 työntekijää, koska noin 500 työntekijää lähtee Postista vapaaehtoisesti.
+
+Posti vähentää työntekijöitä, koska ihmiset lähettävät paperipostia nykyään paljon vähemmän kuin ennen. Sähköposti on tullut paperipostin tilalle.
+
+## Kuurot turvapaikanhakijat pääsevät Helsinkiin
+
+![Turvapaikanhakijoita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8743082)
+
+Avaa kuvien katselu
+
+Turvapaikanhakijoiden joukossa on myös kuuroja. Kuva: Tommi Parkkinen / Yle
+
+Kaikki kuurot turvapaikanhakijat pääsevät asumaan Helsinkiin.
+
+Suomeen on tullut viime kesästä lähtien 20 kuuroa turvapaikanhakijaa. He asuvat vastaanottokeskuksissa eri puolilla Suomea.
+
+Kuurot turvapaikanhakijat siirretään Helsingin vastaanottokeskuksiin, koska silloin heille on helpompi järjestää viittomakielisiä palveluja.
+
+Kuurot käyttävät viittomakieltä eli käsimerkkejä, koska he eivät kuule. Joissakin vastaanottokeskuksissa työntekijät eivät ole osanneet auttaa kuuroja turvapaikanhakijoita.
+
+## Asuntovälitysfirmat kohtelevat ihmisiä väärin
+
+![Vuokrakodin ikkunoita Kouvolassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8461438)
+
+Avaa kuvien katselu
+
+Monet etsivät vuokra-asuntoa. Kuva: Vilma Hannén / Yle
+
+Osa asuntovälitysfirmoista on kohdellut väärin ihmisiä, jotka ovat juuri saaneet oleskeluluvan.
+
+Asuntovälitysfirmat ovat esimerkiksi vuokranneet ihmisille asuntoja, jotka ovat huonossa kunnossa. Ne ovat vuokranneet esimerkiksi asuntoja, joissa ei ole vettä tai vessaa, koska niissä on putkiremontti.
+
+Ihmisten on täytynyt myös maksaa suuria välityspalkkioita vuokra-asunnosta. Esimerkiksi Tampereen alueella välityspalkkiot ovat voineet olla monta sataa euroa.
+
+## Lahdessa tapahtui säiliöauto-onnettomuus
+
+![Onnettomuusrekka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8749485)
+
+Avaa kuvien katselu
+
+Säiliöauto kaatui kerrostalon viereen. Kuva: Yle
+
+Lahdessa on tapahtunut säiliöauton onnettomuus.
+
+Iso säiliöauto törmäsi aikaisin torstaiaamuna puuhun ja kaatui kerrostalon viereen. Kukaan ei loukkaantunut.
+
+Auton säiliössä oli kuitenkin vaarallista rikkihappoa. Rikkihappoa pääsi myös maahan. Siksi ihmisiä vietiin turvaan kerrostaloista, jotka ovat onnettomuuspaikan vieressä. Vaara oli ohi torstaina päivällä, ja ihmiset saivat palata takaisin kotiin.

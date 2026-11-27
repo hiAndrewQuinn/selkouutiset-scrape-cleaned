@@ -1,0 +1,87 @@
+# Torstai 16.9.2021 (radio)
+
+Koronatartunnat vähenevät hiljalleen. Pandemia ei hidastanut ilmastonmuutosta. Ulkomaalaislakia uudistetaan. Metro ja raitiovaunut seisovat vielä perjantainakin. Yhdysvalloissa ensimmäiset avaruusturistit lähtivät matkaan. Säätiedot.
+
+## Koronatartunnat
+
+![Koronarokotus](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_66/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-842438611a6d8e83ae0/1629969003)
+
+Avaa kuvien katselu
+
+Koronarokote pistetään olkavarteen. Kuva: Antti Karhunen / Yle
+
+Koronatartuntojen määrä Suomessa vähenee hiljalleen.
+
+Viime viikolla uusia tartuntoja todettiin runsaat 3100. Se on noin 750 tartuntaa vähemmän kuin toissa viikolla, kertovat Sosiaali- ja terveysministeriö ja Terveyden ja hyvinvoinnin laitos.
+
+Tartunnan saavat nyt alle 50-vuotiaat ihmiset, joita ei ole rokotettu koronaa vastaan.
+
+Yli 12-vuotiaista noin 65 prosenttia on nyt saanut 2 rokoteannosta.
+
+## Ilmastonmuutos
+
+![Savupiippuja iltataivasta vasten](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_85/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-84029361123c4aa2c67/1709205464)
+
+Avaa kuvien katselu
+
+Hiilivoimalan savupiippuja Kiinassa. Kuva: AOP
+
+Koronapandemia ei ole hidastanut ilmastonmuutosta.
+
+Maailman ilmatieteen järjestö WMO kertoo, että talouskasvun hidastuminen ja koronarajoitukset eivät ole vähentäneet päästöjä.
+
+WMO kertoo, että päästöt kasvavat taas eikä päästötavoitteiden toteutuminen ole edes lähellä. Pariisin ilmastosopimuksen tavoite on rajoittaa ilmaston lämpeneminen 1,5 asteeseen.
+
+## Uudenlainen viisumi
+
+![Passintarkastuspisteen kyltti Suomenlinna.](https://img.img-cdn.yle.fi/crop_extract,w_5275,h_2967,x_0,y_272/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6615955e8748002f944/1605791218)
+
+Avaa kuvien katselu
+
+Hallitus haluaa helpottaa ja nopeuttaa työperäistä maahanmuuttoa. Kuva: Mårten Lampén / Yle
+
+Hallitus ehdottaa muutoksia ulkomaalaislakiin. Esitykseen kuuluu uudenlainen D-viisumi, jonka avulla halutaan helpottaa ja nopeuttaa työperäistä maahanmuuttoa.
+
+D-viisumia esitetään aluksi vain erityisasiantuntijoille ja kasvuyrittäjille. D-viisumilla voi olla Suomessa vuoden ajan
+
+Lakiesitys menee nyt eduskunnan käsittelyyn. Sen on tarkoitus tulla voimaan ensi keväänä.
+
+## Kuljettajien lakko
+
+![Maistraatintorin ja Kyllikinportin raitiovaunupysäkkien välillä on miltei näköyhteys. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11483636)
+
+Avaa kuvien katselu
+
+Raitiovaunupysäkki Helsingin Länsi-Pasilassa.  Kuva: Paula Tiainen / Yle
+
+Pääkaupunkiseudulla raitiovaunut ja metro ovat vielä huomisen pois liikenteestä.
+
+Raitiovaunut ja metro seisovat 2 päivää, torstain ja perjantain, kuljettajien protestin takia. Kuljettajat protestoivat kaupungin aikeita perustaa firma metro- ja raitiovaunuliikennettä varten. He pelkäävät, että uudessa firmassa työehdot ovat huonommat.
+
+Kuljettajat palaavat takaisin töihin lauantaiaamuna.
+
+## Avaruusturistit
+
+![Siviilimiehistö SpaceX-raketin kyydissä ennen lennon laukaisua.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-85426361428f3245eef/1631752380)
+
+Avaa kuvien katselu
+
+Ensimmäiset avaruusturistit lähtivät matkaan torstaiaamuna. Kuva: AFP / SpaceX
+
+Avaruusmatkailussa on tehty historiaa. Yhdysvalloissa Floridassa laukaistiin aamulla avaruuteen raketti, jonka kyydissä on vain siviilejä.
+
+Space X -yhtiön aluksessa on 4 matkustajaa, mutta ei lainkaan ammattilentäjiä.
+
+Avaruusalus kiertää maapalloa noin 600 kilometrin korkeudessa. Lento kestää 3 päivää. Sen jälkeen alus laskeutuu Atlantin valtamereen.
+
+## Perjantain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12103254)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on huomenna poutaista ja pilvistä. Paikoin voi aurinko vähän paistaa.
+
+Päivälämpötila on etelässä vähän yli 10 astetta, muualla viiden ja kymmenen asteen välillä.

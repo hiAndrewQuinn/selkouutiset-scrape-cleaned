@@ -1,0 +1,62 @@
+# TV \| Selkouutiset \| keskiviikko 3.4.2024
+
+Suruliputus. Koulujen toimet. Kesänopeudet. Sää.
+
+## Suruliputus
+
+Ensin aiheena Vantaan kouluampuminen.
+
+Suomessa on tänään suruliputus Vantaan kouluampumisen takia.
+
+Lippu on puolitangossa valtion virastoissa. Lisäksi sisäministeriö toivoo, että koko Suomi osallistuu suruliputukseen.
+
+Suruliputus järjestetään Vantaan kouluampumisen takia.
+
+Suruliputuksella muistetaan kouluampumisen uhreja. 1 poika kuoli ja 2 tyttöä loukkaantui ampumisessa.
+
+Ampuminen tapahtui eilen tiistaina Vantaalla Viertolan koulussa. Ampuja ja uhrit ovat koulun 12-vuotiaita oppilaita.
+
+## Koulujen toimet
+
+Sitten asiaa Suomen kouluista.
+
+Kouluissa harjoitellaan säännöllisesti vaaratilanteita varten.
+
+Oppilaat harjoittelevat toimimaan erilaisissa vaaratilanteissa, esimerkiksi kouluampumisessa.
+
+Oppilaat harjoittelevat esimerkiksi, miten he voivat poistua ja mennä suojaan.
+
+Kouluihin on rakennettu varaovia, jotta oppilaat pääsevät helpommin pakoon.
+
+Oppilaat oppivat myös kasaamaan esteitä oven eteen, jos kouluun tulee väkivaltainen ihminen.
+
+Suomen kouluissa harjoitellaan vaaratilanteita varten.
+
+Kasvatus- ja opetusjohtaja Timo Jalonen kertoo, että esimerkiksi Turussa harjoituksia järjestetään joka vuosi.
+
+## Kesänopeudet
+
+Sitten uutinen liikenteestä.
+
+Kesän nopeusrajoitukset tulevat taas käyttöön tieliikenteessä.
+
+Jos nopeusrajoitus on talvella 80 kilometriä tunnissa, se on kesällä 100 kilometriä tunnissa.
+
+Moottoriteillä nopeusrajoitus on talvella 100 kilometriä tunnissa ja kesällä 120 kilometriä tunnissa.
+
+Kesän nopeusrajoitukset tulevat taas käyttöön.
+
+Kesänopeudet otetaan käyttöön ensin Etelä-Suomessa ja sitten Pohjois-Suomessa.
+
+Eri alueilla ELY-keskukset päättävät, milloin ajokeli on niin hyvä, että nopeusrajoitukset voidaan vaihtaa.
+
+Kesänopeudet tulevat käyttöön koko maassa viimeistään huhtikuun loppuun mennessä.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Aurinko paistaa monin paikoin. Itä-Lapissa voi olla vähän pilvisempää ja tulla hyvin heikkoja lumisateita.
+
+Lämpötila on 0 ja -10 asteen välillä, Lapissa on kylmintä.
+

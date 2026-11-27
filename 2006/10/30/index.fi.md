@@ -1,0 +1,31 @@
+# Maanantai 30.10.2006 (radio)
+
+Maanantain Selkouutisten aiheita ovat:
+
+Ruotsin ulkoministeri on vieraillut Suomessa.
+
+Monet oppilaat tarvitsevat koulussa erityisopetusta, koska tavallinen koulu on heille liian vaikeaa.
+
+Etelä-Suomessa sataa ehkä tiistaina paljon lunta.
+
+Selkouutiset toimittaa Salme Unkuri.
+
+* * *
+
+Ruotsin ulkoministeri Carl Bildt on vieraillut Suomessa. Bildt aloitti Ruotsin ulkoministerinä muutama viikko sitten. Hän tapasi Suomen ulkoministerin Erkki Tuomiojan. Lisäksi Bildt tapasi tasavallan presidentti Tarja Halosen.
+
+Bildt ja Tuomioja keskustelivat asioista, jotka ovat tärkeitä nyt kun Suomi on EU:n puheenjohtajamaa. Ulkoministerit keskustelivat esimerkiksi Euroopan unionin tulevaisuudesta ja laajenemisesta. Lisäksi Ruotsin ja Suomen ulkoministerit puhuivat kaasuputkesta, joka aiotaan rakentaa Venäjältä Saksaan. Putki on tarkoitus rakentaa Itämeren pohjalle.
+
+Ruotsin ulkoministerillä on paljon kansainvälistä kokemusta. Carl Bildt on ollut esimerkiksi EU:n rauhanvälittäjä Bosniassa ja osallistunut Daytonin rauhanneuvotteluihin.
+
+* * *
+
+Monet oppilaat tarvitsevat koulussa erityisopetusta. Erityisopetuksessa olevien oppilaiden määrä on kasvanut tänä lukuvuonna. Näin kertoo kysely, jonka Helsingin Sanomat on tehnyt kymmenessä Suomen suurimmassa kaupungissa. Erityisopetusta annetaan oppilaille, joille tavallinen koulu on liian vaikeaa.
+
+Vantaa on kuitenkin poikkeus. Vantaalla on aikaisemmin ollut paljon oppilaita, jotka tarvitsevat erityisopetusta. Erityisopetuksen tarve ei ole kuitenkaan enää lisääntynyt kaupungissa. Syy tähän on se, että Vantaalla on alettu auttaa oppilaita jo ennen kuin he joutuvat vaikeuksiin koulussa.
+
+* * *
+
+Etelä-Suomessa sataa ehkä tiistaina paljon lunta. Maan eteläosaan tulee ehkä tiistaina iltapäivällä ja illalla kova lumisade. Vuorokauden aikana lunta voi tulla jopa yli 20 senttiä. Ajokeli muuttuu erittäin huonoksi. Lumisade ja liukas keli vaikeuttivat jo maanantaina tieliikennettä.
+
+Pohjois-Suomessa on jo paljon lunta. Lunta satoi perjantain ja lauantain aikana jopa 10 - 20 senttiä Etelä-Lapissa ja Oulun läänissä. Pohjanmaalla, Pohjois-Savossa ja Pohjois-Karjalassa lunta satoi 5 - 10 senttiä.

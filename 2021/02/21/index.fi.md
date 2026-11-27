@@ -1,0 +1,83 @@
+# Sunnuntai 21.2.2021 (radio)
+
+Koronarokotukset. Hiihtolomat. Vesiputket. Saimaannorppa. Euroviisut. Sääennuste.
+
+## Koronarajoitukset Helsingin seudulla
+
+![Sanna Marin TV1:n Ykkösaamussa.](https://img.img-cdn.yle.fi/crop_extract,w_2000,h_1125,x_0,y_209/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6562295e75d39a87c1f/1587647204)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin. Kuva: Tiina jutila / Yle
+
+Pääministeri **Sanna Marin** moittii Helsingin seutua koronarajoituksien helpotuksista.
+
+Marin sanoo, että on huono asia, että toisen asteen opiskelijat palaavat osittain lähiopetukseen.
+
+Pääministeri Marin sanoo, että koronarajoituksia ei pidä vähentää, koska koronatilanne on Helsingin seudulla huono.
+
+## Hiihtolomat
+
+![Laskettelijoita Peuramaan laskettelukeskuksessa 20.2.2021](https://img.img-cdn.yle.fi/crop_extract,w_5662,h_3185,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7766586031290a2a5ad/1613834536)
+
+Avaa kuvien katselu
+
+Laskettelijoita Peuramaan hiihtokeskuksessa. Kuva: Pekka Tynell / Yle
+
+Koulujen hiihtolomat alkavat maanantaina. Hiihtolomia on 3 viikolla. Hiihtolomakauden aloittavat Etelä-Suomen koulut.
+
+Paljon perheitä on mennyt hiihtokeskuksiin esimerkiksi Lappiin. Myös Etelä-Suomen hiihtokeskuksissa on vilkasta.
+
+Asiantuntijat sanovat, että hiihtolomaa on hyvä viettää vain omassa porukassa. Esimerkiksi hiihtokeskusten ravintoloissa ei ole hyvä olla iltaisin, että koronavirus ei leviä.
+
+## Vesiputket
+
+![Työmies sulattaa pakkasessa jäätyneitä vesijohtoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7058221)
+
+Avaa kuvien katselu
+
+Vesiputkia sulatetaan höyryllä. Kuva: Mika Kanerva
+
+Sään lauhtuminen Etelä-Suomessa voi rikkoa taas vesiputkia taloissa. Pakkasta on ollut paljon ja vesiputkissa voi olla jäätä. Kun jää sulaa, se laajenee ja voi rikkoa putken.
+
+Esimerkiksi Helsingissä rikkoutui vesiputki vanhassa kerrostalossa lauantaina. Putkesta valui paljon vettä asuntoihin ja talon kellariin.
+
+Pelastuslaitos sanoo, että putkia menee usein rikki vanhoissa taloissa, kun sää lauhtuu.
+
+## Saimaannorppa
+
+![Saimaannorpan poikanen kurkistaa lumisen luodon takaa.](https://img.img-cdn.yle.fi/crop_extract,w_2696,h_1517,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7718226022537863f02/1612862641)
+
+Avaa kuvien katselu
+
+Saimaannorpan poikanen eli kuutti. Kuva: Jouni Koskela
+
+Tämä talvi on hyvä saimaannorpan pesinnälle. Saimaannorpalle kylmä ja luminen talvi on hyvä.
+
+Saimaannorppa kaivaa lumeen pesän nyt helmikuun lopussa tai maaliskuun alussa. Saimaannorppa synnyttää poikaset pesään.
+
+Talvet eivät ole aina hyviä norpan pesinnälle. Nyt talvi on norpalle tosi hyvä, koska lunta on paljon.
+
+## Euroviisut
+
+![Blind Channelin laulajat lavalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11801873)
+
+Avaa kuvien katselu
+
+Blind Channelin laulajat lavalla. Kuva: Miikka Varila / Yle
+
+Suomen Euroviisu-edustajaksi on valittu oululainen rock-yhtye Blind Channel.
+
+Voittaja valittiin lauantaina illalla Ylen Uuden musiikin kilpailussa. Blind Channel voitti kilpailun kappaleella Dark Side.
+
+Euroviisut pidetään toukokuussa Rotterdamissa Hollannissa.
+
+## Sää
+
+![.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11802156)
+
+Avaa kuvien katselu
+
+Maanantaina koko Suomessa on pakkasta.
+
+Maanantaina lumisateet loppuvat. Pilvisyys on runsasta, mutta idässä voi paistaa aurinko. Maanantaina päivällä lämpötila on -5 ja -18 asteen välillä.

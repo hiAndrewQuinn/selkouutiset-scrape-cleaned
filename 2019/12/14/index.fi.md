@@ -1,0 +1,75 @@
+# Lauantai 14.12.2019 (radio)
+
+Presidentti vastasi kansalaisten kysymyksiin. Ukraina on ohittanut Viron työperäisessä maahanmuutossa. Suomalaiset eivät halua Nato-jäseneksi. Operaatio Lumihiutale auttaa joulunajan liikenteessä.
+
+## Kansa kysyi, presidentti vastasi
+
+![Tasavallan presidentti Sauli Niinistö vastasi kysymyksiin ja keskusteli kuuntelijoiden kanssa Yle Radio 1:ssä 14. joulukuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11118022)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö vastasi kysymyksiin ja keskusteli kuuntelijoiden kanssa Yle Radio 1:ssä. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Yle Radio Yhdessä kuultiin tänään Tasavallan presidentin kyselytunti. Presidentti Sauli Niinistö vastasi tunnin ajan kansalaisten kysymyksiin.
+
+Presidentiltä kysyttiin monenlaisista asioista. Häneltä kysyttiin esimerkiksi Britannian EU-erosta, nuorten syrjäytymisestä ja ruuantuotannosta.
+
+Presidentiltä kysyttiin myös Syyrian al-Holin leirin suomalaisnaisten ja lasten palauttamisesta. Presidentti sanoi, että hän odottaa hallituksen linjausta asiaan. Hän sanoi, että linjaus on tarpeen, koska liikkeellä on kovin erilaista tietoa. Hallituksen on määrä päättää linjauksesta maanantaina.
+
+Tasavallan presidentin kyselytunnin voi kuunnella Yle Areenasta.
+
+## Myös puolustusministeri kommentoi al-Holia
+
+![puolustusministeri](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6125025dcfe1f816c9c/1573904992)
+
+Avaa kuvien katselu
+
+Puolustusminsteri Antti Kaikkonen. Kuva: harri fagerholm
+
+Myös puolustusministeri Antti Kaikkonen sanoo, että al-Holin leirin suomalaisten tilanne pitää ratkaista nopeasti. Kaikkonen sanoi TV1:n Ykkösaamussa, että ongelma vain vaikeutuu, kun se pitkittyy.
+
+Kaikkonen sanoi, että suurin huomio pitää nyt kohdistaa lasten auttamiseen
+
+Al-Holin leirillä Syyriassa on Isis-terroristien perheenjäseniä. Leirillä on 11 suomalaisnaista ja heillä noin 30 lasta.
+
+## Ukrainasta tulee paljon työvoimaa
+
+![Työntekijän kädet tekemässä katukivetystä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10309281)
+
+Avaa kuvien katselu
+
+Ukrainalainen työntekijä tekee katukivetystä. Kuva: Elisa Kinnunen / Yle
+
+Ukrainasta tulee ihmisiä töihin Suomeen enemmän kuin ennen. Ukrainasta tullaan Suomeen töihin jo enemmän kuin Virosta.
+
+Maahanmuuttovirasto kertoo, että viime vuonna yli 1800 ukrainalaista palkattiin Suomeen töihin. Samaan aikaan virolaisia palkattiin noin 1200.
+
+Virosta tulee nyt Suomeen vähemmän työntekijöitä kuin ennen, koska keskipalkat Virossa ovat nousseet. Ukrainassa taas keskipalkka on vain 350 euroa kuukaudessa.
+
+## Suomalaiset torjuvat Nato-jäsenyyden
+
+![Nato-maiden lippurivistö Lontoon paraatikadulla.](https://img.img-cdn.yle.fi/crop_extract,w_5448,h_3065,x_0,y_332/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6184245de581cbbcd1b/1575322154)
+
+Avaa kuvien katselu
+
+Nato-maiden lippurivistö. Kuva: /All Over Press
+
+Suomalaiset eivät halua liittyä sotilasliitto Natoon.
+
+47 prosenttia eli melkein puolet suomalaisista on sitä mieltä, että Suomen ei pidä liittyä Natoon. Nato-jäsenyyttä kannattaa 22 prosenttia suomalaisista.
+
+Taloustutkimus teki asiasta kyselyn, johon vastasi yli 2000 ihmistä.
+
+## Operaatio Lumihiutale auttaa autoilijoita
+
+![Autoliiton tiepalvelu teksti haalarin selässä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6426217)
+
+Avaa kuvien katselu
+
+Autoliiton vapaaehtoiset tulevat apuun, jos auto menee rikki kesken matkan. Kuva: Miki Wallenius / Yle
+
+Operaatio Lumihiutale on taas alkanut.
+
+Operaatio Lumihiutale on Autoliiton tiepalvelun avustusoperaatio. Siinä vapaaehtoiset auttavat autoilijoita, jotka joutuvat jollakin tavalla pulaan. Autosta voi esimerkiksi puhjeta rengas tai loppua bensa.
+
+Operaatio Lumihiutale kestää uudenvuodenpäivään asti.

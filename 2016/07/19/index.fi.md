@@ -1,0 +1,63 @@
+# Tiistai 19.7.2016 (radio)
+
+Tunnettu tavarataloketju Anttila on mennyt konkurssiin. Etelä-Saksassa on sattunut vakava veriteko. Suomi avustaa Isiksen vastaisessa taistelussa. Venäjä halutaan pois urheilukilpailuista kokonaan.
+
+## Anttila-tavaratalot on haettu konkurssiin
+
+![Anttila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9036636)
+
+Avaa kuvien katselu
+
+Anttila on Suomessa tunnettu tavarataloketju. Kuva: Ismo Pekkarinen / AOP
+
+Suuri ja tunnettu tavaratalofirma Anttila lopettaa toimintansa. Anttila on asetettu konkurssiin, koska firman rahat ovat loppu ja lisärahoitusta ei enää saatu.
+
+Anttilalla on yli 30 tavarataloa eri puolilla Suomea ja lähes 1300 työntekijää. Anttila ja Kodin1-tavaratalot ovat auki, mutta verkkokauppa on väliaikaisesti kiinni.
+
+Anttila myytiin saksalaiselle sijoittajalle vuosi sitten.
+
+## Nuori afgaanipoika hyökkäsi junassa Etelä-Saksassa
+
+![Würzburg Saksan kartalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9035240)
+
+Avaa kuvien katselu
+
+Hyökkäys sattui Würzburgissa. Kuva: Yle Uutisgrafiikka
+
+Etelä-Saksassa ainakin 5 ihmistä on loukkaantunut väkivaltaisessa hyökkäyksessä junassa. Saksan poliisi kertoo, että 17-vuotias afganistalainen nuori poika hyökkäsi junassa yllättäen matkustajien kimppuun. Teinipoika löi matkustajia kirveellä ja veitsellä.
+
+Poliisi ampui hyökkääjän kuoliaaksi, kun tämä pakeni junasta.
+
+Sisäministeri kertoo, että nuori tekijä oli tullut Saksaan muutama kuukausi sitten. Poika oli hakenut turvapaikkaa. Isis-äärijärjestö väittää, että afganistanilainen teinipoika oli järjestön taistelija.  Hyökkääjän huoneesta on löytynyt Isisin lippu.
+
+## Suomi antaa rahaa Isis-taisteluun
+
+![Jussi Niinistö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9035216)
+
+Avaa kuvien katselu
+
+Puolustusministeri Jussi Niinistö Kuva: Jarno Kuusinen / AOP
+
+Suomi antaa rahaa ja koulutusjoukkoja terrorijärjestö Isisin vastaiseen taisteluun. Puolustusministeri Jussi Niinistö sanoo, että Suomi antaa rahaa humanitaariseen työhön ja jälleenrakennukseen. Suomi antaa rahaa, koska YK ei ole rahaa. Niinistö sanoo, että Isikseltä takaisin vallatut alueet vaativat vakauttamista.
+
+Suomi ei itse osallistu sotatoimiin, mutta kouluttaa kurditaistelijoita Isisin vastaiseen taisteluun.
+
+Puolustusministeri kertoo Suomen avustusrahan määrän keskiviikkona ja torstaina kokouksessa Washingtonissa, johon osallistuu 60 maata.
+
+## Venäjä ehkä ulos kaikista urheilukilpailuista dopingin takia
+
+![Dopingaineita kuvassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8961092)
+
+Avaa kuvien katselu
+
+Venäjän valtio oli mukana dopingin salailussa. Kuva: AOP
+
+Venäjä halutaan sulkea pois kaikesta urheilusta dopingin takia. Venäjä halutaan pois kokonaan esimerkiksi Rion olympialaisista.
+
+Kansainvälisen antidopingtoimiston Wadan raportti kertoo, että Venäjän valtio on osallistunut dopingin peittelyyn Sotshin olympialaisissa.
+
+Venäläisurheilijoiden näytteitä muutettiin ja vaihdettiin, jotta urheilijat eivät jäisi kiinni kielletyistä aineista. Venäjän dopingsotkussa ovat olleet mukana urheilijoiden lisäksi Moskovan laboratorio, Venäjän urheiluministeriö ja turvallisuuspalvelu FSB.
+
+Venäjällä raporttia on moitittu. Venäjän presidentti Vladimir Putin sanoo, että ihmiset, jotka nimetään raportissa, siirretään pois tehtävistään.
+
+Venäjällä raporttia on moitittu. Venäjän presidentti Vladimir Putin sanoo, että ihmiset, jotka nimetään raportissa, siirretään pois tehtävistään. Venäjän urheiluministeri Vitali Mutko jatkaa kuitenkin tehtävässään. Hän ei astu sivuun tehtävästään, koska häntä ei mainittu raportissa.

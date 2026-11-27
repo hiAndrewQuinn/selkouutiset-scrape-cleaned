@@ -1,0 +1,69 @@
+# Keskiviikko 3.11.2021 (radio)
+
+Suomen koronatilanne. Saksan koronatilanne. Huoltovarmuus. Raahen kultakaivos. Sääennuste.
+
+## Suomen koronatilanne
+
+![Koronavirustesti-opaste Tampereella joulukuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_164/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7505775fca3f36da10f/1607090828)
+
+Avaa kuvien katselu
+
+Koronavirus tartttuu nyt ihmisiin, joilla ei ole rokotusta. Kuva: Miikka Varila / Yle
+
+Koronatartuntojen määrä nousee taas Suomessa. Keskiviikkona uusia koronatartuntoja raportoitiin 1 150. Se on yli 300 enemmän kuin tiistaina. Uusia koronakuolemia on 6.
+
+Sairaaloissa on noin 238 koronapotilasta eli 12 potilasta enemmän kuin maanantaina.
+
+Helsingin ja Uudenmaan sairaanhoitopiirin eli Husin apulaisylilääkäri Eeva Ruotsalainen sanoo, että suomalaisten on hyvä käyttää edelleen kasvomaskia paikoissa, joissa on muita ihmisiä.
+
+## Saksan koronatilanne
+
+![Skylt infomerar om att det är obligatoriskt att bära munskydd utanför rådhuset i Augsburg](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_244/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7893296060ce58c9fac/1616957116)
+
+Avaa kuvien katselu
+
+Maskisuositus bussipysäkillä Saksassa. Kuva: Johnny Sjöblom / Yle
+
+Myös Saksassa koronatilanne on pahentunut. Saksan terveysministeri Jens Pahn sanoo, että Saksassa sairastuu koronatautiin tosi paljon ihmisiä, joilla ei ole koronarokotusta.
+
+Saksassa koronarokotuksen on saanut vain noin 66 prosenttia saksalaisista. Saksan terveysministeri sanoo, että tehohoitopaikat voivat loppua Saksan sairaaloissa, koska koronapotilaita on paljon.
+
+Terveysministeri sanoo, että tapahtumiin ja julkisiin tiloihin pitää ehkä ottaa käyttöön rajoituksia Saksassa.
+
+## Huoltovarmuus
+
+![Huoltovarmuuskeskuksen varmuusvarasto](https://img.img-cdn.yle.fi/crop_extract,w_2560,h_1440,x_0,y_240/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7815056042175085bf7/1636026263)
+
+Avaa kuvien katselu
+
+Suomen huoltovarmuuskeskuksen varastoissa on esimerkiksi sairaalatarvikkeita ja monia muita tärkeitä tarvikkeita. Kuva: Huoltovarmuuskeskus / Försörjningsberedskapscentralen
+
+Pohjoismaat vahvistavat huoltovarmuuden yhteistyötä. Pohjoismaiden pääministeri ovat sopineet asiasta.
+
+Huoltovarmuus tarkoittaa, että varaudutaan erilaisiin poikkeustilanteisiin. Myös poikkeustilanteissa pitää saada ihmisille vettä, ruokaa, lääkkeitä ja energiaa. Kuljetusten pitää toimia ja digitaalisten verkkojen pitää toimia.
+
+Pohjoismaat, eli Suomi, Ruotsi, Norja, Tanska ja Islanti, haluavat kehittää huoltovarmuutta yhdessä.
+
+## Raahen kultakaivos
+
+![Kaivonkoneet ja kuljetusautot kaivavat kultamalmia Raahen kaivoksella.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-87493361825122bf144/1635930617)
+
+Avaa kuvien katselu
+
+Raahen kultakaivos. Kuva: Risto Degerman / Yle
+
+Raahessa Luoteis-Suomessa on vietetty kultakaivoksen avajaisia. Kanadalainen kaivosfirma Otso Gold on aloittanut Raahessa kaivostoiminnan.
+
+Edellinen kaivosfirma lopetti Raahessa kaksi vuotta sitten. Uusi kaivosfirma sanoo, että se tietää, mitä ongelmia edellisellä kaivosfirmalla oli. Siksi toimintatapoja on muutettu.
+
+Raahen kultakaivoksessa työskentelee noin 260 ihmistä. He tulevat noin 20 eri maasta. Raahen kultakaivos aikoo kaivaa kultaa yli 2500 kiloa vuodessa.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12173245)
+
+Avaa kuvien katselu
+
+Torstaina tulee sateita.
+
+Torstaina on pilvistä ja etelässä sataa vähän vettä. Muualla Suomessa tulee runsaita sateita. Lapissa sataa paikoin lunta. Lämpötila on 0 ja +10 asteen välillä.

@@ -1,0 +1,62 @@
+# Torstai 23.7.2020 (radio)
+
+TV:n selkouutisilla on kesätauko. Ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Suomi palauttaa matkustusrajoituksia
+
+![Matkustusliikenne alkaa taas Viron ja Suomen välillä. Ohjeita annetaan.](https://img.img-cdn.yle.fi/crop_extract,w_3841,h_2161,x_0,y_198/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6762455ebd51c9a7dd7/1589466170)
+
+Avaa kuvien katselu
+
+Koronatilanteen takia Suomeen saa tulla vapaasti vain joistakin maista.  Kuva: Katriina Laine / Yle
+
+Suomi muuttaa matkustusrajoituksia. Suomi palauttaa matkustusrajoitukset Itävallan, Slovenian ja Sveitsin liikenteeseen ensi maanantaina. Näissä maissa koronatartuntojen määrät ovat lisääntyneet uudelleen. Siksi matkustusrajoitus palautetaan.
+
+Suomi poistaa matkustusrajoituksia joiltakin Aasian maiden matkustajilta. Esimerkiksi Kiinasta, Japanista ja Thaimaasta saa taas tulla Suomeen.
+
+## Suomi neuvottelee Irakissa
+
+![Pekka Haavisto ja Fuad Hussein](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11462537)
+
+Avaa kuvien katselu
+
+Ulkoministerit Pekka Haavisto ja irakilaispoliitikko Fuad Hussein tapasivat Baghdadissa torstaina. Kuva: Murtaja Lateef / EPA
+
+Suomen ulkoministeri **Pekka Haavisto** on matkustanut vierailulle Irakiin. Haavisto keskustelee Irakin johtajien kanssa Suomen ja Irakin asioista. Haavisto ja Irakin johtajat puhuvat ehkä esimerkiksi pakolaisten palautuksista.
+
+Ulkoministeri Pekka Haavisto tapaa Irakissa myös suomalaisia sotilaita, jotka ovat siellä kriisinhallintajoukoissa. Haavisto myös avaa virallisesti Suomen suurlähetystön Bagdadissa.
+
+## Sinilevää on tavallinen määrä
+
+![Sinilevää Saimaassa](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6923425ef1ff499f52a/1592918134)
+
+Avaa kuvien katselu
+
+Sinilevää järvessä Kuva: Kare Lehtonen/Yle
+
+Sinilevän määrä järvissä ja meressä on lisääntynyt nyt heinäkuussa. Joissakin järvissä sinilevää on paljon. Merialueilla sinilevää ei ole nyt niin paljon, koska tuuli on sekoittanut merivettä.
+
+Ympäristövirasto sanoo, että sinilevätilanne järvissä ja meressä on nyt tavallinen, sillä heinäkuussa sinilevän määrä aina lisääntyy.
+
+## Kolilla käy paljon ihmisiä
+
+![Lomailijat käyvät Ukko-Kolin huipulla ihastelemassa maisemia ja ottamassa valokuvia. ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_743/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6972295f05bb097cde4/1594214618)
+
+Avaa kuvien katselu
+
+Lomailijat käyvät Ukko-Kolin huipulla ihastelemassa maisemia ja ottamassa valokuvia.  Kuva: Jaana Kainulainen / Yle 
+
+Kolin kansallispuistossa Lieksassa käy nyt tosi paljon suomalaisia matkailijoita kesälomalla. Kolilla on käynyt heinäkuussa 20 % enemmän ihmisiä kuin tavallisesti heinäkuussa. Kolilla on käynyt joka päivä yli 1 000 ihmistä.
+
+Kolilla ei ole aiemmin käynyt niin paljon ihmisiä joka päivä. Parkkipaikkoja ei riitä kaikille autoille, koska kävijöitä on niin paljon. Suosituilla valokuvauspaikoilla Kolilla on jonoa.
+
+## Sää
+
+![Kaunissaaren ulkoilualue.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10285487)
+
+Avaa kuvien katselu
+
+Pilvisyys on perjantaina vaihtelevaa. Lännessä sataa paljon. Kuva: Esko Jämsä / AOP
+
+Perjantaina lännessä sataa paljon. Muualla tulee sadekuuroja ja pilvisyys vaihtelee, eli välillä on paljon pilviä, välillä voi paistaa aurinko. Päivälämpötila on perjantaina 15 ja 20 asteen välillä.

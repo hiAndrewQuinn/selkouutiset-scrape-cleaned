@@ -1,0 +1,75 @@
+# Torstai 25.5.2017 (radio)
+
+Presidentti Mauno Koivisto haudattiin. Britannia moittii Yhdysvaltoja tietovuodosta. Nato mukaan liittoumaan Isisiä vastaan. Opettajien lahjat.
+
+## Presidentti Koivisto haudattiin
+
+![ Tasavallan presidentti Sauli Niinistö puhuu presidentti Mauno Koiviston hautajaisisa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9632347)
+
+Avaa kuvien katselu
+
+Tasavallan presidentti Sauli Niinistö puhui Koiviston siunaustilaisuudessa. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Presidentti Mauno Koivisto on haudattu tänään.
+
+Koivisto siunattiin Helsingin tuomiokirkossa.
+
+Kirkossa puhui tasavallan presidentti Sauli Niinistö. Hän sanoi, että suuri suomalainen on poistunut keskuudestamme:
+
+\- Hän lähti, mutta on yhä lähellämme ajatuksineen, tapoineen, arvoineen ja periaatteineen. Hän on läsnä.
+
+Surusaatto kuljetti Koiviston arkun Tuomiokirkosta Hietaniemen hautausmaalle. Helsingin kirkot soittivat kelloja surusaaton aikana:
+
+Surusaatto pysähtyi Suomen Pankin, Valtioneuvoston linnan ja Presidentinlinnan edessä. Kaupungin kaduilla oli jopa 30 000 ihmistä, jotka seurasivat surusaattoa.
+
+Poliisin mukaan tapahtuma eteni rauhallisesti.
+
+Presidentti Mauno Koivosto kuoli 93-vuotiaana. Hän oli Suomen presidentti vuodesta 1982 vuoteen 1994.
+
+## Britannia moittii Yhdysvaltoja tietovuodosta
+
+![Kaksi raskaasti aseistettua poliisia seisoo kadulla. Miehillä on poliisin lippalakit ja parrat ja rynnäkköaseet.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9632247)
+
+Avaa kuvien katselu
+
+Poliisit partioivat aseiden kanssa Manchesterissa pommi-iskun jälkeen. Kuva: Andy Rain / EPA
+
+Britannia sanoo, että Yhdysvallat on paljastanut salaisia tietoja Manchesterin pommi-iskusta.
+
+Britannia antoi Yhdysvalloille salaisia tietoja, kuten kuvia pommista. Britannian mukaan Yhdysvallat paljasti tiedot medialle, ja tiedot julkaisiin mediassa ilman Britannian lupaa.
+
+Britannia ei anna enää salaisia tietoja pommi-iskusta Yhdysvalloille, sanoo Britannian yleisradio BBC. 
+
+Britannian viranomaiset sanovat, että terrorismin estäminen on vaikeaa, jos salaisia tietoja paljastetaan liian aikaisin.
+
+## Nato mukana liittoumassa Isisiä vastaan
+
+![Naton pääsihteeri Jens Stoltenberg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9632170)
+
+Avaa kuvien katselu
+
+Naton pääsihteeri Stoltenberg kertoi, että Nato on mukana liittoumassa Isisiä vastaan. Kuva: Armando Babai / EPA
+
+Sotilasliitto Nato osallistuu liittoumaan, joka taistelee terroristijärjestö Isisiä vastaan Irakissa ja Syyriassa.
+
+Nato ei kuitenkaan osallistu taisteluihin. Nato aikoo lisätä tiedustelutoimintaa ja koulutusta alueella.
+
+Naton pääsihteeri Jens Stoltenberg kertoi asiasta, ennen kuin Naton huippukokous alkoi tänään Brysselissä.
+
+## Opettajat saavat lahjoja - kiitoskin riittää
+
+![Mies puhujanpöntössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8024450)
+
+Avaa kuvien katselu
+
+Opettajat saavat usein kukkia ja muita lahjoja, kun koulut loppuvat.  Kuva: Toni Pitkänen / Yle
+
+Opettajat saavat lahjoja oppilailta, kun koulut loppuvat. Opettajalle ostetaan usein kukkia.
+
+Moni perhe miettii, onko opettajalle pakko viedä lahja. Kysyimme asiaa tapakouluttajalta, joka opettaa hyviä käytöstapoja.
+
+Tapakouluttaja sanoo, että opettajalle ei ole pakko viedä lahjaa. Paras lahja on sanoa kiitos ja hyvää kesää, kertoo tapakouluttaja.
+
+Hyvä lahja opettajalle on esimerkiksi kortti, jonka oppilas on itse tehnyt.
+
+Samaa mieltä ovat myös opettajat, joita Yle haastatteli.

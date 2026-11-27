@@ -1,0 +1,65 @@
+# Viikon uutinen selkosuomeksi | lauantai 7.11.2026
+
+Mielenosoitukset Euroopassa.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Viikon aiheen esittely
+
+Ohjelman aiheena ovat tällä kertaa mielenosoitukset Euroopassa. Eri puolilla Eurooppaa on ollut isoja mielenosoituksia. Ihmiset ovat osoittaneet mieltä esimerkiksi Ranskassa ja Saksassa.
+
+Kerromme nyt lisää mielenosoituksista ja siitä, miksi ihmiset osoittavat mieltä.
+
+## Isoja mielenosoituksia Euroopassa
+
+![Useita hupullisia ja kasvosuojain päällä olevia ihmisiä heittää esineitä kadulla.](https://img.img-cdn.yle.fi/crop_extract,w_7728,h_4347,x_0,y_805/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17249076ad7453e3fabf/1792492930)
+
+Avaa kuvien katselu
+
+Kuva: Georgios Kostomitsopoulos / AOP
+
+Euroopassa on ollut paljon isoja mielenosoituksia. Mielenosoitukset ovat jatkuneet jo monta viikkoa.
+
+Ranskassa mielenosoituksiin on osallistunut satojatuhansia ihmisiä. Mielenosoituksissa on ollut myös väkivaltaa. Jotkut mielenosoittajat ovat ottaneet yhteen poliisin kanssa. Kauppoja on ryöstetty. Poliisi on käyttänyt mielenosoittajia vastaan kyynelkaasua ja vesitykkiä.
+
+Saksassa oli viime viikonloppuna väkivaltaisia mielenosoituksia. Väkivaltaa oli ainakin Frankfurtissa, Berliinissä, Hampurissa ja Kölnissä.
+
+Mielenosoituksia ja mellakoita on ollut myös esimerkiksi Italiassa, Portugalissa ja Espanjassa. Albaniassa mielenosoituksia on ollut jo kauan.
+
+## Mielenosoitusten syyt
+
+![Suuri joukko mielenosoittajia kulkee öisellä kadulla. Monilla on kädessään kylttejä.](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_700/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16716026a4981e91b015/1783202525)
+
+Avaa kuvien katselu
+
+Kuva: Malton Dibra / EPA
+
+Euroopan mielenosoituksiin on monia eri syitä.
+
+Mielenosoittajat haluavat parempaa palkkaa. Ihmiset vastustavat sitä, että valtio käyttää liian vähän rahaa kouluihin. Mielenosoittajat protestoivat myös korkeita hintoja ja poliisin väkivaltaa.
+
+Espanjassa eläkeläiset haluavat pitää eläkkeet ennallaan. Portugalissa ihmiset vaativat asuntoja, joiden vuokra ei ole liian kallis.
+
+Albaniassa nuoret haluavat työtä ja parempia kouluja. Mielenosoittajat vastustavat myös korruptiota ja USA:n presidentin **Donald Trumpin** perheen liiketoimia Albaniassa.
+
+## Protesti datakeskuksia vastaan
+
+![Kolme henkilöä pitää torilla valkoista lakanaa, jossa on teksti &quot;STOP DATAKESKUKSILLE&quot;. ](https://img.img-cdn.yle.fi/crop_extract,w_5999,h_3374,x_0,y_191/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17346646aef100a4ab4f/1794052144)
+
+Avaa kuvien katselu
+
+Kuva: Jari Kovalainen / Yle
+
+Tänään lauantaina Euroopassa osoitettiin mieltä datakeskuksia vastaan. Mielenosoituksia oli myös Suomessa.
+
+Mielenosoittajat ovat sitä mieltä, että datakeskuksia valvotaan huonosti. Mielenosoittajat vaativat, että uusia datakeskuksia ei saa rakentaa.
+
+## Kertaus
+
+Viikon uutisen aiheena olivat mielenosoitukset eri puolilla Eurooppaa.
+
+Mielenosoituksia on ollut jo monta viikkoa. Isoja mielenosoituksia oli ensin Ranskassa. Sen jälkeen ihmiset ovat osoittaneet mieltä esimerkiksi Saksassa, Italiassa ja Portugalissa. Mielenosoittajat vaativat esimerkiksi lisää palkkaa ja parempaa koulutusta.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

@@ -1,0 +1,75 @@
+# Tiistai 19.12.2017 (radio)
+
+Alkoholilaki uudistuu. Kansanedustaja Hakkaraisesta rikosilmoitus. Presidenttipari otti vastaan joulutervehdykset. Joulun keräykset tuottavat hyvin. Flunssa on nyt liikkeellä.
+
+## 
+
+## Nelosolut tulee kauppoihin kohta
+
+![Oluttölkkejä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9954263)
+
+Avaa kuvien katselu
+
+Oluttölkkejä rivissä. Kuva: Eveliina Matikainen / Yle
+
+Eduskunta on hyväksynyt alkoholilain uudistuksen ja alkoholiveron korotuksen.
+
+Päätös syntyi äänin 124 puolesta ja 65 vastaan. Uudistus tarkoittaa, että kaupat, kioskit ja huoltamot saavat myydä 5,5-prosenttisia alkoholijuomia.
+
+Kaupat voivat myydä nelosolutta, vahvaa siideriä ja väkevistä alkoholijuomista tehtyjä sekoituksia.
+
+Uusi alkoholilaki tulee voimaan ensi vuonna maaliskuun alussa.
+
+## Kansanedustaja Hakkaraisesta rikosilmoitus
+
+![Teuvo Hakkarainen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9983675)
+
+Avaa kuvien katselu
+
+Teuvo Hakkarainen yrittää päästä alkoholista eroon. Kuva: Martti Kainulainen / Lehtikuva
+
+Kokoomuksen kansanedustaja Veera Ruoho tekee kansanedustaja Teuvo Hakkaraisesta rikosilmoituksen. Viime torstaina perussuomalaisten pikkujoulut aiheuttivat häiriöitä eduskunnassa.
+
+Ruoho kertoi, että kansanedustaja Hakkarainen yritti väkisin suudella häntä. Ruoho oli istunnon tauolla kahvilassa, kun Hakkarainen tarttui häntä niskasta kiinni ja yritti suudella.
+
+Hakkarainen on saanut eduskuntaryhmältä vakavan varoituksen. Hän on pahoitellut tapahtunutta Facebookissa ja pyytänyt anteeksi Veera Ruoholta.
+
+Hakkarainen kertoo, että aikoo päästä alkoholista eroon.
+
+## Presidenttipari otti vastaan joulutervehdykset
+
+![Tasavallan presidentti Sauli Niinistö ja puoliso rouva Jenni Haukio vastaanottavat perinteiset joulutervehdykset Mäntyniemessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9984027)
+
+Avaa kuvien katselu
+
+Tasavallan presidentti Sauli Niinistö ja puoliso rouva Jenni Haukio vastaanottivat perinteiset joulutervehdykset Mäntyniemessä.  Kuva: Jarno Kuusinen / AOP
+
+Tasavallan presidentti Sauli Niinistö ja rouva Jenni Haukio ovat vastaanottaneet Mäntyniemessä perinteisen laulutervehdyksen. Joulutervehdyksen esitti Suomen Lucia-neito.
+
+Presidenttipari vastaanotti myös järjestöjen perinteiset joulutervehdykset. Niihin kuuluvat luomukasvikset, joulukuusi, kinkku ja hauki.
+
+## Joulun keräykset onnistuivat
+
+![Nainen ja suuri lahjakasa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7690148)
+
+Avaa kuvien katselu
+
+Marjo Leino paketoi Joulupuu-keräykseen lahjoitettuja lahjoja.  Kuva: Dmitri Volgin / Yle
+
+Joulun ajan keräykset köyhille ovat kasvaneet vuosi vuodelta. Tänä vuonna keräykset tuottavat tosi paljon rahaa. Tuotto on isompi kuin ennen.
+
+Esimerkiksi Joulupuu-niminen keräys on yltänyt tänä vuonna uuteen ennätykseen Helsingissä- Lahjapaketteja on saatu yli 20 000. Ne jaetaan lastensuojelun asiakkaille.
+
+## Flunssa on liikkeellä
+
+![Henkilö niistää nenäänsä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5097473)
+
+Avaa kuvien katselu
+
+Muiden päälle ei saa aivastella. Kuva: Arja Lento / Yle
+
+Flunssaa on nyt paljon liikkeellä. Se leviää helposti työpaikoilla, koska se voi tarttua aivastuksesta työkaverilta toiselle.
+
+Tutkijan mukaan muiden päälle ei saa aivastella. Kannattaa yskiä paperiin tai hihaan ja käsiä kannattaa pestä paljon. On paras jäädä kotiin, jos on tosi kipeä. Viruksen leviävät helposti, kun paikalla on paljon ihmisiä.
+
+Varsinainen influenssakausi ei ole vielä alkanut.

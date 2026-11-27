@@ -1,0 +1,85 @@
+# Tiistai 2.3.2021 (radio)
+
+Hallitus on pitänyt tiedotustilaisuuden opiskelijoille. Koronarokotusten ajanvarauksessa on ollut ruuhkaa. Yksityiset kuntosalit saavat ottaa pienen määrän asiakkaita kerrallaan. Keskiviikko on Etelä-Suomessa poutapäivä.
+
+## Hallituksen info opiskelijoille
+
+![Jussi Saramo, Sanna Marin ja Annika Saarikko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11817150)
+
+Avaa kuvien katselu
+
+Ministerit Jussi Saramo, Sanna Marin ja Annika Saarikko vastasivat opiskelijoiden kysymyksiin. Kuva: Esa Syväkuru / Yle
+
+Hallitus on pitänyt tiedostustilaisuuden opiskelijoille.
+
+Tiedotustilaisuudessa pääministeri Sanna Marin sekä ministerit Annika Saarikko ja Jussi Saramo vastasivat opiskelijoiden kysymyksiin.
+
+Kysymyksiä tuli yli 600 opiskelijalta. Opiskelijat olivat huolissaan esimerkiksi etäopetuksesta. Etänä ei voi opetella hitsaamaan tai antamaan pistoksia, nuoret sanoivat.
+
+Hallitus kertoi, että se on varannut lisää rahaa opetukseen. Tarkoitus on lisätä opetustunteja, kun lähiopetus on taas mahdollista.
+
+Nuoria kiinnostivat paljon myös mielen hyvinvointi ja jaksaminen korona-aikana.
+
+Pääministeri Marin kiitti nuoria ja opettajia hyvästä työstä vaikeana aikana.
+
+## Suomen koronaluvut
+
+![Hoitaja ojentaa koronatestipuikkoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11806727)
+
+Avaa kuvien katselu
+
+Kuva: Mari Kahila / Yle
+
+Suomessa on tiistaina kerrottu 5 uudesta koronakuolemasta. Nyt Suomessa on kuollut yhteensä 755 ihmistä koronan takia.
+
+Uusia koronatartuntoja on melkein 600. Suomesta on löytynyt yhteensä yli 58 000 koronatartuntaa.
+
+## Koronarokotusten ajanvarauksessa ruuhkaa
+
+![Koronarokotuspaikka Lohjan Tennari-urheiluhallissa.](https://img.img-cdn.yle.fi/crop_extract,w_5691,h_3201,x_0,y_525/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-775265602d348b0a695/1613575813)
+
+Avaa kuvien katselu
+
+Kuva: Petteri Bülow / Yle
+
+Koronarokotusten ajanvarauksessa on ollut ruuhkaa eri puolilla Suomea.
+
+Yle kysyi kunnilta, miten koronarokotusten ajanvaraus on toiminut.
+
+Monet kunnat kertovat, että erityisesti puhelinpalvelu on ruuhkautunut. Ruuhkien takia kunnat ovat palkanneet lisää työntekijöitä ja avanneet uusia puhelinlinjoja.
+
+Ajan koronarokotukseen voi varata myös netissä.
+
+Ongelmia on tuonut myös se, että joissakin kunnissa omaiset eivät voi varata rokotusaikaa vanhuksen puolesta. Osassa kuntia se on mahdollista.
+
+## Kuntosalien koronarajoitukset
+
+![Maskikasvoinen kuntosalin työntekijä puhdistaa laitetta. ](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-779806603d0a32760d5/1614613259)
+
+Avaa kuvien katselu
+
+Kuntosalilla saa olla enintään 10 asiakasta kerrallaan. Kuva: Matti Myller / Yle 
+
+Helsingin seudun koronarajoituksista on tiistaina annettu tarkempaa tietoa.
+
+Esimerkiksi yksityiset kuntosalit ja muut liikuntatilat saavat ottaa pienen määrän asiakkaita kerrallaan. Tiloissa saa olla enintään 10 asiakasta yhtä aikaa.
+
+Muuten tilat ovat kiinni tämän ja ensi viikon.
+
+Maanantaina oli vielä epävarmaa, saako tiloihin ottaa edes pientä asiakasmäärää.
+
+## Keskiviikon sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11817591)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Keskiviikko on poutapäivä Etelä-Suomessa.
+
+Muualla saadaan vähän sateita. Maan keskiosassa tulee vähän lumi- ja vesisateita, pohjoisessa tulee lumikuuroja.
+
+Maan etelä- ja keskiosassa lämpötila on +1 ja +5 asteen välillä, pohjoisessa +1 ja -5 asteen välillä.
+
+Torstaina sää kylmenee, ja pakkasta on koko maassa.

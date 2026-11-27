@@ -1,0 +1,61 @@
+# Maanantai 8.12.2014
+
+Suomalaiset ovat elämäänsä tyytyväisiä. Joulumyynti kutistuu tänäkin vuonna. Joulutähti on joulun suosituin kukka. Pyöriäinen on Suomen vesillä harvinainen vieras.
+
+## Suomalaiset ovat elämäänsä tyytyväisiä
+
+![Lähikuva kädestä, joka piirtää hymynaamaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7492542)
+
+Avaa kuvien katselu
+
+Suurin osa suomalaisista sanoo, että heidän elämänlaatunsa on hyvää. Kuva: Raila Paavola / Yle
+
+Suurin osa suomalaisista on sitä mieltä, että he elävät hyvää elämää.
+
+Terveyden ja hyvinvoinnin laitos on tehnyt laajan kyselyn, jossa suomalaiset arvioivat omaa elämänlaatuaan. Kysely kertoo, että valtaosa suomalaisista on tyytyväisiä elämänlaatuunsa. Esimerkiksi yksinäisyys ei ole niin yleistä kuin usein luullaan.
+
+20 prosenttia suomalaisista voi  kuitenkin huonosti. Kysely kertoo, että työttömyys ja työkyvyttömyys ovat tavallisimmat syyt, jotka heikentävät elämänlaatua.
+
+Kyselyssä 10 prosenttia kotitalouksista kertoi, että heillä on toimeentulo-ongelmia.
+
+## Joulumyynti kutistuu tänäkin vuonna
+
+![Aleksanterinkatu jouluvalaistuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7646058)
+
+Avaa kuvien katselu
+
+Joulumyynti laskee jo toisena vuonna peräkkäin. Kuva: Yle
+
+Suomalaiset käyttävät aiempaa vähemmän rahaa jouluostoksiin. Kaupan liitto sanoo, että joulumyynti laskee viime vuodesta noin 1,5 prosenttia. Tämä on jo toinen (2.) vuosi peräkkäin, kun joulumyynti laskee.
+
+Nordea-pankki arvioi, että ihmiset käyttävät tänä vuonna joululahjoihin keskimäärin noin 300 euroa. 
+
+Ainakin 30 prosenttia suomalaisista aikoo ostaa joululahjoja nettikaupoista, Kaupan liitto arvioi. Heistä moni tekee ostoksensa ulkomaisissa nettikaupoissa.
+
+## Joulutähti on joulun suosituin kukka
+
+![Joulutähti (Euphorbia pulcherrima)](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7671786)
+
+Avaa kuvien katselu
+
+Suomen joulumarkkinoille kasvatetaan noin 2 miljoonaa joulutähteä. Kuva: Yle
+
+Suomalaiset ostavat joulun alla paljon kukkia. Kukkia ostetaan joulunpyhiksi omaan kotiin tai annetaan lahjaksi ystäville ja tuttaville.  Suosituin kukka vuodesta toiseen on joulutähti.
+
+Suomessa kasvatetaan joulumarkkinoille noin kaksi (2) miljoonaa joulutähteä.
+
+Joulutähti kasvaa ruukussa. Sen kukan terälehdet ovat punaiset tai valkoiset. Jos joulutähteä hoitaa hyvin, se kestää pitkälle kevääseen.
+
+## Pyöriäinen on Suomen vesillä harvinainen vieras
+
+![Kaksi pyöriäistä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7671788)
+
+Avaa kuvien katselu
+
+Suomessa pyöriäisiä voi nähdä Utön ja Ahvenanmaan vesillä. Kuva: Sea Watch Foundation / Solvin Zankl
+
+Itämeren pyöriäisiä voi nähdä myös Suomen vesillä. Uusi tutkimus kertoo, että pyöriäiset käyvät Suomessa pääosin vesialueilla, jotka ovat Utön ja Ahvenanmaan eteläpuolella. Pyöriäisten vierailut ovat kuitenkin melko harvinaisia. 
+
+Itämeren rantavaltiot ovat tutkineet pyöriäisiä ja niiden elinalueita kahden (2) vuoden ajan. Tietoa tarvitaan, koska Itämeren pyöriäisiä on niin vähän, että ne ovat uhanalaisia. Uhanalainen tarkoittaa sitä, että laji on vaarassa kadota kokonaan.
+
+Pyöriäinen on pieni valas. Se voi olla noin kaksi (2) metriä pitkä ja painaa 50 kiloa. Suurin osa Itämeren pyöriäisistä elää lähellä Gotlannin saarta.

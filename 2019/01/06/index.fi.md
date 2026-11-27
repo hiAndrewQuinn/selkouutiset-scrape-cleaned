@@ -1,0 +1,67 @@
+# Sunnuntai 6.1.2019 (radio)
+
+Suomalaiset haluavat vaikuttaa vaaleissa eniten sairaiden ja vanhusten hoitoon sekä nuorten syrjäytymiseen. Suomi on voittanut kultaa jääkiekon alle 20-vuotiaiden MM-kisoissa. Suomalaisten hiihtäjien etsintöjä Norjassa ei pystytty jatkamaana. Rikkinäiset jouluvalot kannattaa kierrättää.
+
+## Suomalaiset ovat kertoneet tärkeistä vaaliteemoista
+
+![Äänestyslippu kuoressa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9702868)
+
+Avaa kuvien katselu
+
+Kuva: Petteri Paalasmaa / AOP
+
+Suomalaiset haluavat vaikuttaa vaaleissa eniten sairaiden ja vanhusten hoitoon sekä nuorten syrjäytymiseen. Kunnallisalan kehittämissäätiö teki tutkimuksen vaaliteemoista ensi kevään eduskuntavaaleissa.
+
+Vastaajat sanovat, että myös työttömyys, koulutus, energia-asiat ja köyhien asema ovat tärkeitä teemoja. Lisäksi vastaajat haluavat vaikuttaa valtion talouteen ja ilmastonmuutokseen.
+
+Kansalaisaktivismi, kehitysapu ja alkoholihaitat olivat vähiten tärkeitä teemoja. Ihmiset haluavat nyt vaikuttaa hallituksen kokoonpanoon paljon enemmän kuin vuoden 2007 eduskuntavaaleissa.
+
+## Nuoret Leijonat maailmanmestariksi
+
+![Nuoret Leijonat juhlii](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10583785)
+
+Avaa kuvien katselu
+
+Nuoret Leijonat saivat kultamitalin MM-kisoissa. Kuva: AOP
+
+Suomi on voittanut kultaa jääkiekon alle 20-vuotiaiden MM-kisoissa. Maailmanmestaruuskisat pelattiin Vancouverissa Kanadassa.
+
+Suomi löi loppuottelussa USA:n maalein 3 - 2. Ottelun sankari oli 17-vuotias Kaapo Kakko, joka teki voittomaalin noin puolitoista minuuttia ennen pelin loppua.
+
+Kulta oli 5:s maailmanmestaruus Nuorille Leijonille. Edelliset mestaruudet ovat vuosilta 1987, 1998, 2014 ja 2016.
+
+Presidentti Sauli Niinistö ja puoliso Jenni Haukio lähettivät pelaajille onnittelukirjeen. Myös pääministeri Juha Sipilä lähetti onnitteluviestin.
+
+## Etsintöjä Norjassa ei ole voitu jatkaa
+
+![Helikopteri taivaalla Tamokdalenin päällä.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_529/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5348395c30e2e3e0611/1546707770)
+
+Avaa kuvien katselu
+
+Lumivyöryn alle jääneitä ei ole pystytty veläkään etsimään. Kuva: Gustaf Antell
+
+Suomalaisten hiihtäjien etsintöjä Norjassa ei pystytty jatkamaan sunnuntaina. Paikallinen poliisi kertoi, että sää on ollut liian huono etsintälennoille.
+
+Tilannetta arvioidaan seuraavan kerran maanantaiaamuna.
+
+3 suomalaista ja 1 ruotsalainen katosivat keskiviikkona. Alueella sattui katoamisen aikaan suuri lumivyöry. Viranomaiset uskovat, että kadonneita ei enää löydetä elossa.
+
+Etsinnät keskeytettiin perjantaina vaikean sään takia.
+
+## Jouluvalot eivät kuulu kaatopaikalle
+
+![Kuusenkynttiläsarja 1970-luvulta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9935646)
+
+Avaa kuvien katselu
+
+Esimerkiksi tällainen kynttiläsarja ei kuulu sekajätteeseen. Kuva: Tarja Nyyssönen / Yle
+
+Sunnuntaina on vietetty loppiaista. Monissa kodeissa joulukoristeet kerätään pois loppiaisena.
+
+Loppiainen on kristillinen juhlapäivä, joka päättää joulun pyhäpäivät.
+
+Jos jouluvalot ovat menneet rikki, ne kannattaa kierrättää. Pienestäkin sähköromusta ja elektroniikkaromusta saadaan talteen raaka-aineita. Tärkein raaka-aine on kupari. Myös muoviosat ja puuosat otetaan talteen.
+
+Lisäksi jouluvaloissa on haitallisia aineita kuten palonestoaineita. Siksi jouluvalot eivät kuulu kaatopaikalle.
+
+Jouluvalot ja kausivalot kuuluvat sähkö- ja elektroniikkaromujen SER-kierrätyspisteisiin. Niitä on satoja eri puolilla Suomea.

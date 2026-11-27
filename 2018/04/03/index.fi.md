@@ -1,0 +1,65 @@
+# Tiistai 3.4.2018 (radio)
+
+Ravintololoiden työoloissa puutteita. Etninen profilointi on yleistä. Tammerkoski tyhjennettiin siltatyön vuoksi. Koivun siitepölyä tulee paljon. Kevät on myöhässä.
+
+Ravintolat saivat paljon huomautuksia työoloista
+
+![mies tekee pizzaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10142664)
+
+Avaa kuvien katselu
+
+Vain harvassa ravintolassa kaikki oli kunnossa. Kuva: AOP
+
+Ravintoloiden työoloissa on puutteita. Esimerkiksi työterveyshuoltoa ei ole aina järjestetty ravintolan työntekijöille. Keittiössä voi olla liian kuuma tai lattia on liukas. Palkkaa ei aina makseta tarpeeksi tai työsopimuksia ei ole tehty oikein.
+
+Viranomaiset tarkastivat paljon ravintoloita. Vain harvassa ravintolassa kaikki oli kunnossa.
+
+Etninen profilointi on yleistä
+
+![Poliisi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10142402)
+
+Avaa kuvien katselu
+
+Etninen profilointi on Suomessa kielletty. Kuva: Emilia Malin / Yle
+
+Moni maahanmuuttaja kohtaa Suomessa etnistä profilointia. Monet kertoivat tutkimuksessa, että poliisit, vartijat tai kaupan myyjät katsovat usein ulkomaalaiselta näyttäviä ihmisiä tarkkaan.
+
+Ihmiset kertoivat, että etenkin vartijoiden toiminta on usein epämiellyttävää. Etninen profilointi on Suomessa kielletty.
+
+Tammerkoski tyhjennettiin
+
+![Tammerkoski on tyhjennetty Hämeensillan remontin takia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10142481)
+
+Avaa kuvien katselu
+
+Koski ilman vettä on jännittävän näköinen Tampereen keskustassa. Kuva: Jussi Mansikka / Yle
+
+Tampereella on alkanut iso korjaustyö kaupungin keskustassa. Tammerkoski on tyhjennetty vedestä, koska Hämeensilta korjataan. Silta on 90 vuotta vanha. Sillan kivet puretaan ja laitetaan sitten takaisin paikoilleen. Työ kestää 18 kuukautta.
+
+Tammerkoski on tyhjennetty vedestä, koska Hämeensillan alle rakennetaan korjaustelineet. Samalla kosken pohjasta kerätään pois roskaa.
+
+Monen mielestä koski ilman vettä on jännittävän näköinen Tampereen keskustassa.
+
+Koivun siitepölyä tulee paljon
+
+![Koivun kukintoja. Tämä kuva on otettu alkukesällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9143044)
+
+Avaa kuvien katselu
+
+Koivuissa on nyt paljon hedenorkkoja. Kuva: AOP
+
+Koivun siitepölykaudesta tulee tänä keväänä hankala allergikoille. Koivuissa on nyt paljon hedenorkkoja, joista siitepöly tulee. Hedenorkkoja on paljon koivuissa, jotka kasvavat lämpimillä paikoilla pihoissa ja asuinalueilla.
+
+Kotimaiset koivut alkavat kukkia yleensä toukokuun alussa. Sitä ennen Suomeen tulee koivun siitepölyä ulkomailta tuulten mukana.
+
+Kevät tulee hitaasti
+
+![Puistomaisemaa Ruskeasuo keskuspuisto Helsinki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10123752)
+
+Avaa kuvien katselu
+
+Edellisen kerran maaliskuu oli kylmempi viisi vuotta sitten. Kuva: Derrick Frilund / Yle
+
+Kevät on myöhässä. Kevät tulee hitaasti, koska ilma on tavallista kylmempää. Maaliskuu oli suuressa osassa Suomea 2-5 astetta tavallista kylmempi.
+
+Ilmatieteen laitoksen mukaan kevät on noin viikon tai kaksi viikkoa normaalia aikataulua jäljessä.

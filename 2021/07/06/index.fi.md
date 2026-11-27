@@ -1,0 +1,76 @@
+# Tiistai 6.7.2021
+
+Matkustusrajoitukset. Venäjän koronatartunnat. Helsingin vuokrat. Eino Leinon päivä. Sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Matkustusrajoitukset
+
+![Maskia käyttävä Suomeen saapuva lentomatkustaja Helsinki-Vantaan lentokentällä.](https://img.img-cdn.yle.fi/crop_extract,w_5005,h_2815,x_0,y_375/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82792060dee7cf265cd/1625221160)
+
+Avaa kuvien katselu
+
+Suomeen saa tulla vapaasti maista, joissa koronatilanne on hyvä.  Kuva: Teemu Salonen / Lehtikuva
+
+Hallituspuolueet ovat sopineet tarkemmin matkustusrajoituksista.
+
+Suomessa päätettiin viime viikolla, että Suomeen saa tulla vapaasti maista, joissa koronatilanne on hyvä. Näiden maiden matkustajilta ei vaadita koronarokotuksia tai koronatestiä, kun he tulevat Suomeen.
+
+Hallituspuolueet ovat kuitenkin olleet eri mieltä siitä, milloin koronatilanne on jossakin maassa hyvä. Tiistaina hallituspuolueet sopivat, että raja on 10 koronatapausta.
+
+Se tarkoittaa, että maassa saa olla enintään 10 koronatapausta 100 000 asukasta kohden 2 viikon aikana. Silloin maasta saa tulla Suomeen vapaasti. On vain vähän maita, joissa koronatapauksia on näin vähän.
+
+Muista maista matkustaja pääsee Suomeen ilman koronatestiä vain, jos hän on saanut molemmat koronarokotukset tai sairastanut koronataudin.
+
+## Venäjän koronatartunnat
+
+![Työntekijä puhdistaa suojapuvussa juna-asemalla sijaitsevaa korona-testipaikan edustaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11985357)
+
+Avaa kuvien katselu
+
+Koronatestipaikkaa puhdistetaan Venäjällä. Kuva: Sergei Ilmnitsky / EPA 
+
+Venäjällä koronatartuntojen määrä kasvaa nopeasti. Tiistaina kerrottiin, että maassa on yli 23 000 uutta koronatartuntaa.
+
+Myös koronakuolemien määrä Venäjällä kasvaa. Venäjällä on kuollut yhteensä melkein 140 000 ihmistä koronan takia.
+
+## Helsingin vuokrat
+
+![Kaupunkinäkymä Jätkäsaaresta, Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11017927)
+
+Avaa kuvien katselu
+
+Asuminen on Helsingissä kallista. Kuva: Carolina Husu / Yle
+
+Vuokrat ovat Helsingissä kalliita. Asunnon vuokra voi olla Helsingissä jopa 3 kertaa suurempi kuin muualla.
+
+Helsingin kalleimmat vuokrat ovat keskustassa, jossa yksiön vuokra on usein melkein 30 euroa neliömetriltä.
+
+Halpa vuokra Helsingissä on yhtä suuri kuin kallis vuokra Tampereella, Turussa ja Oulussa.
+
+## Eino Leinon päivä
+
+![Kesäyö tunturin juurella, pieni lato ja sen edessä niittyleinikkejä](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_108/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5730145d11f95207dd4/1561459149)
+
+Avaa kuvien katselu
+
+Eino Leinon päivänä juhlitaan runoutta ja Suomen suvea eli kesää. Kuva: Yle / Anna-Kaisa Brenner
+
+Tiistaina on vietetty Eino Leinon päivää. Kirjailija Eino Leino syntyi heinäkuun 6. päivä vuonna 1878.
+
+Eino Leino kirjoitti paljon runoja. Siksi Eino Leinon päivä on myös runon ja suven eli kesän päivä. Runon ja suven päivä on liputuspäivä.
+
+Tiistaina jaettiin myös Eino Leinon palkinto. Tänä vuonna Eino Leinon Seura antoi palkinnon runoilija Miia Toiviolle.
+
+## Kuuma sää
+
+![Pöytätuuletin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10309034)
+
+Avaa kuvien katselu
+
+Kuva: Ismo Pekkarinen / AOP
+
+Suomessa on edelleen kuuma sää.
+
+Lämpötila on keskiviikkona melkein 30 astetta koko maassa. Idässä ja pohjoisessa tulee sadekuuroja.

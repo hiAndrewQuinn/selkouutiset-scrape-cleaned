@@ -1,0 +1,73 @@
+# Radio Selkouutiset lauantai 8.7.2023
+
+Nato ja turvallisuus. Venäjän hyökkäys. Luvaton oleskelu Suomessa. Rajatarkastukset. Sää.
+
+## Nato ja turvallisuus
+
+![Naton ja Suomen lippu.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_507/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113999764a920e3658f6/1688805677)
+
+Avaa kuvien katselu
+
+Naton ja Suomen lippu Nato-maiden reserviupseeritapahtuman avajaistilaisuudessa Helsingissä 26. kesäkuuta 2023. Kuvituskuva. Kuva: Mikko Stig / Lehtikuva
+
+Yle on tehnyt ihmisille kyselyn siitä, lisääkö jäsenyys sotilasliitto Natossa Suomen turvallisuutta.
+
+Yli 50 prosenttia ihmisistä ajattelee, että Suomi tuntuu nyt turvallisemmalta kuin ennen Nato-jäsenyyttä. Moni ihminen sanoo kuitenkin, että Nato ei vaikuta elämään millään tavalla. Vain 3 prosenttia ihmisistä sanoo kyselyssä, että Nato-jäsenyys on vähentänyt turvallisuutta paljon tai jonkin verran.
+
+Suomi on ollut Naton jäsen noin 3 kuukautta.
+
+## Venäjän hyökkäys Ukrainaan
+
+![Kartalla Venäjän valtaamat alueet Ukrainassa 7.7.2023](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_603,x_0,y_168/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113931564a79f4193e9b/1688706945)
+
+Avaa kuvien katselu
+
+Kuva: Harri Vähäkangas / Yle, MapCreator, OpenStreetMap
+
+Lauantaina on kulunut 500 päivää siitä, kun Venäjä hyökkäsi Ukrainaan. Venäläiset joukot hyökkäsivät Ukrainaan 24. helmikuuta vuonna 2022.
+
+YK kertoo, että sodassa on kuollut yli 25 000 siviiliä. Sotilaita on kuollut molemmilta osapuolilta kymmeniätuhansia.
+
+Venäjä miehittää isoja alueita Etelä-Ukrainassa ja Itä-Ukrainassa. Venäjän tavoite oli aluksi, että Ukrainan pääkaupunki Kiova vallataan nopeasti. Tämä ei onnistunut.
+
+Miljoonat ihmiset ovat joutuneet lähtemään pois kotoa Ukrainassa Venäjän hyökkäyssodan takia.
+
+## Luvaton oleskelu Suomessa
+
+![Maahanmuuttovirasto Helsingissä. 3.2.2021.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_418/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-769762601aa93b34693/1684398041)
+
+Avaa kuvien katselu
+
+Maahanmuuttovirasto Migri kieltää joka vuosi noin 400 EU-maan kansalaisen tulon Suomeen. Kuva: Jorge Gonzalez / Yle
+
+Suomessa on paljon sellaisia EU-maiden kansalaisia, joilla ei ole lupaa olla Suomessa.
+
+Maahanmuuttovirasto Migri kieltää joka vuosi noin 400 EU-maan kansalaisen tulon Suomeen. Kiellon syynä on usein se, että ihminen on tehnyt Suomessa rikoksia ja siksi karkotettu pois maasta. Moni ihminen tulee kuitenkin pian takaisin Suomeen ilman lupaa.
+
+Suomeen on helppo tulla takaisin, koska Shengen-maiden rajoilla ei ole rajatarkastuksia. Suomesta poistetaan eniten Romanian ja Viron kansalaisia.
+
+## Rajatarkastukset
+
+![Puolikuvassa vanhempi mies vilkuttaa kuvassa vasemmalle puku päällä aurinkolasit kasvoillaan.](https://img.img-cdn.yle.fi/crop_extract,w_1496,h_840,x_0,y_30/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113841464a561575f4b5/1688561084)
+
+Avaa kuvien katselu
+
+USA:n presidentti Joe Bideen saapuu Suomeen ensi viikolla. Kuvituskuva. Kuva: Mandel Ngan / Lehtikuva
+
+Rajavartiolaitos valvoo Suomen rajoja viikon ajan tarkemmin kuin tavallisesti. Syynä on USA:n presidentin Joe Bidenin vierailu Suomessa.
+
+Suomi valvoo myös Schengen-maiden välisiä rajoja ensi viikon lauantaihin saakka.
+
+USA:n presidentti Joe Biden vierailee Helsingissä ensi viikon torstaina.
+
+## Sää
+
+![Marjanpoimijoita pellolla. Kesäinen poutapäivä.](https://img.img-cdn.yle.fi/crop_extract,w_5389,h_3031,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135154649ad5061c9b1/1687869675)
+
+Avaa kuvien katselu
+
+Sää on poutainen. Kuvituskuva. Kuva: Jani Saikko / Yle
+
+Sää on sunnuntaina lähes koko maassa poutainen. Etelärannikolla sataa paikoin vähän vettä.
+
+Lämpötila on sunnuntaina päivällä 16 ja 23 asteen välillä.

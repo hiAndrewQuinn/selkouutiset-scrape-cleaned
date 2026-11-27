@@ -1,0 +1,77 @@
+# Perjantai 14.6.2019 (radio)
+
+Suomen pääministeri Antti Rinne on vieraillut Virossa. Jos verkkopankkitunnukset varastetaan, voi syntyä isoja vahinkoja. USA syyttää Irania hyökkäyksestä öljylaivoja vastaan. Suomalaiset matkustavat junalla enemmän kuin ennen. Monet matkustavat joukkoliikenteessä ilman lippua.
+
+## Rinne Virossa
+
+![Pääministeri Antti Rinne ja Viron pääministeri Juri Ratas kättelevät lehdistötilaisuudessa tapaamisensa jälkeen Stenbocki Majassa Tallinnassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10833018)
+
+Avaa kuvien katselu
+
+Pääministerit Antti Rinne ja Jüri Ratas. Kuva: Roni Rekomaa / Lehtikuva
+
+Suomen pääministeri Antti Rinne on vieraillut Virossa. Rinne tapasi Viron pääministerin Jüri Rataksen.
+
+Pääministerit keskustelivat esimerkiksi ympäristönsuojelusta. Itämeren suojelu on tärkeää molemmille maille.
+
+Tämä oli pääministeri Rinteen ensimmäinen vierailu ulkomailla. Yleensä Suomen pääministeri matkustaa ensimmäiseksi Ruotsiin. Rinne matkustaa Ruotsiin ensi viikolla.
+
+## Verkkopankkitunnukset
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8262868)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Verkkopankkitunnukset on hyvä pitää tallessa.
+
+Jos verkkopankkitunnukset varastetaan, voi syntyä isoja vahinkoja. Tunnusten avulla varas voi mennä netissä pikavippipalveluun.
+
+Tilin omistaja voi olla vastuussa pikavipistä eli pikalainasta, jonka varas ottaa tunnusten avulla. Tilin omistajan pitää ehkä maksaa koko laina.
+
+Jos varas saa verkkopankkitunnukset siksi, että tunnusten omistaja on huolimaton, tunnusten omistajan pitää maksaa laina takaisin.
+
+## Persianlahden tilanne
+
+![Norjalaisen varustamon tankkeri Front Altair palaa Omaninlahdella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10830433)
+
+Avaa kuvien katselu
+
+Torstaina hyökättiin 2 öljylaivaa vastaan, ja toinen laiva syttyi tuleen. Kuva: IRIB / EPA
+
+USA:n presidentti Donald Trump sanoo, että Iran on syyllinen hyökkäykseen öljylaivoja vastaan. Hyökkäys tapahtui torstaina Persianlahden lähellä.
+
+USA sanoo, että sillä on video, joka todistaa Iranin teon. Iran sanoo, että se ei tehnyt hyökkäystä.
+
+Hyökkäys tehtiin 2 öljylaivaa vastaan. Laivojen miehistöt pelastuivat.
+
+USA:n ja Iranin suhteet ovat huonot. Tilanne Persianlahdella on jännittynyt.
+
+## Junamatkustus
+
+![Pendolino junaradalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10366536)
+
+Avaa kuvien katselu
+
+Kuva: Soile Laaksonen / VR Group
+
+Suomalaiset matkustavat junalla enemmän kuin ennen. Kaukojunilla tehtiin toukokuussa 1,2 miljoonaa matkaa. Se on 6 prosenttia enemmän kuin vuosi sitten.
+
+Junaliikenne kasvoi eniten Helsingin ja Rovaniemen välillä. Reitillä oli toukokuussa 25 prosenttia enemmän junaliikennettä kuin vuosi sitten.
+
+Monet matkustavat junalla ympäristön takia. Juna ei saastuta luontoa, muta lentokoneen päästöt lämmittävät ilmastoa.
+
+## Pummilla matkustaminen
+
+![Metrojuna seisoo Kampin metroasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10085865)
+
+Avaa kuvien katselu
+
+Monet matkustavat metrossa ilman lippua. Kuva: Kari Ahotupa / Yle
+
+Helsingin seudun joukkoliikenteessä liikkuu paljon matkustajia ilman lippua.
+
+Noin 100 000 ihmistä jäi viime vuonna kiinni matkustamisesta ilman lippua eli pummilla. Näiden matkustajien takia joukkoliikenne menetti lipputuloja 10 miljoonaa euroa.
+
+Monet matkustavat pummilla metrossa, raitiovaunuissa ja lähijunissa. Bussimatkustajan täytyy aina näyttää matkalippu kuljettajalle.

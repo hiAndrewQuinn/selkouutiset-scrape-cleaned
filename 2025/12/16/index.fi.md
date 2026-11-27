@@ -1,0 +1,65 @@
+# TV | Selkouutiset | tiistai 16.12.2025
+
+Ukrainan rauhanneuvottelut. Suomalaisten tulot. Joulupata. Keskiviikon sää.
+
+## Ukrainan rauhanneuvottelut
+
+Aluksi aiheena on Ukraina.
+
+Ukrainan rauhanneuvottelut ovat edistyneet.
+
+Ukrainan tilanteesta neuvoteltiin kaksi päivää Berliinissä, Saksassa. Paikalla olivat Ukraina, Yhdysvallat ja Euroopan johtajia.
+
+Presidentti **Alexander Stubb** sanoo, että rauhansopimus on lähempänä kuin koskaan aiemmin.
+
+Stubbin mukaan on tärkeää, että Yhdysvallat haluaa tukea Ukrainaa.
+
+Ukrainan rauhanneuvottelut ovat edistyneet.
+
+Venäjä ei kuitenkaan ollut mukana Berliinin neuvotteluissa.
+
+## Suomalaisten tulot
+
+Sitten uutinen suomalaisten tuloista.
+
+Suomen suurimmat tulot olivat viime vuonna Espoon Westendin asukkailla.
+
+Westendin asukkaiden vuositulot olivat keskimäärin 58 000 euroa.
+
+Pääkaupunkiseudun ulkopuolella hyvätuloinen alue on tässä näkyvä Oulun Hiukkavaara.
+
+Siellä asukkaiden vuositulot olivat keskimäärin yli 40 000 euroa.
+
+Tuloja voi katsoa postinumeron avulla Ylen tulokoneesta. Se löytyy osoitteesta yle.fi.
+
+Suomen suurimmat tulot olivat viime vuonna Espoon Westendin asukkailla.
+
+## Joulupata
+
+Lopuksi aiheena on hyväntekeväisyys.
+
+Perinteinen joulupatakeräys on jälleen alkanut.
+
+Pelastusarmeija kerää joulupatojen avulla rahaa esimerkiksi köyhille lapsiperheille ja eläkeläisille.
+
+Rahalla hankitaan ruokaa tai lahjakortteja.
+
+**Heikki Naski** on vapaaehtoisena patavahtina Kotkassa:
+
+– Tämä antaa hyvän joulumielen. Tästäkö se joulu alkaa? Tästä joulu alkaa.
+
+Perinteinen joulupatakeräys on jälleen alkanut.
+
+Pelastusarmeijan joulupata voi löytyä esimerkiksi torilta, kauppakeskuksesta tai ison kaupan edustalta.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Sää jatkuu lauhana.
+
+Maan länsiosassa sataa monin paikoin vettä.
+
+Idässä ja pohjoisessa on enimmäkseen poutaa.
+
+Lämpötila vaihtelee etelän +7 ja pohjoisen noin -10 asteen välillä.

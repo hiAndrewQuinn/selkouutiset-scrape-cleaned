@@ -1,0 +1,43 @@
+# Keskiviikko 19.11.2008 (radio)
+
+Tässä keskiviikon Selkouutiset, studiossa Anu Packalén.
+
+* * *
+
+Suomen kirkossa puhutaan edelleen pappi Olli Aallosta. Arkkipiispa Jukka Paarma sanoo, että pappi Olli Aalto saa jatkaa työtään kirkossa. Arkkipiispa Paarma on Suomen luterilaisen kirkon korkein johtaja.
+
+Pappi Olli Aalto on ollut mies, mutta hänestä tulee nainen. Pappi haluaa itse jatkaa kirkon palveluksessa. Paarma sanoo, että pappi saa jatkaa työtään kirkossa. Arkkipiispa Paarma kertoo Kotimaa-lehdessä, että kirkko hyväksyy sukupuolen vaihtamisen.
+
+Julkisuudessa on puhuttu paljon Imatran papin asiasta. Asia on ollut esillä esimerkiksi mediassa. Arkkipiispa Paarma sanoo, että media on liioitellut asiaa.
+
+Kirkko päättää myöhemmin, saako pappi jatkaa työtään kirkon palveluksessa.
+
+* * *
+
+Jotkut tutkijat ovat saaneet väärennettyjä kutsuja presidentinlinnan itsenäisyysjuhliin. Vääriä kutsuja ovat saaneet tutkijat, jotka ovat keskustelleet maahanmuuttajista julkisuudessa.
+
+Kutsukortit eivät ole oikeita. Presidentin kanslia ei ole näitä väärennettyjä kutsukortteja lähettänyt.
+
+Väärennetyt kutsukortit ovat melkein samanlaisia kuin oikeat kutsut. Ihmiset, jotka ovat saaneet väärennetyn kutsukortin, voivat luulla sitä oikeaksi. Poliisi tutkii nyt, kuka on lähettänyt väärennettyjä kutsukortteja. Rikosylikomisario Kari Tolvanen kertoo, että poliisilla on useita väärennettyjä kutsuja ja se odottaa niitä vielä lisää.
+
+Tasavallan presidentti Tarja Halonen kutsuu joka vuosi itsenäisyyspäivänä vieraita presidentinlinnaan. Suomen itsenäisyyspäivä on joulukuun kuudentena päivänä.
+
+* * *
+
+Euroopan maatalousministerit sopivat tänään, että koululaiset saavat ilmaisia hedelmiä ja vihanneksia. Tuoreita hedelmiä ja vihanneksia jaetaan kouluissa lapsille ja nuorille ensi syksystä lähtien.
+
+Euroopan komissio haluaa hedelmillä ja vihanneksilla taistella nuorten lihavuutta vastaan. Euroopan unionissa on 22 miljoonaa lihavaa lasta.
+
+Koululaisten ilmaiset hedelmät ja vihannekset maksavat Euroopan unionille 90 miljoonaa euroa vuodessa.
+
+* * *
+
+Lastenkulttuurin valtionpalkinnot on jaettu. Kuvataiteilija Alexander Reichstein ja Tanssiteatteri Hurja Ruuth saivat palkinnot.
+
+Venäläis-suomalainen Reichstein tekee isoja ja interaktiivisia teoksia, joista lapset innostuvat.
+
+Tanssiteatteri Hurjaruuth on uudistanut lasten- ja nuortenteatteria. Hurjaruuthin tanssijat osaavat monia asioita. He ovat musikaalisia ja akrobaattisia tanssijoita. Tanssijat osaavat myös näytellä esiintymislavalla. He tekevät yhteistyötä muiden taiteilijoiden kanssa.
+
+Lastenkulttuurin valtionpalkinto annetaan hyvästä tai pitkäaikaisesta työstä lastenkulttuurin hyväksi.
+
+Kulttuuri- ja urheiluministeri Stefan Wallin antoi palkinnon tänään Helsingissä. Palkintojen arvo on 15 000 euroa.

@@ -1,0 +1,78 @@
+# Sunnuntai 13.6.2021 (radio)
+
+Kuntavaalit. Jalkapallon EM-kilpailut. Sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Kokoomus menestyi kuntavaaleissa
+
+![orpo marin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11980568)
+
+Avaa kuvien katselu
+
+Petteri Orpon kokoomus oli kuntavaalien suurin puolue. Sanna Marinin SDP oli toiseksi suurin. Kuva: Silja Viitala / Yle
+
+Suomessa on järjestetty kuntavaalit. Kuntavaalien vaalipäivä oli sunnuntaina.
+
+Suomalaiset äänestivät kuntavaaleissa laiskasti. Äänestämässä kävi vain 55 prosenttia ihmisistä, joilla on äänioikeus.
+
+Vaaleissa eniten ääniä sai kokoomus. Kokoomus on Suomen suurin kuntapuolue.
+
+Kokoomuksen jälkeen tulevat SDP ja keskusta. Niiden kannatus on kuitenkin laskenut, kun katsotaan koko Suomen kannatuslukuja.
+
+Kuntavaalien 4. suurin puolue on perussuomalaiset. Perussuomalaisten kannatus on nyt suurempi kuin kuntavaaleissa 4 vuotta sitten.
+
+Koko Suomen kannatusluvut eivät kerro, miten puolueet menestyivät eri kunnissa. Jokaisessa kunnassa on oma kunnanvaltuusto.
+
+Kuntavaaleissa äänestäjät päättävät, ketkä pääsevät kunnanvaltuustoon. Kunnanvaltuustossa päätetään esimerkiksi siitä, mihin kunta käyttää verorahaa.
+
+Suomessa on noin 300 kuntaa.
+
+## Myös pormestarit valittiin
+
+![Juhana Vartiainen ja Anni Sinnemäki kauppatorilla. ](https://img.img-cdn.yle.fi/crop_extract,w_3542,h_1992,x_0,y_227/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82005260c6403988da7/1623605402)
+
+Avaa kuvien katselu
+
+Juhana Vartiaisesta (vasemmalla) tulee Helsingin pormestari, koska kokoomus voitti vaalit Helsingissä. Kuva: Mikko Ahmajärvi / Yle
+
+Joissakin kaupungeissa kuntavaalit ovat myös pormestarinvaalit. Pormestarinpaikka menee puolueelle, joka saa kuntavaaleissa eniten ääniä.
+
+Esimerkiksi Helsingissä, Turussa ja Tampereella kaupunkia johtaa pormestari.
+
+Helsingissä pormestarinpaikka menee kokoomukselle. Kokoomus sai Helsingissä eniten ääniä.
+
+## Suomi voitti Tanskan
+
+![Joel Pohjanpalo](https://img.img-cdn.yle.fi/crop_extract,w_2753,h_1549,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81975960c5281892233/1623533639)
+
+Avaa kuvien katselu
+
+Joel Pohjanpalo teki Suomen ensimmäisen EM-maalin. Kuva: Tomi Hänninen 
+
+Suomalaiset ovat juhlineet menestystä jalkapallossa.
+
+Suomi voitti lauantaina Tanskan jalkapallon EM-kilpailuissa. Euroopan mestaruuskilpailut alkoivat tänä viikonloppuna.
+
+Suomi voitti Tanskan 1 - 0. Suomen maalin teki Joel Pohjanpalo.
+
+Suomi pääsi mukaan jalkapallon EM-kilpailuihin nyt ensimmäistä kertaa. Peli Tanskaa vastaan oli Suomen ensimmäinen EM-peli jalkapallossa.
+
+Peli oli myös surullinen. Tanskan tähtipelaaja Christian Eriksen sai sydämenpysähdyksen kesken pelin. Eriksen vietiin sairaalaan, ja peliä jatkettiin myöhemmin.
+
+Suomi ja Tanska pelasivat Kööpenhaminassa, Tanskassa. Suomen seuraava peli on keskiviikkona. Silloin Suomi pelaa Venäjää vastaan Pietarissa, Venäjällä.
+
+## Tiistaina tuulee kovaa
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11979258)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Viikko alkaa poutasäässä. Maanantaina ei sada.
+
+Tiistai on tuulinen päivä. Keski-Suomessa tuulee tosi kovaa. Tuuli puhaltaa välillä niin kovaa, että se voi jopa aiheuttaa vahinkoa.
+
+Tiistai on myös sateinen päivä. Eniten vettä sataa Pohjois-Suomessa.

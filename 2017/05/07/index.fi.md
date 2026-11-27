@@ -1,0 +1,73 @@
+# Sunnuntai 7.5.2017 (radio)
+
+Emmanuel Macron on voittanut Ranskan presidentinvaalit. Ranskalaiset valitsivat presidentin, joka kannattaa avoimia rajoja ja eurooppalaista yhteistyötä. Suomi hävisi Ranskalle jääkiekon MM-kilpailuissa. Sää on kylmää.
+
+## Macron voitti vaalit
+
+![Emmanuel Macron peukalo pystyssä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9599551)
+
+Avaa kuvien katselu
+
+Emmanuel Macronista tulee Ranskan uusi presidentti. Kuva: Yoan Valat / EPA
+
+Ranskalaiset ovat äänestäneet vaaleissa. Ranskassa oli sunnuntaina presidentinvaalit. Vaalien voittaja on Emmanuel Macron. Macronista tulee Ranskan seuraava presidentti.
+
+Macronin kilpailija vaaleissa oli Marine Le Pen. Macron sai noin 65 prosenttia äänistä, ja Marine Le Pen sai noin 35 prosenttia äänistä.
+
+Le Pen ja Macron ovat tosi erilaisia poliitikkoja. Voi sanoa, että ranskalaiset äänestivät näissä vaaleissa siitä, minkälainen maa Ranskasta tulee.
+
+Le Pen ja Macron ovat eri mieltä esimerkiksi maahanmuutosta. Le Pen ei halua maahanmuuttajia Ranskaan. Macron haluaa pitää Ranskan rajat auki. Koska Macron voitti vaalit, Ranska ottaa vastaan maahanmuuttajia myös tulevaisuudessa.
+
+## Voitto myös EU:lle
+
+![Macron kampanjatilaisuudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9599422)
+
+Avaa kuvien katselu
+
+Macronin vaalitilaisuuksissa näkyi Ranskan ja Euroopan unionin lippuja. Kuva: Ian Langsdon / EPA
+
+Ranskan vaalit ovat kiinnostaneet koko Eurooppaa. Vaalit olivat Euroopalle tärkeät, koska Macron ja Le Pen ovat eri mieltä myös Euroopan unionista.
+
+Le Penin mielestä Ranskan pitää erota Euroopan unionista. Macronin mielestä Euroopan unioni on hyvä ja tärkeä asia myös Ranskalle.
+
+Monet Euroopan unionin johtajat ovat iloisia, että Macron on Ranskan seuraava presidentti. Se tarkoittaa, että Ranska pysyy Euroopan unionissa.
+
+## Macron on talousmies
+
+![Hollande ja Macron](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9579709)
+
+Avaa kuvien katselu
+
+Emmanuelle Macron oli talousministeri presidentti François Hollanden aikana. Kuva: Etienne Laurent / EPA
+
+Monia kiinnostaa, minkälainen mies Ranskan seuraava presidentti on.
+
+Emmanuel Macron ei ollut presidentinvaaleissa minkään puolueen ehdokas. Hän perusti vaaleja varten oman poliittisen järjestön. Avoimet rajat ja eurooppalainen yhteistyö ovat tärkeitä Macronin ajattelussa.
+
+Macron tuntee talousasiat. Hän on ollut Ranskan talousministeri, ja hän on tehnyt työtä myös lontoolaisessa pankissa.
+
+Ranskalaisia ei tavallisesti kiinnosta presidentin yksityiselämä. Ranskalaisia kuitenkin kiinnostaa Macronin vaimo. Hän on Macronin entinen opettaja, ja Macron rakastui häneen jo koulussa.
+
+## Ranska voitti Suomen
+
+![Jesse Puljujärvi Ranskaa vastaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9599656)
+
+Avaa kuvien katselu
+
+Ranskalaiset pelasivat jääkiekkoa tällä kertaa paremmin kuin suomalaiset. Kuva: Vesa Moilanen / Lehtikuva
+
+Vielä urheilu-uutinen.
+
+Suomen pelit jääkiekon maailmanmestaruuskilpailuissa ovat jatkuneet. Sunnuntaina Suomella oli huono päivä. Suomi hävisi Ranskalle. Ranska teki pelissä 5 maalia, Suomi vain 1 maalin.
+
+## Sää on kylmää
+
+![Valkovuokot kukkivat Helsingin Puistolassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9597967)
+
+Avaa kuvien katselu
+
+Kukkia on jo nähty, mutta nyt tulee taas kylmä. Kuva: Markku Ulander / Lehtikuva
+
+Säätietoja.
+
+Viikko alkaa kylmässä säässä. Lisäksi tuulee kovaa ja välillä sataa. Kylmin päivä on tiistai, sen jälkeen sää vähän lämpenee.

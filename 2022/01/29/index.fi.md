@@ -1,0 +1,79 @@
+# Lauantai 29.1.2022 (radio)
+
+## Ruokaturvattomuus
+
+![Henkilö ostoksilla ruokakaupassa.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-78927060604a9076f02/1616923335)
+
+Avaa kuvien katselu
+
+Ruokaturvattomuus tarkoittaa sitä, että ihmisellä ei ole tarpeeksi rahaa ostaa ruokaa. Kuva: Henrietta Hassinen / Yle
+
+Monien palvelualojen työntekijöiden on vaikea saada rahat riittämään ruokaan.
+
+Helsingin ja Tampereen yliopistot tekivät kyselyn Palvelualojen ammattiliiton PAMin jäsenille. Kyselyyn vastanneista 65 prosenttia koki ruokaturvattomuutta. Ruokaturvattomuus tarkoittaa esimerkiksi sitä, että rahapulan takia ihminen joutuu pienentämään aterioitaan tai jopa jättämään niitä väliin.
+
+Tutkimuksen mukaan pahin tilanne on nuorilla, matkailu- ja ravintola-alan työntekijöillä sekä miehillä.
+
+Kysely tehtiin vuonna 2019 eli ennen koronapandemiaa. Suurin osa vastaajista kävi töissä.
+
+## Talvimyrsky
+
+![Lumipyryä tiellä lukijan ottamassa kuvassa.](https://img.img-cdn.yle.fi/crop_extract,w_1279,h_719,x_0,y_180/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90819861f5579c8aa40/1643469069)
+
+Avaa kuvien katselu
+
+Valtteri-myrsky tuo lisää lunta etenkin Etelä- ja Keski-Suomeen. Kuva: Susanna Salminen / Lukijan kuva
+
+Voimakas talvimyrsky on saapunut Suomeen. Myräkkä on saanut nimen Valtteri.
+
+Valtteri-myrsky tuiskuttaa paljon lunta Etelä- ja Keski-Suomeen. Lisäksi tuuli puhaltaa paikoin myrskylukemissa.
+
+Ajokeli on huono suuressa osassa maata. Helsingin seudulla ajokeli voi olla hyvin vaarallinen.
+
+Myrsky jatkuu huomiseen.
+
+## Elokuvapalkinto Suomeen
+
+![Alli Haapasalo.](https://img.img-cdn.yle.fi/crop_extract,w_4920,h_2767,x_8,y_65/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90811761f421825180c/1643389464)
+
+Avaa kuvien katselu
+
+Ohjaaja Alli Haapasalo. Kuva: Lehtikuva
+
+Suomalainen elokuva on voittanut tärkeän palkinnon Sundancen elokuvajuhlilla Yhdysvalloissa.
+
+Elokuva Tytöt tytöt tytöt voitti yleisöpalkinnon elokuvajuhlien kansainvälisessä kilpasarjassa. Elokuvan on ohjannut Alli Haapasalo.
+
+Elokuva seuraa kolmen teini-ikäisen tytön elämää. Se kertoo seksuaalisuudesta, ensirakkaudesta ja arkisesta ystävyydestä.
+
+Tytöt tytöt tytöt on ensimmäinen pitkä suomalainen fiktioelokuva, joka on koskaan valittu kilpailemaan Sundancen elokuvajuhlille. Sundance on Yhdysvaltain tärkein elokuvafestivaali.
+
+Elokuva esitetään seuraavaksi Berliinin elokuvajuhlilla helmikuussa. Suomen elokuvateattereihin elokuva tulee huhtikuussa.
+
+## Pihabongaus
+
+![Urpiaiset syömässä siemeniä lintulaudalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10552085)
+
+Avaa kuvien katselu
+
+Lintuja voi bongata vaikka kotipihan lintulaudalta.  Kuva: Vesa Vaarama / Yle
+
+Tänä viikonloppuna tarkkaillaan taas kotipihan lintuja.
+
+Lintujärjestö Birdlife Suomi järjestää perinteisen pihabongaustapahtuman. Tapahtumassa seurataan tunnin ajan lintuja omalla pihalla tai jollain muulla paikalla. Lintuhavainnot voi ilmoittaa Birdlifen verkkosivuilla.
+
+Pihabongaus kestää koko viikonlopun ajan.
+
+## Sunnuntain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12293561)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Maan etelä- ja keskiosassa sataa lunta läpi yön ja lunta sataa myös huomenna.
+
+Lapissa on huomenna poutaa.
+
+Etelässä voi olla muutama plusaste, Lapissa voi olla pakkasta yli 20 astetta.

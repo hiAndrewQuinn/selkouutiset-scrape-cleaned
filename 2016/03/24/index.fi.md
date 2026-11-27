@@ -1,0 +1,81 @@
+# Torstai 24.3.2016 (radio)
+
+Valio rakentaa Riihimäelle uuden tehtaan. Belgian poliisi tutkii Brysselin terrori-iskuja. Suomalaiset syövät perunaa paljon vähemmän kuin ennen. Suomen elokuvateattereihin tulee huomenna uusi lastenelokuva Soppalinnan salaseura. Monet kaupat ovat pääsiäisenä auki.
+
+## Valiolle uusi tehdas
+
+![Valion välipalatehtaan rakennustyömaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8762771)
+
+Avaa kuvien katselu
+
+Valion uutta tehdasta rakennetaan Riihimäellä. Kuva: Jari Järvinen / Yle
+
+Maitofirma Valio rakentaa Riihimäelle uuden tehtaan. Uusi välipalatehdas valmistuu ensi vuonna. Tehtaan rakentaminen maksaa 170 miljoonaa euroa.
+
+Valio aikoo valmistaa uudessa tehtaassa terveellisiä välipaloja. Se tarkoittaa Valion mielestä esimerkiksi proteiinivälipaloja ja jugurtteja, joissa on vähän sokeria.
+
+Valio toivoo, että se onnistuu myymään uuden tehtaan tuotteita myös naapurimaihin.
+
+## Terroristeja etsitään
+
+![Poliisit tarkastavat jalankulkijoita kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8765541)
+
+Avaa kuvien katselu
+
+Poliisit tarkastavat ihmisiä Brysselissä. Kuva: Christophe Petit Tesson / EPA
+
+Belgian poliisi tutkii Brysselin terrori-iskuja. Terroristit iskivät tiistaina Brysselin lentokentälle ja metroon.
+
+Poliisi on kertonut, että iskuissa olivat mukana veljekset Khalid ja Ibrahim el-Bakraoui. Khalid hyökkäsi metroon ja Ibrahim lentokentälle. Molemmat kuolivat.
+
+El-Bakraouit eivät tehneet Brysselin iskuja yksin. Lentokentällä kuoli Ibrahimin lisäksi myös toinen terroristi, ja poliisi etsii vielä muita terroristeja.
+
+Brysselin terrori-iskuissa kuoli yli 30 ihmistä. Loukkaantuneita on noin 300.
+
+## Perunan syönti vähenee
+
+![Perunoita kaupan vihannestiskillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7164796)
+
+Avaa kuvien katselu
+
+Peruna on osa suomalaista ruokakulttuuria. Kuva: Jyrki Lyytikkä / Yle
+
+Suomalaiset syövät perunaa paljon vähemmän kuin ennen.
+
+1950-luvulla jokainen suomalainen söi noin 150 kiloa perunaa vuodessa. Nyt suomalainen syö perunaa vain noin 50 kiloa vuodessa.
+
+Perunan sijaan suomalaiset syövät nyt enemmän pastaa ja riisiä.
+
+Maatalouden asiantuntijajärjestö Pro Agria toivoo, että perunan kulutus kääntyy taas kasvuun. Järjestö muistuttaa, että peruna on terveellistä suomalaista ruokaa.
+
+Peruna voi myös olla pikaruokaa, sillä mikroaaltouunissa se kypsyy jo muutamassa minuutissa.
+
+## Uusi virolais-suomalainen elokuva
+
+![Tarton yliopiston päärakennus. Universitas Tartuensis -nimikilpi on rakennuksen julkisivun alaosassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8179627)
+
+Avaa kuvien katselu
+
+Tarton kaunis yliopistorakennus. Kuva: Eila Haikarainen / Yle
+
+Suomen elokuvateattereihin tulee huomenna uusi lastenelokuva. Sen nimi on Soppalinnan salaseura.
+
+Elokuva on tehty Mika Keräsen lastenkirjasta. Mika Keränen on suomalainen kirjailija, joka asuu Virossa ja kirjoittaa viroksi.
+
+Elokuva on kuvattu Virossa, Tarton kaupungissa. Tarton kauniit puutalot ovat elokuvan Soppalinna, jossa 10-vuotias Mari seikkailee yhdessä kavereiden kanssa.
+
+Virossa elokuva on saanut paljon katsojia.
+
+## Pääsiäisenä pääsee ostoksille
+
+![Asiakas katselee makkaroita kaupan kylmähyllyssä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8057251)
+
+Avaa kuvien katselu
+
+Monet marketit pitävät ovet auki pääsiäisenä. Kuva: Sakari Partanen / Yle
+
+Osa kaupoista on pääsiäisenä auki. Esimerkiksi monet suuret marketit ovat auki joka päivä. Kaupat saavat nykyään itse päättää, milloin ne ovat auki.
+
+Pankit, postit ja Alkot ovat pääsiäisenä kiinni. Ne avaavat ovet seuraavan kerran vasta tiistaina.
+
+Pääsiäinen tuo muutoksia myös bussien ja junien aikatauluihin. Osa bussivuoroista jää pääsiäisenä kokonaan pois.

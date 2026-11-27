@@ -1,0 +1,85 @@
+# Lauantai 20.2.2016 (radio)
+
+EU ja Britannia pääsivät sopimukseen. Suomen pääministeri Juha Sipilä toivoo, että Britannia jatkaa EU:n jäsenenä. Italialainen kirjailija Umberto Eco on kuollut. Vanhemmat voivat löytää lapselle nimen kirjasta tai elokuvasta. Riitta Matikainen on jäänveiston Suomen mestari.
+
+## EU ja Britannia pääsivät sopimukseen
+
+![Britannian pääministeri David Cameron piti yöllä tiedotustilaisuuden Brysselissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8687761)
+
+Avaa kuvien katselu
+
+Pääministeri David Cameronin mielestä Britannian kannattaa nyt pysyä EU:ssa. Kuva: EPA/JULIEN WARNAND
+
+Euroopan unionin johtajat ovat sopineet, miten EU:n ja Britannian suhteet järjestetään. Britannia halusi monia muutoksia. Britannian pääministeri David Cameron on tyytyväinen uuteen sopimukseen.
+
+Britannia saa esimerkiksi rajoittaa sosiaalitukien maksamista ihmisille, jotka muuttavat muista EU-maista Britanniaan. Britannia voi maksaa heille myös lapsilisää vain sen verran kuin lapsen asuinmaassa on tapana.
+
+Pääministeri Cameron sanoo, että sopimus myös estää brittiläisten firmojen syrjimisen, vaikka Britannia ei aio ottaa käyttöön euroa. Punta säilyy Britannian rahana.
+
+Pääministeri Cameronin mielestä sopimus on niin hyvä, että Britannian kannattaa pysyä EU:ssa. Britit äänestävät kesäkuussa siitä, jatkaako Britannia EU:n jäsenenä vai ei.
+
+## Suomi on tyytyväinen sopimuksen syntymiseen
+
+![Juha Sipilä saapuu EU:n Britannia-nevotteluihin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8687664)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä edusti Suomea EU:n ja Britannian neuvotteluissa. Kuva: Emmanuel Dunand / AFP
+
+Suomen pääministeri Juha Sipilä toivoo, että Britannia jatkaa EU:n jäsenenä. Sipilä on tyytyväinen EU:n ja Britannian sopimukseen. Sipilä sanoo, että neuvottelut kannattivat, jos Britannia saadaan pysymään EU:ssa.
+
+## Umberto Eco on kuollut
+
+![Italialaiskirjailija Umberto Eco menehtyi 84-vuotiaana. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8687772)
+
+Avaa kuvien katselu
+
+Umberto Econ kirjoja on käännetty monille kielille. Kuva: Juan Ferreras / EPA
+
+Italialainen kirjailija Umberto Eco on kuollut. Hän oli 84-vuotias. Eco tunnettiin ympäri maailmaa.
+
+Umberto Eco on kirjoittanut esimerkiksi kirjan Ruusun nimi. Kirjan tarina tapahtuu Italiassa 700 vuotta sitten. Kirja on käännetty monille kielille, ja siitä on tehty myös elokuva.
+
+Umberto Eco oli myös professori ja tutkija.
+
+## Lapselle sankarin nimi
+
+![Kuva elokuvasta Hobitti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6411351)
+
+Avaa kuvien katselu
+
+Bilbo Reppuli elokuvasta Taru sormusten herrasta. Kuva: © 2012 Warner Bros. Entertainment Inc. and Metro-Goldwyn-Mayer Pictures Inc
+
+Vanhemmat voivat löytää lapselle nimen kirjasta tai elokuvasta.
+
+Esimerkiksi Aurora ja Jasmine ovat melko tavallisia nimiä Suomessa. Nimet tulevat Disneyn elokuvista, joissa samannimiset prinsessat seikkailevat. Näin kertoo tutkija Minna Saarelma-Paukkala.
+
+Myös Suomessa "Taru sormusten herrasta" -fanit ovat antaneet lapsille sellaisia nimiä kuin Gandalf, Frodo ja Bilbo. Näitä nimiä ei ole monella suomalaisella, mutta ne kuuluvat jo virallisiin suomalaisiin nimiin.
+
+## Jäänveiston SM-kilpailut
+
+![Riitta Matikainen työstää teostaan jäänveiston SM-kisoissa Varkaudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8688227)
+
+Avaa kuvien katselu
+
+Riitta Matikainen ja patsas Mutta mitä tapahtui jäällä? Kuva: Markku Malinen / Yle
+
+![Jere Nuppola työstää kissa-aiheista teostaan jäänveiston SM-kisoissa Varkaudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8688231)
+
+Avaa kuvien katselu
+
+Jere Nuppola. Kuva: Markku Malinen / Yle
+
+Varkaudessa on järjestetty jäänveiston SM-kilpailut. Kilpailijat tekivät jäästä veistoksia eli patsaita. Aikaa heillä oli 2 päivää.
+
+Jäänveiston Suomen mestari on Riitta Matikainen. Matikainen voitti mestaruuden patsaalla, jonka nimi on Mutta mitä tapahtui jäällä?
+
+![Marika Walldén poseeraa teoksensa äärellä jäänveiston SM-kisoissa Varkaudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8688226)
+
+Avaa kuvien katselu
+
+Marika Walldén. Kuva: Markku Malinen / Yle
+
+Toiseksi tuli Jere Nuppola. Hän teki patsaan Kissa ajovaloissa.
+
+Kolmas oli Marika Walldén, jonka patsaan nimi on Portilla.

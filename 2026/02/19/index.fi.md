@@ -1,0 +1,53 @@
+# Selkouutiset | torstai 19.2.2026
+
+Uusi sote-ministeri. Vanhustenhoito. Olympiajääkiekkoa. Sää.
+
+## Sosiaali- ja terveysministeri
+
+Ensin aiheena on uusi sosiaali- ja terveysministeri.
+
+Perussuomalaisten **Wille Rydmanista** tulee uusi sosiaali- ja terveysministeri.
+
+Perussuomalaisten puheenjohtaja **Riikka Purra** kertoi Rydmanin valinnasta eilen illalla.
+
+Rydman oli aiemmin 2 vuoden ajan **Orpon** hallituksen elinkeinoministeri. Viime kesänä hän palasi kansanedustajaksi.
+
+Wille Rydman nousee sosiaali- ja terveysministeriksi **Kaisa Juuson** tilalle. Juuso ilmoitii viime viikolla, että hän jättää ministerin työn.
+
+Sosiaali- ja terveyspalveluihin on suunniteltu isoja säästöjä. Wille Rydman sanoo, että säästöistä pidetään kiinni.
+
+## Vanhustenhoito
+
+Sitten kerromme vanhustenhoidosta.
+
+Hoitajat sanovat, että vanhusten turvallisuus on heikentynyt hoivakodeissa.
+
+Hoitajat kertovat Ylelle, että erilaiset vaaratilanteet ovat lisääntyneet.
+
+Myös hoitajien ammattiliitto Super kertoo, että se saa työntekijöiltä ilmoituksia vaaratilanteista melkein joka päivä.
+
+Hoitajien mielestä vaaratilanteiden määrä hoivakodeissa on kasvanut, koska hoitajamitoitus on pienentynyt.
+
+Hoitajamitoitus tarkoittaa sitä, että Suomessa laki määrää, kuinka monta hoitajaa hoivakodissa pitää olla.
+
+Tänä talvena hoivakodeissa on sattunut ainakin 5 kuolemantapausta, joita poliisi tutkii.
+
+## Jääkiekko
+
+Sitten urheilu-uutinen.
+
+Suomen miesten jääkiekkomaajoukkue etenee mitalipeleihin talviolympialaisissa.
+
+Leijonat voitti illalla Sveitsin jatkoajalla 3-2 ja pelaa siis välierissä.
+
+Välierät pelataan huomenna. Välierissä kohtaavat Suomi ja Kanada sekä USA ja Slovakia.
+
+Otteluiden voittajat pelaavat kultamitalista ja häviäjät pronssimitalista.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Huomenna aurinko paistaa lähes koko maassa. Itärajalla on pilvistä.
+
+Etelässä ja lännessä sää lämpenee hieman.

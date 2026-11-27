@@ -1,0 +1,79 @@
+# Sunnuntai 28.8.2022 (radio)
+
+Venäläisten viisumit. IAEA:n tarkastuskäynti Zaporižžjaan. Kirjakauppojen oppikirjamyynti. Ratsastusharrastus. Säätiedot.
+
+## Venäläisten viisumit
+
+![Väkijoukko jonottaa Suomen viisumikeskukseen. Etualalla mies lukee kännykkäänsä.](https://img.img-cdn.yle.fi/crop_extract,w_3999,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99687462ff8ebcd9fac/1660915475)
+
+Avaa kuvien katselu
+
+Venäläiset jonottivat Suomen viisumikeskukseen Pietarissa runsas viikko sitten. Kuva: Grigori Vorobjov / Yle
+
+EU-ulkoministerit aikovat puhua venäläisten viisumirajoituksista ensi viikolla.
+
+Financial Times-sanomalehti kertoo, että EU-ministerit puhuvat esimerkiksi venäläisten viisumihelpotusten rajoittamisesta ja venäläisten matkustusoikeuden perumisesta EU-tasolla,
+
+Esimerkiksi Viro on vaatinut tiukkaa viisumipolitiikkaa Venäjälle, koska maa käy sotaa Ukrainassa.
+
+Esimerkiksi Tšekki ja Puola ovat lopettaneet turistiviisumien myöntämisen venäläisille. Suomi on päättänyt, että venäläisten turistiviisumien määrää vähennetään.
+
+## IAEA haluaa Zaporižžjaan
+
+![Sotilas seisoo ydinvoimalan edustalla.](https://img.img-cdn.yle.fi/crop_extract,w_5358,h_3013,x_0,y_558/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9976426303513278f57/1661162081)
+
+Avaa kuvien katselu
+
+Venäläinen sotilas vartioi Zaporižžjan ydinvoimalaa toukokuussa. Kuva: Andrey Borodulin / AFP
+
+Kansainvälinen atomienergiajärjestö IAEA valmistelee tarkastuskäyntiä Zaporižžjan ydinvoimalaan Ukrainassa.
+
+Sanomalehti New York Times kertoo, että IAEA on koonnut 14-henkisen asiantuntijaryhmän Zaporižžjan vierailua varten.
+
+Zaporižžjan ydinvoimala sijaitsee Ukrainassa, mutta se on alueella, jonka Venäjä on vallannut. Ydinvoimalan turvallisuus on herättänyt kansainvälistä huolta.
+
+Venäjä on luvannut päästää ryhmän riippumattomia tarkastajia voimalaan.
+
+## Oppikirjojen myynti
+
+![Uusia ja käytettyjä oppimateriaaleja myyvän Jameran toimitusjohtaja Hanna Haukkapää järjestelemässä hyllyjä Helsingin keskustan kirjakaupassa.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_783/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99609262fe0b3507c7d/1660817506)
+
+Avaa kuvien katselu
+
+Jameran toimitusjohtaja Hanna Haukkapää järjestelee kirjoja hyllyyn Helsingin keskustan kirjakaupassa. Kuva: Jari Kovalainen / Yle
+
+Kirjakauppojen oppikirjamyynti on romahtanut.
+
+Toisen asteen opiskelijat eli esimerkiksi ammattikoululaiset ja lukiolaiset eivät enää osta oppikirjoja, koska he saavat ne koululta ilmaiseksi. Koulujen pitää antaa oppilaille kirjat ilmaiseksi, koska oppivelvollisuusikä jatkuu nyt 18-ikävuoteen asti. Uudistus tuli voimaan vuosi sitten.
+
+Jamera-kirjakauppa myy pelkästään oppikirjoja, uusia ja käytettyjä. Myynti on hiipunut niin, että Jamera aikoo sulkea ovet kokonaan ehkä ensi keväänä.
+
+Myös isompien kirjakauppojen oppikirjamyynti on liki puolittunut viime vuoteen verrattuna.
+
+## Ratsastusharrastus
+
+![Ratsastajia maastossa Kajaanissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9735200)
+
+Avaa kuvien katselu
+
+Ratsastajia maastossa Kajaanissa. Kuva: Kimmo Hiltunen / Yle
+
+Ratsastuksen suosio kasvaa tasaisesti.
+
+Ratsastusta harrastaa nyt noin 160 000 suomalaista. Suomen Ratsastajainliitto kertoo, että harrastajien määrä on kaksinkertaistunut vajaassa 30 vuodessa.
+
+Harrastajamäärä ei laskenut edes koronapandemian aikana, sillä ratsastusta pystyi harrastamaan myös koronarajoitusten aikana.
+
+Suomessa on kaikkiaan noin tuhat ratsastustallia.
+
+## Maanantain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12598023)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Huomenna suuressa osassa maata on poutaa. Etelä-Suomessa voi kuitenkin tulla voimakkaita sadekuuroja ja Lapissa heikkoja sadekuuroja.
+
+Lämpötila on päivällä 16-21 astetta ja Lapissa 7-16 astetta.

@@ -1,0 +1,80 @@
+# Sunnuntai 5.7.2020 (radio)
+
+Suomessa on 5 uutta koronatartuntaa. Maahanmuuttajatausta vaikuttaa lasten koulumenestykseen Suomessa. Työntekijöitä kohdellaan huonosti siivousalalla. Pohjois-Suomessa on tänä kesänä enemmän hyttysiä kuin Etelä-Suomessa. Valtteri Bottas voitti F1-kilpailun.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Suomen koronatartunnat
+
+![THL:n kyltti Mannerheimintiellä Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11358354)
+
+Avaa kuvien katselu
+
+Terveyden ja hyvinvoinnin laitos seuraa koronatartuntojen määrää Suomessa. Kuva: Tiina Jutila / Yle
+
+Suomen koronatilanne on edelleen hyvä. Sunnuntaina raportoitiin vain 5 uutta koronatartuntaa.
+
+Suomessa on raportoitu yhteensä vähän alle 7300 koronatartuntaa.
+
+## Maahanmuutajatausta ja koulumenestys
+
+![Jalkapalloilijat ovat tärkeitä esikuvia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11431709)
+
+Avaa kuvien katselu
+
+Kannustus ja esikuvat ovat tärkeitä maahanmuuttajataustaisille lapsille. Kuva: Petteri Bülow / Yle
+
+Maahanmuuttajatausta vaikuttaa lasten koulumenestykseen Suomessa. Maahanmuuttajaperheiden lapset menestyvät koulussa usein heikommin kuin suomalaisperheiden lapset.
+
+Esimerkiksi lasten lukutaidossa on iso ero maahanmuuttajataustaisten ja muiden lasten välillä. Ero on Suomessa isompi kuin monissa muissa maissa. Asia selviää PISA-tutkimuksista.
+
+Tutkijat sanovat, että syitä tilanteeseen on monia, esimerkiksi opettajien asenteet. Jos opettaja ei kannusta maahanmuuttajataustaista lasta, lapsi ei usko, että hän voi menestyä.
+
+Asiasta voi lukea lisää Ylen nettisivuilta. Osoite on yle.fi.
+
+## Huonoa kohtelua siivousalalla
+
+![Ikkunanpesua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11433984)
+
+Avaa kuvien katselu
+
+Siivoojan työ on raskasta ja kohtelu voi olla huonoa. Kuva: Tiina Jutila / Yle
+
+Työntekijöitä kohdellaan huonosti siivousalalla. Asiasta kirjoittaa Helsingin Sanomat.
+
+Siivousalalla on esimerkiksi liian pitkiä työpäiviä. Työntekijöillä ei aina ole edes vapaapäiviä. Työntekijöiden huono kohtelu on siivousalalla tavallista, Helsingin Sanomat kirjoittaa.
+
+Siivousalalla työskentelee paljon maahanmuuttajia. He eivät aina tiedä omia oikeuksia. Monet eivät myöskään uskalla valittaa huonosta kohtelusta, koska he pelkäävät potkuja.
+
+## Hyttysten määrä vaihtelee
+
+![Lähikuva hyttysestä imemässä verta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11433949)
+
+Avaa kuvien katselu
+
+Hyttyset imevät ihmisestä verta. Kuva: Vesa Moilanen / Lehtikuva
+
+Hyttysten määrässä on tänä kesänä iso ero Pohjois-Suomen ja Etelä-Suomen välillä.
+
+Pohjois-Suomessa hyttysiä on paljon. Hyttyset kehittyvät vesilammikoissa, joita oli pohjoisessa paljon lumisen talven jälkeen.
+
+Etelä-Suomessa hyttysiä on nyt vähän. Talvella oli vähän lunta, ja kevät oli kuiva, eikä vesilammikoita ollut.
+
+Hyttysten määrä kiinnostaa suomalaisia joka kesä, koska pienet hyttyset ovat ihmisille iso kiusa. Hyttyset imevät ihmisestä verta.
+
+## Bottakselle F1-voitto
+
+![Bottas](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11434193)
+
+Avaa kuvien katselu
+
+Bottas ajoi maaliin ensimmäisenä Itävallassa. Kuva: Getty Images
+
+Suomalainen Valtteri Bottas on voittanut formula ykkösten kilpailun Itävallassa.
+
+Itävallan kilpailu oli ensimmäinen formulakisa koronatauon jälkeen.
+
+Valtteri Bottas on 30-vuotias formulakuljettaja. Hän ajaa Mercedeksen autolla. Bottaksella on mahdollisuus voittaa jopa maailmanmestaruus, jos kausi jatkuu hyvin.
+
+Seuraava formulakisa ajetaan viikon kuluttua.

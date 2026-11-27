@@ -1,0 +1,75 @@
+# Selkouutiset | tiistai 3.2.2026
+
+Talouspolitiikka. Jätetuonti. Diginuotit. Sääennuste.
+
+## Talouspolitiikka
+
+Aluksi uutinen hallituksen talouspolitiikasta.
+
+Hallitus ei onnistu julkisen talouden tasapainotuksessa.
+
+Hallitus ei saavuta tavoitteita, jotka hallitus on asettanut.
+
+Näin sanoo talouspolitiikan arviointineuvosto.
+
+Talouspolitiikka ei ole tasaista. Siksi valtion velka ei pienene tarpeeksi.
+
+Arviointineuvosto sanoo, että veronkevennykset ovat riski valtion taloudelle.
+
+Hallitus ei onnistu julkisen talouden tasapainotuksessa.
+
+Arviointineuvosto arvostelee sitä, että hallitus on leikannut sosiaaliturvaa, mutta ei ole leikannut eläkkeitä.
+
+## Jätetuonti
+
+Nyt uutinen jätteiden tuonnista Suomeen.
+
+Jätetuonnissa on rikollista toimintaa.
+
+Suomeen tuodaan paljon jätettä ulkomailta.
+
+Iso osa jätteistä tulee Italiasta.
+
+Yle tutki jätefirmoja. Selvisi, että Suomeen on tuonut jätteitä italialainen firma, jonka johtajat on tuomittu laittomista jätekuljetuksista ja lahjonnasta.
+
+Firman nimi on Sicula Trasporti.
+
+Suomen ympäristökeskus ei tiennyt firman rikostaustasta. Siksi firma sai luvan tuoda jätteitä Suomeen.
+
+Ylitarkastaja **Hannele Nikander** sanoo, että ympäristökeskus luotti Italian viranomaisiin.
+
+*”Me pääsääntöisesti ja lähtökohtaisesti luotamme sen maan eli tässä tapauksessa Italian viranomaisen tekemiin tarkastuksiin.”*
+
+Jätetuonnissa Suomeen on rikollista toimintaa.
+
+Asiantuntijat sanovat, että jätealalla tuotto on suuri ja riski jäädä kiinni on pieni.
+
+## Diginuotit
+
+Lopuksi uutinen orkestereiden digisiirtymästä.
+
+Moni sinfoniaorkesteri luopuu paperinuoteista ja siirtyy digilaitteisiin.
+
+Tässä harjoittelee Kuopion kaupunginorkesteri.
+
+Se on ollut aktiivinen digilaitteiden käytössä.
+
+Orkesteri hankki kaikille soittajille tabletit jo kaksi vuotta sitten.
+
+Nyt noin puolet soittajista käyttää jo tablettia.
+
+Myös diginuotteihin voi tehdä omia merkintöjä.
+
+Osa soittajista kaipaa vielä paperinuotteja. Paperinuotti on esimerkiksi isompi kuin tabletti.
+
+Moni sinfoniaorkesteri luopuu paperinuoteista ja siirtyy digilaitteisiin.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona jatkuu enimmäkseen poutainen pakkassää.
+
+Pohjois-Lapissa tulee vähäisiä lumisateita.
+
+Päivälämpötila on suurimmassa osassa maata -10 ja -20 asteen välillä.

@@ -1,0 +1,77 @@
+# Lauantai 27.1.2018 (radio)
+
+Sunnuntaina äänestetään presidentinvaaleissa. Afganistanin pommi-iskussa on kuollut noin 100 ihmistä. Suomen sisällissota alkoi tasan 100 vuotta sitten. Tänä viikonloppuna tarkkaillaan lintuja.
+
+## Sunnuntai on vaalipäivä
+
+![Presidentinvaalien äänestyslipuke.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10026304)
+
+Avaa kuvien katselu
+
+Suomalaiset äänestävät presidentissä sunnuntaina. Kuva: Jussi Nukari / Lehtikuva
+
+Sunnuntaina järjestetään presidentinvaalit. Vaaleissa valitaan Suomelle presidentti seuraavien 6 vuoden ajaksi.
+
+Vaaleissa on 8 ehdokasta. Jos joku ehdokkaista saa sunnuntaina yli 50 prosenttia äänistä, hänestä tulee presidentti.
+
+Jos kukaan ehdokkaista ei saa yli 50 prosenttia äänistä, järjestetään vaalien toinen kierros. Toiselle kierrokselle pääsevät mukaan ne 2 ehdokasta, jotka nyt sunnuntaina saavat eniten ääniä. Toisen kierroksen vaalipäivä on 2 viikon päästä.
+
+Asiantuntijat arvioivat, että näissä vaaleissa ei tarvita toista kierrosta. Nykyinen presidentti Sauli Niinistö on menestynyt kyselyissä tosi hyvin. Esimerkiksi Ylen kyselyssä yli 60 prosenttia vastaajista sanoi, että aikoo äänestää Niinistöä.
+
+**Selkouutisten vaalisivut**
+
+## Kabulissa räjähti pommi
+
+![Pommi-iskussa loukkaantunutta miestä siirretään ambulanssiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10044602)
+
+Avaa kuvien katselu
+
+Kabulin pommi-iskussa kuoli ja loukkaantui paljon ihmisiä. Kuva: Jawad Jalali / EPA
+
+Afganistanissa on tapahtunut pommi-isku. Iskussa kuoli ehkä noin 100 ihmistä.
+
+Pommi räjähti pääkaupunki Kabulissa. Afganistanin viranomaiset sanovat, että kyseessä oli autopommi. Pommi oli piilotettu ehkä ambulanssiin.
+
+Äärijärjestö Taliban on ilmoittanut, että se on iskun tekijä.
+
+## Sisällissota alkoi tammikuussa 1918
+
+![Sotilaita rivissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10036497)
+
+Avaa kuvien katselu
+
+Sotilaita sisällissodan ajalta. Kuva: Yle
+
+Suomen sisällissota alkoi tasan 100 vuotta sitten. Sota alkoi tammikuun 27. päivä vuonna 1918. Sota loppui saman vuoden toukokuussa.
+
+Sisällissodassa suomalaiset taistelivat suomalaisia vastaan. Vastakkain olivat punaiset ja valkoiset.
+
+Monet punaiset olivat köyhiä. Punaisten tavoite oli sosialistinen Suomi.
+
+Valkoiset kannattivat Suomen porvarillista hallitusta. Valkoiset voittivat sodan.
+
+Melkein 40 000 suomalaista kuoli sisällissodassa. Suurin osa kuolleista oli punaisia. Monet punaiset kuolivat vankileireillä sodan jälkeen.
+
+## Nyt bongataan lintuja
+
+![Talitiainen ja hömötiainen ruokailemassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5004108)
+
+Avaa kuvien katselu
+
+Talitiainen ja hömötiainen viihtyvät Suomessa myös talvella. Kuva: Yle
+
+Monet tarkkailevat tänä viikonloppuna lintuja. Lintujärjestö BirdLife järjestää pihabongauksen.
+
+Pihabongauksessa ihmiset tarkkailevat lintuja pihalla tunnin ajan. Sen jälkeen he kertovat BirdLifelle, mitä lintuja he ovat nähneet. Ilmoituksen voi tehdä verkossa.
+
+Tapahtuman avulla BirdLife haluaa innostaa ihmisiä tarkkailemaan talven lintuja.
+
+## Sunnuntaina kerromme vaalituloksesta
+
+![Ylen uutisjuontaja Matti Rönkä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10044862)
+
+Avaa kuvien katselu
+
+Television vaalilähetys alkaa TV1:ssä sunnuntaina kello 19.30. Toimittaja Matti Rönkä kertoo, miten vaaleissa käy. Kuva: Outi Kuitunen / Yle
+
+Sunnuntaina on siis presidentinvaalit. Vaali-iltana selkouutiset lähetetään Radio Suomessa kello 23.02. Mielenkiintoista vaalipäivää kaikille!

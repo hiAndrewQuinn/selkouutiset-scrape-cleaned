@@ -1,0 +1,61 @@
+# Perjantai 8.5.2020 (radio)
+
+Suomen talous supistuu paljon. Selkokieltä tarvitaan usein. Avioliittoja solmittiin aiempaa vähemmän. Kaupunkien ilma on puhdistunut.
+
+## Suomen talous supistuu paljon
+
+![Vesa Vihriälän selvitysraportti luovutettiin 8. toukokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11342498)
+
+Avaa kuvien katselu
+
+Talousasiantuntijoiden ryhmää johtaa Vesa Vihriälä. Kuva: Laura Kotila / valtioneuvoston kanslia
+
+Asiantuntijat ovat laskeneet, miten paljon Suomen talous supistuu koronatilanteen takia.
+
+Asiantuntijat sanovat, että Suomen talous supistuu tänä vuonna 5–13 %. Talous supistuu niin paljon, että osa firmoista ei selviä. Firmoja menee konkurssiin, eli niiden toiminta loppuu. Firmat tarvitsevat tukea.
+
+Asiantuntijat sanovat, että koska julkinen velka kasvaa paljon, Suomessa pitää nostaa veroja ja vähentää menoja. Esimeriksi julkisia palveluja pitää ehkä vähentää.
+
+Viranomaisille ja kunnille vaaditaan lisää resursseja eli mahdollisuuksia selkokieleen. Selkokielen neuvottelukunta sanoo, että ketään ei saa jättää tiedon ulkopuolelle.
+
+## Selkokieltä tarvitaan kriiseissä
+
+![Kelan logo ikkunassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10286679)
+
+Avaa kuvien katselu
+
+Myös Kela on selkokielen neuvottelukunnan jäsen. Kuva: Tiina Jutila / Yle
+
+Koronaviruksen takia Suomessa on poikkeusolot. Koko ajan tulee uutta tietoa, ohjeita ja suosituksia. Kaikki eivät ymmärrä yleiskielisiä ohjeita. Suomessa noin 750 000 ihmistä tarvitsee selkokieltä. Monet heistä kuuluvat koronaviruksen riskiryhmään. Neuvottelukunta sanoo, että selkokieliset ohjeet ovat tosi tärkeitä.
+
+Selkokieltä tarvitaan myös kriiseissä, joita voi tulla myöhemmin. Selkokieltä tarvitaan aina, kun kerrotaan asioista, jotka vaikuttavat kaikkien ihmisten elämään.
+
+Selkokielen neuvottelukunnassa on 50 jäsentä. Jäseniä ovat esimerkiksi Kela, verottaja, monet järjestöt, oppilaitokset ja Yle.
+
+## Uusien avioliittojen määrä väheni
+
+![morsiuspari haapukuliike krinoliini jyvaskyla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5580704)
+
+Avaa kuvien katselu
+
+Hääkoriste. Kuva: YLE Keski-Suomi / Nina Moisio
+
+Suomessa mennään naimisiin aiempaa vähemmän. Suomessa solmittiin viime vuonna noin 22 300 avioliittoa. Avioliittoja solmittiin 1500 vähemmän kuin edellisenä vuonna.
+
+Avioliittoja, joissa puolisot ovat samaa sukupuolta, solmittiin vähän alle 400. Eniten avioliittoja solmittiin elokuussa.
+
+Naisten keski-ikä oli 32 vuotta ja miesten 34 vuotta.
+
+## Kaupunkien ilma on puhdistunut
+
+![kesäinen esplanadi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10188271)
+
+Avaa kuvien katselu
+
+Liikenne on vähentynyt ja ilma on puhtaampaa. Kuva: AOP
+
+Kaupunkien ilmanlaatu on parantunut Suomessa.
+
+Esimerkiksi typpioksidin määrä ilmassa on laskenut puoleen. Typpioksidia tulee autojen moottoreista. Ilmanlaatu on parantunut, koska liikenne on vähentynyt koronatilanteen takia.
+
+Myös katupölyn määrä kaupungeissa on pienentynyt puoleen tavanomaisesta.

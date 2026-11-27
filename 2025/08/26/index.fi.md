@@ -1,0 +1,72 @@
+# TV | Selkouutiset | tiistai 26.8.2025
+
+Puolustusrahat. Oulun vesi. Koripallon EM-kisat. Sää.
+
+## Puolustusrahat
+
+Aluksi uutinen politiikasta.
+
+Suomen suurlähettiläät ovat koolla Helsingissä.
+
+Mukana ovat myös hallituksen ministerit, jotka vastaavat Suomen ulkopolitiikasta ja turvallisuuspolitiikasta.
+
+Pääministeri **Petteri Orpo** puhui Suomen puolustuksesta.
+
+Orpo sanoi, että eduskunnan pitää keskustella puolustusrahoista pian.
+
+Nato-maat sopivat kesällä, että puolustusmenoja nostetaan. Siksi eduskunnan pitää keskustella puolustusmenoista.
+
+Pääministeri Petteri Orpo puhui Suomen puolustuksesta suurlähettiläskokouksessa.
+
+Orpo sanoi, että puolustuksen pitää olla niin vahva, että Venäjä ei halua hyökätä Suomeen.
+
+*”Meidän pitää olla sotilaallisesti niin vahvoja, ettemme joudu arvuuttelemaan, minne Venäjä seuraavaksi hyökkää.”*
+
+## Oulun vesi
+
+Nyt ympäristöuutinen.
+
+Tämä on vesilähde Pudasjärvellä.
+
+Oulun kaupunki haluaa ottaa vettä vesilähteistä.
+
+Vettä tarvitaan varajärjestelmään. Nyt Oulun vesi tulee vain Oulujoesta. Jos joki saastuu, Oululla ei ole varavettä.
+
+Oulun vesijakelun johtaja **Juha Hiltula** kertoo, että varaveden puuttuminen on vakava ongelma.
+
+Oulun kaupunki haluaa ottaa vettä vesilähteistä.
+
+Oulu on valmistellut vedenottoa yli 40 vuotta. Vedenottolupa on kuitenkin kaatunut ympäristövalituksiin.
+
+Nyt odotetaan Vaasan hallinto-oikeuden ratkaisua vielä tänä vuonna.
+
+## Koripallon EM-kilpailut
+
+Lopuksi urheilu-uutinen.
+
+Koripallon Euroopan mestaruuskisat eli EM-kisat alkavat huomenna keskiviikkona.
+
+Suomi on yksi isäntämaa. Tampereella pelataan yksi alkulohko.
+
+Suomen koripallomaajoukkue Susijengi tapasi faneja Tampereella.
+
+Monet ihmiset halusivat nähdä tähtipelaaja **Lauri Markkasen**.
+
+Koripallon EM-kisat alkavat keskiviikkona.
+
+Suomi kohtaa avausottelussa Ruotsin.  
+Muut alkulohkon vastustajat ovat Britannia, Montenegro, Liettua ja Saksa.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää vaihtelee.
+
+Etelässä ja lännessä on poutaa.
+
+Muualla voi sataa vähän.
+
+Lämpötila on 10 ja 18 asteen välillä.
+
+Lapissa on kylmempää.

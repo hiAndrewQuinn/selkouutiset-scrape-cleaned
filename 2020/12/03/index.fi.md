@@ -1,0 +1,69 @@
+# Torstai 3.12.2020 (radio)
+
+Koronarokotukset alkavat Suomessa ehkä ensi vuoden alussa. Britannia ja Venäjä aloittavat koronarokotukset jo lähipäivinä. Koronatartuntojen määrä Suomessa kasvaa. Kirjastojen sähköisten materiaalien suosio on kasvanut korona-aikana.
+
+## Koronarokotukset Suomessa
+
+![THL:n ylilääkäri Taneli Puumalainen STM:n ja THL:n koronavirustilanteen tilannekatsauksessa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11678953)
+
+Avaa kuvien katselu
+
+THL:n ylilääkäri Taneli Puumalainen kertoi koronarokotuksista torstaina. Kuva: Roni Rekomaa / Lehtikuva
+
+Koronarokotukset alkavat ensi vuoden alussa. Näin arvioi Terveyden ja hyvinvoinnin laitos eli THL.
+
+THL kertoi torstaina, että terveydenhuollon työntekijät rokotetaan ehkä tammikuussa. Terveydenhuollon työntekijöiden pitää pysyä terveinä, jotta terveydenhuolto toimii.
+
+Vanhukset ja riskiryhmät rokotetaan ehkä helmikuussa. Riskiryhmiin kuuluu ihmisiä, joilla on jokin perussairaus, esimerkiksi vaikea astma.
+
+Muut aikuiset rokotetaan koronaa vastaan kevään aikana. Lasten rokottamisesta päätetään, kun tutkimustietoa on enemmän.
+
+Suomi aikoo antaa rokotuksen kaikille, jotka sen haluavat. Rokotus on ilmainen.
+
+## Koronarokotukset ulkomailla
+
+![Influenssarokotusta pistetään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11650518)
+
+Avaa kuvien katselu
+
+Venäjä ja Britannia aikovat aloittaa koronarokotukset pian. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Ulkomailla koronarokotukset ovat jo alkamassa.
+
+Venäjän pääkaupungissa Moskovassa aloitetaan koronarokotukset tämän viikon lauantaina.
+
+Moskovassa avataan isoja rokotuskeskuksia. Ensin rokotetaan opettajat, sosiaalityöntekijät ja lääkärit.
+
+Britannia on kertonut, että se aloittaa koronarokotukset ensi viikolla. Britannia rokottaa ensin hoitokotien hoitajat ja asukkaat.
+
+## Suomen koronatartunnat
+
+![Kuvassa on potilas tehohoidossa Ranskassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11558692)
+
+Avaa kuvien katselu
+
+Osa koronapotilaista tarvitsee tehohoitoa. Kuva: Caroline Blumberg / EPA
+
+Suomessa koronatartuntoja on vähemmän kuin monissa muissa Euroopan maissa. Koronatartuntojen määrä kuitenkin kasvaa nopeasti.
+
+2 viime viikon aikana Suomessa on ilmoitettu yli 6000 koronatartuntaa. Se on 2 kertaa niin paljon kuin edellisten 2 viikon aikana.
+
+Torstaina raportoitiin 540 uutta koronatartuntaa.
+
+Sairaaloilla on paljon työtä, koska monet koronapotilaat tarvitsevat tehohoitoa. Sairaalat ovat huolissaan siitä, riittävätkö tehohoitopaikat.
+
+## Kirjastojen e-materiaalit
+
+![Kuvakaappaus ellibs-sähkökirjaston sivuilta.](https://img.img-cdn.yle.fi/crop_extract,w_2600,h_1463,x_0,y_85/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6700135eaab9274ad5e/1588246995)
+
+Avaa kuvien katselu
+
+Sähköiset kirjat ovat nyt suosittuja. Kuva: Antti Seppälä / Yle
+
+Kirjastojen sähköisten materiaalien eli e-materiaalien suosio on kasvanut korona-aikana.
+
+Sähköisten kirjojen ja lehtien suosio kasvoi paljon viime keväänä, kun kirjastot olivat kiinni koronan takia. Sähköisten materiaalien suosio kasvoi jopa 250 prosenttia.
+
+Asiakkaat toivovat, että sähköisiä e-materiaaleja tulee lisää myös kirjastoihin. Nykyään sähköisiä kirjoja ja lehtiä on enemmän myynnissä kuin kirjastoissa.
+
+Nyt Suomeen suunnitellaan e-kirjastoa, joka toimii koko maassa. Jos sellainen e-kirjasto perustetaan, iso valikoima sähköisiä kirjoja tulee kaikkien suomalaisten käyttöön.

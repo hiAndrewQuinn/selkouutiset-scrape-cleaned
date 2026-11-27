@@ -1,0 +1,69 @@
+# Keskiviikko 19.5.2021 (radio)
+
+Keskustan kansanedustajille varoituksia. Hallitus sai luottamuksen. Matala syntyvyys heikentää talouskasvua. Koronarokotustodistus tulee käyttöön Suomessa. Sääennuste.
+
+## Keskustapuolue antoi varoituksia
+
+![Hannu Hoskonen säilytti puoluepaikkansa.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80773060a4c6a1f1a56/1621416010)
+
+Avaa kuvien katselu
+
+Keskustan Hannu Hoskonen. Kuva: Jani Saikko / Yle
+
+Keskustan eduskuntaryhmä on antanut varoituksen kahdelle puolueen kansanedustajalle. Varoituksen saavat kansanedustajat **Tuomas Kettunen** ja **Hannu Hoskonen**. Syy on se, että he äänestivät EU:n elvytyspakettia vastaan.
+
+Keskusta on hallituspuolue. Siksi kaikkien keskustan kansanedustajien piti äänestää elpymispaketin puolesta.
+
+Hannu Hoskonen erotettiin myös eduskunnan ympäristövaliokunnan puheenjohtajan tehtävästä.
+
+## Hallitus sai luottamuksen
+
+![Eduskunta äänesti hallituksen luottamuksesta. Välikysymysäänestys hallituksen puoliväliriihessä tekemistä päätöksistä. 19.5.2021](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_351/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80791260a4f26fd472d/1643286654)
+
+Avaa kuvien katselu
+
+Äänet jakautuivat 106-75. Poissa oli 18 edustajaa. Kuva: Jani Saikko / Yle
+
+Eduskunta on äänestänyt hallituksen luottamuksesta. Hallitus sai eduskunnan enemmistön luottamuksen. Äänestystulos oli 106-75. Luottamus tarkoittaa, että hallitus saa jatkaa työtä.
+
+Hallituksen luottamuksesta äänestettiin, koska oppositiopuolueet kokoomus, kristillisdemokraatit ja nyt-liike tekivät välikysymyksen kehysriihestä.
+
+Oppositiopuolueet eivät pidä siitä, että menokehys ylitetään ja että työllisyyspäätöksiä siirrettiin syksyyn.
+
+## Talouskasvu voi hidastua pysyvästi
+
+![Kahdet lastenrattaat ulkona](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5317055c1763e605a05/1545036909)
+
+Avaa kuvien katselu
+
+Talouskasvu hidastuu, jos syntyvyys ei kasva. Kuva: Henrietta Hassinen / Yle
+
+Matala syntyvyys heikentää pysyvästi Suomen talouskasvua. Uusi tutkimus kertoo, että väestörakenteen muutos eli suomalaisten vanheneminen, hidastaa pysyvästi talouskasvua. Hidastuminen alkaa noin 20 vuoden kuluttua.
+
+Talouskasvu hidastuu pysyvästi, jos syntyvyys ei lisäänny, maahanmuutto ei kasva ja maahanmuuttajien työllisyysaste ei nouse.
+
+Tutkimuksen on tehnyt Elinkeinoelämän tutkimuslaitos Etla. Etla sanoo, että Suomessa pitää tehdä poliittisia toimia, että tilanne paranee. Esimerkiksi työuria pitää pidentää ja verotuksen nousua pitää tasata.
+
+## Koronarokotustodistus otetaan käyttöön
+
+![Lähikuva tietokoneen ruudulta Kelan Omakanta verkkosivuilta.](https://img.img-cdn.yle.fi/crop_extract,w_4539,h_2553,x_0,y_234/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6169595ddfa5e62fe1a/1574938873)
+
+Avaa kuvien katselu
+
+Omakanta palveluun pääsee tietokoneella ja puhelimella. Kuva: Ilkka Klemola / Yle
+
+Suomessa otetaan käyttöön koronarokotustodistus ensi viikolla. Todistuksen koronarokotuksesta saa terveystietojen verkkopalvelusta Omakannasta ensi keskiviikosta alkaen.
+
+Todistus tulee Omakantaan 5 päivän kuluessa siitä, kun ihminen on saanut koronarokotuksen. Todistuksen voi esimerkiksi tulostaa tai näyttää puhelimesta.
+
+Myöhemmin kesällä tulee käyttöön EU:n yhteinen koronatodistus. Se otetaan käyttöön ehkä heinäkuussa.
+
+## Sää
+
+![Torstai-iltapäivän sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11939414)
+
+Avaa kuvien katselu
+
+Lapissa sataa torstaina.
+
+Lapissa sataa torstaina vettä. Muualla maassa sää on poutainen. Idässä tulee sadekuuroja. Lämpötila on maan etelä- ja keskiosassa 12...18 astetta. Maan pohjoisosassa lämpötila on 3...12 astetta.

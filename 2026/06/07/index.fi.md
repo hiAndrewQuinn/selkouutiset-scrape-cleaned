@@ -1,0 +1,75 @@
+# Uutisviikko selkosuomeksi | sunnuntai 7.6.2026
+
+Puoluekannatus. Puoluekokoukset. Energiajuomat. Kultajuhlat.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Puoluekannatus
+
+![SDP:n kannatus putosi 0,7 prosenttiyksikköä 23,0:ään ja kokomuksen nousi saman verran 18,3:een, eli näiden välinen ero pieneni. Keskusta jatkaa kolmantena 14,1 prosentin kannatuksella.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16540876a1fe4a81148e/1780475461)
+
+Avaa kuvien katselu
+
+Kuva: eduskunta, Petteri Sopanen / Yle ja Silja Viitala / Yle, grafiikka: Nanna Särkkä / Yle
+
+Ensin uutinen politiikasta.
+
+Yle julkaisi tällä viikolla puolueiden kannatuskyselyn.
+
+Suosituin puolue on edelleen SDP. SDP:tä kannattaa 23 prosenttia suomalaisista. SDP:n kannatus on vähän laskenut. SDP ei ole hallituksessa.
+
+Toiseksi suosituin puolue on kokoomus. Sen kannatus on vähän yli 18 prosenttia. Kokoomus on pääministeri Petteri Orpon puolue.
+
+Kolmantena on keskusta. Sen kannatus on noin 14 prosenttia.
+
+Neljäntenä on perussuomalaiset, jonka kannatus on vähän alle 14 prosenttia.
+
+## Puoluekokoukset
+
+![Petteri Orpo.](https://img.img-cdn.yle.fi/crop_extract,w_5757,h_3238,x_0,y_100/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16564276a2424d2ddb89/1780754120)
+
+Avaa kuvien katselu
+
+Kuva: Silja Viitala / Yle
+
+Moni puolue piti tänä viikonloppuna kokouksen. Puoluekokouksen järjestivät kokoomus, keskusta, rkp ja Liike Nyt.
+
+Kokoomus valitsi Jyväskylässä pääministeri Petteri Orpon puolueen puheenjohtajaksi. Petteri Orpo on ollut kokoomuksen puheenjohtaja vuodesta 2016 lähtien. Kansanedustaja Karoliina Partanen valittiin kokoomuksen varapuheenjohtajaksi. Valinta oli yllätys.
+
+Antti Kaikkonen jatkaa keskustan puheenjohtajana ja Anders Adlercreutz jatkaa RKP.n puheenjohtajana.
+
+## Energiajuomat
+
+![Energiajuomat ovat rivissä kaupan kylmähyllyssä.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_196/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16553766a217af090fc0/1780579948)
+
+Avaa kuvien katselu
+
+Kuva: Selma Rita / Yle
+
+Seuraavaksi uutinen energiajuomista.
+
+Viranomainen haluaa kieltää energiajuomien myynnin alle 18-vuotiaille.
+
+Nuoret juovat energiajuomia enemmän kuin aikaisemmin. Moni nuori saa energiajuomista liikaa kofeiinia. Monet nuoret ovat myös riippuvaisia energiajuomista.
+
+Viranomainen on suositellut aiemmin, että kaupat eivät myy energiajuomia alle 15-vuotiaille. Suositus ei ole laki, eivätkä kaikki kaupat noudata suositusta.
+
+## Kultajuhlat
+
+![Yleisömerta Leijonien kultajuhlissa Olympiastadionin edustalla.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_431/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16535216a1e9ed979319/1780392247)
+
+Avaa kuvien katselu
+
+Kuva: Jani Saikko / Yle
+
+Tällä viikolla juhlittiin Suomen MM-kultaa, jonka Suomi voitti jääkiekossa. Jääkiekon maailmanmestaruus on Suomen 5.
+
+Suomalaiset juhlivat mestaruutta jo viikko sitten sunnuntaina. Silloin suuri määrä ihmisiä kokoontui juhlimaan esimerkiksi Helsingin keskustaan.
+
+Juhlat jatkuivat maanantaina. Silloin Helsingissä järjestettiin iso kansanjuhla.
+
+Juhliin osallistui yli 70 000 ihmistä. Suomen jääkiekkojoukkueen pelaajat olivat paikalla juhlissa. Juhlissa esiintyi myös suosittuja laulajia.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

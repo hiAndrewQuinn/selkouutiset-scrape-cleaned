@@ -1,0 +1,71 @@
+# Tiistai 22.10.2019 (radio)
+
+Postissa alkaa ehkä lakko ensi kuussa. Työllisyys on taas hieman parantunut. Maahanmuuttajia koulutetaan Pohjois-Savossa suoraan firmojen tarpeisiin. Kirjailija ja runoilija Aila Meriluoto on kuollut.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## PAU voi aloittaa lakon marraskuussa
+
+![Sara Luostainen / postinjakaja / postinjakaja / Pasila 11.10.2019](https://img.img-cdn.yle.fi/crop_extract,w_4886,h_2748,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5993205da09844e484e/1570805868)
+
+Avaa kuvien katselu
+
+Postilaiset ovat ehkä lakossa marraskuussa. Kuva: Jouni immonen / Yle
+
+Postissa alkaa ehkä lakko ensi kuussa.
+
+Työntekijöiden järjestö PAU eli Posti- ja logistiikka-alan unioni järjestää laajan työtaistelun. PAU haluaa saada vauhtia neuvotteluihin työehtosopimuksesta. Työehtosopimuksessa sovitaan esimerkiksi palkasta ja työajasta.
+
+PAU sanoo, että Posti haluaa siirtää postilaiset halvempaan sopimukseen. Työnantajien järjestö Palta sanoo, että Postin kilpailukyky pitää turvata.
+
+Postin jakelu, käsittely ja kuljetus ovat marraskuussa lakossa 2 viikkoa, jos sopua ei löydy ennen sitä. Lakko ehkä alkaa maanantaina 11. marraskuuta.
+
+## Työllisyys on parantunut
+
+![kahvila](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_314/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5020395b6adcb2cfa7c/1533730086)
+
+Avaa kuvien katselu
+
+Työllisyys on hieman parantunut, mutta hallituksen tavoitteeseen on vielä matkaa. Kuva: Henrietta Hassinen / Yle
+
+Työllisyys on taas hieman parantunut.
+
+Töissä oli syyskuussa 40 000 ihmistä enemmän kuin viime vuoden syyskuussa. Tilastokeskus kertoo, että työllisyysaste oli 72,8 prosenttia.
+
+Työttömysaste oli 6,7 prosenttia.
+
+Hallituksen tavoite on, että työllisyysaste on 75 prosenttia vuoden 2023 loppuun mennessä.
+
+## Maahanmuuttajia koulutetaan firmoihin Pohjois-Savossa
+
+![putkiremontin tekoa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9840984)
+
+Avaa kuvien katselu
+
+Kaikissa ammateissa ja töissä hyvä suomen kielen taito ei ole välttämätön. Kuva: AOP
+
+Maahanmuuttajia aletaan kouluttaa Pohjois-Savossa suoraan firmojen tarpeisiin. Mukana ovat Savon ja Ylä-Savon ammattiopistot sekä kulttuurialan ammattiopisto Ingmanedu.
+
+Opetusta suunnataan aloille, joissa on pulaa työntekijöistä. Lisäksi aloilla hyvä suomen kielen taito ei ole ehdoton edellytys.
+
+Usein maahanmuuttajien opiskelua ja työn saantia on hidastanut puutteellinen suomen kieli. Nyt tiukoista kielivaatimuksista aiotaan joustaa. Opettaja Jyri Kokkonen Savon ammattiopistosta sanoo, että kielen kyllä oppii, jos on intoa tehdä töitä.
+
+Yrityksissä odotetaan yhteistyötä. Esimerkiksi Jokiväri-yhtiöllä on töissä jo 3 maahanmuuttajaa. Firma tekee putkiremonttia kuopiolaisessa kerrostalossa.
+
+## Runoilija Aila Meriluoto on kuollut
+
+![Kirjailija, runoilija Aila Meriluoto](https://img.img-cdn.yle.fi/crop_extract,w_2816,h_1584,x_0,y_246/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5839595d566f248ccc9/1565945675)
+
+Avaa kuvien katselu
+
+Kirjailija Aila Meriluoto. Kuva: Yle/Atro Lahtela
+
+Suomalainen runoilija ja kirjailija Aila Meriluoto on kuollut. Hän oli 95-vuotias. Meriluoto oli keskeinen edustaja suomalaisen lyriikan murroksessa.
+
+Meriluodon ensimmäinen runokokoelma oli Lasimaalaus vuonna 1946. Meriluoto julkaisi paljon runokokoelmia ja muutaman romaanin. Hän myös suomensi paljon kirjallisuutta.
+
+Meriluoto sai paljon palkintoja. Hänelle myönnettiin 3 Valtion kirjallisuuspalkintoa sekä Pro Finladia -mitali.
+
+Aila Meriluoto muistetaan avioliitosta runoilija Lauri Viidan kanssa. Meriluoto kirjoitti Viidasta elämäkerran.

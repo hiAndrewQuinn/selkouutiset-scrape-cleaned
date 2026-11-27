@@ -1,0 +1,61 @@
+# Selkouutiset | maanantai 2.3.2026
+
+Iran. Suomalaiset Lähi-idässä. Euroviisut. Sää.
+
+## Iranin sota
+
+Aluksi uutinen sodasta Lähi-idässä.
+
+USA ja Israel jatkavat ilmaiskuja Irania vastaan.
+
+USA ja Israel aloittivat hyökkäyksen Iraniin lauantaina. Iskuissa kuoli Iranin ylin johtaja **Ali Khamenei**.
+
+Presidentti **Trump** sanoo, että hyökkäys Iraniin voi kestää neljä viikkoa.
+
+USA:n tavoite on kaataa Iranin nykyinen hallinto ja saada maahan uudet johtajat.
+
+USA ja Israel ovat jatkaneet iskuja Irania vastaan.
+
+Iran on vastannut hyökkäykseen kostoiskuilla.
+
+Iran on iskenyt Israeliin ja USA:n sotilastukikohtiin monissa Lähi-idän maissa. Räjähdyksiä on ollut esimerkiksi Abu Dhabissa, Dubaissa, Dohassa ja Kuwaitissa.
+
+## Suomalaiset Lähi-idässä
+
+Tuhansia suomalaismatkailijoita on jäänyt jumiin Persianlahden alueelle.
+
+Ilmaiskujen takia lentoja on peruttu ja lentokenttiä on suljettu useissa alueen maissa.
+
+Persianlahden alueella ja Israelissa on tällä hetkellä ehkä noin 3000 suomalaista.
+
+Eniten suomalaisia on Arabiemiraateissa ja Qatarissa. Iranissa on noin 70 suomalaista.
+
+Ulkoministeriö kehottaa ihmisiä pysymään rauhallisena.
+
+## Suomen Euroviisu
+
+Sitten aiheena Euroviisut.
+
+Suomen edustaja Euroviisuihin on valittu.
+
+Suomea edustavat laulaja **Pete Parkkonen** ja viulisti **Linda Lampenius**. He esittävät Euroviisuissa kappaleen Liekinheitin.
+
+Suomen Euroviisu-edustaja valittiin Uuden Musiikin Kilpailussa lauantaina.
+
+Parkkonen ja Lampenius olivat asiantuntijoiden ja yleisön suosikkeja.
+
+UMK-finaalia katsoi ennätysyleisö. Sitä katsoi televisiosta yli 2,5 miljoonaa suomalaista.
+
+Euroviisut järjestetään toukokuussa Itävallan pääkaupungissa Wienissä.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Huomenna lumisateita saapuu Suomeen. Lunta sataa eniten pohjoisessa.
+
+Ajokeli on huono.
+
+Etelässä on yksittäisiä plusasteita.
+
+Tuuli on kohtalaista.

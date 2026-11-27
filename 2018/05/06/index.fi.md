@@ -1,0 +1,77 @@
+# Sunnuntai 6.5.2018 (radio)
+
+Valtakunnansovittelija Minna Helle saa kritiikkiä. Kiinalaiset ovat ostaneet netistä paljon suomalaista ruokaa. Euroviisut alkavat. Suomi voitti ensimmäisen pelin jääkiekon MM-kilpailuissa. Sunnuntaina mitattiin kevään uusi lämpöennätys.
+
+## Valtakunnansovittelija
+
+![Matti Harjuniemi ja Minna Helle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10193004)
+
+Avaa kuvien katselu
+
+Rakennusliiton puheenjohtaja Matti Harjuniemi ja valtakunnansovittelija Minna Helle. Kuva: Jukka Nissinen / Rakennusliitto, Heikki Saukkomaa / Lehtikuva
+
+Suomessa puhutaan valtakunnansovittelija Minna Helteen toiminnasta. Valtakunnansovittelijan työnä on etsiä ratkaisua, kun työnantajien ja työntekijöiden järjestöt riitelevät esimerkiksi palkoista.
+
+Rakennusalan työntekijäjärjestö Rakennusliitto kritisoi Minna Hellettä. Rakennusliiton puheenjohtaja sanoo, että Helle on ollut työnantajien puolella, kun palkoista on neuvoteltu.
+
+Rakennusliiton mielestä syynä on se, että Helle on saanut hyvän työpaikan työnantajien järjestössä. Helle aloittaa Teknologiateollisuuden työmarkkinajohtajan työn kesäkuussa.
+
+Helle itse sanoo, että hän on hoitanut valtakunnansovittelijan työtä oikein.
+
+## Suomalainen ruoka Kiinassa
+
+![pirkka, fazer ja paulig](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9857695)
+
+Avaa kuvien katselu
+
+Kiinalaiset voivat ostaa suomalaisia ruokatarvikkeita netistä. Kuva: AOP ja Fazer
+
+Suomalaiset ruokatarvikkeet ovat suosittuja Kiinassa. Näin kertoo suomalainen kauppafirma Kesko.
+
+Kesko alkoi myydä ruokaa netin kautta Kiinassa syyskuussa. Kesko tekee yhteistyötä kiinalaisen nettikaupan Alibaban kanssa.
+
+Kesko kertoo, että kiinalaiset ovat ostaneet paljon esimerkiksi aamiaistuotteita, marjoja ja suklaata.
+
+## Euroviisut
+
+![Saara Aalto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10189988)
+
+Avaa kuvien katselu
+
+Suomen Euroviisu-edustaja Saara Aalto. Kuva: Markku Ulander / Lehtikuva
+
+Eurovision laulukilpailut eli Euroviisut alkavat Lissabonissa. Avajaisjuhla on sunnuntai-iltana. Kilpailut järjestetään Portugalin pääkaupungissa Lissabonissa, koska Portugali voitti Euroviisut viime vuonna.
+
+Euroviisut jatkuvat koko viikon. Ensimmäinen semifinaali on tiistaina. Mukana on myös Suomi.
+
+Jos Suomi menestyy semifinaalissa, Suomi pääsee finaaliin eli loppukilpailuun. Finaali on lauantaina.
+
+Suomen edustaja Euroviisuissa on Saara Aalto. Hän laulaa kappaleen Monsters.
+
+## Jääkiekon MM-kilpailut
+
+![Sebastian Aho jääkiekon MM-kisoissa 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10192751)
+
+Avaa kuvien katselu
+
+Sebastian Aho teki 2 maalia Suomen pelissä Etelä-Koreaa vastaan. Kuva: Tomi Hänninen
+
+Myös jääkiekon MM-kilpailut ovat alkaneet. Kilpailut ovat tänä vuonna Tanskassa.
+
+Suomen ensimmäinen peli oli lauantaina. Suomi voitti Etelä-Korean. Suomi teki 8 maalia ja Etelä-Korea 1 maalin.
+
+MM-kilpailut jatkuvat vielä 2 viikkoa. Sitten selviää, mikä maa on tänä vuonna jääkiekon maailmanmestari.
+
+## Lämpöennätys
+
+![Veneilijät lähtevät merelle nautiskelemaan aurinkoisesta säästä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10193223)
+
+Avaa kuvien katselu
+
+Kohti kesää mennään. Kuva: Pekka Tynell / Yle
+
+Sunnuntai on ollut lämmin päivä. Tämän kevään uusi lämpöennätys on 21,4 astetta. Se mitattiin Lahdessa.
+
+Sää myös jatkuu lämpimänä. Ylen meteorologi Toni Hellinen kertoo, että maanantaina etelässä on aurinkoista ja lämmintä. Pohjoisessa on kylmempää, ja Lapissa voi sataa lunta.
+
+Maanantain jälkeen sateet loppuvat myös pohjoisessa, ja koko Suomessa on lämmintä monta päivää.

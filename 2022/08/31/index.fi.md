@@ -1,0 +1,69 @@
+# Keskiviikko 31.8.2022 (radio)
+
+Mihail Gorbatšov on kuollut. Hallitus keskustelee budjetista. Hoitajien lakko siirtyy. Sää on viileä.
+
+## Mihail Gorbatšov
+
+![Neuvostoliiton johtaja Mihail Gorbatšov hymyilee.](https://img.img-cdn.yle.fi/crop_extract,w_4944,h_2781,x_0,y_600/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88673861a7776d4b17f/1661922789)
+
+Avaa kuvien katselu
+
+Mihail Gorbatšov. Kuva: All Over Press
+
+Neuvostoliiton viimeinen johtaja Mihail Gorbatšov on kuollut. Hän oli 91-vuotias.
+
+Mihail Gorbatshovista tuli Neuvostoliiton johtaja vuonna 1985. Hän uudisti Neuvostoliittoa, joka lopulta hajosi 90-luvun alussa.
+
+Vuonna 1990 Gorbatšov sai Nobelin rauhanpalkinnon. Mihail Gorbatsov sai palkinnon, koska hän vaikutti siihen, että kylmä sota loppui Neuvostoliiton ja USA:n välillä.
+
+## Budjettineuvottelut
+
+![Pääministeri Sanna Marin saapui hallituksen budjettineuvotteluihin Säätytalolle.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1001357630f0af18f9f5/1661930291)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin saapui hallituksen budjettineuvotteluihin Säätytalolle. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Hallitus keskustelee valtion budjetista keskiviikkona ja torstaina. Keskusteluissa sovitaan valtion ensi vuoden tuloista ja menoista.
+
+Pääministeri Sanna Marin sanoo, että hallituksen pitää tukea ihmisten ostovoimaa. Ihmisillä on käytössä vähemmän rahaa kuin aikaisemmin, koska tavaroiden ja palveluiden hinnat ovat nousseet. Pääministeri Marin sanoo, että varsinkin lapsiperheitä pitää tukea.
+
+Hallitus miettii esimerkiksi keinoja, joilla voi laskea sähkön hintaa pienemmäksi kuin nyt. Ihmisillä menee paljon rahaa sähkölaskuun. Myös bensa maksaa paljon.
+
+## Hoitajat
+
+![Tehyn mielenosoittajien käsissä plakaatti, jossa lukee: Onko oikein? Sairaanhoitaja 2 546 €/kk, rakennusinsinööri 3 396 €/kk. Palkkaero 850 €!](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_408/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-93691662470a1a7f591/1648828169)
+
+Avaa kuvien katselu
+
+Tehyn mielenosoitus Turussa huhtikuussa. Kuva: Kimmo Gustafsson / Yle
+
+Viranomainen siirtää 2 viikolla hoitajien lakkoa Turussa ja Helsingissä. Hoitajien piti mennä tiistaina lakkoon Turun tehohoidossa ja Helsingin kaupungin kotihoidossa. Nyt lakko alkaa ehkä 20. syyskuuta.
+
+Hoitajien työriitaa yritetään ratkaista valtakunnansovittelijan johdolla. Hoitajat vaativat lisää palkkaa.
+
+## Asuntolainat
+
+![Sisäkuva Nordean suuresta pankkikonttorista. Keskellä banneri jossa lukee Nordea. Etualalla kasveja, taustalla pronssipatsaita ja pari asiakasta.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_525/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-877703618a8f526d9f3/1636480034)
+
+Avaa kuvien katselu
+
+Sisäkuva Nordean suuresta pankkikonttorista.  Kuva: Petteri Bülow / Yle
+
+Ihmiset lainasivat heinäkuussa pankista vähemmän rahaa asuntoa varten kuin vuotta aikaisemmin. Suomen Pankki kertoo, että uusia asuntolainoja otettiin heinäkuussa 23 prosenttia vähemmän kuin heinäkuussa 2021.
+
+Ihmisen ottivat pankista asuntolainaa 1,4 miljardia euroa.
+
+Asuntolainasta pitää nyt maksaa enemmän korkoa kuin vielä tämän vuoden alussa. Asuntolainan korko on 1 prosenttiyksikön isompi kuin vuoden alussa.
+
+## Sää
+
+![Pilvinen taivas](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10252214)
+
+Avaa kuvien katselu
+
+Pilvinen taivas. Kuva: Seija Paasonen / Yle
+
+Sää on torstaina melko pilvinen. Paikoin sataa vähän vettä, mutta enimmäkseen on poutaa. Monin paikoin tuulee kovaa.
+
+Päivällä lämmintä on 8...15 astetta. Yöllä on paikoin pakkasta Pohjois-Suomessa ja Länsi-Suomessa.

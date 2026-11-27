@@ -1,0 +1,59 @@
+# Tiistai 21.2.2020 (radio)
+
+Käteisellä maksetaan enää vähän. Koronavirus leviää Kiinassa. Poliisille lisää haalarikameroita. Helsinki on Euroopan vilkkain satama.
+
+## Käteismaksut vähenevät
+
+![Kuvassa asiakas maksaa kaupan itsepalvelukassalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10617452)
+
+Avaa kuvien katselu
+
+Suurin osa ihmisistä maksaa kaupassa kortilla. Kuva: Heini Holopainen / Yle
+
+Ihmiset maksavat käteisellä rahalla vähemmän kuin aikaisemmin. Käteisen rahan käyttö on vähentynyt paljon 10 vuodessa.
+
+Käteistä rahaa käyttää nyt noin 10 prosenttia suomalaisista. Vielä 10 vuotta sitten käteistä käytti noin 30 prosenttia suomalaisista.
+
+Nyt maksetaan paljon esimerkiksi pankkikortilla. Asiantuntijat sanovat, että silloin ei aina huomaa rahan kulumista yhtä hyvin, kuin jos maksaa käteisellä.
+
+## Koronavirus leviää Kiinassa
+
+![Kiinan pääkaupungissa Pekingissä turistit vierailevat Taivaallisen rauhan aukiolla tavalliseen tapaan. Mies puki ylleen hengityssuojaimen. Maassa on vahvistettu reilut 200 uutta koronavirustartuntaa, kolme ihmistä on kuollut tautiin.](https://img.img-cdn.yle.fi/crop_extract,w_6319,h_3554,x_0,y_663/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6331765e25d49b7cf51/1579592852)
+
+Avaa kuvien katselu
+
+Mies puki hengityssuojaimen Kiinan pääkaupungissa Pekingissä. Kuva: EPA
+
+Kiinassa on tapahtunut lisää koronavirus-tartuntoja. Uusia tartuntoja on 80. Tautiin, jonka koronavirus aiheuttaa, on sairastunut melkein 300 ihmistä. Tautiin on kuollut jo 6 ihmistä.
+
+Kiinalaiset matkustavat nyt paljon, koska monet menevät sukulaisten luo viettämään kiinalaista uutta vuotta. Kiinassa ja muissa Aasian maissa on aloitettu matkustajien kuumeen mittaus esimerkiksi lentokentillä, rautatieasemilla ja bussiasemilla. Kuumeiset ihmiset voidaan tunnistaa lämpökameroilla.
+
+Maailman terveysjärjestö WHO järjestää keskiviikkona hätäkokouksen koronaviruksen leviämisen takia.
+
+## Poliisille haalarikamerat koko Suomeen
+
+![haalarikamera poliisilla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9580397)
+
+Avaa kuvien katselu
+
+Haalarikamera kuvaa saman, mitä poliisi näkee.  Kuva: Berislav Jurišić / Yle
+
+Poliisi ottaa haalarikamerat käyttöön koko maassa. Poliisin haalariin kiinnitetään pieni kamera, joka kuvaa videolle, mitä poliisin edessä näkyy.
+
+Haalarikamera lisää poliisin turvallisuutta. Moni on rauhallisempi, kun tietää, että poliisin haalarikamera kuvaa. Poliisi voi käyttää videokuvaa todisteena, jos videolle tallentuu esimerkiksi tappelu tai joku hyökkää poliisia kohti.
+
+Haalarikameroita on kokeiltu Helsingin poliisilaitoksella 4 vuotta. Tänä vuonna haalarikamerat hankitaan kaikille Suomen poliisilaitoksille.
+
+## Helsinki on Euroopan vilkkain satama
+
+![Helsingin Eteläsatamssa risteilyaluksia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11069064)
+
+Avaa kuvien katselu
+
+Laivoja Helsingin Etelä-Satamassa. Kuva: Henrietta Hassinen / Yle
+
+Helsingin satama on Euroopan vilkkain matkustajasatama. Sen kautta kulki viime vuonna yli 12 miljoonaa laivamatkustajaa. Se on enemmän kuin muissa Euroopan satamissa. Helsingin satama on ollut Euroopan vilkkain matkustajasatama nyt 3 vuotta.
+
+Suurin osa Helsingin sataman matkustajista menee Tallinnaan tai tulee Tallinnasta. Myös Tukholmaan kulkee paljon matkustajia joka päivä.
+
+Helsingin satamassa kävi viime vuonna myös paljon ulkomaalaisia risteilylaivoja. Niitä kävi yli 300.

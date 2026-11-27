@@ -1,0 +1,31 @@
+# Keskiviikko 9.7.2008 (radio)
+
+Tässä keskiviikon selkouutiset, studiossa on Eliisa Toivola.
+
+* * *
+
+Suomi ja Venäjä eivät ole päässeet sopimukseen puutulleista. Ulkomaankauppa- ja kehitysministeri Paavo Väyrynen keskusteli Venäjän talouskehitysministerin kanssa puutulleista Moskovassa. Ennen keskiviikon tapaamista Väyrynen uskoi, että puutulleista päästään sopuun Euroopan unionin ja Venäjän välillä.
+
+Neuvottelussa ei päästy eteenpäin keskiviikkona. Venäjä ei halua sopia puutulleista erikseen vain Suomen kanssa. Seuraavan kerran asiaa käsitellään vähän yli viikon kuluttua, kun Euroopan unionin ja Venäjän edustajat tapaavat.
+
+Suomen metsäteollisuus maksaa tullia puusta, joka tulee Venäjältä. Venäjä aikoo korottaa tullimaksua vuodenvaihteessa. Suomi pelkää, että teollisuus kärsii paljon, jos tullimaksu nousee. Paavo Väyrysen mielestä Suomen valtio voi maksaa korvauksia metsäteollisuudelle puutulleista.
+
+* * *
+
+Iran on tehnyt ohjuskokeita. Iran käytti esimerkiksi pitkänmatkan ohjuksia. Ohjus on ase, jota voidaan ohjata sen lennon aikana. Iran kertoo, että sen ohjus voi kulkea 2000 kilometriä. Iran halusi kertoa ohjuskokeella, että se on valmis puolustamaan maataan.
+
+Esimerkiksi Yhdysvallat sanoo, että Iranin täytyy lopettaa ohjusten kehittäminen. Monet länsimaat uskovat, että Iran haluaa kehittää ydinaseita.
+
+* * *
+
+Poliisi haluaa suomalaisten sormenjäljet myös poliisin käyttöön. Viranomaiset alkavat kerätä sormenjälkiä viimeistään ensi kesänä. Sormenjälkiä kerätään, kun suomalaiset hankkivat passeja. Uusissa passeissa voi olla mukana tieto passin omistajan sormenjäljistä.
+
+Uusi poliisiylijohtaja Mikko Paatero toivoo, että poliisi voi käyttää tätä sormenjälkirekisteriä. Paateron mielestä sormenjälkirekisteri auttaa monien rikosten selvittämisessä.
+
+Tietosuojavaltuutettu Reijo Aarnio ei halua, että rekisteri perustetaan. Aarnion mielestä rekisteri voi aiheuttaa haittaa suomalaisille.
+
+* * *
+
+Tulevaisuudessa on helpompaa verrata lentojen hintoja. Euroopan parlamentti haluaa, että asiakas saa selville lennon lopullisen hinnan heti. Euroopan komissio löysi viime syksynä internetistä monia sellaisia lentoja, joiden hinnasta puuttui esimerkiksi lentokenttävero.
+
+Uusi asetus tulee voimaan viimeistään ensi vuoden alussa.

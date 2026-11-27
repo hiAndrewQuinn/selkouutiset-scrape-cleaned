@@ -1,0 +1,67 @@
+# Sunnuntai 28.2.2016 (radio)
+
+Syyriassa taas tulitusta. Venäjällä paha onnettomuus kaivoksessa. Tänään vietetään Kalevalan päivää. Euroviisuissa Suomea edustaa Sandhja. Sää on ollut täynnä ennätyksiä.
+
+## Syyriassa taas tulitusta
+
+![Katunäkymä Syyrian Alepposta 26. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8705944)
+
+Avaa kuvien katselu
+
+Syyrian Aleppo perjantai-iltana. Syyrian kapinalliset sanovat, että Venäjä on tehnyt ilmaiskuja alueen länsiosissa sunnuntaina aamulla. Kuva: Karam Al-Masri / AFP
+
+Syyriassa on tehty ilmaiskuja. Kapinalliset kertovat, että venäläiset koneet tulittivat sunnuntai-aamuna useita kaupunkeja Aleppon länsiosassa. Tieto ei ole täysin varma, sillä muut ryhmät eivät kerro asiasta.
+
+Syyriassa alkoi tulitauko lauantaina, ja sen jälkeen iskujen piti loppua. Venäjä ja Yhdysvallat neuvottelivat tulitauon.
+
+## Venäjällä paha onnettomuus kaivoksessa
+
+![Pelastustyöntekijöitä hiilikaivoksella Vorkutassa perjantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8705858)
+
+Avaa kuvien katselu
+
+Kaivosonnettomuuden pelastustyöntekijöitä Luoteis-Venäjällä. 80 ihmistä pelastui ja yli 30 kuoli. Kuva: Vorkutaugol Press Service / EPA
+
+Venäjällä on ollut jälleen paha kaivosonnettomuus. Räjähdykset hiilikaivoksessa Luoteis-Venäjällä tappoivat yli 30 ihmistä.
+
+Ensimmäinen räjähdys kaivoksessa oli torstaina. Siinä kuoli 4 ihmistä, ja 26 jäi loukkuun maan alle.
+
+Tänään sunnuntaina kaivoksessa räjähti uudelleen, ja 5 pelastustyöntekijää kuoli. Venäjän viranomaiset kertovat, että myös kaikki loukkuun jääneet ovat kuolleet.
+
+## Tänään vietetään Kalevalan päivää
+
+![Ensimmäinen runo ja Kalevala kirjoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8700104)
+
+Avaa kuvien katselu
+
+Kalevala on Suomen kansalliseepos. Kalevalan päivää vietetään 28. helmikuuta. Kuva: Kalevi Rytkölä / Yle
+
+Tänään sunnuntaina on juhlittu Kalevalaa eli Suomen kansalliseeposta. Päivä on myös kalenterissa Kalevalan päivä.
+
+Kalevalassa on kertomuksia muinaisten suomalaisten elämästä. Lähes 200 vuotta vanha Kalevala on vaikuttanut paljon Suomen kulttuuriin ja taiteeseen.
+
+## Euroviisuissa Suomea edustaa Sandhja
+
+![Sandhja juhlii Uuden Musiikin Kilpailun (UMK) finaalin voittoa Helsingissä 27. helmikuuta 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8705811)
+
+Avaa kuvien katselu
+
+Espoolainen laulaja Sandhja edustaa Suomea Euroviisuissa Tukholmassa kappaleella Sing it away. Kuva: Martti Kainulainen / Lehtikuva
+
+Suomen edustaja Euroviisuihin on valittu. Suomen karsinnan voitti lauantai-iltana Sandhja kappaleella Sing it away.
+
+Euroviisut järjestetään Tukholmassa toukokuun puolivälissä.
+
+## Sää on ollut täynnä ennätyksiä
+
+![Vantaanjoki tulvii pyörätielle Viikissä Vanhankaupungin kohdalla Helsingissä perjantaina aamulla 12. helmikuuta 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8705900)
+
+Avaa kuvien katselu
+
+Helmikuussa on satanut paljon vettä. Sää oli poikkeuksellinen myös esimerkiksi tammikuussa. Silloin satoi paljon lunta. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomen sää on ollut poikkeuksellinen viime aikoina.
+
+Tänään sunnuntaina helmikuun sade-ennätys meni rikki Kymenlaaksossa Kouvolassa. Siellä satoi 132 millimetriä kuukaudessa. Se on melkein 100 millimetriä enemmän kuin normaalisti.
+
+Tammikuussa Satakunnassa Merikarvialla oli lumiennätys. Siellä satoi yhden päivän aikana lunta 73 senttimetriä.

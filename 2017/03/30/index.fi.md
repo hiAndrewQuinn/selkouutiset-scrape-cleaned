@@ -1,0 +1,63 @@
+# Torstai 30.3.2017 (radio)
+
+Venäjän ja Suomen presidentit tapasivat Venäjällä. Valelääkäri Esa Laiho joutuu vankilaan 5 vuodeksi. Uusissa rakennuksissa on usein kosteusongelmia. Leipäjonoissa käy enemmän ihmisiä kuin ennen.
+
+## Presidentit
+
+![Sauli Niinistö ja Vladimir Putin Arctic forumissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9539546)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö ja presidentti Vladimir Putin Arkangelissa. Kuva: Sergei Karpuchin / EPA
+
+Suomen ja Venäjän presidentit ovat tavanneet Venäjällä. Presidentit tapasivat Arkangelin kansainvälisessä kokouksessa.
+
+Presidentti Vladimir Putin sanoi kokouksessa, että hän on valmis tapaamaan USA:n presidentin Donald Trumpin Helsingissä. Putin sanoi, että Suomi osaa järjestää tärkeitä tapahtumia.
+
+Presidentti Sauli Niinistö sanoi, että Suomi on valmis järjestämään Venäjän ja USA:n presidenttien tapaamisen. Asia ei ole kuitenkaan vielä ajankohtainen, Niinistö sanoi.
+
+## Valelääkäri
+
+![Lääkärinä esiintyneen Esa Laihon henkirikossyytteitä alettiin käsitellä Helsingin käräjäoikeudessa helmikuussa 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8977409)
+
+Avaa kuvien katselu
+
+Esa Laiho. Kuva: Timo Korhonen / AOP
+
+Hovioikeus on antanut tuomion valelääkäri Esa Laiholle. Laiho joutuu vankilaan 5 vuodeksi.
+
+Hovioikeus antoi Laiholle kovemman rangaistuksen kuin käräjäoikeus. Käräjäoikeus antoi viime kesänä Laiholle tuomion, joka oli 6 kuukautta lyhyempi. Hovioikeus on käräjäoikeuden yläpuolella. Siksi se voi muuttaa käräjäoikeuden päätöksiä.
+
+Laiho sai tuomion pahoinpitelystä ja petoksista, koska hän teki hoitovirheitä ja käytti tutkintotodistusta, joka ei ollut oikea.
+
+Laihon pitää myös maksaa noin miljoonan euron palkat takaisin.
+
+Esa Laihon oikeusjutusta on puhuttu Suomessa paljon. Valelääkäri Laiho ei ole oikea lääkäri. Hän teki lääkärin työtä ilman lääkärin koulutusta. Hän osti väärät lääkärin paperit ulkomailta. Monet potilaat kärsivät, koska Laiho ei osannut hoitaa heitä oikein.
+
+## Kosteusongelmat
+
+![Jätkäsaaressa sijaitsee Hekan omistama pitsitalo, jonka yläkerrosten asunnoissa on havaittu kosteusongelmia. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9530944)
+
+Avaa kuvien katselu
+
+Kosteus on pilannut uuden rakennuksen seiniä ja kattoa. Kuva: Jouni Immonen / Yle
+
+Uusissa rakennuksissa on usein kosteusongelmia.
+
+Kiire ja virheet rakennustyömaalla ovat syitä siihen, että rakennukseen pääsee kosteutta. Rakennus voidaan myös suunnitella huonosti.
+
+Viranomaiset ja rakennusala ovat yhdessä antaneet uusia ohjeita siitä, miten kosteusongelmia vähennetään. Kaupungit aikovat ottaa ohjeet käyttöön.
+
+## Leipäjonot
+
+![Ihmiset jonottivat elintarvikkeita jäisellä tiellä Helsingin Myllypurossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9491514)
+
+Avaa kuvien katselu
+
+Ihmiset jonottavat ilmaista ruokaa leipäjonossa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Leipäjonoissa käy enemmän ihmisiä kuin ennen. Leipäjonoissa jaetaan ilmaista leipää ja muuta ruokaa ihmisille, joilla ei ole rahaa ostaa ruokaa.
+
+Nykyään leipäjonoissa käy myös ihmisiä, joilla on työpaikka, mutta palkka ei riitä ruokaan. Leipäjonojen järjestäjät kertovat, että ihmiset eivät häpeä leipäjonossa yhtä paljon kuin ennen. Jonoissa on monenlaisia ihmisiä: tavallisia lapsiperheitä, nuoria ja opiskelijoita.
+
+Leipäjonojen järjestäjät saavat ruuan kaupoilta, jotka antavat pois ylimääräisen ruuan, ennen kuin se menee vanhaksi.

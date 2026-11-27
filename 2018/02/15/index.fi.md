@@ -1,0 +1,73 @@
+# Torstai 15.2.2018 (radio)
+
+Suomi on saanut kolmannen olympiamitalin Etelä-Korean talvikisoissa. Nokia aloittaa jälleen yt-neuvottelut. Asenteet työttömyyttä kohtaan kovenevat. Kullan etsiminen Suomesta kiihtyy. Abiturientit ovat viettäneet penkinpainajaisia.
+
+## Suomi sai kolmannen olympiakullan
+
+![Marit Björgen (vas.) ja Krista Pärmäkoski](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10076544)
+
+Avaa kuvien katselu
+
+Marit Björgen ja Krista Pärmäkoski. Kuva: Lehtikuva / AFP
+
+Suomi on saanut kolmannen olympiamitalin Etelä-Korean talvikisoissa. 
+
+Krista Pärmäkoski sai pronssia naisten 10 kilometrin hiihdossa. Pronssia sai myös Norjan Marit Björgen, koska he hiihtivät täysin saman ajan. Kultaa sai Norja ja hopeaa Ruotsi. 
+
+Mitali on Pärmäkosken toinen pronssi. Hän hiihti lauantaina pronssille yhdistelmämatkalla. Enni Rukajärvi sai maanantaina pronssia naisten lumilautailun slopestylessa. 
+
+## Nokia on aloittanut yt-neuvottelut
+
+![Nokian pääkonttori Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10076558)
+
+Avaa kuvien katselu
+
+Nokian pääkonttori Espoossa. Kuva: Jussi Nukari / Lehtikuva
+
+Teknologiayhtiö Nokia aloittaa jälleen yt-neuvottelut eli yhteistoimintaneuvottelut. Nokia vähentää Suomessa verkkoliiketoiminnasta noin 350 työpaikkaa.
+
+Vähennystarve koskee ehkä Nokian kaikkia toimipaikkoja Oulua lukuun ottamatta. Lisäksi Nokia Technologies aloittaa yt-neuvottelut, jotka johtavat noin 75 työpaikan vähenemiseen. 
+
+Nokialla on Suomessa tällä hetkellä noin 6 300 työntekijää. 
+
+## Asenteet työttömyyttä kohtaan kovenevat
+
+![Susanne Ådahl](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10074200)
+
+Avaa kuvien katselu
+
+Susanne Ådahl kirjoittaa vielä yhtä rahoitushakemusta tutkimusta varten, vaikka hän on päättänyt vaihtaa alaa. Kuva: Markku Pitkänen / Yle
+
+Suomessa asenteet työttömyyttä kohtaan kovenevat, kertoo Yle Uutisten kysely. 
+
+Enemmistö vastaajista sanoo, että työttömyyden syy on yhteiskunnassa. Kuitenkin yli puolet nuorista uskoo, että työttömyys on yksilön, ei yhteiskunnan syy.
+
+Myös vanhemmat ikäluokat ajattelevat, että asenne ja työmoraali ratkaisevat työn saamisen. 
+
+## Kittilän kultakaivos laajenee
+
+![Kultaharkko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10076542)
+
+Avaa kuvien katselu
+
+Kultaharkko Kittilän kultakaivoksella. Kuva: Agnico Eagle Finland Oy
+
+Kullan etsiminen Suomesta kiihtyy. 
+
+Kymmenet ulkomaiset yhtiöt etsivät kultaa, koska kullan kysyntä ja hinta maailmalla ovat nousussa. Euroopan suurin kultakaivos Kittilässä, Lapissa, laajenee. Kaivosyhtiö on julkistanut 160 miljoonan euron lisäinvestoinnit. Kaivokseen rakennetaan yli kilometrin syvyyteen yltävä kaivoskuilu. Yhtiö arvioi, että kaivos voi toimia vuoteen 2034 saakka.
+
+Suomessa toimii nyt 6 kaivosta. Mahdollisia kaivoksia on 15, ja malminetsintä on hyvin aktiivista. Suomi on EU-maiden suurin kullantuottaja. Lisäksi perinteet ovat pitkät, sillä Lapin kullankaivu täyttää tänä vuonna 150 vuotta. 
+
+## Abiturientit juhlivat lukion päättymistä
+
+![Penkkarit Lappeenrannassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10077227)
+
+Avaa kuvien katselu
+
+Tässä penkkaririemua Lappeenrannasta. Kuva: Tommi Parkkinen / Yle
+
+Abiturientit ovat juhlineet lukion päättymistä penkinpainajaisissa. 
+
+Suuressa osassa maata saatiin ajella kaduilla pikkupakkasessa. Kuorma-autojen kyljissä oli julisteita, joissa kommentoitiin ajankohtaisia asioita, esimerkiksi presidentinvaaleja.
+
+Penkinpainajaisista alkaa kuukauden lukuloma. Ylioppilaskirjoitusten kirjalliset kokeet jatkuvat maaliskuun puolivälissä.

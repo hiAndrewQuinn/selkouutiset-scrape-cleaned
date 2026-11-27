@@ -1,0 +1,52 @@
+# TV \| Selkouutiset \| torstai 6.3.2025
+
+Puolueiden kannatus. Viljat. Hiihdon MM-kisat. Sää.
+
+## Puolueiden kannatus
+
+Ensin politiikkaa.
+
+Yle on julkaissut uuden puolueiden kannatuskyselyn. Kysely kertoo, miten ihmiset aikovat äänestää huhtikuun aluevaaleissa ja kuntavaaleissa.
+
+Suosituin puolue on yhä SDP. Oppositiopuolue SDP:n kannatus on vähän laskenut.
+
+Sijalla 2 kyselyssä on kokoomus. Myös hallituspuolue kokoomuksen kannatus on vähän laskenut.
+
+Sijalla 3 kyselyssä on keskusta. Keskusta on oppositiopuolue. Keskustan kannatus on noussut.
+
+Yle on julkaissut uuden puolueiden kannatuskyselyn. Kyselyn kärkisijoilla ovat SDP, kokoomus ja keskusta.
+
+## Viljat
+
+Seuraavan uutisen aiheena ovat viljat.
+
+Ilmastonmuutos muuttaa maanviljelyä.
+
+Suomalainen tutkimus kertoo, että Suomessa nykyiset viljat ehkä kasvavat tulevaisuudessa paremmin kuin nyt. Jatkossa myös esimerkiksi maissia ja härkäpapua kannattaa ehkä viljellä Suomessa.
+
+Ilmastonmuutos muuttaa maanviljelyä.
+
+Esimerkiksi Intiassa ja Afrikassa ilmastonmuutos aiheuttaa huonoja muutoksia.
+
+Kun ilmasto muuttuu, riisi, durra ja hirssi kasvavat huonommin kuin nyt. Lähes 50 prosenttia maailman ihmisistä syö paljon riisiä. Siksi ilmastonmuutos on suuri uhka maailman ihmisille.
+
+Ilmastonmuutoksella on myös paljon muita huonoja vaikutuksia.
+
+## Hiihdon MM-kisat
+
+Nyt urheilua.
+
+Suomi on saanut hopeamitalin hiihdon MM-kisoissa.
+
+Suomen joukkue hiihti sijalle 2 miesten parisprintissä keskiviikkona. Joukkueessa hiihtivät Risto-Matti Hakola ja Lauri Vuorinen. Kilpailun voitti Norja ja sijalla 3 oli Ruotsi.
+
+Suomi on saanut hiihdon MM-kisoissa nyt 2 mitalia. Lauri Vuorinen oli aikaisemmin 3. sprintissä.
+
+Hiihdon MM-kisat ovat Norjan Trondheimissa. Kilpailut jatkuvat sunnuntaihin saakka.
+
+## Sää
+
+Vielä sääennuste.
+
+Aurinko paistaa isossa osassa Suomea. Välillä taivaalla on pilviä. Etelässä on yli 5 astetta lämmintä. Lapissa lämpötila on noin 0 astetta. Lämpötila nousee, koska kevätaurinko lämmittää.
+

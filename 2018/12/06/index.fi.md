@@ -1,0 +1,55 @@
+# Torstai 6.12.2018 (radio)
+
+Torstaina on vietetty Suomen itsenäisyyspäivää. Linnan juhlien kunniavieraita ovat sotaveteraanit ja lotat. Suomen historia on pitkä.
+
+## Itsenäisyyspäivä
+
+![Entinen puolustusvoimain komentaja, kenraali Jaakko Valtanen ensimmäisenä vieraana kättelemässä Tasavallan presidentti Sauli Niinistöä ja rouva Jenni Haukiota.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10542672)
+
+Avaa kuvien katselu
+
+Presidenttipari otti vieraat vastaan Presidentinlinnassa. Kuva: Jussi Nukari / Lehtikuva
+
+Tänään torstaina on vietetty Suomen itsenäisyyspäivää. Itsenäinen Suomi täyttää tänä vuonna 101 vuotta.
+
+Itsenäisyyspäivän suurin juhla on Presidentinlinnassa. Presidentti Sauli Niinistö ja rouva Jenni Haukio ovat kutsuneet Presidentinlinnaan noin 1700 vierasta.
+
+Linnan juhlien teema on tänä vuonna ympäristö. Teema näkyy myös juhlien ruokatarjoilussa. Vieraille tarjotaan esimerkiksi kasviksia ja suomalaista kalaa.
+
+Iso osa suomalaisista seuraa Linnan juhlia televisiosta. Katsojia kiinnostavat erityisesti juhlapuvut.
+
+Rouva Haukiolla on tänä vuonna puku, jonka kangas on tehty koivusta eli puusta. Puvun suunnittelijat ovat Aalto-yliopiston opiskelijoita.
+
+## Sotaveteraanit ja lotat
+
+![98-vuotias Aune-Leea Huotari ja valokuva hänestä itsestään sodan aikana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10540039)
+
+Avaa kuvien katselu
+
+Vuoden Lotta Aune-Leea Huotari. Huotarin kädessä on valokuva, jossa hän on sodan aikana. Kuva: Jarmo Nuotio / Yle
+
+Linnan juhlien kunniavieraita ovat sotaveteraanit ja lotat.
+
+Sotaveteraanit ovat miehiä, jotka taistelivat Suomen armeijassa toisen maailmansodan aikana. Lotat ovat naisia, jotka sodan aikana auttoivat armeijaa esimerkiksi hoitajan tai keittäjän tehtävissä. Sotaveteraaneja ja lottia ei ole enää paljon, koska sodasta on jo yli 70 vuotta.
+
+Uutiset ovat kertoneet itsenäisyyspäivänä 98-vuotiaasta Aune-Leea Huotarista. Hän on saanut kunniamaininnan Vuoden Lotta.
+
+Sodan aikana Huotari kuljetti verta paikkoihin, joissa hoidettiin sotilaita. Jos veri loppui, Huotari antoi potilaille omaa vertaan.
+
+## Itsenäinen Suomi
+
+![Presidentinlinna ja Tuomiokirkko.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9641821)
+
+Avaa kuvien katselu
+
+Presidentinlinnassa juhlitaan itsenäistä Suomea. Kuva: Henrietta Hassinen / Yle
+
+Suomi on ollut itsenäinen 101 vuotta, mutta Suomen historia on paljon pitempi.
+
+Suomi oli osa Ruotsia yli 600 vuotta. Siksi Suomi on hyvin samanlainen maa kuin Ruotsi.
+
+Vuonna 1809 Suomesta tuli osa Venäjää. Venäjän aika jatkui noin 100 vuotta.
+
+Joulukuun 6. päivä vuonna 1917 eduskunta eli Suomen parlamentti päätti, että Suomi on itsenäinen. Se tarkoittaa, että suomalaiset päättävät itse omista asioista.
+
+Siksi joulukuun 6. päivä on suomalaisille juhlapäivä.

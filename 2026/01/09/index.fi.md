@@ -1,0 +1,61 @@
+# TV | Selkouutiset | perjantai 9.1.2026
+
+Työttömyys. Sudet. Pakkanen. Sää.
+
+## Suomen työttömyys on pahentunut
+
+Aluksi työttömyydestä.
+
+Suomen työttömyysaste on nyt koko Euroopan korkein. Työttömyysaste on jo 10,6 prosenttia.
+
+Se on nyt jopa korkeampi kuin Espanjassa. Samaan aikaan työttömyys on yleisesti vähentynyt muissa EU-maissa.
+
+Tutkija sanoo, että Suomen talous ei ole vielä parantunut koronaepidemian jälkeen.
+
+Suomen työttömyys on EU-maiden korkein, mutta työssä olevien määrä kasvoi viime vuonna noin 25 000:lla.
+
+Työministeriö ennustaa, että työttömyys alkaa laskea tänä vuonna.
+
+## Susien metsästys ja tutkimus
+
+Sitten uutinen susista.
+
+Tänä vuonna saa kaataa 100 sutta. Uusi metsästyslaki sanoo, että susi ei enää ole rauhoitettu ympäri vuoden.
+
+Niitä on jo luovutettu Luonnonvarakeskukseen tutkimusta varten.
+
+DNA-näyte määrittää, onko kyseessä susi vai koirasusi. Koirasusi on suden ja koiran risteymä.
+
+Tänä vuonna saa kaataa 100 sutta.
+
+DNA kertoo, mihin laumaan eläin on kuulunut. Näin saadaan selville, onko metsästys vähentänyt koirasusia ja miten metsästys vaikuttaa susien määrään.
+
+## Pakkanen on kireää
+
+Lopuksi pakkasesta.
+
+Pakkasennätys on taas ylittynyt.
+
+Kuluvan talven alin lämpötila mitattiin aamulla Lapin itäosassa Savukosken Tulppiossa. Lämpötila oli -42,8 astetta.
+
+Kaikkia pakkanen ei haittaa. Näin sanoo Lapissa Rovaniemellä **Ronja Berlin**.
+
+\- Mä tykkään ihan hirveästi. Mä olen ensimmäistä kautta nyt Lapissa, niin mä otan kyllä kaiken ilon irti tästä pakkasesta, mitä on ollut. Että vaatteita vaan päälle, ja ei kun ulos.
+
+Kantaverkkoyhtiö Fingrid kertoo, että sähkönkulutuksessa Suomessa on tehty kaikkien aikojen ennätys.
+
+Sähkön hinta on pysynyt kohtuullisena, koska tuulivoimaa on ollut paljon tarjolla.
+
+Rovaniemeläisen **Mirjami Kaakisen** hiehoja kireä pakkanen ei haittaa. Ne kulkevat pitkin omia polkuja metsäaitauksessa.
+
+## Sää
+
+Vielä sääennuste.
+
+Myös huomenna koko maassa on kylmä.
+
+Lännessä ja pohjoisessa paistaa aurinko.
+
+Idässä on pilvistä ja paikoin voi sataa vähän lunta.
+
+Etelässä sää tuntuu kylmältä tuulen takia.

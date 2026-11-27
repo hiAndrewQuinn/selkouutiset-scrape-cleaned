@@ -1,0 +1,67 @@
+# Keskiviikko 8.8.2018 (radio)
+
+Ehdotus valtion budjetista on valmis. Indonesian maanjäristyksen uhrimäärä on kasvanut. Suomessa tarvitaan lisää hoitopaikkoja turvapaikanhakijoille, joilla on mielenterveysongelmia. Finnish Nightmares -sarjakuva kiinnostaa kiinalaisia.
+
+## Valtion budjettia suunnitellaan
+
+![Valtiovarainministeri Petteri Orpo esittelee vuoden 2019 budjettiehdotuksensa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10343471)
+
+Avaa kuvien katselu
+
+Valtiovarainministeri Petteri Orpo kertoi budjettiehdotuksesta keskivikkona. Kuva: Jarno Kuusinen / AOP
+
+Valtiovarainministeriö on tehnyt ehdotuksen valtion budjetista. Budjetti kertoo, mihin Suomi käyttää rahaa ensi vuonna.
+
+Valtiovarainministeriö ehdottaa esimerkiksi, että TE-toimistot saavat ensi vuonna lisää rahaa. Niin TE-toimistot voivat paremmin auttaa työttömiä.
+
+Valtiovarainministeriö haluaa käyttää rahaa myös esimerkiksi junaradan korjaamiseen Helsingin ja Tampereen välillä. Tavoite on, että Helsingin ja Tampereen välinen matka kestää alle tunnin. Silloin monen työmatkasta tulee nopeampi.
+
+Hallitus käsittelee budjettiehdotuksen elokuun lopussa.
+
+## Indonesian uhrimäärää kasvaa
+
+![Paikalliset asukkaat etsivät eloonjääneitä romahtaneen rakennuksne raunioista Lombokin pohjoisosassa, Indonesiassa 6.8. 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10340448)
+
+Avaa kuvien katselu
+
+Pelastajat etsivät ihmisiä talojen raunioista Lombokin saarella. Kuva: EPA-EFE/ADI WEDA
+
+Indonesian viranomaiset ovat kertoneet uusia lukuja Lombokin saaren maanjäristyksestä. Maanjäristys tapahtui sunnuntaina.
+
+Viranomaiset kertoivat keskiviikkona, että maanjäristyksessä kuoli yli 130 ihmistä. Määrä voi jopa kasvaa. Pelastajat etsivät vielä ihmisiä kotien, koulujen ja moskeijoiden raunioista.
+
+Yli 150 000 ihmistä on joutunut lähtemään kodista maanjäristyksen takia.
+
+## Masennus uhkaa turvapaikanhakijoita
+
+![Mies katsoo ikkunasta ulos.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9892404)
+
+Avaa kuvien katselu
+
+Kuva: Seppo Sarkkinen / Yle
+
+Suomessa tarvitaan lisää hoitopaikkoja turvapaikanhakijoille, joilla on ongelmia mielenterveyden kanssa.
+
+Suomessa on nyt vain yksi osasto, jossa hoidetaan turvapaikanhakijoiden mielenterveysongelmia. Osastossa on 20 paikkaa, ja se on täynnä.
+
+Maahanmuuttovirasto toivoo lisää rahaa, että se voi avata myös toisen osaston.
+
+Turvapaikanhakijoiden tavallisin mielenterveysongelma on masennus.
+
+## Matti valloittaa Kiinaa
+
+![sarjakuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10339733)
+
+Avaa kuvien katselu
+
+Kuva: Karoliina Korhonen
+
+Suomalainen sarjakuva Finnish Nightmares menestyy maailmalla. Sarjakuva kertoo suomalaisesta Matista.
+
+Matti on ujo, ja sosiaaliset tilanteet ovat hänelle vaikeita. Matti ei halua olla toisten ihmisten lähellä.
+
+Nyt myös kiinalaiset ovat kiinnostuneet Matista. Se on yllättävää, koska Kiinassa on paljon ihmisiä joka paikassa.
+
+Ehkä Matti näyttää kiinalaisille, että on ihan ok haluta rauhaa ja omaa tilaa. Näin sanoo Karoliina Korhonen. Hän on Finnish Nightmares -sarjakuvan tekijä.
+
+Matin takia kiinan kieleen on tullut jopa uusi sana. Se on jingfen. Se tarkoittaa henkistä suomalaista eli ihmistä, joka toivoo, että toiset ihmiset pysyvät tarpeeksi kaukana.

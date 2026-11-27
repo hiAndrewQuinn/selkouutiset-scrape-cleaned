@@ -1,0 +1,73 @@
+# Keskiviikko 27.6.2018 (radio)
+
+Pääministeri Juha Sipilä on antanut eduskunnalle pääministerin ilmoituksen soten siirtymisestä. Suomen terveydenhuolto on maailman parasta. Uusi valtakunnansovittelija on Vuokko Piekkala. Sanoma ostaa enemmistön Suomen Tietotoimistosta. Nyt on mansikoiden itsepoiminnan aika.
+
+## Sipilä antoi pääministerin ilmoituksen sotesta
+
+![Pääministeri Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10276574)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä. Kuva: Vesa Moilanen / Lehtikuva
+
+Pääministeri Juha Sipilä on antanut eduskunnalle pääministerin ilmoituksen. Ilmoitus koski sitä, että sosiaali- ja terveysuudistus eli sote siirtyy vuoden 2021 alkuun. Se on vuotta myöhemmin kuin suunniteltiin.
+
+Pääministerin ilmoituksella tuodaan ajankohtaisia aiheita eduskunnan eli parlamentin keskusteluun. Keskustelu oli vilkasta, ja oppositio kritisoi paljon hallitusta.
+
+Hallituksen luottamuksesta ei äänestetty.
+
+## Suomen terveydenhuolto on maailman parasta
+
+![Tyhjä vuodeosasto Pohjois-Kymen sairaalassa Kouvolassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10250735)
+
+Avaa kuvien katselu
+
+Kuva: Yle / Kari Kosonen
+
+Laaja kansainvälinen tutkimus kertoo, että Suomen terveydenhuolto on maailman parasta. Terveydenhuolto on laadukkaampaa ja oikeudenmukaisempaa Suomessa, Sveitsissä ja Islannissa kuin muissa maissa.
+
+Hoito on kalleinta USA:ssa, mutta se jää sijalle 29. Suomessa terveydenhuolto maksaa yhteisistä varoista 10 prosenttia vähemmän kuin Islannissa ja 40 prosenttia vähemmän kuin Sveitsissä.
+
+Tulokset julkaisi tiedelehti Lancet.
+
+## Vuokko Piekkala nimitettiin valtakunnansovittelijaksi
+
+![Vuokko Piekkala](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10276292)
+
+Avaa kuvien katselu
+
+Uusi valtakunnansovittelija Vuokko Piekkala. Kuva: Aarne Ormio / Kirkon kuvapankki
+
+Uusi valtakunnansovittelija on Vuokko Piekkala. Valtioneuvosto nimitti Piekkalan tehtävään keskiviikkona.
+
+Kirkon työmarkkinalaitoksen työmarkkinajohtaja Piekkala on ollut aiemmin Suomen kuntaliiton lakimies ja neuvottelupäällikkö. Aiempi sovittelija Minna Helle siirtyi kesken kauden työmarkkinajohtajaksi Teknologiateollisuuteen.
+
+4 henkilöä haki valtakunnansovittelijan virkaa.
+
+## Sanoma osti enemmistön STT:stä
+
+![Stt logo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10276387)
+
+Avaa kuvien katselu
+
+Sanoma ostaa enemmistön STT:stä eli Suomen Tietotoimistosta Kuva: Jaani Lampinen / Yle
+
+Sanoma Media Finland ostaa enemmistön Suomen Tietotoimistosta. Sanoma kustantaa esimerkiksi Helsingin Sanomia. Useimmat sanomalehdet ja paikallisradiot sekä Yleisradio käyttävät STT:n aineistoa. Myös Helsingin Sanomat palaa STT:n asiakkaaksi.
+
+Sanoma on ollut jo nyt STT:n suurin omistaja. Se on omistanut STT:stä 33 prosenttia. Kaupan jälkeen omistus on 75,4 prosenttia.
+
+Suomen Tietotoimistolla on ollut paljon talousvaikeuksia.
+
+## Mansikat saa halvimmalla poimimalla ne itse
+
+![Mansikanpoimija](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10275082)
+
+Avaa kuvien katselu
+
+Kuva: Riina Kasurinen/Yle
+
+Mansikan poimimisesta itse on tullut maaseuturetkeilyä. Itsepoimijat myös säästävät rahaa. Mansikan kilohinta on noin euron tai 2 halvempi, kuin jos marjat ostaa.
+
+Itsepoiminta alkoi 1990-luvulla. Viljelijät eivät saaneet pelloille tarpeeksi työvoimaa, ja mansikat piti saada kaupaksi. Lama-aikana itsepoimijat halusivat säästää rahaa.
+
+Nyt monet tekevät mansikanpoiminnasta kesäretken. Viljelijät kertovat, että pelloilla käy paljon esimerkiksi isovanhempia lastenlasten kanssa.

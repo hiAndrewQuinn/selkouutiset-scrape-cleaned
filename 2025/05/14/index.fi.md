@@ -1,0 +1,69 @@
+# TV | Selkouutiset | keskiviikko 14.5.2025
+
+Lasten hyvinvointi. Maahanmuutto. Ylioppilaskone. KAJ euroviisufinaaliin. Sää.
+
+## Suomi putosi Unicefin vertailussa
+
+Aluksi lapsista Suomessa.
+
+Lapset ja nuoret voivat huonommin kuin ennen.
+
+Suomen sijoitus romahti vertailussa, joka koski rikkaiden maiden lasten hyvinvointia.
+
+Unicefin vertailussa vuonna 2020 Suomi oli 5:s - nyt 17:s. Unicef on Yhdistyneiden kansakuntien eli YK:n lastenrahasto.
+
+Tulosta huononsivat varsinkin nuorten itsemurhat. Ongelmia ovat myös lasten ylipaino ja oppimistulokset.
+
+Parhaita maita lasten hyvinvoinnissa ovat Alankomaat, Tanska ja Ranska. Suomi laski vertailussa sijalle 17.
+
+Huonoimpia ovat Turkki ja Chile.
+
+## Maahanmuuttopolitiikka on kiristynyt
+
+Sitten maahanmuutosta.
+
+Suomen hallitus on 2 vuoden aikana kiristänyt politiikkaa maahanmuutosta. Muutokset ovat poikkeuksellisen suuria.
+
+Esimerkiksi turvapaikkoja myönnetään vähemmän ja perheiden yhdistäminen on vaikeampaa. Suomesta käännytetään takaisin nopeammin kuin ennen.
+
+Vastaanottorahat pienenevät, ja kotihoidontukeen tulee maahanmuuttajille rajoituksia.
+
+Hallitus on kiristänyt politiikkaa maahanmuutosta.
+
+Vielä ei tiedetä, kuinka se vaikuttaa maahanmuuttoon. Esimerkiksi työn takia Suomeen tullaan vähemmän, koska taloustilanne on huono.
+
+Myös turvapaikkahakemuksia tulee vähemmän.
+
+## Ylioppilaskone on taas käytössä
+
+Nyt opiskelusta.
+
+Kevään ylioppilaiden nimet on julkaistu.
+
+Ne ovat ylioppilaskoneessa osoitteessa yle.fi.
+
+Magdaléna Felcmanová opiskeli lukiossa Lapissa. Hän valmistui Rovaniemen Lyseonpuiston lukion kansainväliseltä linjalta.
+
+Felcmanová muutti Tšekistä Rovaniemelle jääkiekon ja opintojen takia. Nyt hän on Rovaniemen Kiekon profiilipelaaja.
+
+Felcmanová on voittanut 2 kultaa nuorten maailmanmestaruuskisoissa Tšekin joukkueessa.
+
+Ylioppilaskone on siis osoitteessa yle.fi. Myöhemmin julkaistaan ammattiin valmistuneiden kone.
+
+## KAJ eteni euroviisujen finaaliin
+
+Nyt euroviisuista.
+
+Suomalaisyhtye KAJ on päässyt Euroviisujen loppukilpailuun kappaleella Bara bada bastu.
+
+KAJ edustaa lauantain finaalissa Ruotsia.
+
+Suomen edustaja Erika Vikman kisaa huomisen semifinaalissa.
+
+## Sää
+
+Huomenna lännessä ja pohjoisessa paistaa aurinko.
+
+Muualla on pilvistä, ja idässä voi myös sataa vähän vettä.
+
+Ylin lämpötila voi olla 15 astetta.

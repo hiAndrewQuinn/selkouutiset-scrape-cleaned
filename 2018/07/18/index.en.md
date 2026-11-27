@@ -1,0 +1,69 @@
+# Wednesday 18.7.2018 (radio)
+
+Journalists were able to meet the boys who were rescued from the cave in Thailand. Finnair is, according to passengers, the best airline in Northern Europe. Bathing water is at record warm temperatures.
+
+## The boys' press conference in Thailand
+
+![Boys from the Thai football team at a press conference in Chiang Rai.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10311352)
+
+Open image viewer
+
+The boys came to the press conference happy. Photo: Lillian Suwanrumpha / AFP
+
+A happy press conference has been held in Thailand. Journalists were able to meet the boys who were rescued from the cave a little over a week ago. The boys were allowed out of hospital on Wednesday.
+
+The boys looked healthy and happy when they told about their experiences in the cave.
+
+The boys were in the cave for more than 2 weeks. They could not get out of the cave, because rainwater quickly filled part of it.
+
+Now the boys can finally go home. The press conference was arranged so that the boys could then carry on with normal life, without journalists disturbing them.
+
+## Finnair did well in a survey
+
+![Finnair passenger aircraft at Helsinki-Vantaa airport on 16 July 2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10308347)
+
+Open image viewer
+
+Photo: Martti Kainulainen / Lehtikuva
+
+According to passengers, Finnair, a Finnish airline, is the best airline in Northern Europe. International passengers chose Finnair as the best in Northern Europe for the 9th time.
+
+Over 20 million passengers evaluated more than 300 airlines. Passengers rated airlines' customer service during the flight and at airports.
+
+According to passengers, the world's 3 best airlines are Singapore Airlines, Qatar Airways and the Japanese All Nippon Airways.
+
+## Warm air and water
+
+![Sun shines in Vaasa on a record heat day](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10310737)
+
+Open image viewer
+
+This summer's heat record is now 33.7 degrees. Photo: Tuomo Rintamaa / Yle
+
+Finland's summer is now record warm. New heat records have been measured in different parts of Finland.
+
+A new record for Lapland was measured in Utsjoki. There it was 33.4 degrees on Wednesday.
+
+In Western Finland, a new city record of 33.7 degrees was measured in Vaasa. It is also the whole of Finland's heat record this summer.
+
+Bathing water is warm too. In the lakes the water is now up to 6 degrees warmer than usual.
+
+The water temperature is over 25 degrees, for example in Näsijärvi lake in the Tampere area.
+
+## Children's swimming must be supervised
+
+![Sunbathers at Hietaniemi beach in Helsinki on 12 July](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10305694)
+
+Open image viewer
+
+It is safe for children to swim together with others. Photo: Roni Rekomaa / Lehtikuva
+
+Warm waters attract people to swim.
+
+However, many parents wonder when they can let a child go swimming without the parents.
+
+Swimming teachers say that a child should have at least friends with them. It is not good for a child to go swimming alone.
+
+The child must also be able to swim if they go swimming without their parents. Swimming ability means that a person can swim at least 200 metres.
+
+Parents must also remember that responsibility for the child always lies with the parents. This is also the case when there is a lifeguard on the beach.

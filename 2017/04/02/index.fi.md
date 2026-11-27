@@ -1,0 +1,61 @@
+# Sunnuntai 2.4.2017 (radio)
+
+Suomen hallitus haluaa, että työttömät pystyvät muuttamaan sinne, missä työpaikkoja on. Ruotsissa on tapahtunut paha bussionnettomuus. Kolumbiassa on kuollut ihmisiä maanvyöryssä. Lasten ruuassa pitää olla pehmeitä rasvoja.
+
+## Työntekijöiden muutot
+
+![Muuttolaatikoita kuljetetaan nokkakärryillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8029139)
+
+Avaa kuvien katselu
+
+Joskus on pakko muuttaa, jos haluaa työpaikan. Kuva: Seppo Sarkkinen / Yle
+
+Hallitus suunnittelee, että työntekijä voi saada tukea, jos hän löytää työpaikan pitkän matkan päästä. Hallitus suunnittelee esimerkiksi, että työntekijä voi saada tukea muuttoon ja suurempia matkakorvauksia kuin nyt.
+
+Suomessa on 100.000 avointa työpaikkaa ja 300.000 työtöntä. Siksi on tärkeää, että työttömät pystyvät muuttamaan sinne, missä työpaikkoja on.
+
+## Ruotsin bussionnettomuus
+
+![Pelastusviranomaisia Svegin ja Fågelsjön välillä sattuneella onnettomuuspaikalla Ruotsissa 2. huhtikuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9542897)
+
+Avaa kuvien katselu
+
+Pelastustyöntekijöitä onnettomuusbussin vieressä. Kuva: Nisse Schmidt / TT / Lehtikuva
+
+Suomen naapurimaassa Ruotsissa on tapahtunut bussionnettomuus. Ainakin 3 ihmistä kuoli onnettomuudessa. Noin 30 ihmistä loukkaantui, osa tosi pahasti.
+
+Bussissa oli noin 50 koululaista ja melkein 10 aikuista. Koululaiset olivat 8-luokkalaisia. He olivat matkalla hiihtämään hiihtokeskukseen.
+
+Onnettomuus tapahtui sunnuntaina aamulla, kun nuoret nukkuivat bussissa. Bussi ajoi ulos tieltä ja kaatui ojaan. Onnettomuuden syytä ei vielä tiedetä.
+
+## Kolumbian maanvyöry
+
+![Sotilaat pelastivat Kolumbian maanvyöryn uhreja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9542821)
+
+Avaa kuvien katselu
+
+Maa, muta ja kivet vyöryivät Mocoan kaupungin päälle. Kuva: EPA
+
+Etelä-Amerikassa Kolumbiassa on tapahtunut luonnononnettomuus. Yli 250 ihmistä kuoli maanvyöryssä. Loukkaantuneita on monta sataa.
+
+Onnettomuusalueella oli tosi kova sade. Siksi vesi nousi nopeasti monessa joessa yhtä aikaa. Vettä oli niin paljon, että maa, muta ja kivet lähtivät liikkeelle. Tuloksena oli maanvyöry, jonka alle jäi iso osa Mocoan kaupungista.
+
+Onnettomuus tapahtui yöllä. Monet ihmiset pakenivat maanvyöryä yövaatteissa. He eivät ehtineet ottaa mitään mukaan kodeista, jotka jäivät maanvyöryn alle.
+
+Maanvyöryssä katosi paljon ihmisiä. Monet heistä ovat ehkä kuolleet.
+
+## Lasten ruoka
+
+![Lapsi ihailee herkkuja karkkihyllyllä kaupassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7853605)
+
+Avaa kuvien katselu
+
+Sokeri ei tee hyvää lapsen terveydelle. Kuva: Sini Salmirinne / Yle 
+
+Terveellinen ruoka on tärkeää lapsille. Uusi tutkimus kertoo, että lapsen veriarvoista näkee, mitä lapsi syö.
+
+Lapsen veriarvot ovat huonommat, jos lapsi lapsi syö paljon sokeria ja kovia rasvoja. Kovaa rasvaa on esimerkiksi lihassa ja rasvaisissa maitotuotteissa.
+
+Jos lapsi syö kuituja ja pehmeitä rasvoja, lapsen veriarvot ovat paremmat. Kuituja on esimerkiksi tummassa leivässä. Pehmeitä rasvoja on esimerkiksi kasviöljyissä ja kalassa.
+
+Tutkija Taisa Venäläinen sanoo, että kevyttuotteet eivät ole terveellisiä lapsille. Kevyttuotteissa on rasvaa vain vähän. Lasten kannattaa käyttää esimerkiksi kasvimargariinia, jossa rasvaa on vähintään 60 prosenttia.

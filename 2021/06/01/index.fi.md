@@ -1,0 +1,79 @@
+# Tiistai 1.6.2021 (radio)
+
+Uusia koronatartuntoja on 154. Ruotsi lieventää koronarajoituksia. Suomalaiset ottivat huhtikuussa innolla asuntolainaa. Sastamalassa aukeaa Marc Chagallin näyttely. Kevät oli sateinen.
+
+## Koronaluvut
+
+![Oranssi kyltti Kainuun keskussairaalan pihassa ohjaa koronarokotuksiin tulijat heille varattuun koronaparkkiin.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-804828609a4f1fe2920/1620727148)
+
+Avaa kuvien katselu
+
+Oranssi kyltti Kainuun keskussairaalan pihassa ohjaa koronarokotuksiin tulijat heille varattuun koronaparkkiin. Kuva: Mimmi Nietula / Yle
+
+Suomessa on 154 uutta koronatartuntaa. Eniten uusia tartuntoja on Helsingin ja Uudenmaan sairaanhoitopiirissä.
+
+Suomalaisista 9 prosenttia on saanut koronarokotteen molemmat annokset.
+
+Ensimmäisen rokoteannoksen on saanut lähes 2,5 miljoonaa ihmistä.
+
+## Korona Ruotsissa
+
+![Ihmisiä istuu Dramatenin portailla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11957988)
+
+Avaa kuvien katselu
+
+Ruotsin teattereihin päästetään 50 ihmistä kerrallaan. Kuvassa kuninkaallinen draamateatteri Dramaten. Kuva: AOP
+
+Ruotsi muuttaa koronarajoituksia. Rajoitukset ovat lievempiä kuin aikaisemmin.
+
+Ravintolat saavat olla auki myöhemmin kuin ennen. Elokuvateatterit ja teatterit saavat olla auki, mutta sisällä saa olla enintään 50 ihmistä. Pohjoismaista saa matkustaa Ruotsiin ilman koronatestiä.
+
+Ruotsissa on edelleen paljon koronatartuntoja.
+
+## Lainat ja talletukset
+
+![Nainen mittailemassa kontallaan lattialla tyhjässä asunnossa.](https://img.img-cdn.yle.fi/crop_extract,w_3918,h_2204,x_0,y_67/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-775685602e6f30c1bf0/1616412921)
+
+Avaa kuvien katselu
+
+Kotitalouksien lainoista oli huhtikuun lopussa kulutusluottoja yli 16 miljardia euroa ja muita lainoja runsaat 17 miljardia euroa. Kuva: Petteri Bülow / Yle
+
+Suomalaiset ottavat paljon asuntolainaa.
+
+Suomalaiset ottivat huhtikuussa uusia asuntolainoja 1,9 miljardia euroa. Tämä on lähes 500 miljoonaa euroa enemmän kuin vuosi sitten. Asuntolainan korko on keskimäärin 0,82 prosenttia.
+
+Ihmisillä on kulutusluottoja 16 miljardia euroa ja muita lainoja 17 miljardia euroa.
+
+Ihmisillä on pankissa rahaa yhteensä 106 miljardia euroa.
+
+## Marc Chagallin näyttely
+
+![Marc Chagallin taidegrafiikkateos The Little Swallow sarjasta Daphnis &amp; Chloè](https://img.img-cdn.yle.fi/crop_extract,w_720,h_405,x_0,y_48/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81399360b5ff34b59ea/1622540392)
+
+Avaa kuvien katselu
+
+Näyttelyssä nähdään muiden muassa Marc Chagallin taidegrafiikkateos The Little Swallow sarjasta Daphnis &amp; Chloè. Kuva: Art Pappila 
+
+Suomessa on kuuluisan taiteilijan näyttely.
+
+Marc Chagallin teoksia on esillä Sastamalassa Pirkanmaalla. Näyttelyssä on kirjoja, joihin Marc Chagall on tehnyt kuvat. Teokset ovat sellaisia, joita on ollut esillä vain harvoin.
+
+Näyttely aukeaa 11. kesäkuuta. Näyttely on auki elokuun puoliväliin asti.
+
+Marc Chagall on tunnettu ja arvostettu taiteilija. Hän syntyi Venäjällä vuonna 1887. Chagall asui kauan Ranskassa.
+
+Marc Chagall kuoli vuonna 1985. Hän oli 97-vuotias.
+
+## Kevään sää
+
+![Ulkolämpömittari näyttää varjossa 30 lämpöastetta Joensuussa..](https://img.img-cdn.yle.fi/crop_extract,w_3096,h_1742,x_0,y_1195/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80820660a5da9bd208e/1621482249)
+
+Avaa kuvien katselu
+
+Ulkolämpömittari näytti varjossa 30 lämpöastetta Joensuussa toukokuussa.. Kuva: Jouki Väinämö / Yle
+
+Kevät oli Suomessa sateinen.
+
+Ilmatieteen laitos kertoo, että keväällä satoi eniten Hämeenlinnassa. Vähiten satoi Utsjoella.
+
+Toukokuussa sää oli lämmin. Korkein lämpötila oli 30,8 astetta. Se mitattiin Ilomantsissa.

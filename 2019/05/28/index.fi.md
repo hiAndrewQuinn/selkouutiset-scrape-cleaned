@@ -1,0 +1,65 @@
+# Tiistai 28.5.2019 (radio)
+
+Stora Enso irtisanoo työntekijöitä. Rakennusalalla työskentelee paljon ulkomaalaisia. Osa suomalaisista ei harrasta mitään liikuntaa. Poliisi valvoo viikonloppuna nuorten juhlintaa.
+
+## Stora Enso
+
+![Oulun Stora Enson tehdas Nuottasaaressa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10733749)
+
+Avaa kuvien katselu
+
+Stora Enson tehdas Oulussa. Kuva: Paulus Markkula / Yle
+
+Metsäfirma Stora Enso vähentää työntekijöitä. Stora Enso irtisanoo työntekijöitä Oulun tehtaalta. Stora Enso irtisanoo Oulussa 365 työntekijää.
+
+Stora Enso tekee Oulun tehtaalla paperia. Stora Enso sulkee yhden paperikoneen ja alkaa valmistaa toisella pakkauspaperia. Siksi työpaikat vähenevät.
+
+Stora Enso tekee muutoksia Oulun tehtaalla, koska pakkauspaperin hinta maailmalla nousee, mutta muun paperin hinta laskee.
+
+Oulun paperitehtaalle jää vielä 180 työntekijää.
+
+## Rakennusala
+
+![Rakennusmiehiä työmaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10804760)
+
+Avaa kuvien katselu
+
+Rakennusalalla on ulkomaalaisia työntekijöitä. Kuva: Jani Saikko / Yle
+
+Rakennusalalla työskentelee paljon ulkomaalaisia. Noin 20 prosenttia rakennusalan työntekijöistä on ulkomaalaisia. Eniten työntekijöitä tulee Virosta.
+
+Alan firmat sanovat, että rakennusalan raskaisiin töihin on vaikea saada suomalaisia työntekijöitä. Sellaisia töitä ovat esimerkiksi raudoittaminen ja raskaat betonityöt.
+
+Rakennusalan työntekijäliitto kertoo, että suomalaisten työntekijöiden mielestä ulkomailta tulee työntekijöitä jo liikaa.
+
+Rakennusalalla on melkein 200 000 työntekijää. Ulkomaalaisia työntekijöitä on eniten Uudellamaalla ja vähiten Lapissa.
+
+## Liikuntaharrastukset
+
+![Ihmisiä sauvakävelyllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7998468)
+
+Avaa kuvien katselu
+
+Sauvakävely on Suomessa suosittu harrastus. Kuva: Derrick Frilund / Yle
+
+Osa suomalaisista ei harrasta mitään liikuntaa. Noin 20 prosenttia aikuisista suomalaisista ei ole harrastanut liikuntaa ainakaan vuoteen.
+
+Noin 80 prosenttia suomalaisista harrastaa liikuntaa. Kävely, pyöräily ja uinti ovat suosittuja liikuntaharrastuksia.
+
+Tiedot ovat uudesta kyselystä.
+
+Kysely kertoo myös, että monet suomalaiset haluavat aloittaa uuden liikuntaharrastuksen. Naisia kiinnostaa jooga, ja miehiä kiinnostaa e-urheilu. E-urheilu tarkoittaa elektronista urheilua eli videopelien pelaamista.
+
+## Juhlaviikonloppu
+
+![Nuoria istumassa nurmella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8032299)
+
+Avaa kuvien katselu
+
+Nuoret juhlivat ulkona, kun koulu loppuu. Kuva: Yle
+
+Nyt on kevään viimeinen kouluviikko. Viikonloppuna monet nuoret juhlivat ulkona koulun loppumista.
+
+Poliisi aikoo valvoa nuorten juhlintaa. Poliisi käy paikoissa, joissa nuoret tapaavat.
+
+Poliisi kuitenkin sanoo, että vanhemmilla on vastuu lapsista ja nuorista. Poliisi toivoo, että vanhemmat vastaavat puhelimeen viikonlopun aikana. Soittaja voi olla poliisi, jos nuori on joutunut vaikeuksiin.

@@ -1,0 +1,74 @@
+# TV \| Selkouutiset \| torstai 4.7.2024
+
+Puoluekannatus. Nato. Maarit. Sääennuste.
+
+## Puoluekannatus
+
+Aluksi uutinen politiikasta.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Suosituin puolue on kokoomus. Kokoomusta kannattaa yli 21 prosenttia suomalaisista. Kokoomus on hallituspuolue ja pääministeripuolue.
+
+Toiseksi suosituin puolue on SDP. SDP:n kannatus on runsaat 20 prosenttia. SDP on oppositiopuolue eli se ei ole hallituksessa.
+
+Sekä Kokoomuksen että SDP:n suosio on laskenut hieman.
+
+Kolmanneksi suosituin puolue on perussuomalaiset. Sen kannatus on reilut 15 prosenttia.
+
+Neljänneksi suosituin puolue on keskusta ja viidenneksi suosituin puolue on vasemmistoliitto.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Eniten nousua on vasemmistoliiton kannatuksessa.
+
+## Nato Suomessa
+
+Nyt uutinen Suomen Nato-politiikasta.
+
+Suomi toivoo Naton läsnäoloa Suomessa.
+
+Suomi valmistautuu ensi viikon Nato-kokoukseen.
+
+Suomella on Natolle viesti. Suomi toivoo, että Suomessa on USA:n ja muiden Nato-maiden sotilaita.
+
+Suomen kanta on uusi. Aiemmin Suomi luotti omaan puolustukseen.
+
+Puolustusministeri **Antti Häkkänen** sanoo, että tilanne on muuttunut, koska Venäjä on arvaamaton.
+
+*"Tiedetään, että Venäjä on arvaamaton. Ja meno valitettavasti synkkenee."*
+
+Venäjä käy sotaa Ukrainassa. Samalla Venäjä rakentaa suhteita liittolaisiin. Siksi Suomi toivoo Naton läsnäoloa.
+
+## Maarit
+
+Lopuksi uutinen kulttuurista.
+
+Yle on tehnyt audiodraaman muusikko **Maarit Hurmerinnasta**.
+
+Audiodraama on ääninäytelmä.
+
+Maaritia näyttelee **Oona Airola**. Aviomies Sami Hurmerintaa näyttelee **Olavi Uusivirta**.
+
+Maarit ja Sami ovat tyytyväisiä näyttelijävalintoihin.
+
+Maaritin ura on kestänyt yli 50 vuotta. Maaritin tunnetuin kappale on *Jäätelökesä*.
+
+Yle on tehnyt audiodraaman muusikko Maarit Hurmerinnasta.
+
+Sitä voi kuunnella [Yle Areenasta](https://areena.yle.fi/podcastit/1-70639517) ja Radio Suomesta.
+
+## Sää
+
+Vielä sääennuste.
+
+Sää on sateista.
+
+Perjantaina tulee sateita lähes koko maassa. Eniten sataa idässä.
+
+Lämpötila on 15 ja 20 asteen välillä.
+
+Tuuli voi olla etelässä kovaa.
+
+Perjantaina Illalla etelässä paistaa aurinko.
+

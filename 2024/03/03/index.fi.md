@@ -1,0 +1,54 @@
+# Radio \| Uutisviikko selkosuomeksi \| sunnuntai 3.3.2024
+
+Syyhy on yleistynyt.
+
+Uutisviikon aiheena on syyhy.
+
+Syyhy on ihottuma, joka aiheuttaa kovaa ihon kutinaa. Syyhyn aiheuttaa pieni punkki, joka leviää ihmisestä toiseen. Syyhyä on nyt Suomessa paljon enemmän kuin aikaisemmin.
+
+Nyt kerromme tarkemmin syyhystä.
+
+## Syyhy aiheuttaa ihon kutinaa
+
+![ Kuva: Aada Ramstedtin kotialbumi.](https://images.cdn.yle.fi/image/upload/c_crop,h_420,w_748,x_2,y_28/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709137163/39-1186091652926a54f3e0)
+
+Syyhy ei ole vaarallinen tauti. Syyhy on kuitenkin ikävä sairaus, koska syyhyn takia iho on kuiva ja kutisee paljon.
+
+Syyhyn aiheuttaa pieni eläin, jonka nimi on syyhypunkki. Syyhypunkki kaivaa käytäviä ihmisen ihoon. Syyhypunkki voi elää ihmisen ihossa useita kuukausia.
+
+Syyhyä on paljon enemmän kuin aikaisemmin. Syyhytartuntoja oli Suomessa 4 vuotta sitten 7000. Viime vuonna syyhytartuntoja oli jo 37 000.
+
+Myös muualla Euroopassa syyhyä on enemmän kuin ennen. Asiantuntijat eivät tiedä, miksi syyhyä on enemmän kuin aikaisemmin.
+
+## Syyhy tarttuu
+
+![ Kuva: Henrietta Hassinen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1613473760/39-774579602ba6bb4ef81)
+
+Syyhy tarttuu ihmisestä toiseen. Syyhy tarttuu, kun ihminen koskettaa pitkän aikaa toista ihmistä.
+
+Syyhy voi tarttua, vaikka oireita ei vielä ole. Syyhy tarttuu usein perheenjäseneltä toiselle perheenjäsenelle.
+
+Lapsi voi saada syyhytartunnan esimerkiksi päiväkodissa, kun lapset ovat kauan aikaa yhdessä.
+
+Syyhy ei tartu lyhyen kosketuksen aikana. Siksi syyhy ei yleensä tartu, kun esimerkiksi ihminen kättelee toista ihmistä.
+
+## Lääkäri toteaa syyhyn
+
+![ Kuva: Sasha Silvala / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3121,w_5549,x_0,y_333/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1709138675/39-125075565df62a2a0480)
+
+Syyhyn oireet ovat samanlaisia kuin monen muun ihosairauden. Jos epäilet syyhyä, sinun pitää mennä lääkäriin. Lääkäri toteaa, onko sinulla syyhy.
+
+Lääkäri määrää lääkkeitä, joita käytetään syyhyn hoitoon. Syyhyä ei saa hoitaa esimerkiksi hevosen syyhylääkkeellä.
+
+Jos sinulla on syyhy, myös muiden perheenjäsenten pitää mennä lääkäriin. Lisäksi lakanat, vaatteet ja pyyhkeet pitää pestä. Asunto pitää imuroida.
+
+## Kertaus
+
+Uutisviikon aihe oli syyhy. Kerrataan vielä tärkeimmät asiat. Syyhyä on Suomessa enemmän kuin aikaisemmin.
+
+Syyhy on ikävä tauti, mutta syyhy ei ole vaarallinen. Syyhy tarttuu ihmisestä toiseen.
+
+Jos epäilet syyhyä, sinun pitää mennä lääkäriin.
+
+Tämä oli Uutisviikko selkosuomeksi, tavataan taas. Kuulemiin!
+

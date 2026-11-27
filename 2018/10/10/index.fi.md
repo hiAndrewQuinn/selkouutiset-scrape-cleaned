@@ -1,0 +1,89 @@
+# Keskiviikko 10.10.2018 (radio)
+
+Lihayhtiö irtisanoo työntekijöitä. Mallorcan saarella oli rankkasade. Keniassa tapahtui paha bussionnettomuus. Joutsenet muuttavat etelään. Tänään on Suomen kansalliskirjailijan päivä.
+
+## HKScan irtisanoo paljon ihmisiä
+
+![broilerleikkeitä tuotantotiloissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9784630)
+
+Avaa kuvien katselu
+
+Suomalaiset syövät paljon lihaa kesällä ja joulun aikaan. Kuva: Jari Pelkonen / Yle
+
+Liha- ja ruokayhtiö HKScan irtisanoo paljon työntekijöitä.165 työntekijää saa potkut.
+
+Yhtiö sanoo, että se joutuu myös lomauttamaan työntekijöitä, jotka jäävät töihin.
+
+Joulun aikaan lihayhtiöllä menee hyvin, kun suomalaiset ostavat joulukinkkuja.Kesällä suomalaiset ostavat grilimakkaraa ja lihaa.
+
+Keväällä ja syksyllä yhtiöllä menee huonommin.
+
+## Mallorcalla kuoli turisteja tulvassa
+
+![Kaksi poliisiautoa on parkkeerattuna keskelle tietä, siniset vilkut välkkyvät. Tiellä seisoo kaksi miestä kirkkaankeltaisissa haalariasuissa ja univormupukuinen nainen. Kuvan oikeassa laidassa näkyy tieviitta Sant Llorençiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10449295)
+
+Avaa kuvien katselu
+
+Mallorcalla satoi paljon vettä lyhyessä ajassa. Siitä tuli pahoja tulvia. Kuva: Atienza / EPA
+
+Välimerellä Mallorcan saarella on ollut pahoja tulvia rankkasateen takia. Vettä satoi eilen illalla paljon lyhyessä ajassa.
+
+Ainakin 9 ihmistä on kuollut ja monta ihmistä on kateissa.
+
+Kuolleiden joukossa oli turisteja Britanniasta ja Hollannista. Mallorcalla käy paljon turisteja.
+
+Saari kuuluu Espanjalle.
+
+## Keniassa tapahtui paha bussionnettomuus
+
+![Bussin jäänteet ja ihmisiä ympärillä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10449606)
+
+Avaa kuvien katselu
+
+Bussin katto irtosi, kun bussi putosi 20 metriä. Kuva: EPA
+
+Keniassa on tapahtunut paha bussionnettomuus. Onnettomuudessa kuoli 50 ihmistä.
+
+Kenian poliisi kertoo, että bussi ajoi alamäessä ulos tieltä. Bussi putosi 20 metriä, ja bussin katto irtosi.
+
+Keniassa tapahtuu paljon onnettomuuksia liikenteessä. Liikenneonnettomuuksissa kuolee tuhansia ihmisiä joka vuosi.
+
+## Joutsenet muuttavat etelään
+
+![Joutsenia talvisella joella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10016739)
+
+Avaa kuvien katselu
+
+Laulujoutsenia Kajaaninjoella Pohjois-Suomessa Kuva: Niko Mannonen / Yle
+
+Joutsenet alkavat muuttaa etelään tähän aikaan vuodesta. Joutsenet lähtevät Suomen talvesta etelän lämpöön.
+
+Joutsenet ovat jo lähdössä matkaan ainakin Lapista. Ne lentävät joka vuosi samoja reittejä.
+
+Joutsenet pysähtyvät syömään aina samoissa paikoissa, kun ne keräävät voimia matkaa varten. Silloin lintuharrastajat voivat nähdä tuhansia joutsenia yhdellä kertaa.
+
+## Suomen kansalliskirjailijan päivä on tänään
+
+![patsas](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5212047)
+
+Avaa kuvien katselu
+
+Aleksis Kivellä on monta patsasta Suomessa. Tämä on Helsingissä. Kuva: Pertti Nisonen
+
+Tänään tiistaina on vietetty Aleksis Kiven päivää.
+
+Aleksis Kivi on Suomen kansalliskirjailija.Kiven tärkein kirja on Seitsemän veljestä. Se ilmestyi vuonna 1870 eli melkein 150 vuotta sitten.
+
+Tutkija Teemu Keskisarja sanoo, että Kivi oli äidinkielinero. Keskisarja on kirjoittanut tutkimuksen Aleksis Kivestä.
+
+## Katso video koulusta
+
+![Ohjeita luokan seinällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10450338)
+
+Avaa kuvien katselu
+
+Valmistavan luokan oppilaat opiskelevat suomea. Kuva: Minna Uusi-Eskola / YLE
+
+Selkouutiset kävi katsomassa, mitä tapahtuu Pihlajiston ala-asteen valmistavalla luokalla.
+
+Videon voit katsoa Selkouutisten nettisivulla.

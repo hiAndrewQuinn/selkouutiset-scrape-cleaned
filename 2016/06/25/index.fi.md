@@ -1,0 +1,59 @@
+# Lauantai 25.6.2016 (radio)
+
+Ihmisiä on kuollut onnettomuuksissa juhannuksena. EU-maiden johtajat miettivät, miten Britannian ero EU:sta tapahtuu. Suomalaiset toimittajat haluavat lausua ulkomaalaiset nimet oikein. Krapula on osa suomalaista juomakulttuuria.
+
+## Juhannuksen onnettomuudet
+
+![Pelastusrengas vedessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5290714)
+
+Avaa kuvien katselu
+
+Juhannuksena on hukkunut jo monta ihmistä. Kuva: Arja Lento / Yle
+
+Juhannuksena on tapahtunut paljon onnettomuuksia.
+
+Juhannuspäivään mennessä onnettomuuksissa kuoli 10 ihmistä. 6 heistä hukkui ja 4 kuoli liikenneonnettomuuksissa.
+
+Monet hukkuneet olivat miehiä, jotka olivat uimassa tai kalastamassa. Myös yksi 8-vuotias lapsi hukkui veneonnettomuudessa.
+
+## EU ja Britannia
+
+![Ison-Britannian lippu liehuu muiden EU-maiden lippujen vieressä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8983091)
+
+Avaa kuvien katselu
+
+Mitä tapahtuu, kun Britannia lähtee pois EU-maiden joukosta? Kuva: Patrick Seeger / EPA
+
+EU-maiden johtajilla on kokouksia Britannian takia. Britit päättivät kansanäänestyksessä torstaina, että Britannia lähtee pois Euroopan unionista. Tämä on ensimmäinen kerta, että joku maa eroaa EU:sta.
+
+EU-maiden johtajat miettivät nyt, miten Britannian ero tapahtuu. EU-johtajien huippukokous alkaa tiistaina Brysselissä. Myös Suomen pääministeri Juha Sipilä osallistuu kokoukseen. Brysselin huippukokouksen jälkeen saadaan ehkä tietoja siitä, miten Britannian EU-ero etenee.
+
+## Ulkomaiset nimet
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8980401)
+
+Avaa kuvien katselu
+
+Miten nämä lausutaan? Ja miten ne taipuvat suomen kielessä? Kuva: Yle Uutisgrafiikka
+
+Monet ulkomaalaiset nimet ovat suomalaisille vaikeita. Sen tietää myös toimittaja Matti Härkönen. Hän selostaa jalkapallon EM-kilpailuja.
+
+Ulkomaalaiset nimet ovat suomalaisille toimittajille vaikeita, koska he yrittävät lausua nimet samalla tavalla kuin ulkomaalaiset itse. Joissakin maissa toimittajat lausuvat nimiä oman kielen mukaan, ja se on paljon helpompaa.
+
+Ulkomaalaiset nimet ovat suomalaisille vaikeita myös siksi, että perusmuoto ei riitä. Suomen kielessä nimiä pitää myös taivuttaa. Ulkomaalainen nimi ja suomalainen taivutus ovat usein hankala yhdistelmä.
+
+Mitkä nimet sitten ovat tosi vaikeita jalkapalloselostaja Matti Härköselle? Hollantilaiset, belgialaiset ja puolalaiset nimet, Härkönen vastaa.
+
+## Krapula
+
+![Ihminen makaa sohvalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5409987)
+
+Avaa kuvien katselu
+
+Krapula on juhlan ja arjen välissä. Kuva: YLE / Pekka Sipilä
+
+Krapula on osa suomalaista juomakulttuuria. Alkoholitutkija Antti Maunu sanoo, että krapula kuuluu juhlan ja arjen väliin. Alkoholi vie ihmiset pois arjesta, krapula tuo ihmiset takaisin arkeen, Maunu sanoo.
+
+Ihminen saa krapulan, kun hän on juonut paljon alkoholia ja ollut humalassa. Päänsärky ja huono olo kuuluvat krapulaan. Krapulassa ihminen saa unohtaa kiireen, maata sohvalla ja syödä pitsaa.
+
+Alkoholi kuuluu nykyään viikonloppuihin ja bileisiin, joissa ihmiset pitävät hauskaa yhdessä. Koska ihmiset juhlivat ja juovat yhdessä, myös krapulaa voidaan viettää yhdessä, tutkija Maunu sanoo. Arki alkaa vasta krapulan jälkeen.

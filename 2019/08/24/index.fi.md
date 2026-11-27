@@ -1,0 +1,77 @@
+# Lauantai 24.8.2019
+
+Sari Essayah jatkaa kristillisdemokraattien puoluejohtajana. Metrojunat eivät ole voineet pysähtyä Rautatientorin metroasemalla. Eurojackpotin päävoitto tuli Siilinjärvelle Suomeen. Sähkötupakka voi olla vaarallista. Sää on aurinkoista.
+
+## Kristillisdemokraattien puoluejohtaja
+
+![Sari Essayah](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10932968)
+
+Avaa kuvien katselu
+
+Kristillisdemokraattien puoluejohtaja Sari Essayah. Kuva: Juha Tamminen / AOP
+
+Kristillisdemokraatit ovat valinneet puoluejohtajan. Puoluejohtajan tehtävässä jatkaa Sari Essayah. Puoluejohtaja valittiin kristillisdemokraattien puoluekokouksessa Oulussa.
+
+Sari Essayah on ollut kristillisdemokraattien puoluejohtaja vuodesta 2015 lähtien.
+
+Essayah harkitsi ennen puoluekokousta, voiko hän jatkaa puoluejohtajan tehtävässä, koska hän sairastui tänä kesänä rintasyöpään. Essayah on kuitenkin toipunut syöpäleikkauksesta hyvin, ja hän pystyy jatkamaan työntekoa.
+
+## Helsingin metroliikenne
+
+![Rautatientorin metroasema tulvi Helsingissä 23. elokuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10935264)
+
+Avaa kuvien katselu
+
+Rautatientorin metroasemalle pääsi vettä perjantaina. Kuva: Ulla Malminen / Yle 
+
+Helsingin metroliikenteessä on muutoksia viikonloppuna. Metrojunat eivät pysähdy Rautatientorin metroasemalla.
+
+Syynä on perjantain kova vesisade. Vettä pääsi myös metron teknisiin tiloihin.
+
+Asematunnelin kaupat ovat auki normaalisti.
+
+Perjantaina metroliikenne oli poikki Helsingin keskustassa kovan sateen takia.
+
+## 90 miljoonan voitto
+
+![Eurojackpot-palloja lähikuvassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10936648)
+
+Avaa kuvien katselu
+
+Tällä viikolla Eurojackpotin oikeat numerot löytyivät kupongista, joka pelattiin Siilinjärvellä. Kuva: Veikkaus
+
+Pienellä suomalaisella Siilinjärven paikkakunnalla on nyt 50 miljonääriä.
+
+Syynä on Eurojackpot eli eurooppalainen lotto. Eurojackpotin tämän viikon päävoitto tuli Siilinjärvelle Suomeen. Päävoitto on 92 miljoonaa euroa.
+
+Voitto menee 50 ihmiselle, jotka pelasivat Eurojackpotia yhdessä. Pelipaikka oli Siilinjärven K-Supermarket.
+
+Suomalaisilla on ollut ennenkin onnea Eurojackpot-rahapelissä. Päävoitto on tullut Suomeen jo 16 kertaa. Eurojackpot alkoi vuonna 2012, ja mukana on 18 maata.
+
+## Sähkötupakan vaarallisuus
+
+![Ihmisiä polttamassa sähkötupakkaa New Yorkissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10936703)
+
+Avaa kuvien katselu
+
+Sähkötupakka on nykyään suosittua. Kuva: Alba Vigaray / EPA
+
+Sähkötupakka voi olla vaarallista.
+
+USA:ssa tutkitaan jo noin 200 sairaustapausta, joiden syy voi olla sähkötupakka. Monet sairastuneet ovat nuoria.
+
+Nyt amerikkalaiset tutkivat myös kuolemantapausta. Potilas kuoli keuhkosairauteen, jonka syytä lääkärit eivät ole löytäneet. Potilas käytti sähkötupakkaa.
+
+Maailman terveysjärjestö WHO on varoittanut sähkötupakasta. WHO sanoo, että sähkötupakka on haitallista terveydelle.
+
+## Aurinkoinen viikonloppu
+
+![Sininen taivas aurinko ja pilviä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10786511)
+
+Avaa kuvien katselu
+
+Kesä ei ole vielä ohi. Lähipäivinä paistaa aurinko. Kuva: Esko Jämsä / AOP
+
+Perjantain sateen jälkeen viikonloppu on alkanut aurinkoisesti suuressa osassa maata. Myös sunnuntai on etelässä aurinkoinen päivä.
+
+Ensi viikko alkaa lämpimässä säässä. Etelä-Suomessa lämpöä voi olla maanantaina jopa 25 astetta.

@@ -1,0 +1,7 @@
+# Keskiviikko 25.4.2018 (tv)
+
+Päiväkodit osoittavat mieltään. Suomalainen sianliha matkustaa Kiinaan. Sähkö auttaa vaivoihin. Kesäkukat kiinnostavat. Sää on aika pilvinen.
+
+Yle Uutiset selkosuomeksi
+
+Päiväkodit osoittavat mieltään. Suomalainen sianliha matkustaa Kiinaan. Sähkö auttaa vaivoihin. Kesäkukat kiinnostavat. Sää on aika pilvinen.

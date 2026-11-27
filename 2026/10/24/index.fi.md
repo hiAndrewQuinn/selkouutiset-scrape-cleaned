@@ -1,0 +1,67 @@
+# Viikon uutinen selkosuomeksi | lauantai 24.10.2026
+
+Kotiopetus
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Viikon aiheen esittely
+
+Ohjelman aihe on tällä kertaa kotiopetus, josta Suomessa keskustellaan nyt paljon.
+
+Opetusministeri **Anders Adlercreutz** haluaa, että kotiopetukseen tarvitaan viranomaisen lupa, kun nyt siihen riittää ilmoitus kunnalle.
+
+Keskustelu on lisääntynyt, koska Ylen MOT-ohjelma on kertonut ongelmista kotiopetuksessa. Kerromme nyt lisää aiheesta.
+
+![Anders Adlercreutz harmaassa puvussa.](https://img.img-cdn.yle.fi/crop_extract,w_5601,h_3151,x_0,y_843/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17243306ad5f562d4b0f/1792406959)
+
+Avaa kuvien katselu
+
+Opetusministeri Anders Adlercreutz haluaa, että kotiopetukseen tarvitaan jatkossa lupa ja että kaikki suorittavat peruskoulun päättötodistuksen. Kuva: Markku Ulander / Lehtikuva
+
+## Kotiopetuksen sääntöjen muuttaminen
+
+Opetusministeri Anders Adlercreutz käynnistää valmistelun siitä, että kotiopetuksen sääntöjä muutetaan.
+
+Jatkossa kotiopetukseen tarvitaan lupa. Hakemuksessa pitää olla myös suunnitelma opetuksesta.
+
+Lisäksi viranomainen saa mahdollisuuden keskeyttää kotiopetuksen, jos lapsi ei opi riittävästi.
+
+Opetusministeri haluaa myös, että jokainen lapsi saa peruskoulun päättötodistuksen.
+
+Monet kotioppijat eivät nyt tee lainkaan kokeita. Uudistukset eivät kuitenkaan ehdi valmistua tällä vaalikaudella.
+
+## Kotiopetuksen kasvu
+
+Kotiopetus on yleistynyt Suomessa nopeasti.
+
+Vuonna 2018 kotiopetuksessa oli vähän yli 300 lasta. Tänä vuonna kotiopetuksessa on jo reilusti yli 1 000 lasta. Määrä on yli kolminkertaistunut alle 10 vuodessa.
+
+Kotiopetus on silti vielä harvinaista: vain noin 0,2 prosenttia peruskouluikäisistä opiskelee kotona. Yli 40 prosenttia heistä asuu Uudellamaalla.
+
+Opetus- ja kulttuuriministeriön asiantuntija sanoo, että kunnilla on haasteita, kun kotioppijoilta puuttuu todistuksia jatko-opintoihin.
+
+![Tummaan pukuun pukeutunut Jari Andersson istumassa työpöytänsä reunalla. Taustalla lippuja, tauluja ja täytettyjä eläimiä.](https://img.img-cdn.yle.fi/crop_extract,w_5821,h_3274,x_15,y_522/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16963116a8c34881cac5/1787573567)
+
+Avaa kuvien katselu
+
+Rehtori Jari Andersson on myös tutkiva opettaja eli hän tarkastaa kotioppijoiden osaamista. Andersson on huolissaan kotiopetuksen ongelmista. Kuva: Sanni Isomäki / Yle
+
+## Ongelmat
+
+Ylen MOT-ohjelma haastatteli aiemmin tutkivia opettajia eri puolilta Suomea. Monet heistä olivat huolissaan oppimisesta, syrjäytymisestä ja siitä, että osa perheistä valitsee kotiopetuksen ideologian takia.
+
+Rehtori **Jari Andersson** Sastamalasta sanoi vahvasti, että osa kotiopetuksesta on ”laillistettua heitteillejättöä”. Heitteillejättö tarkoittaa, että lapsi jätetään ilman huolenpitoa.
+
+Lapsiasiavaltuutettu **Elina Pekkarinen** on kuitenkin sanonut, että kotiopetusta ei pidä kieltää kokonaan, koska monille perheille kotiopetus on hyvä mahdollisuus.
+
+## Kertaus
+
+Ohjelman aihe oli tällä kertaa kotiopetus ja sen valvonta. Opetusministeri Anders Adlercreutz haluaa, että kotiopetukseen tarvitaan jatkossa lupa ja että sen voi keskeyttää, jos lapsi ei opi tarpeeksi.
+
+Kotiopetus on lisääntynyt nopeasti, ja Ylen MOT-ohjelma on kertonut sen ongelmista.
+
+Muutosten valmistelu jatkuu opetusministeriössä, mutta uudistukset eivät valmistu vielä tällä vaalikaudella.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

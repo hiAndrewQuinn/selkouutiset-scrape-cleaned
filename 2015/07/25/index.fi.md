@@ -1,0 +1,61 @@
+# Lauantai 25.7.2015
+
+Turkki on tehnyt ilmaiskuja Isisiä ja kurdeja vastaan. Barack Obama on vierailulla Keniassa. Muslimiryhmien riidat tuntuvat Suomessa asti. Jaakon päivän tapahtumassa heitettiin kylmä kivi veteen.
+
+## Turkki on tehnyt ilmaiskuja
+
+![Arkistokuva alas ammutusta F-4 Phantom -hävittäjästä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6193169)
+
+Avaa kuvien katselu
+
+Turkin armeijan lentokoneet ovat iskneet kurdeja ja Isisiä vastaan. Kuva: EPA
+
+Turkki on hyökännyt kurdijärjestö PKK:ta vastaan. Turkin armeijan lentokoneet ovat iskeneet kurdien sotilasleireihin Pohjois-Irakissa. Turkki lopetti ilmaiskut Irakin kurdialueelle vuonna 2013, kun Turkki ja PKK tekivät aselevon ja lopettivat aseiden käytön toisiaan vastaan.
+
+Turkki on jatkanut ilmaiskuja myös ääri-islamilaista järjestöä Isisiä vastaan. Turkin armeijan lentokoneet ovat iskeneet Isisiä vastaan Syyrian puolella. Turkki aloitti hyökkäyksen Isisiä vastaan perjantaina.
+
+Turkki aloitti ilmaiskut sen jälkeen, kun Isis ja kurdit tekivät terrori-iskuja Turkissa.
+
+## Barack Obama vierailee Keniassa
+
+![Yhdysvaltain presidentti Barack Obama on nostanut kätensä tervehdykseen Nairobin lentokentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8181705)
+
+Avaa kuvien katselu
+
+Presidentti Barack Obama. Kuva: Saul Loeb / AFP
+
+Yhdysvaltain presidentti Barack Obama on vierailulla Afrikassa. Obama osallistui Keniassa tapahtumaan, jossa puhuttiin taloudesta.
+
+Presidentti kehui Afrikkaa. Hän sanoi, että Afrikan talous kasvaa nopeasti ja ihmiset nousevat köyhyydestä. Halusin tulla tänne, koska Afrikka on liikkeellä, Obama sanoi.
+
+Presidentti Obaman isä oli kotoisin Keniasta, ja Obama on tavannut Keniassa myös sukulaisiaan.
+
+## Muslimeilla ei ole pahoja riitoja Suomessa
+
+![Poika leikkii autolla rukoilijoiden edessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8134427)
+
+Avaa kuvien katselu
+
+Shiiamuslimit rukoilevat Helsingissä. Kuva: Tom Kankkonen / YLE
+
+Sunnimuslimeilla ja shiiamuslimeilla on pahoja riitoja islamilaisissa maissa. Se näkyy esimerkiksi Irakissa ja Syyriassa. Muslimien riidat tuntuvat Suomessa asti.
+
+Suomessa on noin 60 000 muslimia, joista enemmistö on sunnimuslimeja. Suomen shiiamuslimit sanovat, että tavalliset sunnimuslimit suhtautuvat heihin ystävällisesti. Vain pieni joukko äärisunneja etsii riitaa shiiojen kanssa.
+
+Ylen toimittaja Tom Kankkonen on tavannut Suomen muslimeja. Hän kysyi, minkälaiset välit shiioilla ja sunneilla Suomessa on. Tom Kankkosen ohjelman voi kuunnella Yle Areenasta. Ohjelma löytyy nimellä Maailmanpolitiikan arkipäivää.
+
+Kuuntele Maailmanpolitiikan arkipäivää
+
+## Jaakko heitti kylmän kiven
+
+![Jaakon päivä, kauppatori, 2015](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8181716)
+
+Avaa kuvien katselu
+
+Jaakon päivän tapahtuma Kauppatorilla Helsingissä. Kuva: Yle
+
+Jaakko on taas heittänyt kylmän kiven veteen. Vanha suomalainen kansanperinne kertoo, että uimavedet alkavat kylmetä Jaakon päivänä eli heinäkuun 25. päivä.
+
+Helsingissä Suomen Epätieteellinen Seura heitti kylmän kiven veteen Kauppatorin rannalla. Jaakon päivän hauska tapahtuma sai katsojia myös tänä vuonna. Jaakon päivän tapahtuma on järjestetty jo 20 vuoden ajan.
+
+Tänä vuonna Jaakolla on helppo työ, koska uimavedet ovat pysyneet kylminä koko kesän. Sunnuntaina Jaakko saa vielä apua sateelta ja tuulelta, jotka tuovat syksyn tunnelmaa keskelle kesää.

@@ -1,0 +1,71 @@
+# Lauantai 22.6.2019 (radio)
+
+Juhannuksena tapahtui onnettomuuksia. Indonesiassa on tapahtunut vakava tulipalo. Ensi viikosta tulee Euroopassa tosi kuuma. Kaapo Kakko on varattu NHL:ään numerolla 2.
+
+## Juhannuksen onnettomuudet
+
+![Pelastusrengas Munkkiniemen venesatamassa Helsingissä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10843403)
+
+Avaa kuvien katselu
+
+Onnettomuuksia on tapahtunut vesillä ja maanteillä. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Juhannus on sujunut melko rauhallisesti, mutta onnettomuuksia on tapahtunut. Onnettomuuksissa on kuollut ihmisiä.
+
+Ainakin 3 ihmistä on hukkunut. Etelä-Suomessa hukkui 1 mies, ja Keski-Suomessa hukkui 2 naista.
+
+Pohjois-Suomessa kuoli nuori mies auto-onnettomuudessa. Auto ajoi ulos tieltä.
+
+Pelastuslaitoksilla on ollut juhannuksena kiire, kun ne ovat sammuttaneet tulipaloja ja kokkoja. Tulipaloja syttyi monessa saunassa.
+
+Lisäksi ihmiset polttivat kokkoja alueilla, joilla on metsäpalovaroitus. Metsäpalovaroituksen aikana tulen sytyttäminen ulkona on kielletty.
+
+Poliisilla on ollut työtä, koska ihmiset ovat tapelleet juhannuksena.
+
+## Indonesian tulipalo
+
+![Pohjois-Sumatralla sijaitseva syttyttimiä valmistava tehdas paloi perjantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10843663)
+
+Avaa kuvien katselu
+
+Tulipalo tuhosi sytytintehtaan. Kuva: Hermansyah / EPA
+
+Aasiassa, Indonesiassa on tapahtunut vakava tulipalo. Tulipalossa kuoli 30 ihmistä. Joukossa oli 5 lasta.
+
+Tulipalo syttyi tehtaassa, jossa valmistettiin sytyttimiä. Tulipalo alkoi, kun yksi sytytin räjähti.
+
+Ihmiset eivät päässeet ulos tehtaasta, koska sen ulko-ovi oli lukossa. Kuolleet olivat tehtaan työntekijöitä ja työntekijöiden lapsia.
+
+Poliisi on ottanut kiinni 2 ihmistä tulipalon takia. Kerrotaan, että he ovat tehtaan omistaja ja tehtaan johtaja. Poliisi sanoo, että he eivät ole huolehtineet oikein tehtaan turvallisuudesta.
+
+## Euroopan kuumuus
+
+![Mies makaa auringossa palaneella nurmikolla shortseissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10327501)
+
+Avaa kuvien katselu
+
+Kova kuumuus on ihmiselle raskasta. Kuva: Neil Hall / EPA
+
+Ensi viikosta tulee Euroopassa tosi kuuma. Säätiedot kertovat, että lämpötila voi ensi viikolla olla monessa maassa jopa 40 astetta.
+
+Ranskassa pelätään, että kuuma sää jatkuu koko viikon. Ranskassa oli yhtä kuumaa vuonna 2003. Silloin 15 000 ihmistä kuoli kuuman sään takia.
+
+Myös Espanjassa meteorologit varoittavat, että sää on ensi viikolla epätavallisen kuuma. He pelkäävät, että koko kesästä tulee kuumempi kuin normaalisti.
+
+## Kaapo Kakon menestys
+
+![Kaapo Kakko, Jack Hughes ja Kirby Dach](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10843548)
+
+Avaa kuvien katselu
+
+Kaapo Kakko, Jack Hughes ja Kirby Dach olivat 3 ensimmäistä, jotka varattiin NHL:ään. Kuva: Bruce Bennett / Getty Images / AFP
+
+Vielä urheilua:
+
+Suomalainen jääkiekkoilija Kaapo Kakko on varattu Pohjois-Amerikan jääkiekkoliigaan NHL:ään.
+
+Kakko varattiin numerolla 2. Vain amerikkalainen Jack Hughes varattiin ennen Kakkoa.
+
+Kakko varattiin New York Rangers -joukkueeseen.
+
+Kakko pelasi tosi hyvin jääkiekon MM-kilpailuissa toukokuussa, kun Suomesta tuli maailmanmestari.

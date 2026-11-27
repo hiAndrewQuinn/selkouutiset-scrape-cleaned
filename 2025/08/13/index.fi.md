@@ -1,0 +1,59 @@
+# TV | Selkouutiset | keskiviikko 12.8.2025
+
+Toimeentulotuki. Pullovesi. Robotit. Sää.
+
+## Toimeentulotukea halutaan muuttaa
+
+Ensin juttu toimeentulotuesta.
+
+Hallitus haluaa muuttaa toimeentulotukea.
+
+Kela antaa toimeentulotukea ihmisille, joiden tulot eivät riitä arjen menoihin. Arjen menoja ovat esimerkiksi ruoka ja asuminen.
+
+Viime vuonna Kela antoi toimeentulotukea 360 000 ihmiselle.
+
+Hallitus esittää, että toimeentulotukea muutetaan. Jos muutos tehdään, monen toimeentulotuen saajan on pakko hakea kokoaikatyötä tai ensisijaista tukea. Ensisijaisia tukia ovat esimerkiksi asumistuki ja työttömyystuet.
+
+Jos ihminen ei hae työtä tai ensisijaista tukea, hän ehkä menettää osan toimeentulotuestaan.
+
+Asiantuntijat vastustavat toimeentulotuen muuttamista. Asiantuntijat sanovat, että muutoksen takia työtä joutuisi hakemaan paljon ihmisiä, jotka eivät oikeasti pysty tekemään työtä.
+
+Kunnat vastustavat toimeentulotuen muuttamista, koska se aiheuttaisi ruuhkaa työvoimapalveluissa.
+
+## Pullovettä myydään enemmän
+
+Seuraavaksi aiheena on pullovesi.
+
+Suomessa pullovettä myydään aiempaa enemmän.
+
+Pullovesiä tekevät yritykset kertovat, että pullovettä myydään nyt kaksi kertaa enemmän kuin kymmenen vuotta sitten.
+
+Samana aikana olutta ja siideriä on myyty paljon vähemmän.
+
+Yksi syy pulloveden myynnin kasvamiselle on aiempaa paremmat usean pullon pakkaukset.
+
+Monet ihmiset myös ostavat mielellään maustettua pullovettä.
+
+Suomessa myydään pullovettä noin 150 miljoonaa litraa vuodessa.
+
+## Robotit kehittyvät nopeasti
+
+Nyt uutinen roboteista.
+
+Robotit kehittyvät nopeasti.
+
+Ihmisiä muistuttavat humanoidirobotit esiintyvät tässä Maailman robottikonferenssissa Pekingissä Kiinassa.
+
+Esimerkiksi tämä kiinalaisen yhtiön valmistama robotti osaa ladata itse itsensä.
+
+Humanoidirobotit ovat vielä kalliita. Myös niiden liikkumista ja tekoälyä pitää vielä kehittää.
+
+Robotteja kehitetään erityisesti Kiinassa ja Yhdysvalloissa.
+
+Yritykset sanovat, että tulevaisuudessa humanoidirobotit voivat auttaa ihmisiä työpaikoilla ja kodeissa.
+
+## Sää
+
+Vielä sääennuste.
+
+Torstaina sää on kesäistä. Lämpötilat nousevat 20 asteen yläpuolella ja voi olla hellettä. Lähes koko maassa on poutaa. Lapissa voi sataa vähän.

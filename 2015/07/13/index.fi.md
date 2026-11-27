@@ -1,0 +1,71 @@
+# Maanantai 13.7.2015
+
+Kreikka-neuvotteluissa tuli sopu. Venäjällä on romahtanut armeijan kasarmi. 2000 lasta on sairastunut Filippiineillä myrkkykaramelleista. Lehmäjoukko on karkuteillä. Sää on sateinen ja viileä.
+
+## Kreikka-neuvotteluissa päästiin sopuun
+
+![Koditonta esittävä graffiti valokuvattuna Ateenassa 11. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8149056)
+
+Avaa kuvien katselu
+
+Ateenalainen graffittitaiteilija on ottanut kantaa kreikkalaisten kurjaan talouteen. Kuva: Aris Messinis / AFP / Lehtikuva
+
+Kreikan lainapaketista on saatu sopimus Brysselissä maanantaiaamuna. Neuvotteluissa on sovittu Kreikan kolmannen lainapaketin ehdoista. Neuvottelut kestivät 17 tuntia. Kreikka säilyy euroalueessa, eli valuuttana pysyy euro.
+
+Euromaiden rahaministerit kuitenkin vaativat Kreikalta paljon. Kreikan parlamentin täytyy vielä tehdä isoja uudistuksia ja muuttaa monia lakeja keskiviikkoon mennessä.  Myös monissa muissa euromaissa parlamenttien täytyy hyväksyä uusi lainaohjelma.
+
+Jos Kreikka ei saa uutta lainaa, sen rahat loppuvat. Kreikka tarvitsee nyt väliaikaista rahoitusta ennen lainapakettia.
+
+## Venäjällä kasarmin romahduksessa kuoli yli 20 ihmistä
+
+![Venäjän kartta, johon merkitty Omskin alue. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8151164)
+
+Avaa kuvien katselu
+
+Armeijan kasarmirakennuksen romahdus koitui 13 sotilaan kuolemaksi Siperiassa, Omskissa. Kuva: Yle Uutisgrafiikka
+
+Venäjän Siperiassa on romahtanut armeijan kasarmirakennus.
+
+Venäjän puolustusministeriö sanoo, että onnettomuudessa kuoli ehkä  23 ihmistä. Rakennus oli laskuvarjojoukkojen tukikohdassa. Rakennuksessa oli yli 330 sotilasta.
+
+Kasarmissa tehtiin vähän aikaa sitten remonttia. Remontissa on ehkä tehty virheitä, ja siksi rakennus romahti.
+
+## Filippiineillä 2000 lasta on sairastunut myrkkykarkeista
+
+![Myrkytyksen aiheuttaneet makeiset oli tehty durianhedelmistä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8147717)
+
+Avaa kuvien katselu
+
+Myrkytyksen aiheuttaneet karkit on tehty durian-hedelmistä. Karkkikauppiaat myivät karamelleja koulujen edustalla. Kuva: Mike F. Alquinto / EPA
+
+Lähes 2 000 ihmistä on sairastunut Filippiineillä myrkkykaramelleista.  Suurin osa on koululaisia. Heillä on vatsakramppeja, oksentelua ja ripulia.
+
+Viranomaiset sanovat, että karkkeihin on ehkä pantu myrkkyä tahallisesti. Myrkkykarkkeja on myyty koulujen ulkopuolella.
+
+Vielä ei tiedetä, kuka tai ketkä ovat panneet myrkkyä karkkeihin. Poliisi on pidättänyt yhdeksän (9) karkkikauppiasta sekä karamellitehtaan omistajan.
+
+## Lehmäjoukko on karkuteillä
+
+![Lehmiä laitumella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7476942)
+
+Avaa kuvien katselu
+
+Lehmät viihtymät yleensä hyvin ulkona latumella. Heinävedellä ehkä karhu pelotti kymmeniä lehmiä niin, että ne karkasivat laitumelta. Kuva: Ville Välimäki / Yle
+
+Itä-Suomessa Heinävedellä 13 lehmää on edelleen kadoksissa. Koko kylä etsii lehmiä.
+
+Lehmät lähtivät pakoon viime tiistaina, kun ne pelästyivät ehkä karhua.  Alueella on tehty karhuhavaintoja.
+
+Aluksi kadoksissa oli 30 lehmää, mutta osa on saatu takaisin. Lehmät olivat hyvässä kunnossa, kun ne löydettiin. Maatilan isäntä ja lehmien omistaja sanoo, että lehmät ovat löytäneet syötävää metsästä. 
+
+## Kesä on ollut harvinaisen sateinen
+
+![Soutuvene sateisen ikkunan takana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8118916)
+
+Avaa kuvien katselu
+
+Sateinen kesä on tehnyt monta kertaa muun muassa veneilystä märkää puuhaa. Samaan aikaan kuin Suomessa on ollut hyvin sateista, Etelä- ja Keski-Euroopassa on ollut normaalia kuivempaa. Kuva: Hanne Kinnunen / Yle
+
+Kesä on ollut hyvin sateinen. Vettä on satanut paikoin paljon normaalia enemmän.
+
+Näin sateista on vain pari kolme kertaa vuosisadassa.

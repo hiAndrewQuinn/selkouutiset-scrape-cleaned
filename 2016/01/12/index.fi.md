@@ -1,0 +1,77 @@
+# Tiistai 12.1.2016 (radio)
+
+Etelässä on kova lumisade. Bensan hinta ei laske. Istanbulissa räjähti. Mihin rasva häviää vartalosta? Näin pukeudut pakkasella.
+
+## Lunta tiellä ja ilmassa
+
+![ Autoja liikenteessä lumimyräkässä Helsingissä tiistaina aikaisin aamulla 12. tammikuuta 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8587740)
+
+Avaa kuvien katselu
+
+Autoja lumipyryssä. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Etelä-Suomessa on tiistaina tosi huono ajokeli.
+
+Lunta sataa paljon ja sitä ei ehditä poistaa kaduilta kovin nopeasti. Autolla täytyy ajaa varovasti. Tiet ovat liukkaita ja niillä on lumikasoja. Autoilijat myös näkevät huonosti, koska lumi pöllyää ilmassa.
+
+Helsingin seudulla on ajettu monta kymmentä kolaria. Kouvolassa sattui kolari, jossa kuoli ihminen.
+
+Junia on kulkenut vähemmän kuin tavallisesti, ja siksi ne ovat olleet täynnä. Etelä-Suomen huono keli jatkuu vielä keskiviikkona.
+
+## Raakaöljy on halpaa mutta bensa kallista
+
+![Raaköljyn hintakehitys vuoden 2014 alusta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8586301)
+
+Avaa kuvien katselu
+
+Raakaöljyn hinta on laskenut paljon. Kuva: Yle Uutisgrafiikka
+
+Bensa ja dieselöljy ovat Suomessa yhä kalliita, vaikka raakaöljyn hinta on laskenut paljon parin vuoden aikana.
+
+Toissa vuonna raakaöljytynnyri maksoi 100 dollaria, nyt se on yli 60 prosenttia halvempaa. Bensan hinta on kuitenkin laskenut Suomessa vain 16 prosenttia.
+
+Öljy-yhtiöt sanovat, että Suomessa bensan ja dieselin hinta ei laske kovin paljon, koska hinnasta 70 prosenttia on veroa.
+
+## 10 kuoli räjähdyksessä
+
+![Ambulanssi ja poliiseja Sultanahmetin aukiolla Istanbulissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8589668)
+
+Avaa kuvien katselu
+
+Turkin poliisi tutkii räjähdyspaikkaa. Kuva: Bulent Kilic / AFP
+
+Istanbulissa Turkissa on tapahtunut räjähdys.
+
+Sultanahmetin aukiolla on kuollut 10 ihmistä, heistä 9 oli saksalaisia turisteja. Aukiolla on tärkeitä Istanbulin nähtävyyksiä kuten Sininen moskeija ja Hagia Sofian museo.
+
+Turkin presidentti sanoo, että räjähdys oli ehkä itsemurhapommi. Presidentti Recep Tayyip Erdogan uskoo, että pommin räjäytti syyrialainen terroristi.
+
+## Minne rasva häviää?
+
+![Läski ei katoa mihinkään -grafiikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8589101)
+
+Avaa kuvien katselu
+
+Läski tarkoittaa vartalon rasvaa. Kuva: Laura Merikalla / Yle Uutisgrafiikka
+
+Tammikuussa moni suomalainen päättää laihduttaa.
+
+Vartalon rasva palaa, jos liikkuu paljon. Kun rasva palaa, se tulee ihmisestä ulos hengityksessä ja hiessä. 80 prosenttia rasvasta muuttuu hiilidioksidiksi ja tulee ulos hengityksen mukana. 20 prosenttia rasvasta muuttuu vedeksi ja tulee ulos, kun ihmisellä on hiki.    
+
+Kun ihminen laihtuu, vartalon rasvasolut tyhjenevät. Jos syö paljon, rasvasolut täyttyvät helposti uudelleen.      
+
+## Lämmintä päälle
+
+![Yle Oulun toimittaja Kati Jurkko esittelee lämpimiä asuja eri talvikeleille.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8579522)
+
+Avaa kuvien katselu
+
+Kati Jurkko pukeutuu lämpimästi. Kuva: Antti Pylväs / Yle
+
+Ulkona pärjää myös talvella, jos pukee päälle lämpimät vaatteet.
+
+Yle Oulun toimittajat tekivät nettiin videon, jossa näytetään, miten talvella kannattaa pukeutua. Videolla Kati Jurkko näyttää, kuinka paljon ja millaisia vaatteita kannattaa laittaa päälle, jos pakkasta on 5, 15 tai 30 astetta.
+
+Videon on katsonut jo yli miljoona ihmistä. Video löytyy tästä:
+
+Toimittaja Kati Jurkko opastaa pukeutumaan eri lämpötiloissa. Kuva: Antti Pylväs / Yle

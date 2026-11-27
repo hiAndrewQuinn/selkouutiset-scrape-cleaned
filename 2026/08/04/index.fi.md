@@ -1,0 +1,59 @@
+# Selkouutiset | tiistai 4.8.2026
+
+Budjetti. Omaishoitajat. Kotieläinpihat. Sää
+
+## Suomen ensi vuoden budjetista ehdotus
+
+Aloitamme uutisella Suomen valtion budjetista.
+
+Rahaministeriö alkoi neuvotella tänään Suomen budjetista vuodelle 2027.
+
+Rahaministeriö tekee hallitukselle ehdotuksen siitä, miten Suomen valtio käyttää rahaa ensi vuonna.
+
+Rahaministeri **Riikka Purra** sanoo, että Suomi joutuu ottamaan velkaa 13 miljardia euroa.
+
+Suomi joutuu ottamaan paljon velkaa, koska valtiolla ei ole rahaa kaikkiin tärkeisiin menoihin.
+
+Tänään alkoivat neuvottelut Suomen valtion ensi vuoden budjetista.
+
+Purra sanoo, että hallitus ei ehdota uusia säästöjä ensi vuodelle. Hallitus kertoi säästöistä jo keväällä.
+
+## Moni vanhus on omaishoitaja
+
+Seuraavaksi uutinen vanhusten hoidosta kotona.
+
+Moni vanhus hoitaa omaa, vanhaa puolisoa. He ovat omaishoitajia, koska julkista kotihoitoa on vaikea saada.
+
+Suurin osa omaishoitajista on naisia, jotka ovat eläkkeellä.
+
+93-vuotias **Helka Kivelä** on omaishoitaja. Hän hoitaa kotona miestään Jussia.
+
+Kivelä on ollut omaishoitaja lähes 10 vuotta. Kotihoito käy auttamassa Kivelän kotona kolme kertaa viikossa. Kivelän tyttäret auttavat isän hoitamisessa.
+
+Moni vanhus hoitaa omaa, vanhaa puolisoa.
+
+Helka Kivelä sanoo, että välillä miehen hoitaminen on raskasta.
+
+## Kotieläintilat ovat suosittuja matkakohteita
+
+Lopuksi kerromme suositusta matkailukohteesta.
+
+Moni suomalainen haluaa käydä kesälomalla maatilalla, jossa on kotieläimiä.
+
+Suomessa on jo 200 kotieläinpihaa. Niissä voi tutustua maatilan eläimiin, kuten vuohiin, kanoihin ja lampaisiin.
+
+Pieksämäellä on maatila, jossa voi käydä katsomassa tosi harvinaisia kotieläimiä.
+
+Vesipuhvelipuistossa vesipuhvelit syövät ja tallovat rantakaislikkoa. Se parantaa järven vettä.
+
+– Ihana, kun ne tuli tohon lähelle ja tosi pitkään oli tossa. Sai aika läheltäkin kattoo. Pääs vähän kattomaan, miten ne laumassa käyttäytyy ja vähän leikkivätkin keskenään ja muuta.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää vaihtelee.
+
+Lännessä sataa. Muualla on enemmän poutaa eli ei sada.
+
+Lämpötilat ovat enimmäkseen alle 20 astetta.

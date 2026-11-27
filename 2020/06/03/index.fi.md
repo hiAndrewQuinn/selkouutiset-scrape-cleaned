@@ -1,0 +1,79 @@
+# Keskiviikko 3.6.2020 (radio)
+
+Hallitus tukee Suomen taloutta koronakriisin takia. Uusia koronatartuntoja ja kuolemantapauksia on Suomessa vähän. Helsingissä on järjestetty mielenosoitus rasismia vastaan. Thaimaalaiset marjanpoimijat eivät pääse tänä kesänä Suomeen. VR lopettaa lipunmyynnin kaukojunissa.
+
+## Tukea taloudelle
+
+![Opetusministeri Li Andersson, valtiovarainministeri Katri Kulmuni, pääministeri Sanna Marin, sisäministeri Maria Ohisalo ja oikeusministeri Anna-Maja Henriksson poistumassa hallituksen neljännen lisätalousarvioesityksen tiedotustilaisuudesta Helsingissä, 2. kesäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11382967)
+
+Avaa kuvien katselu
+
+Ministerit kertoivat uusista tukitoimista tiistaina. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Hallitus tukee Suomen taloutta koronakriisin takia. Hallitus lupaa 5,5 miljardia euroa uutta tukirahaa, jotta Suomi ja suomalaiset selviävät koronakriisistä.
+
+Rahaa käytetään esimerkiksi lasten ja nuorten hyväksi. Lapsille halutaan tarjota esimerkiksi ilmaisia harrastuksia.
+
+Nuorten tilanne paranee, kun esimerkiksi korkeakouluihin tulee yli 4000 uutta aloituspaikkaa.
+
+Hallitus aikoo auttaa myös kuntia, joilla on talousvaikeuksia koronan takia. Ilman valtion tukea kuntien on nyt vaikea hoitaa ihmisten palveluja.
+
+Hallitus jakaa paljon tukea koronakriisin takia. Siksi Suomen valtionvelka kasvaa tänä vuonna paljon.
+
+## Suomen koronatilanne
+
+![THL:n kyltti Mannerheimintiellä Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_339/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6782375ec3516ecc544/1618662483)
+
+Avaa kuvien katselu
+
+Terveyden ja hyvinvoinnin laitos eli THL kertoi keskiviikkona yhdestä uudesta koronakuolemasta. Kuva: Tiina Jutila / Yle
+
+Suomen koronatilanne on edelleen hyvä. Uusia tartuntoja ja kuolemantapauksia on vain vähän.
+
+Keskiviikkona Terveyden ja hyvinvoinnin laitos eli THL kertoi yhdestä uudesta kuolemantapauksesta, jonka syy on koronavirus. Yhteensä 321 ihmistä on kuollut Suomessa koronan takia.
+
+Noin 6900 ihmistä on saanut Suomessa koronatartunnan.
+
+## Mielenosoitus Helsingissä
+
+![Helsingin Senaatintorilla järjestettävä rasismia vastustava mielenosoitus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11383467)
+
+Avaa kuvien katselu
+
+MIelenosoittajia Helsingissä. Kuva: Silja Viitala / Yle
+
+Helsingissä on järjestetty mielenosoitus rasismia vastaan. Rasismia vastaan protestoidaan nyt eri puolilla maailmaa.
+
+Protestit alkoivat USA:sta. Protestien syy on tummaihoisen George Floydin kuoleman. Floyd kuoli poliisin väkivallan takia.
+
+Monet amerikkalaiset suuttuivat, koska poliisi kohtelee heidän mielestään mustia huonommin kuin valkoisia.
+
+Nyt rasismin vastaiset mielenosoitukset ovat levinneet Helsinkiin saakka.
+
+## Thaimaalaiset marjanpoimijat
+
+![Thaimaalaiset marjanpoimijat kantavat marjasankoja metsässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6777416)
+
+Avaa kuvien katselu
+
+Marjat voivat jäädä metsään, koska thaimalaisia poimijoita ei tule tänä kesänä Suomeen. Kuva: Antti Kolppo / Yle
+
+Thaimaalaisia marjanpoimijoita ei tule tänä kesänä Suomeen. Syynä on se, että Thaimaa ei anna marjanpoimijoille lupaa lähteä Suomeen.
+
+Thaimaalaiset marjanpoimijat ovat tärkeitä Suomen marjafirmoille. Thaimaalaiset ovat poimineet Suomessa metsämarjoja, esimerkiksi mustikoita ja puolukoita.
+
+Nyt marjafirmat ovat vaikeuksissa. Niiden pitää miettiä, miten suomalaiset metsämarjat saadaan tänä vuonna talteen.
+
+## Kaukojunien lipunmyynti
+
+![Pendolino junaradalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10366536)
+
+Avaa kuvien katselu
+
+Kaukojunissa ei kohta enää myydä lippuja. Kuva: Soile Laaksonen / VR Group
+
+VR lopettaa lipunmyynnin kaukojunissa. Lipunmyynti loppuu kesäkuun 15. päivä.
+
+Syynä on koronatilanne. VR ei halua, että kaukojunat ovat ruuhka-aikana liian täynnä.
+
+Matkustajat voivat ostaa lippuja kaukojuniin netistä ja R-kioskeilta. Ensi viikolla VR avaa myös lipunmyyntipisteet Helsingissä ja Tampereella.

@@ -1,0 +1,79 @@
+# Radio Selkouutiset torstai 29.6.2023
+
+EU-kokous. Asuntojen hinnat. Yksinäisyys. Madonna. Sää.
+
+## EU-kokous
+
+![Petteri Orpo puhuu, edessä toimittajien mikrofoneja.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_534/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136150649d5f040537c/1688035226)
+
+Avaa kuvien katselu
+
+Pääministeri Petteri Orpo Brysselissä. Kuva: Lehtikuva / AFP / John Thys
+
+Suomen pääministeri Petteri Orpo on osallistunut EU-maiden johtajien kokoukseen Brysselissä.
+
+EU-maiden johtajat ovat keskustelleet esimerkiksi siitä, miten Euroopan unioni voi tukea Ukrainaa. Venäjän sota Ukrainassa jatkuu.
+
+EU haluaa vahvistaa Ukrainan turvallisuutta, jotta Ukrainaan ei enää tulevaisuudessa hyökätä. Pääministeri Orpo sanoo, että EU pohtii turvallisuuslupausta Ukrainalle.
+
+## Asuntojen hinnat
+
+![Kiinteistönvälittäjä esittelee myynnissä olevaa kerrostaloasuntoa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_522/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105859063c00b5acee53/1673531178)
+
+Avaa kuvien katselu
+
+Vanhojen asuntojen hinnat ovat laskeneet. Kuva: Henrietta Hassinen / Yle
+
+Asuntojen hinnat ovat laskeneet.
+
+Eniten ovat laskeneet vanhojen asuntojen hinnat Helsingin seudulla. Ne olivat toukokuussa melkein 10 prosenttia halvempia kuin vuosi sitten.
+
+Asuntojen hinnat ovat laskeneet myös muualla Suomessa, mutta vähemmän kuin Helsingin seudulla.
+
+Vanhoja kerrostaloasuntoja ja rivitaloasuntoja on myös myyty vähemmän kuin ennen. Toukokuussa kauppoja tehtiin noin 30 prosenttia vähemmän kuin ennen.
+
+## Yksinäisyys
+
+![Anonyymi hahmo seisoo järven rannalla selkä päin, huppu päässä, etualalla koivuja.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_191/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1134455649955ad43e5d/1687770704)
+
+Avaa kuvien katselu
+
+Moni suomalainen on yksinäinen. Kuva: Terhi Liimu / Yle
+
+Yksinäisiä ihmisiä on enemmän kuin ennen. Näin kertoo Turun yliopiston tutkimus.
+
+Viime vuonna jo noin 20 prosenttia suomalaisista koki, että on yksinäinen. Yksinäisyys on lisääntynyt korona-aikana ja myös korona-ajan jälkeen.
+
+Eniten on kasvanut alle 30-vuotiaiden yksinäisyys. Erityisesti opiskelijat, työttömät ja yksinhuoltajat ovat yksinäisiä.
+
+## Madonna
+
+![Madonna esiintymislavalla vuonna 2015.](https://img.img-cdn.yle.fi/crop_extract,w_3510,h_1974,x_0,y_148/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5035045b7554415e8f1/1534415961)
+
+Avaa kuvien katselu
+
+Madonnan ura on kestänyt jo yli 40 vuotta. Kuva: AOP
+
+Laulaja ja poptähti Madonnan maailmankiertue siirtyy. Syy on se, että Madonna on sairas.
+
+Madonna oli tehohoidossa monta päivää, koska hänellä on bakteeri-infektio. Madonna voi jo vähän paremmin, mutta hän on vielä sairaalassa.
+
+Madonna aikoi aloittaa maailmankiertueen heinäkuussa. Maailmankiertueen piti alkaa Kanadasta.
+
+Maailmankiertueella Madonna juhlii omaa laulajan uraa, joka on jatkunut jo yli 40 vuotta. Amerikkalainen Madonna on 64-vuotias.
+
+## Sää
+
+![Perjantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136270649d8054d50e7/1688043652)
+
+Avaa kuvien katselu
+
+Perjantaina idässä ja maan keskivaiheilla tulee sade- ja ukkoskuuroja.
+
+Lämpötila on perjantaina 23-28 astetta, sateessa ja pohjoisessa on paikoin viileämpää.
+
+Lauantaina etelässä sataa vettä ja sää viilenee. Lämpötila on noin 17 astetta.
+
+Pohjoisessa on lauantaina aurinkoista ja lämpötila on vähän yli 20 astetta.
+
+Viikko vaihtuu sateisessa säässä, ja ensi viikolla sää on kylmempää kuin nyt.

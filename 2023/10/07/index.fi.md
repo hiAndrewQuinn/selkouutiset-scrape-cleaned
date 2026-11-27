@@ -1,0 +1,69 @@
+# Radio | Selkouutiset | lauantai 7.10.2023
+
+Israelin ja Hamasin taistelut. Syysmyrsky. Sisäministeri Rantanen. Sää.
+
+## Israel ja Hamas
+
+![Savu nousee räjähdyksen jälkeen israelilaisesta kaupungista.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_498/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11827296520f55674d8d/1696688592)
+
+Avaa kuvien katselu
+
+Hamas teki Israeliin raketti-iskuja. Kuva: Abir Sultan / EPA
+
+Israelissa taistellaan. Palestiinalaisten äärijärjestö Hamas on hyökännyt Israeliin.
+
+Israeliin on ammuttu paljon raketteja Gazan kaistan alueelta. Gazan kaista on Israelin ja Egyptin rajalla.
+
+Palestiinalaisten äärijärjestö Hamas sanoo, että se ampui raketit. Raketti-iskuissa on kuollut ja loukkaantunut paljon israelilaisia.
+
+Israel on puolestaan aloittanut raketti-iskut Gazaan Hamasia vastaan. Israelin pääministeri Benjamin Netanjahu sanoo, että Israel on nyt sodassa.
+
+Euroopan maat eivät hyväksy Hamasin hyökkäystä. Myös Suomen presidentti Sauli Niinistö ja ulkoministeri Elina Valtonen tuomitsevat iskut Israelia vastaan.
+
+Israelilaisten ja palestiinalaisten välit ovat olleet huonot jo kauan. Edellisen kerran palestiinalaisten äärijärjestö Hamas ja Israel sotivat vuonna 2021. Silloin sota kesti 11 päivää.
+
+## Suomalaiset Israelissa
+
+Suomen ulkoministeriö on antanut neuvoja suomalaisille, jotka ovat Israelissa. Israelissa asuu noin 1000 suomalaista.
+
+Ulkoministeriö sanoo, että suomalaisten on hyvä seurata Israelin viranomaisten ohjeita. Heidän kannattaa myös tehdä matkustusilmoitus Suomen viranomaisille.
+
+## ­Syysmyrsky
+
+![Vesi noussut myrskyn seurauksena Helsingin Pikku Huopalahdella pyörätielle.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_352/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-118276665211fda5fdde/1696669818)
+
+Avaa kuvien katselu
+
+Syysmyrsky toi kaduille vettä. Kuva: Esa Syväkuru / Yle
+
+Suomessa on ollut syysmyrsky. Tuuli on puhaltanut kovaa ja vettä on satanut eri puolilla Suomea.
+
+Syysmyrsky katkaisi sähköt monilta kodeilta. Perjantain ja lauantain välisenä yönä jopa 30 000 kotia oli ilman sähköä.
+
+Syysmyrsky on myös kaatanut puita. Pelastuslaitokset ovat raivanneet puita pois esimerkiksi maanteiltä.
+
+Syysmyrskyn takia on lisäksi peruttu laivavuoroja. Peruutukset ovat vaikuttaneet laivaliikenteeseen Suomen ja Ruotsin sekä Suomen ja Viron välillä.
+
+## Sisäministeri Rantanen
+
+![Sisäministeri Mari Rantanen.](https://img.img-cdn.yle.fi/crop_extract,w_5202,h_2926,x_0,y_333/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1182800652140226fa17/1696677991)
+
+Avaa kuvien katselu
+
+Sisäministeri Mari Rantanen oli Ylen haastattelussa lauantaina. Kuva: Petteri Bülow / Yle
+
+Sisäministeri Mari Rantanen kehuu Suomen poliisia. Rantanen luottaa poliisiin taistelussa katujengejä ja huumerikollisia vastaan.
+
+Tällä viikolla Suomen poliisi esti ruotsalaisten rikollisten yrityksen tuoda Suomeen huumeita. Sisäministeri Rantasen mielestä poliisi näytti Ruotsin rikollisille, että Suomeen ei kannata tulla.
+
+Suomessa on puhuttu paljon Ruotsin rikollisjengeistä. Suomi haluaa estää sen, että ne alkavat tuoda huumeita myös Suomeen.
+
+## Sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-118283465216bce460f3/1696689135)
+
+Avaa kuvien katselu
+
+Sateet loppuvat sunnuntaina. Pohjoistuuli on kuitenkin vielä kovaa. Lämpötila on 2-8 astetta.
+
+Maanantaina tuuli heikkenee, mutta sää on edelleen kylmä. Lämpötila on 0-8 astetta.

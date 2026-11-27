@@ -1,0 +1,69 @@
+# Maanantai 28.8.2017 (radio)
+
+Suomen ja Yhdysvaltain presidenttien tapaaminen. Poliisi selvitti Turun puukottajaepäillyn oikean nimen. Sairaanhoitajaa epäillään 86 murhasta. Kukkakaalin hinta laski tosi alas. Viljat kypsyvät myöhässä.
+
+## Suomen presidentti Washingtonissa Trumpia tapaamassa
+
+![Trump tervehtii sotilasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9800996)
+
+Avaa kuvien katselu
+
+Presidentti Trump aikaisti Suomen presidentin tapaamista Texasin hirmumyrskyn vuoksi.  Kuva: Alex Edelman / EPA
+
+Presidentti Sauli Niinistö on tapaamassa USA:n presidenttiä Donald Trumpia Washingtonissa. Niinistön piti tavata Yhdysvaltain presidentti vasta huomenna tiistaina mutta tapaaminen siirrettiin maanantaille. Syynä on Texasin hurrikaani Harvey, jonka tuhoja Trump menee katsomaan huomenna tiistaina.
+
+Suomen ja Yhdysvaltain presidentin tapaaminen on harvinaista. Viimeksi presidentit tapasivat kahden kesken 15 vuotta sitten.
+
+Presidentti Niinistö sanoi ennen tapaamista, että hän haluaa puhua Trumpin kanssa ainakin Itämerestä.
+
+## Mechkah on oikeasti Bouanane
+
+![mies sairaalan vuoteessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9792195)
+
+Avaa kuvien katselu
+
+Abderrahman Bouanane on esiintynyt Suomessa nimellä Mechkah.  Kuva: Martti Kainulainen / Lehtikuva
+
+Poliisi on julkistanut Turun puukotusten pääepäillyn oikean nimen. Viranomaiset ovat kertoneet, että puukotuksista epäillään marokkolaista Abderrahman Bouananea.
+
+Bouanane on väittänyt, että hän on Abderrahman Mechkah. Poliisi teki kuitenkin yhteistyötä muiden maiden poliisien kanssa ja sai selville oikean nimen.
+
+22-vuotias Bouanane puukotti Turussa 10 ihmistä reilu viikko sitten. Kaksi ihmistä kuoli.
+
+## Sairaanhoitajaa syytetään 86 murhasta
+
+![Useista murhista syytetty Niels Högel (vas.) kuvattuna oikeussalissa Oldenburgissa asianajajansa Ulrike Baumannin vieressä 22. tammikuuta 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9800974)
+
+Avaa kuvien katselu
+
+Saksalainen mieshoitaja on saanut tuomion jo kahdesta murhasta. Nyt epäillään, etä murhia on ollut ainakin 86. Kuva: Carmen Jaspersen / EPA
+
+Saksan poliisi epäilee, että sairaanhoitaja on tappanut ainakin 86 potilasta. Lisäksi poliisi arvelee, että uhreja voi olla vielä paljon enemmän. Mies on saanut tuomion jo kahdesta potilasmurhasta.  
+
+Sairaanhoitaja on sanonut, että hän antoi joillekin potilaille liikaa sydänlääkettä, jotta hän voi pelastaa potilaat. Sairaanhoitaja teki niin, koska hän halusi työkavereilta arvostusta.
+
+## Kukkakaali on nyt halpa herkku
+
+![Antibioottikuurin jälkeen suolisto kaipaa terveellistä ja monipuolista ravintoa. Varsinkin parsakaalissa on paljon suolistoa suojaavaa ainetta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7868385)
+
+Avaa kuvien katselu
+
+Kukkakaali voi olla aika kallista mutta tänä vuonna hinta on ollut jopa alle euron kilo. Kuva: Arja Lento / Yle
+
+Kukkakaali on ollut nyt kaupassa tosi halpaa. Kukkakaalin hinta laski paljon, koska sitä tuli myyntiin liikaa yhdellä kertaa.
+
+Syy on kesän säässä. Alkukesä oli kylmä ja kasvu oli hidasta. Sen takia kukkakaalin kypsyminen myyntiin pikkuhiljaa ei onnistunut vaan kaikki kukkakaalit kypsyivät samaan aikaan. Sitten kilohinta laski alle euron.
+
+Sosiaalisessa mediassa alkoi kampanja kukkakaalin syömiseksi. Näyttää siltä, että kampanja on tehonnut. Suuret kauppaketjut kertovat, että kukkakaalin myynti on lisääntynyt selvästi.
+
+## Viljat kypsyvät myöhässä
+
+![puimuri kaurapellolla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9128184)
+
+Avaa kuvien katselu
+
+Puimurit ovat olleet vielä aika harvinainen näky suomalaisilla pelloilla.  Kuva: Katja Halinen / Yle
+
+Viljojen korjaaminen on myöhässä viileän sään takia. Asiantuntijat kertovat, että viljat eivät ole kypsyneet normaaliin aikaan.
+
+Puimureita on nähty pelloilla vielä melko vähän. Viljojen kypsyminen on myöhässä viikon tai kahden viikon verran viime vuosiin verrattuna.

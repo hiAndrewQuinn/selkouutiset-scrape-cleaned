@@ -1,0 +1,95 @@
+# Keskiviikko 19.7.2017 (radio)
+
+Yksi ihminen kuoli lentokoneonnettomuudessa. Venäjän presidentti Vladimir Putin tulee Suomeen ensi viikolla. Helsingin Vuosaaressa hoitajilla on aikaa vanhuksille. Poliisi on löytänyt Suomesta vääriä seteleitä. Suomalainen luottaa palomieheen. Aleksi Ojala kävelee nopeammin kuin toiset juoksevat.
+
+## Lento-onnettomuus
+
+![Laukaa kartalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9730540)
+
+Avaa kuvien katselu
+
+Onnettomuus tapahtui Laukaassa, Jyväskylän lähellä. Kuva: Yle Uutisgrafiikka
+
+Yksi ihminen on kuollut lentokoneen onnettomuudessa.
+
+Pieni lentokone putosi keskiviikkona Laukaassa, Keski-Suomessa. Lentokoneessa oli vain yksi ihminen.
+
+Onnettomuuden syytä ei vielä tiedetä. Poliisi tutkii asiaa.
+
+## Venäjän presidentti
+
+![Sauli Niinistö ja Vladimir Putin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8999307)
+
+Avaa kuvien katselu
+
+Putin vieraili Suomessa myös viime kesänä. Kuva: Mikhail Metzel / TASS / AOP
+
+Venäjän presidentti Vladimir Putin tulee Suomeen ensi viikolla. Putin vierailee Savonlinnassa.
+
+Putin tapaa Suomessa presidentti Sauli Niinistön. Presidentit keskustelevat ajankohtaisista asioista.
+
+Lisäksi presidentit käyvät Savonlinnan Oopperajuhlilla. He katsovat oopperan, jonka esittää venäläinen Bolshoi-teatteri.
+
+## Hyvä hoito
+
+![Lähihoitaja Leila Kantanen katsoo vierestä kun Sirkka Arola ruokailee kotonaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9727307)
+
+Avaa kuvien katselu
+
+Lähihoitaja Leila Kantasella on aikaa Sirkka Arolan luona Vuosaaressa. Kuva: Kari Ahotupa / Yle
+
+Vanhusten hoitajilla on usein kiire.
+
+Helsingin Vuosaaressa tilanne on parempi. Hoitajilla on aikaa vanhuksille, koska he tekevät työtä 9 tuntia päivässä. Pitempi työpäivä vähentää kiirettä, ja vapaapäiviä on enemmän.
+
+Hoitajat ja vanhukset ovat tyytyväisiä kokeiluun. Siksi myös muualla Helsingissä harkitaan pitempää työpäivää vanhusten hoitajille.
+
+## Väärät setelit
+
+![50 euron näyteseteli, jossa on merkintä sen kelpaamattomuudesta maksuvälineeksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9730146)
+
+Avaa kuvien katselu
+
+Teksti "invalid" kertoo, että seteli ei ole oikea. Kuva: Itä-Suomen poliisilaitos
+
+Poliisi on löytänyt Suomesta vääriä seteleitä.
+
+Itä-Suomessa on liikkunut vääriä 50 euron seteleitä. Seteleitä on käytetty esimerkiksi ravintoloissa.
+
+Poliisi otti kiinni 3 nuorta miestä Kuopiossa. Miehillä oli vääriä seteleitä.
+
+Poliisi sanoo, että setelit näyttävät oikeilta. Setelit on kuitenkin tilattu ulkomailta internetin kautta.
+
+Seteleissä on sana "invalid". Se kertoo, että seteli ei ole oikea.
+
+Poliisi on löytänyt vääriä seteleitä myös Turusta. Siellä on liikkunut vääriä 100 euron seteleitä.
+
+## Luotettava palomies
+
+![Palomies](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9728675)
+
+Avaa kuvien katselu
+
+Palomies on suomalaisen mielestä luotettava. Kuva: Fredrika Sundén / Yle
+
+Suomalainen luottaa palomieheen.
+
+Valitut Palat -lehti kysyi lukijoilta, minkä ammatin työntekijöihin he luottavat. Tulos on, että suomalaiset luottavat eniten palomieheen ja apteekkityöntekijään.
+
+Vähiten suomalaiset luottavat puhelinmyyjään. Myös poliitikkoon luotetaan vain vähän.
+
+## Nopea kävelijä
+
+![Aleksi Ojala ohittaa juoksijan kävellen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9726115)
+
+Avaa kuvien katselu
+
+Aleksi Ojala kävelee juoksijan ohi.
+
+Kävelijä on hitaampi kuin juoksija. Niin on tavallisesti, mutta ei aina.
+
+Aleksi Ojala on mies, joka kävelee nopeammin kuin tavallinen ihminen juoksee. Ojala on kilpakävelijä.
+
+Kun Ojala on lenkillä, juoksijat ovat ihmeissään. He eivät ymmärrä, miten joku voi kävellä ohi.
+
+Monet eivät pysty edes pyöräilemään yhtä kovaa vauhtia kuin Ojala kävelee. Ojalan nopeus voi olla jopa yli 20 kilometriä tunnissa.

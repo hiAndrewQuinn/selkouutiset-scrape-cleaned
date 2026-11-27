@@ -1,0 +1,59 @@
+# Sunnuntai 24.11.2019 (radio)
+
+Postin työriita ei ratkennut. Maanantaina alkaa monta tukilakkoa, jotka haittaavat liikennettä. Suomessa käteismaksu kelpaa yhä. Autoliitto arvostelee peltipoliisien sijoittelua.
+
+## Postin työriita
+
+![Posti- ja logistiikka-alan unioni PAU:n puheenjohtaja Heidi Nieminen ja Palvelualojen työnantajat Palta ry:n toimitusjohtaja Tuomas Aarto jatkoivat postilakon sovittelua valtakunnansovittelijan toimistolla Helsingissä sunnuntaina 24. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11084731)
+
+Avaa kuvien katselu
+
+Postin työriitaa soviteltiin koko viikonloppu. Vasemmalla PAU.n puheenjohtaja Heidi Nieminen ja oikealla Paltan toimitusjohtaja Tuomas Aarto. Kuva: Seppo Samuli / Lehtikuva
+
+Postin työriita ei ole ratkennut viikonlopun neuvotteluissa.
+
+Eilen annettiin ratkaisuehdotus kiistaan, joka koskee pakettilajittelijoita. Ratkaisuehdotus oli muiden mielestä hyvä, mutta Medialiitto ei hyväksynyt sitä. Medialiitto edustaa työnantajaa.
+
+Koska kiista pakettilajittelijoista ei ratkennut, työntekijäjärjestö PAU hylkäsi vuorostaan valtakunnansovittelijan ehdotuksen uudesta työehtosopimuksesta.
+
+![Busseja ja matkustajia Elielinaukiolla Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11084569)
+
+Avaa kuvien katselu
+
+Tukilakko pysäyttää pääkaupunkiseudun bussiliikenteen vuorokaudeksi. Kuva: Ryhor Bruyeu / AOP
+
+Koska sopua ei syntynyt, postilakko jatkuu edelleen. Huomenna maanantaina alkaa myös monta uutta lakkoa, joilla halutaan tukea postin työntekijöitä.
+
+Tukilakkojen takia Finnair peruu noin 300 lentoa tältä päivältä ja huomiselta. Myös pääkaupunkiseudun bussiliikenne pysähtyy vuorokaudeksi. Lisäksi satamiin jäävät ne laivat, jotka purjehtivat Suomen lipun alla .
+
+## Käteismaksut
+
+![Jone Salmela, ravintolapäällikkö, O&#39;Learys Tripla](https://img.img-cdn.yle.fi/crop_extract,w_5034,h_2832,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6117635dcd3b2621ed2/1574594290)
+
+Avaa kuvien katselu
+
+Ravintola O'Learys Helsingin Triplassa ei ota vastaan käteistä rahaa, kertoo ravintolapäällikkö Jone Salmela Kuva: Markku Pitkänen / Yle
+
+Suomessa käteinen raha kelpaa vielä maksuvälineeksi lähes kaikkialla.
+
+Matkailu- ja ravintola-ala ja Kaupan liitto kertovat, että meillä vain harvat kaupat ja ravintolat ovat luopuneet käteismaksun käytöstä.
+
+Ruotsissa ja Norjassa käteistä rahaa käytetään paljon vähemmän kuin Suomessa. Ruotsissa on myös tavoitteena, että käteisestä rahasta luovutaan kokonaan joskus tulevaisuudessa.
+
+Myös Suomessa maksaminen kortilla tai mobiililaitteella yleistyy nopeasti. Kuitenkin 10 prosenttia suomalaisista käyttää edelleen vain käteistä rahaa.
+
+Suomen Pankin mielestä on tärkeää, että ihminen voi käyttää myös käteistä. Käteistä rahaa tarvitsevat esimerkiksi vanhukset ja lapset.
+
+## Peltipoliisit
+
+![Ensimmäinen uusi peltipoliisi nelostielle nousi Sysmän Onkiniemeen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10665368)
+
+Avaa kuvien katselu
+
+Peltipoliisi kuvaa autot, jotka ajavat ylinopeutta. Kuva: Markku Lähdetluoma / Yle
+
+Autoliitto sanoo, että liiikenteen nopeusvalvontakameroiden eli peltipoliisien sijoituspaikkoja pitää miettiä tarkemmin. Autoliiton mielestä kameroiden sijoittelussa pitää ottaa paremmin huomioon liikenneturvallisuus.
+
+Kameroita on nyt laitettu paikkoihin, joissa autoilija voi vahingossa ajaa ylinopeutta vähän aikaa, mutta liikenneturvallisuus ei siitä vaarannu.
+
+Autoliiton mielestä Suomen pitää ottaa mallia Ruotsista. Ruotsissa valvontakamerat ovat tunnetuissa vaaranpaikoissa. Vähän ennen kameraa tienvarressa on kilpi, joka kertoo kameravalvonnasta. Kun autoilijat näkevät kilven, he hiljentävät vauhtia. Näin valtion sakkotulot pienenevät, mutta liikenneturvallisuus paranee, Autoliitto sanoo.

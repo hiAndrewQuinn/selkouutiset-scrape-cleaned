@@ -1,0 +1,97 @@
+# Lauantai 9.5.2020 (radio)
+
+Tänään on Eurooppa-päivä. Suomalaisten EU-myönteisyys on laskenut. Koronavirus leviää hitaasti Suomessa. Suomen koronatartunnat. Korona aiheuttaa stressiä. Lapissa voi sataa lunta.
+
+## 9.5. on Eurooppa-päivä
+
+![EU-ilmapalloja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10799151)
+
+Avaa kuvien katselu
+
+Euroopan Unioni sai alkunsa 70 vuotta sitten. Kuva: Karoliina Simoinen / Yle
+
+Tänään on vietetty Eurooppa-päivää.
+
+Euroopan unioni sai alkunsa 70 vuotta sitten. Silloin Ranskan ulkoministeri antoi julistuksen, että Euroopan maat voisivat tehdä yhteistyötä hiilen ja teräksen tuotannossa.
+
+Suomi on ollut Euroopan Unionin jäsenmaa vuodesta 1995.
+
+## Suomalaisten EU-myönteisyys on vähentynyt
+
+![Kirjakoju kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10776223)
+
+Avaa kuvien katselu
+
+Suomalaisten EU-myönteisyys on laskenut hieman. Kuva: Maija Salmi
+
+Näyttää siltä, että koronapandemia on vaikuttanut siihen, miten suomalaiset suhtautuvat Euroopan unioniin
+
+Suomalaisten EU-myönteisyys on vähentynyt.
+
+EU- jsenyyteen suhtautuu myönteisesti yli 50 prosenttia ja kielteisesti 20 prosenttia suomalaisista.
+
+Tutkimuksen teki yritysten järjestö Elinkeinoelämän keskusliitto. Se arvioi, että todennäköisesti selitys muutokselle on se, että EU-maiden yhteistyö ollut vähän huonoa koronapandemian aikana.
+
+## Koronavirus leviää hitaasti Suomessa
+
+![ihmisiä jonottamassa kahvia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11336306)
+
+Avaa kuvien katselu
+
+Ihmiset muistavat pitää turvavälin, kun he jonottavat kahvilaan. Kuva: Marja Väänänen / Yle
+
+Terveysviranomaiset sanovat, että koronavirus on levinnyt Suomessa paljon vähemmän kuin on arvioitu. Terveysviranomaiset tekevät koko ajan erilaisia arvioita siitä, miten koronavirus leviää Suomessa.
+
+Nyt näyttää siltä, että arviot ovat olleet vääriä.
+
+Koronan leviämistä tutkitaan vasta-ainetesteillä. Vasta-ainetestien mukaan tartuntoja on Suomessa todella vähän.
+
+Terveysviranomaisten arviot viruksen leviämisestä eivät ehkä ole ihan realistisia.
+
+Arvioiden tekeminen on vaikeaa, terveysviranomaiset sanovat.
+
+Arvioita täytyy kuitenkin tehdä, jotta Suomen hallitus voi tehdä päätöksiä koronarajoituksista.
+
+## Koronavirukseen on kuollut 265 ihmistä
+
+![ Terveyspalveluyritys Mehiläisen koronaviruksen drive-in-testausasema Espoossa 18. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11285786)
+
+Avaa kuvien katselu
+
+Tässä tehdään drive-in-koronavirustesti. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Suomessa on nyt virallisesti melkein 5900 koronavirustartuntaa.
+
+Koronaviruksen takia on Suomessa kuollut 265 ihmistä.
+
+## Korona aiheuttaa stressiä
+
+![Kuvassa kolme aikuista ja neljä lasta. Kuva on otettu Schipholin lentokentällä Hollannissa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11334179)
+
+Avaa kuvien katselu
+
+Suomalaiset vanhemmat murehtivat sitä, miten he selviävät koronaepidemiasta pienten lasten kanssa. Kuva: AOP
+
+Tutkijat tekevät kansainvälistä tutkimusta siitä, miten koronapandemia vaikuttaa ihmisiin.
+
+Suomalaiset ovat kertoneet, että he murehtivat kansantaloutta, yksinäisyyttä ja pienten lasten kanssa selviytymistä.
+
+Tutkimusta tehdään 50 eri maassa.
+
+Se jatkuu niin kauan kuin koronapandemia jatkuu.
+
+## Kevät etenee hitaasti
+
+![Kirkkaankeltainen voikukka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11344327)
+
+Avaa kuvien katselu
+
+Voikukka loistaa keltaisena keväällä ja alkukesällä. Kuva: Minna Uusi-Eskola / YLE
+
+Kevät etenee nyt hitaasti. Sää ei oikein lämpene.
+
+Ensi yönä koko maassa on pakkasta.
+
+Huomenna sunnuntaina Lapissa sataa lunta. Länsi-Suomessa sataa vettä.
+
+Etelä- ja Itä-Suomessa sää on lämpimämpää.

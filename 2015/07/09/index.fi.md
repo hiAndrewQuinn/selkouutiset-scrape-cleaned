@@ -1,0 +1,57 @@
+# Torstai 9.7.2015
+
+Salon kaupunki kärsii Microsoftin irtisanomisista. Hallitus lupaa apua Microsoftin entisille työntekijöille. Valokuva säilyy paremmin paperilla kuin tietokoneella. Lihava ihminen voi olla terveempi kuin laiha.
+
+## Salon kaupunki kärsii Microsoftin irtisanomisista
+
+![Microsoft Salo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8141916)
+
+Avaa kuvien katselu
+
+Microsoft aikoo sulkea Salon tehtaan. Kuva: Samuli Holopainen / Yle
+
+Salon kaupunki Etelä-Suomessa kärsii paljon, kun tietotekniikkafirma Microsoft irtisanoo työntekijöitä. Microsoft kertoi keskiviikkona, että se vähentää Suomesta ehkä yli 2000 työntekijää. Salossa yli 1000 ihmistä menettää työpaikan, koska Microsoft lopettaa Salon tehtaan.
+
+Microsoft osti suomalaisen Nokian puhelinbisneksen muutama vuosi sitten. Nokian puhelinbisnes alkoi juuri Salosta 1970-luvun loppupuolella. Kun Nokialla meni hyvin 1990-luvulla, puhuttiin Salo-buumista. Monet Nokian hienot keksinnöt tehtiin Salossa. Monet ihmiset muuttivat Saloon, koska he saivat työtä Nokian tehtaalta.
+
+Nyt työttömiksi jää ihmisiä, jotka ovat olleet Salon tehtaalla työssä ehkä jopa 30 vuotta.
+
+## Hallitus lupaa apua Microsoftin entisille työntekijöille
+
+![Jari Lindström](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8143326)
+
+Avaa kuvien katselu
+
+Työministeri Jari Lindström lupaa apua Salon kaupungille. Kuva: Anni Reenpää / Lehtikuva
+
+Hallitus lupaa apua ihmisille, jotka menettävät työpaikkansa Microsoftilla. Hallitus aikoo antaa rahaa, jolla autetaan niitä ihmisiä, jotka jäävät työttömiksi Microsoftilta.
+
+Työministeri Jari Lindström sanoo, että työttömien auttamiseen tarvitaan ehkä kymmeniä miljoonia euroja. Myös Microsoft lupaa auttaa ihmisiä, jotka se irtisanoo. Suomi aikoo hakea tukea myös Euroopan unionilta.
+
+## Valokuva säilyy parhaiten paperilla
+
+![Kännykkäkameralla kuvataan polkupyörää. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8136065)
+
+Avaa kuvien katselu
+
+Ihmiset ottavat paljon valokuvia, koska jokaisella on puhelin taskussa. Kuva: Yle
+
+Ihmiset ottavat nykyään paljon valokuvia. Monet ottavat kuvia koko ajan esimerkiksi puhelimella. Uusi ongelma on se, että kuvat eivät säily kauan.
+
+Valokuvaaja Risto Mäläskä sanoo, että viime vuosina ihmiset ovat menettäneet suuren määrän valokuvia. Kun ihminen esimerkiksi ostaa uuden puhelimen, valokuvien pelastaminen vanhasta puhelimesta voi olla vaikeaa. Kuvat voivat olla tallessa esimerkiksi cd-levyllä, mutta levy voi mennä helposti rikki.
+
+Mäläskän mielestä valokuvista kannattaa tehdä paperikuvia tai kuvakirjoja. Ne säilyvät ainakin 100 vuotta. Silloin cd-levyjä ei ehkä enää käytetä, mutta kuvakirja kertoo perheen muistot lapsille ja lastenlapsille.
+
+## Hyvä kunto on tärkeämpää kuin paino
+
+![Ylipainoinen mies voimistelee nurmikolla 1970-luvun kuvassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6612848)
+
+Avaa kuvien katselu
+
+Jos ihminen harrastaa liikuntaa, pieni lihavuus ei haittaa. Kuva: Arja Lento / Yle
+
+Lihava ihminen voi olla paljon terveempi kuin laiha. Jos lihava ihminen harrastaa paljon liikuntaa, hän voi olla terveempi kuin laiha ihminen, joka ei liiku.
+
+Tutkijat sanovat, että ihmiset puhuvat liian paljon ylipainosta ja laihduttamisesta. On parempi puhua liikunnasta ja kunnon parantamisesta
+
+Terveyden kannalta on tärkeää, missä ihmisellä on rasvaa. Jos rasva on takapuolessa tai lantiolla, se ei välttämättä ole vaarallista. Terveydelle on vaarallisempaa, jos rasva on sisäelimissä esimerkiksi maksan ympärillä.

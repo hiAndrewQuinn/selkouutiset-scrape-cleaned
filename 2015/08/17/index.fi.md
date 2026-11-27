@@ -1,0 +1,59 @@
+# Maanantai 17.8.2015
+
+Pommi räjähti Bangkokissa. Itä-Ukrainan sota kiihtyy. Suomen ja Viron pääministerit Libanonissa. Maa järisi Kotkassa.
+
+## Pommi räjähti Bangkokissa
+
+![Pommi-iskun aiheuttamaa tuhoa Chidlomin alueella Bangkokissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8233648)
+
+Avaa kuvien katselu
+
+Pommi räjähti Bangkokin keskustassa iltaruuhkan aikaan. Kuva: Ritchie B. Tongo / EPA
+
+Thaimaan pääkaupungin Bangkokin keskustassa on tehty pommi-isku. Pommin räjähdyksessä kuoli ainakin 27 ihmistä, mutta kuolleita voi olla enemmänkin, kertoo Thaimaan televisio. Lisäksi kymmenet ihmiset ovat loukkaantuneet. Uhrien joukossa on myös useita ulkomaalaisia.
+
+Räjähdys tapahtui iltaruuhkan aikana. Pommi oli Erawanin hindutemppelin edessä.
+
+Poliisi tutkii aluetta. Poliisi epäilee, että alueella voi olla lisää pommeja.
+
+## Itä-Ukrainan sota kiihtyy
+
+![Lapset tutkivat kotinsa vieressä olevan kranaattitulessa tuhoutuneen talon raunioita Donetskissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8232734)
+
+Avaa kuvien katselu
+
+Lapset tutkivat talon raunioita Itä-Ukrainassa. Kuva: Alexander Ermochenko / EPA
+
+Itä-Ukrainassa taistelut kiihtyvät taas. Ukrainan armeija ja kapinalliset tulittavat toisiaan Mariupolin kaupungin lähellä ja Donetskin seudulla.  Tulituksessa on kuollut ainakin viisi (5) ihmistä ja moni on haavoittunut.
+
+Venäjä ja Itä-Ukrainan kapinalliset sanovat, että Ukrainan armeija valmistelee suurhyökkäystä. Kapinalliset myös sanovat, että Ukrainan armeija tulittaa raskailla aseilla.
+
+Valko-Venäjällä Minskissä solmittiin tulitaukosopimus viime helmikuussa. Kapinalliset ja Ukrainan armeija ovat molemmat rikkoneet sopimusta alusta saakka.
+
+## Suomen ja Viron pääministerit Libanonissa
+
+![Sipilä ja Röivas](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8233790)
+
+Avaa kuvien katselu
+
+Suomen ja Viron pääministerit Juha Sipilä ja Taavi Rõivas tutustuvat YK:n rauhanturvaoperaatioon Libanonissa.  Kuva: Antti Kuronen / Yle
+
+Suomen pääministeri Juha Sipilä on vierailulla Libanonissa. Sipilä on Libanonissa yhdessä Viron pääministerin Taavi Rõivasin kanssa. On harvinaista että kahden maan pääministerit tekevät yhteisen ulkomaanvierailun.
+
+Sipilä ja Rõivas tutustuvat Libanonissa YK:n UNIFIL-rauhanturvaoperaatioon. He myös keskustelevat Libanonin johdon kanssa Lähi-idän tilanteesta ja pakolaiskriisistä.
+
+Libanonissa on yli 300 suomalaista rauhanturvaajaa. UNIFIL-pataljoonaan kuuluu myös noin 40 virolaissotilasta.
+
+## Maa järisi Kotkassa
+
+![Kotkansaari ylhäältä kuvattuna, kerrostaloja ja merikeskus Vellamo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8111557)
+
+Avaa kuvien katselu
+
+Maanjäristys tuntui useissa kerrostaloissa Kotkansaarella. Kuva: Petri Lassheikki / Yle
+
+Kaakkois-Suomessa Kotkassa tapahtui sunnuntai-iltana maanjäristys. Maanjäristys oli pieni, noin yksi (1) magnitudi, mutta ihmiset kuitenkin huomasivat sen.
+
+Kotkalaiset ihmettelivät sunnuntai-iltana voimakasta jysähdystä, joka tuntui kerrostalon yläkerroksissa saakka. Moni luuli, että jysähdys johtui jonkinlaisesta räjähdyksestä. Seismologian instituutti kuitenkin kertoo, että kyseessä oli maanjäristys. Maanjäristys tapahtui merialueella Kotkansaaren kaakkoiskulmalla.
+
+Maanjäristykset ovat Suomessa harvinaisia. Ne ovat kuitenkin aina hyvin pieniä. Kotkassa maa järisi viimeksi vuonna 2012.

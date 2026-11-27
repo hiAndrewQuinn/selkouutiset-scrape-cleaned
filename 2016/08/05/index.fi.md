@@ -1,0 +1,73 @@
+# Perjantai 5.8.2016 (radio)
+
+Kotkan Laajakosken vastaanottokeskuksessa sattui väkivaltainen tilanne. Taloudesta on saatu hyviä uutisia. Helsingin satamassa kävi heinäkuussa matkustajia enemmän kuin koskaan ennen. Lapinjärvellä kokeillaan uudenlaista kasvihuonetta. Viikonloppu on sateinen.
+
+## Vastaanottokeskukset
+
+![Laajakosken sairaala.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5354112)
+
+Avaa kuvien katselu
+
+Laajakosken vastaanottokeskus Kotkassa. Kuva: Jani Aarnio / Yle
+
+Maahanmuuttovirasto sanoo, että vakava väkivalta ei ole tavallista turvapaikanhakijoiden vastaanottokeskuksissa. Asiasta puhutaan nyt, koska yhdessä vastaanottokeskuksessa oli torstaina väkivaltainen tilanne.
+
+Tilanne oli Kotkan Laajakosken vastaanottokeskuksessa. Irakilainen mies löi puukolla 2 vastaanottokeskuksen asukasta. Hän myös piti veistä yhden asukkaan kurkulla. Miehellä on psyykkisiä ongelmia.
+
+Monet turvapaikanhakijat saavat nyt kesällä tietää, saavatko he jäädä Suomeen. Tunnelma voi olla huono sellaisessa vastaanottokeskuksessa, jossa monet asukkaat ovat jääneet ilman oleskelulupaa.
+
+## Teollisuus
+
+![Kalasataman työmaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9074966)
+
+Avaa kuvien katselu
+
+Betonielementtejä tarvitaan, kun rakennetaan kerrostaloja. Kuva: Yle
+
+Taloudesta on saatu hyviä uutisia.
+
+Metsäteollisuudella menee hyvin. Metsäteollisuuden tuotanto on kasvanut. Kartonkia eli paksua paperia on tehty tämän vuoden alkupuolella enemmän kuin vuosi sitten. Myös sellua tehdään enemmän. Sellu tehdään puusta ja sellusta tehdään paperia, kartonkia ja pahvia.
+
+Myös rakennustuotteita myydään nyt paljon. Rakennustyömailla tarvitaan esimerkiksi erilaisia betonielementtejä. Niitä tarvitaan, kun rakennetaan esimerkiksi kerrostaloja.
+
+## Helsingin satama
+
+![Helsinki south cruise harbour.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7304481)
+
+Avaa kuvien katselu
+
+Helsingissä satamassa riittää matkustajia. Kuva: Jyki Lyytikkä / Yle
+
+Helsingin satamassa on käynyt tänä vuonna paljon matkustajia.
+
+Heinäkuussa matkustajia oli yli 1,5 miljoonaa. Se on enemmän kuin koskaan ennen.
+
+Matkustajien määrä Helsingin satamassa on kasvanut, koska liikennettä Helsingin ja Tallinnan välillä on ollut paljon.
+
+## Uudenlainen kasvihuone
+
+![Led-valaistu kasvihuone.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5321902)
+
+Avaa kuvien katselu
+
+Led-lamput sopivat hyvin kasveille. Kuva: Mari Latva-Karjanmaa / YLE
+
+Etelä-Suomessa Lapinjärvellä kokeillaan uudenlaista kasvihuonetta. Kasvihuone on suljettu niin, että luonto ei vaikuta kasveihin.
+
+Viljelijä Robert Jordas kertoo, että kasvihuoneessa voidaan kontrolloida kaikkea. Laitteet huolehtivat siitä, että lämpö, valo ja kosteus ovat kasveille sopivia.
+
+Esimerkiksi valo tulee led-lampuista. Se on kasveille parempaa kuin auringonvalo, joka on kuumaa.
+
+Kasvihuoneen laitteet on valmistettu suomalaisissa firmoissa. Myös japanilainen it-firma Fujitsu on mukana kokeilussa.
+
+Uusi kasvihuone on toiminut hyvin ensimmäisen kesän ajan. Jos kokeilu onnistuu, se voi muuttaa kasvihuoneviljelyä koko maailmassa.
+
+## Sateinen sää
+
+![Vettä ryöppyää viemäriin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7317227)
+
+Avaa kuvien katselu
+
+Viikonloppuna taivaalta tulee vettä. Kuva: Hanna Lumme / Yle
+
+Viikonloppu on sateinen. Ylen meteorologi Joonas Koskela sanoo, että vettä sataa eniten Itä-Suomessa. Sateessa lämpötila on vain 15 ja 20 asteen välillä.

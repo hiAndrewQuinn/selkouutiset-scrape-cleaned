@@ -1,0 +1,73 @@
+# Keskiviikko 26.4.2017 (radio)
+
+Päivähoitomaksut alenevat. Kätilöopiston sairaala suljetaan Helsingissä. Kylmän sään takia koivun siitepölyaika ei ole vielä alkanut. Kalan hinta on noussut. Helsingin poliisi testaa haalarikameroita.
+
+## Päivähoito halpenee
+
+![Lapset leikkivät junalla tarhan tädin ohjauksessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9164452)
+
+Avaa kuvien katselu
+
+Päiväkodeissa lapset saavat varhaiskasvatusta. Kuva: Antti Kolppo / Yle
+
+Päivähoitomaksut alenevat. Maksut alenevat monilta perheiltä, ja melkein 7000 perheeltä päivähoitomaksu loppuu kokonaan.
+
+Hallitus päätti asiasta tiistaina. Hallitus uskoo, että ihmisten kannattaa mennä töihin, kun päivähoito on halpaa tai ilmaista. Siksi Suomeen tulee uusia työpaikkoja, hallitus arvioi.
+
+Hallitus tukee päivähoitoa myös niin, että päiväkoteihin koulutetaan lisää työntekijöitä.
+
+## Suuri sairaala suljetaan
+
+![Kätilöopiston sairaala.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8800029)
+
+Avaa kuvien katselu
+
+Kätilöopisto on Suomen suurin synnytyssairaala. Kuva: Kai Gustafsson / AOP
+
+Helsingissä suljetaan suuri sairaala. Sairaalan nimi on Kätilöopiston sairaala. Se on Suomen suurin synnytyssairaala. Siellä on syntynyt noin 5500 lasta joka vuosi.
+
+Kätilöopiston sairaala suljetaan, koska sen ilma on huonoa. Sairaalassa on sientä ja mikrobeja. Tilanne ei ole parantunut, vaikka sairaalassa on tehty paljon korjauksia.
+
+Monet kätilöt sanovat, että he ovat sairastuneet sairaalan huonon sisäilman takia. Äideille ja vauvoille huonosta sisäilmasta ei ole ollut haittaa, koska he ovat olleet sairaalassa vain vähän aikaa.
+
+## Koivussa ei vielä siitepölyä
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5330599"
+
+Avaa kuvien katselu
+
+Monet ovat allergisia koivun siitepölylle. Kuva: Yle / Pekka Sipilä
+
+Kylmä sää helpottaa koivulle allergisten ihmisten elämää. Kylmän sään takia koivusta ei tule vielä siitepölyä. Menee ainakin 2 viikkoa, ennen kuin koivun siitepölyaika alkaa.
+
+Etelä-Suomessa koivulle allergiset ihmiset voivat saada oireita, koska koivun siitepölyä kulkee tuulen mukana ulkomailta Suomeen.
+
+## Kala on kallista
+
+![Nainen ostaa kylmäsavulohta torilla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8048509)
+
+Avaa kuvien katselu
+
+Monet ostavat kalaa torilta. Kuva: Miki Wallenius / Yle
+
+Suomalaiset syövät mielellään kalaa. Kalaa ostetaan paljon torilta.
+
+Kala on kuitenkin kallista. Hinta on noussut paljon. Esimerkiksi lohi maksaa nyt paljon enemmän kuin vuosi sitten.
+
+Ihmiset ostavat nyt kalaa ehkä myös siksi, että Suomen viranomaiset ovat löytäneet broilerin lihasta vaarallisia bakteereja. Monien mielestä kala on terveellistä ja turvallista ruokaa.
+
+## Poliisin haalarikamerat
+
+![Haalarikamera](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9579521)
+
+Avaa kuvien katselu
+
+Haalarikamerasta on hyötyä poliisin työssä. Kuva: Berislav Jurišić / Yle
+
+Helsingin poliisi testaa haalarikameroita. Poliisiin haalareissa on videokamera, joka kuvaa, mitä ympärillä tapahtuu.
+
+Poliisin mielestä kamerasta on hyötyä. Videokuva auttaa selvittämään rikoksia. Se vähentää myös väkivaltaa poliisia vastaan, koska ihmiset käyttäytyvät paremmin, kun he ovat videokameran kuvassa.
+
+Lisäksi haalarikameran kuva auttaa selvittämään, onko poliisi toiminut oikein vaikeissa tilanteissa.
+
+Haalarikameroista on niin paljon apua, että poliisi alkaa ehkä käyttää kameroita pysyvästi.

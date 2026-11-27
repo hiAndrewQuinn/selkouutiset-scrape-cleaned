@@ -1,0 +1,55 @@
+# Maanantai 14.8.2017 (radio)
+
+Junaliikenne pysähtyi lakon takia. Rajuilman vahinkoja arvioidaan. Kuuluisa Big Ben hiljenee remontin vuoksi. Tämän viikon sää on aika lämmin.
+
+## Junaliikenne pysähtyi lakon vuoksi
+
+![VR:n henkilöjunia Helsingin ratapihalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9766272)
+
+Avaa kuvien katselu
+
+VR arvioi, että junaliikenne palaa normaaliksi keskiviikkona.  Kuva: Vesa Moilanen / Lehtikuva
+
+Suomessa on alkanut veturinkuljettajien lakko. Lakko alkoi kello 18. Se pysäyttää melkein kaiken junaliikenteen. Vain Venäjälle menevät Allegro- ja Tolstoi- junat kulkevat normaalisti.  Lakko loppuu tiistaina kello 24. Arvioidaan, että junaliikenne palaa normaaliksi keskiviikkona.
+
+VR arvioi, että lakon takia yli tuhat junavuoroa täytyy perua. Veturinkuljettajat järjestävät lakon, koska he vastustavat Suomen hallituksen suunnitelmaa avata matkustajaliikenne kilpailulle.
+
+Lakon aikana busseja ja takseja on liikkeellä enemmän kuin normaalisti. Liikenne voi olla ruuhkaista esimerkiksi lähellä Helsinkiä tiistaina aamulla ja iltapäivällä. Viranomaiset sanovat, että töihin kannattaa mennä esimerkiksi pyörällä tai bussilla.
+
+## Kiiran tuhoja arvioidaan
+
+![Irronneita kattopaneeleita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9772875)
+
+Avaa kuvien katselu
+
+Helsingissä Kiira repi talosta katon irti.  Kuva: Petri Kejonen / Yle
+
+Viikonvaihteen rajuilman tuhoja arvioidaan eri puolilla Etelä-Suomea. Rajuilma Kiira tuhosi paljon metsää esimerkiksi Uudellamaalla ja Kymenlaaksossa. Asiantuntijat sanovat, että vielä on liian aikaista sanoa tarkkaa puuvahinkojen määrää. Sitä voidaan arvioida paremmin tämän viikon lopulla.
+
+Joillakin alueilla maa on märkää ja se haittaa myrskyvahinkojen korjaamista. 
+
+Kiira tuhosi myös paljon sähkölinjoja. Pelkästään Kymenlaaksossa sähköverkon vahingot ovat yli 100 000 euroa. Vahinkojen takia ihmiset ovat alkaneet soittaa vakuutusyhtiöihin. Niiden asiakaspalveluissa on ollut ruuhkaa. 
+
+## Lontoon Big Ben vaikenee useaksi vuodeksi
+
+![Britannian lippu Big Ben](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9535733)
+
+Avaa kuvien katselu
+
+Big Benin remontti alkaa maanantaina.  Kuva: Hannah McKay /EPA
+
+Lontoossa parlamenttitalon kuuluisa kello Big Ben hiljenee useiden vuosien ajaksi. Kello korjataan ja työ kestää neljä vuotta.
+
+Big Ben sijaitsee Elisabetin tornin huipulla. Big Benin lyönnit ovat tuttuja ympäri maailman, koska yleisradioyhtiö BBC on käyttänyt niitä lähetyksissään.
+
+## Kesäsäätä luvassa tälle viikolle
+
+![Sääkartat tiistaista torstaille 15.-17. elokuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9774004)
+
+Avaa kuvien katselu
+
+Lomat alkavat olla lopussa mutta sää on kesäistä.  Kuva: Yle
+
+Sää on tällä viikolla aika lämmintä. Ylen meteorologi Seija Paasonen kertoo, että lämpötilat ovat tällä viikolla korkeampia kuin normaalisti tähän aikaan vuodesta.
+
+Päivälämpötilat voivat olla maan etelä- ja keskiosissa 23 astetta ja pohjoisessa 20 astetta. Alkuviikolla sataa vain vähän mutta loppuviikolla sateita voi tulla vähän enemmän.

@@ -1,0 +1,59 @@
+# Lauantai 4.10.2014
+
+Ulkoministeri Erkki Tuomioja toivoo, että Ukrainan kriisi loppuu. Tv-ohjelmien äänenlaatu on parantunut. Vanhusten kannattaa pitää nilkat hyvässä kunnossa. Talven ensimmäiset sääennustukset saatiin.
+
+## Suomi voi auttaa Ukrainan kriisin lopettamisessa
+
+![Ulkoministeri Erkki Tuomioja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7509696)
+
+Avaa kuvien katselu
+
+Ulkoministeri Erkki Tuomioja oli TV1:n Ykkösaamussa lauantaina. Kuva: Yle
+
+Suomen ulkoministeri Erkki Tuomioja toivoo, että Ukrainan kriisi loppuu. Tuomioja uskoo, että myös Venäjä toivoo sitä. Tuomioja arvioi, että Venäjä on jo saanut Ukrainassa kaiken, mitä se haluaa.
+
+Ulkoministeri Tuomioja sanoo myös, että Suomi on valmis auttamaan Ukrainan kriisin lopettamisessa. Tuomioja aikoo keskustella Ukrainan tilanteesta Venäjän ulkoministerin Sergei Lavrovin kanssa. Tuomioja tapaa Lavrovin maanantaina Moskovassa.
+
+Ukrainan taisteluissa on nyt tauko. Ukrainan hallitus ja kapinalliset sopivat tulitauosta syyskuussa. Sitä ennen Itä-Ukrainassa oli kovia taisteluja, koska kapinalliset haluavat, että Itä-Ukraina eroaa Ukrainasta.
+
+Itä-Ukrainan kapinalliset ovat saaneet tukea Venäjältä. Lisäksi Venäjä otti Ukrainalta Krimin niemimaan viime keväänä. Ukrainan kriisin takia Venäjän ja Euroopan unionin suhteet ovat huonot.
+
+## Tv-ohjelmien ääni on nykyään tasainen
+
+![Taulutelevisioita kaupassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7067859)
+
+Avaa kuvien katselu
+
+Äänen voimakkuus pysyy samana, vaikka ohjelma vaihtuu. Kuva: Tarja Nyyssönen / Yle
+
+Televisio-ohjelmien äänenlaatu on parempi kuin ennen. Nyt äänen voimakkuus pysyy samana, vaikka ohjelma vaihtuu. Katsojan ei tarvitse itse pienentää tai suurentaa tv:n ääntä.
+
+Euroopan yleisradiounioni on tehnyt ohjeen, miten tv-ohjelmien äänenlaatu voidaan tehdä paremmaksi. Suomessa Yle ja kaupalliset tv-kanavat alkoivat noudattaa ohjetta viime vuonna. Ne ovat käyttäneet paljon rahaa uuteen tekniikkaan.
+
+Euroopan yleisradiounionin ohjetta on vaikeampi noudattaa radiossa. Siihen on monta syytä. Radiokanavia on esimerkiksi paljon enemmän kuin tv-kanavia.
+
+## Nilkkajumppa on vanhuksille hyödyllistä
+
+![Vanhus rollaattorin kanssa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6309273)
+
+Avaa kuvien katselu
+
+Vanhus kävelee hitaasti, jos nilkat ovat huonossa kunnossa. Kuva: Yle
+
+Liikunta on vanhuksille tärkeää. Vanhusten kannattaa pitää myös nilkat hyvässä kunnossa. Näin sanoo tutkija Merja Hoffrén-Mikkola.
+
+Nilkka on tärkeä vanhuksen kävelylle ja tasapainolle. Vanhus ei esimerkiksi kaadu niin helposti, jos hänen nilkkansa ovat kunnossa.
+
+Nilkka on jalan kapein osa, ja sen lihakset ovat pieniä. Ne tarvitsevat harjoitusta. Merja Hoffrén-Mikkola sai hyviä tuloksia vanhusten päkiähyppelystä. Päkiähyppelyssä vanhukset hyppivät niin, että kantapäät eivät käy maassa. Myös se riittää, että vanhus nousee varpailleen seisomaan.
+
+## Ensi talven säätä on vielä vaikea ennustaa
+
+![Järvi ja vene.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7022163)
+
+Avaa kuvien katselu
+
+Syksy ehkä jatkuu lämpimänä, helmikuusta tulee ehkä kylmä. Kuva: Matti Myller / Yle
+
+Syyskuu oli tänä vuonna lämmin. Nyt meteorologit ennustavat jo loppusyksyn ja talven säätä. Sää ehkä jatkuu melko lämpimänä, mutta helmikuu voi olla tavallista kylmempi.
+
+Talven sääennustukset ovat vielä epävarmoja. Meteorologi Seija Paasonen kertoo, että vielä ei ole tarkkaa tietoa, minkälainen sää ensi talvena on.

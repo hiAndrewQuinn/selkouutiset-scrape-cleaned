@@ -1,0 +1,79 @@
+# Radio Selkouutiset keskiviikko 03.05.2023
+
+Zelenskyj Suomessa. Lehdistönvapaus. Nokian muutosneuvottelut. Veroilmoitus. Sää.
+
+## Zelenskyi Suomessa
+
+![Zelenskyi otettiin vastaan Presidentinlinnan pihalla. ](https://img.img-cdn.yle.fi/crop_extract,w_3332,h_1874,x_0,y_220/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1107973645256819b83b/1728732560)
+
+Avaa kuvien katselu
+
+Ukrainan presidentti Volodymyr Zelenskyi ja Suomen presidentti Saul Niinistö Presidentinlinnan portailla. Kuva: Silja Viitala / Yle
+
+Ukrainan presidentti Volodymir Zelenskyi on vieraillut Helsingissä. Zelenskyi keskusteli presidentti Sauli Niinistön kanssa. Zelenskyi sanoi vierailun syyksi sen, että Suomi ja Ukraina ovat kumppaneita. Presidentti Sauli Niinistö kertoi, että Suomi jatkaa Ukrainan tukemista.
+
+Zelenskyi sanoi tiedotustilaisuudessa, että tämä vuosi on ratkaiseva sodan kannalta. Kyseessä on 4. kerta, kun presidentti Zelenskyi poistuu Ukrainasta sen jälkeen, kun Venäjä hyökkäsi Ukrainaan. Hyökkäys alkoi viime vuoden helmikuussa.
+
+Zelenskyi tapasi myös Pohjoismaiden pääministerit, jotka vierailevat Helsingissä Pohjoismaiden ja Ukrainan huippukokouksessa. Aiheena oli muun muassa apu Ukrainalle.
+
+Presidentin vierailusta ei kerrottu julkisuuteen etukäteen.
+
+Niinistö ja Zelenskyi tapasivat viimeksi tammikuussa Ukrainassa.
+
+## Lehdistönvapaus
+
+![en man med skyddsmask och skyddsglasögon har ordet PRESS skrivet med stora bokstäver på sin krigshjälm.](https://img.img-cdn.yle.fi/crop_extract,w_3840,h_2160,x_0,y_356/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90773861f3b6aa56094/1643362207)
+
+Avaa kuvien katselu
+
+Lehdistönvapaus mitataan joka vuosi. Kuva: Photo by engin akyurt on Unsplash
+
+Suomi on edelleen lehdistönvapauden kärkimaiden joukossa. Toimittajat ilman rajoja -järjestö on julkaissut taas uuden vertailun.
+
+Suomi ei ole enää kolmen kärjessä vaan viides. Ensimmäisellä sijalla on nyt Norja, toinen on Irlanti, kolmas Tanska ja neljäs Ruotsi.
+
+Suomi oli vielä pari vuotta sitten vertailussa toisena.
+
+Huonoin lehdistönvapaus on Pohjois-Koreassa, Kiinassa, Vietnamissa ja Iranissa. Venäjä on sijalla 164.
+
+## Nokia
+
+![Nokian logo rakennuksen seinässä.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_213/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11015726440d2da848e7/1683116985)
+
+Avaa kuvien katselu
+
+Nokia aloittaa muutosneuvottelut eli entiseltä nimeltä yt-neuvottelut. Kuva: Markku Ulander / Lehtikuva
+
+Tietoliikennealan yhtiö Nokia aloittaa muutosneuvottelut. Ne voivat johtaa yli 200 työpaikan vähenemiseen Suomessa.
+
+Suunnitelmat koskevat kaikkia Nokian toimipaikkoja Suomessa mutta eivät esimerkiksi Oulun-tehdasta.
+
+Nokia työllistää Suomessa noin 7000 henkilöä Espoossa, Oulussa ja Tampereella.
+
+Maaliskuussa 2021 Nokia arvioi, että maailmanlaajuisesti noin 5 000 - 10 000 työpaikkaa voi loppua. Tarkat luvut riippuvat markkinoiden kehityksestä.
+
+## Veroilmoitukset
+
+![Veroilmoitus.](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_432/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-5942157a1cce85cb17/1470221661)
+
+Avaa kuvien katselu
+
+Veroilmoitusta ei tarvitse täyttää ja palauttaa, jos siihen ei ole mitään lisättävää. Kuva: Henrietta Hassinen / Yle
+
+Veroilmoituksen jättöpäivät ovat pian. Yli 5 miljoonan suomalaisen määräpäivä on toukokuussa.
+
+Määräpäivään mennessä ilmoitukseen on voi tehdä täydennyksiä. Ne koskevat viime vuoden verotusta.
+
+Palkansaajien ensimmäinen määräpäivä on ensi tiistai 9. toukokuuta. Seuraavat määräpäivät ovat 16. ja 23. toukokuuta.
+
+Oman veroilmoituksen määräpäivä on OmaVero-palvelussa ja veroilmoituksessa. Jos verotukseen ei ole lisättävää, ei tarvitse tehdä mitään.
+
+## Sää
+
+![Selkosää](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-110810264527771b2f7d/1683126206)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on koleaa, ja paikoin tulee räntä- tai lumikuuroja. Lämpötila on pääosin 2 - 7 astetta, pohjoisessa on kylmempää.

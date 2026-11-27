@@ -1,0 +1,77 @@
+# Tiistai 3.9.2019 (radio)
+
+Ministeri Sirpa Paatero on puuttunut Postin tilanteeseen. Dorian-myrsky on tehnyt paljon tuhoa Bahamasaarilla, Amerikassa. Syövästä on tullut tavallisin kuolemansyy rikkaissa maissa. Suomi on maailman paras luontomatkakohde.
+
+## Postin riidat
+
+![Sirpa Paatero](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10952254)
+
+Avaa kuvien katselu
+
+Ministeri Sirpa Paatero valvoo valtion firmoja. Kuva: Roni Rekomaa / Lehtikuva
+
+Ministeri Sirpa Paatero on puuttunut Postin tilanteeseen. Valtio on Postin omistaja. Paateron tehtävä on valvoa valtion firmoja.
+
+Paatero sanoo, että Postin työntekijöiden työehtoja mietitään vielä.
+
+Posti on aikonut muuttaa noin 700 työntekijän työehtoja. Jos työehdot muuttuvat niin kuin johtajat haluavat, työntekijöiden palkat laskevat.
+
+Työntekijät eivät hyväksy asiaa ja menivät maanantaina lakkoon eli lopettivat työn tekemisen. Ministeri Paatero haluaa, että Postin johtajat ja työntekijät neuvottelevat ja sopivat asiasta.
+
+Ministeri Paatero haluaa myös, että Postin johtajien palkat laskevat. Johtajat ovat Paateron mielestä saaneet liian paljon palkkaa.
+
+## Bahamasaarten tuhot
+
+![Ilmakuva tulvaveden vallassa olevasta lentoasemasta Bahamalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10953267)
+
+Avaa kuvien katselu
+
+Vesi peittää isoja alueita Darian-myrskyn jälkeen. Kuva: Hunter Medley / US Coast Guard
+
+Dorian-myrsky on tehnyt paljon tuhoa Bahamasaarilla, Amerikassa. Myrsky tuhosi jopa 13 000 asuntoa.
+
+Kukaan ei vielä tiedä, kuinka monta ihmistä on kuollut myrskyssä. Bahamasaarten pääministeri kertoi, että myrskyssä kuoli ainakin 5 ihmistä.
+
+Nyt Dorian-myrsky on menossa Floridan rannikolle. Floridassa ja myös muualla USA:ssa viranomaiset ovat kehottaneet satoja tuhansia ihmisiä menemään turvaan.
+
+## Tavallisin kuolemansyy
+
+![kemoterapiaa saava mies](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10952929)
+
+Avaa kuvien katselu
+
+Syöpäpotilas saa hoitoa. Kuva: AOP
+
+Syövästä on tullut tavallisin kuolemansyy rikkaissa maissa. Syöpä tappaa rikkaissa maissa jo 2 kertaa enemmän ihmisiä kuin sydän- ja verisuonisairaudet.
+
+Köyhissä maissa tilanne on erilainen. Niissä sydän- ja verisuonisairaudet ovat vielä tavallisin kuolemansyy.
+
+Sydän- ja verisuonisairauksia on enemmän köyhissä maissa huonon terveydenhoidon takia. Myös huono ruuan ja ilman laatu lisäävät sydän- ja verisuonisairauksien riskiä.
+
+## Paras luontomatkakohde
+
+![Karhu Kuhmossa 22. heinäkuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10952553)
+
+Avaa kuvien katselu
+
+Suomen luonto on kaunis. Kuva: Anni Reenpää / Lehtikuva
+
+Maailman paras luontomatkakohde on Suomi. Asiasta kertoo Lonely Planet, joka julkaisee matkaoppaita.
+
+Parhaan luontomatkakohteen valitsija oli brittiläinen matkatoimisto. Se vertaili yli 100 maata.
+
+Suomi oli ykkönen kauniin luonnon ja hyvän luonnonsuojelun takia. Suomi sai pisteitä myös siitä, että 73 prosenttia Suomesta on metsän peitossa.
+
+Vertailun numero 2 oli Ruotsi ja numero 3 oli Brasilia.
+
+## Sateinen sää
+
+![Jalankulkijoita sateenvarjoineen Helsingin keskustassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10934614)
+
+Avaa kuvien katselu
+
+Lähipäivinä tarvitaan sateenvarjoa. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Keskiviikkona sataa eri puolilla Suomea. Lämpötila on 15 ja 20 asteen välillä melkein koko maassa.
+
+Torstaina lännestä saapuu lisää sateita. Sateet voivat olla runsaita.

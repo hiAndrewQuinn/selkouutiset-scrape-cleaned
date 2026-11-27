@@ -1,0 +1,7 @@
+# Torstai 21.9.2017 (tv)
+
+Rohingya-muslimien joukkopako Myanmarista. Bussilakko Helsingin seudulla. Saaristossa kerätään romuveneitä. Lintulajit muuttuneet 10 vuodessa.
+
+Yle Uutiset selkosuomeksi
+
+Rohingya-muslimien joukkopako Myanmarista. Bussilakko Helsingin seudulla. Saaristossa kerätään romuveneitä. Lintulajit muuttuneet 10 vuodessa.

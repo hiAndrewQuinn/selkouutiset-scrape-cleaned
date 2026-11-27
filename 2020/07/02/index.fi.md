@@ -1,0 +1,80 @@
+# Torstai 2.7.2020 (radio)
+
+Puolueiden kannatuksessa ei ole tapahtunut isoja muutoksia. Myrskyt ovat kaataneet puita 20 miljoonan euron arvosta alkukesän aikana. Koronatilanne on Suomessa rauhallinen. Vladimir Putin voi jatkaa Venäjän presidentin työssä vielä kauan. Suomesta on löytynyt uusi hyttyslaji, joka ehkä pystyy levittämään malariaa.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Puolueiden kannatus
+
+![Puoluekannatus kesäkuussa 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11427338)
+
+Avaa kuvien katselu
+
+Kuva: Ilkka Kemppinen / Yle
+
+Poliittisten puolueiden kannatuksessa ei ole tapahtunut isoja muutoksia.
+
+Ylen uusi kysely kertoo, että SDP on edelleen Suomen suurin puolue. SDP on pääministeri Sanna Marinin puolue.
+
+SDP:n kannatus on kuitenkin vähän laskenut. Noin 22 prosenttia uuden kyselyn vastaajista kannattaa SDP:tä. Edellisessä kyselyssä SDP:n kannatus oli noin 23 prosenttia.
+
+Myöskään oppositiopuolueiden kannatus ei ole muuttunut. Oppositiopuolueet eivät ole mukana hallituksessa.
+
+Suurin oppositiopuolue on perussuomalaiset. Perussuomalaisten kannatus on nyt sama kuin edellisessä kyselyssä eli 18 prosenttia.
+
+Kaikkien puolueiden kannatusluvut löytyvät Ylen nettisivuilta. Osoite on yle.fi.
+
+## Myrskyvahingot
+
+![Päivö-myrskyn kaatamia puita Liperissä.](https://img.img-cdn.yle.fi/crop_extract,w_800,h_450,x_0,y_68/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6955395efd6122b00cf/1593663841)
+
+Avaa kuvien katselu
+
+Päivö-myrsky kaatoi paljon puita. Kuva: Milla Holm / Yle
+
+Myrskyt ovat kaataneet puita alkukesän aikana. Vahingot ovat noin 20 miljoonaa euroa.
+
+Tällä viikolla puita kaatoi Päivö-myrsky ja viime viikolla oli Uuno-myrsky. Päivö-myrsky kaatoi puita enemmän.
+
+## Koronatilanne
+
+![THL:n kyltti Mannerheimintiellä Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11358355)
+
+Avaa kuvien katselu
+
+Kuva: Tiina Jutila / Yle
+
+Koronatilanne on Suomessa rauhallinen.
+
+Terveyden ja hyvinvoinnin laitos eli THL kertoi torstaina, että Suomesta on löytynyt 5 uutta koronatartuntaa. Koronatartuntoja on Suomessa yhteensä vähän yli 7200.
+
+## Venäjän äänestys
+
+![Putinia esittävä juliste, taustalla äänestäjä kasvomaskissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11428768)
+
+Avaa kuvien katselu
+
+Äänestyksen tulos oli Putinille hyvä. Kuva: Maxim Shipenkov / EPA
+
+Venäläiset ovat äänestäneet perustuslain muuttamisesta. Perustuslaki määrää, miten valtio toimii.
+
+Noin 80 prosenttia äänestäjistä kannatti perustuslain muuttamista. Tärkein muutos on se, että Vladimir Putin voi jatkaa presidentin tehtävässä vielä kauan. Putin voidaan valita presidentiksi jopa vuoteen 2036 saakka.
+
+Venäjällä monet ovat sitä mieltä, että äänestys perustuslaista ei ollut rehellinen. Esimerkiksi oppositiojohtaja Aleksei Navalnyi sanoo, että äänestys oli iso valhe.
+
+## Uusi hyttyslaji
+
+![Anopheles daciae -lajiin kuuluva hyttynen](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_608,x_0,y_12/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6955605efd79d2e164e/1593670202)
+
+Avaa kuvien katselu
+
+Tämä hyttynen pystyy ehkä tartuttamaan malarian ihmiseen. Kuva: Lorna Culverwell / Helsingin yliopisto
+
+Tutkijat ovat löytäneet Suomesta uuden hyttyslajin. Uusi hyttyslaji pystyy ehkä levittämään malariaa.
+
+Malaria on kuumesairaus, jota on lämpimissä maissa. Suomessa malariaa ei ole.
+
+Ilmastonmuutoksen takia Suomen ilmasto kuitenkin lämpenee. Siksi on mahdollista, että tulevaisuudessa Suomeen tulee uusia sairauksia.
+
+Suomalaisten ei kuitenkaan tarvitse olla huolissaan. Suomessa ei ole vielä malariaa, eikä ihminen sairastu täällä hyttysen pistosta.

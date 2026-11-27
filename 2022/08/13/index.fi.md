@@ -1,0 +1,92 @@
+# Lauantai 13.8.2022
+
+Suomalaisten suhde Venäjään. Hyökkäys Salman Rushdieta vastaan. Räjähdys Vantaalla. Naisten protesti Afganistanissa. Euroopn kuivuus. Suomen sää.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Suomalaisten suhde Venäjään
+
+![Mielenosoittajia Helsingissä senaatintorilla protestoimassa Venäjän sotatoimia Ukrainassa vastaan. Henkilöllä kyltti, jossa lukee: &quot;Putin alas. Venäjä ulos.&quot;](https://img.img-cdn.yle.fi/crop_extract,w_3991,h_2244,x_8,y_371/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-93058062381be9454af/1647846642)
+
+Avaa kuvien katselu
+
+Mielenosoitus Helsingissä maaliskuussa. Kuva: Juho Liukkonen / Yle
+
+Suurin osa suomalaisista ei usko, että Suomen ja Venäjän suhteet paranevat pian. Näin kertoo uusi kyselytutkimus.
+
+Noin 75 prosenttia suomalaisista ajattelee, että Suomen ja Venäjän suhteet eivät parane seuraavien 10 vuoden aikana.
+
+Kunnallisalan kehittämissäätiön kyselyyn vastasi yli 1000 suomalaista.
+
+## Hyökkäys Salman Rushdieta vastaan
+
+![Salman Rushdie seisoo valokeilassa tummaa taustaa vasten.](https://img.img-cdn.yle.fi/crop_extract,w_4248,h_2389,x_7,y_442/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99380762f685981336f/1660323323)
+
+Avaa kuvien katselu
+
+Salman Rushdie. Kuva: Olivier Douliery / AOP
+
+Kirjailija Salman Rushdieta vastaan on hyökätty. Rushdie loukkaantui pahasti ja on sairaalassa.
+
+Rushdieta vastaan hyökättiin perjantaina New Yorkissa. Hyökkäys tapahtui puhetilaisuudessa, jossa myös Rushdie esiintyi.
+
+Hyökkääjä on 24-vuotias mies. Hän hyökkäsi Rushdien kimppuun ja löi Rushdieta puukolla. Poliisi otti miehen kiinni.
+
+Rushdie julkaisi yli 30 vuotta sitten kirjan Saatanalliset säkeet. Iranin uskonnollinen johtaja oli sitä mieltä, että kirja pilkkaa jumalaa. Hän käski islaminuskoisia tappaamaan Rushdien.
+
+## Räjähdys Vantaalla
+
+![Poliisit lakaisevat lasinsiruja kerrostalon pihalla Vantaalla räjähdysonnettomuuden jälkeen.](https://img.img-cdn.yle.fi/crop_extract,w_5180,h_2913,x_0,y_157/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99389562f78a3b9f83c/1660390025)
+
+Avaa kuvien katselu
+
+Räjähdys tapahtui kerrostaloasunnossa Myyrmäessä, Vantaalla. Kuva: Esa Syväkuru / Yle
+
+Vantaalla on tapahtunut lauantaina räjähdys. Räjähdys tapahtui kerrostaloasunnossa Vantaan Myyrmäessä.
+
+Yksi ihminen loukkaantui räjähdyksessä. Hänet vietiin sairaalaan.
+
+Poliisi sanoo, että räjähdyksen aiheuttivat ehkä kemikaalit. Kemikaalit räjähtivät, kun niitä käsiteltiin asunnossa.
+
+Poliisi tutkii vielä asiaa.
+
+## Naisten protesti Afganistanissa
+
+![Kaksi miestä kävelee morsiusliikkeen ohi. Liikeen mainoskuvissa olevilta naisiltä on maalattu mustaksi silmät ja suut.](https://img.img-cdn.yle.fi/crop_extract,w_2080,h_1170,x_3,y_91/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99345162f60590221bd/1660290680)
+
+Avaa kuvien katselu
+
+Naisten tilanne on huonontunut Afganistanissa, sen jälkeen kun Taliban tuli valtaan. Kuva: EPA
+
+Ääriliike Taliban on estänyt naisten protestin Afganistanissa.
+
+Monta kymmentä naista kokoontui Afganistanin pääkaupunkiin Kabuliin. He vaativat leipää, työtä ja vapautta.
+
+Taliban-taistelijat ajoivat naiset pois ja hakkasivat heitä. Ääriliike Taliban otti vallan Afganistanissa vuosi sitten.
+
+## Euroopan kuivuus
+
+![Tulimeri metsässä pimeällä, puunrunkoja erottuu tulen loimotusta vastaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12572469)
+
+Avaa kuvien katselu
+
+Tuli polttaa maastoa ja metsää Ranskassa. Kuva: Gironden palokunta / EPA
+
+Monissa Euroopan maissa on nyt kuivaa. Kuiva sää on aiheuttanut paljon ongelmia.
+
+Ranskassa on iso maastopalo. Maastopalo on 40 kilometriä leveä. Sammuttajia on tullut monista Euroopan maista.
+
+Britanniassa ihmisten pitää vähentää veden käyttöä, koska maassa ei ole ollut näin kuivaa 50 vuoteen. Monilla paikoilla ihmiset eivät saa kastella puutarhaa tai pestä autoa.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12575502)
+
+Avaa kuvien katselu
+
+Sunnuntai on Suomessa lämmin päivä. Lämpötila on 20-28 astetta melkein koko Suomessa, vain Lapissa on vähän viileämpää.
+
+Sunnuntai on myös poutainen, vettä ei sada. Aurinko paistaa suuressa osassa maata.
+
+Maanantaina sää lämpenee myös Lapissa. Alkuviikko on lämmin koko maassa.

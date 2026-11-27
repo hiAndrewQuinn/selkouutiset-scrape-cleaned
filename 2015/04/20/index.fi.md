@@ -1,0 +1,53 @@
+# Maanantai 20.4.2015
+
+Eduskuntaan valittiin 2 maahanmuuttajataustaista kansanedustajaa. Sipilä aloittaa hallitusneuvottelut. Eduskuntaan enemmän nuoria. Välimerellä etsitään laivaturman uhreja.
+
+## Eduskuntaan valittiin 2 maahanmuuttajataustaista kansanedustajaa
+
+![razmyar ja yanar](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7939727)
+
+Avaa kuvien katselu
+
+Ensimmäistä kertaa Suomen eduskuntaan valittiin maahanmuuttajataustaisia edustajia. Heidät valittiin Helsingin vaalipiiristä.
+
+Eduskuntaan tulee nyt ensimmäistä kertaa 2 maahanmuuttajataustaista kansanedustajaa. He ovat SDP:n Nasima Razmyar ja vihreiden Ozan Yanar, molemmat Helsingin vaalipiiristä.
+
+Nasima Razmyar on iloinen maahanmuuttajataustaisten ehdokkaiden menestyksestä. Hän uskoo, että muualla kuin Helsingissä  maahanmuuttajataustaisen ehdokkaan pääsy eduskuntaan on vaikeaa. Razmyar on syntynyt Afganistanissa.
+
+Turkkilaistaustainen Ozan Yanar uskoo, että sosiaalinen media auttoi keräämään paljon ääniä. Hän sanoo, että se on hyvä kanava kansanedustajaehdokkaille, joilla ei ole paljoa rahaa.
+
+## Sipilä aloittaa hallitusneuvottelut
+
+![Juha Sipilä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7940391)
+
+Avaa kuvien katselu
+
+Keskustan johtaja Juha Sipilä kertoi maanantaina, että hän tapaa lähipäivinä kaikki puolueiden puheenjohtajat. Hän haluaa selvittää, mitkä puolueet sopivat keskustan johtamaan hallitukseen. Kuva: Jussi Nukari / Lehtikuva
+
+Keskusta oli vaalien suurin voittaja. Se sai eduskuntaan 49 kansanedustajaa. Keskustan puheenjohtaja Juha Sipilä alkaa nyt miettiä uutta hallitusta. Hän aikoo tavata lähipäivinä jokaisen puoluejohtajan. Hänelle on tärkeintä luottamus hallituskumppaneiden kesken.
+
+Perussuomalaiset nousi eduskunnan toiseksi suurimmaksi puolueeksi. Sillä on nyt 38 paikkaa. Kokoomus oli kolmas. Se sai 37 kansanedustajaa. SDP jäi suurista puolueista neljänneksi. Sillä on 34 kansanedustajaa.
+
+## Eduskuntaan enemmän nuoria
+
+![Ilmari Nurminen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7941062)
+
+Avaa kuvien katselu
+
+Ilmari Nurminen (sdp) on eduskunnan nuorin kansanedustaja. Hän on 24-vuotias opiskelija Sastamalasta Pirkanmaalta. Kuva: Kirsi Matson-Mäkelä / Yle
+
+Uudessa eduskunnassa on alle 30-vuotiaita kansanedustajia 14. Heitä on nyt 4 enemmän kuin vanhassa eduskunnassa. Nuorin kansanedustaja on SDP:n 24-vuotias Ilmari Nurminen. Kansanedustajien keski-ikä on nyt 47 vuotta.
+
+## Välimerellä etsitään laivaturman uhreja
+
+![Siirtolaisia kuljettaneen kalastaja-aluksen uppoamisessa menehtynyneen ruumis dokumentoitiin Maltalla 20. huhtikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7941851)
+
+Avaa kuvien katselu
+
+Melkein 700 siirtolaisen pelätään kuolleen Välimerellä, kun heitä kuljettanut laiva kaatui. Yksi ruumiista dokumentoitiin Maltalla 20. huhtikuuta. Kuva: Matthew Mirabelli / AFP 
+
+Välimerellä etsitään edelleen eloonjääneitä. Siirtolaislaiva kuljetti lähes 700:aa ihmistä Libyasta kohti Eurooppaa, kun se kaatui sunnuntaina. Mereltä on pelastettu noin 30 ihmistä.
+
+Yksi matkustaja kertoi, että osa matkustajista oli lukittuna laivan sisälle.
+
+Satoja Afrikasta Eurooppaan pyrkiviä siirtolaisia on hukkunut Välimerellä, koska salakuljettajat käyttävät yhä huonompia veneitä kuljetukseen.

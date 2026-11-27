@@ -1,0 +1,85 @@
+# Maanantai 5.9.2016 (radio)
+
+Opettajat eivät halua rehtoriksi. Hallitus aikoo pienentää maahanmuuttajien tukia. Melkein kaikki palkansaajat ovat nyt mukana kiky-sopimuksessa. Koivut kärsivät märästä kesästä. Kiinan jättiläspandojen määrä on kasvanut.
+
+## Opettajat eivät halua rehtoriksi
+
+![Kanslian ja opettajainhuoneen kyltti koulun käytävällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6642308)
+
+Avaa kuvien katselu
+
+Rehtoreilla on nykyään tosi paljon työtä. Kuva: Yle
+
+Rehtorin työ ei enää kiinnosta opettajia. Etenkin syrjäseutujen kouluihin voi olla vaikeaa löytää rehtoria.
+
+Rehtorilla eli koulun johtajalla on nykyään tosi paljon työtä.
+
+Esimerkiksi Agneta Torsell on 3 koulun rehtori Espoossa. Hän sanoo, että rehtorille kuuluvat kaikki koulun asiat ja työt. Rehtori vaihtaa vaikka lamput, jos on tarve.
+
+Rehtorien ison työtaakan takia opettajat eivät enää halua rehtoriksi. Opettajat haluavat mieluummin vain opettaa.
+
+## Hallitus säästää maahanmuuttajien tuista
+
+![Kahdenkymmenen euron seteleitä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8925809)
+
+Avaa kuvien katselu
+
+Hallitus aikoo pienentää kotoutumistukea ensi vuonna. Kuva: Henrietta Hassinen / Yle
+
+Hallitus aikoo pienentää työttömien maahanmuuttajien tukia.
+
+Työttömälle maahanmuuttajalle aiotaan maksaa kotoutumistukea, joka on 10 prosenttia pienempi kuin työttömän suomalaisen peruspäiväraha. Minimissään maahanmuuttajalle voi jäädä käteen 500 euroa kuukaudessa.
+
+Pienempi tuki aiotaan ottaa käyttöön ensi vuonna.
+
+Tarkoitus on säästää rahaa. Lisäksi hallitus toivoo, että tuen pienentäminen vähentää turvapaikanhakijoiden halua tulla Suomeen.
+
+## Kiky-sopimus on nyt valmis
+
+![Markku Jalonen, Vuokko Piekkala, Antti Palola, Jarkko Eloranta, Jyri Häkämies, Juha Sarkio ja Sture Fjäder kilpailykykysopimuksen allekirjoitustilaisuudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9132360)
+
+Avaa kuvien katselu
+
+Kunta-alan järjestöt allekirjoittivat kilpailukykysopimuksen maanantaina. Kuvassa etualalla työmarkkinajohtaja Markku Jalonen ja EK:n toimitusjohtaja Jyri Häkämies kättelevät, Akavan puheenjohtaja Sture Fjäder katsoo vierestä. Kuva: Petteri Paalasmaa / AOP
+
+Kunta-alan työntekijät ovat allekirjoittaneet kilpailukykysopimuksen.
+
+Sopimuksessa on nyt mukana yli 90 prosenttia palkansaajista.
+
+Sopimus tarkoittaa sitä, että suomalaisten työaika pitenee vähän, vaikka palkka ei nouse. Esimerkiksi kuntien työntekijöiden vuosipalkka pienenee sopimuksen takia.
+
+Vastineeksi hallitus keventää vähän verotusta. 
+
+Hallitus toivoo, että sopimus parantaa Suomen taloutta.
+
+## Sienitaudit uhkaavat koivuja
+
+![Sairas koivu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9137646)
+
+Avaa kuvien katselu
+
+Koivunruoste muuttaa koivun lehdet keltaiseksi. Kuva: Kyösti Vaara / Yle
+
+Koivut ovat huonossa kunnossa sateisen kesän takia.
+
+Luonnonvarakeskus sanoo, että lämpimän heinäkuun ja sateisen elokuun takia koivuja vaivaavat nyt monet sienitaudit.
+
+Esimerkiksi pohjoisessa näkee paljon puita, joita vaivaa koivunruoste. Kaupunkien puistoissa taas näkee koivun virustautia, sanoo tutkija Risto Jalkanen.
+
+Risto Jalkanen on huolissaan siitä, miten koivut selviävät talvesta. Hän ei kuitenkaan usko suuriin koivutuhoihin.
+
+## Jättiläispandoilla menee nyt paremmin
+
+![Panda syö bambua eläintarhassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6192399)
+
+Avaa kuvien katselu
+
+Jättiläispanda Ying Ying syö bambua Hongkongin eläintarhassa. Kuva: Ym Yik / EPA
+
+Jättiläispandoille kuuluu nyt hyvää. Kansainvälinen luonnonsuojeluliitto sanoo, että jättiläispandojen määrä on kasvanut sen verran, että laji ei enää ole niin uhanalainen kuin ennen.
+
+Laji on silti yhä vaarantunut, joten pandakarhuja täytyy yhä suojella.
+
+Uusien arvioiden mukaan vapaudessa elää nyt yli 1800 täysikasvuista jättiläispandaa
+
+Jättiläispanda eli isopanda elää lehti- ja havumetsissä Kiinan keskiosissa. Ravinnokseen jättiläispanda syö bambua.

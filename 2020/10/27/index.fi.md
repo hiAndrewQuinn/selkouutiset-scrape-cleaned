@@ -1,0 +1,85 @@
+# Tiistai 27.10.2020 (radio)
+
+Koronatartuntojen leviämistä on pystytty Suomessa hidastamaan. Korona-aika on vaikuttanut suomalaisten liikuntaharrastuksiin. Bangladeshissa on ollut iso mielenosoitus Ranskaa vastaan. Maastopalot leviävät Kaliforniassa.
+
+## Uudet koronatartunnat
+
+![Opastekyltti ohjaa koronatestiin Pohjois-Karjalan keskussairaalan alueella. ](https://img.img-cdn.yle.fi/crop_extract,w_4128,h_2322,x_0,y_387/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7323115f8fb497b7d3f/1603253483)
+
+Avaa kuvien katselu
+
+Koronavirusepidemia on jälleen kiihtymässä, ja myös terveydenhuollossa otettujen testien määrä kasvaa.  Kuva: Jouki Väinämö / Yle
+
+Suomessa on raportoitu 193 uutta koronatartuntaa. Terveyden ja hyvinvoinnin laitos kertoi uusista koronatartunnoista tiistaina.
+
+## Koronatartuntojen leviäminen
+
+![Santeri Seppälä ja kaksi sairaanhoitajaa Essoten tilassa, jossa jäljitetään koronatartunnan saaneiden liikkeitä.](https://img.img-cdn.yle.fi/crop_extract,w_4904,h_2759,x_0,y_192/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7335755f92863b33b9b/1603438627)
+
+Avaa kuvien katselu
+
+Tässä jäljitetään koronatartuntoja Mikkelin keskussairaalassa. Kuva: Esa Huuhko / Yle
+
+Koronatartuntojen leviämistä on pystytty Suomessa hidastamaan.
+
+Koronatestien avulla pyritään löytämään ihmiset, joilla on koronatartunta. Sen jälkeen etsitään kaikki, joita he ovat tavanneet.
+
+Tarkoitus on etsiä eli jäljittää ihmiset, jotka ovat voineet saada koronatartunnan. Sitten pidetään huolta siitä, että he eivät levitä koronaa eteenpäin.
+
+Näin koronatartuntojen leviämistä on pystytty hidastamaan eri puolilla Suomea.
+
+## Liikunta korona-aikana
+
+![Ulkoliikuntapuisto Louhenpuisto Lappeenrannassa.](https://img.img-cdn.yle.fi/crop_extract,w_2482,h_1396,x_0,y_853/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7305385f8848f2a5dcc/1602767401)
+
+Avaa kuvien katselu
+
+Ulkoliikunta on ollut suosittua korona-aikana. Kuva: Mikko Savolainen / Yle
+
+Korona-aika on vaikuttanut suomalaisten liikuntaharrastuksiin.
+
+Uusi tutkimus kertoo, että lasten ja nuorten liikkuminen väheni paljon keväällä. Silloin koulut ja monet liikuntapaikat olivat kiinni koronan takia.
+
+Vanhusten liikuntaan korona vaikutti keväällä vähemmän. Työikäisillä oli vähemmän työmatkaliikuntaa kuin ennen, mutta muun liikunnan määrä kasvoi.
+
+Korona-aika on myös muuttanut tapaa liikkua. Ihmiset ovat liikkuneet enemmän ulkona ja vähemmän sisäliikuntapaikoissa.
+
+## Mielenosoitus Ranskaa vastaan
+
+![Emmanuel Macron puhuu iskun jälkeen koululla](https://img.img-cdn.yle.fi/crop_extract,w_4274,h_2404,x_0,y_160/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7314035f8aaa785125e/1602923216)
+
+Avaa kuvien katselu
+
+Ranskan presidentti Emanuel Macron puhui opettajan murhan jälkeen. Kuva: Abdulmonam Eassa 
+
+Islaminuskoisissa maissa on protesteja Ranskaa vastaan.
+
+Esimerkksi Aasiassa Bangladeshissa on ollut iso mielenosoitus Ranskaa vastaan. Mielenosoituksessa oli mukana yli 40 000 ihmistä.
+
+Islaminuskoiset ovat suuttuneet Ranskan presidentille Emmanuel Macronille. Macron on puolustanut opettaja Samuel Patyta, joka murhattiin Ranskassa.
+
+Historin opettaja Paty käytti opetuksessa Muhammad-pilapiirroksia. Sen jälkeen nuori tshetsheenimies tappoi hänet.
+
+Monet maat ovat kritisoineet Macronin puheita. Esimerkiksi Turkki ja Iran ovat olleet vihaisia Ranskalle.
+
+## Kalifornian maastopalot
+
+![Viinitila palaa Napa Valleyssa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11567964)
+
+Avaa kuvien katselu
+
+Kalifornia on kärsinyt tulipaloista koko syksyn. Kuva: Justin Sullivan / AFP
+
+Maastopalot leviävät USA:n Kaliforniassa. Melkein 100 000 ihmistä on lähtenyt kotoa tulipaloja pakoon.
+
+USA:n Ilmatieteen laitos varoittaa, että tulipalot ovat vaarallisia kuivan ja tuulisen sään takia.
+
+## Suomen sää
+
+![Lomarenkaan mökkiin kuuluva sauna Veikkolassa](https://img.img-cdn.yle.fi/crop_extract,w_5339,h_3003,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7278835f7eed5369368/1611597853)
+
+Avaa kuvien katselu
+
+Keskiviikkona ei sada vettä. Kuva: Pekka Tynell / Yle
+
+Täällä Suomessa sää on sateista. Keskiviikkona on kuitenkin poutaista, eli vesisateet loppuvat. Torstaina Suomeen tulee jo uusia sateita.

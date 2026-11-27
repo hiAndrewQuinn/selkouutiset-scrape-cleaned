@@ -1,0 +1,63 @@
+# Sunnuntai 8.9.2019 (radio)
+
+Hallitus haluaa lisätä palkkatukea. Ammattikorkeakoulujen pääsykokeet ovat muuttuneet. Tutkijat selvittävät, voiko kiellettyjä huumeita käyttää mielen lääkkeinä. Kansallispuistoissa käy häiriköitä.
+
+## Tukea työttömän palkkaamiseen
+
+![Maria Rokka irtisanottiin Postista kymmenen vuotta sitten](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10949902)
+
+Avaa kuvien katselu
+
+Maria Rokka sai töitä palkkatuen avulla. Kuva: Antti Haanpää / Yle
+
+Hallitus haluaa kaksinkertaistaa palkkatuen käytön.
+
+Palkkatuki tarkoittaa, että valtio maksaa osan työntekijän palkasta. Firma voi saada valtiolta tukea 30 tai 50% työntekijän palkasta. Järjestön työntekijöille valtio maksaa jopa koko palkan. Tukea saa, jos ottaa töihin työttömän ihmisen.
+
+Hallitus haluaa vähentää työttömyyttä palkkatuen avulla. Jos ihmiset pääsevät töihin, he eivät tarvitse yhtä paljon sosiaalitukia. Näin säästyy verorahoja.
+
+Hallitus toivoo, että palkkatuen lisäyksellä saadaan 20 000 uutta työpaikkaa.
+
+## Uudenlaiset pääsykokeet
+
+![Tenttiin lukemista](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9595946)
+
+Avaa kuvien katselu
+
+Pääsykokeeseen voi valmistautua. Kuva: Minna Rinta-Tassi / Yle
+
+Ammattikorkeakoulujen pääsykokeet ovat muuttuneet.
+
+Tänä syksynä osa pääsykokeesta on yhteinen kaikille hakijoille - ja kaikille aloille. Kokeen yhteinen osa testaa hakijan taitoa tehdä päätöksiä. Se testaa myös kielitaitoa ja viestintätaitoja.
+
+Yhteisen osan lisäksi pääsykokeissa on ammattialojen omia osia. Esimerkiksi matematiikan taitoja testataan heiltä, jotka hakevat talouden, matkailun tai sosiaalialan ammattikorkeakouluun.
+
+Uudet pääsykokeet tehdään omalla tietokoneella koulun tiloissa.
+
+## Kielletyistä huumeista mielen lääkkeitä?
+
+![Psilocybe Cubensis -sieni Kolumbiasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10961117)
+
+Avaa kuvien katselu
+
+Joissakin sienissä on psykedeelejä. Kuva: AOP
+
+Tutkijat selvittävät, voiko joitakin kiellettyjä huumeita käyttää lääkkeenä.
+
+Tutkijat tutkivat psykedeelejä eli aineita, jotka saavat joskus ihmisen näkemään tai kuulemaan harhoja. Tällaisia aineita on esimerkiksi joissakin sienissä ja niitä voidaan myös tehdä laboratoriossa. Tutkijat ajattelevat, että psykedeeleistä voi olla apua esimerkiksi masennuksen, alkoholismin ja anoreksian eli syömishäiriön hoidossa.
+
+Laki kieltää psykedeelien käytön huumausaineena.
+
+## Huonoa käytöstä luonnossa
+
+![Pitkospuut keidassuon yli Kurjenrahkan kansallispuistossa.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_150/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4843265af2a8ed85159/1583241047)
+
+Avaa kuvien katselu
+
+Polku kansallispuistossa. Kuva: Metsähallitus. Käyttöoikeus varmistettava Metsähallituksen viestinnästä erikseen.
+
+Suomen kansallispuistoissa käy entistä enemmän ihmisiä. Esimerkiksi Nuuksiossa Espoossa ihmisten määrä on melkein kaksinkertaistunut kymmenessä vuodessa.
+
+Kaikki ihmiset eivät käyttäydy hyvin kansallispuistoissa. Jotkut jättävät puistoon roskia ja tekevät nuotioita vääriin paikkoihin. Jotkut pitävät meteliä tai antavat koirien juosta vapaina puistossa. Kaikki ihmiset eivät tunne kansallispuistojen sääntöjä eli mitä siellä saa tehdä ja mitä ei saa tehdä.
+
+Nuuksion kansallispuistossa Espoossa pidettiin viikonloppuna ratsia. Metsästä löytyi esimerkiksi kuusi nuotiota sellaisissa paikoissa, joissa niitä ei saa sytyttää.

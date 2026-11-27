@@ -1,0 +1,59 @@
+# Selkouutiset | tiistai 10.3.2026
+
+Suomen turvallisuus. Öljyn hinta. Ylioppilaskirjoitukset. Keskiviikon sää.
+
+## Suomen turvallisuus
+
+Aluksi uutinen turvallisuusraportista.
+
+Huono-osaisuuden kasautuminen osalle asuinalueista voi uhata Suomen sisäistä turvallisuutta.
+
+Näin varoittaa suojelupoliisi.
+
+Turvallisuus voi heikentyä, kun esimerkiksi köyhyys, työttömyys, rikollisuus ja maahanmuutto kasautuvat samaan lähiöön.
+
+Suojelupoliisi sanoo, että kasautuminen lisää riskiä sille, että nuoret liittyvät katujengeihin. Nuoret voivat myös radikalisoitua eli ajattelu kovenee.
+
+Huono-osaisuuden kasautuminen osalle asuinalueista voi uhata Suomen sisäistä turvallisuutta.
+
+Suojelupoliisi julkaisi tänään raportin kansallisesta turvallisuudesta.
+
+## Öljyn hinta
+
+Sitten aiheena on öljyn hinta.
+
+Iranin sota heiluttaa öljyn hintaa.
+
+Sotatoimet haittaavat öljyn tuotantoa ja kuljetuksia Persianlahdella.
+
+Eilen öljyn hinta nousi rajusti. Öljy maksoi lähes 120 dollaria tynnyriltä. Tänä aamuna hinta puolestaan laski ja oli noin 90 dollaria tynnyriltä.
+
+Suomalaisille öljyn hinnannousu voi näkyä esimerkiksi bensan hinnassa.
+
+Iranin sota heiluttaa öljyn hintaa.
+
+Öljyn hinta vaikuttaa myös korkoihin ja inflaatioon eli yleiseen hintojen nousuun.
+
+## Ylioppilaskirjoitukset
+
+Lopuksi vielä opiskelu-uutinen.
+
+Kevään ylioppilaskirjoitukset ovat alkaneet tänään.
+
+Ensimmäisenä oli äidinkielen ja kirjallisuuden lukutaidon koe.
+
+Kirjoituksiin on ilmoittautunut tänä keväänä yli 50 000 lukiolaista. Se on noin 2 000 enemmän kuin vuosi sitten.
+
+Kevään ylioppilaskirjoitukset ovat alkaneet.
+
+Seuraava koepäivä on torstaina. Silloin vuorossa on vieraan kielen kokeita.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Huomenna sää on pilvinen.
+
+Päivällä on plusasteita eli lämpötila on nollan yläpuolella.
+
+Aurinko voi paistaa idässä. Etelässä sataa tihkua eli pientä vesisadetta.

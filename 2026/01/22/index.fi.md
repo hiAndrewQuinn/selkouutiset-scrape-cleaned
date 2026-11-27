@@ -1,0 +1,71 @@
+# Selkouutiset | torstai 22.1.2026
+
+Trump tullit. Muistisairaat. Kasvien talvi. Sääennuste.
+
+## Trumpin tulliuhkaukset
+
+Aluksi uutinen kansainvälisestä turvallisuuspolitiikasta.
+
+USA on perunut uhkauksen tulleista Suomelle ja muille eurooppalaisille valtioille.
+
+USA uhkasi Suomea ja 7 muuta maata tulleilla, koska maat tukevat Tanskaa ja Grönlantia.
+
+Maat eivät halua, että USA ostaa tai valtaa Grönlannin.
+
+Keskiviikkona illalla USA:n presidentti **Donald Trump** ilmoitti, että tullit perutaan.
+
+Trump sanoo, että hänellä oli hyvä keskustelu Naton pääsihteerin kanssa.
+
+Eurooppa ja USA parantavat ehkä yhdessä Grönlannin turvallisuutta.
+
+USA on perunut uhkauksen tulleista Suomelle ja muille eurooppalaisille valtioille.
+
+EU-maiden johtajat aloittavat tänään tärkeän kokouksen Sveitsissä.
+
+## Muistisairaiden katoamiset
+
+Nyt uutinen muistisairaista ihmisistä.
+
+Muistisairaiden katoamiset lisääntyvät Suomessa. Näin sanovat asiantuntijat.
+
+Suomessa on ollut tänä talvena useita tapauksia, että muistisairas ihminen on lähtenyt kotoa ulos ja jopa kuollut, koska ulkona on kylmä.
+
+Muistisairas voi esimerkiksi lähteä ulos pakkaseen yöpaidassa.
+
+Poliisi ja tutkijat arvioivat, että muistisairaiden katoamiset lisääntyvät Suomessa.
+
+Näin tapahtuu, koska moni vanhus ei saa riittävästi apua.
+
+Näin sanoo Tampereen yliopistosta tutkija **Jari Pirhonen**.
+
+*”Tulevat kasvamaan ilman muuta. Olen varma siitä, että poliisilla on yhä enemmän ja enemmän sellaisia hakutehtäviä, joissa haetaan muistisairasta henkilöä.”*
+
+Tutkija Pirhonen on huolestunut vanhustenhoidon tilasta. Hän sanoo, että vanhusten palveluita pitää parantaa.
+
+## Kasvien talvivauriot
+
+Lopuksi uutinen kasvien talvesta.
+
+Alkutalvi on ollut monelle kasville vaikea.
+
+Siksi kasveille voi tulla talvivaurioita.
+
+Joulukuussa oli sateista ja lunta oli vain vähän. Sen jälkeen tuli kovia pakkasia.
+
+Märkä maa jäätyi. Kasveilla ei ollut kunnon suojaa lumesta.
+
+Siksi kasvien juuret voivat vaurioitua.
+
+Puutarhuri **Tuomas Kauppila** kertoo, että vauriot näkyvät vasta keväällä ja kesällä.
+
+Esimerkiksi omenapuu voi kukkia keväällä, mutta se voi kuolla myöhemmin kesällä.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina sää on enimmäkseen pilvistä.
+
+Lämpötila on -7 ja -15 asteen välillä.
+
+Jos pilvipeite rakoilee, voi olla vielä kylmempää .

@@ -1,0 +1,81 @@
+# Radio Selkouutiset maanantai 11.9.2023
+
+Terrorismioikeudenkäynti. Ilkivalta. Turkistarhauskielto. Naalit. Sää.
+
+## Terrorismioikeudenkäynti
+
+![takavarikoituja konepistooleja ](https://img.img-cdn.yle.fi/crop_extract,w_1308,h_735,x_0,y_21/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114506364b8dfe347773/1689841800)
+
+Avaa kuvien katselu
+
+Epäillyt olivat myös 3d-tulostaneet aseita. Kuva: Poliisi Kuva: Poliisi
+
+Oikeudessa on alkanut oikeudenkäynti terrorismista, joka liittyy äärioikeistoon. Terrorismista syytettynä on 3 suomalaismiestä. Syyttäjä sanoo, he kouluttautuivat tekemään terrorismirikoksen.
+
+2 syytettyä keskusteli iskusta sosiaalidemokraattien tilaisuuteen Lahdessa.
+
+Syyttäjä vaatii käräjäoikeudessa pääsyytetylle vähintään lähes 3 vuoden ehdotonta vankeutta. Syyttäjä sanoo, että mies on omaksunut äärioikeistolaisen aatteen.
+
+Syyttäjä sanoo myös, että mies on valmistanut ampuma-aseita terroristisessa tarkoituksessa.
+
+Syyttäjä sanoo, että 2 miehen tavoite olivat väkivalta, rotusodan alkaminen ja yhteiskunnan romahtaminen.
+
+Yhtä miestä syytetään avunannosta terrorismirikoksiin.
+
+## Ilkivalta lisääntyy
+
+![Ilkivallan kohteita Varkauden koulukeskuksessa.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116946664fb1b93ba323/1694178361)
+
+Avaa kuvien katselu
+
+Varkauden kaupungin kuvia ilkivallasta kaupungissa. Kuva: Ari Haimakainen / Yle
+
+Ilkivalta eli vahingonteko julkisissa paikoissa on lisääntynyt Suomessa. Ylen teki kyselyn suurille kaupungeille ilkivallasta.
+
+Esimerkiksi Kuopio, Jyväskylä, Oulu ja Tampere kertovat, että ilkivalta on yleistynyt koronaepidemian alkamisen jälkeen.
+
+Pohjois-Savossa Varkauden koulu on kärsinyt ilkivallasta poikkeuksellisen paljon. Paikkoja on töhritty, ja pehmoasvalttia, pihakalusteita ja ikkunoita on rikottu paljon.
+
+Kaikkiaan Varkauden kaupunki on joutunut korjaamaan ilkivallan jälkiä jo 100 000 eurolla.
+
+## Kansalaisaloite turkistarhauksesta
+
+![Minkkejä häkissä turkistarhalla.](https://img.img-cdn.yle.fi/crop_extract,w_7408,h_4167,x_7,y_527/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115665864db31c3becb6/1692094791)
+
+Avaa kuvien katselu
+
+Turkistarhaus historiaan -kansalaisaloite on kerännyt allekirjoitukset viikossa.  Kuva: Janne Järvinen / Yle
+
+Kansalaisaloite turkistarhausta vastaan on kerännyt jo yli 97 000 allekirjoitusta.
+
+Aloitteessa ehdotetaan Suomeen suunnitelmaa, jolla turkistuotanto loppuu. Samalla ehdotetaan, että turkistilat saavat kohtuullisen siirtymäajan ja tukijärjestelmän.
+
+Aloite keräsi jo avauspäivänä viime maanantaina 50 000 nimeä. Se on raja, joka vaaditaan, että kansalaisaloite etenee eduskunnan käsittelyyn.
+
+## Naalien pesät
+
+![Neljä naalinpentua istumalla nurmikkoisella mättäällä.](https://img.img-cdn.yle.fi/crop_extract,w_6123,h_3428,x_0,y_637/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117016464fe965c15c7b/1694412238)
+
+Avaa kuvien katselu
+
+Kuva: Petri Piisilä / Metsähallitus
+
+Suomessa havaittiin kesällä 2 naalin pesintää. Naali on koiraeläin, joka elää pohjoisen pallonpuoliskon tundralla.
+
+Naalin pesinnät onnistuivat Utsjoen ja Enontekiön tunturialueilla Pohjois-Suomessa Lapissa.
+
+Metsähallitus kertoo, että pentuja syntyi ainakin 16.
+
+Naalin pesintä onnistui myös viime vuonna Enontekiöllä. Se oli ensimmäinen kerta Suomessa yli 25 vuoteen.
+
+## Sää
+
+![Järven rannassa kasvavia puita.](https://img.img-cdn.yle.fi/crop_extract,w_4027,h_2257,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113725564a141594949b/1688290185)
+
+Avaa kuvien katselu
+
+Alkuviikolla sää on enimmäkseen poutainen ja keskimääräistä lämpimämpi. Kuva: Miki Wallenius / Yle
+
+Tiistaina pohjoisessa sataa vettä, muualla on poutaista ja lämmintä.
+
+Lämpötila on 18 - 23 astetta, pohjoisessa on viileämpää.

@@ -1,0 +1,79 @@
+# Sunnuntai 2.10.2022 (radio)
+
+Rallin maailmanmestari Kalle Rovanperä. Indonesian levottomuudet. Brasilian presidentinvaalit. USA:n myrsky Suomen sää.
+
+## Maailmanmestari Kalle Rovanperä
+
+![Kalle Rovanperä juhlii maailmanmestaruutta.](https://img.img-cdn.yle.fi/crop_extract,w_4067,h_2287,x_196,y_224/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1015598633921c3955f9/1664694361)
+
+Avaa kuvien katselu
+
+Rallin maailmanmestari Kalle Rovanperä. Kuva: IMAGO / PanoramiC / All Over Press
+
+Suomi on menestynyt autourheilussa. Suomen Kalle Rovanperä on rallin uusi maailmanmestari.
+
+Rovanperä voitti sunnuntaina Uuden-Seelannin rallin. Voiton jälkeen hänellä on pisteitä MM-sarjassa jo niin paljon, että mestaruus on varma. MM-sarjassa on vielä 2 kilpailua, mutta kukaan ei voi enää ohittaa Rovanperää.
+
+Rovanperä on nuorin rallikuski, joka on voittanut maailmanmestaruuden. Rovanperä täytti eilen lauantaina 22 vuotta.
+
+Edellisen kerran suomalainen rallikuski voitti maailmanmestaruuden 20 vuotta sitten. Suomen Marcus Grönholm oli maailmanmestari vuonna 2002.
+
+## Indonesian levottomuudet
+
+![Nainen kävelee tuhotun poliisiauton vieressä jalkapallostadionilla Malangissa Indonesiassa.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_95/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10155916338f2fb9de13/1664676890)
+
+Avaa kuvien katselu
+
+Levottomuuksien jälkiä jalkapallostadionilla Indonesiassa. Kuva: Sandi Sadewa / EPA
+
+Aasiassa, Indonesiassa, on kuollut ihmisiä levottomuuksissa. Levottomuudet alkoivat jalkapallo-ottelussa.
+
+Kuolleita on ainakin 125. Kuolleiden määrä voi kasvaa, koska loukkaantuneita on paljon.
+
+Levottomuudet alkoivat, kun monta tuhatta ihmistä ryntäsi kentälle jalkapallo-ottelun jälkeen. He kannattivat joukkuetta, joka hävisi pelin.
+
+Lopulta poliisi ampui kentälle kyynelkaasua, ja ihmisjoukossa syntyi paniikki. Monet jäivät toisten jalkoihin, kun kaikki yrittivät päästä pois stadionilta samaan aikaan.
+
+Indonesian presidentti sanoo, että tapaus pitää tutkia tarkkaan.
+
+## Brasilian presidentinvaalit
+
+![Mies soittaa rumpua Brasilian presidenttiehdokas Luiz Inácio Lula da Silvan kannattajatilaisuudessa Rio de Janeroissa. ](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_73/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1015500633852c2de828/1664638099)
+
+Avaa kuvien katselu
+
+Nämä brasilialaiset toivovat, että Lula da Silva voittaa presidentinvaalit. Kuva: Débora Agostini / Yle
+
+Etelä-Amerikan Brasiliassa on järjestetty sunnuntaina presidentinvaalit.
+
+Mielipidemittaukset ennustavat, että eniten ääniä saavat nykyinen presidentti Jair Bolsonaro ja entinen presidentti Luiz Inacio Lula da Silva.
+
+Bolsonaro on äärioikeiston ehdokas. Lula on vasemmistolaisen työväenpuolueen ehdokas. Lula on saanut mielipidemittauksissa enemmän kannatusta kuin Bolsonaro.
+
+Jos kukaan ehdokkaista ei saa yli 50 prosenttia äänistä, Brasiliassa järjestetään presidentinvaalien toinen kierros 4 viikon kuluttua.
+
+Brasilian vaalit kiinnostavat monia, koska Brasilia on Etelä-Amerikan suurin maa. Se on tärkeä myös koko alueen taloudelle.
+
+## USA:n myrsky
+
+![Ihmisiä kävelee rannalla Ian-myrskyn aiheuttamien tuhojen keskellä Bonita Springsissä Floridassa.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_52/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-101472263361ee15d3fe/1664491514)
+
+Avaa kuvien katselu
+
+Myrskyn vahinkoja Floridassa. Kuva: Sean Rayford / AFP
+
+USA:ssa on ollut tällä viikolla kova myrsky. Ian-myrsky on aiheuttanut isoja vahinkoja esimerkiksi Floridassa.
+
+Myrskyssä on kuollut ainakin yli 60 ihmistä. Monet kodit ja firmat ovat olleet ilman sähköä.
+
+## Suomen sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12647032)
+
+Avaa kuvien katselu
+
+Täällä Suomessa maanantai on poutapäivä, vettä ei sada. Lämpötila on 5 ja 14 asteen välillä.
+
+Tiistai on lännessä aurinkoinen päivä, vain idässä sataa vettä.
+
+Keskiviikkona sää muuttuu sateiseksi ja tuuliseksi.

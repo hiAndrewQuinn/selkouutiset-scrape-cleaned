@@ -1,0 +1,73 @@
+# Maanantai 7.8.2017 (radio)
+
+S-kaupparyhmä aikoo pidentää kauppojen aukioloaikoja. Turkissa riidellään naisten pukeutumisesta. Suomessa lakimiehet ovat huolissaan siitä, saavatko turvapaikanhakijat tarpeeksi oikeusapua. Puutarhakasvit ovat kasvaneet tänä kesänä hyvin. Sää lämpenee.
+
+## S-ryhmän kaupat
+
+![Lappu kaupan ovessa kertoo, että ostoksille pääsee ympäri vuorokauden](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5486203)
+
+Avaa kuvien katselu
+
+S-ryhmälle tulee lisää kauppoja, jotka ovat aina auki. Kuva: Yle
+
+S-kaupparyhmä aikoo pidentää kauppojen aukioloaikoja.
+
+S-ryhmällä on nyt 48 kauppaa, jotka ovat aina auki, myös yöllä. Näitä kauppoja tulee lisää, S-kaupparyhmästä kerrotaan.
+
+Lisäksi osa S-ryhmän kaupoista menee tulevaisuudessa kiinni myöhemmin kuin nyt.
+
+S-kaupparyhmä pidentää kauppojen aukioloaikoja, koska asiakkaat sitä haluavat.
+
+## Turkin naiset
+
+![Turkkilaisia naisia osoittamassa mieltään puistossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9761460)
+
+Avaa kuvien katselu
+
+Naisten mielenosoitus Turkissa. Kuva: Emily Mahringer
+
+Turkissa riidellään naisten pukeutumisesta. Naiset ovat vihaisia, koska naisten kimppuun on hyökätty esimerkiksi shortsien takia. Turkissa kaikki miehet eivät pidä siitä, että naiset käyttävät shortseja.
+
+Sadat naiset ovat osoittaneet mieltä eri puolilla Turkkia. Naiset sanovat, että heillä on oikeus pukeutua, miten he itse haluavat.
+
+Turkin naisjärjestöt ovat huolissaan siitä, että naisten asema on tullut Turkissa huonommaksi monessa asiassa. Naisjärjestöjen mielestä se on presidentti Recep Tayyip Erdoğanin ja Turkin hallituksen syy. Erdoğan on esimerkiksi sanonut, että mies ja nainen eivät voi koskaan olla tasa-arvoisia.
+
+## Turvapaikanhakijoiden oikeusapu
+
+![Asianajaja Ville Punto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9756992)
+
+Avaa kuvien katselu
+
+Myös asianajaja Ville Punto on huolissaan turvapaikanhakijoiden oikeusavusta. Kuva: Katriina Laine / Yle
+
+Täällä Suomessa lakimiehet ovat huolissaan siitä, saavatko turvapaikanhakijat tarpeeksi oikeusapua.
+
+Lakimiesten mielestä turvapaikanhakijoiden tilanne huononi viime syksynä. Silloin hallitus teki muutoksia turvapaikanhakijoiden oikeusapuun.
+
+Esimerkiksi turvapaikanhakijan avustajan palkkio ei nouse, vaikka hän tekee työntunteja enemmän. Palkkio on sama tuntimäärästä riippumatta. Jos avustaja ajattelee rahaa, hänen ei kannata tehdä työtä kovin huolellisesti.
+
+Lakimiehet vaativat, että hallitus peruu oikeusavun muutokset.
+
+## Puutarhojen kasvit
+
+![Kuvassa on marjapensas.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7393413)
+
+Avaa kuvien katselu
+
+Marjapensaissa on nyt paljon marjoja. Kuva: Jukka-Pekka Tyhtilä / Yle
+
+Puutarhakasvit ovat kasvaneet tänä kesänä hyvin.
+
+Sää ei ole ollut liian kuuma, ja kasvit ovat saaneet tarpeeksi vettä. Esimerkiksi marjapensaat voivat hyvin, ja marjoja on tullut paljon.
+
+Melko kylmä sää on myös pitänyt kasvitaudit poissa puutarhoista. Kasvit ovat olleet terveitä ja voineet hyvin.
+
+## Viikon sää
+
+![Uimari Kiiminkijoessa Pohjois-Pohjanmaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9760655)
+
+Avaa kuvien katselu
+
+Kesä ei ole vielä ohi. Kuva: Eija Kontio / Lehtikuva
+
+Tällä viikolla sää lämpenee. Sää alkaa lämmetä tiistaina, ja sen jälkeen on lämmintä. Suuressa osassa maata koko loppuviikko on kuiva ja lämmin. Lämpötila on yli 20 astetta.

@@ -1,0 +1,78 @@
+# Torstai 30.6.2022
+
+Naton kokous. Turkin sopimus. Savonlinnan oopperajuhlat. Festivaalien vieraat. Sää.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Naton kokous
+
+![Naton pääsihteeri Jens Stoltenberg puristaa kädellä presidentti Sauli Niinistön olkaa.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_1,y_275/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97612162bc7558072ce/1656518253)
+
+Avaa kuvien katselu
+
+Naton pääsihteeri Jens Stoltenberg ja Suomen presidentti Sauli Niinistö. Kuva: Lehtikuva
+
+Puolustusliitto Naton kokous on loppunut. Kokous oli Madridissa, Espanjassa.
+
+Kokouksessa Nato kutsui Suomen ja Ruotsin Naton jäseniksi. Naton pääsihteeri Jens Stoltenberg kertoi Madridissa, että Suomen ja Ruotsin liittymisasiakirjat allekirjoitetaan tiistaina.
+
+Sen jälkeen kaikkien Nato-maiden parlamenttien pitää vielä hyväksyä liittymisasiakirjat. Sitten Suomi ja Ruotsi ovat Naton jäseniä. Siihen voi mennä vielä monta kuukautta.
+
+## Turkin sopimus
+
+![Magdalena Andersson ja Recep Tayyip Erdoğan kättelevät.](https://img.img-cdn.yle.fi/crop_extract,w_3762,h_2116,x_0,y_224/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97572362bc0131a3b1e/1656488421)
+
+Avaa kuvien katselu
+
+Ruotsin pääministeri Magdalena Andersson ja Turkin presidentti Recep Tayyip Erdoğan. Kuva: Henrik Montgomery / EPA
+
+Ruotsissa keskustellaan sopimuksesta, jonka Ruotsi ja Suomi solmivat Turkin kanssa. Turkki ei hyväksynyt Naton jäsenyysneuvotteluja Ruotsin ja Suomen kanssa ennen sopimusta.
+
+Sopimuksessa Ruotsi ja Suomi lupaavat taistella terrorismia vastaan. Turkki haluaa yhteistyötä kurdijärjestö PKK:ta vastaan. PKK on myös Euroopan unionin mielestä terroristijärjestö.
+
+Nyt kurdit Ruotsissa ovat huolestuneet siitä, mitä sopimus käytännössä tarkoittaa. Ruotsissa asuu noin 100 000 kurdia.
+
+Ruotsin pääministeri Magdalena Andersson sanoo, että kenenkään ei tarvitse huolestua, jos ei ole oikeasti terroristi.
+
+## Savonlinnan oopperajuhlat
+
+![Olavinlinna](https://img.img-cdn.yle.fi/crop_extract,w_4593,h_2584,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7017115f184fb1d3aa0/1595429253)
+
+Avaa kuvien katselu
+
+Oopperat esitetään Olavinlinnassa. Kuva: Jarkko Riikonen / Yle
+
+Savonlinnan oopperajuhlat alkaa perjantaina. Savonlinnan oopperajuhlat on Suomen suurin oopperafestivaali.
+
+Oopperaesitykset nähdään monta sataa vuotta vanhassa Olavinlinnassa. Tänä vuonna nähdään esimerkiksi klassikko-oopperat Aida, Carmen ja Tosca.
+
+Savonlinnan oopperajuhlia ei järjestetty 2 edellisenä kesänä koronan takia. Tavallisesti oopperajuhlat järjestetään joka vuosi.
+
+Savonlinnan oopperajuhlat kestää kuukauden ajan. Oopperajuhlilla käy noin 70 000 ihmistä joka vuosi.
+
+## Festivaalien vieraat
+
+![yleiskuva](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_356/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82568960d72fa6ba4fd/1624715210)
+
+Avaa kuvien katselu
+
+Festivaaleilla eli festareilla voi tulla kuuma. Kuva: Esa Syväkuru / Yle
+
+Suomessa järjestetään kesällä paljon festivaaleja.
+
+Terveyden ja hyvinvoinnin laitoksen tutkija Timo Lang sanoo, että festivaaleilla ihmisten pitää ottaa huomioon sää.
+
+Lang sanoo, että hellesäässä festivaalivieraiden pitää juoda ja syödä tarpeeksi. Vaaleat pitkähihaiset vaatteet suojaavat auringolta. Myös lakki ja aurinkolasit on hyvä ottaa mukaan, Lang sanoo.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12518411)
+
+Avaa kuvien katselu
+
+Lämmin sää jatkuu perjantaina. Lämpötila on yli 30 astetta suuressa osassa maata. Lapissa saadaan ukkossateita.
+
+Lauantaista tulee ehkä viikon kuumin päivä. Lämpötila on jopa 32 tai 33 astetta. Lauantaina ukkossateita tulee Lapin lisäksi länsirannikolla.
+
+Sunnuntaina Suomeen tulee sateita ja sää vähän viilenee.

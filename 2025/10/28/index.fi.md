@@ -1,0 +1,74 @@
+# TV | Selkouutiset | 28.10.2025
+
+Sotelaskut. OP Pohjola. Tuulivoima. Keskiviikon sää.
+
+## Hyvinvointialueen laskut
+
+Aluksi uutinen hyvinvointialueiden laskuista.
+
+Varsinais-Suomen hyvinvointialue lähettää ihmisille vanhoja laskuja.
+
+Turkulainen **Hannu Lahti** sai laskun, jonka summa on yli 17 000 euroa. Lasku on 3 vuoden ajalta.
+
+Lahden äiti asuu palvelutalossa. Lahti ei ehkä ole saanut kaikkia äidin palveluasumisen laskuja.
+
+Nyt hän sai ison perintälaskun.
+
+Varsinais-Suomen hyvinvointialue lähettää ihmisille vanhoja laskuja.
+
+Se on lähettänyt vanhjoa laskuja ainakin 26 000 ihmiselle.
+
+Laskut ovat menneet perintään, vaikka aiempaa laskua ei ole lähetetty.
+
+Kuluttajaviraston asiantuntija **Juha Jokinen** sanoo, että jos laskutus on hidasta, ihmisiltä ei pidä periä viivästyskorkoa.
+
+## OP Ryhmä
+
+Nyt pankkiuutinen.
+
+OP Ryhmä vaihtaa nimeä.
+
+Uusi nimi on *OP Pohjola*. Uusi nimi tuli käyttöön tänään tiistaina.
+
+OP on vanha pankki, joka on tuttu monille suomalaisille. Sillä on yli 2 miljoonaa asiakasta.
+
+Pohjola on vanha vakuutusyhtiön nimi.
+
+OP Ryhmän uusi nimi on OP Pohjola. Nimi yhdistää pankin ja vakuutuksen nimet.
+
+Myös OP:n bonusjärjestelmä muuttuu.
+
+OP maksaa jatkossa asiakkaille enemmän bonuksia.
+
+Syynä on verotuksen muutos. Pankkien bonuksista tulee ensi vuonna verollisia.
+
+## Tuulivoiman rakentaminen
+
+Lopuksi uutinen tuulivoiman rakentamisesta.
+
+Suomessa on uusi tapa rakentaa tuulivoimaa.
+
+Tässä rakennetaan tuulivoimapuistoa Pahkakoskella Pohjois-Pohjanmaalla. Puistoon tulee 30 tuulivoimalaa.
+
+Rakentamisessa on uutta, että yksi firma hoitaa tuulivoimaloiden kuljetuksen, pystytyksen ja asennuksen. Tämä tuo paljon säästöjä.
+
+Säästöjä syntyy, kun kuljetukset ja pystytykset voidaan ajoittaa tarkasti. Työmaalla ei tarvitse odottaa eri vaiheita.
+
+Suomessa on uusi tapa rakentaa tuulivoimaa.
+
+Sen on tuonut Suomeen suomalainen kuljetusfirma Silvasti.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää on pilvinen ja sateinan.
+
+Maan keskiosissa voi kuitenkin välillä paistaa aurinko.
+
+Lämpötila on +5 ja 10 asteen välillä.
+
+Pohjois-Lapissa on viileämpää.
+
+........................................................................................  
+(*Päivän kysymykset - Päivän kysymysten julkaiseminen on päättynyt 26.10.* )

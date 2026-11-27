@@ -1,0 +1,59 @@
+# Torstai 17.9.2015
+
+Tornioon tulee turvapaikanhakijoiden järjestelykeskus. Somessa leviää uusi ilmiö. Koira muistaa herkkukätköt. Mielenilmaus näkyy Ylen kanavilla.
+
+## Tornioon perustetaan turvapaikanhakijoiden järjestelykeskus
+
+![Turvapaikanhakijoita bussimatkalla Haaparannan kautta Tornioon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8308321)
+
+Avaa kuvien katselu
+
+Turvapaikanhakijoita matkalla Ruotsista Suomen Tornioon. Kuva: Jaani Lampinen / Yle
+
+Hallitus on päättänyt, että Suomeen perustetaan turvapaikanhakijoiden järjestelykeskus. Se perustetaan Pohjois-Suomeen Tornioon. 
+
+Keskus on turvapaikanhakijoille, jotka tulevat Suomeen Ruotsin kautta.  Hakijat rekisteröidään keskuksessa, ja sitten alkaa turvapaikanhaku.
+
+Keskus alkaa toimia ehkä tiistaina.  Se on noin 200 metrin päässä Suomen ja Ruotsin rajasta. Tornion kaupunginvaltuusto käsittelee asiaa vielä maanantaina.
+
+## Somessa on helppo luopua erimielisestä kaverista
+
+![Facebook-logo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8312242)
+
+Avaa kuvien katselu
+
+Kaverin torjuminen on helpompaa sosiaalisessa mediassa kuin kasvoista kasvoihin.  Kuva: Nina Keski-Korpela / Yle
+
+Sosiaalisessa mediassa eli somessa leviää uusi ilmiö. Monet poistavat Facebookista kavereita, jotka ovat eri mieltä esimerkiksi maahanmuutosta.
+
+Jotkut asiantuntijat sanovat, että se on huono asia. On tärkeää kuunnella kaikenlaisia mielipiteitä ja kuunnella myös sitä, joka ajattelee toisella tavalla.
+
+Toiset asiantuntijat sanovat, että ihmiset ovat aina halunneet valita ne, joiden kanssa keskustellaan. Suomessa jokainen kuitenkin tutustuu tavallisessa elämässä monenlaisiin mielipiteisiin.
+
+## Tutkimus: Koira muistaa herkkukätköt
+
+![Mies ja koira.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8213946)
+
+Avaa kuvien katselu
+
+Myös ihmisen paras ystävä pääsi mukaan, kun sen isäntä lähti pyhiinvaellukselle Portugalissa viime toukokuussa. Kuva: Paulo Novais / EPA
+
+Yhdysvalloissa on selvitetty, että koira muistaa herkkukätköt. Verkkotutkimuksessa oli mukana 500 ihmistä ja koiraa. Ihmiset leikkivät koirien kanssa kotona leikkejä, jotka olivat tutkijoille tieteellisiä kokeita.
+
+Kokeessa koira sai katsella, kun herkku kätkettiin kupin alle.  Sitten koira ei saanut nähdä, kun herkku siirrettiin toisen kupin alle.  Suurin osa koirista meni sen kupin luo, jonka alle herkku oli ensin kätketty. Koirat eivät käyttäneet hajuaistia, vaan ne muistivat oikean kupin.
+
+Tutkijat sanovat, että koirilla on monia kykyjä, joilla ne ratkaisevat ongelmia. Koirat ovat myös erilaisia. Toiset ovat hyviä  kommunikaatiossa eli viestinnässä. Toisilla koirilla on hyvä muisti, ja jotkut ottavat omistajan näkemykset taitavasti huomioon.
+
+## Perjantain mielenilmaus näkyy ja kuuluu Ylessä
+
+![Yleisradio Iso Paja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8083101)
+
+Avaa kuvien katselu
+
+Yle rakennus Iso paja Helsingissä. Perjantain mielenilmaus näkyy televisiossa, tekstitelevisiossa, radiossa ja netissä. Kuva: Ilkka Kemppinen / Yle
+
+Perjantain mielenilmaus näkyy ja kuuluu paljon Ylen kanavilla ja ohjelmissa. 
+
+TV 1:ssä alkaa erikoislähetys aamulla kello 9.30. Tekstitelevisio seuraa Twitter-keskustelua mielenilmauksesta.  Radio Suomessa kerrotaan aiheesta aamulla kello 6 lähtien ja radiouutisissa joka tunti. Lisää tietoa saa Ylen nettisisivuilta.
+
+Suomessa työntekijät osoittavat mieltä hallituksen suunnitelmien takia. Hallitus haluaa esimerkiksi vähentää korvauksia ylitöistä ja sunnuntaitöistä.

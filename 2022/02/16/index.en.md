@@ -1,0 +1,87 @@
+# Wednesday 16.2.2022 (radio)
+
+Olympic medals for Finland. A NATO meeting. The Finnair strike was called off. Road thaw in southern Finland. Weather forecast.
+
+## Silver for Finland in men's skiing
+
+![Iivo Niskanen and Joni Mäki celebrate Olympic silver after the pair sprint.](https://img.img-cdn.yle.fi/crop_extract,w_5574,h_3135,x_0,y_350/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-915940620cde80476c8/1645010607)
+
+Open image viewer
+
+Iivo Niskanen and Joni Mäki. Photo: Getty Images
+
+Finland has won more medals at the Beijing Winter Olympics.
+
+Iivo Niskanen and Joni Mäki won silver in the cross-country pair sprint. In the pair sprint each skier skis a short distance 3 times.
+
+3 teams fought for the win in the pair sprint. At the end Norway was the best, but Joni Mäki beat a Russian skier. So the Finns got silver and the Russian skiers got bronze.
+
+In the women's pair sprint Finland was fourth. Finland's team was Kerttu Niskanen and Krista Pärmäkoski.
+
+## Bronze for Finland in women's ice hockey
+
+![The Women's Lions celebrate bronze.](https://img.img-cdn.yle.fi/crop_extract,w_5558,h_3126,x_0,y_22/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-916089620d04d6220c8/1645020412)
+
+Open image viewer
+
+The Women's Lions celebrate Olympic bronze. Photo: Getty Images
+
+Finland's women have won Olympic bronze in ice hockey. Finland beat Switzerland in the bronze medal game.
+
+Finland clearly controlled the bronze medal game. Finland scored 4 goals in the game, and Switzerland did not get the puck into Finland's goal even once. Finland's goalkeeper Anni Keisala played well, and the game ended 4-0.
+
+Finland's women's ice hockey team, the Women's Lions, has done well in recent years. The Women's Lions have won Olympic medals and World Championship medals.
+
+## NATO meeting
+
+![The NATO Secretary General at a press conference.](https://img.img-cdn.yle.fi/crop_extract,w_3893,h_2190,x_0,y_249/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-915882620cd2774580d/1645007526)
+
+Open image viewer
+
+NATO Secretary General Jens Stoltenberg met journalists in Brussels. Photo: Dursun Aydemir / AOP
+
+A meeting of the NATO military alliance has begun in Brussels.
+
+Defence ministers of NATO countries take part in the meeting. The defence ministers of Finland and Sweden have also been invited to the meeting, because Finland and Sweden are NATO partner countries.
+
+NATO Secretary General Jens Stoltenberg hoped that Russia would move its soldiers away from the Ukrainian border.
+
+Russia has moved soldiers close to the border of its neighbour Ukraine. Russia does not want Ukraine to join the NATO military alliance. People around the world fear that Russia intends to attack Ukraine.
+
+## Finnair strike called off
+
+![In the picture a flight attendant works on a Finnair flight AY 435 from Helsinki to Oulu in September 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7163615f5730c5782ef/1599549842)
+
+Open image viewer
+
+The strike by Finnair's cabin crew was called off. Photo: Silja Viitala / Yle
+
+There will be no Finnair strike. Finnair and its cabin crew have settled their disputes, and the staff are working normally.
+
+Finnair's cabin crew had planned a strike in the middle of the school skiing holidays. That is why many people are pleased that Finnair's flights will continue normally.
+
+## Road thaw in southern Finland
+
+![Puddle on a pedestrian crossing.](https://img.img-cdn.yle.fi/crop_extract,w_1144,h_643,x_0,y_32/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-915716620ca2d91d57f/1644995385)
+
+Open image viewer
+
+Water and ice are breaking up road surfaces. Photo: Ulla Malminen / Yle
+
+Road thaw has begun in southern Finland.
+
+The temperature is around zero, and there is a lot of water on the roads. The water has broken the road surfaces, and there are potholes on the roads.
+
+The police say that drivers should now drive very carefully.
+
+## Weather
+
+![Weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12321022)
+
+Open image viewer
+
+On Thursday snow will fall in almost the whole country. However, in the west snow will not fall. Most snow will fall in the east.
+
+The temperature in the south is near zero. In the north on Thursday it is 10 degrees below zero.
+
+Snowfall continues on Friday too. Because of the snowfall, driving conditions will be poor in the coming days.

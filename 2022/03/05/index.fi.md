@@ -1,0 +1,73 @@
+# Lauantai 5.3.2022 (radio)
+
+Suomi tiivistää yhteistyötä USA:n kanssa. Suomi lisää yhteistyötä myös Ruotsin kanssa. Kiina sensuroi paralympialaisten avajaispuheen.
+
+## Niinistö ja Biden
+
+![Sauli Niinistö ja Joe Biden tapaamisessa.](https://img.img-cdn.yle.fi/crop_extract,w_3749,h_2108,x_883,y_1304/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9241616223039e48840/1646463131)
+
+Avaa kuvien katselu
+
+Sauli Niinistö ja Joe Biden tapaamisessa. Kuva: Sarah Silbiger / Lehtikuva
+
+Presidentti Sauli Niinistö on vieraillut USA:ssa. Niinistö tapasi myöhään perjantaina Washingtonissa USA:n presidentin Joe Bidenin. Presidentit puhuivat Venäjän hyökkäyksestä Ukrainaan.
+
+Niinistö kertoi tapaamisen jälkeen, että Suomi ja USA tekevät enemmän yhteistyötä kuin aikaisemmin. Maat lisäävät puolustusyhteistyötä.
+
+Myös Ruotsi lisää yhteistyötä USA:n kanssa.
+
+## Suomi ja Ruotsi
+
+![Sanna Marin ja Magdalena Andersson.](https://img.img-cdn.yle.fi/crop_extract,w_3455,h_1943,x_613,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-92421662234e1ba85a0/1646481011)
+
+Avaa kuvien katselu
+
+Suomen ja Ruotsin pääministerit Sanna Marin ja Magdalena Andersson pitivät lehdistötilaisuuden lauantaina Kesärannassa. Kuva: Roni Rekomaa / Lehtikuva
+
+Suomi tekee lisää yhteistyötä myös Ruotsin kanssa. Pääministeri Sanna Marin sanoo, että Suomi ja Ruotsi myös tekevät sotilasliitto Naton kanssa enemmän yhteistyötä kuin aiemmin.
+
+Ruotsin pääministeri ja puolustusministeri kävivät Suomessa. Ruotsin pääministeri Magdalena Andersson ja puolustusministeri Peter Hultqvist tapasivat pääministeri Sanna Marinin ja presidentti Sauli Niinistön.
+
+Tapaamisissa puhuttiin Venäjän hyökkäyksestä Ukrainaan. Suomi ja Ruotsi tuomitsevat Venäjän hyökkäyksen.
+
+## Mielenosoitukset
+
+![Helsingissä Aleksanterinkadulla mielenosoittajia tukemassa Ukrainaa.](https://img.img-cdn.yle.fi/crop_extract,w_4920,h_2767,x_7,y_272/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9242286223593cd4c72/1646483931)
+
+Avaa kuvien katselu
+
+Ensimmäinen Tukea Ukrainalle -mielenosoitus lähti Mannerheiminaukiolla kello 13. Kuva: Mikko Stig / Lehtikuva
+
+Helsingissä oli lauantaina 3 mielenosoitusta. Ihmiset tukivat Ukrainaa ja vastustivat Venäjän hyökkäystä.
+
+Poliisi arvioi, että mielenosoituksiin osallistui noin 2500 ihmistä.
+
+## Paralympialaiset
+
+![Andrew Parsons Pekingin talviparalympialaisten avajaispuheen aikana.](https://img.img-cdn.yle.fi/crop_extract,w_8634,h_4856,x_1,y_601/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-924181622321be69385/1646469772)
+
+Avaa kuvien katselu
+
+Andrew Parsons Pekingin talviparalympialaisten avajaispuheen aikana. Kuva: Bob Martin / AOP
+
+Pekingin paralympialaisten avajaiset olivat perjantaina illalla.
+
+Kiina sensuroi kisojen avajaispuheen televisiossa. Kiinassa ihmiset eivät kuulleet, kun kansainvälisen paralympiakomitean puheenjohtaja Andrew Parsons tuomitsi Ukrainan sodan.
+
+Television suorassa lähetyksessä Parsonsin sanoja ei käännetty ihmisille kiinan kielelle. Puheen ääni myös tuli televisiossa hiljempaa kuin muu lähetys.
+
+Kiinan televisiossa suora lähetys ei ole ihan suora, jotta sensuuri ehtii toimia. Viranomainen ottaa ohjelmista pois kohtia, joita se ei halua ihmisten näkevän.
+
+Paralympialaisissa kilpailevat vammaisurheilijat. Suomen joukkueessa Pekingin paralympialaisissa on 6 urheilijaa ja 1 opashiihtäjä. Urheilijat osallistuvat lumilautailuun, pujotteluun ja hiihtoon.
+
+## Sää
+
+![Helsingin Kalliossa nautittiin aurinkoisesta säästä 25. tammikuuta 2022.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_495/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90650261f012f4e6583/1650896149)
+
+Avaa kuvien katselu
+
+Kuvituskuva helmikuulta. Kuva: Silja Viitala / Yle
+
+Sää on sunnuntaina poutainen, eli vettä tai lunta ei sada. Selkeintä on etelässä ja lännessä.
+
+Lämpötila on päivällä -5 ja +5 asteen välillä.

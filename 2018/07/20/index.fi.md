@@ -1,0 +1,75 @@
+# Perjantai 20.7.2018 (radio)
+
+Iso tulipalo. Vakava autokolari. Televisiokanava. Viljasato. Sää.
+
+## Tulipalo hallinnassa
+
+![Sammutustöitä Pyhärannassa 19. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10314231)
+
+Avaa kuvien katselu
+
+Pyharannan metsäpalo on hallinnassa. Kuva: Roni Lehti / Lehtikuva
+
+Länsi-Suomessa Pyhärannassa iso tulipalo on saatu päivän aikana hallintaan.
+
+Metsä on palanut isolla alueella. Sammutustöissä on paljon palomiehiä. Päivällä satoi vettä ja se auttoi palomiehiä tosi paljon.
+
+Paikalle saapui kaivinkoneita, jotka kaivavat maata. Näin palomiehet pääsevät sammuttamaan syvällä olevia paloja.
+
+Tuli ei ole polttanut taloja, mutta yli ihmisiä on siirretty pois paloalueelta. Alueelle ei ole vielä turvallista palata.
+
+## Mäntyharjun paha kolari
+
+![Mäntyharjulla tapahtuneen nokkakolarin onnettomuuspaikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10313833)
+
+Avaa kuvien katselu
+
+Mäntyharjussa tapahtuneen kolarin onnettomuuspaikka. Kuva: Esa Huuhko / Yle
+
+Itä-Suomessa Mäntyharjussa tapahtuneen vakavan autokolarin tutkinta on edistynyt. Kolme ihmistä kuoli eilen, kun rattijuoppo törmäsi toiseen autoon.
+
+Rattijuoppo pakeni poliisia ja ajoi tosi kovaa. Poliisin mukaan auto ajoi ehkä noin 200 kilometrin tuntivauhtia. Kolarissa kuoli keski-ikäinen pariskunta ja humalassa pariskuntaan törmännyt kuljettaja.
+
+Tämän lisäksi kaksi ihmistä loukkaantui. Rattijuopolla ei ollut oikeutta ajaa autoa.
+
+## MTV on myyty
+
+![Telian ja MTV:n logot](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10314392)
+
+Avaa kuvien katselu
+
+Telian ja MTV:n logot. Kuva: Lehtikuva ja Yle
+
+Mediatalo MTV:n omistaja vaihtuu. MTV siirtyy Telian omistukseen. Telia on teleoperaattori. Telia ostaa Bonnier Broadcasting -nimisen firman, joka omistaa muun muassa suomalaisen MTV:n. Kauppa vaatii vielä kilpailuviranomaisten hyväksynnän.
+
+Telia sanoo, että MTV:n uutiset jatkuvat ja pysyvät itsenäisinä.
+
+Kauppahinta on lähes 900 miljoonaa euroa. Telia vahvisti jo toukokuun lopulla, että se neuvottelee ostosta.
+
+## Viljasato on huono
+
+![ruikiin tähkiä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10314327)
+
+Avaa kuvien katselu
+
+Rukiin sato jää puoleen viime vuodesta. Kuva: Ismo Pekkarinen / AOP
+
+Tämän vuoden viljasato näyttää tosi huonolta. Huonoja satovuosia on nyt ollut kolme peräkkäin.
+
+Rukiin sato jää 50 prosenttiin viime vuodesta ja vehnän sato vähenee noin 30 prosenttia viime vuodesta. Ohrasadosta ennustetaan heikointa 30 vuoteen.
+
+Kaurasato pienenee vain vähän. Viljasatoon vaikuttavat helteet ja kuivuus.
+
+Vuoden 2018 viljasato muistuttaa katovuotta, joka oli 20 vuotta sitten.
+
+## Ukkosia luvassa
+
+![sääkarttoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10314950)
+
+Avaa kuvien katselu
+
+Lauantaina ukkoskuurot yleistyvät. Kuva: Yle Sää
+
+Kuumat lämpötilat helpottavat viikonloppuna. Lauantaina ukkoskuurot yleistyvät. Kuurojen välissä lämpötila kohoaa aurinkoisilla alueilla Sunnuntaina sateita ja ukkosia tulee eniten idässä ja pohjoisessa.
+
+Sää pysyy kuitenkin hyvin lämpimänä.

@@ -1,0 +1,87 @@
+# Torstai 16.3.2023 (radio)
+
+Veturinkuljettajien lakonuhka. Siivoojien lakko. Korot. Niinistö Turkissa. Sää.
+
+## Veturinkuljettajien lakonuhka
+
+![Valko-vihreä juna rautatieasemalla, nainen on nousemassa junaan.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_620/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1011194632c04a39101a/1663829493)
+
+Avaa kuvien katselu
+
+Junaliikenne voi pysähtyä ensi viikolla lakon takia. Kuva: Kiira Ikävalko / Yle
+
+Junaliikenteessä on alkamassa lakko ensi viikolla. Veturinkuljettajat aikovat mennä lakkoon eli lopettaa työt maanantaina. 
+
+Lakon aikana koko Suomen junaliikenne pysähtyy, eli lähijunat, kaukojunat ja tavarajunat eivät kulje.
+
+Alalla on riitaa erityisesti vanhempainvapaiden kustannuksista. Jos asiasta ei päästä sopimukseen loppuviikon aikana, junalakko alkaa maanantaina.
+
+## Siivoojien lakko
+
+![Siivoojan työvälineitä: ämpäri, rättejä, lattiankuivain ja puhdistusaineita. ](https://img.img-cdn.yle.fi/crop_extract,w_3121,h_1755,x_0,y_303/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-935326624414ddd47f0/1727426130)
+
+Avaa kuvien katselu
+
+Kuva: Elina Rantalainen / Yle
+
+Kiinteistöalalla on jo alkanut lakko.
+
+2500 siivoojaa ja kiinteistönhoitajaa lopetti työt torstaina. He ovat lakossa lauantaihin asti.
+
+Lakon takia esimerkiksi junia ja busseja ei siivota yhtä hyvin kuin tavallisesti.
+
+Siivoojat aloittivat lakon, koska he vaativat lisää palkkaa. Jos palkkariitaa ei sovita, ensi viikolla kiinteistöalalla alkaa vielä isompi lakko.
+
+## Korot
+
+![Nainen puhujapöntössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689895)
+
+Avaa kuvien katselu
+
+Euroopan keskuspankin pääjohtaja Christine Lagarde kertoi uusista koroista torstaina. Kuva: Lehtikuva
+
+Euroopan keskuspankki eli EKP nostaa taas korkoja. EKP kertoi torstaina, että se nostaa ohjauskorkoa 0,5 prosenttiyksikköä.
+
+Korkojen avulla EKP taistelee inflaatiota eli hintojen nousua vastaan. EKP sanoo, että inflaatio on nyt Euroopan suurin talousongelma.
+
+EKP:n päätös voi nostaa myös asuntolainojen korkoja. Kun korot nousevat, ihmisillä jää vähemmän rahaa isoihin hankintoihin. Siksi hintojen nousu voi hidastua.
+
+## Niinistö Turkissa
+
+![Kuvat Turkin ja Suomen presidenteistä, taustalla Naton lippu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689889)
+
+Avaa kuvien katselu
+
+Turkin presidentti Recep Tayip Erdogan ja Suomen presidentti Sauli Niinistö tapaavat perjantaina. Kuva: EPA-EFE, Andrej Cukic / AOP ja Silja Viitala / Yle
+
+Presidentti Sauli Niinistö on vierailulla Turkissa. Perjantaina Niinistö tapaa Turkin presidentti Recep Tayip Erdoganin.
+
+Erdogan ehkä kertoo Niinistölle, että Turkki hyväksyy Suomen puolustusliitto Natoon. Suomi tarvitsee myös Turkin hyväksynnän, jotta Suomi pääsee Natoon.
+
+Suomi haki Nato-jäsenyyttä viime vuonna. Syynä oli Venäjän sota Ukrainassa. Suomi ei halua jäädä yksin, jos Venäjän hyökkäykset naapurimaita vastaan jatkuvat.
+
+## Eduskuntavaalit selkosuomeksi
+
+![Kaksi naista ja kaksi miestä vierekkäin seinää vasten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689892)
+
+Avaa kuvien katselu
+
+Selkokielinen vaalikeskustelu kuvattiin Kiasmassa 14.3.2023. Vasemmalta: Mohor Banerjee, Janica Hirvenkivi, Petri Srömberg ja keskustelun juontaja Tuukka Lukinmaa. Kuva: Petteri Bülow / Yle
+
+Eduskuntavaalit ovat lähellä. Vaalit järjestetään huhtikuun alussa.
+
+Selkouutisten vaaliohjelmassa keskustellaan vaaleista ja vaaliteemoista. Selkokielisessä ohjelmassa on vieraita, joille tavallinen suomen kieli on vaikeaa.
+
+Eduskuntavaalit 2023 selkosuomeksi -ohjelma nähdään TV1:ssä maanantaina 27. maaliskuuta ja Yle Areenassa.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689894)
+
+Avaa kuvien katselu
+
+Perjantaina aurinko paistaa idässä ja pohjoisessa. Lännessä on pilvistä. 
+
+Lämpötila on etelässä plussan puolella. Pohjoisessa on perjantaina pakkasta.
+
+Lauantaina Suomeen tulee sateita. Etelässä sataa vettä, muualla sataa lunta.

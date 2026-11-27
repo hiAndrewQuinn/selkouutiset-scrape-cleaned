@@ -1,0 +1,53 @@
+# Perjantai 16.10.2015
+
+Turkki ampui alas lennokin lähellä Syyrian rajaa. EU ja Turkki hoitavat yhdessä pakolaiskriisiä. Maahanmuuttajamummot saivat palkinnon. Viikonloppu on edelleen melko aurinkoinen.
+
+## Turkki ampui alas lennokin lähellä Syyrian rajaa
+
+![Kartta Turkista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8373848)
+
+Avaa kuvien katselu
+
+Turkki ampui alas tunnistamattoman lennokin lähellä Syyrian rajaa. Lennokkia epäillään venäläiseksi. Kuva: Yle Uutisgrafiikka
+
+Turkki on ampunut alas lennokin, jossa ei ollut miehistöä. Lennokki lensi noin 3 kilometriä Turkin puolella lähellä Syyrian rajaa.
+
+Lennokki lensi Turkin ilmatilaan, ja sen ampui alas Turkin ilmavoimien lentokone. Vielä ei tiedetä, kenelle kone kuului. Yhdysvallat epäilee, että lennokki kuului venäläisille.
+
+Venäläiset lentokoneet ovat aiemmin tässä kuussa loukanneet Turkin ilmatilaa. Venäjä sanoo nyt kuitenkin, että kaikki sen lentokoneet ovat palanneet tukikohtaan.
+
+## EU ja Turkki hoitavat yhdessä pakolaiskriisiä
+
+![Pimeällä otettu yleiskuva Harranin pakolaisleiristä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8359490)
+
+Avaa kuvien katselu
+
+Harranin pakolaisleiri Sanliurfan lähellä Kaakkois-Turkissa syyskuussa 2015. Kuva: Cem Turkel / EPA
+
+EU-maat aloittavat yhteistyön Turkin kanssa. Yhteistyön tarkoituksena on hillitä pakolaisten tuloa Eurooppaan. Asiasta sovittiin EU:n huippukokouksessa myöhään torstaina.
+
+Turkissa on tällä hetkellä yli 2 miljoonaa turvapaikanhakijaa. Turkin kanssa neuvotellaan raha-avusta, jolla Turkki hoitaa turvapaikanhakijoiden asioita. Samalla aloitetaan neuvottelut turkkilaisten viisumivapaudesta EU:ssa. Viisumivapaus on ollut Turkin toive pitkään.
+
+## Maahanmuuttajamummot saivat palkinnon
+
+![Vuoden isovanhemmiksi valittiin virolaistaustainen Tiiu Holappa ja Kongossa syntynyt Celestine Vita-Buba.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8386279)
+
+Avaa kuvien katselu
+
+Vuoden isovanhemmiksi valittiin virolaistaustainen Tiiu Holappa ja Kongossa syntynyt Celestine Vita-Buba. Kuva: Vanhus- ja lähimmäispalvelun liitto ry
+
+Kaksi (2) maahanmuuttajataustaista naista valittiin Vuoden isovanhemmiksi. He ovat kongolainen Celestine Vita-Buba ja virolaistaustainen Tiiu Holappa.
+
+Naiset ovat tehneet paljon työtä vapaaehtoisina lapsiperheissä. He ovat hoitaneet maahanmuuttajien lapsia, jotta äidit voivat osallistua suomen kielen kursseille ja muihin maahanmuuttajille tärkeisiin ryhmiin.
+
+Celestine Vita-Buba on psykologi ja hän oli kotimaassaan englannin kielen opettaja. Tiiu Holappa on ammatiltaan ala-asteen opettaja.
+
+## Viikonloppu on edelleen melko aurinkoinen
+
+![Syysaurinko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8374105)
+
+Avaa kuvien katselu
+
+Aurinkoinen sää jatkuu vielä ainakin viikonloppuna. Kuva: Mikko Pelkonen
+
+Viikonlopun sää on maan etelä- ja länsiosissa pääosin aurinkoinen. Yöllä ja aamulla tiet voivat olla liukkaat. Pohjois-Suomessa lauantaina voi sataa vähän vettä. Sunnuntaina pilvisyys lisääntyy.

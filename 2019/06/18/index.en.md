@@ -1,0 +1,79 @@
+# Tuesday 18.6.2019 (radio)
+
+The government is giving money to improve railway tracks and to hire teachers at vocational schools. Asylum seekers have many psychological problems. Finns marry less than before. The Chinese company ACC is opening its European head office in Finland. Tobacco smoke can harm the growth of bones.
+
+## Railway tracks and vocational training get money
+
+![Sanna Marin and Mika Lintilä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10836898)
+
+Open image viewer
+
+Ministers Sanna Marin and Mika Lintilä told about the government's plans. Photo: Yle
+
+The new government has decided to give more money to improve transport.
+
+The government will use 110 million euros more this year, for example to repair railway tracks. For example, the track between Helsinki and Tampere will be improved.
+
+With transport projects, the government also wants to create more jobs.
+
+The government is also giving more money to improve vocational education. The government is giving money to hire teachers at vocational schools. The sum is 20 million euros.
+
+## Asylum seekers have psychological problems
+
+![An anonymous asylum seeker sits on a bed.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10665807)
+
+Open image viewer
+
+Many asylum seekers are depressed. Photo: Markku Pitkänen / Yle
+
+Asylum seekers have many psychological problems.
+
+A new study says that 40 percent of adult asylum seekers suffer from mental health problems. Many suffer from depression and anxiety.
+
+Psychological problems are most common among asylum seekers who come from Africa, south of the Sahara.
+
+More than 50 percent of all asylum seekers have experienced a shocking or traumatic event before they came to Finland. A traumatic experience can mean, for example, violence.
+
+## People are marrying less
+
+![A married man and woman holding each other's hands](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10364568)
+
+Open image viewer
+
+Marriage has become less popular. Photo: Paula Solloway / AOP
+
+Finns marry less than before.
+
+In 2018 Finns got married 24,000 times. That is 3,000 fewer than in 2017.
+
+Statistics Finland says that marriage has been becoming less popular for 10 years already.
+
+## ACC is growing in Tampere
+
+![AAC](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10835080)
+
+Open image viewer
+
+ACC is a Chinese technology company. Photo: Mirella Mellonmaa / Business Tampere
+
+The Chinese company ACC is opening its European head office in Finland. ACC makes camera technology.
+
+ACC's European head office is coming to Tampere. ACC is hiring more employees in Tampere.
+
+ACC also plans to use 9 million euros for research. Tampere University is also taking part in its research work.
+
+## Tobacco smoke weakens children's bones
+
+![A father smokes in a children's playground.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10834968)
+
+Open image viewer
+
+Parents' smoking affects the child. Photo: AOP
+
+A child's bones become weaker if cigarettes are smoked in the child's home. This is what a new Finnish study says.
+
+The study followed children for almost 30 years. The children's bones were examined when they became adults.
+
+The children's bones were stronger if they grew up in a smoke-free home. The bones were weaker in children whose parents smoked. Children also had 30 percent more bone fractures if they breathed tobacco smoke at home.
+
+Researchers say that tobacco smoke can harm the growth of bones. People's bones get stronger throughout childhood.

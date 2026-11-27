@@ -1,0 +1,89 @@
+# Radio Selkouutiset sunnuntai 15.10.2023
+
+Gaza. Afganistan. Li Andersson. Viking Grace. Lasten liikkuminen. Sää.
+
+## Gazan pakolaiset
+
+![Israelilainen tankki ja sotilas liikennevaloissa siluettina.](https://img.img-cdn.yle.fi/crop_extract,w_4890,h_2750,x_0,y_477/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11857466528bde8e1076/1697169934)
+
+Avaa kuvien katselu
+
+Israel valmistautuu tekemään maahyökkäyksen Gazan kaistalle. Kuva: Mostafa Alkharouf / AOP
+
+Gazassa arviolta miljoona ihmistä on joutunut lähtemään pois kotoa Israelin ja Hamas-terroristien konfliktin takia, sanoo YK:n palestiinalaispakolaisten avustusjärjestö UNRWA. Järjestö uskoo, että pakolaisten määrä kasvaa yhä.
+
+Israel on pommittanut Hamasin kohteita Gazan kaistalla sen jälkeen, kun Hamas hyökkäsi Israeliin viikko sitten. Israel myös valmistautuu maahyökkäykseen Gazan kaistalle.
+
+Israel on käskenyt ihmisiä lähtemään pois maahyökkäyksen alta Gazan kaistan pohjoisosasta. Alueella asuu yli miljoona ihmistä.
+
+## Afganistanin maanjäristys
+
+![Henkilöt siirtävät tavaroita raunioissa.](https://img.img-cdn.yle.fi/crop_extract,w_5052,h_2841,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-118440965260ab39d9c0/1711628786)
+
+Avaa kuvien katselu
+
+Paikalliset asukkaat raivasivat maanjäristyksen jälkiä Heratin maakunnassa viikko sitten. Kuva: Mohsen Karimi / EPA
+
+Afganistanissa on jälleen tapahtunut maanjäristys.
+
+Järistys tapahtui varhain aamulla Heratin kaupungin lähellä. Sen voimakkuus oli 6,3.
+
+Kuolonuhreista tai vahingoista ei vielä tiedetä.
+
+Tämä oli jo kolmas voimakas maanjäristys Afganistanissa kuukauden aikana. Aiemmissa järistyksissä kuoli yli 1000 ihmistä.
+
+## Vasemmistoliiton presidenttiehdokas
+
+![Henkilökuvassa Li Andersson, Vasemmistoliiton presidenttiehdokas.](https://img.img-cdn.yle.fi/crop_extract,w_3745,h_2106,x_0,y_1095/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1186546652ba57a83a27/1697359386)
+
+Avaa kuvien katselu
+
+Li Andersson on Vasemmistoliiton presidenttiehdokas. Kuva: Esa Syväkuru / Yle
+
+Vasemmistoliitto on nimittänyt puolueen puheenjohtajan Li Anderssonin presidenttiehdokkaaksi.
+
+Andersson sanoi, että vaalikampanjassa hän haluaa keskustella esimerkiksi Suomen Nato-linjasta ja ilmastokriisistä.
+
+Mielipidemittauksissa Li Andersson on toistaiseksi saanut noin 6-7 prosentin kannatuksen.
+
+## Viking Gracen törmäys
+
+![Viking Grace-alus Turun satamassa,](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-773443602663c52a189/1613128682)
+
+Avaa kuvien katselu
+
+Viking Grace Turun satamassa.  Kuva: Yle
+
+Matkustajalaiva Viking Grace törmäsi Turun satamassa laiturirakenteisiin eilen illalla.
+
+Laiva törmäsi valaisinmastoon, joka kaatui. Kukaan ei kuitenkaan loukkaantunut.
+
+Törmäys johtui kovasta tuulesta. Tuuli puhalsi puuskissa lähes 20 metriä sekunnissa.
+
+## Lasten liikkuminen
+
+![Oppilaita välitunnilla koulun pihalla kiipeilytelineessä.](https://img.img-cdn.yle.fi/crop_extract,w_1439,h_809,x_0,y_419/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11855106527e890714e6/1697114369)
+
+Avaa kuvien katselu
+
+Monen lapsen liikkuminen vähenee, kun he aloittavat koulun. Kuva: Mika Kanerva / Yle
+
+Lapset ja nuoret liikkuvat vähemmän kuin ennen.
+
+Lasten ja nuorten liikkuminen on vähentynyt Suomessa jo pitkään. Etenkin ne, jotka ovat jo aiemmin liikkuneet vähän, liikkuvat nyt vielä vähemmän, kerrotaan Jyväskylän yliopistosta.
+
+Alle kouluikäiset liikkuvat yleensä tarpeeksi. Liikkuminen kuitenkin vähenee, kun lapset aloittavat koulun. Toisen asteen opiskelijoista enää vain 3 prosenttia liikkuu tarpeeksi.
+
+Suomalaisen liikkumissuosituksen mukaan kouluikäisten lasten ja nuorten on hyvä liikkua tunnin verran joka päivä.
+
+## Maanantain sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1186602652be285367ad/1697374903)
+
+Avaa kuvien katselu
+
+39-1186602652be285367ad Kuva: Yle
+
+Maan etelä- ja keskiosassa on huomenna poutaa ja paikoin voi paistaa aurinko. Pohjoisessa sataa monin paikoin vettä tai lunta.
+
+Lämpötila 4...8 astetta, pohjoisessa -2 ja +4 asteen välillä.

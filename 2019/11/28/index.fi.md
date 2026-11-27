@@ -1,0 +1,63 @@
+# Torstai 28.11.2019 (radio)
+
+Pitkäaikainen kansanedustaja Maarit Feldt-Ranta on kuollut. Johnsonin konservatiivipuolue on selvä suosikki Britannian vaaleissa. Pohjois-Korea on laukaissut ohjuksen. Kapteenille syytteitä Unkarin laivaturmasta.
+
+## Maarit Feldt-Ranta on kuollut
+
+![Maarit Feldt-Ranta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10916616)
+
+Avaa kuvien katselu
+
+Maarit Feldt-Ranta. Kuva: Jouni Immonen / Yle
+
+Sdp:n pitkäaikainen kansanedustaja Maarit Feldt-Ranta on kuollut. Hän oli 51-vuotias.
+
+Feldt-Ranta valittiin eduskuntaan Uudenmaan vaalipiiristä vuonna 2007. Sitä ennen hän oli monen ministerin erityisavustaja. Sdp:n puoluesihteeriksi hänet valittiin vuonna 2005.
+
+Feldt-Ranta sairastui vatsasyöpään vuonna 2009. Hän parantui, mutta syöpä tuli takaisin 2 kertaa.
+
+## Kysely ennustaa Johnsonille murskavoittoa Britannian vaaleissa
+
+![Corbyn ja Johnson eilen ottivat yhteen ensimmäisessä brittivaalien tv-tentissä. ](https://img.img-cdn.yle.fi/crop_extract,w_1980,h_1114,x_0,y_53/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6136945dd4f027109ac/1574236386)
+
+Avaa kuvien katselu
+
+Corbyn ja Johnson ottivat viime viikon tiistaina yhteen ensimmäisessä brittivaalien tv-tentissä. Kuva: JONATHAN HORDLE/ EPA
+
+Britannian pääministeri Boris Johnsonin konservatiivipuolue on selvä suosikki tulevissa parlamenttivaaleissa.
+
+Mielipidekysely kertoo, että konservatiivit saavat jopa 68 paikan enemmistön Britannian parlamenttiin. Kyselyn tulos kertoo, että Johnsonilla on vahva tuki sille, että Britannia eroaa EU:sta tammikuun lopussa.
+
+Britannian ennenaikaiset parlamenttivaalit järjestetään joulukuun 12. päivä.
+
+## Pohjois-Korea on laukaissut ohjuksen
+
+![Pohjois-Korean johtaja Kim Jong-un valvoi uuden raskaan raketinheitinjärjestelmän testaamista tuntemattomassa paikassa Pohjois-Koreassa lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10937735)
+
+Avaa kuvien katselu
+
+Pohjois-Korean johtaja Kim Jong-un valvoi uuden raketinheitinjärjestelmän testaamista Pohjois-Koreassa elokuussa. Kuva: KCNA / EPA
+
+Pohjois-Korea on laukaissut ohjuksen. Asiasta kertovat Japani ja Etelä-Korea. Ne eivät antaneet lisätietoa siitä, millainen ohjus oli tai minne se laukaistiin.
+
+Aiemmin tällä viikolla Pohjois-Korea kertoi, että se on harjoitellut tykeillä lähellä Etelä-Korean rajaa.
+
+Japanilainen uutistoimisto kertoo, että Pohjois-Korea on ampunut 2 ballistista ohjusta. YK:n turvallisuusneuvoston päätöslauselma sanoo, että Pohjois-Korea ei saa ampua ballistisia ohjuksia.
+
+Japanin pääministeri Shinzo Abe arvostelee Pohjois-Koreaa. Aben mielestä Pohjois-Korea on uhka Japanille ja kansainväliselle yhteisölle. USA:n ja Pohjois-Korean neuvottelut Pohjois-Korean ydinaseista eivät ole edenneet.
+
+## Kapteenille syytteitä Unkarin laivaturmasta
+
+![Hylkyä nostetaan proomulle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10826507)
+
+Avaa kuvien katselu
+
+Uponneen turistialuksen hylky nostettiin joen pohjasta kesäkuussa. Kuva: Balazs Mohai / EPA-EFE
+
+Unkarissa jokialuksen kapteeni on saanut paljon syytteitä laivaonnettomuudesta, joka sattui keväällä.
+
+Merenneito-alus upposi Tonavaan toukokuussa Budapestissa ja 27 ihmistä kuoli. Laiva kolaroi toisen aluksen kanssa. Melkein kaikki uhrit olivat eteläkorealaisia turisteja.
+
+Syyttäjät sanovat, että Viking Sigyn -aluksen ukrainalainen kapteeni oli huolimaton. Hän syyllistyi virkavirheeseen ja epäonnistui avun antamisessa. Yhteensä kapteeni sai 35 syytettä.
+
+Kapteenille esitetään 9 vuoden vankilatuomiota.

@@ -1,0 +1,49 @@
+# Perjantai 14.11.2014
+
+Puolueet ovat sopineet sosiaali- ja terveyspalveluista. Pääministeri on vieraillut Talvivaaran kaivoksella. Perjantaina kerrottiin, mitkä kirjat kilpailevat Finlandia-palkinnosta.
+
+## Puolueet sopivat terveyspalveluista
+
+![Susanna Huovinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7630277)
+
+Avaa kuvien katselu
+
+Peruspalveluministeri Susanna Huovinen kertoi sosiaali- ja terveyspalveluista. Kuva: Yle
+
+Poliittiset puolueet ovat sopineet asioista, jotka liittyvät sosiaali- ja terveyspalveluihin. Puolueet ovat riidelleet siitä, miten sosiaali- ja terveyspalvelut eli sote-palvelut uudistetaan. Peruspalveluministeri Susanna Huovinen kertoi perjantaina, että osa riidoista on sovittu.
+
+Riidanaihe on ollut esimerkiksi se, kuinka paljon yksityiset firmat hoitavat terveyspalveluja. Puolueet sopivat nyt, että yksityiset firmat eivät saa suurta roolia. Kunnat hoitavat itse suurimman osan sote-palveluista. Kunnat tuottavat palveluja kuntayhtymissä, joissa jokaisessa on monta kuntaa.
+
+Puolueet sopivat jo aikaisemmin, kuka on vastuussa sote-palvelujen järjestämisestä. Vastuu annetaan viidelle (5) suurelle alueelle. Ne ovat Helsingin, Turun, Tampereen, Kuopion ja Oulun alueet.
+
+Sosiaali- ja terveyspalvelut uudistetaan, koska valtion ja kuntien taloustilanne on vaikea. Palvelut täytyy järjestää niin, että rahat riittävät hyviin palveluihin myös tulevaisuudessa.
+
+## Pääministeri vieraili Talvivaaran kaivoksella
+
+![Ministerit talvivaaran kaivoksella 14.11.2014.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7630034)
+
+Avaa kuvien katselu
+
+Osa hallituksen ministereistä vieraili Talvivaaran kaivoksella. Kuva: Yle
+
+Pääministeri Alexander Stubb on vieraillut Talvivaaran kaivoksella. Kaivos on Sotkamossa, Pohjois-Suomessa. Vierailulla oli mukana myös muita ministereitä.
+
+Talvivaaran kaivos kertoi viime viikolla, että sen rahat eivät riitä toiminnan jatkamiseen. Hallitus toivoo, että kaivokselle löytyy ostaja. Ministeri Jan Vapaavuori kertoi Sotkamossa, että kiinnostuneita ostajia ehkä löytyy.
+
+Talvivaaran metallikaivos tuottaa esimerkiksi nikkeliä. Kaivoksella on ollut suuria ympäristöongelmia. Monet haluavat, että kaivos suljetaan. Pääministeri Stubb sai Sotkamossa paperin, jossa 50 000 ihmistä vaatii kaivoksen sulkemista.
+
+## Kuusi kirjailijaa kilpailee Finlandia-palkinnosta
+
+![Tommi Kinnunen (vas), Olli Jalonen, Anni Kytömäki, Heidi Jaatinen, Jussi Valtonen ja Sirpa Kähkönen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7628732)
+
+Avaa kuvien katselu
+
+Finlandia-palkinnosta kilpailevat Tommi Kinnunen, Olli Jalonen, Anni Kytömäki, Heidi Jaatinen, Jussi Valtonen ja Sirpa Kähkönen. Kuva: Martti Kainulainen / Lehtikuva
+
+Perjantaina on kerrottu, mitkä kirjat kilpailevat tänä vuonna Finlandia-palkinnosta. Finlandia-palkinto on Suomen tärkein kirjallisuuspalkinto.
+
+Tänä vuonna Finlandia-palkinnosta kilpailee kuusi (6) kirjaa ja niiden kirjoittajaa. Osa kirjoittajista on tunnettuja, esimerkiksi Olli Jalonen. Joukossa on myös uusia kirjailijoita, esimerkiksi Anni Kytömäki.
+
+Finlandia-palkinnon voittajan valitsee yksi henkilö. Tänä vuonna professori Anne Brunila valitsee voittajan. Hän kertoo marraskuun 27. päivä, kuka voittaa Finlandia-palkinnon.
+
+Finlandia-palkinto annettiin ensimmäisen kerran 30 vuotta sitten, vuonna 1984. Silloin voittaja oli Erno Paasilinna. Myöhemmin Finlandia-palkinnon on voittanut esimerkiksi kirjailija Sofi Oksanen.

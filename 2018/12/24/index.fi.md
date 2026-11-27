@@ -1,0 +1,73 @@
+# Maanantai 24.12.2018 (radio)
+
+Joulurauha. Jouluaaton perinteet. Joulukauppa. Hyvä Joulumieli-keräys. Alko auki jouluaattona.
+
+## Joulurauhan julistus aloitti joulun vieton
+
+![Kansa kuuntelee, kun Turun kaupungin protokollapäällikkö Mika Akkanen julistaa joulurauhan Turussa jouluaattona.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10570840)
+
+Avaa kuvien katselu
+
+Joulurauha julistettiin Turussa.  Kuva: Roni Lehti / Lehtikuva
+
+Joulujuhla on alkanut. Joulu alkoi Suomessa kello 12 joulurauhan julistamisella.
+
+Joulurauhan julistaminen on Suomessa iso tapahtuma. Se pidetään Turussa. Joulurauhan julistuksessa luetaan noin 700 vuotta vanha teksti joulun alkamisesta.
+
+Tekstissä sanotaan, että joulu on tärkeä uskonnollinen juhla. Vanhassa tekstissä sanotaan myös, että ihmisten täytyy jouluna käyttäytyä hiljaisesti ja rauhallisesti.
+
+Joulurauhan julistus on suomalaisille tärkeä perinne.
+
+## Jouluaaton suomalaiset perinteet
+
+![kinkku uunissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9994839)
+
+Avaa kuvien katselu
+
+Kinkku on edelleen jouluruokien suosikki Suomessa. Kuva: Soila Ojanen / Yle
+
+Suomessa jouluaatossa on monia perinteitä. Perinteitä noudatetaan joka vuosi.
+
+Monet käyvät hautausmailla. Ihmiset sytyttävät paljon kynttilöitä esimerkiksi sukulaisten haudoille. Jouluaattona käydään paljon myös kirkossa.
+
+Joulupukki vierailee monessa kodissa jakamassa lahjoja. Syödään joulukinkkua tai joulukalkkunaa. Jouluruokana on paljon myös kalaa.
+
+## Joulukauppa oli vilkasta
+
+![Kannelmäen Prismassa riitti asiakkaita illalla yhdeltätoista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10570441)
+
+Avaa kuvien katselu
+
+Moni iso marketti on ollut tänä vuonna auki koko vuorokauden eli 24 tuntia ennen joulua. Kuva: Yle
+
+Kaupoissa oli ennen joulua tänä vuonna vilkasta. Arvioidaan, että jouluostoksia tehtiin tänä vuonna vilkkaammin kuin viime vuonna.
+
+Kaupassa pystyi käymään ennen joulua myös yöllä, kun moni iso market oli auki 24 tuntia. Yöllä käytiin ostamassa esimerkiksi lahjoja, kun lapset nukkuivat.
+
+## Hyvä Joulumieli-keräys auttoi tuhansia perheitä
+
+![Rahaa ja joulukoristeita pöydällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10570777)
+
+Avaa kuvien katselu
+
+Hyvä Joulumieli-keräys auttoi 28 000 perheen joulua.  Kuva: Pixabay
+
+Suomessa järjestettiin ennen joulua taas Hyvä joulumieli-keräys. Hyvä Joulumieli-keräyksellä saadaan joka vuosi rahaa tuhansia perheitä varten.
+
+Keräysrahalla hankitaan lahjakortteja perheille, joilla ei ole rahaa jouluun. Lahjakortilla voi maksaa kaupassa ostoksia. Tänä vuonna joulukeräyksellä saatiin lahjakortti 28 000 perheelle.
+
+Perheet ovat voineet ostaa lahjakorteilla jouluruokaa. Hyvä Joulumieli -keräykseen osallistui tänä vuonna tuhansia firmoja ja kymmeniä tuhansia ihmisiä.
+
+## Alko auki ensimmäisen kerran jouluaattona
+
+![Ihmisiä menossa Alkoon jouluaattona.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10570831)
+
+Avaa kuvien katselu
+
+Alkossa voi tänä vuonna tehdä ostoksia ensimmäisen kerran myös jouluaattona. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Alkoholijuomien kauppa Alko on ollut tänä vuonna ensimmäistä kertaa auki myös jouluaattona. Alkot saivat olla tänään auki aamupäivällä kello 12:een asti.
+
+Ennen Alkot ovat olleet jouluaattona kiinni. Tänä vuonna tuli kuitenkin uusi alkoholilaki. Se muutti Alkojen aukioloa.
+
+Jouluna ostetaan Alkosta esimerkiksi punaviiniä ja glögiä. Glögi on juoma, joka kuumennetaan ennen kuin se juodaan. Siinä on yleensä alkoholia.

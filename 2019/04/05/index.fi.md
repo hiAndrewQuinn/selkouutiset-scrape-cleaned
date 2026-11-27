@@ -1,0 +1,63 @@
+# Perjantai 5.4.2019 (radio)
+
+Britannian EU-ero ehkä siirtyy. Eduskuntavaaleissa on enemmän naisehdokkaita kuin ennen. Vaaleista saa tietoa myös selkokielellä. Näyttelijä Lasse Pöysti on kuollut.
+
+## Brexitin aikataulu
+
+![Brexitin vastustajia Lontoossa 27. maaliskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10724544)
+
+Avaa kuvien katselu
+
+Tämä britti vastustaa brexitiä. Kuva: Leal olivas / AFP
+
+Britannian EU-ero eli brexit ehkä siirtyy. Britannian pääministeri Theresa May pyytää Euroopan unionilta, että brexit siirtyy kesäkuun loppuun.
+
+Britannia aikoo erota Euroopan unionista jo aikaisemmin, jos Britannian parlamentti hyväksyy erosopimuksen. Pääministeri May toivoo, että Britannian ei tarvitse osallistua EU-parlamentin vaaleihin. Vaalit järjestetään kaikissa EU-maissa toukokuussa.
+
+Muiden EU-maiden pitää hyväksyä, että Britannialle annetaan lisää aikaa EU-eron järjestämiseen. Jos Britannia ei saa lisää aikaa, sen pitää erota EU:sta jo ensi viikolla ilman erosopimusta. Britannian ja koko Euroopan talous kärsii, jos niin tapahtuu.
+
+## Vaalien naisehdokkaat
+
+![vaalijulisteita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10710662)
+
+Avaa kuvien katselu
+
+Ehdokkaiden joukossa on enemmän miehiä kuin naisia. Kuva: Marja Väänänen / Yle
+
+Suomen eduskuntavaalit lähestyvät.
+
+Vaaleissa on enemmän naisehdokkaita kuin ennen. Nyt 42 prosenttia ehdokkaista on naisia.
+
+Edellisissä eduskuntavaaleissa 4 vuotta sitten noin 39 prosenttia ehdokkaista oli naisia. Silloin 83 naista pääsi eduskuntaan.
+
+Eduskunnassa eli Suomen parlamentissa on yhteensä 200 edustajaa. Viikon kuluttua selviää, kuinka monta naista eduskunta saa tällä kertaa.
+
+Vaalipäivä on sunnuntai, huhtikuun 14. päivä.
+
+## Vaalitietoa selkokielellä
+
+![Puolueiden edustajia vaalikeskustelussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10723121)
+
+Avaa kuvien katselu
+
+Selkokielinen vaalikeskustelu tallennettiin Yle Areenaa varten. Kuva: Kaisa-Maaria Hilden / Yle
+
+Vaaleista saa tietoa myös selkokielellä. Selkokielinen vaalikeskustelu julkaistiin Yle Areenassa torstaina. Keskustelusta selviää, mitä mieltä puolueet ovat eri asioista.
+
+Selkokeskuksen nettisivuilla on tietoa äänestämisestä ja puolueista. Sivuilla kerrotaan esimerkiksi, kuka saa äänestää ja miten vaaleissa äänestetään.
+
+Selkouutisten sarja "Nasib ja maahanmuuttajat" kertoo vaaliteemoista, jotka kiinnostavat maahanmuuttajia. Sarja löytyy Yle Areenasta ja selkouutisten nettisivuilta.
+
+## Lasse Pöysti kuoli
+
+![Lasse Pöysti Suomisen Ollina vuonna 1941. Ollin siskoa Pipsaa esitti Maire Suvanto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10724514)
+
+Avaa kuvien katselu
+
+Lasse Pöysti (vasemmalla) vuonna 1941. Kuva: Suomen Elokuva-arkisto
+
+Näyttelijä Lasse Pöysti on kuollut. Pöysti oli 92-vuotias.
+
+Lasse Pöysti aloitti näyttelemisen melkein 80 vuotta sitten. Pöysti oli vasta lapsi, kun hän näytteli Suomisen perhe -elokuvissa.
+
+Pöysti näytteli monissa elokuvissa, televisiossa ja teatterissa. Pöysti esiintyi viimeisen kerran vuonna 2012. Silloin hän näytteli Helsingin kaupunginteatterissa.

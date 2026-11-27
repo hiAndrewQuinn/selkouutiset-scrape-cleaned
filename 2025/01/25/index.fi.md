@@ -1,0 +1,62 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 25.1.2025
+
+Työ ja työttömyys
+
+Uutisviikossa puhumme tällä kertaa työstä ja työttömyydestä.
+
+Työpaikan löytäminen voi olla nyt vaikeaa. Avoimia työpaikkoja on tarjolla entistä vähemmän.
+
+Jopa lähihoitajien ja terveydenhuollon ammattilaisten on entistä vaikeampi löytää työtä.
+
+Nyt kerromme asiasta lisää.
+
+## Avoimet työpaikat vähenivät
+
+![Helsingin työllisyyspalveluiden Kampin toimipiste. Kuva: Vesa Moilanen / Lehtikuva](https://images.cdn.yle.fi/image/upload/c_crop,h_2880,w_5120,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1737731063/39-1411320679343da7e675)
+
+Avoimia työpaikkoja on nyt tarjolla vähemmän kuin ennen.
+
+Työ- ja elinkeinoministeriö kertoo, että joulukuussa oli avoinna yhteensä noin 43 000 työpaikkaa. Se on noin 40 000 vähemmän kuin vuosi sitten.
+
+Uudet avoimet työpaikat ovat vähentyneet lähes kaikissa ammattiryhmissä.
+
+Työpaikkojen määrä ei kasva, koska Suomen talouskasvu on niin heikkoa, sanoo Työ- ja elinkeinoministeriön alivaltiosihteeri Elina Pylkkänen.
+
+## Hoitajille on yhä työtä
+
+Työpaikkojen määrä on vähentynyt, mutta jotain työtä kuitenkin löytyy.
+
+Tilastokeskus kertoo, että eniten työtä on tarjolla lähihoitajille ja muille terveydenhuollon työntekijöille.
+
+Avoimet työpaikat terveydenhuollossa ovat kuitenkin vähentyneet viime vuodesta. Rahapulan takia moni hyvinvointialue myös irtisanoo hoitajia ja muita työntekijöitä.
+
+Työtä löytyy myös myyjille ja siivoojille, mutta näilläkin aloilla avoimia työpaikkoja on vähemmän kuin ennen.
+
+Alivaltiosihteeri Elina Pylkkänen sanoo, että työpaikkoja löytyy myös tekoälyn osaajille.
+
+## Työttömien määrä kasvaa
+
+![Rakennusalalla on yhä paljon työttömiä. Kuva: Jyrki Lyytikkä / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_47/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1611419965/39-7592955ff44d5993914)
+
+Kun työpaikkoja on tarjolla entistä vähemmän, työttömien määrä kasvaa.
+
+Työ- ja elinkeinoministeriö kertoi eilen, että työttömiä oli joulukuun lopussa yli 300 000.
+
+Heistä noin 100 000 on ollut työttömänä yli vuoden.
+
+Työttömänä on myös yhä enemmän ihmisiä, joilla on korkeakoulututkinto.
+
+## Kertaus
+
+Uutisviikon aiheena oli tällä kertaa työ ja työttömyys. Kerrataan muutama asia.
+
+Työ- ja elinkeinoministeriö kertoo, että työttömiä oli joulukuun lopussa yli 300 000.
+
+Avoimia työpaikkoja on nyt tarjolla entistä vähemmän.
+
+Uudet avoimet työpaikat ovat vähentyneet lähes kaikissa ammattiryhmissä.
+
+Parhaiten työtä löytyy lähihoitajille ja muille terveydenhuollon ammattilaisille sekä myyjille ja siivoojille.
+
+Tämä oli Uutisviikko selkosuomeksi. Kuulemiin!
+

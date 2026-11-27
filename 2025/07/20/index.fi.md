@@ -1,0 +1,73 @@
+# Radio | Uutisviikko selkosuomeksi | sunnuntai 20.7.2025
+
+Naalin eli napaketun suojelu.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Uutisviikon aihe on naali. Naalin pesintä on Suomessa onnistunut tänä kesänä. Nyt kerromme lisää tästä Suomessa harvinaisesta eläimestä.
+
+## Naalin pesintä onnistui nyt neljättä kesää
+
+![Naali istuu kannon päällä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_296/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1737560935/39-14071296788c75d14c10)
+
+Avaa kuvien katselu
+
+Naali (Vulpes lagopus, aiemmin Alopex lagopus) on koiraeläin, joka elää pohjoisen pallonpuoliskon tundralla.  Kuva: Martin Wagner/ All Over Press
+
+Naalin tilanne Suomessa on parantunut.
+
+Naali eli napakettu on koiraeläin, joka elää pohjoisen pallonpuoliskon tundralla. Naali on hieman kettua pienempi.
+
+Naaleja on Pohjois-Suomessa Lapin tunturialueella.
+
+Nyt on jo neljäs kesä, kun naalien pesintä on Suomessa onnistunut. Pesintä tarkoittaa, että eläin pystyy rakentamaan pesän, saa poikasia ja pystyy hoitamaan ne.
+
+Metsähallitus arvioi, että tänä kesänä kolmessa naalin pesässä voi olla poikasia. Tavoite on palauttaa naali pysyvästi Suomen luontoon.
+
+## Naalikanta oli heikko pitkään
+
+![Uhanalaisen naalin pennut odottavat sopuliateriaa.](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1569052794/39-5929535d85d835a8190)
+
+Avaa kuvien katselu
+
+Naali metsästettiin Suomessa melkein sukupuutton. Kuva: Albatross World Sales GmbH
+
+Naalin pesintä onnistui myös viime kesänä, vaikka naaleilla oli vain vähän syötävää. Jyrsijöitä, kuten myyriä ja sopuleita, ei ole ollut tarpeeksi.
+
+Siksi Suomen tunturialueilla on ollut 30 naalien ruokinta-automaattia.
+
+Naalien pesintä onnistui vuonna 2022 ensimmäistä kertaa pitkään aikaan. Sitä ennen pesintä onnistui vuonna 1996.
+
+Naali rauhoitettiin vuonna 1930 Suomessa ja muissa Pohjoismaissa. Sitä ennen naalia metsästettiin paljon, koska sen turkki oli arvokas.
+
+## Naaleja on Suomessa vähemmän kuin muualla
+
+![Karttakuva, johon merkitty naalien pesinnät Suomessa, Ruotsissa ja Norjassa vuonna 2023.](https://images.cdn.yle.fi/image/upload/c_crop,h_1260,w_2240,x_0,y_37/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1705918404/39-123130965ae3e8eac10f)
+
+Avaa kuvien katselu
+
+Naalien pesinnät vuonna 2023. Kuva: Alexandra Antell/WWF
+
+Naali on Suomessa erittäin uhanalainen laji eli vaarassa hävitä.
+
+Metsähallituksella ja luontojärjestö WWF:llä on yhteinen pohjoismainen suojeluohjelma.
+
+Naalin suojelu on saanut 2,3 miljoonaa euroa rahaa Euroopan unionilta. Metsähallituksen osuus on puoli miljoonaa euroa.
+
+Rahan avulla Metsähallitus ruokkii naaleja ja metsästää kettuja alueella. Kettu kilpailee naalin kanssa samasta ravinnosta.
+
+Tunturissa retkeilijä voi suojella naalia, kun vie pois kaiken ruoan, joka kelpaa ketulle.
+
+2000-luvun alussa naaleja oli Suomen, Ruotsin ja Norjan alueella vain noin 40–60 yksilöä. Suojelu on auttanut, ja nyt naaleja on noin 550
+
+## Kertaus
+
+Uutisviikon aihe oli naalien pesintä Suomen Lapissa.
+
+Uhanalainen naali on voinut viime vuosina paremmin kuin pitkään aikaan. Naalin pesintä on nyt onnistunut neljänä kesänä peräkkäin.
+
+Rauhoituksesta huolimatta naaleja ei ole Suomessa paljon.
+
+Tässä oli Uutisviikko selkosuomeksi - kuulemiin ensi lauantaihin!

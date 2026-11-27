@@ -1,0 +1,69 @@
+# Sunnuntai 23.12.2018 (radio)
+
+Tsunami Indonesiassa. Verenpainelääke pois myynnistä. Lapissa jouluturistien vilkas päivä. Jouluna sataa lisää lunta.
+
+## Indonesiassa vakava tsunami
+
+![Kartta, jossa tsunamin keskus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10570311)
+
+Avaa kuvien katselu
+
+Tsunami syntyi Jaavan ja Sumatran välissä.  Kuva: Yle Uutisgrafiikka
+
+Indonesiassa on ollut paha tsunami. Tsunamin aallot tulivat rantaan Jaavan ja Sumatran saarilla Sundansalmessa. Tsunami tapahtui lauantaina illalla. Viranomaisten mukaan aallot olivat noin 2 metriä korkeita.
+
+Tsunamissa on kuollut paljon ihmisiä, ainakin 220. Loukkaantuneita on ainakin yli 800. Tsunami syntyi ilmeisesti tulivuoren purkauksen takia.
+
+Vähän ennen tsunamia alueella purkautui tulivuori, jonka nimi on Anak-Krakatau. Epäillään, että purkaus on aiheuttanut maanvyöryjä meren pohjassa. Vedenalaiset maanvyöryt ovat synnyttäneet tsunamin.
+
+Asukkaat kertovat, että tsunami iski yhtäkkiä. Tsunamia ei osattu varoa.
+
+## Suomalaisia Indonesiassa yli 700
+
+![Ilmakuva tsunamin tuhoista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10570440)
+
+Avaa kuvien katselu
+
+Tsunami tuhosi paljon taloja.  Kuva: Azwar Ipank / AFP
+
+Suomen viranomaiset selvittävät, onko suomalaisia kuollut tsunamissa. Sunnuntaina päivällä uskottiin, että suomalaisia ei ole kuollut tsunamissa.
+
+Indonesiassa on kuitenkin paljon suomalaisia. Yli 700 suomalaista on ilmoittanut ulkoministeriölle, että he ovat matkalla Indonesiassa.
+
+Tsunamin alue ei ole ollut turistien suosiossa. Alueella on nyt sadekausi. Se vähentää turistien määrää.
+
+## Verenpainelääke poistettiin myynnistä mutta potilaille ei kerrottu
+
+![lääkepurkki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10010895)
+
+Avaa kuvien katselu
+
+Suomessa on otettu tänä vuonna pois myynnistä yhteensä 2 verenpainelääkettä. Kuva: AOP
+
+Suomen lääkevirasto on poistanut yhden verenpainelääkkeen myynnistä mutta virasto ei ole kertonut poistamisesta. Lääkevirasto Fimea antoi apteekeille määräyksen lokakuussa. Määräyksestä ei kerrottu esimerkiksi potilaille tai medialle.
+
+Fimea sanoo, että lääkkeiden määrä oli pieni. Fimea ei kerro, mikä yhtiö toi lääkettä Suomeen.
+
+Fimea sanoo, että jos lääkettä käyttää pitkään eli monen vuoden ajan, voi riski sairastua syöpään kasvaa. Viraston mukaan riski on tosi pieni. Verenpainelääke otettiin pois myynnistä, koska yksi lääkkeen aine ei ollut tarpeeksi puhdasta.
+
+## Lapissa vilkas jouluturistien päivä
+
+![Heahttái seaivvui dán sesoŋŋa vuosttas charter 30.11.2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10536890)
+
+Avaa kuvien katselu
+
+Jouluturistien aika on Lapissa nyt tosi vilkas. Kuva: Vesa Toppari / Yle
+
+Tänään oli Suomessa tosi vilkas jouluturistien päivä. Rovaniemen, Kittilän, Ivalon, Kuusamon ja Enontekiön kentille laskeutui yli 90 lentokonetta. Niistä yli 60 tuli ulkomailta.
+
+Suomeen tuli jouluturisteja paljon Britanniasta. Vilkkaasta turistipäivästä kertoi esimerkiksi sanomalehti Lapin Kansa.
+
+## Jouluna tulee lisää lunta
+
+![joulupukki talvisessa maisemassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10562086)
+
+Avaa kuvien katselu
+
+Tänä vuonna koko Suomi viettää valkoisen joulun. Kuva: AOP
+
+Suomen joulu on tänä vuonna joka paikassa valkoinen. Ennustetaan, että lunta tulee jouluna lisää moneen paikkaan. Huomenna jouluaattona on pakkasta vähemmän kuin tänään.

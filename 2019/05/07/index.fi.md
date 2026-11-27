@@ -1,0 +1,73 @@
+# Tiistai 7.5.2019 (radio)
+
+Hallitusneuvottelut alkavat. Vanhusten kotihoidossa on ongelmia. Start-up-firmat maksavat Suomessa pienempää palkkaa kuin muissa Pohjoismaissa. Suosittu Norppalive on taas alkanut.
+
+## Hallitusneuvottelut
+
+![Hallitustunnustelija, SDP:n puheenjohtaja Antti Rinne pitää hallitustunnusteluja koskevaa tiedotustilaisuutta eduskunnassa Helsingissä 7. toukokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10771734)
+
+Avaa kuvien katselu
+
+Antti Rinne (vasemmalla) kertoi puolueiden keskusteluista. Kuva: Roni Rekomaa / Lehtikuva
+
+Hallitusneuvottelut alkavat. SDP:n puoluejohtaja Antti Rinne kertoo keskiviikkona, mitkä puolueet aloittavat neuvottelut hallituksesta.
+
+Rinne on tavannut muiden puolueiden johtajat. Puoluejohtajien keskustelut loppuivat tiistaina. Nyt Rinne arvioi, mitkä puolueet pystyvät parhaiten yhteistyöhön.
+
+SDP johtaa hallitusneuvotteluja, koska se voitti vaalit huhtikuussa. SDP on nyt Suomen parlamentin eli eduskunnan suurin puolue.
+
+## Vanhusten kotihoito
+
+![Lähihoitaja Ikäihmisen kotona ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10734232)
+
+Avaa kuvien katselu
+
+Lähihoitaja vanhuksen luona. Kuva: Isto Janhunen / Yle
+
+Vanhusten kotihoidossa on ongelmia, koska hoitajia on liian vähän.
+
+Joskus vanhuksen luokse ei tule hoitajaa oikeaan aikaan, ja vanhus voi jäädä ilman lääkkeitä.
+
+Joskus vanhuksen luokse tulee vartija tai taksikuski. Näin voi käydä esimerkiksi silloin, kun vanhus painaa turvapuhelimen hälytysnappia.
+
+Vartijat ovat jopa vaihtaneet vanhusten vaippoja.
+
+Ylen MOT-ohjelma selvitti vanhusten kotihoidon ongelmia. Ohjelman voi katsoa Yle Areenasta.
+
+**Katso MOT**
+
+## Start-up-firmojen palkat
+
+![Elina Arponen, toimitusjohtaja, Quicksave](https://img.img-cdn.yle.fi/crop_extract,w_5056,h_2844,x_0,y_134/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5607205ccfe2d721b55/1557127961)
+
+Avaa kuvien katselu
+
+Quicksave on start-up, joka kehittää pelejä. Kuva: Markku Pitkänen / Yle
+
+Start-up-firmat maksavat Suomessa pienempää palkkaa kuin muissa Pohjoismaissa. Start-up tarkoittaa nuorta firmaa, jolla on jokin uusi idea.
+
+Uusi kysely kertoo, että suurimmat palkat ovat tanskalaisissa start-up-firmoissa. Myös Norjassa ja Ruotsissa palkat ovat paremmat kuin Suomessa.
+
+Yksi selitys on se, että start-up-firmojen työviikko on Suomessa lyhyempi kuin muissa Pohjoismaissa. Suomalaisessa start-upissa tehdään työtä 42 tuntia viikossa. Norjalaisissa start-up-firmoissa tehdään työtä jopa 49 tuntia viikossa.
+
+## Norppalive
+
+![Saimaannorpat köllöttelevät luodoilla karvanvaihtoaikaan toukokuussa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10219342)
+
+Avaa kuvien katselu
+
+Saimaannorppa lepää kivellä. Kuva: Petri Vironen / Yle
+
+Suosittu Norppalive on taas alkanut. Norppalive on nettilähetys, jota ihmiset voivat seurata netissä.
+
+Norppaliven kamera kuvaa rantakiveä Saimaa-järven rannalla. Norpat tulevat usein lepäämään kiven päälle.
+
+Ensimmäinen Norppalive oli keväällä 2016. Jo yli 6 miljoonaa katsojaa on seurannut Norppaliveä tähän mennessä.
+
+Norppaliven tähti on Pullervo. Se oli Norppaliven ensimmäinen esiintyjä, ja sen jälkeen kamera on kuvannut sitä joka kevät.
+
+Norppa on harvinainen hylje-eläin. Niitä elää vain Saimaa-järvellä Suomessa.
+
+Norppia on noin 400. Viime talvena saimaannorpan poikasia eli kuutteja syntyi paljon, yli 80.
+
+**Katso Norppaliveä**

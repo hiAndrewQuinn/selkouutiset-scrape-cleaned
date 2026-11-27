@@ -1,0 +1,81 @@
+# TV | Selkouutiset | torstai 2.10.2025
+
+Puoluekannatus. Maahanmuuttajat. Metsäpalosammutin. Sääennuste.
+
+## Puoluekannatus
+
+Aluksi uutinen politiikasta.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Suosituin puolue on SDP.
+
+SDP:tä kannattaa melkein 25 prosenttia suomalaisista. SDP on oppositiopuolue eli se ei ole hallituksessa.
+
+Toiseksi suosituin puolue on kokoomus.
+
+Kokoomuksen kannatus on melkein 19 prosenttia.
+
+Kokoomus on hallituspuolue ja myös pääministeri **Petteri Orpo** on kokoomuksesta.
+
+Kolmanneksi suosituin puolue on hallituspuolue perussuomalaiset.
+
+Perussuomalaisten kannatus on melkein 15 prosenttia.
+
+Perussuomalaisten kannatus on noussut. Puolue nousi keskustan edelle.
+
+Keskusta putosi sijalle 4. Keskusta ei ole hallituksessa.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Neljä suosituinta puoluetta ovat SDP, kokoomus, perussuomalaiset ja keskusta.
+
+## Maahanmuuttajat
+
+Nyt uutinen työperäisestä maahanmuutosta.
+
+Suomi tarvitsee lisää hoitajia ulkomailta. Näin sanovat hoitoalan työnantajat.
+
+Hoitoalalla on nyt työttömyyttä, mutta tilanne muuttuu.
+
+Moni hoitaja jää lähivuosina eläkkeelle. Myös vanhusten määrä kasvaa.
+
+Hoitajapula vaikeutuu 10 vuodessa.
+
+**Emma Kajander** on terveysalan työnantajien järjestön *Halin* johtaja.
+
+Kajander sanoo, että Suomen pitää olla houkuttelevampi maa ulkomaalaisille työntekijöille.
+
+Moni ulkomainen hoitaja kokee, että suomen kieli on vaikeaa.
+
+**Merlinda Aleonari** on tullut Suomeen Filippiineiltä. Hän haluaa oppia hyvin suomea, koska kieli on tärkeä.
+
+*Haluan kehittää minun suomen kieltä, koska mä tiedän, että se on niin tärkeä meidän alalla.*
+
+Hoitoalan työnantajat sanovat, että Suomi tarvitsee lisää työvoimaa ulkomailta.
+
+## Metsäpalojen sammutin
+
+Lopuksi uutinen tekniikasta.
+
+Suomessa on kehitetty sadetinkärry metsäpalojen sammuttamiseen.
+
+Sammutusletkuja on raskasta ja hidasta vetää metsään käsin.
+
+Uusi keksintö helpottaa työtä.
+
+Kärryllä metsään levitetään letku, jossa on isoja sadettimia.
+
+Yksi ihminen pystyy levittämään 5 minuutissa 600 metriä sadetinletkua.
+
+Suomessa on tehty keksintö metsäpalojen sammuttamiseen.
+
+Sammutinta on tarkoitus myydä moniin maihin ulkomaille.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Sää on poutaista eli ei sada. Lämpötila on 8 ja 11 asteen välillä.
+
+Yöllä on paikoin pakkasta.

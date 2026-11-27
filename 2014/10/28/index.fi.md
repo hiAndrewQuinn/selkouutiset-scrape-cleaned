@@ -1,0 +1,59 @@
+# Maanantai 27.10.2014
+
+Itä-Suomessa oli paha auto-onnettomuus. Länsimaita kannattavat puolueet voittivat Ukrainan parlamenttivaaleissa. Suomalaiset ja virolaiset miettivät tunnelin rakentamista.
+
+## Itä-Suomessa oli paha auto-onnettomuus
+
+![Kolaripaikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7552676)
+
+Avaa kuvien katselu
+
+Onnettomuuspaikka Rautavaaralla. Kuva: Toni Pitkänen / Yle
+
+Itä-Suomessa Rautavaaralla on ollut paha auto-onnettomuus. Onnettomudessa kuoli nainen ja hänen kolme (3) lastaan.
+
+Onnettomuus tapahtui, kun nainen ajoi henkilöautolla päin bussia myöhään sunnuntaina. Poliisi sanoo, että nainen ajoi päin bussia tahallaan.
+
+Kuolleen naisen mies oli bussin kyydissä. Kaksi kuollutta lasta oli naisen ja miehen yhteisiä. Vanhin lapsista oli kuusi vuotta vanha.
+
+Poliisi ei vielä tiedä, miksi nainen ajoi päin bussia.
+
+## Ukrainan parlamenttivaaleissa voittivat puolueet, jotka kannattavat länsimaita
+
+![Vaalitoimitsijat työssään äänestyspaikassa Kramatorskissa lähellä Slovjanskia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7552620)
+
+Avaa kuvien katselu
+
+Vaalien työntekijöitä Kramatorskissa Itä-Ukrainassa. Kuva: Roman Pilipey / EPA
+
+Ukrainan parlamenttivaaleissa ovat voittaneet ne puolueet, joiden mielestä Ukrainan on hyvä olla lähellä länsimaita. Presidentti Petro Porošenkon ja pääministeri Arseni Jatsenjukin puolueet saivat paljon ääniä. Erityisesti pääministeri Arseni Jatsenjuk on arvostellut paljon Venäjää.
+
+Ukrainan tulevaisuudelle on tärkeää, mitä itäukrainalaiset ajattelevat vaalien tuloksesta. Itäukrainalaiset haluavat olla lähempänä Venäjää kuin länsiukrainalaiset. Joissakin Itä-Ukrainan osissa ei äänestetty ollenkaan. 
+
+## Pitkäaikaistyöttömien määrä kasvaa
+
+![Nukkuvan naisen jalat näkyvät peiton alta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6520729)
+
+Avaa kuvien katselu
+
+Kuva: Seppo Sarkkinen / Yle
+
+Suomessa on pian yli 100 000 pitkäaikaistyötöntä. Pitkäaikaistyötön on sellainen ihminen, joka on ollut työtön yli vuoden ajan.
+
+Nykyään Suomessa on vähän yli 90 000 pitkäaikaistyötöntä, mutta heidän määränsä kasvaa.
+
+Hyvä uutinen on se, että Suomessa tehtiin lokakuussa enemmän työtunteja kuin ennen. Se tarkoittaa ehkä sitä, että tulevaisuudessa enemmän ihmisiä saa töitä.
+
+## Suomalaiset ja virolaiset miettivät tunnelin rakentamista
+
+![Mies vetää Virosta tuotuja olut- ja lonkerolaatikoita kohti autoa Helsingin Länsisatamassa torstaina 3. lokakuuta¨.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7383529)
+
+Avaa kuvien katselu
+
+Suomalaiset tuovat laivalla tosi paljon alkoholia Virosta. Alkoholin tuominen on ehkä helpompaa, jos Suomen ja Viron välille rakennetaan tunneli.  Kuva: Roni Rekomaa / Lehtikuva
+
+Suomalaiset ja virolaiset tutkivat yhdessä, onko hyvä rakentaa tunneli Helsingin ja Tallinnan välille. Tallinna on Viron pääkaupunki. Tutkijat laskevat esimerkiksi, paljonko rakentaminen maksaa. Jos tunneli rakennetaan, se kulkee Itämeren alla.
+
+Jotkut ajattelevat, että Suomelle on hyvä asia, jos tunneli rakennetaan. Tavaroita on ehkä helpompi viedä Suomesta Eurooppaan tunnelia pitkin. Nykyään tavarat täytyy kuljettaa laivalla meren yli.
+
+Monet kuitenkin sanovat, että tunnelin rakentaminen on hullu ajatus, koska rakentaminen on tosi kallista.

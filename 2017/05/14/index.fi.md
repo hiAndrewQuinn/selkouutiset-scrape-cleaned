@@ -1,0 +1,75 @@
+# Sunnuntai 14.5.2017 (radio)
+
+Sunnuntaina on vietetty äitienpäivää. Ranskan presidentti on vaihtunut. Portugali on voittanut Euroviisujen laulukilpailun. Vieraan kielen puhuminen rasittaa ääntä.
+
+## Äitejä on juhlittu
+
+![Suomen Valkoisen Ruusun ritarikunnan suurristi ja rintatähti rasiassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5963020)
+
+Avaa kuvien katselu
+
+Presidentti antoi 33 äidille kunniamerkin. Kuva: Touko Yrttimaa / Yle
+
+Sunnuntaina on vietetty äitienpäivää. Äitienpäivä on joka vuosi toukokuun 2. sunnuntaina.
+
+Myös tänä vuonna joukko äitejä on saanut kunniamerkin presidentiltä. Presidentti Sauli Niinistö antoi kunniamerkin 33 äidille. He saivat kunniamerkin, koska he ovat tehneet tärkeää työtä kasvattajina.
+
+![Lahja Lehtola, Inari.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9610404)
+
+Avaa kuvien katselu
+
+Lahja Lehtola on jo eläkkeellä, mutta hoitaa vielä oman tilan poroja. Kuva: Sirkku Savusalo / Yle
+
+Kunniamerkin saajat ovat eri puolilta Suomea. Yksi heistä on Lahja Lehtola. Lehtola asuu pohjoisessa, Lapissa. Hän on porotilan emäntä.
+
+Lehtolalla on 5 omaa lasta, jotka ovat jo aikuisia. 30 vuoden ajan hän hoiti lapsia myös perhepäivähoitajana. Lisäksi Lehtola on kasvattanut 3 sijaislasta, joille hän antoi turvallisen kodin.
+
+Lehtola ja muut äidit saivat kunniamerkin juhlassa, joka järjestettiin Helsingissä.
+
+## Macron aloitti presidenttinä
+
+![39-vuotias Emmanuel Macron on astunut virkaansa Ranskan uutena presidenttinä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9612415)
+
+Avaa kuvien katselu
+
+Emmanuel Macron on Ranskan uusi presidentti. Kuva: Ian Langsdon / EPA
+
+Ranskan presidentti on vaihtunut. Emmanuel Macron aloitti presidentin työn sunnuntaina. Hän voitti Ranskan presidentinvaalit viikko sitten.
+
+Uuden presidentin aika alkoi seremonialla, joka oli Élysée-palatsissa Pariisissa. Élysée-palatsi on Ranskan presidentin asunto.
+
+Uusi presidentti puhui ranskalaisille. Macron sanoi, että maailma tarvitsee vahvaa Ranskaa.
+
+## Euroviisujen voitto Portugaliin
+
+![Salvador Sobral tuuletti voittoaan siskonsa kanssa Kiovassa lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9612297)
+
+Avaa kuvien katselu
+
+Salvador Sobral juhli voittoa yhdessä Luisa-siskon kanssa, joka kirjoitti Portugalin laulun. Kuva: Sergei Dolzhenko / EPA
+
+Portugali on voittanut Euroviisujen laulukilpailun. Kilpailu oli myöhään lauantaina Ukrainan pääkaupungissa Kiovassa.
+
+Salvador Sobral lauloi Portugalin laulun. Laulu oli rauhallinen ja tunteellinen, ja Salvador lauloi sen portugaliksi. Laulun tekijä on Salvadorin sisko Luisa.
+
+Salvador Sobral oli iloinen voitosta. Hän toivoi, että ihmiset kuuntelevat musiikkia, jossa tunteet ovat mukana.
+
+Salvador Sobral puhui myös pakolaisten puolesta. Pakolaisten tilanne on Euroopassa iso ongelma, Sobral sanoi.
+
+## Vieras kieli rasittaa ääntä
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9601341)
+
+Avaa kuvien katselu
+
+Monet puhuvat vierasta kieltä korkeammalla äänellä kuin äidinkieltä. Kuva: Yle Uutisgrafiikka
+
+Vieraan kielen puhuminen vaikuttaa ihmisen ääneen.
+
+Tutkija Kati Järvinen sanoo, että ihminen puhuu vierasta kieltä eri tavalla kuin äidinkieltä. Usein esimerkiksi äänen korkeus nousee. Siksi ääni väsyy nopeammin, kun ihminen puhuu vierasta kieltä.
+
+Järvinen sanoo, että esimerkiksi tulkit ja kielten opettajat voivat saada ääniongelmia, koska he puhuvat vierasta kieltä paljon. Siksi äänen käyttämistä on hyvä harjoitella myös vieraalla kielellä.
+
+Järvisen tutkimuksessa oli mukana ihmisiä, joiden äidinkieli on suomi tai englanti.
+
+**Yleiskielinen uutinen Järvisen tutkimuksesta**

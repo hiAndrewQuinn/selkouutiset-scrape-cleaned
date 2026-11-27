@@ -1,0 +1,63 @@
+# Lauantai 5.12.2015
+
+Presidentti Sauli Niinistö sanoo, että turvapaikanhakijoiden täytyy hyväksy esimerkiksi tasa-arvo ja demokratia. Itsenäisyyspäivänä Linnan juhlissa nähdään kauniita pukuja. Avioero voi olla vaikea ulkomaalaiselle, joka on muuttanut Suomeen avioliiton takia. Itsenäisyyspäivänä sataa ja tuulee.
+
+## Presidentti Niinistö radio-ohjelman vieraana
+
+![Tasavallan presidentti Sauli Niinistö Yle Radio 1:n vieraana 5. joulukuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8506536)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö vastasi kuuntelijoiden kysymyksiin radiossa. Kuva: Maarit Mustonen / Yle
+
+Presidentti Sauli Niinistö on puhunut turvapaikanhakijoista. Presidentti sanoo, että turvapaikanhakijoiden täytyy hyväksyä asiat, jotka ovat Suomessa tärkeitä. Esimerkiksi naisten ja miesten tasa-arvo on Suomessa tärkeää, Niinistö sanoo.
+
+Presidentti sanoo, että tasa-arvo, demokratia ja ihmisoikeudet kuuluvat suomalaiseen elämään. Myös turvapaikanhakijan täytyy ne hyväksyä. Muuten hän ei voi jäädä Suomeen, Niinistö sanoo.
+
+Niinistö puhui turvapaikanhakijoista, kun hän oli vieraana Ylen radio-ohjelmassa lauantaina. Niinistö vastasi ohjelmassa kuuntelijoiden kysymyksiin. Turvapaikanhakijat oli aihe, joka kiinnosti monia kuuntelijoita.
+
+**Kuuntele radio-ohjelma Tasavallan presidentin kyselytunti**
+
+## Linnan juhlat on pukujuhla
+
+![Baba Lybeck Sami Sykkö Jarkko Valtee itsenäisyyspäivä Linnan juhlat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8502909)
+
+Avaa kuvien katselu
+
+Sami Sykkö, Baba Lybeck ja Jarkko Valtee kertovat Ylen internet-sivuilla Linnan juhlien muodista. Kuva: Yle
+
+Sunnuntaina on Suomen itsenäisyyspäivä. Presidentti Sauli Niinistö on kutsunut Presidentinlinnaan melkein 2000 vierasta. Muut suomalaiset katsovat Linnan juhlia televisiosta.
+
+Suomalaiset haluavat nähdä televisiosta, kun vieraat tulevat Presidentinlinnaan ja kättelevät presidenttiä. Ihmisiä kiinnostaa, minkälaisia juhlavaatteita vierailla on. Monet katsovat Linnan juhlia televisiosta yhdessä ystävien kanssa. He keskustelevat siitä, kenellä on kaunein juhlapuku.
+
+Yle kertoo sunnuntaina Linnan juhlista myös internetissä. Internetissä on esimerkiksi kuvia vieraiden juhlavaatteista. Osoite on **yle.fi/linnanjuhlat**.
+
+## Avioero Suomessa voi olla ulkomaalaiselle vaikea
+
+![Huoltajuusriidat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5817310)
+
+Avaa kuvien katselu
+
+Avioero on vaikea, jos vanhemmat riitelevät lapsista. Kuva: YLE / Pekka Kauranen
+
+Monet ulkomaalaiset muuttavat Suomeen avioliiton takia. Suomessa on noin 70 000 perhettä, joissa toinen vanhempi on ulkomaalainen.
+
+Ulkomaalaisen tilanne voi olla vaikea, jos avioliitto loppuu avioeroon. Vanhemmat ehkä riitelevät lapsista. Joskus ulkomaalainen jää Suomeen vain siksi, että voi olla lähellä lapsiaan.
+
+Ylen englanninkieliset uutiset pyysi ulkomaalaisia kertomaan elämästään Suomessa avioeron jälkeen. Asiasta voi lukea lisää Yle Uutisten internet-sivuilta englanniksi ja suomeksi.
+
+**Lue lisää englanniksi**
+
+**Lue lisää suomeksi**
+
+## Itsenäisyyspäivänä sataa ja tuulee
+
+![Tuulessa rikki mennyt sateenvarjo Helsingin Kampissa 5. joulukuuta. Tuulisen ja sateisen sään ennustetaan jatkuvan myös itsenäisyyspäivää kohti mentäessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8506801)
+
+Avaa kuvien katselu
+
+Itseäisyyspäivänä Suomeen tulee uusi myrsky. Kuva: Martti Kainulainen / Lehtikuva
+
+Perjantain ja lauantain välisenä yönä Suomessa oli myrsky. Esimerkiksi Kotkan ja Haminan kaupungeissa merivesi nousi kaduille asti. Myrsky ei kuitenkaan tehnyt suurta vahinkoa.
+
+Sunnuntaina Suomeen tulee uusi myrsky. Itsenäisyyspäivää vietetään sateessa ja kovassa tuulessa. Sää on kuitenkin lämmin, Etelä-Suomessa lämpötila voi olla melkein 10 astetta.

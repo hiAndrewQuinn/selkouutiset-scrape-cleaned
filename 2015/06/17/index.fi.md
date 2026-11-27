@@ -1,0 +1,57 @@
+# Keskiviikko 17.6.2015
+
+Isis houkuttelee joukkoonsa muslimipoikia, joiden perhe ei ole Suomessa. Seiso töissä välillä! Suomen ja Venäjän presidentit tapasivat. Talvivaaraan lisää valtion rahaa.
+
+## Isis houkuttelee työttömiä musliminuoria
+
+![Mogadishusta 14-vuotiaana paennut Habat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8080407)
+
+Avaa kuvien katselu
+
+Habat Wardhere käy koulussa ja töissä. Isis ei kiinnosta häntä.  Kuva: Tuomo Björksten / Yle
+
+Ääri-islamilainen terroristijärjestö Isis houkuttelee Suomessa joukkoonsa varsinkin poikia, jotka ovat tulleet yksin maahan hakemaan turvapaikkaa. Viranomaiset arvioivat, että tällaisia poikia on monta sataa - heidän perheensä ovat jääneet esimerkiksi Somaliaan, Irakiin tai Afganistaniin.
+
+19-vuotias somalialainen Habat Wardhere sanoi Yle Uutisille, että elämästä Suomessa tulee vaikeampaa, kun nuori täyttää 18 vuotta. Moni joutuu ulos ryhmäkodista, harrastuksiin ei ole rahaa ja perhe on kaukana. Monella ei ole töitä eikä koulupaikkaa.
+
+Isisin miehet yrittävät houkutella tällaisia nuoria sotaan Syyriaan ja Irakiin. Miehet lupaavat nuorelle rahaa, arvoa ja paikan, johon he kuuluvat, Habat Wardhere sanoo.
+
+## Töissä kannattaa seisoa välillä
+
+![Työntekijöitä avokonttorissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5679366)
+
+Avaa kuvien katselu
+
+Istumme liikaa töissä ja kotona. Kuva: Yle
+
+Ihmiset istuvat nykyään liikaa. Se on hyvin epäterveellistä. Suomalainen liikkuu päivästään vain 20 prosenttia, lopun aikaa hän istuu, seisoo tai makaa. 
+
+Jos ihminen istuu yli seitsemän (7) tuntia päivässä esimerkiksi töissä, se on yhtä epäterveellistä kuin tupakka tai lihavuus. Edes rankka urheilu vapaa-ajalla ei poista riskiä. Kun istuu paljon, ihminen lihoo enemmän,  lihaksista tulee heikommat ja luista hauraammat.
+
+Terveysviranomaiset sanovat, että töissä kannattaa seisoa välillä.  Myös lasten pitää liikkua enemmän päiväkodissa ja koulussa. 
+
+## Putin: Suomen on turvallista pysyä pois sotilasliitoista
+
+![Sauli Niinistö ja Vladimir Putin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8077946)
+
+Avaa kuvien katselu
+
+Niinistö ja Putin Moskovassa 16. kesäkuuta. Kuva: Martti Kainulainen / Lehtikuva
+
+Suomen ja Venäjän presidentit tapasivat tiistai-iltana Moskovassa. Presidentit puhuivat muun muassa Ukrainan sodasta ja Venäjän ja sotilasliitto Naton asevarustelusta Itämerellä. 
+
+Venjän presidentti Vladimir Putin sanoi tapaamisen jälkeen tiedotustilaisuudessa, että Suomi on parhaassa turvassa, jos se ei liity sotilasliittoon. Putin sanoi, että Nato lähestyy Venäjän rajoja ja jos naapurimaasta tulee Venäjälle uhka, Venäjän armeijan täytyy reagoida.     
+
+## Valtiolta lisää rahaa Talvivaaralle
+
+![Kaivinkone lastaa louhetta kuorma-autoon avolouhoksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7970453)
+
+Avaa kuvien katselu
+
+Talvivaara on valtava nikkelikaivos. Kuva: Talvivaara
+
+Suomen hallitus ehdottaa, että valtio antaa Talvivaaran kaivokselle lisää rahaa yli 100 miljoonaa euroa. 
+
+Elinkeinoministeri Olli Rehn sanoi, että valtio yrittää myydä Talvivaaran nikkelikaivoksen jollekin firmalle. Muutaman firman kanssa neuvotellaan, mutta kaivosta ei ole helppo myydä. Talvivaaralla on isoja ja vaikeita ympäristöongelmia.  
+
+Jos kukaan ei osta kaivosta, valtio joutuu sulkemaan sen ja siivoamaan jäljet. Se tulee kalliiksi. Talvivaaraan on jo sijoitettu omistajien ja valtion rahaa yhteensä yli miljardi euroa.

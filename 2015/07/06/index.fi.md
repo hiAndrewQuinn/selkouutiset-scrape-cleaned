@@ -1,0 +1,69 @@
+# Maanantai 6.7.2015
+
+Kreikan valtiovarainministeri on eronnut. Presidentti Niinistö on suosittu. Kaksi naista on päässyt palomieskoulutukseen. Vauvojen terveyskortti on nyt vihreä. Yöllä oli pakkasta.
+
+## Kreikassa ei-äänet voittivat - valtiovarainministeri erosi yllättäen
+
+![Kahdeksan ihmistä kuuntelee tarkkaavaisen näköisesti kun keskellä oleva Yanis Varoufakis puhuu heille.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8110972)
+
+Avaa kuvien katselu
+
+Valtiovarainministeri Gianis Varoufakis kansanedustajien ympäröimänä. Kuva: Alexandros Vlachos / EPA
+
+Kreikan valtiovarainministeri Gianis Varoufakis on eronnut tehtävästään. Ero on yllätys, koska Kreikan kansaäänestys oli voitto Kreikan hallitukselle. Kreikkalaiset äänestivät sunnuntaina lainaohjelman ehdoista.  Ei-äänet voittivat noin 61 prosentin osuudella.
+
+Pääministeri Alexis Tsipras toivoo, että Varoufakis ei ole mukana hallituksessa, kun Kreikan lainoista neuvotellaan. Varoufakis kertoi asiasta tiedotteessa. Euroyhmä on arvostellut Varoufakisia.
+
+Euroopan valtionvarainministerit odottavat tiistaina uusia ehdotuksia Kreikalta.  Euroyhmän johtaja sanoo, että tavoite on pitää Kreikka euroalueessa.
+
+## Presidentti Sauli Niinistö on suosittu
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8131703)
+
+Avaa kuvien katselu
+
+Tasavallan presidentti Sauli Niinistö Etyj-kokouksessa Helsingissä 6.7.2015 Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Tasavallan presidentti Sauli Niinistön suosio on korkeammalla kuin koskaan. Näin kertoo Helsingin Sanomien kysely, jonka teki TNS Gallup.
+
+86 prosenttia vastaajista sanoo, että Niinistö on hoitanut tehtävänsä erittäin tai melko hyvin.
+
+## Naisia on päässyt pitkästä aikaa palomieskoulutukseen
+
+![Palomiehiä sammutustöissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7932556)
+
+Avaa kuvien katselu
+
+Palomiehen työ on fyysisesti raskasta. Vain harva nainen on päässyt läpi rankasta kuntotestistä, jota ilman ei pääse palomieskoulutukseen. Kuva: Tenho Tornberg / Yle
+
+Suomessa kaksi (2) naista on pääsyt palomieskoulutukseen. He aloittavat opiskelun syksyllä Helsingin pelastuskoulussa. Kouluun melkein pääsi kolmaskin (3) nainen, mutta viimeinen penkkipunnerrus jäi viisi (5) senttimetriä vajaaksi.
+
+Hakijoiden joukossa on joka vuosi naisia, mutta he eivät ole päässeet läpi rankasta kuntotestistä.
+
+Suomessa työskentelee palomies-sairaankuljettajana tällä hetkellä neljä (4) naista.
+
+## Kaikki vauvat saavat nyt vihreän terveyskortin sukupuolesta riippumatta
+
+![Vihreä lasten terveyskortti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8126375)
+
+Avaa kuvien katselu
+
+Neuvolat antavat nyt lapselle vaaleanvihreän kortin, oli hän sitten tyttö tai poika. Neuvoloilta on toivottu neutraalin värisiä kortteja. Tähän asti tytöt saivat vaaleanpunaisen ja pojat vaaleansinisen terveyskortin. Kuva: Lekolar
+
+Suomalaisissa neuvoloissa vauvojen terveyskorttien väri on nyt vihreä.  Äitiysneuvolassa seurataan syntyvän lapsen terveyttä, ja siellä lapsen vanhemmat saavat neuvoja ja ohjeita.
+
+Neuvolakortit ovat olleet tähän asti vaaleansinisiä pojille ja vaaleanpunaisia tytöille. Nyt kaikki saavat vaaleanvihreän kortin. Monet ovat toivoneet neutraalia väriä, josta ei käy ilmi lapsen sukupuoli.
+
+Ensimmäiset neuvolat perustettiin Suomessa 1920-luvulla.
+
+## Suomessa oli paikoin pakkasyö
+
+![Joensuun Tuupovaarassa elohopea painui pakkaselle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8131342)
+
+Avaa kuvien katselu
+
+Autoilijat joutuvat heinäkuussa vain harvoin raaputtamaan tuulilasia jäästä. Sunnuntain ja maanantain välisenä yönä pakkasta oli monin paikoin, ja Sallan Naruskalla Lapissa mitattiin -1,7 astetta. Kuva: Jouko Ignatius
+
+Suomessa on ollut sunnuntain ja maanantain välisenä yönä joissakin paikoissa pakkasta eli miinusasteita.  Lapissa Sallan Naruskalla mitattiin yöllä lukemaksi -1,7 astetta.
+
+Pakkasta on vain harvoin heinäkuussa. Kaikkien aikojen pakkasennätys mitattiin vuoden 1958 heinäkuussa. Lapissa Enontekiön Kilpisjärvellä mitattiin silloin - 5 astetta.

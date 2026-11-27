@@ -1,0 +1,61 @@
+# TV | Selkouutiset | torstai 4.9.2025
+
+Puoluekannatus. Vammaisten apu. Cheek. Sää
+
+## SDP on suosituin puolue
+
+Ensin uutinen politiikasta.
+
+Suomen suosituin puolue on SDP.
+
+Yle kysyi ihmisiltä, mitä puoluetta he kannattavat. Lähes 26 prosenttia ihmisistä kannattaa SDP:tä. SDP:n suosio kasvoi edellisestä kyselystä.
+
+SDP eli sosiaalidemokraattinen puolue on oppositiossa.
+
+Hallituspuolue kokoomusta kannattaa yli 19 prosenttia ihmisistä. Se on toiseksi suosituin puolue.
+
+Kolmanneksi suosituin puolue on oppositiopuolue keskusta. Neljänneksi suosituin on hallituspuolue perussuomalaiset.
+
+Suomen suosituin puolue oli Ylen kyselyssä SDP.
+
+## Vammaisten vaikea saada apua
+
+Seuraavaksi uutinen vammaisten kotipalveluista.
+
+Monen vammaisen ihmisen on vaikeaa saada riittävästi apua kotiin.
+
+Vammaisten apua on vähennetty, koska hyvinvointialueet säästävät rahaa.
+
+Kerromme esimerkin. CP-vammainen Alexandra Kylmäaho muutti Helsingistä Ouluun. Helsingissä hänellä oli koko ajan oma avustaja kotona.
+
+Oulussa Kylmäaho joutuu olemaan yksin kotona 14 tuntia päivässä. Silloin ei voi esimerkiksi käydä vessassa.
+
+Hyvinvointialue sanoo, että se ei voi tarjota apua kotiin koko vuorokaudeksi.
+
+Monen vammaisen ihmisen on vaikeaa saada riittävästi apua.
+
+## Cheek moittii hallitusta
+
+Lopuksi uutinen kuuluisasta, entisestä rap-laulajasta Cheekistä.
+
+Entinen rap-laulaja Cheek eli Jare Tiihonen arvostelee Suomen hallitusta.
+
+Tiihosesta on kirjoitettu kirja, jossa hän moittii hallituksen Palestiina-politiikkaa.
+
+Tiihonen sanoo, että Gazassa tapahtuu palestiinalaisten kansanmurha. Ihmiset nääntyvät nälkään, mutta hallitus ei tee mitään, Tiihonen moittii.
+
+Tiihonen eli Cheek oli tosi suosittu rap-laulaja, kun hän lopetti musiikkiuransa 7 vuotta sitten.
+
+Tiihonen kertoo kirjassa, että hänellä oli isoja mielenterveyden ongelmia musiikkiuran aikana.
+
+Nyt Tiihonen haluaa elää rauhassa.
+
+## Sää on lämmintä
+
+Huomenna on lämmin päivä.
+
+Maan etelä- ja keskiosassa voi olla jopa 24 astetta, jos aurinko paistaa.
+
+Jos on sumua, sää on kylmempää.
+
+Pohjoisessa voi sataa vähän.

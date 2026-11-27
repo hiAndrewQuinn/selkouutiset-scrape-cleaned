@@ -1,0 +1,75 @@
+# Selkouutiset | maanantai 10.8.2026
+
+Poliisin toiminta. Vaatepalautukset. Yleisurheilun EM-kisat. Sääennuste.
+
+## Nuoren moponkuljettajan pysäytys
+
+Aluksi uutinen poliisista.
+
+Korkea viranomainen tutkii poliisin toimintaa Tuusulassa.
+
+Poliisi pysäytti nuoren moponkuljettajan rajusti lauantaina. Tilanne näkyy videolla, jonka ihmiset kuvasivat.
+
+Poliisiauto kiilasi mopon ojaan. Mopo törmäsi aitaan ja teräskonttiin.
+
+Poliisin toiminta oli ehkä liian vaarallista, koska tien vieressä oli aita ja kontti. Mopoilija oli vasta nuori poika.
+
+Korkea viranomainen tutkii nyt poliisin toiminnan.
+
+Myös moponkuljettajan toiminta tutkitaan.
+
+Moposta puuttui rekisterikilpi ja mopo kulki ehkä liian kovaa.
+
+Moponkuljettaja loukkaantui vain vähän, mutta tilanteessa oli vaara loukkaantua pahasti.
+
+## Vaatteiden palautus verkkokauppoihin
+
+Nyt uutinen verkkokauppojen vaatepalautuksista.
+
+Suomalaiset palauttavat noin 30 prosenttia vaateostoksista.
+
+Nämä ovat naistenvaatekauppa-Papun vaatteiden palautuksia.
+
+Papun omistaja **Tuomo Saarni** sanoo, että yhden vaatteen palautuksesta tulee firmalle jopa 14 euroa kuluja.
+
+Siksi palautukset harmittavat pieniä verkkokauppoja.
+
+Suomalaiset palauttavat noin 30 prosenttia verkkokauppojen vaateostoksista.
+
+Palautuksen syy on usein väärä koko.
+
+Toinen syy on, että vaate ei tunnu tai näytä hyvältä, kun sen pukee kotona päälle.
+
+Vaatekauppa Papu haluaa vähentää palautuksia. Tuomo Saarni sanoo, että kuvia ja tuotetietoja pitää parantaa.
+
+## Yleisurheilun EM-kisat
+
+Lopuksi urheilu-uutinen.
+
+Yleisurheilun Euroopan-mestaruuskisat eli EM-kisat alkavat tänään.
+
+Kisat pidetään Birminghamissa, Britanniassa.
+
+Kisoihin osallistuu yli 60 suomalaista yleisurheilijaa.
+
+Moukarinheittäjä **Silja Kosonen** sanoo, että harjoituksissa moukari on lentänyt välillä hyvin ja välillä huonosti.
+
+Nyt tuntuu, että heitot onnistuvat.
+
+*”Treeneissä on välillä lentänyt vähemmän ja sitten taas enemmän. Nyt näyttää ihan lupaavalta, mitä on tässä alettu keventää, niin tuntuu ihan hyvältä.”*
+
+Yleisurheilun EM-kisat alkavat tänään.
+
+Kisat kestävät 7 päivää eli sunnuntaihin asti.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Tiistaina maan etelä- ja keskiosassa sataa välillä vettä.
+
+Välillä paistaa aurinko.
+
+Pohjoisessa ei sada.
+
+Lämpötila on koko maassa alle 20 astetta.

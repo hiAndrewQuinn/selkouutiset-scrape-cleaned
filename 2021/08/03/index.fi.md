@@ -1,0 +1,78 @@
+# Tiistai 3.8.2021
+
+Koronatartunnat. Etäopinnot korona-aikana. Alvar Aalto. Mira Potkonen. Sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Koronaluvut
+
+![Yleisöä Paula Vesalan keikalla loppuunmyydyssä Tammerfestissä Ratinassa 23.7.2021. Pirkanmaan koronatilanteen status oli paria päivää aiemmin siirretty kiihtymisvaiheeseen.](https://img.img-cdn.yle.fi/crop_extract,w_2958,h_1664,x_42,y_187/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-836251610130d1d8e72/1628827666)
+
+Avaa kuvien katselu
+
+Korona on levinnyt kesällä monissa tapahtumissa. Kuva: Miikka Varila / Yle
+
+Suomessa on ilmoitettu tiistaina melkein 700 uutta koronatartuntaa.
+
+Sairaalahoidossa ja tehohoidossa on yhteensä noin 100 koronapotilasta.
+
+Koronatartuntojen määrä on kasvanut niin paljon, että Helsingin, Turun ja Tampereen alueet ovat jo koronaepidemian vakavimmalla tasolla. Se tarkoittaa, että alueilla voidaan ottaa käyttöön tiukkoja koronarajoituksia.
+
+## Etäopinnot
+
+![Etäopiskelu, Taideyliopisto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11298805)
+
+Avaa kuvien katselu
+
+Taideyliopisto Kuva: Jussi Mankkinen / Yle 
+
+Monet ovat huolissaan korona-ajan etäopinnoista. Esimerkiksi ammattiin opiskelu voi olla etänä vaikeaa.
+
+Mika Kuismanen Suomen Yrittäjät -järjestöstä sanoo, että ongelmia on esimerkiksi rakennusalalla. Kaikkia alan töitä ei voi oppia kunnolla etäopetuksen avulla.
+
+Kuismanen sanoo, että opiskelijat voivat kärsiä huonosta opetuksesta pitkään. Vaikutukset voivat tuntua koko työuran ajan, Kuismanen sanoo.
+
+Myös opiskelijat kokevat, että he eivät ole saaneet tarpeeksi tukea opintoihin korona-aikana. Opetusministeriön selvityksessä yli 40 prosenttia opiskelijoista koki, että oma ammatillinen osaaminen on jäänyt heikommaksi korona-ajan takia.
+
+## Alvar Aalto
+
+![Säynätsalon kunnantalo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8901820)
+
+Avaa kuvien katselu
+
+Säynätsalon kunnantalo. Kuva: Jarkko Riikonen / Yle
+
+Suomalainen arkkitehtuuri on saanut kiitosta.
+
+Amerikkalainen lehti The New York Times on valinnut Säynätsalon kunnantalon merkittävien rakennusten listalle. Listalla on 25 modernia rakennusta, jotka on suunniteltu erityisen hyvin.
+
+Säynätsalon kunnantalon suunnittelija on arkkitehti Alvar Aalto. Aalto on Suomen kuuluisin arkkitehti. Hän kuoli vuonna 1976.
+
+Säynätsalon kunnantalo valmistui vuonna 1952. The New York Times ihailee rakennuksen muotoilua ja sen materiaaleja, tiiltä ja suomalaista puuta.
+
+Säynätsalon kunnantalo on Jyväskylän alueella. Aallon töitä on myös esimerkiksi Finlandia-talo Helsingissä.
+
+## Mira Potkonen
+
+![Mira Potkonen lyö.](https://img.img-cdn.yle.fi/crop_extract,w_4998,h_2811,x_0,y_39/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8381236109035e74167/1628125755)
+
+Avaa kuvien katselu
+
+Nyrkkeilijä Mira Potkonen (vasemmalla) saa mitalin Tokiossa. Myöhemmin selviää, minkä mitalin hän saa. Kuva: 2021 Luis Robayo - Pool
+
+Vielä urheilu-uutinen Tokion olympialaisista: Nyrkkeilijä Mira Potkonen on päässyt mitaliotteluihin.
+
+Paikka mitaliotteluissa varmistui, kun Potkonen voitti Turkin Esra Yildizin tiistaina. Potkosen seuraava ottelu on torstaina.
+
+## Keskiviikon sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12045743)
+
+Avaa kuvien katselu
+
+Sää lämpenee keskiviikkona.
+
+Etelässä lämpötila on jo noin 20 astetta.
+
+Sää on myös poutaista, vain Lapissa voi tulla sateita.

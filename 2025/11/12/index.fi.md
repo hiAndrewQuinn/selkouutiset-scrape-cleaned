@@ -1,0 +1,47 @@
+# TV | Selkouutiset | keskiviikko 12.11.2025
+
+Verotus. Maahanmuuttajien työnhaku. Vuoden selväsanainen. Sää.
+
+## Verotus
+
+Aluksi uutinen verotuksesta.
+
+Verohallinto on julkaissut tietoja viime vuoden verotuksesta. Tiedoista käy ilmi, ketkä ansaitsivat viime vuonna eniten rahaa ja maksoivat myös eniten veroa.
+
+Verohallinto kertoo, että viime vuodelta kertyi kaikkiaan noin 45 miljardia euroa tuloveroja.
+
+Suomen suurituloisin oli viime vuonna ruokalähettifirma Woltin perustaja Mikko Kuusi. Hän ansaitsi yli 80 miljoonaa euroa.
+
+Yle julkaisee verotiedot kaikista suomalaisista, jotka tienasivat yli 150 000 euroa. Tietoja voi katsoa verokoneesta Ylen nettisivuilta.
+
+## Maahanmuuttajien työnhaku
+
+Sitten aiheena on maahanmuuttajien työnhaku.
+
+Maahanmuuttajat sanovat, että heikko kielitaito vaikeuttaa työpaikan saamista Suomessa. Helsingin seudulla yli 60 prosettia työttömistä maahanmuuttajista sanoo, että työn saaminen on vaikeaa, jos ei osaa kunnolla suomea.
+
+Moni maahanmuuttaja myös sanoo, että työtä on vaikea löytää, jos ei tunne kantasuomalaisia ihmisiä.
+
+Tiedot käyvät ilmi tutkimusartikkelista, jonka Helsingin kaupunki on julkaissut.
+
+Helsinkiläinen Sahar Said on opiskellut neljä tutkintoa.
+
+Kun hän asui vähän aikaa Saksassa, hän sai töitä heti. Suomessa hän ei ole päässyt edes työhaastatteluun.
+
+## Vuoden selväsanainen
+
+Lopuksi palkintouutinen.
+
+Vuoden selväsanainen -palkinnon saavat tänä vuonna Helsingin yliopisto ja professori Tiina Onikki-Rantajääskö.
+
+Professori Onikki-Rantajääskö on kehittänyt selkokielen yliopistokoulutusta. Se antaa mallin selkokielen opetukseen myös muille yliopistoille.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Torstaina sää vaihtelee. Pohjoisessa sataa lunta, muualla sataa vettä.
+
+Koko maassa tuulenpuuskat voivat olla voimakkaita.
+
+Lapissa on pakkasta, muualla on plusasteita

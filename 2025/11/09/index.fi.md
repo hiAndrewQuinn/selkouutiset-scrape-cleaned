@@ -1,0 +1,71 @@
+# Radio | Uutisviikko selkosuomeksi | 9.11.2025
+
+Suomalainen tryffelitutkimus
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Uutisviikon aihe ovat tryffelit. Ne ovat arvokkaita sieniä, jotka elävät maan alla. Suomessa on alkanut uusi tryffelitutkimus.
+
+## Suomessa on alkanut tryffelitutkimus
+
+![Tryffeleitä tutkiva Monica Alt katselee sormissaan olevaa tryffeliä.](https://images.cdn.yle.fi/image/upload/c_crop,h_2773,w_4930,x_0,y_625/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1761655042/39-15446686900b4bbc6559)
+
+Avaa kuvien katselu
+
+Sienten tutkiminen kiinnostaa Monica Altia. Tutkimuskohteeksi valikoituivat tryffelit, sillä niistä tiedetään vasta vähän. Kuva: Petteri Juuti / Yle
+
+Suomessa tutkitaan nyt tryffelin salaisuuksia. Lokakuussa alkoi uusi tryffelitutkimus.
+
+Siinä selvitetään, mitä tryffelilajeja Suomessa kasvaa ja mistä niitä löytyy. Tähän asti on ajalteltu, että tryffelit ovat vaikeita löytää.
+
+Tryffelitutkimusta johtaa Luonnontieteellinen keskusmuseo. Suomen tryffeliharrastajat ry:n jäsenet keräävät näytteitä eri puolilta Suomea.
+
+Toistaiseksi Suomessa tiedetään tieteellisesti vain 5 tryffelilajia. Harrastajat kuitenkin löytävät jatkuvasti uusia ja erinäköisiä tryffeleitä eri puolilta maata.
+
+Monica Alt tekee Helsingin yliopistossa pro gradu -tutkielmaa. Hän kertoo, että todellista arviota lajeista ja määrästä ei ole vielä tehty.
+
+## Tryffelikoirat osaavat haistaa sienet
+
+![Kirsi Saloniemi ja tumma kiharakarvainen Martta-koira puistossa, jonka nurmea peittävät keltaiset ja punaiset lehdet.](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_324/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1761655027/39-15446666900b4ba7eca3)
+
+Avaa kuvien katselu
+
+Kirsi Saloniemi ja Martta-koira ovat tehokas pari tryffelin etsinnässä. Kuva: Petteri Juuti / Yle
+
+Tryffelien etsinnässä uutta ovat koirat. Erityisesti italialainen tryffelikoira lagotto romagnolo -rotu on suosittu etsintäkoira.
+
+Järvenpäässä tryffeliharrastaja Kirsi Saloniemi ja Martta-koira etsivät tryffeleitä. Saloniemi kertoo, että parhaimmillaan hän on löytänyt yli kilon tryffeleitä 3 tunnissa.
+
+Koirat voivat haistaa hyvin pieniä tryffeleitä, vaikka maa on kostea ja lehtien peitossa. Kun tryffeli löytyy, se kaivetaan esiin ja tutkitaan.
+
+Kaivamisen jälkeen maa peitetään huolellisesti. Näin sienijuuri ei vahingoitu.
+
+## Tryffeli on arvokas sieni
+
+![En person skär en bit av en mogen tryffelsvamp. Svampen är en hård svart knöl med ljusbrun insida.](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_318/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1761832423/39-1546234690363117e6dc)
+
+Avaa kuvien katselu
+
+Kuva: Marie Söderman / Yle
+
+Tryffelit ovat ehkä maailman kallein syötävä sieni. Pohjantryffeleiden kilohinta voi olla jopa monta tuhatta euroa.
+
+Kaikki tryffelit eivät kelpaa syötäväksi tai myyntiin.
+
+Tryffeleitä ei saa kerätä jokaisenoikeudella. Kaivamiseen tarvitaan maanomistajan lupa.
+
+Tavallisia sieniä saa kerätä kaikista metsistä mutta ei talojen pihan läheltä.
+
+Tryffelikausi on tänä vuonna hieman myöhässä. Näytteiden kerääminen jatkuu tässä kuussa. Kun maa peittyy lumeen, tutkimus jatkuu laboratoriossa.
+
+## Kertaus
+
+Tässä oli Uutisviikko selkosuomeksi. Uutisviikon aihe olivat suomalaiset tryffelit
+
+Uusi tutkimus selvittää, millaisia tryffeleitä Suomessa kasvaa ja mistä niitä löytää.
+
+Tryffeliharrastajat ovat alkaneet etsiä tryffeleitä koirien avulla.
+
+Uutisviikko jälleen ensi lauantaina. Tavataan taas, kuulemiin!

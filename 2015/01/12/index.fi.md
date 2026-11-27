@@ -1,0 +1,57 @@
+# Maanantai 12.1.2015
+
+Suomalaiset kouluttavat irakilaisia sotilaita. Indonesian lentokoneessa oli ehkä räjähdys. Lääkärit ja hoitajat ottavat liian vähän rokotuksia. Eduskunnan joululoma loppuu.
+
+## Suomalaiset kouluttavat irakilaisia sotilaita
+
+![Irakin armeijan sotilaita valokuvattuna lähellä Saudi-Arabian rajaa 27. heinäkuuta 2014.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7402560)
+
+Avaa kuvien katselu
+
+Irakin armeijan sotilaita. Kuva: Alaa Al-Shemaree / EPA
+
+Suomalaisia sotilaita menee Irakiin. Suomalaiset eivät taistele Irakissa, vaan he kouluttavat irakilaisia sotilaita. Irakilaiset tarvitsevat koulutusta, kun he taistelevat terroristeja vastaan. Puolustusministeri Carl  Haglund sanoo, että ehkä 20 tai 30 suomalaista menee Irakiin.
+
+On jo melkein varmaa, että suomalaiset lähtevät Irakiin. Suomalalaiset menevät Irakiin yhdessä esimerkiksi ruotsalaisten ja saksalaisten sotilaiden kanssa.
+
+Suomalaiset kouluttavat nykyään sotilaita esimerkiksi Afganistanissa ja Malissa.
+
+## Indonesian lentokone putosi ehkä räjähdyksen takia
+
+![Sukeltajien nostama lennontallennuslaite viedään Jakartaan analysoitavaksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7731915)
+
+Avaa kuvien katselu
+
+Viranomaiset nostivat merestä lentokoneen tietokoneen. Kuva: Bagus Indahono / EPA
+
+Indonesiassa viranomaiset ovat saaneet ehkä lisää tietoa siitä, miksi matkustajalentokone putosi mereen yli kaksi (2) viikkoa sitten. Lentokoneessa oli yli 160 ihmistä, jotka kuolivat.
+
+Viranomaiset ovat tutkineet lentokoneen osia, joita on löytynyt Jaavanmerestä. He sanovat nyt, että lentokone ehkä räjähti ilmassa. Se ei kuitenkaan ole varmaa.
+
+Tutkijat ovat nostaneet merestä ylös myös lentokoneen yhden tietokoneen. Tietokoneessa on tietoa siitä, mitä lentokoneessa tapahtui ennen kuin se putosi.
+
+## Sairaalan työntekijät ottavat liian vähän rokotuksia
+
+![Rokotus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7391486)
+
+Avaa kuvien katselu
+
+Rokotus suojaa sairaudelta, esimerkiksi influenssalta. Kuva: Yle
+
+Lääkärit ja sairaanhoitajat ottavat liian vähän rokotuksia. Rokotus suojaa influenssa-sairaudelta. Influenssa voi tarttua sairaalan työntekijöistä potilaisiin eli ihmisiin, joita sairaalassa hoidetaan. Siksi on tärkeää, että sairaalan työntekijöillä eli hoitajilla ja lääkäreillä on rokotus.
+
+Tutkijat sanovat, että joissakin sairaaloissa vain 40 prosenttia työntekijöistä on ottanut rokotuksen, joka suojaa influenssalta.
+
+Suomessa kuolee joka vuosi monta ihmistä influenssaan, jonka he ovat saaneet sairaalassa.  Influenssa on sairaus, jossa ihmiselle tulee usein esimerkiksi kova kuume.
+
+## Kansanedustajien joululoma loppuu
+
+![Eduskunta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7731164)
+
+Avaa kuvien katselu
+
+Kansanedustajat työssään. Kuva: Martti Kainulainen / Lehtikuva
+
+Kansanedustajat aloittavat työt tiistaina, kun eduskunnan loma loppuu. Eduskunta on ollut joululomalla melkein kuukauden ajan.
+
+Kansanedustajilla on paljon työtä, koska eduskunnassa täytyy tehdä keväällä monta tärkeää lakia. Eduskuntavaaleihin on enää vähän aikaa. Vaalit ovat huhtikuussa.

@@ -1,0 +1,69 @@
+# Saturday 5.12.2020 (radio)
+
+Restrictions for older people. The security situation. The USA in Somalia. Independence Day. Weather forecast.
+
+## Coronavirus restrictions for older people
+
+![Myyrmäki elderly care centre, Vantaa.](https://img.img-cdn.yle.fi/crop_extract,w_4939,h_2778,x_0,y_46/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6490095e5d206d43e75/1583162907)
+
+Open image viewer
+
+The Parliamentary Ombudsman has said that, under the Communicable Diseases Act, the lives of older people may not be restricted much. Photo: Eleni Paspatis / Yle
+
+There may be problems with coronavirus restrictions for older people. In care homes and nursing homes, the rights of older people have been restricted because of the coronavirus.
+
+For example, an older person has not been allowed to go outside, or an older person has not been allowed to meet relatives.
+
+Marja Vaarama, expert in elderly care and emeritus professor of geriatrics, says that some of the coronavirus restrictions on older people may be unlawful.
+
+## The security situation in the Baltic
+
+![Defence Minister Antti Kaikkonen, Centre Party.](https://img.img-cdn.yle.fi/crop_extract,w_4877,h_2743,x_0,y_251/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6457685e4fee3ee3888/1582297420)
+
+Open image viewer
+
+Defence Minister Antti Kaikkonen is Finland's defence minister and an MP for the Centre Party. Photo: Antti Kolppo / Yle
+
+Defence Minister **Antti Kaikkonen** says that the security situation in the Baltic Sea has changed permanently.
+
+Kaikkonen was a guest on Yle's Ykkösaamu programme on TV1. He estimates that the security situation in the Baltic Sea changed after relations between Russia and Ukraine got worse in 2014. At that time, Russia seized the Crimean peninsula from Ukraine. There are now more military aircraft and military ships moving in the Baltic Sea than before.
+
+The Finnish army has many more identification tasks than before, that is, it has to go and check which country's military ship or military aircraft is moving in the Baltic Sea.
+
+## The USA is reducing soldiers in Somalia and other countries
+
+![In the foreground, the shoulder of a soldier with the American flag and the insignia of the 101st Airborne Division on his arm. Somali soldiers can be seen in the background.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_447/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7474545fc1033314190/1607139461)
+
+Open image viewer
+
+In the foreground, the shoulder of a soldier with the American flag and the insignia of the 101st Airborne Division on his arm. Somali soldiers can be seen in the background. Photo: PJF Military Collection / Alamy / AOP
+
+The USA is pulling a lot of soldiers out of Somalia.
+
+President **Donald Trump** has ordered that most of the USA's soldiers will be pulled out of Somalia at the beginning of next year. The USA has about 700 soldiers in Somalia.
+
+President Trump says that the USA is also reducing soldiers in Afghanistan and Iraq.
+
+## Tomorrow, Sunday, is Finland's Independence Day
+
+![The Finnish flag flying on a flagpole](https://img.img-cdn.yle.fi/crop_extract,w_4154,h_2337,x_0,y_214/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4482345a27ae2854b8e/1512550066)
+
+Open image viewer
+
+The Finnish flag. Photo: Pekka Tynell / Yle
+
+Tomorrow, Sunday, is Finland's Independence Day. It is being celebrated differently this year than before. For example, the morning flag-raising on Independence Day has been moved from Helsinki to Hämeenlinna.
+
+There are no big celebrations at the Presidential Palace. However, there are performers and various programmes at the palace, which you can watch on television.
+
+Yle will broadcast a lot of programmes about the Independence Day events on Sunday.
+
+## Weather
+
+![Snow on the ground early in the morning in Helsinki on 20 November.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11657643)
+
+Open image viewer
+
+It is snowing in northern Finland. Photo: Antti Aimo-Koivisto / Lehtikuva
+
+On Sunday it will rain or sleet in the middle of the country, and in the north it will rain or snow. In the south there will be light drizzle in places. The daytime temperature is between 0 and +7 degrees.

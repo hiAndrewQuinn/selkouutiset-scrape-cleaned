@@ -1,0 +1,89 @@
+# Keskiviikko 20.4.2022 (radio)
+
+Keskustelu Natosta. Naton kannatus Ruotsissa. Presidentti Niinistö toukokuussa Ruotsiin. Koronapotilaat. Kesämökit. Sää.
+
+## Keskustelu Natosta
+
+![Sanna Marin ja Pekka Haavisto.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_359/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9439976260154b6c359/1650464176)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto eduskunnassa. Kuva: Silja Viitala / Yle
+
+Suomen parlamentissa eli eduskunnassa keskustellaan turvallisuudesta. Eduskunta on saanut hallitukselta selvityksen turvallisuusasioista.
+
+Selvitys on tehty Ukrainan sodan takia. Euroopan turvallisuustilanne muuttui, kun Venäjä hyökkäsi Ukrainaan helmikuussa.
+
+Nyt eduskunta pohtii, hakeeko Suomi puolustusliitto Naton jäsenyyttä. Suomi tekee jo yhteistyötä Naton kanssa, mutta ei ole Naton jäsen.
+
+Ulkoministeri Pekka Haaviston mielestä Suomen ja Ruotsin yhteistyö asiassa on tärkeää. On hyvä, jos Suomi ja Ruotsi päättävät Natosta samaan aikaan, Haavisto sanoi eduskunnassa.
+
+Myös Ruotsissa mietitään Naton jäsenyyttä. Ruotsin tilanne on sama kuin Suomen, eli Ruotsi ei ole Naton jäsen.
+
+## Naton kannatus Ruotsissa
+
+![Suomen ja ruotsin ja naton lippuja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7438019)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Puolustusliitto Naton kannatus on kasvanut Ruotsissa.
+
+Ruotsalaisen lehden kyselyssä Naton kannatus on melkein 60 prosenttia. Noin 20 prosenttia vastaajista ei halunnut, että Ruotsi liittyy Natoon.
+
+## Niinistö toukokuussa Ruotsiin
+
+![Tasavallan presidentti Sauli Niinistö Mäntyniemessä.](https://img.img-cdn.yle.fi/crop_extract,w_3936,h_2214,x_0,y_99/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9420146256c806a0cc8/1649854551)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Joni Tammela / Yle
+
+Presidentti Sauli Niinistö ja rouva Jenni Haukio vierailevat toukokuussa Ruotsissa.
+
+Ruotsin kuningas Kaarle Kustaa kutsui Suomen presidenttiparin vierailulle.
+
+Presidentti Niinistö tapaa kuninkaan lisäksi myös Ruotsin pääministerin. Vierailun aikana keskustellaan Suomen ja Ruotsin yhteistyöstä ja turvallisuudesta.
+
+## Koronapotilaiden määrä
+
+![Kaksi koronapotilasta eristyshuoneessa, hoitajan tutkiessa toista potilasta.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2806,x_10,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88951361b0af6316d97/1638969772)
+
+Avaa kuvien katselu
+
+Kuva: Henrietta Hassinen / Yle
+
+Koronapotilaiden määrä sairaaloissa vähenee. Näin kertoo Terveyden ja hyvinvoinnin laitos.
+
+Noin 840 potilasta oli keskiviikkona sairaalahoidossa koronan takia. Se on noin 100 koronapotilasta vähemmän kuin maanantaina.
+
+## Kesämökit
+
+![Kesämökki veden äärellä.](https://img.img-cdn.yle.fi/crop_extract,w_5243,h_2949,x_0,y_180/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7768966033378376cac/1613969450)
+
+Avaa kuvien katselu
+
+Kuva: Alamy / All Over Press
+
+Kesämökit ovat edelleen suosittuja.
+
+Korona-aikana kesämökkejä ostettiin paljon, koska lomat vietettiin Suomessa. Kesämökki oli myös hyvä paikka välttää koronatartunta.
+
+Nyt kesämökkikaupat ovat vähentyneet, mutta mökkejä myydään edelleen paljon erityisesti suurten kaupunkien läheltä. Kaupunkilaiset haluavat päästä mökille nopeasti.
+
+Kiinteistönvälittäjä Tiina Björkman kertoo, että yksinkertaiset mökit kelpaavat nuorille. Nuorille tärkeintä on luonto.
+
+Vanhemmat ostajat toivovat mukavuuksia, mökissä pitää olla esimerkiksi sisävessa ja sähkösauna, Björkman sanoo.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12411392)
+
+Avaa kuvien katselu
+
+Aurinkoinen kevätsää jatkuu lähes koko maassa.
+
+Yöllä on pakkasta, mutta päivällä lämpötila nousee etelässä yli +15 asteen ja pohjoisessakin yli +10 asteen.
+
+Loppuviikolla sää kylmenee hieman koko maassa.

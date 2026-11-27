@@ -1,0 +1,71 @@
+# Lauantai 11.7.2020 (radio)
+
+Senioritalo paloi Jyväskylässä. Pysäköinti on aiempaa useammin maksullista kaupungeissa. Kotimaan ranta- ja luontokohteet ovat nyt suosittuja. Srebrenican joukkomurhasta on 25 vuotta. Säätiedot.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Senioritalo paloi Jyväskylässä
+
+![ Tulipalo kerrostalossa Palokan Ilona -seniorikohteessa Jyväskylässä 10. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11444150)
+
+Avaa kuvien katselu
+
+Senioritalon paloa sammutettiin koko yö ja vielä lauantaina. Talo oli rakennettu vuonna 2018.  Kuva: Timo Laulainen / Lehtikuva
+
+Jyväskylässä on ollut iso tulipalo. Tuli syttyi ensin yhdessä kerrostalossa ja levisi siitä viereiseen kerrostaloon.
+
+Tulipalo syttyi senioritalossa, jossa asuu paljon vanhoja ihmisiä. Palomiehet veivät taloista turvaan kaikki 170 ihmistä. Kukaan ei loukkaantunut.
+
+Tulipalo seniortalossa Jyväskylässä syttyi myöhään perjantaina illalla. Talojen asukkaat eivät voi mennä takaisin kotiin, koska talot vaurioituivat palossa pahasti.
+
+## Pysäköinti aiempaa useammin maksullista
+
+![pysököintimaksuautomaatti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10975423)
+
+Avaa kuvien katselu
+
+Maksullisia pysäköintipaikkoja Tampereen keskustassa. Kuva: Jussi Mansikka / Yle
+
+Auton pysäköinnistä kadunvarteen pitää maksaa aiempaa useammissa kaupungeissa.
+
+Kaupunkien liikennesuunnittelijat sanovat, että pysäköintipaikkoja riittää paremmin kauppojen ja virastojen asiakkaille, kun pysäköinti keskustoissa on maksullista.
+
+Monissa kaupungeissa on muutettu tai muutetaan pysäköintipaikkoja maksullisiksi. Esimerkiksi Turun kaupunki aikoo muuttaa yli 1000 pysäköintipaikkaa maksullisiksi, jotta autoilijoiden on helpompi tulla keskustaan esimerkiksi kauppoihin.
+
+## Kotimaan mökit ja luontokohteet suosittuja
+
+![Ihmisiä Yyterin uimarannalla Porissa heinäkuussa 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9055006)
+
+Avaa kuvien katselu
+
+Yyteri on suosittu iso uimaranta Porissa.  Kuva: Carolus Manninen / Yle
+
+Suomalaiset matkailevat tänä kesänä paljon kotimassa koronatilanteen takia. Matkailufirmat sanovat, että monet suomalaiset viipyvät kotimaanmatkalla ehkä aiempaa pidempään.
+
+Monet hotellit ja mökit, jotka ovat rannalla, ovat täynnä heinäkuussa. Myös luontokohteissa, esimerkiksi kansallispuistoissa, käy paljon ihmisiä.
+
+Joissakin kaupungeissa matkailijoita on aiempaa vähemmän, koska isot kesätapahtumat on peruttu. Ulkomaalaisia turisteja Suomessa on nyt tosi vähän.
+
+## Srebrenican joukkomurhasta 25 vuotta
+
+![Ihmiset muistivat Srebrenican verilöylyssä kuolleita Bosnia ja Hertsegovinan pääkaupungissa Sarajevossa 9. heinäkuuta 2020. Yhdeksän uutta uhria on tunnistettu ja heidät haudataan Potacarin muistohautausmaalle.](https://img.img-cdn.yle.fi/crop_extract,w_4504,h_2534,x_0,y_70/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6982435f094950a2735/1594444380)
+
+Avaa kuvien katselu
+
+Ihmiset muistivat Sarajevossa Srebrenican joukkomurhan uhreja.  Kuva: Fehim Demir / EPA
+
+Bosnia-Hertsegovinassa on vietetty Srebrenican joukkomurhan 25-vuotismuistojuhlaa. Bosnian serbien joukot tappoivat noin 8 000 bosnialaista muslimimiestä Bosnian sodan aikana heinäkuussa 1995.
+
+Presidentti **Sauli Niinistö** on lähettänyt muistojuhlaan Suomen tervehdyksen.
+
+## Sää
+
+![Nainen kävelee sateessa sateenvarjon kanssa Pohjoisesplanadia pitkin.](https://img.img-cdn.yle.fi/crop_extract,w_4433,h_2494,x_1481,y_9/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6417375e43dbd1d3915/1730969729)
+
+Avaa kuvien katselu
+
+Sateenvarjoa voi tarvita sunnuntaina. Itä-Suomessa sateita tulee kuitenkin vain vähän. Kuva: Eleni Paspatis / Yle
+
+Vielä säätietoja. Sunnuntaina Länsi- ja Pohjois-Suomessa tulee paljon sadekuuroja. Itä-Suomessa pilviä on vähemmän ja sadekuuroja tulee vain vähän.  
+Sunnuntain lämpötila on 14 ja 20 asteen välillä.

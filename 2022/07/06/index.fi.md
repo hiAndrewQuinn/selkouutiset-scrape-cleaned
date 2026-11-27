@@ -1,0 +1,72 @@
+# Keskiviikko 5.7.2022
+
+Koronarokotukset. Antibiootit. Uudet autot. Eino Leino. Sää.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Koronarokotukset
+
+![Vuoronumerotelineessä oleva kyltti, joka kertoo koronarokotuksista.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_409/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97834262c43c9f72cc1/1657027812)
+
+Avaa kuvien katselu
+
+4. koronarokotuksia lisätään syksyllä. Kuva: Minna Rosvall / Yle
+
+Neljänsiä koronarokotuksia lisätään. Terveyden ja hyvinvoinninlaitos THL laajentaa suositusta siitä, kenelle annetaan 4. koronarokotus.
+
+Uusi suunnitelma on, että 15. elokuuta alkaen 4. koronarokotusta suositellaan 65 vuotta täyttäneille. Syyskuun alusta alkaen 4. koronarokotusta suositellaan 60 vuotta täyttäneille ja kaikille 12–59 -vuotiaille, jotka kuuluvat taudin vakavaan riskiryhmään.
+
+THL kertoi suunnitelmasta keskiviikkona. THL vahvistaa neljänsien koronarokotuksien suosituksen myöhemmin kesällä.
+
+## Antibiootit hoivakodeissa
+
+![lääkepurkki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10010895)
+
+Avaa kuvien katselu
+
+Terveysministeriö haluaa rajoittaa antibioottien käyttöä. Kuva: AOP
+
+Uusi laki rajoittaa antibioottien saatavuutta hoivakodeissa. Hoivayksiköt eivät saa enää elokuusta alkaen pitää antibiootteja lääkevarastoissa, koska lääkkeiden säilytykseen tarvitaan lupa.
+
+Rajoituksen syy on, että Sosiaali- ja terveysministeriö haluaa, että antibiootteja käytetään vastuullisesti. Lääkärit sanovat, että muutos on huono, koska se voi hidastaa lääkityksen aloittamista hoivakodeissa.
+
+Jos vanhus tarvitsee hoivakodissa antibioottikuurin hän voi nyt saada sen nopeasti. Jatkossa lääkkeet pitää ehkä hakea kaukaa tai vanhus pitää lähettää päivystykseen, että hän saa antibiootteja.
+
+## Uusien autojen rekisteröinti
+
+![Sininen sähköauto latauksessa autoliikkeessä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_475/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-93609062459a7e7482a/1657187085)
+
+Avaa kuvien katselu
+
+Komponenttipula haittaa autokauppaa, koska autoja saadaan tehaasta aiempaa vähemmän. Kuva: Mimmi Nietula / Yle
+
+Uusien autojen rekisteröinti on vähentynyt. Uusia henkilöautoja rekisteröitiin kesäkuussa noin 25 prosenttia vähemmän kuin viime vuoden kesäkuussa.
+
+Uusien autojen rekisteröintiä eli käyttöönottoa on vähentänyt komponenttipula. Autotehtaat eivät pysty valmistamaan tarpeeksi autoja, koska autotehtaat eivät saa tarpeeksi komponentteja. Komponentteja tarvitaan auton elektroniikassa.
+
+Autojen rekisteröinnit ovat vähentyneet myös koko alkuvuonna eli tammi-kesäkuussa 23 prosenttia. Uusia autoja rekisteröitiin Suomessa tammi-kesäkuussa 43 500 kappaletta.
+
+## Runon ja suven päivä
+
+![Eino Leinon patsas](https://img.img-cdn.yle.fi/crop_extract,w_3264,h_1836,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-29863559ab8de77486/1436203493)
+
+Avaa kuvien katselu
+
+Eino Leinon patsas on Esplanadin puistossa Helsingissä. Patsaan on veistänyt Lauri Leppänen.  Kuva: Lotta Emanuelsson
+
+Keskiviikkona on vietetty Eino Leinon päivää. Kirjailija **Eino Leino** syntyi heinäkuun 6. päivä vuonna 1878.
+
+Eino Leino kirjoitti paljon runoja. Siksi Eino Leinon päivä on myös runon ja suven eli kesän päivä. Eino Leinon ja Runon ja suven päivä on liputuspäivä.
+
+Keskiviikkona jaettiin myös Eino Leinon palkinto. Tänä vuonna Eino Leinon Seura antoi palkinnon runoilija kirjailija **Kaiho Niemiselle**.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12526424)
+
+Avaa kuvien katselu
+
+Torstaina tulee sadekuuroja.
+
+Torstaina koko maassa tulee sadekuuroja. Lämpötila on 16 ja 22 asteen välillä.

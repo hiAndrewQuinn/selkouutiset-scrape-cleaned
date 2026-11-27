@@ -1,0 +1,35 @@
+# Keskiviikko 13.9.2006 (radio)
+
+Keskiviikon Selkouutisten aiheita ovat:
+
+Suomen taloudella menee todella hyvin. Ensi vuonna taloudella ei ehkä mene yhtä hyvin kuin nyt
+
+Monet suomalaiset ovat sitä mieltä, että maassamme juodaan liikaa alkoholia. He sanovat, että että humalaiset aiheuttavat liikaa ongelmia
+
+Ruotsin kuningas ja kuningatar ovat tulleet Suomeen. Kuningas ja kuningatar vierailevat Vaasassa
+
+Minä olen Mikko Jylhä, hyvää päivää
+
+* * *
+
+Suomen talous voi nyt hyvin. Uusi tutkimus kertoo, että yrityksillä menee paremmin kuin pitkään aikaan. Hyvä tilanne ei ehkä jatku ensi vuonna. Tutkimus kertoo, että talouskasvu on hidastumassa.
+
+Uuden tutkimuksen on tehnyt Elinkeinoelämän Tutkimuslaitos eli ETLA. Se on laskenut, että Suomen talouskasvu on tänä vuonna 4,6 prosenttia. Etla kertoo, että suomalaiset yritykset myyvät paljon tavaroita ulkomaille. Lisäksi yritykset tekevät paljon investointeja eli esimerkiksi rakentavat uusia tehtaita. Myös kaupoilla menee hyvin, koska ihmisillä on rahaa ostaa tavaroita.
+
+Elinkeinoelämän Tutkimuslaitos tutkii, mitä taloudessa tapahtuu. Se kertoo, että tulevaisuudessa talous ei kasva niin paljon kuin nyt. Talouskasvu hidastuu ensi vuonna ja vuonna 2008. Ensi vuonna yritykset eivät palkkaa uusia työntekijöitä yhtä paljon kuin tänä vuonna.
+
+* * *
+
+Monet suomalaiset ovat sitä mieltä, että maassamme juodaan liikaa alkoholia. Uusi tutkimus kertoo, että monen ihmisen mielestä alkoholi on Suomessa ongelma. Uudesta tutkimuksesta kertoi keskiviikkona Terveyden edistämisen keskus. Tutkimuksessa oli mukana yli tuhat suomalaista.
+
+Naisista 76 prosenttia on sitä mieltä, että suomalaiset juovat liikaa alkoholia. Miehistä 56 prosenttia sanoo, että alkoholia juodaan liikaa.
+
+Suomi laski alkoholin hintaa vuonna 2004. Suomalaiset juovat alkoholia enemmän kuin ennen, koska sen hinta on laskenut. Samalla monet ongelmat ovat lisääntyneet. Nyt monet ovat sitä mieltä, että humalaiset aiheuttavat liikaa häiriötä.
+
+* * *
+
+Ruotsin kuningas ja kuningatar ovat tulleet Suomeen. He tulivat Suomeen keskiviikkona. Kuningas ja kuningatar ovat Suomessa kaksi päivää.
+
+Kaarle XVI Kustaa ja kuningatar Silvia vierailevat Vaasassa. He käyvät Vaasassa, koska se täyttää 400 vuotta. Ruotsin kuningas perusti Vaasan vuonna 1606. Silloin Suomi oli osa Ruotsia. Vaasassa puhutaan paljon ruotsin kieltä.
+
+Matkan aikana Kaarle XVI Kustaa ja kuningatar Silvia tapaavat Suomen presidentin. Torstaina kuningas ja kuningatar matkustavat takaisin kotiin.

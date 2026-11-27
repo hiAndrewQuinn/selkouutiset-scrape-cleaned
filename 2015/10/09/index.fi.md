@@ -1,0 +1,57 @@
+# Perjantai 9.10.2015
+
+Nobelin rauhanpalkinto menee Tunisiaan. Oikeus on antanut vankilatuomion autoilijalle, joka aiheutti liikenneonnettomuuden Helsingissä. Yhdessäolo on hyvä palkinto lapselle. Syysloma alkoi monessa koulussa.
+
+## Rauhanpalkinto Tunisiaan
+
+![Teollisuuden ja kaupan liitto UTICAn puheenjohtaja Wided Bouchamaoui, ammattiliitto UGTT:n pääsihteeri Houcine Abbassi, ihmisoikeusjärjestö LTDH puheenjohtaja Abdessattar ben Moussa sekä asianajajaliiton puheenjohtaja Mohamed Fadhel Mahmoud.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8367934)
+
+Avaa kuvien katselu
+
+Teollisuuden ja kaupan liitto UTICA, ammattiliitto UGTT, ihmisoikeusjärjestö LTDH ja asianajajaliito ovat ne tunisialaiset järjestöt, jotka saavat Nobelin rauhanpalkinnon. Kuvassa järjestöjen johtajat. Kuva: Fethi Belaid / AFP
+
+Tämän vuoden Nobelin rauhanpalkinto menee Tunisiaan. Palkinnon saaja on Tunisian rauhankvartetti. Rauhankvartetissa on 4 tunisialaista järjestöä. Järjestöt ovat pitäneet yhdessä huolta siitä, että rauha on säilynyt Tunisiassa.
+
+Tunisialaiset taistelivat itselleen demokratian vuonna 2011. He halusivat päättää itse omista asioistaan ja ajoivat pois maasta presidentin, joka ei kuunnellut kansaa. Vuonna 2013 Tunisian demokratia oli vaarassa, kun maassa tapahtui poliittisia murhia. Silloin tunisialaiset järjestöt alkoivat tehdä yhteistyötä ja pelastivat Tunisian demokratian ja rauhan.
+
+Monessa muussa arabimaassa demokratian ja rauhan rakentaminen ei ole onnistunut yhtä hyvin kuin Tunisiassa. Toivotaan, että muut maat ottavat esimerkkiä Tunisiasta.
+
+## Autoilija vankilaan
+
+![Valkoinen pyörä ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8226639)
+
+Avaa kuvien katselu
+
+Ihmiset ovat muistaneet pyöräilijää, joka kuoli elokuussa Helsingissä. Kuva: Ines Siren / Yle
+
+Oikeus on antanut tuomion autoilijalle, joka aiheutti liikenneonnettomuuden Helsingissä elokuussa. Autoilija törmäsi pyöräilijään, joka kuoli. Oikeus määräsi nyt, että autoilija joutuu vankilaan 4 vuodeksi ja 6 kuukaudeksi.
+
+Tapauksesta on puhuttu paljon. Monet suuttuivat, koska ihmiset sanoivat, että autoilija törmäsi pyöräilijään tahallaan. Autoilija myös pakeni paikalta heti törmäyksen jälkeen.
+
+Tapauksen jälkeen pyöräilijät järjestivät pyörämarsseja monissa kaupungeissa. Pyörämarssien aihe oli liikennerauha.
+
+## Ei karkkia palkinnoksi
+
+![Lapsi ihailee herkkuja karkkihyllyllä kaupassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7853605)
+
+Avaa kuvien katselu
+
+Yhdessäolo on parempi palkinto lapselle kuin karkkipussi. Kuva: Sini Salmirinne / Yle 
+
+Monet vanhemmat antavat lapselle palkinnon, jos lapsi on kiltti. Usein vanhemmat antavat palkinnoksi herkkuja. Lapsi saa esimerkiksi karkkia.
+
+Väestöliiton asiantuntija Anja Saloheimo sanoo, että herkut eivät ole hyvä palkinto. Hän ehdottaa palkinnoksi yhdessäoloa. Vanhemmat voivat esimerkiksi viedä lapsen retkelle uimahalliin.
+
+Saloheimo sanoo myös, että vanhempien kannattaa miettiä, mistä lapsi saa palkinnon. Monet vanhemmat antavat palkinnon, kun lapsi saa hyvän arvosanan koulussa. Saloheimon mielestä vanhempien on parempi antaa palkinto siitä, että lapsi yrittää ja tekee kovasti työtä. Silloin ei ole enää niin tärkeää, mikä arvosana on.
+
+## Syysloma alkoi
+
+![Mökki järvenrannalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6316984)
+
+Avaa kuvien katselu
+
+Suomen syksy on kaunis. Kuva: Yle
+
+Monissa kouluissa on alkanut syysloma. Syysloma kestää viikon.
+
+Syysloma alkaa melko kauniissa, mutta kylmässä säässä. Lauantaina lämpötila on nollan ja 5 lämpöasteen välillä.

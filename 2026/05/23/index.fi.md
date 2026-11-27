@@ -1,0 +1,93 @@
+# Viikon uutinen selkosuomeksi | lauantai 23.5.2026
+
+Työttömyys ja avoimet työpaikat
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Avoimet työpaikat vähentyneet
+
+![TE-toimisto. ](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7404455faa9719a5f77/1605018406)
+
+Avaa kuvien katselu
+
+Vaikka työpaikat ovat vähentyneet, osaan avoimia työpaikkoja on vaikea saada työntekijöitä. Kuva: Jorge Gonzalez / Yle
+
+Tämän viikon aiheena ovat työpaikat ja työttömyys.
+
+Avoimet työpaikat ovat edelleen vähentyneet.
+
+Tilastokeskus kertoo, että alkuvuonna avoimia työpaikkoja oli 48 600. Se oli 15 prosenttia vähemmän kuin viime vuonna samaan aikaan.
+
+Tiedot kuvaavat maaliskuun alun tilannetta.
+
+Yksityisten yritysten avoimet työpaikat vähenivät lukumääräisesti eniten. Suhteellisesti eniten työpaikat vähenivät valtion avoimissa työpaikoissa.
+
+Määräaikaisia työpaikkoja oli 51 prosenttia ja osa-aikaisia 20 prosenttia.
+
+## Hallituksen tavoite kaukana
+
+![Grafiikka kertoo: työttömyysasteen ennustetaan laskevan Suomessa vuosina 2024–2028.](https://img.img-cdn.yle.fi/crop_extract,w_2000,h_1125,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16449196a0b14b7db90d/1779169848)
+
+Avaa kuvien katselu
+
+Hallitus lupasi kauden alussa luoda 100 000 uutta työpaikkaa tämän hallituskauden aikana. Kuva: Eetu-Mikko Pietarinen / Yle
+
+Petteri Orpon hallitus on luvannut 100 000 uutta työpaikkaa. Työministeri Matias Marttinen sanoo, että tavoitteesta ei ole luovuttu, vaikka tilanne on vaikea.
+
+Työ- ja elinkeinoministeriö ennustaa, että työttömyys pysyy korkealla.
+
+Työttömyysaste on tänä vuonna keskimäärin 10,2 prosenttia. Ensi vuonna se voi laskea 9,8 prosenttiin.
+
+Työttömyysaste tarkoittaa työttömien osuutta kaikista työikäisistä ihmisistä.
+
+Työttömyysaste pysyy korkealla, koska työvoiman määrä kasvaa. Esimerkiksi ikääntyneet ovat aiempaa enemmän ja pidempään töissä.
+
+Ennuste kertoo, että työttömiä työnhakijoita on tänä vuonna 342 000.
+
+## Työttömän opiskelu ehkä helpottuu
+
+![Kelan toimipisteen ikkuna kaupungin keskustassa.](https://img.img-cdn.yle.fi/crop_extract,w_5394,h_3028,x_0,y_225/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-163931869fcbdba494c7/1778171431)
+
+Avaa kuvien katselu
+
+Lakiehdotus helpottaisi työttömien opiskelua työttömyysetuutta menettämättä. Kuva: Emmi Korhonen / Lehtikuva
+
+Hallitus esittää, että työttömien opiskelua helpotetaan.
+
+Yli 25-vuotiaat voisivat opiskella avoimessa korkeakoulussa ja silti saada työttömyysetuutta.
+
+Työtön on voinut menettää työttömyysetuuden, jos hän on opiskellut liikaa.
+
+Lakimuutos on tarkoitus saada voimaan jo ensi syksynä.
+
+## Työkyvyttömät
+
+![Kelan sairauspäivärahapäätös.](https://img.img-cdn.yle.fi/crop_extract,w_5470,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16455476a0c5e3d13870/1779195960)
+
+Avaa kuvien katselu
+
+Työttömien työnhakijoiden joukossa on paljon ihmisiä, jotka ovat oikeasti työkyvyttömiä. Osa heistä joutuu silti hakemaan työtä. Kuva: Juha-Petri Koponen / Yle
+
+Työttömien työnhakijoiden joukossa on paljon ihmisiä, jotka eivät pysty tekemään työtä.
+
+Työkyvyttömät ruuhkauttavat kuntien työllisyyspalveluita.
+
+Lahden kaupunki on aloittanut kokeilun, jossa työkyvyttömiä yritetään saada pois työnhakijoiden joukosta.
+
+Lääkärissä tutkitaan ihmisen työkykyä. Sen jälkeen työkyvyttömät yritetään saada sairauspäivärahalle, kuntoutustuelle tai työkyvyttömyyseläkkeelle.
+
+Kokeiluun osallistuu noin sata pitkäaikaistyötöntä.
+
+## Kertaus
+
+![Nyt riittää! -mielenosoitus Tampereella 20.4.2026. Sanni Isomäki / Yle.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1079,x_1081,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-163062469e77496d6154/1776776480)
+
+Avaa kuvien katselu
+
+Nyt riittää! -mielenosoitus Tampereella 20.4.2026. Kuva: Pekka Sipilä / Yle, Sanni Isomäki / Yle
+
+Kerrataan vielä. Avoimet työpaikat ovat edelleen vähentyneet, ja työttömyys pysyy korkealla. Hallitus esittää, että työttömien opiskelua helpotetaan.
+
+Tässä oli Viikon uutinen selkosuomeksi. Kuulemiin!

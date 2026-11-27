@@ -1,0 +1,61 @@
+# Lauantai 11.2.2017 (radio)
+
+Haavisto presidentinvaaleihin. Alaikäiset turvapaikanhakijat. 112-päivä. Föhn-tuuli.
+
+## Pekka Haavisto haluaa presidentinvaaleihin
+
+![Pekka Haavisto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9455201)
+
+Avaa kuvien katselu
+
+Pekka Haavisto sai suuren kannatuksen vuoden 2012 presidentinvaaleissa. Nyt hän haluaa ehdokkaaksi uudelleen.  Kuva: Petteri Paalasmaa / AOP
+
+Kansanedustaja Pekka Haavisto on valmis lähtemään Vihreiden presidenttiehdokkaaksi. Haavisto kertoi TV1:n Ykkösaamu-ohjelmassa, että hän voi lähteä ehdokkaaksi presidentinvaaleihin.
+
+Haaviston presidenttiehdokkuus on esillä huomenna sunnuntaina Vihreät-puolueen kokouksessa.
+
+Haavisto oli presidenttiehdokkaana myös vuonna 2012. Silloin hän oli tosi suosittu. Pekka Haavisto sai yli miljoona ääntä. Hän hävisi kuitenkin Sauli Niinistölle, josta tuli presidentti.
+
+## Tutkija: Nuoret turvapaikanhakijat ovat mahdollisuus
+
+![nuori tekee läksyjä pöydän ääressä, etualalla lenkkarit.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9444836)
+
+Avaa kuvien katselu
+
+Nuoret turvapaikanhakijat ovat Suomelle mahdollisuus, sanoo tutkija.  Kuva: Nella Nuora / Yle
+
+Tutkija ihmettelee, mitä Suomessa ajatellaan alaikäisistä eli alle 18-vuotiaista turvapaikanhakijoista, jotka ovat tulleet Suomeen yksin. Tutkija Anna-Kaisa Kuusisto-Arponen sanoo, että usein nuoret turvapaikanhakijat ovat ihmisten mielestä uhka.
+
+Kuusisto-Arposen mielestä se ei ole totta. Hän sanoo, että alaikäiset turvapaikanhakijat ovat Suomelle mahdollisuus. He ovat tavallisia lapsia ja nuoria.
+
+Anna-Kaisa Kuusisto-Arponen sanoo, että Suomen täytyy kotouttaa alaikäiset lapset ja nuoret hyvin. Hän on tutkinut monta vuotta lapsia ja nuoria, jotka ovat tulleet yksin turvapaikanhakijoiksi Suomeen. 
+
+Suomesta sai viime vuonna turvapaikan tai oleskeluluvan melkein 1 600 alaikäistä turvapaikanhakijaa.
+
+## Suomessa vietettiin 112-päivää
+
+![Vaaratiedoten välitysjärjestelmän kokeilu Ylen tv-kanavilla 11. helmikuuta kello 11.20.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9455266)
+
+Avaa kuvien katselu
+
+TV:ssä testattiin 112-päivänä vaaratiedotteiden julkaisua.  Kuva: Yle
+
+Suomessa on ollut lauantaina 112-päivä. 112 on Suomessa hätänumero, johon voi soittaa, kun tarvitsee poliisia, ambulanssia tai palokuntaa. 112 on hätänumero kaikissa EU-maissa.
+
+112-päivällä halutaan parantaa ihmisten turvallisuutta. Toivotaan, että ihmiset miettivät esimerkiksi keinoja estää onnettomuuksia. Lisäksi ihmisiä opastetaan toimimaan oikein hätätilanteissa.
+
+## Sää lämpenee nopeasti
+
+![Jäinen taideteos](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7888576)
+
+Avaa kuvien katselu
+
+Alkuviikko on lämmin ja aurinkoinen Föhn-tuulen takia.  Kuva: Seija Annala
+
+Sää lämpenee kohta tosi nopeasti. Ylen meteorologi Seija Paasonen kertoo, että viikon alussa voi koko Suomessa olla jopa 5 astetta lämmintä.
+
+Sää lämpenee Föhn-ilmiön takia. Suomeen tulee lämmintä ilmaa USA:n rannikolta. Lämmin ilma tulee Norjan vuorten yli ja silloin syntyy Föhn-tuuli.
+
+Uskotaan, että lämpötila pysyy Etelä-Suomessa plusasteiden puolella ainakin keskiviikkoon saakka.  Sen jälkeen sää viilenee myös etelässä. 
+
+Talvi on ollut niin lämmin, että Suomen merialueilla on tosi vähän jäätä. Jäänmurtajia tarvitaan tällä hetkellä vain Perämerellä.

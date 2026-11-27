@@ -1,0 +1,65 @@
+# Sunnuntai 29.12.2019 (radio)
+
+Suomalaiset lentävät enemmän kuin ennen. Melkein kaikki syövät liikaa suolaa. Omakanta-palvelu uudistuu. Moni australialainen haluaa kieltää Sydneyn ilotulituksen.
+
+## Ilmastonmuutos ja lentomatkustus
+
+![Finnairin Airbus 350 -lentokone laskeutuu Helsinki-Vantaan lentokentälle kesäpäivänä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10896145)
+
+Avaa kuvien katselu
+
+Finnairin Airbus 350 lentokone laskeutuu Helsinki-Vantaan lentokentälle. Kuva: Esko Jämsä / AOP
+
+Aluksi uutinen ilmastonmuutoksesta ja lentomatkoista.
+
+Lentomatkat nopeuttavat ilmastonmuutosta. Ihmiset kuitenkin lentävät enemmän kuin ennen. Suomessa tehtiin marraskuun loppuun mennessä 24 miljoonaa lentomatkaa. Tämä on 5 miljoonaa lentomatkaa enemmän kuin samana aikana viime vuonna.
+
+Suomalaiset syövät edelleen myös paljon lihaa. Viime vuonna suomalainen söi lihaa keskimäärin 80 kiloa. Naudanlihaa ja sianlihaa syödään vähän vähemmän kuin ennen. Broileria syödään enemmän kuin ennen.
+
+Myös lihan syöminen nopeuttaa ilmastonmuutosta.
+
+## Suolaa syödään liikaa
+
+![Merisuolaa, tomaattia ja leipää.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11137022)
+
+Avaa kuvien katselu
+
+Merisuolaa, tomaattia ja leipää. Kuva: Jussi Nukari / Lehtikuva
+
+Melkein kaikki suomalaiset syövät liian paljon suolaa.
+
+Ohje on, että aikuinen saa syödä suolaa 5 grammaa päivässä. Suomessa miehet syövät suolaa melkein 10 grammaa ja naiset 7 grammaa päivässä.
+
+Suolaa on paljon esimerkiksi lihassa ja leivässä. Myös monessa kalaruoassa on paljon suolaa.
+
+Suolaa ei saa syödä liikaa, koska se on terveydelle huono asia. Suola esimerkiksi nostaa verenpainetta.
+
+## Omakanta uudistuu
+
+![Lääkäri kuuntelee stetoskoopilla potilaan keuhkoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11114364)
+
+Avaa kuvien katselu
+
+Alle 18-vuotiaan terveystiedot tulevat näkyville vanhempien Omakannassa vasta lääkärin arvion jälkeen. Potilaslaki vaatii, että lapsen kyky päättää omasta hoidosta on aina selvitettävä. Kuva: Jessica Edén/Yle 
+
+Omakanta-palvelu muuttuu vähän ensi vuonna. Omakanta on nettipalvelu, josta voi katsoa lääkärin kirjoittamia tietoja omasta terveydestä.
+
+Ensi vuonna isä tai äiti voi katsoa Omakannasta myös lapsen terveystietoja. Lapsen tiedot näkyvät vanhemmille siihen asti, kun lapsi täyttää 18 vuotta.
+
+Omakantaan tulee myös toinen muutos.
+
+Ensi vuonna esimerkiksi sairaan oman isän tai äidin tietoja voi katsoa Omakannasta. Tähän pitää olla lupa eli valtakirja. Valtakirja tehdään netissä. Tämä on mahdollista vasta kesällä.
+
+## Sydneyn uudenvuoden ilotulitus
+
+![Ilotulitteita Sydneyn taivaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10576829)
+
+Avaa kuvien katselu
+
+Ilotulitteita Sydneyn taivaalla vuonna 2018. Kuva: Brendan Esposito / EPA
+
+Australiassa yli 260 000 ihmistä vaatii, että Sydneyn kaupungin uudenvuoden ilotulitus pitää perua.
+
+He sanovat, että ilotulitus on liian kallis. Ilotulituksiin käytettiin viime vuonna rahaa 3,6 miljoonaa euroa. Ihmisten mielestä rahat pitää käyttää tulipalojen sammuttamiseen. Australiassa on isoja maastopaloja.
+
+Sydney on Uuden Etelä-Walesin osavaltiossa. Siellä ei saa maanantaista lähtien tehdä tulta ollenkaan. Sydneyn lähellä on uutenavuotena ehkä jopa 44 astetta lämmintä.

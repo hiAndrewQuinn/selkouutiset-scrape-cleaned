@@ -1,0 +1,65 @@
+# Perjantai 5.12.2014
+
+Fennovoima sai luvan ydinvoimalalle. Yhdysvalloissa protestoidaan poliisin kovia otteita. Liikunta lievittää lapsen stressiä. Suomi täyttää 97 vuotta.
+
+## Fennovoima sai luvan ydinvoimalalle
+
+![Fennovoiman pääkonttori Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7671738)
+
+Avaa kuvien katselu
+
+Fennovoima aikoo rakentaa ydinvoimalan Pyhäjoelle. Kuva: Kimmo Mäntylä / Lehtikuva
+
+Eduskunta on antanut luvan Fennovoiman ydinvoimalalle. Luvan puolesta äänesti 115 kansanedustajaa. Luvan ehtona on se, että uuden ydinvoimalan omistajista ainakin 60 prosenttia tulee EU-alueelta.
+
+Fennovoima aikoo rakentaa ydinvoimalan eli atomivoimalan Pyhäjoelle Pohjois-Pohjanmaalle. Fennovoima aikoo tilata ydinvoimalan venäläiseltä Rosatomilta. Tavoite on, että ydinvoimala on valmis vuonna 2024.
+
+## Yhdysvalloissa protestoidaan poliisin kovia otteita
+
+![Mielenosoittajat ja poliisi vastakkain New Yorkissa Yhdysvalloissa 3. joulukuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7670821)
+
+Avaa kuvien katselu
+
+Mielenosoittajat ja poliisi olivat vastakkain esimerkiksi New Yorkissa. Kuva: Michael Nagle / EPA
+
+Yhdysvalloissa mielenosoitukset poliisia vastaan jatkuvat. Mielenosoittajat ovat tukkineet katuja New Yorkissa ja muissa suurissa kaupungeissa.
+
+Mielenosoittajat ovat vihaisia, koska heidän mielestään poliisi käyttää liian kovia otteita. He myös sanovat, että poliisi kohtelee tummaihoisia ihmisiä ankarammin kuin valkoihoisia.
+
+Mielenosoittajia kuohuttaa kaksi (2) eri tapausta, joissa valkoihoiset poliisit ovat surmanneet tummaihoiset, aseettomat miehet. Poliisit eivät kuitenkaan joutuneet oikeuteen vastaamaan teoistaan.
+
+## Liikunta lievittää lapsen stressiä
+
+![Lapsia Muuramessa Mäkelänmäen koululla 2014 ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7599924)
+
+Avaa kuvien katselu
+
+Lapsi hyötyy jo tavallisesta arkiliikunnasta. Kuva: Yle / Matti Myller
+
+Runsas liikunta on monella tavalla hyväksi lapselle. Uusi tutkimus kertoo, että liikunta esimerkiksi vähentää lapsen stressiä. Lapsi myös tuntee vähemmän masennusta ja ahdistusta, jos hän harrastaa liikuntaa. Liikunta parantaa myös lapsen keskittymiskykyä.
+
+Psykologi Silja Martikainen tutki väitöskirjassaan sitä, miten liikunta ja uni vaikuttavat lapsen hyvinvointiin. Tutkimuksessa oli mukana 8- ja 12-vuotiaita lapsia.
+
+Martikainen sanoo, että jo tavallisesta arkiliikunnasta on hyötyä lapselle. Liikkua pitää ainakin tunnin verran joka päivä.
+
+## Suomi täyttää 97 vuotta
+
+![Kaksi kynttilää ja Suomen lippu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6400511)
+
+Avaa kuvien katselu
+
+Suomen syntymäpäivänä vedetään lippu salkoon ja sytytetään kynttilät. Kuva: Arja Lento / Yle
+
+Suomessa vietetään lauantaina itsenäisyyspäivää. Itsenäisyyspäivä on Suomen syntymäpäivä. Tänä vuonna Suomi täyttää itsenäisyyspäivänä 97 vuotta.
+
+Itsenäisyyspäivä on suomalaisille vakava ja harras juhla.
+
+![Pentti Siimes, Åke Lindman ja Kaarlo Halttunen elokuvassa Tuntematon sotilas.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7671706)
+
+Avaa kuvien katselu
+
+Monet suomalaiset haluavat katsoa itsenäisyyspäivänä elokuvan Tuntematon sotilas. Kuva: Suomen Filmiteollisuus
+
+Itsenäisyyspäivänä muistetaan Suomen sotavuosia ja niitä ihmisiä, jotka kuolivat tai haavoittuivat sodissa.  Moni myös katsoo televisiosta elokuvan Tuntematon sotilas. Elokuva kertoo sodasta, joka käytiin noin 70 vuotta sitten Suomen ja Neuvostoliiton eli Venäjän välillä.
+
+Itsenäisyyspäivän iltana presidentti järjestää suuret juhlat Presidentinlinnassa Helsingissä. Melkein kaikki suomalaiset katselevat presidentin juhlia televisiosta. Ihmisiä kiinnostaa etenkin se, millaisiin juhlavaatteisiin vieraat ovat pukeutuneet.

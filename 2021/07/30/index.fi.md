@@ -1,0 +1,82 @@
+# Perjantai 30.7.2021
+
+Koronatartunnat. Korona armeijassa. Liikenteen valvonta. Kalajoen metsäpalo. Viikonlopun sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Koronatartunnat
+
+![Opaskyltti koronatestipaikalle.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83672761028b1e8d516/1627556739)
+
+Avaa kuvien katselu
+
+Kuva: Roni Rekomaa / Lehtikuva
+
+Koronatartuntojen määrä kasvaa Suomessa edelleen. Perjantaina ilmoitettiin yli 700 uutta koronatartuntaa.
+
+Korona leviää nyt tapahtumissa ja festivaaleilla sekä baareissa ja ravintoloissa. Korona tarttuu ihmisiin, joilla ei ole vielä koronarokotuksia.
+
+Tähän mennessä noin 66 prosenttia suomalaisista on saanut ensimmäisen koronarokotuksen. 34 prosenttia suomalaisista on saanut molemmat koronarokotukset.
+
+Koronatartuntoja on paljon nuorilla. Monilla nuorilla ei ole vielä koronarokotuksia, ja nuoret myös käyvät paljon baareissa ja festivaaleilla.
+
+## Korona armeijassa
+
+![Suomen puolustusvoimien alokaskoulutus Santahaminassa](https://img.img-cdn.yle.fi/crop_extract,w_5882,h_3309,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7589935ff305674855a/1609764267)
+
+Avaa kuvien katselu
+
+Monet nuoret ovat saaneet koronatartunnan armeijassa. Kuva: Jyrki Lyytikkä / Yle
+
+Korona leviää myös Suomen armeijassa. Heinäkuun aikana armeijassa on todettu noin 300 koronatartuntaa.
+
+Suurin osa koronatartunnoista on nuorilla, jotka nyt ovat armeijassa. Suomen armeija on pakollinen miehille ja vapaaehtoinen naisille.
+
+Eniten koronatartuntoja on Karjalan prikaatissa. Siellä koronatartunnan on saanut 100 ihmistä.
+
+Korona leviää nopeasti myös Kainuun prikaatissa. Lyhyessä ajassa Kainuun prikaatissa on todettu noin 30 uutta koronatartuntaa.
+
+Nuoret pyritään rokottamaan armeijassa koronaa vastaan niin nopeasti kuin mahdollista.
+
+## Rattijuoppoja valvotaan
+
+![Mies puhaltaa alkometriin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10193256)
+
+Avaa kuvien katselu
+
+Poliisi voi selvittää puhalluskokeella, onko kuljettaja juonut alkoholia. Kuva: AOP
+
+Poliisi valvoo liikennettä ensi viikolla enemmän kuin tavallisesti. Poliisi seuraa, onko liikenteessä rattijuoppoja eli ovatko autonkuljettajat käyttäneet alkoholia tai huumeita.
+
+Poliisi valvoo koko maassa, että kuljettajat ovat ajokunnossa. Poliisi valvoo kuljettajia erityisesti paikkakunnilla, joissa on paljon kesämökkejä.
+
+Heinäkuu loppuu pian, ja myös monien kesäloma loppuu. Siksi monet palaavat kesämökiltä takaisin kaupunkiin.
+
+## Kalajoen metsäpalo
+
+![Kalajoella Pohjois-Pohjanmaalla levinnyt maastopalo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12040450)
+
+Avaa kuvien katselu
+
+Kalajoen metsäpaloalue on 300 hehtaaria. Kuva: Glenn Hägg / Lehtikuva
+
+Tilanne Kalajoen metsäpaloalueella on vähän parantunut. Kalajoella satoi vettä, ja se helpottaa sammutustöitä.
+
+Kalajoki on Pohjois-Pohjanmaalla, noin 130 kilometriä Oulun eteläpuolella.
+
+Kalajoen metsäpalo syttyi maanantaina. Se on Suomen suurin metsäpalo melkein 50 vuoteen.
+
+Sammutustyöt jatkuvat Kalajoella vielä kauan.
+
+## Viikonlopun sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12042024)
+
+Avaa kuvien katselu
+
+Lauantaina aurinko päistaa etelässä, muuten viikonloppu on sateinen.
+
+Sateet jatkuvat Suomessa myös viikonloppuna.
+
+Lauantaina etelässä ja lännessä on aurinkoista, mutta sunnuntaina tulee uusia sateita koko maahan.

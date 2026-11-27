@@ -1,0 +1,63 @@
+# Perjantai 29.7.2016 (radio)
+
+Turvapaikkapäätöksistä tehdään nyt paljon valituksia. Afganistanilainen Amir Najiarzadeh on saksalaisten uusi sankari. Vesissä on paljon sinilevää. Helsingissä ja Turussa on merikotkia.
+
+## Turvapaikkapäätöksistä valitetaan
+
+![Nuoret turvapaikahakijat pelaavat biljardia vastaanottokeskuksen ikkunan äärellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8880628)
+
+Avaa kuvien katselu
+
+Vastaanottokeskuksissa odotetaan turvapaikkapäätöksiä. Kuva: Antti J. Leinonen 
+
+Turvapaikkapäätöksistä valitetaan enemmän kuin ennen. Arvioidaan, että tänä vuonna tehdään noin 10 000 valitusta. Viime vuonna tehtiin vain noin 1200 valitusta.
+
+Valituksia tehdään nyt paljon, koska kielteisiä turvapaikkapäätöksiä on tehty paljon. Yksi syy tähän on se, että Suomen viranomaisten mielestä Irakin, Somalian ja Afganistanin turvallisuus on parantunut. Siksi ihmisten on nyt vaikeampi saada turvapaikkaa, jos he tulevat näistä maista.
+
+## Saksalaisten sankari
+
+![Kukkia Olympia-ostoskeskuksen läheisellä metrosisäänkäynnillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9046764)
+
+Avaa kuvien katselu
+
+Ihmiset veivät kukkia lähelle ostoskekusta, jossa ampuja tappoi ihmisiä. Kuva: Karl-Josef Hildenbrand / EPA
+
+Sitten uutinen Saksasta. Saksalaisilla on uusi sankari. Hän on Amir Najiarzadeh. Hän on vartija müncheniläisessä ostoskeskuksessa, jossa ampuja tappoi 9 ihmistä viikko sitten.
+
+Najiarzadeh pelasti monta ihmistä. Heti kun hän kuuli aseen äänen, hän vei noin 200 ihmistä turvaan ostoskeskuksen kellariin. Joukossa oli paljon lapsia.
+
+Amir Najiarzadeh on 20-vuotias pakolainen. Hän on kotoisin Afganistanista, ja hän on asunut Saksassa yli 3 vuotta.
+
+Najiarzadeh itse sanoo, että hän ei ole sankari. Hän halusi vain auttaa ihmisiä ja näyttää, että afganistanilaiset eivät ole terroristeja.
+
+## Vesissä sinilevää
+
+![Sinilevää ja vene rannalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9054741)
+
+Avaa kuvien katselu
+
+Sinilevän takia vesi näyttää likaisen vihreältä. Kuva: Yle
+
+Täällä Suomessa on nyt paljon sinilevää meressä ja järvissä. Sinilevän takia vesi näyttää likaisen vihreältä. Sinilevä kasvaa hyvin, kun sää on kuuma.
+
+Vedessä ei kannata uida, jos siinä on sinilevää. Sinilevä voi ärsyttää ihoa, ja ihosta tulee punainen ja sitä kutittaa.
+
+Tutkija Sari Mitikka sanoo, että kesämökillä ei ole hyvä käyttää vettä, jossa on sinilevää. Se ei sovi pesuvedeksi tai löylyvedeksi.
+
+Sinilevää riittää vesissä kesän loppuun asti. Kun vesi syksyllä kylmenee, sinilevä vähenee.
+
+## Merikotkat lisääntyneet
+
+![Merikotka Helsingissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9060289)
+
+Avaa kuvien katselu
+
+Merikotka Helsingin taivaalla. Kuva: Jarmo Nieminen
+
+Helsingin ja Turun taivaalla voi nyt nähdä merikotkia. Merikotka on iso lintu, joita ei ole enää paljon jäljellä. Nyt niiden määrä onneksi kasvaa.
+
+Tänä vuonna merikotkan poikasia on laskettu yli 400. Esimerkiksi vuonna 1973 syntyi vain 5 merikotkan poikasta.
+
+Tänä vuonna merikotkilla on ensimmäistä kertaa pesä myös Helsingissä ja Turussa. Pesät ovat meren saarilla kaupungin lähellä.
+
+Merikotkat löytävät hyvin ruokaa kaupungista. Ne syövät esimerkiksi hanhia, joita puistoissa on monien kaupunkilaisten mielestä jo ihan liikaa.

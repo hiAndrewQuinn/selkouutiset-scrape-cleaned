@@ -1,0 +1,78 @@
+# Maanantai 14.6.2021 (radio)
+
+Kuntavaalit. Kokoomus. SDP. Perussuomalaiset. Keskusta.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Kokoomus kuntavaalien suosituin
+
+![Petteri Orpo iloitsi kokoomuksen menestyksestä kuntavaaleissa 13. kesäkuuta.](https://img.img-cdn.yle.fi/crop_extract,w_1980,h_1114,x_0,y_142/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82035760c668cce7b62/1623615861)
+
+Avaa kuvien katselu
+
+Kokoomuksen puheenjohtaja Petteri Orpo iloitsi vaalituloksesta. Kuva: Mikko Stig/ Lehtikuva
+
+Tänään maanantaina Suomessa on puhuttu kuntavaalien tuloksista.
+
+Suosituin puolue kuntavaaleissa oli kokoomus. Kokoomus on suurin puolue isoissa kaupungeissa esimerkiksi Helsingissä, Espoossa, Vantaalla ja Turussa.
+
+Tampereella kokoomus sai valtuustoon yhden paikan lisää ja se on nyt Tampereella yhtä iso puolue kuin SDP. Myös Jyväskylässä kokoomus ja SDP saivat yhtä monta paikkaa.
+
+Koko Suomessa Kokoomuksen kannatus oli 21,5 prosenttia.
+
+## SDP toiseksi suosituin
+
+![Sanna Marin saapuu Pasilaan Ylen Studiotalolle.](https://img.img-cdn.yle.fi/crop_extract,w_4050,h_2278,x_0,y_247/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82008660c6436bb05f5/1627008990)
+
+Avaa kuvien katselu
+
+SDP:n puheenjohtaja Sanna Marin saapui Ylen studiolle maanantaina. Marin on myös Suomen pääministeri.  Kuva: Benjamin Suomela / Yle
+
+Kuntavaalien toiseksi suosituin puolue oli SDP. SDP on suosituin esimerkiksi Tampereella, mutta ero Kokoomukseen on niin pieni, että SDP ja kokoomus saivat yhtä monta paikkaa Tampereen valtuustoon.
+
+Myös Jyväskylässä SDP on suosituin, mutta SDP ja kokoomus saivat yhtä monta paikkaa Jyväskylän valtuustoon.
+
+SDP on suurin puolue esimerkiksi Kotkassa, Joensuussa, Jämsässä, Äänekoskella ja Heinolassa.
+
+Koko Suomessa SDP:n kannatus oli 17,5 prosenttia. SDP:n vaalitulos oli huonompi kuin edellisissä kuntavaaleissa.
+
+## Perussuomalaisilla eniten nousua
+
+![Perussuomalaisten puheenjohtaja Jussi Halla-Aho.](https://img.img-cdn.yle.fi/crop_extract,w_5997,h_3373,x_0,y_469/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82046860c6811c30627/1624267239)
+
+Avaa kuvien katselu
+
+Perussuomalaisten puheenjohtaja Jussi Halla-aho. Kuva: Benjamin Suomela / Yle
+
+Kuntavaaleissa eniten kannatusta lisäsi Perussuomalaiset-puolue. Perussuomalaiset sai lisää valtuustopaikkoja monissa kunnissa.
+
+Perussuomalaiset sai esimerkiksi Helsingissä 3, Vantaalla 5, Tampereella 6 ja Turussa 4 paikkaa lisää.
+
+Koko Suomessa perussuomalaisten kannatus oli 14,5 prosenttia. Perussuomalaisten kannatus nousi 6 prosenttiyksikköä edellisistä kuntavaaleista. Monet odottivat, että perussuomalaisten kannatus nousee enemmän.
+
+## Keskustalla eniten paikkoja
+
+![Annika Saarikko saapuu Pasilaan Ylen Studiotalolle.](https://img.img-cdn.yle.fi/crop_extract,w_4176,h_2349,x_0,y_261/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82008060c642c90a608/1623606003)
+
+Avaa kuvien katselu
+
+Keskustan puheenjohtaja Annika Saarikko on myös valtiovarainministeri. Kuva: Benjamin Suomela / Yle
+
+Eniten uusia paikkoja kunnanvaltuustoissa saivat kokoomus ja perussuomalaiset.
+
+Eniten valtuustopaikkoja on kuitenkin keskustalla. Keskusta on suurin puolue esimerkiksi Oulussa, Kokkolassa ja Kuopiossa ja tosi monissa pienissä kunnissa.
+
+Keskustan kannatus koko Suomessa oli 15 prosenttia. Keskustan kannatus laski vähän edellisistä kuntavaaleista.
+
+## Äänestysprosentti oli pieni
+
+![Kaksi ennakkoon äänestäjää äänestyskopeissa.](https://img.img-cdn.yle.fi/crop_extract,w_5744,h_3231,x_0,y_332/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81752160bf412c132b0/1623147192)
+
+Avaa kuvien katselu
+
+Äänestyskoppeja. Kuva: Petteri Bülow / Yle
+
+Kuntavaaleissa SDP:n, vasemmistoliiton ja vihreiden kannatus pieneni. Ne saivat aiempaa vähemmän paikkoja monissa kunnanvaltuustoissa.
+
+Kuntavaalien äänestysprosentti oli melko pieni. Äänestämässä kävi noin 55 prosenttia äänioikeutetuista.

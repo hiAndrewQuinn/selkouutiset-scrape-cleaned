@@ -1,0 +1,59 @@
+# Sunnuntai 9.9.2018 (radio)
+
+Ruotsalaiset ovat äänestäneet vaaleissa. Terveysalalle tulee lähivuosina paljon uutta tekniikkaa. Monet muuttolinnut ovat vielä Suomessa, koska sää on ollut lämmin. Sää kylmenee vähitellen.
+
+## Ruotsalaiset äänestävät
+
+![Vaalivirkailija pudottamassa äänestyslippua uurnaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10395109)
+
+Avaa kuvien katselu
+
+Ruotsalaiset ovat äänestäneet sunnuntaina. Kuva: Jonathan Nackstrand / AFP
+
+Ruotsalaiset ovat äänestäneet sunnuntaina vaaleissa. Viimeistään maanantaiaamuna tiedetään, kuinka paljon eri puolueet saavat paikkoja Ruotsin parlamenttiin.
+
+Puolueiden voi olla vaikea sopia Ruotsin uudesta hallituksesta vaalien jälkeen. Tilanne on vaikea, koska muut puolueet eivät halua tehdä yhteistyötä ruotsidemokraattien kanssa.
+
+Ruotsidemokraatit eivät halua maahanmuuttajia Ruotsiin. Maahanmuutto on ollut tärkeä teema Ruotsin vaaleissa.
+
+## Terveystekniikka kehittyy
+
+![Simon Kos](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10393104)
+
+Avaa kuvien katselu
+
+Johtaja Simon Kos. Kuva: Toni Määttä / Yle
+
+Terveysalalle tulee lähivuosina paljon uutta tekniikkaa. Näin sanoo Simon Kos. Kos johtaa Microsoftin terveystekniikkaa. Hän vieraili Suomessa syyskuun alussa.
+
+Kosin mielestä lääkärit ja hoitajat voivat säästää paljon aikaa uuden tekniikan avulla. Tietokone voi esimerkiksi tutkia röntgenkuvia ja magneettikuvia tosi nopeasti.
+
+Muistiinpanojen kirjoittaminen vie Kosin mielestä liian paljon aikaa lääkäreiltä. Siksi yritetään kehittää tekoälylaite, joka kuuntelee lääkärin ja potilaan keskustelun ja tekee siitä muistiinpanot. Lääkärin pitää vain hyväksyä dokumentti.
+
+Myös esimerkiksi virtuaalilaseilla voidaan säästää aikaa ja rahaa, Kos sanoo. Australiassa virtuaalilaseja jo käytetään. Kun hoitaja menee potilaan kotiin, hoitaja ja potilas panevat päähän virtuaalilasit. Sitten he ottavat yhteyden lääkäriin, joka voi olla kaukana. Hoitajasta ja potilaasta tuntuu kuitenkin siltä, että lääkäri on samassa huoneessa.
+
+Ihmisiä tarvitaan terveysalalla myös tulevaisuudessa, Kos sanoo. Kone säästää aikaa, mutta se ei osaa lohduttaa tai kantaa vastuuta.
+
+## Linnut muuttavat
+
+![Muuttomatkalla olevia hanhia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10362667)
+
+Avaa kuvien katselu
+
+Muuttolinnut lähtevät talveksi etelään. Kuva: Ismo Pekkarinen / AOP
+
+Monet muuttolinnut ovat vielä Suomessa, koska sää on ollut lämmin.
+
+Lintuharrastajien järjestö BirdLife Suomi kertoo, että lintujen muutto on ollut hitaampaa kuin yleensä syksyllä.
+
+Muuttolinnut muuttavat Suomesta etelään talven ajaksi. Linnut lähtevät kohti etelää, kun sää kylmenee.
+
+## Sää kylmenee
+
+![keltaisia lehtiä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10380549)
+
+Avaa kuvien katselu
+
+Syksy on tulossa. Kuva: AOP
+
+Sää kylmenee vähitellen. Maanantaina lämpötila on vielä 15 ja 20 asteen välillä. Tiistaista alkaen saadaan enemmän sadetta ja tuulta. Samalla lämpötila laskee.

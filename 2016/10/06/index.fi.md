@@ -1,0 +1,75 @@
+# Torstai 6.10.2016 (radio)
+
+Suomalaiset ostavat luomuruokaa enemmän kuin ennen. Suomen ja Venäjän presidentit ovat keskustelleet puhelimessa Syyrian kriisistä. Oikeus on määrännyt, että MV-lehden perustaja Ilja Janitskin pitää vangita. Puhelimella maksaminen yleistyy. Helsingin taidemuseo esittelee japanilaisen taiteilijan Yayoi Kusaman töitä.
+
+## Luomuruoka kiinnostaa ihmisiä
+
+![Luomutuotteita kaupanhyllyssä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6317057)
+
+Avaa kuvien katselu
+
+Luomuruoka kiinnostaa nyt kauppojen asiakkaita. Kuva: Tarja Nyyssönen / Yle
+
+Suomalaiset ostavat luomuruokaa enemmän kuin ennen. Luomuruoka on kasvatettu ilman kemiallisia aineita.
+
+Suomalaiset ostavat paljon esimerkiksi luomubanaaneja, luomumunia ja luomumaitoa. Viimeisen vuoden aikana suomalaiset ovat käyttäneet luomuruokaan noin 250 miljoonaa euroa.
+
+Luomuruokaa ostavat esimerkiksi ihmiset, jotka huolehtivat kunnosta ja terveydestä. Perheet kiinnostuvat luomuruuasta usein, kun perheeseen syntyy lapsia. Lapsille halutaan antaa terveellistä ruokaa.
+
+## Niinistö ja Putin keskustelivat
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9203509)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Yle
+
+Suomen presidentti Sauli Niinistö on puhunut puhelimessa Venäjän presidentin Vladimir Putinin kanssa. Presidentit keskustelivat Syyriasta.
+
+Niinistö kertoi Putinille, että hän on huolissaan Syyrian kriisistä. Esimerkiksi Aleppon kaupungissa kuolee paljon tavallisia ihmisiä, Niinistö sanoi. Niinistö sanoi Putinille myös, että Venäjällä on tärkeä osa, kun Syyrian kriisiä yritetään lopettaa.
+
+Presidenttien puhelinkeskustelu oli Niinistön ajatus.
+
+## Poliisi etsii MV-lehden perustajaa
+
+![Ilja Janitskin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9194906)
+
+Avaa kuvien katselu
+
+MV-lehden perustaja Ilja Janitskin. Kuva: Yle
+
+Oikeus on määrännyt, että MV-lehden perustaja Ilja Janitskin pitää vangita. Poliisi haluaa kuulla Janitskinia, mutta Janitskinia ei ole löytynyt. Hän asuu Espanjassa.
+
+Epäillään, että Janitskin on tehnyt monia rikoksia. Janitskin on esimerkiksi ehkä kiihottanut kansanryhmää vastaan eli puhunut pahaa jostakin ryhmästä.
+
+MV-lehti tunnetaan siitä, että se vastustaa maahanmuuttoa ja haukkuu maahanmuuttajia.
+
+## Puhelimella maksaminen yleistyy
+
+![Älypuhelimen ruudulla 58 euron rahasiirtonäkymä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7044830)
+
+Avaa kuvien katselu
+
+Puhelin on kätevä maksuväline. Kuva: Arvo Vuorela / Yle
+
+Kohta on tavallista maksaa puhelimella. Puhelin voi jo pian korvata pankkikortin.
+
+Puhelimella maksaminen on nopeaa ja helppoa. Esimerkiksi bensa-asemalla asiakas voi avata bensamittarin puhelimella jo autossa.
+
+Puhelimella maksamista hidastaa vielä se, että eri pankeilla on puhelimiin eri sovellukset. Usein sovelluksella voivat maksaa vain pankin omat asiakkaat.
+
+Euroopan unionissa kuitenkin jo suunnitellaan, että ihmiset saavat mahdollisuuden itse valita, mitä sovellusta käyttävät.
+
+## Yayoi Kusaman taidetta Helsingissä
+
+![Japanilaistaiteilija Yayoi Kusama.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8892928)
+
+Avaa kuvien katselu
+
+Yayoi Kusaman taiteessa on usein pisteitä ja palloja. Kuva: Yayoi Kusama / Helsingin kaupungin taidemuseo
+
+Helsingin taidemuseossa alkaa perjantaina uusi näyttely. Taidemuseo esittelee japanilaisen taiteilijan Yayoi Kusaman töitä.
+
+Kusama tunnetaan koko maailmassa. Kusaman taiteessa on usein pilkkuja, pisteitä ja palloja.
+
+87-vuotias Kusama maalaa vielä joka päivä. Hän asuu psykiatrisessa sairaalassa Tokiossa.

@@ -1,0 +1,81 @@
+# Sunnuntai 4.12.2016 (radio)
+
+Mies ampui 3 naista Imatralla. Ampumistapaus on järkyttänyt imatralaisia. Kuuban entinen presidentti Fidel Castro on haudattu. Auttaminen on terveellistä. Lapissa on lunta ja pakkasta.
+
+## Imatran ampumistapaus
+
+![Ravintola Vuoksenvahdin edusta Imatralla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9333765)
+
+Avaa kuvien katselu
+
+Mies ampui 3 naista ravintola Vuoksenvahdin edessä. Kuva: Yle
+
+Imatran kaupungissa Itä-Suomessa on tapahtunut vakava rikos. 3 naista kuoli, kun heitä ammuttiin.
+
+Rikos tapahtui Imatran keskustassa. Naisia ammuttiin ravintola Vuoksenvahdin edessä keskiyöllä.
+
+Poliisi sanoo, että kuolleet ovat suomalaisia naisia Imatralta. 1 naisista oli poliitikko ja 2 naisista oli toimittajia.
+
+Poliisi epäilee, että ampuja on 23-vuotias imatralainen mies. Poliisi otti hänet kiinni heti tapahtuman jälkeen.
+
+Poliisi ei vielä tiedä, miksi mies ampui naiset. Näyttää kuitenkin siltä, että teko ei ollut poliittinen. Miehelle oli ihan sama, kenet hän ampui.
+
+Poliisi kertoo, että mies on aikaisemmin tehnyt väkivaltarikoksia.
+
+## Imatralaisten suru
+
+![Kynttilät palavat Imatrankoskella yöllä menehtyneiden muistoksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9334053)
+
+Avaa kuvien katselu
+
+Imatralaiset ovat tuoneet kynttilöitä ampumispaikalle. Kuva: Tommi Parkkinen / Yle
+
+Ampumistapaus on järkyttänyt imatralaisia. Monet ovat tuoneet kynttilöitä tapahtumapaikalle.
+
+Imatralaisille on järjestetty myös kriisiapua. Kriisipiste avattiin pian yön tapahtumien jälkeen. Kriisipisteessä ihmiset ovat saaneet keskusteluapua.
+
+## Castron hautajaiset
+
+![Fidel Castron hautajaissaattue matkalla kohti Santiago de Cubassa Santa Ifigeneian hautausmaata.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9334116)
+
+Avaa kuvien katselu
+
+Kuuban entinen johtaja Fidel Castro haudattiin sunnuntaina. Kuva: Alejandro Ernesto / EPA
+
+Kuuban entinen presidentti Fidel Castro on haudattu. Hautajaiset järjestettiin sunnuntaina.
+
+Fidel Castro kuoli noin viikko sitten. Hän oli 90-vuotias. Hän oli Kuuban johtaja melkein 50 vuotta.
+
+Castro tuli valtaan vallankumouksessa vuonna 1959, ja hän teki Kuubasta sosialistisen maan.
+
+Nykyään Kuuban presidenttinä on Fidel Castron veli, Raul Castro. Hän lupasi hautajaisissa, että vallankumouksen sosialistiset periaatteet jatkuvat Kuubassa.
+
+## Auttaminen kannattaa
+
+![Sydän- ja tähtikuvioinen kangas.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8662543)
+
+Avaa kuvien katselu
+
+Sydän voi hyvin, kun ihminen antaa tai saa apua. Kuva: Kalevi Rytkölä / Yle
+
+Auttaminen on terveellistä.
+
+Kun ihminen antaa tai saa apua, rakkaushormonin määrä kehossa kasvaa. Rakkaushormoni eli oksitosiini vaikuttaa esimerkiksi sydämeen ja hengitykseen.
+
+Dosentti Lotta Uusitalo-Malmivaara sanoo, että täydellinen rakkauden hetki on kysymys "voinko olla avuksi". Avun saaja tuntee olon turvalliseksi, ja avun antaja tuntee itsensä tärkeäksi.
+
+Suomalaisten on usein vaikea pyytää tai tarjota apua. Onneksi on joulu, dosentti Uusitalo-Malmivaara sanoo. Silloin on helpompaa tehdä hyvää ja auttaa muita.
+
+## Lapin talvi
+
+![kuttainen enontekiö talvi kaamos](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9332810)
+
+Avaa kuvien katselu
+
+Lapissa on jo lunta ja pakkasta. Kuva: Minna Näkkäläjärvi / Yle
+
+Pohjois-Suomessa on jo kaunis talvi. Lapissa on riittänyt lunta ja pakkasta.
+
+Lunta on eniten Lapin Kittilässä. Siellä lunta on yli 40 senttimetriä.
+
+Lapin Utsjoella mitattiin tämän talven uusi pakkasennätys lauantain ja sunnuntain välisenä yönä. Pakkasta oli 34 astetta.

@@ -1,0 +1,67 @@
+# Lauantai 30.3.2019 (radio)
+
+Kulutusluotot halpenevat ensi syksynä. Uudellamaalla on tarkastettu takseja. Terveystrendi näkyy myös alkoholin vahvuudessa. Kesäaika alkaa yöllä.
+
+## Kulutusluotot halpenevat
+
+![Nainen ottaa lainaa kännykällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6602637)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Kulutusluotot halpenevat ensi syksynä. Kulutusluotto on laina, jolla ostetaan esimerkiksi tavaroita tai matkoja.
+
+Syyskuussa tulee voimaan uusi laki. Silloin uusille pikavipeille ja muille kulutusluotoille tulee tiukka korkokatto. Korko saa olla enintään 20 prosenttia vuodessa.
+
+Laki säätelee myös kulutusluoton muita maksuja.
+
+## Takseissa on puutteita
+
+![Taksin mittari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10697919)
+
+Avaa kuvien katselu
+
+Kuva: Mikko Savolainen / Yle
+
+Takseista on löydetty paljon puutteita.
+
+Viranomaiset järjestivät yhdessä Uudellamaalla taksien valvontaoperaation. Siinä tarkastettiin runsaat 100 autoa. Puutteita oli yli 60 taksissa.
+
+Tavallisin puute oli se, että luvanhaltijan tiedot, kuljettajan nimi tai hinnat eivät olleet selvästi näkyvillä. Lisäksi 3 autossa ei ollut taksamittaria. Kuljettajista 2 oli etsintäkuulutettuja. Yhdessä autossa oli kuljettaja, jota epäillään törkeästä rattijuopumuksesta.
+
+Asianmukainen taksiliikenteen lupa löytyi kaikista takseista.
+
+Valvontaa tehtiin varsinkin Helsinki-Vantaan lentokentän lähellä ja Espoossa. Operaatiossa oli 10 poliisia ja 5 verotarkastajaa. Mukana oli myös Traficomin eli liikenne-ja viestintäviraston edustajia.
+
+Yhteisvalvonta oli ensimmäinen taksilain uudistuksen jälkeen. Valvonnasta tulee pysyvä käytäntö eri puolilla Suomea.
+
+## Matala-alkoholiset oluet kiinnostavat
+
+![Kampin Teerenpelin ravintolapäällikkö Miika Korpela kaataa olutta hanasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10707888)
+
+Avaa kuvien katselu
+
+Helsingin Kampissa Teerenpelin ravintolapäällikkö Miika Korpela kertoo, että suomalaiset pienpanimot ovat hiljalleen heränneet matala-alkoholisten oluiden trendiin. Kuva: Annika Martikainen / Yle
+
+Terveystrendi näkyy myös oluen vahvuudessa.
+
+Vähän alkoholia sisältävien oluiden suosio kasvaa koko ajan. Matala-alkoholisen oluen eli ykkösoluen vahvuus on 0,6 - 4,4 prosenttia.
+
+Panimoliitto kertoo, että myynti on noussut noin 8 prosenttia. Oluen valmistajat ovat huomanneet suosion. Siksi ne parantavat panimotekniikkaa ja kehittävät uusia ykkösoluita.
+
+Muutos näkyy myös ravintoloissa. Asiakkaat hakevat makuelämyksiä, ei niinkään humaltumista.
+
+## Kesäaika alkaa
+
+![Veistos joka tehty kelloista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10707706)
+
+Avaa kuvien katselu
+
+Kuva: Ian Langsdon / EPA
+
+Ensi yönä eli sunnuntain vastaisena yönä alkaa kesäaika. Kelloja siirretään tunti eteenpäin yöllä kello 3.
+
+Euroopan komissio on ehdottanut, että kellojen siirteleminen lopetetaan. Europarlamentaarikot ovat päättäneet, että siirtely loppuu vuoden 2021 jälkeen. EU-maiden pitää päättää, siirtyvätkö ne pysyvään kesäaikaan vai talviaikaan.
+
+Siihen asti kelloja siirretään maaliskuussa ja lokakuussa.

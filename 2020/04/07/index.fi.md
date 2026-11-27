@@ -1,0 +1,73 @@
+# Tiistai 7.4.2020 (radio)
+
+Suomi jatkaa liikkumisrajoituksia rajoilla. Koronatilanne pienentää Suomen taloutta. Poliisille tulee enemmän kotihälytyksiä koronatilanteen takia. Ruokakaupat ovat varautuneet työntekijöiden sairastumisiin. Ruokaa riittää kaupoissa.
+
+## Suomi jatkaa liikkumisrajoituksia rajoilla
+
+![Rajavartiolaitos suorittaa rajatarkastuksia Torniossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11295286)
+
+Avaa kuvien katselu
+
+Rajavartijat vartioivat Suomen rajoja. Kuva: Antti Ullakko / Yle
+
+Suomi jatkaa liikkumisrajoituksia ulkomaanrajoilla. Rajoituksia jatketaan kuukaudella niin, että ne ovat voimassa 13. toukokuuta asti.
+
+Suomi myös tiukentaa rajaliikennettä. Suomen rajoilla Ruotsiin ja Norjaan sallitaan vain välttämätön työmatkaliikenne esimerkiksi sairaaloiden henkilökunnalle.
+
+Myös tavaraliikenne saa kulkea rajan yli. Laivaliikenteessä saa kulkea rahtia, mutta ei matkustajia.
+
+## Korona pienentää taloutta
+
+![Suomen Pankki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10775602)
+
+Avaa kuvien katselu
+
+Suomen Pankki. Kuva: Jari Kärkkäinen/Yle
+
+Koronatilanne pienentää paljon Suomen taloutta. Suomen Pankki sanoo, että Suomen talous voi pienentyä tänä vuonna 13 % koronatilanteen takia.
+
+Talous voi pienentyä näin paljon, koska rajoitukset kestävät Suomessa pitkään.
+
+Suomen Pankki sanoo, että jos Suomi tekee toimia, joilla koronavirus saadaan pois nopeasti, talous pienenee paljon vähemmän, esimerkiksi vain 5 %.
+
+## Kotihälytykset lisääntyvät
+
+![Poliisiauto.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4988625b4f10bf6fa65/1583757455)
+
+Avaa kuvien katselu
+
+Poliisiauto. Kuva: Tiina Jutila / Yle
+
+Poliisille tulee enemmän kotihälytyksiä koronatilanteen takia. Eniten lisää kotihälytyksiä on tullut metelöinnistä tai käyttäytymisestä, joka häiritsee muita.
+
+Kodeissa tulee helpommin riitaa liikkumisrajoitusten takia. Lapset ovat kotona etäkoulussa ja aikuiset ovat kotona etätöissä tai lomautettuna. Kun ihmiset ovat paljon kotona, joissakin perheissä voi tulla paljon riitoja ja ehkä väkivaltaa. Silloin apuun kutsutaan poliisi.
+
+Riidat ja väkivalta kodeissa voivat lisääntyä, jos liikkumisrajoitukset jatkuvat pitkään.
+
+## Ruokakaupoissa riittää työntekijöitä
+
+![Ostoskoreja kassan vieressä Helsingin Malmin Prismassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10911625)
+
+Avaa kuvien katselu
+
+Ruokakaupat ovat varautuneet, että ne voivat olla auki vaikka työntekijöitä sairastuu. Kuva: Jussi Nukari / Lehtikuva
+
+Ruokakaupat pystyvät olemaan Suomessa auki myös silloin, jos niiden henkilökuntaa sairastuu koronavirukseen.
+
+Isot ruokakauppaketjut S-ryhmä ja K-ryhmä ovat tehneet suunnitelman, miten työntekijöitä riittää kaikkiin kauppoihin, jos paljon työntekijöitä sairastuu.
+
+Esimerkiksi yhden kaupan työntekijöitä voi mennä auttamaan toiseen kauppaan.
+
+## Ruokaa riittää kaupoissa
+
+![PTT ennustaa, että lihan ja maitotuotteiden hinnat nousevat loppuvuonna yli 20 prosenttia. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10266028)
+
+Avaa kuvien katselu
+
+Ruokaa riittää kauppoihin. Hinnat voivat nousta vähäksi aikaa. Kuva: Hanna Othman / Yle
+
+Suomessa riittää ruokaa kaupoissa. Tutkijat sanovat, että ruoka ei lopu kaupoista koronatilanteen takia.
+
+Ruokaa tuotetaan Suomessa paljon ja ruoan tuonti ulkomailta toimii hyvin.
+
+Koronatilanteen takia ruoan hinta voi nousta vähäksi aikaa. Ruoan hinta voi nousta vähäksi aikaa, koska ihmiset ovat ostaneet paljon ruokaa ja kauppojen on pitänyt esimerkiksi järjestää lisää kuljetuksia.

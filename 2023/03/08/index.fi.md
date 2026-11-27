@@ -1,0 +1,75 @@
+# Keskiviikko 8.3.2023 (radio)
+
+Työperäinen maahanmuutto. Unkari ja Nato. ADHD. Naisten päivä. Korjaus tiistain uutiseen. Sää.
+
+## Työperäinen maahanmuutto
+
+![Lähihoitaja Bern Amar työssään auttamassa vanhusta, Attendo, Vantaa, 12.11.2018.](https://img.img-cdn.yle.fi/crop_extract,w_4330,h_2435,x_347,y_1083/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5226515be984d9ae497/1655812843)
+
+Avaa kuvien katselu
+
+Työntekijöitä tarvitaan paljon esimerkiksi hoiva-alalla. Kuva: Jari Kovalainen / Yle
+
+Suomi ja muut maat kilpailevat työntekijöistä. Elinkeinoelämän keskusliitto vaatii, että työperäistä maahanmuuttoa helpotetaan. 
+
+EK sanoo, että maahanmuuttajien määrä on kaksinkertaistettava 40 000:een vuodessa. EK vaatii muutosta seuraavalla hallituskaudella.
+
+Kansainvälisten opiskelijoiden määrä on kolminkertaistettava 15 000:een.
+
+EK laskee, että näin Suomeen voidaan saada yli 50 000 uutta työntekijää vuodessa.
+
+## Unkari ja Nato
+
+![Eduskunnan puhemies Matti Vanhanen median haastateltavana eduskuntatalossa keskiviikkona 8. maaliskuuta 2023. Unkarin parlamentin varapuhemies Csaba Hende katselee tarkkaavaisena taustalla.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_97/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-108233064084fa556760/1678266348)
+
+Avaa kuvien katselu
+
+Unkarin parlamentin varapuhemies Csaba Hende ja Suomen eduskunnan puhemies Matti Vanhanen. Kuva: Vesa Moilanen / Lehtikuva
+
+Unkarin parlamentin valtuuskunta on vieraillut Suomessa. Valtuuskunta ilmaisi tuen Suomen Nato-jäsenyydelle. 
+
+Valtuuskunta tapasi eduskunnassa puhemies Matti Vanhasen. Unkarilaiset sanoivat Vanhaselle, että Unkari ei aio sitoa Suomen jäsenyyttä kiistoihin. Kiistaa on ollut siitä, kuinka Unkari noudattaa Euroopan unionin oikeusvaltioperiaatetta.
+
+Unkari ja Turkki ovat ainoat Nato-maat, jotka eivät vielä ole ratifioineet eli hyvkäsyneet Suomen ja Ruotsin jäsenyyttä puolustusliitossa.
+
+## ADHD-diagnoosit
+
+![Skylt med ADHD ](https://img.img-cdn.yle.fi/crop_extract,w_2952,h_1660,x_0,y_950/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-43129059ca55270f031/1506432361)
+
+Avaa kuvien katselu
+
+ADHD-diagnoosia ei voi tehdä yhden tai kahden lääkäritapaamisen aikana. Huolellinen tutkimus vie aikaa. Kuva: Most Photos/DOC_PhotoStock
+
+Suomessa on ehkä annettu ADHD-diagnooseja liian kevyesti. Osa diagnooseista voi olla vääriä. Ainakin riski virheisiin on kasvanut, sanovat lääkärit, joita Yle haastatteli. ADHD tarkoittaa aktiivisuuden ja tarkkaavuuden häiriötä. 
+
+ADHD-lääkkeiden käyttäjien määrä on 8-kertaistunut Suomessa vuodesta 2010.
+
+Psykiatrian erikoislääkäri Suvi Olkkola sanoo, että huolellinen ADHD-tutkimus vaatii aikaa.
+
+## Kansainvälinen naistenpäivä
+
+![Perinteinen kukkalahja ilahduttaa monen opettajan ja hoitajan mieltä. Maljakot voivat kuitenkin loppua kesken, jos jokainen lapsi tuo kukkapaketin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7851230)
+
+Avaa kuvien katselu
+
+Naiset saavat usein kukkia naistenpäivänä. Kuva: Alex Turunen / Yle
+
+Keskiviikkona on vietetty Yhdistyneiden kansakuntien kansainvälistä naistenpäivää. Tämän vuoden teema on hyödyntää innovaatioita ja teknologiaa sukupuolten tasa-arvossa.
+
+YK:n kansainvälistä naistenpäivää vietettiin ensimmäisen kerran vuonna 1975. Naistenpäivän historia ulottuu kuitenkin jo 1900-luvun alkuun.
+
+## Korjaus tiistain uutiseen, joka koski mielenterveyspalveluja
+
+Mielenterveyden keskusliiton tiistain tiedotteessa oli virhe: suomalaisten luottamus mielenterveyspalveluihin ei ole kohentunut, kuten tiedotteessa kerrottiin vaan heikentynyt.
+
+Tammikuussa mielenterveyspalveluja piti laadukkaina 38 prosenttia suomalaisista. 2 vuotta sitten luku oli 52 prosenttia.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689740)
+
+Avaa kuvien katselu
+
+Kuva: Yle.
+
+Yöllä sää poutaantuu. Yö on kylmä erityisesti pohjoisessa. Pakkasta voi siellä olla jopa 35 astetta. Torstai on poutainen ja laajalti aurinkoinen päivä. Pakkasta on 5 - 10 astetta.

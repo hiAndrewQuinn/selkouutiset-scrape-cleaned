@@ -1,0 +1,61 @@
+# Keskiviikko 23.8.2017 (radio)
+
+Kaksi uutta miestä kiinni Turun puukotuksista. Paperittomia halutaan vähentää. Eriarvoisuus Helsingin kouluissa vähentynyt. Afrikkalaisnaiset hoitavat hiukset itse.
+
+## Kaksi uutta miestä kiinni
+
+![Kynttilä- ja kukkameri muistuttaa Turun puukotuksen uhreista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9790535)
+
+Avaa kuvien katselu
+
+Poliisi otti kiinni kaksi uutta miestä Turun puukotukseen liittyen.  Kuva: Lassi Lähteenmäki / Yle
+
+Poliisi on ottanut kiinni kaksi uutta miestä Turun puukotuksiin liittyen. Miesten kansallisuudesta ei ole varmuutta. Miehet ovat kertoneet Suomessa, että he ovat Algeriasta ja Ruotsissa että he ovat Marokosta.
+
+Poliisi tutkii, onko Turun alueella toiminut ääriajatteluun liittyvä verkosto. Yle on saanut tiedon, että Turun puukotusten pääepäilty halusi liittyä terrorijärjestö Isisiin. Poliisin tietojen mukaan hänellä on ollut yhteyksiä ulkomaille.
+
+## Paperittomia halutaan vähentää
+
+![Mies istuu pöydän ääressä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9776206)
+
+Avaa kuvien katselu
+
+Kielteisen turvapaikkapäätöksen saaneiden paperittomien määrää yritetään vähentää. Kuva: Wasim Khuzam / Yle
+
+Suomessa on 1400 ihmistä, jotka ovat jääneet Suomeen kielteisen turvapaikkapäätöksen jälkeen. He ovat kieltäytyneet kotimaahan paluusta. Poliisi pakottaa heidät palaamaan, mutta moni odottaa palautusta pitkää. Odotus johtuu siitä, että heillä ei ole tarvittavia asiakirjoja.
+
+Näiden paperittomien määrää hallitus haluaa vähentää. Sisäministeri Paula Risikko ehdotti, että pitää rangaista niitä, jotka auttavat paperittomia ihmisiä.
+
+## Eriarvoisuus kouluissa vähentynyt
+
+![Lapsi laskee matematiikan tehtäviä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9590488)
+
+Avaa kuvien katselu
+
+Eriarvoisuus Helsingin kouluissa on vähentynyt. Kuva: Elisa Kinnunen / Yle
+
+Helsingissä eriarvoisuus on vähentynyt, kun joitakin kouluja on suosittu. Vähävaraisten asuinalueiden kouluille on jo monta vuotta annettu enemmän rahaa.
+
+Tästä ovat hyötyneet erityisesti suomenkieliset pojat ja oppilaat, jotka ovat maahanmuuttajaperheistä. Nyt yhä useampi maahanmuuttajataustainen tyttö jatkaa opiskelua lukiossa peruskoulun jälkeen. Lisärahoilla koulut ovat palkanneet esimerkiksi koulunkäyntiavustajia.
+
+## Afrikkalaisnaiset hoitavat hiukset itse
+
+![Nainen letittää pojan hiuksia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9790813)
+
+Avaa kuvien katselu
+
+Äiti Omnia Ali letittää Wakela Tian hiuksia. Kuva: Niko Mannonen / Yle
+
+Suomessa on vain vähän kampaajia ja partureita, jotka hoitavat afrohiuksia. Esimerkiksi Kajaanista Itä-Suomesta pitää lähteä Helsinkiin, jos haluaa osaavan kampaajan hoitoon.
+
+Kajaanissa asuu Sudanista tullut  Omnia Ali, joka hoitaa hiuksia itsetehdyllä öljyllä. Afrikkalaisnaiset opettavat omia hiustenhoitotapoja lapsille. Tavat ovat joka maassa erilaiset.
+
+## Sää viilenee
+
+![Vesisade.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9751762)
+
+Avaa kuvien katselu
+
+Sää muuttu sateiseksi. Kuva: Uula Kuvaja / Yle
+
+Sää viilenee ja muuttuu sateiseksi. Huomenna torstaina aurinkoisinta on länsirannikolla ja etelässä.

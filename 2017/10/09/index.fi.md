@@ -1,0 +1,65 @@
+# Maanantai 9.10.2017 (radio)
+
+Suomen presidenttipari saa lapsen. Sote-uudistus menee eteenpäin. Suomessa kehitetään aaltovoimaa. Tiistaina vietetään Aleksis Kiven päivää.
+
+## Perheuutinen
+
+![Jenni Haukio ja Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9873540)
+
+Avaa kuvien katselu
+
+Jenni Haukio ja Sauli Niinistö saavat vauvan helmikuussa. Kuva: Martti Kainulainen / Lehtikuva
+
+Suomen presidenttipari saa lapsen. Presidentti Sauli Niinistön ja rouva Jenni Haukion vauva syntyy helmikuussa.
+
+Sauli Niinistö ja Jenni Haukio menivät naimisiin vuonna 2009. He kertovat, että he ovat toivoneet lasta jo kauan.
+
+Vauva on Haukion ensimmäinen lapsi ja Niinistön kolmas lapsi. Presidentillä on ensimmäisestä avioliitosta 2 poikaa, jotka ovat jo aikuisia.
+
+Presidentinlinnasta kerrotaan, että lapsen syntymä ei vaikuta presidentin työhön. Tämä on ensimmäinen kerta, kun Suomessa syntyy vauva presidentille, joka on virassa.
+
+## Sote-uudistus
+
+![Hoitohenkilökuntaa leikkausrobotin äärellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9850845)
+
+Avaa kuvien katselu
+
+Terveyspalveluja on yritetty uudistaa jo kauan. Kuva: Markus Sjöberg / Yle
+
+Sote-uudistus menee eteenpäin. Sote-uudistus koskee sosiaalipalveluja ja terveyspalveluja.
+
+Hallituksen uuteen suunnitelmaan kuuluvat esimerkiksi asiakassetelit. Asiakas voi mennä esimerkiksi silmäleikkaukseen mihin tahansa Suomessa ja maksaa leikkauksen asiakassetelillä. Asiakasseteliä voi käyttää vain tärkeään hoitoon, ei esimerkiksi kauneusleikkaukseen.
+
+Sote-uudistuksen tavoite on, että ihminen voi itse valita, mistä hän saa hoitoa. Hän saa valita, haluaako hän käydä julkisessa vai yksityisessä sote-keskuksessa. Ihmiset saavat valita oman sote-keskuksen vuonna 2021.
+
+Terveyspalvelut halutaan uudistaa Suomessa niin, että rahat riittävät hyviin palveluihin koko Suomessa myös tulevaisuudessa.
+
+## Aaltovoima
+
+![Aaltoenergiavoimala.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9871431)
+
+Avaa kuvien katselu
+
+Järvenpäässä kootaan aaltovoimalaa, joka viedään Portugaliin. Kuva: Mikko Ahmajärvi / Yle
+
+Suomessa kehitetään aaltovoimaa. Idea on muuttaa meren aaltojen liike sähköksi. Se tapahtuu aaltovoimalassa.
+
+Suomalaiset haluavat myydä aaltovoimaloita moniin maihin. Järvenpäässä kootaan jo aaltovoimalaa, joka viedään Portugaliin. Neuvotteluja käydään myös monien muiden maiden kanssa.
+
+Aaltovoima on hyvä tapa tehdä sähköä. Se ei saastuta luontoa, eivätkä aallot meristä lopu.
+
+## Aleksis Kiven päivä
+
+![Aleksis kiven -patsas Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7838881)
+
+Avaa kuvien katselu
+
+Aleksis Kivi on Suomen kansalliskirjailija. Kuva: Seppo Sarkkinen / Yle
+
+Tiistaina vietetään Aleksis Kiven päivää.
+
+Kirjailija Aleksis Kivi eli 1800-luvulla. Hän kirjoitti esimerkiksi kirjan Seitsemän veljestä.
+
+Aleksis Kiveä sanotaan Suomen kansalliskirjailijaksi. Siksi Aleksis Kiven päivä on myös suomalaisen kirjallisuuden päivä.
+
+Aleksis Kiven päivää vietetään aina lokakuun 10. päivä, koska se on Kiven syntymäpäivä. Aleksis Kiven päivänä liputetaan.

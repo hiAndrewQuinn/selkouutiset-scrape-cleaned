@@ -1,0 +1,71 @@
+# Torstai 22.4.2021 (radio)
+
+EU ei enää osta Astra Zenecan koronarokotteita. Suomessa on purettu vuokra-asuntoja valtion tuella. Vuokrien nousu on hidastunut. Nuoret törmäävät nettihäirintään melkein joka päivä.
+
+## EU lopettaa Astra Zenecan rokotteen ostamisen
+
+![Astra Zeneca -rokotepullo.18.3.2021.](https://img.img-cdn.yle.fi/crop_extract,w_3736,h_2102,x_0,y_41/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-78592460545a6e33c3a/1616141024)
+
+Avaa kuvien katselu
+
+Astra Zeneca -rokotepullo 18.3.2021. Kuva: Jorge Gonzalez / Yle
+
+EU ei enää osta Astra Zenecan koronarokotteita.
+
+Unionilla oli mahdollisuus ostaa vielä 100 miljoonaa rokoteannosta.
+
+EU-komissio sanoo, että Astra Zeneca ei ole täyttänyt ehtoja EU:n kanssa. Toimitukset ovat olleet koko ajan myöhässä.
+
+Lisäksi rokotteeseen liittyy epäilyjä veritulpista.
+
+EU ei ole vielä päättänyt, nostaako se oikeustoimia Astra Zenecaa vastaan.
+
+## Vuokra-asuntoja puretaan valtion tuella
+
+![Puoliksi purettu talo.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10777427)
+
+Avaa kuvien katselu
+
+Taloa puretaan. Kuva: Isto Janhunen / Yle
+
+Suomessa on purettu vuokra-asuntoja valtion tuella. Vuokra-asuntoja on purettu viime vuosina tuhansia.
+
+Valtio voi maksaa purkukustannuksista jopa 90 prosenttia, jos vuokra-asunnoille ei riitä alueella vuokralaisia. Näin on usein muuttotappiokunnissa, joista väkeä muuttaa pois.
+
+Esimerkiksi Polvijärvellä Pohjois-Karjalassa on purettu maan tasalle jopa 1990-luvun taloja. Samat talot rakennettiin valtion avustusten avulla.
+
+## Vuokrien hinnannousu on pientä
+
+![Käytöstä poistetun vuokra-asunnon keittiö.](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7971606080140f91b29/1619006720)
+
+Avaa kuvien katselu
+
+Kuva: Ari Haimakainen / Yle
+
+Vuokrien nousu vapaarahoitteisissa asunnoissa on hidastunut. Vapaarahoitteisen asunnon voi vuokrata kuka tahansa, jos täyttää vuokrasopimuksen ehdot.
+
+Tilastokeskus kertoo, että vuokrat nousivat tammi-maaliskuussa koko maassa vain 0,1 prosenttia viime vuoden lopulta.
+
+Pääkaupunkiseudulla vuokrat kohosivat hieman, muualla ne pysyivät entisellä tasolla.
+
+Verrattuna vuoden takaiseen vuokrat kohosivat alkuvuonna pääkaupunkiseudulla 0,9 prosenttia. Muualla Suomessa nousua oli 0,6 prosenttia.
+
+Kalleimmat vuokrat olivat Helsingissä: keskimäärin 21 euroa neliömetri. Halvimmat vuokrat olivat Kouvolassa: vajaat 11 euroa neliö.
+
+## Nettikiusaaminen on nuorten mielestä yleistä
+
+![Tyttö makaa sohvalla ja katsoo kännykän näyttöä](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_583/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5147505bb761c322dc8/1680004032)
+
+Avaa kuvien katselu
+
+Lastensuojeluliitto kysyi nuorilta nettikiusaamisesta ja -häirinnästä verkkokyselyllä syksyllä 2020. Vastauksia tuli runsaat 1 100. Kuva: Henrietta Hassinen / Yle
+
+Nettikiusaaminen ja nettihäirintä ovat tuttuja nuorille.
+
+Mannerheimin Lastensuojeluliitto teki kyselyn nuorille. Kyselyssä nuoret suhtautuivat vakavasti häirintään netissä.
+
+Nuoret törmäävät nettihäirintään melkein joka päivä. Nuoret kaipaavat aikuisilta tietoa aiheesta sekä tukea kiusaamistilanteissa.
+
+Yleisin kiusaamisen muoto verkossa ovat ilkeät kommentit, nimittely tai haukkuminen. Vakavimpia ovat tappouhkaukset ja raiskausuhkaukset sekä seksuaalinen häirintä.
+
+Vastaajista yli kaksi kolmasosaa oli sitä mieltä, että jokainen voi vaikuttaa kiusaamistilanteessa kiusaamisen lopettamiseksi.

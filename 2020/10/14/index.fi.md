@@ -1,0 +1,69 @@
+# Keskiviikko 14.10.2020 (radio)
+
+Ministeri Kiuru on saanut eduskunnan luottamuksen. Helsingin seudun työpaikoille suositellaan kasvomaskia. Suomessa on 4 uutta koronakuolemaa. Monissa maissa on tuhansia uusia koronatartuntoja päivässä. Torstaina sää on pilvinen.
+
+## Ministeri Kiuru
+
+![Perhe- ja peruspalveluministeri Krista Kiuru tiedotustilaisuudessa ravintoloita koskevasta sääntelystä 7. lokakuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11583550)
+
+Avaa kuvien katselu
+
+Ministeri Krista Kiuru. Kuva: Emmi Korhonen / Lehtikuva
+
+Suomen parlamentissa eli eduskunnassa on ollut tärkeä äänestys. Kansanedustajat äänestivät, luottavatko he ministeri Krista Kiuruun. Ministeri Kiuru on vastuussa Suomen terveysasioista.
+
+Kiuru sai eduskunnan luottamuksen ja voi jatkaa ministerin työssä. Kiurun puolesta äänestivät hallituspuolueet, joilla on enemmistö eduskunnassa. Oppositiopuolueet äänestivät Kiurua vastaan.
+
+Oppositiopuolue kokoomus sanoi, että Kiuru on hoitanut koronatoimia huonosti. Kokoomus arvosteli esimerkiksi tapaa, jolla hallitus kertoi keväällä kasvomaskeista. Suomi suositteli kasvomaskien käyttöä myöhemmin kuin monet muut maat.
+
+## Kasvomaskit työpaikoille
+
+![Helsingin pormestari Jan Vapaavuori.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_56/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7273815f7da0130441a/1602665412)
+
+Avaa kuvien katselu
+
+Helsingin pormestari Jan Vapaavuori. Kuva: Emmi Korhonen / Lehtikuva
+
+Helsingin seudun asukkaille on annettu uusia koronaohjeita. Nyt suositellaan esimerkiksi, että kaikilla työpaikoilla käytetään kasvomaskia.
+
+Helsingin pormestari Jan Vapaavuori sanoo, että koronavirus leviää nyt työpaikoilla. Siksi kasvomaskit ovat Vapaavuoren mielestä työpaikoilla tarpeellisia.
+
+Lisäksi suositellaan, että vanhemmat käyttävät kasvomaskia Helsingin seudun päiväkodeissa. Vanhemman on hyvä käyttää kasvomaskia, kun hän tuo tai hakee lapsen hoidosta.
+
+## Suomen koronaluvut
+
+![Vaasan keskusta on autio lokakuun 9. päivä. Vaasassa koronapandemia on leviämisvaiheessa.](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7284885f80463e3786e/1602256851)
+
+Avaa kuvien katselu
+
+Koronatartuntoja on paljon Vaasassa, Länsi-Suomessa. Kuva: Hans-Mikael Holmgren / Yle
+
+Terveyden ja hyvinvoinnin laitos eli THL kertoo, että Suomessa on 4 uutta koronakuolemaa. Suomessa on kuollut yhteensä 350 ihmistä koronan takia.
+
+THL kertoi myös, että Suomessa on 204 uutta koronatartuntaa. Eniten uusia koronatartuntoja on Helsingin ja Uudenmaan sekä Vaasan alueilla.
+
+## Euroopan koronatartunnat
+
+![KUvassa tehdään koronavirustestejä suuressa salissa Espanjassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11532726)
+
+Avaa kuvien katselu
+
+Tässä tehdään koronatestejä Espanjassa. Kuva: David Borrat / EPA
+
+Koronavirus leviää eri puolilla Eurooppaa. Monissa maissa on tuhansia uusia koronatartuntoja päivässä.
+
+Esimerkiksi Tshekki kertoi tänään, että maassa on yli 8000 uutta koronatartuntaa. Siksi Tshekki sulkee ravintolat ja koulut.
+
+Myös Venäjällä ja Puolassa on paljon uusia koronatartuntoja ja koronakuolemia.
+
+Espanjassa suljetaan baarit ja ravintolat Katalonian alueella. Pääkaupunki Madridissa otettiin käyttöön koronarajoituksia jo viime viikolla.
+
+## Torstain sää
+
+![Lomarenkaan mökkiin kuuluva sauna Veikkolassa](https://img.img-cdn.yle.fi/crop_extract,w_5339,h_3003,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7278835f7eed5369368/1611597853)
+
+Avaa kuvien katselu
+
+Syyslomaviikko jatkuu pilvisessä ja tuulisessa säässä. Kuva: Pekka Tynell / Yle
+
+Torstaina sää on pilvinen. Kylmä tuuli puhaltaa pohjoisesta. Tuulen takia sää tuntuu tosi kylmältä. Pohjoisessa voi sataa vähän lunta.

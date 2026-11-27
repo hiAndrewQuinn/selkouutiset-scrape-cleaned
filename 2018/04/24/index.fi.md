@@ -1,0 +1,61 @@
+# Tiistai 24.4.2018 (radio)
+
+Nordea-pankki ennustaa, että Suomen talous kasvaa nopeasti. Vuoden pakolaisnainen on Sirwa Farik ja Vuoden pakolaismies on Ahmad Hosseini. Uutisluokan päivä: Aikuisten maahanmuuttajien peruskoulu.
+
+Tässä Yle Uutiset selkosuomeksi. Minä olen Pertti Seppä.
+
+Tänään Ylessä vietetään Uutisluokan päivää, ja studiossa ovat myös
+
+\- **Runak Rashid**, **Al-Hello Afrah** ja **Shahnaz Arefin**.
+
+Te kerrotte aikuisten peruskoulusta, mutta ensin päivän muita aiheita.
+
+## Nordea ennustaa talouskasvua
+
+![Rauman satama](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10108861)
+
+Avaa kuvien katselu
+
+Talous kasvaa ja kauppa on vilkasta. Kuva: Yrjö Hjelt / Yle
+
+Nordea-pankki ennustaa, että Suomen talous kasvaa nopeasti. Nordea arvioi, että talous kasvaa tänä vuonna 3 prosenttia ja ensi vuonna 2,5 prosenttia.
+
+Nordea kuitenkin varoittaa, että 2 vuoden päästä kasvu hidastuu. Pankin mielestä syynä on se, että palkat nousevat liikaa.
+
+Nordea sanoo, että myös työttömyys on ongelma. Työttömien on usein vaikea löytää työpaikkaa. Siksi Nordean mielestä tarvitaan esimerkiksi lisää koulutusta.
+
+## Vuoden pakolaiset on valittu
+
+![Vuoden pakolaiset 2018](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10174688)
+
+Avaa kuvien katselu
+
+Vuoden pakolaiset Sirwa Farik ja Ahmad Hosseini. Kuva: Ilmari Fabritius
+
+Suomen Pakolaisapu on valinnut Vuoden pakolaiset.
+
+Vuoden pakolaisnainen on Sirwa Farik. Farik on 45-vuotias, ja hän on kotoisin Irakista. Farik tuli Suomeen vuonna 2000. Hän tekee työtä maahanmuuttajanaisten parissa ja perhetyöntekijänä.
+
+Vuoden pakolaismies on Ahmad Hosseini. Hosseini on 19-vuotias, ja hän on kotoisin Afganistanista. Hän tuli Suomeen vuonna 2015. Hosseini opiskelee lähihoitajaksi, ja hän toimii oikeudenmukaisen turvapaikkapolitiikan puolesta.
+
+Suomen Pakolaisapu sanoo, että Farik ja Hosseini ovat auttaneet muita maahanmuuttajia uuteen alkuun Suomessa.
+
+## Uutisluokan päivä
+
+![Kolme naista radiostudiossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10176058)
+
+Avaa kuvien katselu
+
+Runak Rashid, Al-Hello Afrah ja Shahnaz Arefin lukemassa radion selkouutisia. Kuva: Yle
+
+Sitten Uutisluokan päivän aiheeseemme eli aikuisten peruskouluun.
+
+Noin 3000 maahanmuuttajaa käy aikuisten peruskoulua Suomessa. Me opiskelemme Helsingin aikuisopiston peruskoulussa. Meidän koulussa opiskelijat ovat maahanmuuttajia. Meidän koulussa opiskellaan samoja aineita kuin tavallisessa peruskoulussa.
+
+Opiskelijat tulevat meidän kouluun, koska he eivät ole käyneet peruskoulua kotimaassa tai peruskoulu on jäänyt kotimaassa kesken. Peruskoulu on meidän opiskelijoille tärkeä, koska monet haluavat ammattikouluun.
+
+Kysyimme meidän koulun rehtorilta Jyrki Sipilältä, mikä on aikuisten peruskoulun tehtävä. Sipilä sanoi, että yksi tärkeä tehtävä on kotouttaminen. Opinnot kestävät yleensä 2,5 vuotta ja koulupäivät ovat pitkiä. Siksi kotouttaminen on tehokasta. Se on tärkeää erityisesti naisille, jotka eivät ole olleet töissä tai koulussa.
+
+Kerromme lisää meidän koulusta selkouutisten nettisivulla. Osoite on **yle.fi/selkouutiset**.
+
+**Kiitos, Runak Rashid, Al-Hello Afrah ja Shahnaz Arefin.**

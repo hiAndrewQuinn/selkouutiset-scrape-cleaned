@@ -1,0 +1,83 @@
+# Lauantai 9.1.2021 (radio)
+
+Polttomoottoriautot. Suomen koronaluvut. Koronavirus ja pakkanen. Trump ja sosiaalinen media. Säätietoja.
+
+## Polttomoottoriautojen kieltäminen
+
+![Vanhoja bensapumppuja Ruotsinkylän Gulf-baarin ja -huoltoaseman pihassa](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_183/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7569375fe1f4385e19b/1608644469)
+
+Avaa kuvien katselu
+
+Suomalaiset eivät innostu siitä, että polttomoottoriautot kielletään. Kuva: Rami Moilanen / Yle
+
+Suomalaiset eivät ole innostuneita siitä, että polttomoottoriautot kielletään.
+
+Yle kysyi suomalaisten mielipidettä.
+
+Puolet vastaajista sanoi, että polttomoottoriautoja ei pidä kieltää.
+
+Hieman alle 20 prosenttia vastaajista kannatti sitä, että uusien polttomoottoriautojen myyminen kielletään vuonna 2030.
+
+Monet EU-maat suunnittelevat, että polttomoottoriautojen myynti kielletään 2030-luvulla.
+
+Tarkoitus on, että liikenteen päästöt vähenevät.
+
+## Suomen koronaluvut
+
+![Ohjaus koronatestiin](https://img.img-cdn.yle.fi/crop_extract,w_4288,h_2412,x_0,y_221/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7590895ff323d58c35e/1609770357)
+
+Avaa kuvien katselu
+
+Koronatartuntoja tulee eniten Helsingin seudulla. Kuva: Roy Fodge / Yle
+
+Suomessa on todettu 324 uutta koronatartuntaa vuorokauden aikana, kertoo Terveyden ja hyvinvoinnin laitos
+
+Uusia tartuntoja on todettu eniten Helsingin ja Uudenmaan alueella.
+
+Tartunnoista yli puolet on todettu siellä.
+
+## Koronavirus ja pakkanen
+
+![Nainen kylpytakissa menossa avantoon.](https://img.img-cdn.yle.fi/crop_extract,w_4134,h_2325,x_0,y_407/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5392545c4f412c8b745/1548698112)
+
+Avaa kuvien katselu
+
+Asiantuntijat sanovat, että koronavirus ei taida pelätä pakkasta. Kuva: Henrietta Hassinen / Yle
+
+Suomessa on nyt ollut talvinen pakkassää.
+
+Näyttää siltä, että pakkanen ei vaikuta koronavirukseen.
+
+Virusopin professori Ilkka Julkunen sanoo, että vuodenaikojen vaihtelu ei ole näkynyt koronaviruksen leviämisessä missään päin maailmaa. Julkunen sanoo, että koronavirus on levinnyt kaikenlaisessa säässä. Virukset eivät pelkää pakkasta.
+
+Kun sää on kylmä, ihmiset ovat enemmän sisällä ja lähellä toisiaan. Se lisää myös tartuntoja.
+
+## Trump ja sosiaalinen media
+
+![Donald Trumpin Twitter-tili puhelimen näytöllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11729852)
+
+Avaa kuvien katselu
+
+Twitter sulki presidentti Trumpin tilin kokonaan. Kuva: Olivier Douliery / AFP
+
+Yhdysvalloissa puhutaan paljon presidentti Donald Trumpista ja sosiaalisesta mediasta.
+
+Twitter ilmoitti, että se on sulkenut lopullisesti Trumpin henkilökohtaisen Twitter-tilin. Yhtiö sanoi, että tili suljettiin, koska Trump voi ehkä ehkä yllyttää ihmisiä väkivaltaan.
+
+Trump on tviitannut paljon. Hänellä oli yli 88 miljoonaa seuraajaa Twitterissä.
+
+Kaikki Trumpin vanhat julkaisut on piilotettu.
+
+Monet Trumpin kannattajat ovat alkaneet käyttää Parler-nimistä sosiaalista mediaa. Parlerissa sisältöä ei valvota niin tarkasti kuin esimerkiksi Twitterissä ja Facebookissa.
+
+## Lumisadetta on tulossa
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11730232)
+
+Avaa kuvien katselu
+
+Huomenna sunnuntaina on päivällä poutaa eli ei sada mitään.
+
+Illalla alkaa sataa lunta. Maan länsiosassa lunta voi sataa paljon.
+
+Lumisade jatkuu maanantaina. Lunta voi tulla paljon maan eteläosassa.

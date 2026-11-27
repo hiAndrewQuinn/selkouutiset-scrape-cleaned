@@ -1,0 +1,69 @@
+# Maanantai 18.1.2016 (radio)
+
+EU, YK ja Yhdysvallat ovat purkaneet Iranin vastaisia talouspakotteita. Rikkaat rikastuvat. Monella suomalaisella on ase metsästystä varten. Osa uimahalleista kieltää, osa sallii burkinit. Kysy kielitaitotesteistä!
+
+## Iran vapautui talouspakotteista
+
+![Nuoria iranilaisia kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8602461)
+
+Avaa kuvien katselu
+
+Iranissa avautuvat nyt suuret markkinat, jotka kiinnostavat myös suomalaisyrityksiä. Kuva: Abedin Taherkeareh / EPA
+
+Euroopan Unioni, YK ja Yhdysvallat ovat purkaneet Iranin vastaisia talouspakotteita. Pakotteita puretaan, koska Iran on pitänyt lupauksensa ja rajoittanut ydinohjelmaansa.
+
+Iran lupasi viime heinäkuussa, että se rajoittaa ydinohjelmaansa niin, että se ei enää voi valmistaa ydinasetta.
+
+Kun talouspakotteet on purettu, Iran saa taas myydä öljyä ulkomaille ja ulkomaalaiset firmat saavat käydä kauppaa Iranin kanssa.
+
+Iranin markkinat kiinnostavat myös monia suomalaisfirmoja.
+
+## Rikkaat rikastuvat
+
+![Euroja kuivumassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8510056)
+
+Avaa kuvien katselu
+
+Rikkaat ihmiset osaavat välttää veroja. Kuva: EBU
+
+Rikkaat ihmiset ovat entistä rikkaampia.  62:lla maailman rikkaimmalla ihmisellä on yhtä paljon rahaa ja omaisuutta kuin 50 prosentilla koko maailman väestöstä, kertoo avustusjärjestö Oxfam.
+
+Rikkaiden ihmisten omaisuuden arvo on kasvanut 5 vuodessa yli puoli biljoonaa dollaria.
+
+Oxfam sanoo, että rikkaat rikastuvat, koska he osaavat välttää veroja.
+
+## Moni suomalainen harrastaa metsästystä
+
+![Metsästäjä ase kädessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6850577)
+
+Avaa kuvien katselu
+
+jos suomalainen omistaa aseen, se on yleensä metsästystä varten Kuva: Riikka Rautiainen / Yle
+
+Suomalaiset omistavat 1,5 miljoonaa asetta. Suurin osa aseista on haulikoita tai kivääreitä. Eniten aseita on Pohjois-Suomessa.
+
+Jos suomalainen omistaa aseen, ase on yleensä metsästystä varten. Yli 300 000 suomalaista harrastaa metsästystä.
+
+Suomessa ihmisillä täytyy olla jokaiselle aseelle poliisin lupa.  Poliisi kertoo, että viime vuosina aseiden määrä on vähentynyt.
+
+## Osa uimahalleista kieltää burkinit
+
+Musliminaisen uimapuku on nimeltään burkini. Burkineja voi vuokrata ja käyttää Espoonlahden uimahallissa. Kuva: Yle
+
+Suomen uimahalleissa suhtaudutaan eri tavalla musliminaisten uimapukuun eli burkiniin. Burkini peittää koko vartalon.
+
+Kaikissa uimahalleissa burkinia ei saa käyttää. Esimerkiksi Vantaalla burkini on kielletty. Helsingissä ja Espoossa burkinia saa käyttää. Espoon uimahalleissa asiakkaat voivat jopa vuokrata burkinin. Koululaisille on oma lasten burkini.
+
+Burkinin alla ei saa käyttää alusvaatteita. Burkini puetaan päälle vasta uimahallissa suihkun jälkeen.
+
+## Kysy kielitaitoteisteistä!
+
+![Suomen kielen oppikirja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8329149)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Testit ovat tuttu asia suomen opiskelijoille. Mutta mitä kielitaitotesti mittaa? Minkälaisia taitoja vaaditaan esimerkiksi YKI-testissä ja miksi?
+
+Selkouutisten ohjelmassa Kotoutujan Suomi puhutaan helmikuussa kielitaitotesteistä. Ohjelman vieras on testien suunnittelija, professori Mirja Tarnanen. Myös kuuntelijat voivat lähettää hänelle kysymyksiä osoitteeseen selko.uutiset@yle.fi.

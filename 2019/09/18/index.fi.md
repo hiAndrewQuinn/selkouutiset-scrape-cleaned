@@ -1,0 +1,67 @@
+# Keskiviikko 18.9.2019 (radio)
+
+Oppositio on tyytymätön budjettiehdotukseen. Alkoholimyynti väheni. Niinistö tapaa Trumpin. Rinne tapasi Macronin. Saarikko sai vauvan.
+
+## Budjetti ei miellytä oppositiota
+
+![Budjettikirjoja eduskunnan täysistunnossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10628788)
+
+Avaa kuvien katselu
+
+Budjettikirjoja eduskunnassa. Kuva: AOP
+
+Oppositiopuolueet ovat tyytymättömiä hallituksen budjettiehdotukseen. Oppositiopuolueita ovat puolueet, jotka eivät ole hallituksessa. Hallitus julkaisi budjettiehdotuksen eilen.
+
+Oppositiopuolueet sanovat, että valtiolla ei riitä rahaa kaikkiin budjetin asioihin.
+
+Kokoomuksen puheenjohtaja **Petteri Orpo** sanoo, että hallituksen työllistämistoimet eivät ole uskottavia. Suurimman oppositiopuolueen perussuomalaisten puheenjohtaja **Jussi Halla-aho** sanoo, että hallitus tekee väärin, jos hallitus myy paljon valtion omaisuutta.
+
+## Alkoholimyynti väheni
+
+![Olut- ja siiderihyllyjä kaupassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10067486)
+
+Avaa kuvien katselu
+
+Alkoholia myytiin toissakesänä enemmän, koska oli niin lämmin. Kuva: Annika Holmbom / Yle
+
+Alkoholin myynti ruokakaupoissa on vähentynyt. Alkuvuonna eli tammi-elokuussa alkoholia myytiin ruokakaupoissa noin 2 prosenttia vähemmän, kuin viime vuonna.
+
+Myynti väheni varsinkin kesällä. Viime vuonna kesä oli tosi lämmin ja silloin ostettiin paljon olutta, siideriä ja lonkeroa. Tänä vuonna alkoholia ei myyty kesällä niin paljon.
+
+Päivittäistavarakauppa arvioi, että alkoholin matkustajatuonti Virosta lisääntyy. Tuonti ehkä lisääntyy, koska Viro on laskenut alkoholiveroa, ja alkoholi on siellä aiempaa halvempaa.
+
+## Niinistö tapaa Trumpin
+
+![Donald Trump ja Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9781869)
+
+Avaa kuvien katselu
+
+Trump ja Niinistö tapaavat lokakuussa Washingtonissa USA:ssa. Kuva: AOP
+
+Presidentti **Sauli Niinistö** tapaa USA:n presidentin. Niinistö tapaa presidentti **Donald Trumpin** 2. lokakuuta Washingtonissa USA:ssa. Presidentit keskustelevat Suomen ja USA:n yhteistyöstä ja Euroopan ja arktisen alueen turvallisuuden parantamisesta.
+
+Presidentti Niinistö matkustaa USA:han myös ensi viikolla YK:n yleiskokoukseen ja tapaa YK:n pääsihteerin Antonio Guterresin.
+
+## Rinne tapasi Macronin
+
+![Emmanuel Macron](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10755524)
+
+Avaa kuvien katselu
+
+Rinne tapsi Macronin Pariisissa. Kuva: Ian Langsdon / EPA
+
+Pääministeri **Antti Rinne** on vierailulla Ranskassa. Rinne on tavannut tänään Ranskan presidentin **Emmanuel Macronin** Pariisissa, Élysée-palatsissa.
+
+Rinne ja Macron keskustelivat EU-asioista, kuten EU:n budjettineuvotteluista, ilmastotoimista, puolustusyhteistyöstä ja brexitistä.
+
+## Saarikko sai pojan
+
+![Annika Saarikko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10976407)
+
+Avaa kuvien katselu
+
+Annika Saarikolla (lesk.) on nyt kaksi poikaa. Kuva: Laura Ukkonen / Lehtikuva
+
+Keskustalainen ministeri \*\*Annika Saarikko \*\*on saanut vauvan. Saarikko synnytti pojan viime yönä. Saarikko kertoo, että synnytys oli rankka ja kesti kauan.
+
+Annika Saarikko jäi perhevapaalle kuukausi sitten. Hän palaa tiede- ja kulttuuriministerin tehtävään ensi vuoden elokuussa. Saarikolla on myös ennestään poika, joka nyt sai veljen.

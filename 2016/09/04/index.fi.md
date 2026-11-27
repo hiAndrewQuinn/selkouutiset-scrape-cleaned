@@ -1,0 +1,61 @@
+# Sunnuntai 4.9.2016 (radio)
+
+Pääministeri uskoo oikeuteen turvapaikkapäätöksissä. Norjassa aita raja-asemalle. Äiti Teresasta pyhimys. Espoossa kaatosade.
+
+## Pääministeri: oikeus korjaa väärän turvapaikkapäätöksen
+
+![Juha Sipilä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9114054)
+
+Avaa kuvien katselu
+
+Pääministerin mukaan väärä turvapaikkapäätös voidaan korjata oikeudessa.  Kuva: Jarno Kuusinen / AOP
+
+Suomessa puhutaan nyt paljon maahanmuuttajien turvapaikkapäätöksistä.
+
+Pääministeri Juha Sipilä sanoo, että hallitus ei ole ohjannut maahanmuuttovirastoa tekemään turvapaikkapäätöksiä liian nopeasti.
+
+Helsingin Sanomat kertoi tänään, että maahanmuuttoviraston työntekijöillä on kova työpaine. Työntekijät kertovat lehdelle, että he varmaan tekevät virheitä turvapaikkapäätöksissä, koska on niin kova kiire.
+
+Sipilä myönsi tänään radiossa, että maahanmuuttovirastolla on nyt tosi paljon töitä, kun se tekee maahanmuuttajien turvapaikkapäätöksiä. Sipilän mukaan hallitus ei kuitenkaan halua sellaisia päätöksiä, jotka on tehty kiireen takia huonosti. Sipilä luottaa siihen, että väärä päätös korjataan, kun siitä valittaa oikeuteen.
+
+Viraston työntekijät myös uskovat, että heiltä halutaan kielteisiä päätöksiä turvapaikoista. Pääministeri Juha Sipilä ihmettelee, mistä sellainen ajatus on syntynyt.
+
+## Norja rakentaa aitaa Venäjän raja-asemalle
+
+![Áidebarggut](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9143048)
+
+Avaa kuvien katselu
+
+Norjan raja-aita on 200 metriä pitkä.  Kuva: NRK Finnmakr
+
+Norja rakentaa aitaa Venäjän rajalle. Teräsaita rakennetaan Storskogin raja-asemalle Pohjois-Norjassa. Se on ainoa paikka, jossa voi ylittää Norjan ja Venäjän välisen rajan. 
+
+Norjan viranomaiset sanovat, että aita rakennetaan, koska viime syksynä Storskogissa tuli Norjaan yli 5000 turvapaikanhakijaa. Suuri osa heistä oli tullut Lähi-idän kriisimaista.
+
+Norja haluaa nyt parantaa Storskogin rajanylityspaikan turvallisuutta. Aita on 200 metriä pitkä ja 3,5 metriä korkea.
+
+## Äiti Teresa on nyt pyhimys
+
+![Nunna koristelee Äiti Teresan kuvaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9126286)
+
+Avaa kuvien katselu
+
+Äiti Teresa oli nunna, joka auttoi köyhiä Kalkutassa.  Kuva: Imago / AOP
+
+Katolisen kirkon johtaja paavi Franciscus on julistanut Äiti Teresan pyhäksi henkilöksi eli pyhimykseksi.
+
+Äiti Teresa oli nunna, joka auttoi Intiassa Kalkutan köyhiä ihmisiä, joilla ei ollut kotia. Hän oli kuuluisa koko maailmassa. Hän sai Nobelin rauhanpalkinnon vuonna 1979.
+
+Äiti Teresa julistettiin pyhimykseksi Vatikaanissa Pietarinkirkon aukiolla. Siellä pidettiin tilaisuus, jossa oli kymmeniä tuhansia ihmisiä.
+
+## Etelässä satoi rajusti vettä
+
+![KERTAKÄYTTÖOIKEUS Espoon rankkasade 3. syyskuuta 2016.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9143027)
+
+Avaa kuvien katselu
+
+Vesi valtasi kävelyteitä Espoossa.  Kuva: Saara Torikka
+
+Espoossa satoi viime yönä lähes kuukauden sademäärä. Ilmatieteen laitoksen mukaan Espoossa satoi yli 60 millimetriä alle vuorokaudessa.
+
+Kovia sateita saatiin myös muualla Uudellamaalla ja Kymenlaaksossa.  Porvoossa ja Virolahdella vesisadetta tuli yli 50 milliä.

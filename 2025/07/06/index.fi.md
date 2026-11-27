@@ -1,0 +1,75 @@
+# Radio | Uutisviikko selkosuomeksi | sunnuntai 6.7.2025
+
+Terveydenhuollon puheluiden vastausnopeus
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Terveydenhuollon puheluiden vastausnopeus
+
+Uutisviikon aihe on tällä kertaa terveydenhuollon puhelinpalvelun vastausnopeus.
+
+Yle testasi, miten nopeasti ihmiset saavat yhteyden terveydenhuoltoon eri puolilla Suomea.
+
+Testissä selvisi, että asuinpaikka vaikuttaa paljon vastausnopeuteen.
+
+Kerromme nyt lisää terveydenhuollon puhelinpalveluista ja niiden ongelmista.
+
+![Terveydenhuollon ammattilaiden puhuu puhelimeen. Kuvassa on musta lankapuhelin pöydällä ja työntekijän kädet näppäimistöllä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3159,w_5616,x_0,y_246/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1711354825/39-5455385c7549836bf34)
+
+Avaa kuvien katselu
+
+Puheluiden vastausajoissa on isoja eroja eri alueilla. Kuva: Mostphotos
+
+## Vastausaika
+
+Hyvinvointialueiden pitää vastata kiireettömien terveysasioiden puheluihin samana päivän aikana. Näin sanoo laki.
+
+Jos ihminen soittaa kiireettömien asioiden puhelinpalveluun, hänelle pitää vastata tai soittaa takaisin ennen kuin terveysasema suljetaan. Monet hyvinvointialueet eivät onnistu tässä.
+
+Monilla hyvinvointialueilla jää joka päivä kymmeniä puheluita odottamaan takaisinsoittoa seuraavaan päivään tai jopa pidempään.
+
+Ylen testissä soitettiin neljän hyvinvointialueen terveyspalveluihin.
+
+Nopeimmin puheluun vastasi Kymenlaakson hyvinvointialue. Se vastasi puheluun jo muutamassa minuutissa.
+
+Pisimpään piti odottaa Pohjanmaalla. Pohjanmaalla vastaus tuli vasta seuraavana päivänä.
+
+## Pirkanmaan hyvinvointialue
+
+Yle pyysi myös kaikilta hyvinvointialueilta tiedot, miten nopeasti ne vastasivat puheluihin toukokuussa.
+
+Osa hyvinvointialueista onnistuu hyvin vastaamisessa. Esimerkiksi Pirkanmaan hyvinvointialue vastaa melkein kaikkiin kiireettömiin puheluihin saman päivän aikana.
+
+Pirkanmaalla on muutettu työvuorosuunnittelua niin, että henkilökuntaa on tarpeeksi töissä myös iltapäivisin. Siksi Pirkanmaalla ehditään vastata nopeasti myös iltapäivän viimeisiin puheluihin.
+
+![Helsingin yliopiston professori Kristiina Patja A-Talkin haastattelussa. ](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1683835850/39-1112377645d4ba28e495)
+
+Avaa kuvien katselu
+
+Helsingin yliopiston terveydenhuollon professri Kristiina Patja sanoo, että vastausaikojen ero rikkoo yhdenvertaisuutta.
+
+## Yhdenvertaisuusongelma
+
+Vastausnopeuden ero aiheuttaa yhdenvertaisuusongelman, koska asuinpaikka vaikuttaa vastausnopeuteen.
+
+Näin sanoo terveydenhuollon professori **Kristiina Patja**.
+
+Eriarvoisuutta aiheuttaa myös ero julkisen terveydenhuollon ja työterveyshuollon välillä.
+
+Melkein 2 miljoonaa suomalaista voi käyttää työterveyshuoltoa. Työterveyshuollossa hoitoon pääsee yleensä nopeasti.
+
+Esimerkiksi eläkeläisten ja työttömien pitää usein odottaa hoitoa pidempään, koska he eivät pääse työterveyshuoltoon.
+
+## Kertaus
+
+Uutisviikon aihe oli terveydenhuollon puhelinpalveluiden vastausnopeus.
+
+Yle testasi vastausaikoja ja Yle pyysi myös kaikilta alueilta tiedot niiden vastausajoista.
+
+Kiireettömän terveydenhuollon puheluiden vastausajoissa on eroja eri alueilla.
+
+Tämä aiheuttaa yhdenvertaisuusongelman, koska asuinpaikka vaikuttaa terveydenhuollon nopeuteen.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

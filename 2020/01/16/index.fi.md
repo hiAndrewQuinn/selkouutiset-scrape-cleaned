@@ -1,0 +1,9 @@
+# Torstai 16.1.2020 (tv)
+
+Sellun hinta on laskenut. Vantaalla testataan bussia, jossa ei ole kuljettajaa. Suomalaisen taiteilijan Helene Schjerfbeckin elämästä on tehty elokuva. Sääennuste.
+
+Yle Uutiset selkosuomeksi
+
+Sellun hinta on laskenut. Vantaalla testataan bussia, jossa ei ole kuljettajaa. Suomalaisen taiteilijan Helene Schjerfbeckin elämästä on tehty elokuva. Sääennuste.
+
+**Teknisen vian takia televisiossa ei ollut selkouutisia perjantaina. Anteeksi! Tv:n selkouutiset tulevat taas maanantaina.**

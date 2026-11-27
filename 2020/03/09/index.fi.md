@@ -1,0 +1,73 @@
+# Maanantai 9.3.2020 (radio)
+
+Koronavirustartuntojen määrä Suomessa kasvaa Finnair lopettaa lennot Roomaan. Öljyn hinta laskee. Työperäistä maahanmuuttoa halutaan nopeuttaa. Tiistaina tulee sateita.
+
+## Uusia koronatapauksia Suomessa
+
+![Haartmanin sairaalan päivystyksen ikkunaan teipattu koronavirus-ohje. Lapussa kielletään tulemasta sisälle sairaalaan konsultoimatta ensin puhelimitse sairaanhoitohenkilökuntaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11240468)
+
+Avaa kuvien katselu
+
+Haartmanin sairaalan ovessa on ohje koronaviruspotilaille. Kuva: Silja Viitala / Yle
+
+Koronavirustartuntojen määrä Suomessa kasvaa. Maanantaina iltapäivällä laskettiin, että Suomessa on 10 uutta koronatapausta. Yhteensä Suomessa on nyt todettu 30 koronavirustartuntaa.
+
+Koululaisia ja opettajia on karanteenissa noin 700 ihmistä muutamassa koulussa. He pysyvät kotona, että he eivät levitä koronavirusta.
+
+Kaikille koululaisille on annettu ohje, että kouluun ei pidä mennä, jos on flunssainen.
+
+## Finnair vähentää lentoja
+
+![Kuvassa on Finnairin lentokone Kuusamon kentällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11242270)
+
+Avaa kuvien katselu
+
+Matkustaminen on vähentynyt paljon. Lennoille ei riitä matkustajia. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Lentoyhtiö Finnair lopettaa lennot Italian pääkaupunkiin Roomaan koronaviruksen takia. Viime viikolla Finnair lopetti lennot Milanoon Pohjois-Italiaan.
+
+Italiassa on paljon koronavirustartuntoja. Suomen ulkoministeriö on antanut ohjeen, että Italiaan ei ole hyvä nyt matkustaa.
+
+Finnair peruu myös muita lentoja eri maihin ja kaupunkeihin, koska kaikki matkustaminen on vähentynyt koronaviruksen takia.
+
+Jo aikaisemmin Finnair on lopettanut lennot Kiinaan, josta koronavirus alkoi levitä.
+
+## Öljyn hinta laski
+
+![Mies on nostamassa bensiinipistoolia telineestä tankkausta varten.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5318884)
+
+Avaa kuvien katselu
+
+Öljyn hinta on laskenutu nopeasti koronaviruksen takia. Kuva: Uwe Zucchi / EPA
+
+Öljyn hinta on laskenut muutamassa päivässä paljon. Nyt maanantaina öljyn hinta on laskenut noin 30 prosenttia, koska Saudi-Arabia alentaa öljyn hintaa.
+
+Öljyn kulutus on vähentynyt maailmalla koronaviruksen takia, koska matkustaminen ja liikkuminen on vähentynyt ja talous on heikentynyt.
+
+Saudi-Arabia alentaa öljyn hintaa, että se saa myytyä enemmän öljyä. Myös muut öljymaat alentavat hintaa, että ne saavat myytyä öljyä.
+
+Öljymaat eivät onnistuneet viikonloppuna sopimaan tuotannon pienentämisestä, koska Venäjä ei halunnut vähentää tuotantoa.
+
+## Työperäistä maahanmuuttoa halutaan nopeuttaa
+
+![nuori punatukkainen nainen täyttää kahvilaitetta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10663046)
+
+Avaa kuvien katselu
+
+Ravintola-ala haluaa palkata lisää työvoimaa ulkomailta, koska työntekijöistä on pulaa. Kuva: AOP
+
+Hallitus haluaa nopeuttaa työperäisten oleskelulupien käsittelyä. Esimerkiksi ravintola-alalla on pula työntekijöistä ja työntekijöitä tarvitaan ulkomailta.
+
+Nyt työperäisten oleskelulupien käsittely kestää noin neljä kuukautta. Hallitus haluaa, että aika lyhenee yhteen kuukauteen
+
+Työ- ja elinkeinoministeriö selvittää, miten lupaprosessi saadaan nopeammaksi.
+
+## Sää
+
+![vesisade, lätäkkö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11202389)
+
+Avaa kuvien katselu
+
+Enimmäkseen on lämpöasteita. Kuva: Karoliina Marttala
+
+Tiistaina etelässä sataa vettä. Maan keskiosassa voi sataa myös lunta. Lapissa tulee paikoin lumikuuroja. Pohjois-Lapissa on pakkasta. Muualla maassa lämpötila on nollan yläpuolella.

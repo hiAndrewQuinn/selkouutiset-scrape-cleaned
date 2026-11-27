@@ -1,0 +1,61 @@
+# TV | Selkouutiset | perjantai 26.9.2025
+
+Venäläiset turvapaikanhakijat. Tekoäly koulussa. Taidelöytö. Sää.
+
+## Venäläiset turvapaikanhakijat
+
+Aluksi uutinen venäläisistä turvapaikanhakijoista.
+
+Venäläiset turvapaikanhakijat arvostelevat Maahanmuuttovirastoa.
+
+Yle tapasi 3 Venäjän kansalaista, jotka eivät ole saaneet turvapaikkaa Suomesta. He sanovat, että Maahanmuuttovirasto vähättelee vainoa Venäjällä.
+
+Pakolaisneuvonta on samaa mieltä turvapaikanhakijoiden kanssa.
+
+Maahanmuuttovirasto kiistää arvostelun. Virasto sanoo, että jokainen turvapaikanhakija arvioidaan erikseen.
+
+Venäläiset turvapaikanhakijat arvostelevat Maahanmuuttovirastoa.
+
+Suurin osa venäläisten turvapaikkahakemuksista hylätään.
+
+## Tekoäly koulussa
+
+Seuraava aihe on tekoäly.
+
+Monessa koulussa pohditaan tekoälyn käyttöä.
+
+Yle kysyi rehtoreilta, miten lukiossa käytetään tekoälyä.
+
+Joka 5. lukio ei ole tehnyt suunnitelmaa tekoälyn käytöstä.
+
+Tekoälyn käyttöä ei kuitenkaan yritetä enää kieltää. Opiskelijoita kannustetaan käyttämään tekoälyä fiksulla tavalla.
+
+**Valtteri Kellokoski** ja **Oona Sillanpää** opiskelevat Alajärven lukiossa. He sanovat, että tekoäly voi auttaa esimerkiksi tehtävän ymmärtämisessä ja vastauksen muotoilussa.
+
+Monessa koulussa pohditaan tekoälyn käyttöä.
+
+## Taidelöytö
+
+Lopuksi taideuutinen.
+
+Suomesta on löytynyt harvinainen taideteos.
+
+Teoksen on tehnyt taidemaalari **Gustav Klimt**. Klimt on kuuluisa itävaltalainen taiteilija.
+
+Piirustus on tehty lyijykynällä. Kuvassa on alaston nainen.
+
+Teos oli Kansalliskirjaston varastossa yli 80 vuotta.
+
+Suomesta on löytynyt harvinainen taideteos.
+
+Klimtin teos on ensimmäistä kertaa esillä Ateneumin taidemuseossa tänään. Museossa avautuu uusi näyttely.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lännestä tulee lämmintä ilmaa.
+
+Lauantaina sää on aurinkoinen koko maassa.
+
+Lämpötila on 13-16 astetta.

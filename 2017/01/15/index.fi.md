@@ -1,0 +1,83 @@
+Elokuvat
+
+# Sunnuntai 15.1.2017 (radio)
+
+Perustoimeentulotukea haetaan nyt Kelasta. Kovat sateet jatkuvat Thaimaassa. Elokuvateattereilla menee Suomessa hyvin. Suomalaiset eivät ole tyytyväisiä omaan painoon.
+
+![Vaaka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9403935)
+
+Avaa kuvien katselu
+
+Omasta kehosta ja painosta voi tulla symboli muulle tyytymättömyydelle. Tällöin ajattelemme, että jos olisimme hoikempia, olisimme onnellisempia, sanoo psykologi Susanna Anglé.  Kuva: AOP
+
+- 
+
+  
+
+  Pertti Seppä
+
+  
+
+  
+
+15.1.2017 18:30
+
+## Toimeentulotukea haetaan Kelasta
+
+![Kelan toimeentulotukihakemuslomakkeita telineessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9404633)
+
+Avaa kuvien katselu
+
+Perustoimeentulotukea haetaan nyt Kelasta. Kuva: Yle
+
+Toimeentulotuen hakeminen on muuttunut. Perustoimeentulotukea haetaan nyt Kelasta. Ennen sitä haettiin kunnan sosiaalitoimistosta.
+
+Ihminen voi tarvita toimeentulotukea esimerkiksi työttömyyden takia. Tuen avulla hän pystyy esimerkiksi ostamaan ruokaa.
+
+Tänä vuonna jo melkein 500 000 ihmisellä on oikeus saada perustoimeentulotukea. Määrä on suurempi kuin ennen.
+
+## Thaimaan tulvat jatkuvat
+
+![Veden peittämä katu, pikkupoika seisoo kumilautan päällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9393183)
+
+Avaa kuvien katselu
+
+Tulvavesi on noussut kaduille Thaimaassa. Kuva: Fazry Ismail / EPA
+
+Sateet ovat jatkuneet Thaimaassa. Thaimaan ilmatieteenlaitos ennustaa, että kovia sateita saadaan myös lähipäivinä.
+
+Thaimaassa on satanut tammikuussa jo niin paljon, että maassa on tulvia. Tulvavesi on noussut kaduille, ja se on tehnyt melkein 2 miljoonan ihmisen elämän vaikeaksi. 40 ihmistä on kuollut tulvien takia.
+
+Sateet ja tulvat ovat häirinneet myös matkailua. Thaimaassa on paljon turisteja tammikuussa, joka on tavallisesti aurinkoinen.
+
+Thaimaan sadekausi kestää normaalisti kesäkuusta marraskuuhun.
+
+## Elokuvissa käydään paljon
+
+![Risto Räppääjä ja yöhaukka elokuvasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9404819)
+
+Avaa kuvien katselu
+
+Elokuva "Risto Räppääjä ja yöhaukka" sai eniten katsojia vuonna 2016.  Kuva: Artista Filmi
+
+Elokuvateattereilla menee Suomessa hyvin. Erilaiset verkkopalvelut ja taulutelevisiot eivät ole vieneet asiakkaita elokuvateattereilta.
+
+Vuonna 2016 suomalaiset kävivät elokuvissa melkein 9 miljoonaa kertaa. Vuosi 2015 oli yhtä hyvä. Elokuvateattereilla ei ole ollut näin paljon asiakkaita yli 30 vuoteen.
+
+Suomalaiset katsovat mielellään suomalaisia elokuvia. Viime vuonna 5 suosituimman elokuvan joukossa oli 4 suomalaista elokuvaa. Eniten katsojia sai Risto Räppääjä. Suomalaiset tykkäävät elokuvista, jotka sopivat koko perheelle.
+
+## Onko laiha onnellinen?
+
+![Vaaka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9403935)
+
+Avaa kuvien katselu
+
+Kertooko vaaka, oletko onnellinen? Kuva: AOP
+
+Suurin osa suomalaisista haluaa laihtua. Ylen kysely kertoo, että ihmiset eivät ole tyytyväisiä omaan painoon.
+
+Psykologi Susanna Anglé sanoo, että todellisuus ja ihanne ovat menneet kauas toisistaan. Olemme lihavampia kuin ennen, mutta ihailemme laihempia ihmisiä kuin ennen. Katsomme tosi laihoja ihmisiä kuvissa, jotka on käsitelty Photoshopissa.
+
+Anglé sanoo, että monet haluavat laihtua, vaikka heillä oikeasti on muita ongelmia. Ihmiset ajattelevat, että heistä tulee onnellisia, jos he laihtuvat.
+
+Anglén mielestä laihduttaja ei saa olla liian ankara itselleen. Joskus kannattaa myös herkutella. Jos muuten syö järkevästi ja säännöllisesti, myös paino vähitellen laskee.

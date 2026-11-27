@@ -1,0 +1,69 @@
+# Perjantai 4.9.2020 (radio)
+
+Keskusta valitsee lauantaina puheenjohtajan. Poliisi on saanut tuomion pahoinpitelystä putkassa. Didrichsenin taidemuseossa aukeaa Vincent van Goghin näyttely. Sää on lämmin, mutta sateinen.
+
+## Keskusta valitsee puheenjohtajan
+
+![Kuvassa on käynnissä Keskustan puheenjohtajaehdokkaiden tentti Helsingissä elokuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_419/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7136995f4ce98eca786/1598876384)
+
+Avaa kuvien katselu
+
+Keskustan puheenjohtajasta äänestetään lauantaina. Istuva puheenjohtaja Katri Kulmuni joutuu kamppailemaan tosissaan paikastaan tiede- ja kulttuuriministeri Annika Saarikkoa vastaan. Kuva: Silja Viitala / Yle
+
+Keskusta järjestää viikonloppuna puoluekokouksen. Keskusta valitsee kokouksessa uuden puheenjohtajan. Puheenjohtaja valitaan huomenna lauantaina.
+
+Keskustan puheenjohtajaksi on 4 ehdokasta.
+
+Kyselyn mukaan suosikki on tiede- ja kulttuuriministeri Annika Saarikko. Nykyinen puheenjohtaja Katri Kulmuni haluaa jatkaa puheenjohtajana. Keskustan johtajaksi pyrkivät myös varapuheenjohtaja Petri Honkonen ja yrittäjä Ilkka Tiainen.
+
+## Poliisi sai tuomion pahoinpitelystä putkassa
+
+![putkavideon lähtökuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11527217)
+
+Avaa kuvien katselu
+
+Päijät-Hämeen käräjäoikeus on tuominnut Hämeen poliisilaitoksen vanhemman konstaapelin törkeästä pahoinpitelystä ja virkavelvollisuuden rikkomisesta vuoden ja neljän kuukauden ehdolliseen vankeuteen. 
+
+Käräjäoikeus on antanut tuomion pahoinpitelystä, joka tapahtui poliisiaseman putkassa. Tuomion sai poliisi. Tuomio on ehdollinen vankeusrangaistus.
+
+Pahoinpitely tapahtui Lahden poliisiasemalla vuonna 2019. Poliisi toi miehen putkaan aamuyöllä. Mies vastusti poliisia, ja poliisi laittoi hänelle käsiraudat. Samalla mies sai ruhjeita ja miehen nenä murtui.
+
+Käräjäoikeus sanoo, että poliisi käytti liian paljon voimaa.
+
+## Pääministeri Sanna Marin on Helsinki Priden suojelija
+
+![Pääministeri Sanna Marin puhui tiedotusvälineille saapuessaan hallituksen matkustusrajoituksia käsitteleviin neuvotteluihin Säätytalolle Helsingissä 3. syyskuuta ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11525185)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin puhumassa tiedotusvälineille saapuessaan hallituksen matkustusrajoituksia käsitteleviin neuvotteluihin Säätytalolle Helsingissä 3. syyskuuta.  Kuva: Antti Aimo-Koivisto / Lehtikuva 
+
+Pääministeri Sanna Marin on Helsinki Priden suojelija tänä vuonna ja ensi vuonna. Pride on seksuaali- ja sukupuolivähemmistöjen tapahtuma.
+
+Helsinki Priden suojelija on nyt ensimmäistä kertaa Suomen pääministeri. Tapahtuma järjestetään tänä vuonna poikkeuksellisesti syksyllä eli 7.-13. syyskuuta.
+
+Helsinki Pridessa ei ole tänä vuonna suurta kulkuetta koronatilanteen takia.
+
+## Helsingissä on Vincent van Goghin näyttely
+
+![Vincent van Goghin piirros](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11522337)
+
+Avaa kuvien katselu
+
+Vincent van Goghin maalaus Omakuva vuodelta 1887. Kuva: Vincent van Gogh: van Gogh. Kokoelma: Kröller-Müller Museum, Otterlo, Alankomaat. Valokuva: Rik Klein Gotink
+
+Didrichsenin taidemuseossa Helsingissä aukeaa lauantaina taidemaalari Vincent van Goghin näyttely. Vincent van Gogh on kuuluisa hollantilainen taiteilija, joka eli 1800-luvulla. Hän kuvasi maaseudun asukkaita, työntekoa ja maisemia.
+
+Helsingin näyttelyssä on noin 40 taulua. Taulut on lainattu hollantilaisesta museosta. Näyttely on auki tammikuun loppuun asti.
+
+## Sää on sateinen
+
+![Sateinen Evijärvi](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7117705f45074d589bd/1598359471)
+
+Avaa kuvien katselu
+
+Viikonlopun sää on sateinen. Kuva: Pasi Takkunen / Yle
+
+Viikonloppu on lämmin, mutta sateinen.
+
+Vettä sataa välillä koko maassa, lauantai-illan aikana etelässä sataa paljon. Lämpötila vaihtelee päivällä etelän noin 20 asteen ja pohjoisen 10 asteen välillä.

@@ -1,0 +1,61 @@
+# Perjantai 9.12.2016 (radio)
+
+Suomen ja Venäjän pääministerit ovat tavanneet Oulussa. Äiti ja 3 lasta kuolivat tulipalossa Helsingissä. Tämän vuoden turhake on muovikassi. Suomalainen laulaja Saara Aalto kilpailee Britannian X Factor -kilpailun finaalissa lauantaina.
+
+## Medvedev ja Sipilä
+
+![Tapaaminen 09.12.2016 Oulu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9344741)
+
+Avaa kuvien katselu
+
+Pääministerit Dmitri Medvedev ja Juha Sipilä Oulussa. Kuva: Yle
+
+Suomen ja Venäjän pääministerit ovat tavanneet Oulussa, Pohjois-Suomessa.
+
+Pääministerit Dmitri Medvedev ja Juha Sipilä keskustelivat esimerkiksi uudesta tietoliikennekaapelista. Kaapeli voidaan ehkä vetää pohjoista merireittiä pitkin Aasiasta Eurooppaan. Jos kaapeli rakennetaan, tietoliikenne Aasian ja Euroopan välillä tulee nopeammaksi.
+
+Pääministeri Medvedevin mielestä kaapelisuunnitelma on mielenkiintoinen. Jos kaapeli rakennetaan, siitä voi olla hyötyä monelle maalle, Medvedev sanoi.
+
+Suomi on tosi kiinnostunut uudesta kaapelista. Pääministeri Sipilä sanoi, että Oulu on oikea paikka keskustella tietoliikenteestä. Oulussa on paljon tietoliikennealan firmoja.
+
+## Helsingin tulipalo
+
+![Palomiehiä kerrostalon edustalla Vuosaaressa varhain perjantaiaamuna 9. joulukuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9342482)
+
+Avaa kuvien katselu
+
+Palomiehiä Vuosaaressa. Kuva: Yle
+
+Helsingissä oli paha tulipalo torstain ja perjantain välisenä yönä. Tulipalossa kuolivat äiti ja 3 pientä lasta. Perheen isä oli työssä yövuorossa tulipalon aikana.
+
+Tulipalo oli Helsingin Vuosaaressa. Tuli tuhosi asunnon, joka on kerrostalon 6. kerroksessa. Asunnossa ei ollut palovaroitinta.
+
+Palomestari Kimmo Tuominen kertoo, että palomiehet olivat paikalla nopeasti. Tulipalo ei levinnyt muihin asuntoihin.
+
+Näin iso tulipalo ei ole Suomessa tavallinen. On harvinaista, että yhdessä tulipalossa kuolee monta ihmistä.
+
+## Vuoden turhake
+
+![Erilaisia muovipusseja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9342463)
+
+Avaa kuvien katselu
+
+Suomalaiset käyttävät 300 miljoonaa muovikassia joka vuosi. Kuva: Ismo Pekkarinen / AOP
+
+Tämän vuoden turhake on valittu. Turhake tarkoittaa turhaa tavaraa, jota ei oikeasti tarvita. Tämän vuoden turhake on muovikassi.
+
+Suomen Luonto -lehti valitsi turhakkeen. Lehti sai lukijoilta yli 500 ehdotusta. Lehti valitsi turhakkeeksi muovikassin, koska muovista on paljon haittaa ympäristölle.
+
+Suomen Luonto -lehti kertoo, että Suomessa käytetään 300 miljoonaa muovikassia joka vuosi. Se tarkoittaa, että jokainen suomalainen käyttää 55 muovikassia vuodessa. Lisäksi suomalaiset käyttävät 900 miljoonaa ohutta muovipussia joka vuosi.
+
+## Saara Aalto
+
+![Saara Aalto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9336345)
+
+Avaa kuvien katselu
+
+Saara Aalto kävi Helsingissä maanantaina. Kuva: Timo Korhonen / AOP
+
+Suomalaiset jännittävät Britannian X Factor -musiikkikilpailua. Kilpailun finaali eli loppukilpailu on Britannian televisiossa lauantaina. Mukana on myös suomalainen laulaja Saara Aalto.
+
+Monet suomalaiset seuraavat, miten Saara menestyy Britanniassa. Saara Aalto kävi maanantaina Helsingissä ja esiintyi faneille Helsingin Senaatintorilla. Esitys kuvattiin X Factor -ohjelmaan.

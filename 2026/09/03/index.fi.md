@@ -1,0 +1,73 @@
+# Selkouutiset | torstai 3.9.2026
+
+Puoluekannatus. Euroopan turvallisuus. Koulutustaso. Sääennuste.
+
+## Puoluekannatus
+
+Aluksi uutinen politiikasta.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Suosituin puolue on edelleen SDP, mutta kannatus on laskenut hieman.
+
+SDP on oppositiopuolue eli se ei ole hallituksessa.
+
+Toiseksi suosituin puolue on kokoomus ja kolmanneksi suosituin puolue on perussuomalaiset. Ne ovat hallituspuolueita.
+
+Neljänneksi suosituin puolue on keskusta. Se ei ole hallituksessa.
+
+Perussuomalaisten ja keskustan kannatus on noussut hieman.
+
+Yle on taas kysynyt suomalaisilta, mitä puoluetta he kannattavat.
+
+Suurin nousija on vasemmistoliitto. Sen kannatus on kasvanut eniten.
+
+Vasemmistoliitto on viidenneksi suosituin puolue. Vasemmistoliitto ei ole hallituksessa.
+
+## Euroopan turvallisuus
+
+Nyt uutinen Euroopan turvallisuudesta.
+
+Suomi ja muut Euroopan maat ovat huolissaan Venäjän toiminnasta.
+
+Saksan Leipzigin lentokentältä löytyi elokuussa drooni, jossa oli räjähteitä. Saksa sanoo, että droonin lähetti Venäjä.
+
+Venäjä torjuu syytöksen.
+
+Suomi tukee Saksaa.
+
+Pääministeri **Petteri Orpo** sanoo, että asia on vakava.
+
+Myös presidentti **Alexander Stubb** sanoo, että Suomi tukee Saksaa.
+
+Suomi ja muut Euroopan maat ovat huolissaan Venäjän toiminnasta, koska saksalaiselta lentokentältä löytyi räjähdedrooni.
+
+Suomen ulkoministeriö kutsui Venäjän suurlähettilään puhutteluun tapauksen takia.
+
+Myös EU ja Ruotsi kutsuvat Venäjän edustajan puhutteluun.
+
+## Koulutustaso
+
+Lopuksi uutinen nuorten koulutuksesta.
+
+Suomalaisten nuorten aikuisten koulutustaso ei enää nouse.
+
+Esimerkiksi Viro ja Ruotsi ovat menneet Suomen ohi korkeakoulutuksessa.
+
+Elinkeinoelämän tutkimuslaitos Etla varoittaa, että tämä voi haitata Suomen taloutta.
+
+Etlan tutkija **Aino Kalmbach** sanoo, että korkeakouluissa on ollut liian vähän opiskelupaikkoja. Hakijoita on paljon enemmän.
+
+Moni nuori hakee opiskelupaikkaa monta kertaa ja joutuu jonottamaan.
+
+Suomalaisten nuorten aikuisten koulutustaso ei enää nouse, koska opiskelupaikkoja on liian vähän.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Etenkin pohjoisessa ja idässä tulee sadetta tai sadekuuroja.
+
+Lännessä on enimmäkseen poutaa eli ei sada.
+
+Lämpötila on etelässä noin 20 astetta. Pohjoisessa alin lämpötila on noin 10 astetta.

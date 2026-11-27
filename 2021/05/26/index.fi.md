@@ -1,0 +1,77 @@
+# Keskiviikko 26.5.2021 (radio)
+
+Uusi kulttuuriministeri on Antti Kurvinen. Kuntavaalien ennakkoäänestys alkoi. Uusia koronatartuntoja on 220. Ravintolat ja hotellit ovat kärsineet paljon koronasta.
+
+## Antti Kurvinen tiede- ja kulttuuriministeriksi
+
+![Tuore tiede- ja kulttuuriministeri Antti Kurvinen kuvattuna keskustan tilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_223/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81136660ae2800c6a0f/1622026341)
+
+Avaa kuvien katselu
+
+Keskustan toisen kauden kansanedustaja Antti Kurvinen on uusi tiede- ja kulttuuriministeri. Kuva: Mikko Stig / Lehtikuva
+
+Keskusta vaihtaa ministereitä.
+
+Uusi tiede- ja kulttuuriministeri on kansanedustaja Antti Kurvinen. Kurvinen on keskustan eduskuntaryhmän puheenjohtaja.
+
+Tiede- ja kulttuuriministeri on ollut tähän saakka keskustan puheenjohtaja Annika Saarikko. Hän siirtyy nyt valtiovarainministeriksi.
+
+Valtiovarainministeri on ollut tähän saakka Matti Vanhanen. Hän ei jatka enää ministerinä.
+
+## Ennakkoäänestys alkoi
+
+![Ennakkoäänestyspaikka](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81140660ae387cb8be4/1622030517)
+
+Avaa kuvien katselu
+
+Ennakkoäänestyspaikka. Kuva: Jarkko Heikkinen/Yle
+
+Kuntavaalien ennakkoäänestys on alkanut.
+
+Ennakkoäänestys kestää 2 viikkoa ja loppuu 8. kesäkuuta. Kuntavaalien vaalipäivä on 13. kesäkuuta.
+
+Monessa kunnassa voi koronan takia äänestää ulkona. Joissakin kunnissa voi myös äänestää omassa autossa.
+
+Oikeusministeriö on tehnyt selkokielisen videon siitä, kuinka ennakkoäänestys tapahtuu. Video on oikeusministeriön Youtube-kanavalla.
+
+## Koronaluvut
+
+![Testaushenkilökuntaa Tornion rajanylityspaikan koronatestipisteen pihalla](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80740860a3a0c127722/1621336714)
+
+Avaa kuvien katselu
+
+Testaushenkilökuntaa Tornion rajanylityspaikan koronatestipisteen pihalla Kuva: Antti Ullakko / Yle
+
+Suomessa on 220 uutta koronatartuntaa. Koronatartuntoja on vähän enemmän kuin aiempina päivinä. Esimerkiksi tiistaina koronatartuntoja oli 125.
+
+Suomessa on 4 uutta koronakuolemaa. Yhteensä koronaan on kuollut Suomessa nyt 946 ihmistä.
+
+Sairaalassa on koronan takia 101 ihmistä. Tehohoitoa saa 18 ihmistä.
+
+Koronarokotteen 1. annoksen on saanut yli 42 prosenttia väestöstä. Molemmat rokoteannokset on saanut noin 7 prosenttia ihmisistä. Yli 80-vuotiaista jo 91 prosenttia on rokotettu.
+
+## Ravintolat ja hotellit kärsivät koronasta
+
+![Käsihuuhdepullo Porin Amarillo-ravintolan ovella.](https://img.img-cdn.yle.fi/crop_extract,w_5728,h_3222,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6874875edf6ef8dad88/1591702261)
+
+Avaa kuvien katselu
+
+Käsihuuhdepullo Porin Amarillo-ravintolan ovella. Kuva: Jari Pelkonen / Yle
+
+Ravintolat ja hotellit ovat kärsineet paljon koronasta. Näin kertoo Elinkeinoelämän tutkimuslaitos Etla.
+
+Etla arvioi, että hotelleiden ja ravintoloiden tilanne paranee jo kesän aikana. Toipuminen on kuitenkin hidasta.
+
+Matkailu toipuu koronasta vuoden loppupuolella. Toipuminen kestää monta vuotta.
+
+## Marihuanaa Suomeen Latviasta
+
+![Tulli tekemässä rekkaan tarkastusta Tornion ja Haaparannan välisellä rajalla](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_530/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7896846061dae1a4887/1617026112)
+
+Avaa kuvien katselu
+
+Esitutkinnan mukaan rikoskokonaisuuden taustalla on Suomessa uudentyyppinen järjestäytynyt rikollisryhmä. Kuvassa Tulli tekemässä rekkaan tarkastusta Tornion ja Haaparannan välisellä rajalla maaliskuussa. Kuva: Antti Ullakko / Yle
+
+Suomeen on tuotu paljon marihuanaa Latviasta. Viranomainen on löytänyt yli 110 kiloa marihuanaa.
+
+Rikoksista on epäilty 15:tä ihmistä. Vangittuna on edelleen 10 ihmistä.

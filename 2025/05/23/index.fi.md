@@ -1,0 +1,63 @@
+# TV | Selkouutiset | perjantai 23.5.2025
+
+Koulupuukotus oikeudessa. Ruokalähetit. Selkokieli. Sää.
+
+## Koulupuukotus oikeudessa
+
+Aluksi uutinen Pirkkalan puukotuksesta.
+
+Pirkkalan koulupuukotuksesta epäilty poika on vangittu.
+
+Pirkanmaan käräjäoikeus päätti vangitsemisesta tänään.
+
+16-vuotiasta poikaa epäillään 3:sta murhan yrityksestä.
+
+Puukotus tapahtui tiistaina Vähäjärven koulussa, Pirkkalassa. Puukotuksessa loukkaantui 3 tyttöä.
+
+Pirkkalan koulupuukotuksesta epäilty poika on vangittu.
+
+Poliisi on keskustellut pojan kanssa tapahtumista. Poliisi kertoo, että poika ei tuntenut uhreja.
+
+## Ruokalähetit
+
+Sitten asiaa ruokalähettien työstä.
+
+Oikeus on tehnyt tärkeän päätöksen ruokalähetin asemasta.
+
+Korkein hallinto-oikeus on päättänyt, että ruokalähetti on firman työntekijä. Oikeuden päätös koskee ruokaa kuljettavaa Wolt-firmaa.
+
+Oikeuden päätös tarkoittaa, että lähettien tilanne paranee. Heitä koskevat pian lait, jotka liittyvät lomaan, työsopimukseen ja työn turvallisuuteen.
+
+Lähetit voivat kuitenkin itse päättää, milloin ja miten paljon he tekevät töitä.
+
+Oikeus on tehnyt tärkeän päätöksen ruokalähetin asemasta.
+
+## Selkokieli
+
+Lopuksi asiaa selkokielestä.
+
+Selkokieltä tarvitaan Suomessa enemmän kuin ennen.
+
+Selkokieltä tarvitsee yli 800 000 ihmistä. Tämä selviää uudesta arviosta.
+
+Selkokielen tarve on kasvanut jo monta vuotta.
+
+Esimerkiksi moni yli 65-vuotias tarvitsee selkokieltä. Selkokieli auttaa myös maahanmuuttajia.
+
+Selkokieltä tarvitaan Suomessa yhä enemmän.
+
+Selkokielen rakenne ja sanat ovat helppoja ymmärtää.
+
+## Sää
+
+Vielä sääennuste.
+
+Lauantaina sää vaihtelee.
+
+Aamulla pohjoisessa ja idässä voi sataa.
+
+Päivällä on poutaista. Päivä on pilvinen.
+
+Lämpötila on yli 15 astetta.
+
+Etelässä voi illalla sataa paljon.

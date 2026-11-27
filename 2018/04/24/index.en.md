@@ -1,0 +1,61 @@
+# Tuesday 24.4.2018 (radio)
+
+Nordea bank predicts that Finland's economy will grow fast. The Refugee Woman of the Year is Sirwa Farik and the Refugee Man of the Year is Ahmad Hosseini. News Class Day: basic education school for adult immigrants.
+
+This is Clear News. I am Pertti Seppä.
+
+Today Yle is celebrating News Class Day, and also in the studio are
+
+\- **Runak Rashid**, **Al-Hello Afrah** and **Shahnaz Arefin**.
+
+You will tell us about basic education for adults, but first the day's other topics.
+
+## Nordea predicts economic growth
+
+![Port of Rauma](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10108861)
+
+Open image viewer
+
+The economy is growing and trade is busy. Photo: Yrjö Hjelt / Yle
+
+Nordea bank predicts that Finland's economy will grow fast. Nordea estimates that the economy will grow by 3 per cent this year and by 2.5 per cent next year.
+
+But Nordea warns that in 2 years growth will slow down. The bank thinks the reason is that wages are rising too much.
+
+Nordea says that unemployment is also a problem. It is often hard for unemployed people to find a job. That is why Nordea thinks that, for example, more training is needed.
+
+## The Refugees of the Year have been chosen
+
+![Refugees of the Year 2018](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10174688)
+
+Open image viewer
+
+Refugees of the Year Sirwa Farik and Ahmad Hosseini. Photo: Ilmari Fabritius
+
+Finnish Refugee Council has chosen the Refugees of the Year.
+
+The Refugee Woman of the Year is Sirwa Farik. Farik is 45 years old, and she comes from Iraq. Farik came to Finland in 2000. She works with immigrant women and as a family worker.
+
+The Refugee Man of the Year is Ahmad Hosseini. Hosseini is 19 years old, and he comes from Afghanistan. He came to Finland in 2015. Hosseini is studying to be a practical nurse, and he works for a fair asylum policy.
+
+Finnish Refugee Council says that Farik and Hosseini have helped other immigrants to a new start in Finland.
+
+## News Class Day
+
+![Three women in a radio studio.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10176058)
+
+Open image viewer
+
+Runak Rashid, Al-Hello Afrah and Shahnaz Arefin reading the radio Clear News. Photo: Yle
+
+Then to our News Class Day topic, basic education for adults.
+
+About 3,000 immigrants go to basic education school for adults in Finland. We study at the basic education school of the Helsinki Adult Education Centre. In our school the students are immigrants. In our school we study the same subjects as in an ordinary comprehensive school.
+
+Students come to our school because they have not gone to comprehensive school in their home country or their schooling in their home country was left unfinished. Basic education is important for our students, because many want to go to vocational school.
+
+We asked our school's head teacher Jyrki Sipilä what the task of basic education for adults is. Sipilä said that one important task is integration. The studies usually last 2.5 years and the school days are long. That is why integration is effective. It is especially important for women who have not been at work or at school.
+
+We will tell more about our school on the Clear News website. The address is **yle.fi/selkouutiset**.
+
+**Thank you, Runak Rashid, Al-Hello Afrah and Shahnaz Arefin.**

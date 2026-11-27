@@ -1,0 +1,59 @@
+# TV | Selkouutiset | tiistai 10.6.2025
+
+Alkoholitestaus. Elokapina. Kattohaikarat. Sää.
+
+## Alkoholitesti
+
+Aluksi uutinen työelämästä.
+
+Työpaikoilla on alettu seurata työntekijöiden alkoholinkäyttöä uuden testin avulla.
+
+Testi on PEth-testi. Se tehdään työterveydessä työntekijän verinäytteestä.
+
+Testi kertoo, onko työntekijä viime viikkoina juonut alkoholia ja kuinka paljon.
+
+Runsas alkoholinkäyttö voi näkyä testissä vielä 4 viikkoa lopettamisen jälkeen.
+
+Työntekijäjärjestöt SAK ja AKT kertovat, että työntekijä on voinut saada jopa potkut testituloksen takia.
+
+Työntekijöiden alkoholinkäyttöä seurataan uuden testin avulla.
+
+Työoikeuden asiantuntija, professori **Seppo Koskinen** sanoo, että testi loukkaa työntekijän yksityisyyden suojaa, sillä se ulottuu työntekijän vapaa-ajalle.
+
+## Elokapina
+
+Sitten aiheena mielenosoitus.
+
+Ympäristöliike Elokapina jatkaa tänään mielenosoituksia Helsingissä.
+
+Mielenosoitukset alkoivat eilen, ja niiden on tarkoitus jatkua vielä huomennakin.
+
+Eilen Elokapina tukki liikenteen useassa eri paikassa Helsingissä. Poliisi otti kiinni yli 130 mielenosoittajaa.
+
+Elokapinan mielenosoitukset jatkuvat myös tänään.
+
+Elokapina haluaa kiinnittää huomoita ympäristön tuhoihin ja ilmastonmuutokseen.
+
+## Kattohaikarat
+
+Sitten iloisia uutisia lintujen maailmasta.
+
+Kattohaikara saanut poikasia Turussa.
+
+Poikasten määrää ei vielä varmuudella tiedetä, mutta tavallisesti kattohaikara munii 2 tai 3 munaa.
+
+Poikaset syntyivät keinopesään. Haikaravanhemmat hautoivat munia vuorotellen monta viikkoa.
+
+Kattohaikara saanut poikasia Turussa.
+
+Tämä on vasta toinen kerta, kun kattohaikara pesii Suomessa. Edellinen kerta oli Koskella, lähellä Turkua, 10 vuotta sitten.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Huomenna sataa vettä monin paikoin.
+
+Pohjoisessa voi ukkostaa vähän.
+
+Lämpötila on lähellä 15 astetta. Sateen alla on kylmempää.

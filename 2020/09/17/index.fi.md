@@ -1,0 +1,79 @@
+# Torstai 17.9.2020 (radio)
+
+Suomessa oli torstaina syysmyrsky. Koronatartuntojen määrä Suomessa kasvaa. Finnair aikoo lopettaa lentoja Suomessa. Tupakka lisää vakavan aivoverenvuodon riskiä. Sää rauhoittuu syysmyrskyn jälkeen.
+
+## Aila-myrsky
+
+![Puiden raivausta Vaasassa Aila-myrskyn jälkeen](https://img.img-cdn.yle.fi/crop_extract,w_3984,h_2241,x_0,y_106/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7198585f630760e3f79/1600325617)
+
+Avaa kuvien katselu
+
+Aila-myrsky kaatoi paljon puita. Kuva: Merja Siirilä / Yle
+
+Suomessa on ollut myrsky. Myrsky sai nimen Aila.
+
+Aila-myrskyn tuulet ovat puhaltaneet kovaa, ja vettä on satanut paljon eri puolilla Suomea.
+
+Aila-myrsky katkaisi sähköt monilta kodeilta. Torstaina päivällä yli 90 000 kotia oli ilman sähköä. Myös puhelinverkoissa oli ongelmia.
+
+Aila-myrsky on haitannut myös liikennettä. Kova tuuli kaatoi puita kaduille. Myös laivavuoroja peruttiin kovan tuulen takia.
+
+## Koronatartunnat
+
+![Taneli Puumalainen, ylilääkäri, THL](https://img.img-cdn.yle.fi/crop_extract,w_5016,h_2822,x_0,y_266/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6912205eeb41d560415/1592476258)
+
+Avaa kuvien katselu
+
+THL:n ylilääkäri Taneli Puumalainen on huolestunut, koska koronatartuntojen määrä kasvaa. Kuva: Mårten Lampén / Yle
+
+Koronatartuntojen määrä kasvaa Suomessa.
+
+Terveyden ja hyvinvoinnin laitos eli THL raportoi torstaina 49 uutta koronatartuntaa. Suomessa on nyt yhteensä noin 8800 koronatartuntaa.
+
+THL on huolissaan koronaviruksen leviämisestä Suomessa. Viime aikoina on löydetty paljon uusia tartuntoja. Koronavirus leviää nyt erityisesti nuorten joukossa.
+
+## Kotimaanlennot
+
+![Finnairin lentokone platalla.](https://img.img-cdn.yle.fi/crop_extract,w_4695,h_2641,x_0,y_242/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7118525f452dd8e4c18/1625819192)
+
+Avaa kuvien katselu
+
+Finnair lopettaa kotimaanlentoja. Kuva: Mårten Lampén / Yle
+
+Finnair lopettaa lentoja Suomessa. Finnair aikoo lopettaa lennot 5 lentokentälle ensi keväänä.
+
+Sen jälkeen Finnair ei enää lennä Joensuun, Jyväskylän, Kajaanin, Kemin ja Kokkolan lentokentille.
+
+Finnair lopettaa lentoja, koska sillä on talousongelmia. Talousongelmien syy on koronavirus.
+
+Koronaviruksen takia Finnair lentää tämän vuoden lokakuussa vain 70 tai 80 lentoa päivässä. Viime vuoden lokakuussa Finnair lensi yli 350 lentoa päivässä.
+
+## Tupakointi
+
+![mies tupakoi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10780580)
+
+Avaa kuvien katselu
+
+Tupakointi voi aiheuttaa aivoverenvuodon. Kuva: AOP
+
+Tupakan vaarallisuudesta on saatu uutta tietoa.
+
+Tupakka on usein syy, kun aivoissa tapahtuu vakava verenvuoto. Näin kertoo uusi suomalainen tutkimus.
+
+Tupakointi lisää riskiä sairauteen, jonka nimi on lukinkalvonalainen aivoverenvuoto. Se on vaarallinen sairaus, joka tappaa jopa 50 prosenttia potilaista muutamassa kuukaudessa.
+
+Suomalaistutkimus todisti ensimmäisen kerran, että tupakoinnin ja lukinkalvonalaisen aivoverenvuoden välillä on yhteys.
+
+## Sää
+
+![Puut syksynä](https://img.img-cdn.yle.fi/crop_extract,w_1080,h_608,x_0,y_656/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7194455f61d357d46f4/1600246920)
+
+Avaa kuvien katselu
+
+Sateen jälkeen tulee pouta. Kuva: Tanja Heikkonen / Yle
+
+Syysmyrskyn jälkeen sää paranee.
+
+Perjantai on Etelä-Suomessa ja Keski-Suomessa aurinkoinen päivä. Lämpötila on noin 15 astetta.
+
+Pohjois-Suomessa voi perjantaina sataa vähän vettä. Lämpötila on pohjoisessa noin 10 astetta.

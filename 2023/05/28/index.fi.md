@@ -1,0 +1,87 @@
+# Radio Selkouutiset sunnuntai 28.5.2023
+
+Venäjän isku Kiovaan. Somaliaan demokraattiset vaalit. Kaurismäelle palkinto. Yle Kielikoulu. Sää.
+
+## Venäjän isku Kiovaan
+
+![Pelastustyöntekijä sammuttaa tulipaloa.](https://img.img-cdn.yle.fi/crop_extract,w_3547,h_1995,x_0,y_233/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1120684647312ff8808a/1685263352)
+
+Avaa kuvien katselu
+
+Venäjän drooni-isku sytytti tulipaloja. Kuva: Pavlo Petrov / Ukrainan hätätilaministeriö
+
+Venäjä on tehnyt ison ilmaiskun Ukrainan pääkaupunkiin Kiovaan. Venäjä teki iskun drooneilla lauantain ja sunnuntain välisenä yönä. Iskussa kuoli ainakin 1 ihminen.
+
+Ukraina sanoo, että se ampui alas yli 40 droonia Kiovassa. Ukraina arvioi, että drooni-isku Kiovaa vastaan oli suurin koko sodan aikana. Venäjä aloitti sodan Ukrainassa viime vuoden helmikuussa.
+
+Venäjä teki ison drooni-iskun Kiovaan kaupungin juhlapäivänä. Kiova täytti sunnuntaina 1541 vuotta.
+
+## Somaliaan demokraattiset vaalit
+
+![Mogadishussa kaudulla ruokakoju jossa paljon miesasiakkaita jonottamassa.](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_432/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-933158623d76971ea47/1648195530)
+
+Avaa kuvien katselu
+
+Kauppa Somalian pääkaupungissa Mogadishussa. Kuva: Elyas Ahmed / EPA
+
+Somalia lupaa järjestää demokraattiset vaalit ensi vuonna.
+
+Somaliassa on paikallisvaalit noin vuoden kuluttua. Silloin kaikki saavat äänestää.
+
+Somaliassa ei ole ollut tällaista yleistä äänioikeutta yli 50 vuoteen. Tärkeät tehtävät on jaettu klaanien kesken.
+
+## Kaurismäelle palkinto
+
+![Jussi Vatanen, Alma Pöysti ja Aki Kaurismäki](https://img.img-cdn.yle.fi/crop_extract,w_3501,h_1969,x_0,y_88/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1120566647201241b38e/1685217446)
+
+Avaa kuvien katselu
+
+Aki Kaurismäki (oikealla) yhdessä näyttelijä Alma Pöystin ja näyttelijä Jussi Vatasen kanssa Cannesissa. Kuva: Loic Venance / AFP
+
+Suomalainen elokuvaohjaaja Aki Kaurismäki on voittanut palkinnon.
+
+Kaurismäki sai tuomariston palkinnon Cannesin elokuvajuhlilla Ranskassa. Tuomariston palkinto on elokuvajuhlien kolmanneksi tärkein palkinto.
+
+Kaurismäki sai palkinnon elokuvasta Kuolleet lehdet. Elokuva kertoo 2 yksinäisen ihmisen rakkaudesta. Kuolleet lehdet tulee elokuvateattereihin Suomessa syksyllä.
+
+Aki Kaurismäki on saanut palkinnon Cannesin elokuvajuhlilla myös kerran aikaisemmin. Hän sai elokuvajuhlien toiseksi tärkeimmän palkinnon vuonna 2002.
+
+Cannesin elokuvajuhlat on maailman tärkein elokuvafestivaali.
+
+## Yle Kielikoulu
+
+![Ruotsintajatoimittaja Jonatan Pedersen](https://img.img-cdn.yle.fi/crop_extract,w_1893,h_1064,x_6,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-111460264635a8e3a2da/1684233023)
+
+Avaa kuvien katselu
+
+Kääntäjä Jonatan Pedersen koordinoi Yle Kielikoulua.
+
+Yle Kielikoulu tarjoaa hauskan tavan opiskella suomea.
+
+Kielikoulussa opiskellaan suomea katsomalla suomenkielisiä tv-ohjelmia.
+
+Ohjelmissa on myös suomenkielinen tekstitys. Katsoja saa vaikeille sanoille käännöksen.
+
+Katsoja voi itse valita, millä kielellä käännökset ovat. Näitä tukikieliä on 14.
+
+Yle Kielikoulu tarjoaa käännöksiä sen perusteella, mikä on katsojan suomen kielen taso.
+
+Myös tehtävät sopivat tasolle, jonka katsoja on valinnut.
+
+Yle Kielikoulu on ilmainen. Sitä voi käyttää sovelluksella tai selaimella.
+
+Lisää tietoa Kielikoulusta löytyy osoitteesta yle.fi/kielikoulu.
+
+Katso video siitä, miten Yle Kielikoulu toimii.
+
+## Sää
+
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11208586473725682f53/1685287547)
+
+Avaa kuvien katselu
+
+Suomen sää on melko viileää. Lämpötila on jopa 4 astetta alempi kuin tavallisesti toukokuun lopussa.
+
+Alkuviikko on poutainen eli vettä ei sada. Idässä ja pohjoisessa voi tulla sadekuuroja.
+
+Lämpötila on 10 ja 15 asteen välillä.

@@ -1,0 +1,81 @@
+# Saturday 28.1.2023 (radio)
+
+NATO membership. Memory association. Taxi traffic. Garden birdwatching. Weather.
+
+## NATO membership
+
+![Foreign Minister Pekka Haavisto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688367)
+
+Open image viewer
+
+Foreign Minister Pekka Haavisto was interviewed on television on Saturday. Photo: Sakari Piippo / Yle
+
+Finland and Sweden will continue applying for NATO membership together. That is what Finland's Foreign Minister Pekka Haavisto says.
+
+Turkey has not yet approved Finland's and Sweden's membership of the NATO defence alliance. That is why Finland and Sweden have been negotiating with Turkey.
+
+Turkey, however, suspended the negotiations this week. Turkey was angry at Sweden when a demonstration was held in Sweden in which the Quran was burned.
+
+Foreign Minister Haavisto estimates that the negotiations can be continued after the Turkish elections. Elections are held in Turkey in May.
+
+Haavisto says that Finland and Sweden are aiming to become NATO members before the NATO summit. The summit is in July.
+
+Finland and Sweden can join NATO only if all NATO countries approve them. That is why approval is also needed from the NATO country Turkey.
+
+## Adjustment training
+
+![A walker and an elderly person.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10050740)
+
+Open image viewer
+
+It is hoped that people with memory disorders can live at home for as long as possible. Photo: AOP
+
+The Memory Association criticises Kela. Kela has decided to end the courses that provide adjustment training for people with memory disorders.
+
+The courses will end at the end of next year. Kela says that the money no longer covers all services.
+
+The Memory Association thinks it is not sensible that the adjustment training courses are ended. The aim is that people with memory disorders live at home for a long time, but still services are being reduced.
+
+The Memory Association is an organisation that works for the benefit of people with memory disorders.
+
+## Taxi traffic
+
+![Taxis at Tampere railway station.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_131/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7226415f6c569b9420b/1600935794)
+
+Open image viewer
+
+Trust in taxis has decreased. Photo: Miikka Varila / Yle
+
+Finns trust taxi services less than before. That is what a new survey shows.
+
+Only about 40 percent of the survey respondents now trust taxi services. When a similar survey was carried out in 2017, about 85 percent of respondents trusted taxi services.
+
+## Garden Birdwatching
+
+![Yellowhammer.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7761996)
+
+Open image viewer
+
+In Garden Birdwatching, birds are observed in one's own garden. Photo: Jan Södersved
+
+This weekend the Garden Birdwatching event is held. The organiser of the event is the bird organisation BirdLife.
+
+Participants in Garden Birdwatching observe birds in their home garden for an hour. Bird observations are reported to BirdLife.
+
+Garden Birdwatching is not a competition. The purpose is for people to become interested in nature and the winter birds.
+
+Garden Birdwatching is always held on the last weekend of January.
+
+## The weather
+
+![Weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12688368)
+
+Open image viewer
+
+On Sunday it is fair, that is, no rain falls. The sun may also shine.
+
+The temperature on Sunday is slightly above zero in Southern and Western Finland. Elsewhere there is a little frost.
+
+On Monday rain comes to Finland. Snow falls in many places, more than 10 centimetres. In the south it also rains.
+
+Because of the snowfall, driving conditions may be poor on Monday.

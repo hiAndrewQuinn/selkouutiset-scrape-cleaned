@@ -1,0 +1,91 @@
+# Sunnuntai 2.5.2021 (radio)
+
+Maailman koronatilanne on huono. Suomessa uusien koronatartuntojen määrä vähenee. Israelissa on vietty surupäivää. Moni suomalainen ottaa nykyään asuntolainan yksin. Yksi ihminen kuoli tulipalossa Seinäjoella. Sää on viileää.
+
+## Maailman koronatilanne
+
+![Suojavarusteisiin pukeutuneet työntekijät hoitavat sairaalasängyissä makaavia potilaita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11911387)
+
+Avaa kuvien katselu
+
+Intiassa koronapotilaiden määrä kasvaa. Kuva: Prakash Singh / AFP
+
+Maailman koronatilanne pahenee.
+
+Maailman terveysjärjestö WHO kertoo, että koronatartuntojen ja koronakuolemien määrä on kasvanut jo monta viikkoa.
+
+Koronatilanne on tosi huono Intiassa ja Brasiliassa. Myös Iranissa ja Turkissa koronatilanne on huonontunut nopeasti.
+
+Koko maailmassa jo yli 3 miljoonaa ihmistä on kuollut koronan takia. Yli 150 miljoonaa ihmistä on saanut koronatartunnan.
+
+## Suomen koronatilanne
+
+![Koronarokotukseen käytettäviä ruiskuja rokotuspisteessä.](https://img.img-cdn.yle.fi/crop_extract,w_5389,h_3031,x_0,y_480/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7911706065ba3562bb3/1617279617)
+
+Avaa kuvien katselu
+
+Yli 30 prosenttia suomalaisista on saanut koronarokotuksen. Kuva: Tiina Jutila / Yle
+
+Suomessa uusien koronatartuntojen määrä vähenee. Sunnuntaina kerrottiin, että uusia koronatartuntoja on 132. Se on pienin luku moneen kuukauteen.
+
+Uusien koronatartuntojen määrä on Suomessa vähentynyt jo jonkin aikaa. Suomesta on löydetty yhteensä yli 87 000 koronatartuntaa.
+
+Vähän yli 30 prosenttia Suomen asukkaista on saanut ainakin yhden koronarokotuksen.
+
+## Israelin surupäivä
+
+![ Israelissa kymmenien ihmisten kerrotaan kuolleen tungoksessa juutalaisten uskonnollisessa tapahtumassa. ](https://img.img-cdn.yle.fi/crop_extract,w_5760,h_3240,x_0,y_297/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-800505608b591e8b5fc/1619745307)
+
+Avaa kuvien katselu
+
+Uskonnollisessa juhlassa tapahtui perjantaina onnettomuus, jossa kuoli 45 ihmistä. Kuva: EPA/DAVID COHEN
+
+Israelissa on vietetty surupäivää.
+
+Israelilaiset ovat muistaneet ihmisiä, jotka kuolivat onnettomuudessa perjantaina.
+
+Onnettomuus tapahtui uskonnollisessa juhlassa Meronin kaupungissa. Juhlaan tuli kymmeniä tuhansia ihmisiä.
+
+Ihmisjoukossa syntyi paniikki, ja ihmisiä jäi toisten jalkoihin. 45 ihmistä kuoli.
+
+## Asuntolainat
+
+![Avaimet asuntolainapapereiden päällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10998654)
+
+Avaa kuvien katselu
+
+Monet ostavat asunnon yksin. Kuva: Kimmo Hiltunen / Yle
+
+Moni suomalainen ottaa nykyään asuntolainan yksin.
+
+Esimerkiksi Osuuspankin asuntolainoista jo noin 50 prosenttia on yhden ihmisen lainoja. Myös muut pankit kertovat, että yhden ihmisen asuntolainat lisääntyvät.
+
+Syy tilanteeseen on se, että monet asuvat nykyään yksin. Siksi he myös hoitavat asuntolainan yksin.
+
+Helsingin seudulla yhden ihmisen asuntolainoja vähentää se, että monet asuvat vuokralla. Yhden ihmisen palkka ei aina riitä asunnon ostamiseen Helsingin seudulta.
+
+## Tulipalo Seinäjoella
+
+![Etelä-Pohjanmaan pelastuslaitoksen paloauto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10897931)
+
+Avaa kuvien katselu
+
+Seinäjoki on Etelä-Pohjanmaalla, Länsi-Suomessa. Kuva: Ismo Pekkarinen / AOP
+
+Länsi-Suomessa Seinäjoella on ollut tulipalo. Tulipalossa kuoli 1 ihminen.
+
+Tuli tuhosi kokonaan asuinrakennuksen, ulkorakennuksen ja saunan. Kuollut löydettiin asuinrakennuksesta.
+
+Vielä ei tiedetä, mikä oli tulipalon syy. Poliisi tutkii asiaa.
+
+## Alkuviikon sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11911538)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on viileää. Lämpötila ei nouse yli 10 asteen edes Etelä-Suomessa.
+
+Alkuviikolla ei sada vettä, mutta sää on pilvistä ja tuulista. Aurinko paistaa eniten pohjoisessa.

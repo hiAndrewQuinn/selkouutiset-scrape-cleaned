@@ -1,0 +1,75 @@
+# Keskiviikko 27.2.2019 (radio)
+
+Trump ja Kim keskustelevat Vietnamissa. Nigerian presidentinvaalien voittaja on maan nykyinen presidentti Muhammadu Buhari. Vahvan long drink -juoman myynti on kasvanut paljon. Iivo Niskanen sai MM-pronssia. Sää kylmenee torstaina.
+
+## Trumpin ja Kimin tapaaminen
+
+![Trump ja Kim](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10665437)
+
+Avaa kuvien katselu
+
+Kim Jong-unin ja Donald Trumpin tapaaminen on alkanut. Kuva: Ye Aung Thu / Lehtikuva
+
+USA:n ja Pohjois-Korean johtajien tapaaminen on alkanut Vietnamissa. Presidentti Donald Trump ja Pohjois-Korean johtaja Kim Jong-un tapaavat Vietnamin pääkaupungissa Hanoissa.
+
+Keskiviikkona johtajat tapasivat lyhyesti, mutta keskustelujen sisällöstä ei kerrottu. Virallisten keskustelujen aika on torstaina.
+
+Silloin presidentit keskustelevat ydinaseista. USA haluaa, että Pohjois-Korea luopuu ydinaseista.
+
+## Nigerian presidentinvaalit
+
+![Muhammadu Buhari puhui medialle äänestyspaikalla Katsinassa, Nigeriassa 23. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10664330)
+
+Avaa kuvien katselu
+
+Muhammadu Buhari jatkaa Nigerian presidentin tehtävässä. Kuva: George Esiri / EPA
+
+Nigerian presidentinvaalien tulos on kerrottu. Nigerian nykyinen presidentti Muhammadu Buhari voitti vaalit. Buhari on ollut Nigerian presidentti vuodesta 2015.
+
+Nigerialaiset äänestivät presidentinvaaleissa lauantaina. Vaaleissa oli ongelmia. Kerrotaan, että äänestäjiä peloteltiin. Yli 50 ihmistä kuoli viikonloppuna väkivallan takia.
+
+Nigeriassa on melkein 200 miljoonaa asukasta. Se on enemmän kuin missään muussa Afrikan maassa.
+
+## Lonkeron myynti
+
+![Lonkeroa kaupassa myytävänä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10169653)
+
+Avaa kuvien katselu
+
+Long drinkistä eli lonkerosta on tullut ruokakauppojen hittituote. Kuva: Pekka Pantsu / Yle
+
+Alkoholijuomien myynnissä on tapahtunut muutos.
+
+Vahva long drink eli lonkero on kasvattanut suosiota. Vahvaa lonkeroa myytiin viime vuonna 3 kertaa enemmän kuin vuotta aikaisemmin.
+
+Luvussa näkyy uusi alkoholilaki. Laki antoi ruokakaupoille luvan myydä vahvempia alkoholijuomia kuin ennen. Nykyään ruokakaupat saavat myydä juomia, joissa on alkoholia 5,5 prosenttia. Sen verran alkoholia on myös vahvassa lonkerossa.
+
+Samaan aikaan kun vahvan lonkeron myynti kasvaa, muiden alkoholijuomien myynti on vähentynyt.
+
+## Niskaselle MM-pronssi
+
+![Iivo Niskanen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10665681)
+
+Avaa kuvien katselu
+
+Iivo Niskanen onnittelee maailmanmestaria, Norjan Martin Johnsrud Sundbytä. Kuva: Lehtikuva
+
+Suomi on saanut ensimmäisen mitalin hiihdon MM-kilpailuissa Seefeldissä, Itävallassa.
+
+Iivo Niskanen oli kolmas miesten 15 kilometrin hiihdossa. Pronssimitali oli kuitenkin Niskaselle pettymys.
+
+Edellisissä MM-kilpailuissa Niskanen oli 15 kilometrin maailmanmestari. Niskasen tavoite oli myös tällä kertaa voittaa MM-kultaa, mutta se ei onnistunut.
+
+Suomalaiset ovat kuitenkin iloisia Niskasen pronssimitalista.
+
+## Sää
+
+![Hiihtäjä ladulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10599400)
+
+Avaa kuvien katselu
+
+Ainakin Pohjois-Suomessa voi vielä hiihtää. Kuva: Henrik Isaksson / AOP
+
+Sää kylmenee torstaina. Lämpötila on Etelä-Suomessa päivällä nollan yläpuolella, mutta muualla on pakkasta.
+
+Etelä-Suomessa ja Keski-Suomessa voi sataa lunta tai räntää. Pohjois-Suomessa on poutaa eli siellä ei sada.

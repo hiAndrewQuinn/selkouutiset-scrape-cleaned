@@ -1,0 +1,39 @@
+# Selkouutiset | torstai 18.6.2026
+
+Palautuskeskukset. Mansikat. Jalkapallo. Sää.
+
+## Palautuskeskukset
+
+Ensin uutinen EU:sta.
+
+EU-maat saavat tulevaisuudessa lähettää turvapaikanhakijoita EU:n ulkopuolelle. Maat saavat lähettää EU:n ulkopuolelle ihmisiä, jotka eivät saa turvapaikkaa EU-maasta. Asiasta päätti EU-parlamentti.
+
+EU-maat saavat tulevaisuudessa lähettää turvapaikanhakijoita EU:n ulkopuolelle. EU-maat voivat lähettää palautuskeskukseen myös ihmisen, joka on EU:n alueella ilman oleskelulupaa.
+
+## Mansikat
+
+Nyt uutisen aiheena on mansikka.
+
+Kaupoissa on juhannuksena suomalaisia mansikoita. Sää on ollut sateinen, ja siksi mansikat kypsyvät hitaasti. Myös mansikoiden kerääminen on vaikeaa sateella.
+
+Mansikka kypsyy eri vauhtia Suomen eri osissa. Varsinais-Suomessa mansikat kypsyivät jo noin 2 viikkoa sitten. Näissä kuvissa poimijat poimivat mansikoita Salossa, Varsinais-Suomessa.
+
+Kaupoissa on juhannuksena suomalaisia mansikoita. Jos juhannuksena paistaa aurinko, niin mansikat kypsyvät pian eri puolilla Suomea.
+
+## Jalkapallon MM-kisat
+
+Seuraavaksi urheilua.
+
+Jalkapallon MM-kisoissa kaikki joukkueet ovat nyt pelanneet yhden ottelun.
+
+Yön otteluissa Ghana voitti Panaman ja Kolumbia Uzbekistanin. Keskiviikkona illalla Portugali pelasi tasapelin Kongon demokraattisen tasavallan kanssa. Englanti voitti Kroatian 4-2. **Harry Kane** teki pelissä 2 maalia.
+
+Eniten maaleja on tähän mennessä tehnyt Argentiinan **Lionel Messi**. Hän teki 3 maalia ottelussa Algeriaa vastaan. Messi on tehnyt eri MM-kisoissa yhteensä 16 maalia. Vain saksalainen **Miroslav Klose** on tehnyt MM-kisoissa yhtä paljon maaleja.
+
+Jalkapallon MM-kisat pelataan USA:ssa, Kanadassa ja Meksikossa.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna perjantaina aurinko paistaa monin paikoin eri puolilla Suomea. Etelässä ja lännessä lämpötila on yli 20 astetta. Idässä on pilvisempää ja viileämpää kuin muualla.

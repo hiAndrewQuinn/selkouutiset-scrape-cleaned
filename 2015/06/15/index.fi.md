@@ -1,0 +1,59 @@
+# Maanantai 15.6.2015
+
+Palkat nousevat ensi vuonna vähän. Turun telakalle töitä vuoteen 2020 asti. Ukrainasta puhuttiin paljon Kultarannassa. Vauvansa murhannut nainen sai pitkän vankilatuomion.
+
+## Palkkoihin pienet korotukset
+
+![Steleitä, kolikko.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8075727)
+
+Avaa kuvien katselu
+
+Palkat nousevat ensi vuonna 16 euroa. Kuva: Derrick Frilund / Yle
+
+Palkat nousevat ensi vuonna Suomessa 16 euroa tai 0,43 prosenttia kuukaudessa. Palkka nousee 16 euroa, jos se on nyt vähemmän kuin noin 3 700 euroa kuussa. Jos palkka on nyt isompi kuin tuo 3700 euroa, se nousee 0,43 prosenttia.   
+
+Työmarkkinajärjestöt sopivat palkoista sunnuntain ja maanantain välisenä yönä. Sopimus koskee 1,8 miljoonaa työntekijää.  
+
+Järjestöt ehdottavat myös, että työnantajien ja työntekijöiden maksamaa työttömyysvakuutusmaksua nostetaan 0,5 prosenttiyksikköä. Siksi isoista palkoista jää ensi vuonna käteen vähemmän rahaa kuin nyt. Työttömyysvakuutuksesta maksetaan korvausta niille, joilla ei ole töitä. 
+
+## Turun telakalle laivatilaus
+
+![Oasis of the Seas testikierroksella Itämerellä syyskuussa 2009.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7356860)
+
+Avaa kuvien katselu
+
+Turussa rakennetaan kaksi laivaa, joihin mahtuu enemmän matkustajia kuin tähän Oasis of the Seas -laivaan. Kuva: Royal Caribbean / EPA
+
+Meyerin Turun telakka on saanut ison tilauksen. Telakka rakentaa kaksi laivaa Carnivalille, joka on maailman suurin risteilyfirma. Risteilyllä ihmiset asuvat laivassa ja laiva kulkee kaupungista toiseen, esimerkiksi viikon ajan Välimerellä.
+
+Meyerilta tilattuihin laivoihin mahtuu 6 600 matkustajaa ja niiden moottorit käyttävät maakaasua. Laivat maksavat satoja miljoonia euroja.
+
+Turun telakalla on nyt töitä noin viideksi vuodeksi.
+
+## Kultarannassa puhuttiin Natosta ja Ukrainasta
+
+![Venäjän entinen valtiovarainministeri Aleksei Kudrin puhui Kultaranta-keskustelutilaisuudessa Naantalissa 15. kesäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8076264)
+
+Avaa kuvien katselu
+
+Aleksei Kudrin. Kuva: Tuomas Marttila / Lehtikuva
+
+Suomen presidentin kesäasunnolla Kultarannassa on jatkettu toista päivää keskusteluja muun muassa turvallisuuspolitiikasta.
+
+Tilaisuudessa puhui esimerkiksi Venäjän entinen ministeri Aleksei Kudrin. Hän sanoi, että Ukrainan kriisi on ehkä helpompi ratkaista, jos puolustusliitto Nato lupaa, että se ei enää ota jäsenikseen Venäjän naapurimaita. Lupaus ehkä vähentäisi jännitystä Venäjän ja lännen välillä, Kudrin sanoi.
+
+Yhdysvaltain entinen ministeri Strobe Talbott ja saksalainen diplomaatti Wolfgang Ischinger sanoivat, että Ukraina on itsenäinen valtio ja siksi se saa itse päättää, liittyykö se Natoon. 
+
+## Vauvojen murhista elinkautinen vankeustuomio
+
+![Vauvasurmista syytetty oikeudenkäynnissä mustiin verhoutuneena](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8034511)
+
+Avaa kuvien katselu
+
+Vauvansa surmannut nainen oikeudessa. Kuva: Tiina-Leena Kurki / Yle
+
+Oululainen 36-vuotias nainen joutuu elinkautiseen vankeuteen viiden vauvansa murhista.
+
+Vuosina 2005 - 2013 nainen synnytti salaa viisi lasta, tappoi heidät ja piilotti ruumiit. Lääkärit ovat tutkineet naisen mielenterveyden, ja tuomioistuin sanoo, että nainen ymmärsi, mitä hän teki.
+
+Nainen ei ole sanonut, miksi hän tappoi vauvansa.

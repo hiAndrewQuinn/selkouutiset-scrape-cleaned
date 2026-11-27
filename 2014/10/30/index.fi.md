@@ -1,0 +1,59 @@
+# Torstai 30.10.2014
+
+Keskusta on saanut lisää kannattajia. Ruotsi tunnusti Palestiinan valtion.
+
+## Keskusta on saanut lisää kannattajia
+
+![Grafiikkaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7576903)
+
+Avaa kuvien katselu
+
+Keskustan kannatus kasvaa. Kuva: Yle Uutisgrafiikka
+
+Keskustan kannatus nousee Suomessa edelleen. Yle Uutiset on jälleen tutkinut puolueiden kannatusta ja tutkimuksen mukaan Keskusta on selvästi Suomen suurin puolue.
+
+Keskustaa äänestäisi nyt 25,5 prosenttia vastanneista.
+
+Toiseksi suurin puolue on kokoomus. Sitä kannattaa nyt vähemmän ihmisiä kuin kuukausi sitten. Kokoomusta kannatti vastanneista 19,4 prosenttia.
+
+SDP ei ole menettänyt kannattajia. Se on nyt Suomen kolmanneksi suurin puolue mutta ero perussuomalaisiin on hyvin pieni. SDP:tä kannatti 15,2 ja perussuomalaisia 15,1 prosenttia.
+
+Kyselyyn osallistui noin 3400 ihmistä. Suomessa pidetään eduskuntavaalit ensi keväänä.
+
+## Ruotsi tunnusti Palestiinan valtion
+
+![Ruotsin ulkoministeri Margot Wallström kertoo tiedotustilaisuudessa Tukholmassa 30. lokakuuta, että maan hallitus päätti tunnustaa Palestiinan valtion.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7576353)
+
+Avaa kuvien katselu
+
+Ruotsin ulkoministeri ilmoitti, että Palestiinan valtio tunnustetaan. Kuva: SVT
+
+Ruotsi on virallisesti tunnustanut  Palestiinan valtion. Tunnustaminen tarkoittaa, että Ruotsin mielestä Palestiinalla on oma alue, kansa ja hallinto.
+
+Ruotsin ulkoministeri Margot Wallström sanoo, ettei Ruotsi asetu nyt palestiinalaisten puolelle israelilaisia vastaan. Wallströmin mielestä Palestiinan tunnustaminen tarkoittaa, että Ruotsi asettuu rauhanprosessin puolelle.
+
+Palestiinan on tunnustanut kahdeksan EU-maata. Maailman valtioista yli 130 on tunnustanut Palestiinan. Suomi ei ole tunnustanut Palestiinaa.
+
+## Sairaanhoitaja vangittiin vanhuksen murhasta
+
+![Käräjäoikeus vangitsi murhasta epäillyn sairaanhoitajan. Miehen oikealla puolella hänen oikeusavustajansa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7575099)
+
+Avaa kuvien katselu
+
+Sairaanhoitaja vangittiin oikeudessa. Kuvassa on myös hänen oikeusavustaja.  Kuva: Jussi Nukari / Lehtikuva
+
+Suomessa on vangittu sairaanhoitaja, jota poliisi epäilee vanhuksen murhasta. Poliisi kertoi eilen, että se epäilee murhaa hoitokodissa Salossa Etelä-Suomessa.
+
+Poliisi epäilee, että mieshoitaja murhasi naisvanhuksen, koska hän halusi vanhuksen omaisuuden. Poliisi sanoo, että vanhus myrkytettiin.
+
+Oikeus vangitsi myös mieshoitajan vaimon, koska häntä epäillään huijauksista. Vaimo työskenteli samassa hoitokodissa. Poliisi epäilee, että mies ja nainen ovat tehneet rikoksia yhdessä.
+
+## Maitovalas synnytti poikasen akvaariossa Kiinassa
+
+Kiinalaisessa akvaariossa on nähty, miten maitovalas, eli beluga, synnyttää poikasen. Synnytys kesti viisi tuntia ja se saatiin videolle.
+
+Maitovalasnaaras synnytti poikasen kiinalaisessa merieläinpuistossa keskiviikkona. Kuva: CCTV
+
+Merieläinpuisto on Kiinan keskiosassa Changshan kaupungissa. Puiston työntekijät sanovat, että tämä on ensimmäinen kerta, kun maitovalas synnytti akvaariossa Kiinassa.
+
+Maitovalaita on luonnossa vielä noin 150 000. Maitovalas kasvaa monen metrin kokoiseksi. Niitä elää Pohjoisella Jäämerellä, Pohjois-Amerikan itärannikolla ja Japanin rannikolla.

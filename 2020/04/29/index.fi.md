@@ -1,0 +1,99 @@
+# Keskiviikko 29.4.2020 (radio)
+
+Koulut avataan ehkä. Suomen koronatartunnat. Terveysasemat. Finnairin ongelmat. Säätietoja.
+
+## Peruskoulut avataan ehkä 14.5.
+
+![tyhjä luokka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11328822)
+
+Avaa kuvien katselu
+
+Koulut ovat olleet kiinni 6 viikkoa. Kuva: Marja Väänänen / Yle
+
+Suomen hallituksen pitää päättää, avataanko koulut vielä tämän kevään aikana.
+
+Koulut ovat olleet kiinni 6 viikkoa.
+
+Alkuperäisen päätöksen mukaan ne ovat vielä kiinni toukokuun 13. päivään asti.
+
+Yle on saanut etukäteen tiedon, että todennäköisesti peruskoulut avataan heti tämän jälkeen eli 14.5.
+
+Lukiot ja ammattioppilaitokset pysyvät todennäköisesti kiinni.
+
+Terveysviranomaiset kertoivat tänään, että Suomessa ei ole yhtään lasta joutunut sairaalaan koronan takia.
+
+Lapsilla koronan oireet ovat olleet lieviä.
+
+Tämä tieto on ollut tärkeä syy siihen, että peruskoulut voidaan avata.
+
+## Suomessa koronaan on kuollut 206 ihmistä
+
+![Kuvassa laatumestari Satu Eriksson puhdistaa kolmannen kerroksen tiloja.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_263/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6612245e86eefdc00d4/1585902340)
+
+Avaa kuvien katselu
+
+Tässä toimistossa tehdään tehosiivousta koronaviruksen takia. Kuva: Silja Viitala / Yle
+
+Suomessa on nyt virallisesti yli 4900 koronatartuntaa.
+
+Koronaviruksen takia on kuollut 206 ihmistä.
+
+Suurin osa tartunnoista on noin 50-vuotiailla ihmisillä.
+
+## Terveysasemalle voi mennä
+
+![Tuusulan terveysasema](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_48/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6445675e4d433bb2a98/1582354092)
+
+Avaa kuvien katselu
+
+Lääkärit ovat huolissaan, koska sairaat eivät uskalla mennä terveysasemalle. Kuva: Petteri Sopanen / Yle
+
+Terveysasemilla lääkärit ovat huolissaan.
+
+He ovat huolissaan siitä, että sairaat ihmiset eivät uskalla mennä lääkäriin sairauden takia, koska he pelkäävät koronatartuntaa.
+
+Ihmiset eivät uskalla mennä terveysasemalle tai he ajattelevat, että eivät nyt halua vaivata oman sairauden takia.
+
+Lääkärit sanovat, että näin ei pidä ajatella.
+
+Terveysasemilla lääkäreillä ja terveydenhoitajilla on kyllä aikaa hoitaa potilaita.
+
+Asiakkaista huolehditaan terveysasemilla niin, että koronatartuntaa ei tarvitse pelätä.
+
+Lääkärit muistuttavat, että sairaus voi pahentua, jos odottaa liian pitkään ennen kuin menee lääkäriin.
+
+## Lentoyhtiö Finnairilla menee huonosti
+
+![Kapteeni (vas.) ja perämies ohjaamossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11189001)
+
+Avaa kuvien katselu
+
+Finnair joutuu lomauttamaan kaikki työntekijät. Kuva: Roni Rekomaa / Lehtikuva
+
+Lentoyhtiö Finnairilla menee huonosti.
+
+Finnair kertoo, että se menettää joka päivä 2 miljoonaa euroa, koska lentoja on peruttu paljon.
+
+Finnair arvioi, että lentoliikenne alkaa ehkä lisääntyä heinäkuussa.
+
+Finnair on jo ilmoittanut, että kaikki työntekijät lomautetaan. Lomautusta joudutaan ehkä jatkamaan.
+
+Monilla lentoyhtiöillä on nyt vaikeaa.
+
+Norjalainen Norwegian on jo melkein konkurssissa.
+
+## Vappuaattona on viileä sää
+
+![Kuvassa on kuohuviinilasit ja tietokone eli etävappu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11328255)
+
+Avaa kuvien katselu
+
+Huomenna torstaina on vappuaatto. Sää on viileä. Kuva: Jussi Nukari / Lehtikuva
+
+Suomeen tulee viileää ilmaa pohjoisesta.
+
+Huomenna torstaina sää on puolipilvinen tai pilvinen.
+
+Paikoin tulee vesi- tai lumikuuroja.
+
+Päivällä on lämpöasteita, mutta yöllä lämpötila on pakkasen puolella.

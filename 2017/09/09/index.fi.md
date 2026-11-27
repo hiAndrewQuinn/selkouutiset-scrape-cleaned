@@ -1,0 +1,59 @@
+# Lauantai 9.9.2017 (radio)
+
+Miljoonat ihmiset pakenevat Irma-hurrikaania. Vihreät ei lähde samaan hallitukseen perussuomalaisten kanssa. Lontoossa on marssittu EU-eroa vastaan. 100-vuotias Suomi näkyy BBC:n Proms-musiikkifestivaalissa.
+
+## Miljoonat pakenevat Irma-myrskyä
+
+![NOAA:n satelliittikuvassa 7. syyskuuta näkyvät vasemmalta oikealle lueteltuina hurrikaani Katia, hurrikaani Irma ja hurrikaani Jose.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9824337)
+
+Avaa kuvien katselu
+
+NOAA:n satelliittikuvassa 7. syyskuuta näkyvät vasemmalta oikealle lueteltuina hurrikaani Katia, hurrikaani Irma ja hurrikaani José. Kuva: Jose Romero / AFP 
+
+Miljoonat ihmiset pakenevat Irma-hurrikaania. Sääennuste kertoo, että hirmumyrsky saapuu Yhdysvaltoihin Floridan rannikolle sunnuntaina. Esimerkiksi suur-Miamin yli viidestä (5) miljoonasta asukkaasta suurin osa on paennut myrskyä. Yhtä suurta joukkoliikennettä myrskyn takia ei ole ennen ollut.
+
+Kuubassa miljoona ihmistä on evakuoitu hurrikaanin tieltä.
+
+Karibianmeren alueella hurrikaanin takia on saanut surmansa ainakin 19 ihmistä ja tuhansia koteja on tuhoutunut. Irmaa seuraa hurrikaani José.
+
+## Vihreät torjuu hallitustyön perussuomalaisten kanssa
+
+![Touko Aalto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9781737)
+
+Avaa kuvien katselu
+
+Touko Aalto valittiin vihreiden puheenjohtajaksi kesäkuussa 2017. Kuva: Jarno Kuusinen / AOP
+
+Vihreiden puheenjohtaja Touko Aalto sanoo, että vihreät ei lähde perussuomalaisten kanssa samaan hallitukseen.
+
+Aalto korosti TV 1:n Ykkösaamussa, että asiat ratkaisevat vihreiden osallistumisen seuraavaan hallitukseen. Vihreiden puheenjohtaja sanoo, että perussuomalaisten linja ihmisoikeuskysymyksistä, maahanmuutosta ja taloudesta on kaukana vihreiden käsityksistä.
+
+Vihreät on valmis hallitukseen kaikkien muiden puolueiden kanssa. Seuraavat eduskuntavaalit ovat vuonna 2019. Ylen uusimmassa kannatusmittauksessa vihreät oli kokoomuksen jälkeen toiseksi suurin puolue.
+
+## Lontoossa on vastustettu brexitiä
+
+![Big Ben ja liput.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9817381)
+
+Avaa kuvien katselu
+
+Britannian EU-ero lähestyy. Kuva: EPA / Will Oliver
+
+Lontoossa on marssittu Britannian EU-eroa vastaan. Eron eli brexitin vastustajat marssivat parlamentin luo.
+
+Marssin järjestäjät väittävät, että brittien kanta brexitiin on muuttunut. He sanovat, että enemmistö saarivaltion asukkaista ei ole enää EU-eron kannalla.
+
+Brexitin on määrä tulla voimaan maaliskuun lopussa 2019. Käytännössä brexit-neuvottelujen takaraja on ensi vuoden syksyllä.
+
+## Suomi on esillä Proms-festivaalissa
+
+![mies ja nainen oopperan katsomossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9823153)
+
+Avaa kuvien katselu
+
+Lotta Wennäkoski ja Sakari Oramo Royal Albert Hallissa. Kuva: Janne Koskinen / Yle
+
+Sibeliuksen Finlandia soi tänä lauantai-iltana miljoonille kuulijoille. Britannian yleisradioyhtiö BBC:n Proms-musiikkifestivaali huipentuu konserttiin, jossa Suomi on näkyvästi mukana.
+
+Promien viimeinen ilta soi ympäri maailman radiossa ja televisiossa. Ilta on tärkeä Suomelle, joka täyttää 100 vuotta. Suomen kansallissäveltäjä Jean Sibeliuksen Finlandian hymni lauletaan suomeksi. BBC:n sinfoniaorkesterin ylikapellimestari Sakari Oramo kertoo, että brittikuoro on harjoitellut ahkerasti suomen kielen ääntämistä. BBC on myös tilannut suomalaissäveltäjä Lotta Wennäkoskelta teoksen, joka aloittaa konsertin.
+
+Suomessa konsertti on meneillään tämän radiolähetyksen aikana. Konsertti tulee Suomessa Yle radio yhdessä ja Yle Teemalla sekä nettiradio Yle Klassisessa. Tv- lähetys on Yle Areenassa viikon ajan ja radion konsertti kuukauden ajan.

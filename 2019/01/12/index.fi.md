@@ -1,0 +1,61 @@
+# Lauantai 12.1.2019 (radio)
+
+Poliisi epäilee uusia seksuaalirikoksia Oulussa. Presidentti Sauli Niinistö on järkyttynyt Oulun rikosepäilyistä. Helsingissä metroliikenne Lauttasaaresta itään on poikki koko viikonlopun ajan. Viime vuoden parhaat tv-ohjelmat on palkittu.
+
+## Uusia seksuaalirikostapauksia Oulussa
+
+![Pääpoliisiasema Oulun Hiukkavaarassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10593648)
+
+Avaa kuvien katselu
+
+Oulun poliisi tutkii nyt seksuaalirikoksia. Kuva: Timo Heikkala / Lehtikuva
+
+Poliisi epäilee uusia seksuaalirikoksia Oulussa, Pohjois-Suomessa. Ulkomaalaistaustaiset miehet ehkä tekivät rikokset viime kesänä. Uhrit ovat alle 15-vuotiaita tyttöjä.
+
+Poliisi alkoi jo viime vuonna tutkia samanlaisia seksuaalirikoksia Oulussa. Poliisi sanoo, että nyt tutkitaan eri rikoksia ja eri tekijöitä. Yhteistä on se, että tekijät ovat ulkomaalaistaustaisia.
+
+Sisäministeri Kai Mykkänen kommentoi Oulun tapahtumia tv-haastattelussa lauantaina. Mykkänen ehdottaa uusia keinoja estää ulkomaalaisten rikoksia Suomessa. Sisäministeri on vastuussa poliisiasioista ja maahanmuutosta.
+
+Mykkänen sanoi, että viranomaiset tutkivat, voidaanko esimerkiksi kansalaisuuslakia muuttaa. Yksi ehdotus on, että ulkomaalaisen pitää hyväksyä suomalaiset arvot, kun hän hakee Suomen kansalaisuutta. Tällainen arvo on esimerkiksi naisten ja miesten seksuaalinen tasa-arvo, sisäministeri sanoi.
+
+## Niinistö järkyttyi Oulun rikoksista
+
+![Tasavallan presidentti Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10453327)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Jarno Kuusinen / AOP
+
+Presidentti Sauli Niinistö on järkyttynyt Oulun rikosepäilyistä. Presidentti on surullinen, koska uhrit ovat lapsia.
+
+Niinistö sanoo, että kaikkien pitää Suomessa muistaa, että toisia ihmisiä ei saa vahingoittaa.
+
+Meidän pitää kuitenkin ratkaista ongelmat ja antaa maahanmuuttajille mahdollisuus elää Suomessa, presidentti Niinistö sanoo.
+
+## Metroliikenne Helsingissä poikki
+
+![Metro Matinkylän asemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10013336)
+
+Avaa kuvien katselu
+
+Metroliikenne on viikonloppuna poikki melkein koko Helsingissä. Kuva: Henrietta Hassinen / Yle
+
+Helsingin seudun metroliikenteessä on viikonloppuna isoja muutoksia. Metro kulkee viikonloppuna vain Lauttasaaren ja Matinkylän välillä.
+
+Metro ei kulje Lauttasaaren ja Vuosaaren eikä Lauttasaaren ja Mellunmäen välillä. Metroliikenne Lauttasaaresta itään on poikki koko viikonlopun ajan. Metrojunat korvataan busseilla.
+
+Metroliikenne on poikki teknisten töiden takia.
+
+## Tv-ohjelmien Venla-palkinnot on jaettu
+
+![Mikko Kekäläinen ja Susanna Laine katsovat kameraan ja hymyilevät.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5360225c38883a5d781/1547208795)
+
+Avaa kuvien katselu
+
+Mikko Kekäläinen ja Susanna Laine juontavat Puoli seitsemän -ohjelmaa. Kuva: Ilmari Fabritius / Yle Kuvapalvelu
+
+Viime vuoden parhaat tv-ohjelmat on palkittu. Palkinnot jaettiin Venla-gaalassa perjantaina. Palkintoja annettiin monessa eri sarjassa.
+
+Ylen Sohvaperunat sai parhaan viihdeohjelman palkinnon. Ohjelmassa esiintyy tavallisia ihmisiä, jotka katsovat ja kommentoivat televisio-ohjelmia.
+
+Myös yleisö äänesti omaa suosikkiohjelmaa. Eniten ääniä sai Ylen ohjelma Puoli seitsemän. Se nähdään joka arki-ilta kello 18.30 TV1:ssä, ja ohjelma löytyy myös Yle Areenasta.

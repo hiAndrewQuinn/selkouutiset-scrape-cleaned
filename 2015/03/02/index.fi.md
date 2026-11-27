@@ -1,0 +1,69 @@
+# Maanantai 2.3.2015
+
+Helsingissä alkoi suuri oikeudenkäynti asfaltista. Laukaan surmista on pidätetty yksi mies. Viron pääministeri jatkaa uuden hallituksen johtajana. Helmikuu oli niin lauha, että ensimmäiset varhaisperunat voitiin istuttaa.
+
+## Helsingissä alkoi suuri oikeudenkäynti asfaltista
+
+![Asfalttikartellin oikeudenkäynti hovissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7838760)
+
+Avaa kuvien katselu
+
+Hovioikeus alkoi pohtia, paljonko asfalttikartellin yhtiöiden pitää maksaa korvauksia kunnille ja valtiolle.  Kuva: Merja Niilola / Yle
+
+Helsingin hovioikeudessa on alkanut suuri oikeudenkäynti asfalttikartellista. Yhteensä 39 kuntaa ja valtio vaativat korvauksia seitsemältä asfalttiyhtiöltä. Kunnat sanovat, että asfalttikartelli yritti poistaa kilpailun teiden päällystämisestä koko Suomessa.
+
+Kuntien mukaan asfalttiyhtiöt ovat saaneet niiltä liikaa rahaa jopa kahdeksan vuoden ajan. Kunnat sanovat, että yhtiöt ovat laskuttaneet niiltä liikaa 500 miljoonaa euroa. Kuntien mielestä asfalttikartelli on huijannut kuntia ja valtiota.
+
+Asfalttiyhtiöt eivät ole halunneet kommentoida kuntien vaatimuksia. Hovioikeuden päätös saattaa tulla vasta syksyllä.
+
+## Laukaan surmista on pidätetty yksi mies
+
+![Lippu puolitangossa laukaalaisen pizzerian edustalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7839674)
+
+Avaa kuvien katselu
+
+Laukaan surmassa kuoli kolme ihmistä.  Kuva: Yle
+
+Poliisi on pidättänyt miehen, jota epäillään Laukaan surmien tekijäksi. Poliisi on ilmoittanut, että se tutkii surmia kolmena tappona.
+
+Vielä ei tiedetä, miksi kolme henkilöä tapettiin pitseriassa. Yksi uhreista oli Turkin ja Suomen kansalainen. Kaksi muuta uhria olivat turkkilaisia. Myös pidätetty mies on Turkin kansalainen.  Hänet otettiin kiinni pitseriasta.
+
+## Viron pääministeri jatkaa uuden hallituksen johtajana
+
+![Taavi Rõivas.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7838419)
+
+Avaa kuvien katselu
+
+Viron pääministeri pysyy samana vaalien jälkeenkin.  Kuva: Thierry Charlier / AFP
+
+Viron nykyinen pääministeri on myös uuden hallituksen pääministeri. Virossa pidettiin eilen parlamenttivaalit. Ne voitti pääministeri Taavi Rõivaksen oikeistolainen reformipuolue. Voiton vuoksi Rõivaksen puolue voi päättää, mikä puolue tulee sen kanssa uuteen hallitukseen.
+
+Viron vaaleissa menettivät paljon kannatusta Isänmaa ja Res Publica. Viron parlamenttiin tulee myös kaksi uutta puoluetta, Vapaapuolue EVA ja EKRE, joka on konservatiivinen kansanpuolue.
+
+## Helmikuu oli hyvin lauha
+
+![Järvimaisema.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7822742)
+
+Avaa kuvien katselu
+
+Helmikuun keskilämpötila oli lähellä nollaa.  Kuva: Siru Päivinen / Yle
+
+Helmikuu oli tänä vuonna harvinaisen lauha. Ilmatieteen laitos kertoo, että sää oli tämän vuoden helmikuussa melkein samanlainen kuin viime vuoden helmikuussa.
+
+Sää oli lauhaa.  Esimerkiksi maan lounaisosassa keskilämpötila oli lähellä nollaa. Lapissakin keskilämpötila oli noin -8 astetta.
+
+Lämpimintä helmikuussa oli kymmenes helmikuuta Kaarinassa, Varsinais-Suomessa. Silloin Kaarinassa mitattiin 9,6 lämpöastetta.
+
+Luntakin oli suuressa osassa Suomea vähemmän kuin normaalisti helmikuussa.
+
+## Varhaisperunat on istutettu maahan jo helmikuussa
+
+![Mies kävelee pellon laidalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7839087)
+
+Avaa kuvien katselu
+
+Antti Ruohonen istutti perunat lauantaina harson alle Rymättylässä.  Kuva: Lassi Lähteenmäki / Yle
+
+Lauhan sään takia varhaisperunan istutus on alkanut erittäin aikaisin. Ensimmäiset perunat istutettiin maahan Paraisilla lähellä Turkua viime torstaina, eli jo helmikuussa.
+
+Varhaisperunaa ei ilmeisesti vielä koskaan ole istutettu helmikuussa.

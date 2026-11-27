@@ -1,0 +1,67 @@
+# Sunnuntai 14.4.2019 (radio)
+
+Suomessa on järjestetty eduskuntavaalit. Vaalitulos on tasainen. Voittajia ovat vasemmistopuolueet ja vihreät. Myös perussuomalaiset menestyivät hyvin. Suurin häviäjä on keskusta. Urheilua: Suomi sai MM-hopeaa naisten jääkiekossa.
+
+## Oppositiopuolueet menestyivät vaaleissa
+
+![Antti Rinne SDP:n vaalivalvojaisissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10738765)
+
+Avaa kuvien katselu
+
+SDP:n puheenjohtaja Antti Rinne voitti vaalit. Kuva: Jyrki Lyytikkä / Yle
+
+Suomessa on järjestetty vaalit. Suomalaiset valitsivat 200 kansanedustajaa Suomen parlamenttiin eli eduskuntaan.
+
+Vaalitulos on tasainen. Suurista puolueista SDP, perussuomalaiset ja kokoomus saivat melkein yhtä paljon ääniä.
+
+Voidaan sanoa, että vaalien voittajia ovat vasemmistopuolueet ja vihreät. SDP on ehkä uuden eduskunnan suurin puolue. Myös vasemmistoliitto ja vihreät saavat enemmän kansanedustajia kuin edellisissä vaaleissa 4 vuotta sitten.
+
+Vasemmistopuolueet ja vihreät ovat olleet oppositiossa. Ne eivät ole olleet hallituksessa. Siksi ne ehkä saivat ääniä ihmisiltä, jotka eivät ole olleet tyytyväisiä hallitukseen.
+
+## Pääministerin puolue hävisi vaalit
+
+![Juha Sipilä eduskuntavaalien median tulosillassa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10738941)
+
+Avaa kuvien katselu
+
+Keskustan puheenjohtaja Juha Sipilä hävisi vaalit. Kuva: Martti Kainulainen / Lehtikuva
+
+Vaalien häviäjä on keskusta. Keskusta on pääministeri Juha Sipilän puolue. Keskusta on ollut eduskunnan ja hallituksen suurin puolue, mutta nyt keskustan kansanedustajien määrä vähenee.
+
+Toinen iso hallituspuolue eli kokoomus menestyi paremmin kuin keskusta. Kokoomus menestyi näissä vaaleissa suunnilleen yhtä hyvin kuin edellisissä eduskuntavaaleissa.
+
+Kolmas hallituspuolue eli siniset häviää vaalit. Se ei saa yhtään kansanedustajaa uuteen eduskuntaan. Sininen puolue syntyi noin 2 vuotta sitten, kun perussuomalaiset-puolue hajosi.
+
+Perussuomalaiset on ollut viime vuodet oppositiossa. Nyt perussuomalaiset menestyivät hyvin, ja siitä tulee yksi uuden eduskunnan suurista puolueista.
+
+## Eduskunta päättää Suomen laeista
+
+![Eduskunnan kyselytunti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10667524)
+
+Avaa kuvien katselu
+
+Eduskunta päättää Suomen asioista. Kuva: Yle 
+
+Eduskunnassa on siis 200 kansanedustajaa. Kansanedustajilla on tärkeitä tehtäviä.
+
+Kansanedustajat päättävät, mitä lakeja Suomessa on. He päättävät myös siitä, mihin valtio käyttää rahaa.
+
+Eduskunnan päätökset vaikuttavat kaikkien suomalaisten elämään.
+
+## Suomi sai MM-hopeaa
+
+![USA maailmanmestari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10739236)
+
+Avaa kuvien katselu
+
+USA voitti Suomen loppuottelussa. Kuva: Lehtikuva
+
+Vielä urheilua: Suomi on saanut MM-hopeaa naisten jääkiekossa. Suomi hävisi loppuottelussa USA:lle.
+
+Peli oli jännittävä. Kun peliaika loppui, tilanne oli 1 - 1. Sen jälkeen alkoi jatkoaika. Jatkoajan voittaa se, joka tekee ensimmäisen maalin.
+
+Suomi teki maalin, ja suomalaiset juhlivat jo voittoa, mutta tuomarit eivät hyväksyneet maalia.
+
+Jatkoaika loppui ilman maalia. Seurasi rangaistuslaukauskilpailu. Siinä USA oli parempi kuin Suomi.
+
+USA sai siis MM-kultaa ja on maailmanmestari. Suomi jäi hopealle.

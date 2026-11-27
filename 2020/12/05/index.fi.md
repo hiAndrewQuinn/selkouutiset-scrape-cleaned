@@ -1,0 +1,69 @@
+# Lauantai 5.12.2020 (radio)
+
+Vanhusten rajoitukset. Turvallisuustilanne. USA Somaliassa. Itsenäisyyspäivä. Sääennuste.
+
+## Vanhusten koronarajoitukset
+
+![Myyrmäen vanhustenkeskus, Vantaa.](https://img.img-cdn.yle.fi/crop_extract,w_4939,h_2778,x_0,y_46/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6490095e5d206d43e75/1583162907)
+
+Avaa kuvien katselu
+
+Eduskunnan oikeusasiamies on sanonut, että tartuntatautilain perusteella ei saa rajoittaa paljon vanhusten elämää. Kuva: Eleni Paspatis / Yle
+
+Vanhusten koronarajoituksissa voi olla ongelmia. Hoitokodeissa ja hoivakodeissa on rajoitettu vanhusten oikeuksia koronan takia.
+
+Esimerkiksi vanhus ei ole saanut mennä ulos tai vanhus ei ole saanut tavata omaisia.
+
+Vanhustyön asiantuntija, geriatrian emeritaprofessori **Marja Vaarama** sanoo, että osa vanhusten koronarajoituksisista voi olla lainvastaisia.
+
+## Itämeren turvallisuustilanne
+
+![Puolustusministeri, Antti Kaikkonen, Kesk.](https://img.img-cdn.yle.fi/crop_extract,w_4877,h_2743,x_0,y_251/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6457685e4fee3ee3888/1582297420)
+
+Avaa kuvien katselu
+
+Puolustusministeri Antti Kaikkonen on Suomen puolustusministeri ja keskustapuolueen kansanedustaja.  Kuva: Antti Kolppo / Yle
+
+Puolustusministeri **Antti Kaikkonen** sanoo, että turvallisuustilanne Itämerellä on muuttunut pysyvästi.
+
+Kaikkonen oli vieraana Ylen Ykkösaamu-ohjelmassa TV:1ssä. Hän arvioi, että turvallisuustilanne Itämerellä muuttui sen jälkeen, kun Venäjän ja Ukrainan välit huononivat vuonna 2014. Silloin Venäjä valtasi Krimin niemimaan Ukrainalta. Itämerellä liikkuu nyt aiemaa enemmän sotilaslentokoneita ja sotilaslaivoja.
+
+Suomen armeijalle tulee paljon aiempaa enemmän tunnistustehtäviä, eli pitää mennä katsomaan, minkä maan sotilaslaiva tai sotilaslentokone Itämerellä liikkuu.
+
+## USA vähentää sotilaita Somaliassa ja muissa maissa
+
+![Etualalla näkyy soitlaan olkapää ja käsivarressa Yhdysvaltain lippu ja 101. maahanlaskujoukkojen tunnus. Taustalla näkyy somalialaisia sotilaita.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_447/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7474545fc1033314190/1607139461)
+
+Avaa kuvien katselu
+
+Etualalla näkyy sotilaan olkapää ja käsivarressa Yhdysvaltain lippu ja 101. maahanlaskujoukkojen tunnus. Taustalla näkyy somalialaisia sotilaita. Kuva: PJF Military Collection / Alamy / AOP
+
+USA vetää pois paljon sotilaita Somaliasta.
+
+Presidentti **Donald Trump** antaa määräyksen, että suurin osa USA:n sotilaista vedetään pois Somaliasta ensi vuoden alussa. USA:lla on Somaliassa noin 700 sotilasta.
+
+Presidentti Trump sanoo, että USA vähentää sotilaita myös Afganistanissa ja Irakissa.
+
+## Sunnuntaina on Suomen itsenäisyyspäivä
+
+![Suomen Lippu liehuu salossa](https://img.img-cdn.yle.fi/crop_extract,w_4154,h_2337,x_0,y_214/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4482345a27ae2854b8e/1512550066)
+
+Avaa kuvien katselu
+
+Suomenlippu. Kuva: Pekka Tynell / Yle
+
+Huomenna sunnuntaina on Suomen itsenäisyyspäivä. Sitä juhlitaan tänä vuonna eri tavalla kuin aiemmin. Esimerkiksi itsenäisyyspäivän lipunnosto aamulla on siirretty Helsingistä Hämeenlinnaan.
+
+Presidentinlinnassa ei ole isoja juhlia. Linnassa on kuitenkin esiintyjiä ja erilaista ohjelmaa, jota voi katsoa televisiosta.
+
+Yle lähettää sunnuntaina paljon ohjelmaa itsenäisyyspäivän tapahtumista.
+
+## Sää
+
+![Lunta maassa varhain aamulla Helsingissä 20. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11657643)
+
+Avaa kuvien katselu
+
+Pohjois-Suomessa sataa lunta. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Sunnuntaina maan keskiosassa sataa vettä tai räntää, pohjoisessa sataa vettä tai lunta. Etelässä sataa paikoin tihkusadetta. Lämpötila on päivällä 0 ja +7 asteen välillä.

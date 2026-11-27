@@ -1,0 +1,79 @@
+# Lauantai 16.6.2018 (radio)
+
+Suomen ilmavoimat viettää 100-vuotisjuhlaa. SM-rallissa sattui kuolonkolari. Puolet suomalaisista kannattaa tunnelia Helsingin ja Tallinnan välille.Suomeen tuodaan paljon katukoiria ulkomailta. Ensi yönä juostaan Jukolan viesti.
+
+## Suomen ilmavoimat juhlii
+
+![Midnight Hawks.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10259134)
+
+Avaa kuvien katselu
+
+Ilmavomien juhlanäytöksissä esiintyy myös taitolentoryhmä Midnight Hawks. Kuva: Pyry Koivunen
+
+Suomen ilmavoimat viettää viikonlopun aikana 100-vuotisjuhlaa.
+
+Juhlan kunniaksi ilmavoimat järjestää Tikkakoskella Keski-Suomessa ison lentonäytöksen lauantaina ja sunnuntaina.
+
+Näytöksissä esitellään ilmavoimien vanhaa ja uutta kalustoa. Lisäksi nähdään 5 eri hävittäjää, joiden ostamista Suomi vasta harkitsee. Ilmailunäytöksiin odotetaan viikonlopun aikana 30 000 ihmistä
+
+## Onnettomuus rallikilpailussa
+
+![kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10258648)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Seinäjoella on sattunut onnettomuus rallikilpailussa. Onnettomuus sattui perjantai-iltana rallin SM-osakilpailussa.
+
+Ralliauto suistui pois tieltä ja törmäsi naiseen, joka oli katsomassa kilpailua. Nainen kuoli heti.
+
+Kisajärjestäjät sanovat, että nainen katsoi kilpailua alueella, joka on luokiteltu vaaralliseksi. Alue ei kuitenkaan ollut kielletty tai suljettu yleisöltä.
+
+Onnettomuustutkintakeskus tutkii onnettomuutta.
+
+## Tunneli Tallinnaan
+
+![Helsinki-Tallinna matka-aikojen vertailu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10095072)
+
+Avaa kuvien katselu
+
+Tunneli lyhentää matka-aikaa Helsingin ja Tallinnan välillä. Kuva: Yle Uutisgrafiikka
+
+Melkein puolet suomalaisista kannattaa rautietunnelin rakentamista Helsingin ja Tallinnan välille.
+
+Uutissuomalainen kysyi tuhannelta suomalaiselta, mitä mieltä he ovat tunnelista. Melkein 50 prosenttia kannatti ja vähän yli 30 prosenttia vastusti tunnelia.
+
+Eniten tunnelin kannattajia oli kokoomuksen äänestäjissä. Tunnelin vastustajia taas oli eniten perussuomalaisten äänestäjissä.
+
+## Kodittomat koirat
+
+![Koditon koira jalkakäytävällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10249733)
+
+Avaa kuvien katselu
+
+Koditon koira jalkakäytävällä. Kuva: Narong Sangnak / EPA
+
+Suomeen tuodaan paljon niin sanottuja rescue-koiria ulkomailta.
+
+Rescue-koira on kulkukoira, joka on elänyt kadulla eli sillä ei ole kotia.
+
+Esimerkiksi viime vuonna Suomeen tuotiin ehkä noin 2000 rescue-koiraa. Monet koirat tulivat Suomeen Espanjasta, Kreikasta tai Venäjältä.
+
+Helsingin eläinsuojeluyhdistys sanoo, että suomalaiset eivät usein huomaa, että myös Suomessa on kodittomia koiria. Esimerkiksi Helsingin eläinsuojeluyhdistyksellä on paljon koiria, jotka etsivät uutta kotia.
+
+## Jukolan viesti
+
+![Venlojen viestin lähtö 2018, Krista Pärmäkoski ja Aino-Kaisa Saarinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10259112)
+
+Avaa kuvien katselu
+
+Ennen Jukolan viestiä oli Venlojen viesti eli naisten suunnistuskilpailu. Kuva: Tomi Hänninen
+
+Tänä viikonloppuna järjestetään Suomen suurin suunnistustapahtuma Jukolan viesti. Suunnistusviesti juostaan tällä kertaa Lahden ja Hollolan metsissä.
+
+Jukolan viestiin osallistuu noin 20 000 suunnistajaa. Mukana on maailman huippusuunnistajia, mutta myös tavallisia kuntoilijoita.
+
+Jukolan viesti alkaa illalla noin kello 23. Se kestää yli yön ja osa matkasta juostaan otsalampun valossa.
+
+Suunnistuksessa etsitään metsästä rasteja eli merkittyjä paikkoja. Apuna on kartta ja kompassi.

@@ -1,0 +1,77 @@
+# Maanantai 19.6.2017 (radio)
+
+Suomeen aiotaan perustaa uusi puolue. Suomeen syntyy uusi iso rakennusfirma. Presidentti Macronin puolue on voittanut Ranskan parlamenttivaalit. Mies ajoi autolla ihmisten päälle Lontoossa. Matkustajat eivät voi enää ostaa lippuja lähijunissa.
+
+## Sininen tulevaisuus
+
+![Uuden vaihtoehdon ryhmäjohtaja Simon Elo (vas.), ministeri Sampo Terho ja varapuheenjohtaja Tiina Elovaara.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9678483)
+
+Avaa kuvien katselu
+
+Sinisen tulevaisuuden perustajat ovat entisiä perussuomalaisia. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Suomeen aiotaan perustaa uusi poliittinen puolue. Suunnitelma on, että puolueen nimeksi tulee Sininen tulevaisuus.
+
+Suunnitelman tekijät ovat kansanedustajia, jotka kuuluivat ennen perussuomalaisten puolueeseen. Perussuomalaisten puolue hajosi sen jälkeen, kun perussuomalaisten puheenjohtaja vaihtui. Osa perussuomalaisten kansanedustajista perusti eduskuntaan eli Suomen parlamenttiin oman ryhmän, ja nyt he aikovat perustaa oman puolueen.
+
+Uuden puolueen perustamiseen tarvitaan 5000 kannattajan nimet. Nimien kerääminen alkaa pian.
+
+## Uusi rakennusfirma
+
+![Rakennusmies työssä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9624812)
+
+Avaa kuvien katselu
+
+Kun uusi rakennusfirma aloittaa, sillä on 10.000 työntekijää. Kuva: Jari Kovalainen / Yle
+
+Suomeen syntyy uusi iso rakennusfirma. Uusi firma syntyy, kun 2 rakennusfirmaa menee yhteen. Ne ovat YIT ja Lemminkäinen.
+
+Uudesta firmasta tulee Suomen isoin rakennusfirma. Sillä on noin 10.000 työntekijää.
+
+Uusi rakennusfirma aloittaa marraskuussa tai sen jälkeen. Viranomaisten pitää vielä hyväksyä, että YIT ja Lemminkäinen yhdistyvät.
+
+## Ranskan vaalit
+
+![Macron äänestyskopin edessä äänestyslippu kädessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9677574)
+
+Avaa kuvien katselu
+
+Ranskan presidentti Emmanuel Macron. Kuva: Christophe Archambault / EPA
+
+Ranskassa on ollut parlamenttivaalit. Vaalien voittaja on presidentti Emmanuel Macronin puolue.
+
+Voitto on presidentille tärkeä. Macron tarvitsee omalle politiikalle parlamentin tuen.
+
+Macron aloitti Ranskan presidenttinä toukokuussa. Hän haluaa uudistaa Ranskaa.
+
+Ranskalaiset äänestivät parlamenttivaaleissa laiskasti. Vain 43 prosenttia aikuisista ranskalaisista kävi äänestämässä.
+
+## Lontoon hyökkäys
+
+![Poliisiviranomaisia turmapaikalla Finsbury Parkin alueella maanantaiaamuna 19. kesäkuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9678193)
+
+Avaa kuvien katselu
+
+Tapahtumapaikka on Finsbury Parkin alueella. Kuva: Tolga Akmen / AFP 
+
+Britanniassa on tapahtunut hyökkäys autolla.
+
+10 ihmistä loukkaantui, kun mies ajoi autolla ihmisten päälle Lontoossa. Paikalla kuoli myös 1 ihminen, mutta kuoleman syy ei ole vielä varma.
+
+Loukkaantuneet ovat muslimeja, koska paikan lähellä on 2 moskeijaa. Toinen niistä on suuri Finsbury Parkin moskeija.
+
+Poliisi on pidättänyt auton kuljettajan.
+
+## Lähijunien liput
+
+![Matkustajia Pitäjänmäen juna-asemalla Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9678575)
+
+Avaa kuvien katselu
+
+Matkustajalla pitää olla lippu, kun hän menee lähijunaan. Kuva: Mikko Stig / Lehtikuva 
+
+Matkustajat eivät voi enää ostaa lippuja lähijunissa. Lippujen myynti lähijunissa loppui maanantaina.
+
+Matkustajan pitää ostaa lippu ennen matkaa. Hän voi maksaa matkan myös matkakortilla. Konduktöörit tarkastavat lähijunissa, että matkustajilla on liput.
+
+Lippuja voi vielä ostaa lähijunissa, jotka kulkevat Riihimäen ja Lahden välillä. Syy on se, että reitin varrella on vielä asemia, joilla ei ole lippuautomaatteja.

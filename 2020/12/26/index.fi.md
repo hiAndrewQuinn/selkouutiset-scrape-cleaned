@@ -1,0 +1,99 @@
+# Lauantai 26.12.2020 (radio)
+
+Koronarokotteet. Suomen koronaluvut. Jouluruokaa roskiin. Talven pakkasennätys. Säätietoja.
+
+## Suomi sai koronarokotteita
+
+![Kaksi ihmistä nostaa laatikkoa isommasta laatikosta](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_267/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7574995fe7024d1af29/1608974990)
+
+Avaa kuvien katselu
+
+Ensimmäinen koronarokotelähetys tuli Suomeen. Kuva: EPA / Nicolas Maeterlinck
+
+Suomi on saanut ensimmäset koronarokotteet. Ensimmäisessä erässä on melkein 10 000 rokoteannosta.
+
+Rokotteet kuljetetaan isoihin sairaaloihin eri puolelle Suomea.
+
+Terveysviranomaiset eivät kerro tarkasti, miten rokotteita kuljetetaan tai missä niitä säilytetään.
+
+Rikolliset voivat olla kiinnostuneita ryöstämään rokotteita.
+
+Suomessa rokotukset alkavat huomenna.
+
+Ensimmäisenä rokotetaan sairaanhoitajia ja lääkäreitä, jotka hoitavat koronapotilaita.
+
+## EU-maat aloittavat nyt koronarokotukset
+
+![Koronavirusrokotepakkauksia.](https://img.img-cdn.yle.fi/crop_extract,w_5143,h_2893,x_0,y_538/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7566555fe0de4d4d6b0/1608644465)
+
+Avaa kuvien katselu
+
+EU-maissa käytetään Pfizerin ja BioNTechin koronarokotetta. Kuva: Patrick T. Fallon / AFP
+
+Myös monet muut Euroopan maat saivat tänään koronarokotteita.
+
+Ainakin Ruotsi, Norja, Ranska ja Espanja saivat rokotteita. EU-maat saivat kaikki samaa koronarokotetta.
+
+Rokotusten on määrä alkaa EU:n jäsenmaissa huomenna sunnuntaina.
+
+Aluksi kaikissa maissa rokotetaan melko vähän ihmisiä. Jokaiselle ihmiselle pitää antaa 2 rokoteannosta.
+
+EU on hyväksynyt vasta 1 lääketehtaan koronarokotteen.
+
+## Suomen koronatartunnat
+
+![Suojavarusteisiin pukeutunut hoitaja liikuteltavassa koronatestausrekassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11680561)
+
+Avaa kuvien katselu
+
+Koronatestiin pääsee vaikka on juhlapäivä. Kuva: Sami Takkinen / Yle
+
+Tänään tapaninpäivänä Suomessa on raportoitu 173 uutta koronatartuntaa.
+
+Niistä suurin osa on Helsingin seudulla.
+
+Tartuntoja tulee varmasti enemmän joulun jälkeen.
+
+## Jouluruokaa heitetään roskiin
+
+![joulupöytä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9371167)
+
+Avaa kuvien katselu
+
+Moni ostaa likaa jouluruokaa. Kuva: Nella Nuora / Yle
+
+Jouluna suomalaiset syövät paljon perinteisiä jouluruokia.
+
+Mutta usein ruokaa on liikaa.
+
+Kyselyssä selvisi, että yli puolet suomalaisista heittää jouluruokaa roskiin joulun jälkeen.
+
+Vastaajat sanoivat, että ruokaa on ollut tarjolla liian paljon. Monet sanoivat myös, että he kyllästyivät jouluruokiin.
+
+Oli muitakin syitä, miksi ruokaa heitetään pois. Jotkut sanoivat, että jouluruoka on liian täyttävää.
+
+Jotkut sanoivat, että valmisruoat ovat liian isoissa pakkauksissa.
+
+## Talven pakkasennätys
+
+![Wilderness hotel Inarin igluja rantamaisemassa](https://img.img-cdn.yle.fi/crop_extract,w_3500,h_1969,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7343235f96c1afd81bd/1603716137)
+
+Avaa kuvien katselu
+
+Tässä kuvassa Inarijärvi on vielä sula. Nyt se on varmasti jäätynyt. Kuva: Vesa Toppari / Yle
+
+## Etelässä sää lauhtuu
+
+![kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11715295)
+
+Avaa kuvien katselu
+
+Tänään Lapissa on ollut kova pakkanen.
+
+Utsjoen Kevojärvellä pakkasta oli tänään 40,1 astetta.
+
+Huomenna sunnuntaina pakkanen lauhtuu eli sää lämpenee Etelä-Suomessa.
+
+Lapissa voi vielä olla kovaa pakkasta.
+
+Maan länsiosassa voi sataa lunta. Muualla on poutaa eli ei sada mitään.

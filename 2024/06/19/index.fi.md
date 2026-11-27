@@ -1,0 +1,74 @@
+# TV \| Selkouutiset \| keskiviikko 19.6.2024
+
+Käännytyslaki. Ennallistaminen. Vuoden pakolainen. Sääennuste.
+
+## Käännytyslaki
+
+Aluksi uutinen käännytyslaista.
+
+Perustuslakivaliokunta on saanut valmiiksi lausunnon käännytyslaista.
+
+Käännytyslailla voidaan estää turvapaikanhaku Suomen rajalla.
+
+Lakia voidaan käyttää, jos esimerkiksi Venäjä alkaa lähettää Suomen rajalle siirtolaisia.
+
+Perustuslakivaliokunta sanoo, että käännytyslaki voidaan hyväksyä, kun siihen tehdään joitakin tarkennuksia.
+
+Valiokunta haluaa, että ihmisellä pitää olla mahdollisuus tehdä valitus käännytyksestä.
+
+Perustuslakivaliokunta on saanut valmiiksi lausunnon käännytyslaista.
+
+Monet oikeusasiantuntijat sanovat, että laki on ristiriidassa ihmisoikeussopimusten kanssa.
+
+Lain hyväksymisestä päättää eduskunta.
+
+## EU:n ennallistamisasetus
+
+Nyt uutinen EU-politiikasta.
+
+Tämä on vanha suo Hämeenlinnan Evolla.
+
+Suossa oli ojia, että suo kuivuu. Ojat on poistettu. Suo on ennallistettu suoksi.
+
+EU:n ympäristöministerit ovat hyväksyneet kiistellyn ennallistamisasetuksen.
+
+Asetus hyväksyttiin tiukalla äänestyksellä. Esimerkiksi Suomi äänesti vastaan. Suomen hallitus on arvioinut, että ennallistaminen on Suomelle tosi kallista.
+
+EU:n ympäristöministerit ovat hyväksyneet kiistellyn ennallistamisasetuksen.
+
+## Vuoden pakolainen
+
+Lopuksi uutinen vuoden pakolaisesta.
+
+Vuoden pakolainen on **Sa Myer Oo**.
+
+Hän syntyi pakolaisleirillä Thaimaassa. San perhe on kotoisin Myanmarista. Perhe kuuluu karen-vähemmistöön, jota sorretaan.
+
+Sa Myer Oon lapsuudessa oli köyhyyttä ja pelkoa.
+
+*"Oli paljon köyhyyttä ja oli turvatonta, pelkoa. Edelleenkin musta tuntuu, että se pelko seuraa muo."*
+
+Suomessa San perhe asui ensin Hangossa.
+
+Siellä Sa tunsi ensimmäistä kertaa, että on turvallista.
+
+Nyt Sa Myer Oo asuu Vaasassa. Hän opiskelee sosionomiksi.
+
+Sa kokee, että hän on saanut arvokkuuden takaisin Suomessa. Sa on kiitollinen Suomelle ja suomalaisille.
+
+*"Täällä mä oon saanut oppia tosi paljon elämästä, itsestäni, olen saanut mun arvokkuuden takaisin."*
+
+Vuoden pakolainen on vaasalainen Sa Myer Oo.
+
+Valinnan teki Suomen Pakolaisapu ry.
+
+## Sää
+
+Vielä sääennuste.
+
+Torstaina etelässä ja lännessä on poutaa, muualla voi sataa.
+
+Päivä on pilvinen.
+
+Lämpötila on 15 ja 20 asteen välillä. Lapissa lämpötila voi olla alle 10 astetta.
+

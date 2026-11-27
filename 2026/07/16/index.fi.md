@@ -1,0 +1,57 @@
+# Selkouutiset | torstai 16.7.2026
+
+Orpo ja Garden-hanke. Ylinopeus. Jalkapallon MM-kisat. Perjantain sää.
+
+## Orpo ja Garden-hanke
+
+Aluksi aiheena on hallikiista.
+
+Pääministeri **Petteri Orpo** puolustaa hallituksen toimia Helsingin Garden-hankkeessa.
+
+Orpo oli eilen illalla vieraana Ylen A-studiossa.
+
+Orpo sanoo, että hallitus käsittelee Garden-hankkeen tukirahoja uudelleen syyskuussa.
+
+Hallitus myönsi hallihankkeelle 35 miljoonaa euroa tukirahaa. Päätös on herättänyt paljon arvostelua, sillä rahaministeriö ei kannattanut tukea. Hankkeessa on myös mukana kokoomuksen eli Orpon puolueen tukijoita.
+
+Orpo vakuuttaa, että kyse ei ole korruptiosta:
+
+– Minä ymmärrän sen, että tämähän ei näytä siis oikeasti varmasti hyvältä ja moni miettii, että onko tässä jotain hämärää. Mutta minä voin vakuuttaa, että ei ole.
+
+Pääministeri Orpo puolustaa hallituksen toimia Helsingin Garden-hankkeessa.
+
+Oppositiopuolueet haluavat, että eduskunta keskeyttää kesätauon ja kokoontuu käsittelemään asiaa.
+
+## Ylinopeus
+
+Sitten aiheena on ylinopeus.
+
+Poliisi on tiukentanut ylinopeuden valvontaa. Nyt myös pienestä ylinopeudesta voi saada sakkoa.
+
+Lievästä ylinopeudesta määrätyt sakot ovat lisääntyneet vuodessa yli 80 prosenttia. Kaikkiaan sakkoja kertyi yli 140 000 kappaletta.
+
+Lievä ylinopeus tarkoittaa, että ylinopeutta on alle 10 kilometriä tunnissa.
+
+Poliisi on tiukentanut ylinopeusvalvontaa. Tavoite on vähentää liikenneonnettomuuksia.
+
+## Jalkapallon MM-kisat
+
+Lopuksi jalkapalloa.
+
+Jalkapallon MM-kisojen loppuottelussa pelaavat Argentiina ja Espanja.
+
+Argentiina voitti eilen illalla välierässä Englannin. Lopputulos oli 2-1.
+
+Espanja puolestaan voitti tiistaina Ranskan.
+
+Jalkapallon MM-finaali pelataan Yhdysvalloissa sunnuntai-iltana. Maailmanmestaruutta tavoittelevat Argentiina ja Espanja.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Sää on lähes koko maassa poutainen eli ei sada.
+
+Etelässä on lämmintä noin 25 astetta.
+
+Pohjoisessa on vähän viileämpää.

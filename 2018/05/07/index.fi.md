@@ -1,0 +1,7 @@
+# Maanantai 7.5.2018 (tv)
+
+Aktiivimallista ei ole hyötyä pienille yrityksille. Neste Oil yrittää tehdä jätemuovista polttainetta. Ploggaus tarkoittaa, että juoksulenkillä poimitaan samalla roskia. Helsingin seudulla oli viikonloppuna monta hauskaa juoksutapahtumaa.
+
+Yle Uutiset selkosuomeksi
+
+Aktiivimallista ei ole hyötyä pienille yrityksille. Neste Oil yrittää tehdä jätemuovista polttainetta. Ploggaus tarkoittaa, että juoksulenkillä myös poimitaan roskia. Helsingin seudulla oli viikonloppuna monta hauskaa juoksutapahtumaa.

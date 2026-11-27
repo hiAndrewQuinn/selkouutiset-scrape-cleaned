@@ -1,0 +1,83 @@
+# Saturday 9.10.2021 (radio)
+
+Nurses. Corona support. Psychotherapy centre Vastaamo. Depression. Moose hunting. Weather forecast.
+
+## Nurses' work
+
+![Carita Vuorenpää and Lotta Lantto, operating theatre nurses, at the washing area of the Anaesthesia and Surgery K department at Jorvi hospital.](https://img.img-cdn.yle.fi/crop_extract,w_2289,h_1288,x_337,y_87/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7023685f1ac4462499d/1598963857)
+
+Open image viewer
+
+A nurse puts on protective clothing. Photo: Henrietta Hassinen / Yle
+
+Nurses are being tempted to do more work.
+
+There is a shortage of nurses in hospitals. That is why nurses are called to extra shifts, for which they are paid an extra allowance. Nurses are asked to do overtime or, for example, an on-call shift.
+
+The nurses' organisation Tehy says that the situation is not good. Tehy says that more nurses should be hired to hospitals.
+
+## Corona support
+
+![Minister of Economic Affairs Mika Lintilä as a guest on Ykkösaamu on 9 October.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_202/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-86486661614228a5ba3/1633764134)
+
+Open image viewer
+
+Minister of Economic Affairs Mika Lintilä was in Yle's interview on Saturday. Photo: Petteri Sopanen / Yle
+
+Finland is arranging a fifth round of aid for firms. A firm can apply for aid if the firm has done badly because of the corona situation.
+
+Aid is given, for example, to event organisers and restaurants.
+
+Minister of Economic Affairs **Mika Lintilä** told Yle in an interview that the money for the fifth round of aid has been added to the supplementary budget proposal.
+
+## Psychotherapy centre Vastaamo
+
+![Vastaamo's logo.](https://img.img-cdn.yle.fi/crop_extract,w_5195,h_2922,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7676376013b40835829/1611904070)
+
+Open image viewer
+
+The operations of the Vastaamo psychotherapy centre have ended. Photo: Lehtikuva
+
+The bankruptcy estate of the Vastaamo psychotherapy centre has calculated how much patients can get in compensation for the data breach.
+
+The data of thousands of Vastaamo patients was stolen a few years ago.
+
+Vastaamo's operations ended this year in bankruptcy. The bankruptcy estate of Vastaamo estimates that patients whose data was stolen can get damages of at most 2 500 euros.
+
+## Depression and corona
+
+![A woman in a yellow padded jacket on the beach looks towards the horizon.](https://img.img-cdn.yle.fi/crop_extract,w_4869,h_2739,x_535,y_297/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80709460a281a118945/1624778676)
+
+Open image viewer
+
+The corona time has increased depression and anxiety. Photo: Petteri Bülow / Yle
+
+The corona situation has increased people's depression all over the world. A recent study says that last year about 25 per cent more people than before experienced anxiety or depression.
+
+Especially the anxiety and depression of young women increased last year because of the corona situation.
+
+Anxiety and depression increased a lot in countries that had strict corona restrictions and a difficult corona situation.
+
+## Moose hunting
+
+![Young male moose](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-8895542269d32f13b/1411644763)
+
+Open image viewer
+
+Moose. Photo: Yle screenshot/Risto Salovaara
+
+Moose hunting has started on Saturday across the whole country.
+
+In Lapland, Northern Ostrobothnia and Kainuu, moose hunting started earlier in the autumn. Now moose hunting has also spread to the rest of Finland.
+
+Almost 42 000 moose-killing permits have been given for the autumn and winter moose hunts. That is about 13 per cent less than last year.
+
+## The weather
+
+![Sunday's weather map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12137073)
+
+Open image viewer
+
+On Sunday there will be rain. In Lapland the sun will also shine.
+
+On Sunday it rains at the level of Northern Ostrobothnia and Kainuu. Further south in Finland there may be showers. In western Lapland the sun shines at times. The temperature is between 10 and 13 degrees. In the north it is cooler.

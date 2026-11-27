@@ -1,0 +1,95 @@
+# Sunnuntai 23.8.2020 (radio)
+
+Valko-Venäjän mielenosoitukset. Navalnyi sairaalassa. Marin SDP:n puheenjohtajaksi. Suomen koronatartunnat. Miltä koronatesti tuntuu? Sää viilenee.
+
+## Valko-Venäjällä iso mielenosoitus
+
+![Ihmisiä matkalla mielenosoitukseen Valko-Venäjällä 23.elokuuta 2020. ](https://img.img-cdn.yle.fi/crop_extract,w_4249,h_2390,x_0,y_425/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7109595f4252c684735/1598183369)
+
+Avaa kuvien katselu
+
+Mielenosoittajat kokoontuivat sunnuntaina Valko-Venäjän pääkaupungissa Minskissä. Kuva: Yauhen Yerchak / EPA
+
+Valko-Venäjällä on tänään iso opposition mielenosoitus.
+
+Oppositio ja mielenosoittajat vaativat, että maan presidentti Aljaksandr Lukašenka eroaa.
+
+Presidentti Lukašenkan hallinto yrittää monin tavoin estää mielenosoituksia. Armeijan sotilaita on kaduilla pääkaupungissa Minskissä.
+
+Valko-Venäjällä on ollut isoja mielenosoituksia sen jälkeen, kun Lukašenka julistettiin taas presidentinvaalien voittajaksi. Vaaleja pidetään vilpillisinä.
+
+## Navalnyista ehkä uutta tietoa huomenna
+
+![Alexei Navalnyi tuotiin Berliiniläiseen sairaalaan 22. elokuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11506992)
+
+Avaa kuvien katselu
+
+Venäläinen oppositiojohtaja tuotiin eilen sairaalaan Berliiniin Saksaan. Kuva: Clemens Bilan / EPA
+
+Venäläistä oppositiojohtajaa Aleksei Navalnyia hoidetaan vielä sairaalassa Saksassa.
+
+Häntä tutkitaan myrkytysepäilyjen takia.
+
+Sairaala kertoo, että ehkä huomenna maanantaina lääkärit voivat kertoa, mitä tutkimuksissa on selvinnyt.
+
+## Sanna Marin SDP:n puheenjohtajaksi
+
+![Pääministeri ja puolueen puheenjohtajaksi valittu Sanna Marin Suomen Sosialidemokraattisen Puolueen 46. puoluekokouksessa Tampereella sunnuntaina 23. elokuuta 2020](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11507309)
+
+Avaa kuvien katselu
+
+Sanna Marin on nyt pääministeri ja SDP:n puoluejohtaja. Kuva: Mauri Ratilainen / EPA
+
+Pääministeri Sanna Marin on nyt SDP:n puheenjohtaja. SDP:n puoluekokous valitsi Marinin yksimielisesti, koska muita ehdokkaita ei ollut.
+
+Marin piti puheen uutena puolueen puheenjohtajana. Hän sanoi, että pitkäjänteinen työ puolueessa on johtanut hänet puheenjohtajaksi, mutta mukana on ollut myös sattumia, joita hän ei voinut tietää etukäteen.
+
+Pääministeri ja puoluejohtaja Sanna Marin on 34-vuotias. Puheenjohtajan kausi kestää 3 vuotta.
+
+## Paljon uusia koronatartuntoja Suomessa
+
+![Suojavarusteisiin pukeutunut rajavartija oli vastassa Suomeen Pohjois-Makedonian Skopjesta saapuvia matkustajia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11500879)
+
+Avaa kuvien katselu
+
+Ihmisillä, jotka palaavat ulkomailta Suomeen, on ollut paljon koronatartuntoja. Kuva: Jussi Nukari / Lehtikuva
+
+Viikonlopun aikana Suomessa on todettu yhteensä 49 uutta koronavirustartuntaa.
+
+Uusia tartuntoja on tullut paljon kahden viime viikon aikana.
+
+Yhteensä Suomessa on nyt todettu yli 7900 koronatartuntaa.
+
+Eniten tartuntoja on pääkaupunkiseudulla ja Länsi-Suomessa, Turun alueella.
+
+## Kamala, nopea, kutittava, siedettävä
+
+![Terveyspalveluyritys Mehiläisen koronaviruksen drive-in näytteenottopiste Espoossa 15. toukokuuta 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11502800)
+
+Avaa kuvien katselu
+
+Koronatesti voidaan tehdään niin, että asiakas istuu autossa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Yle kysyi suomalaisilta, miltä koronavirustestin ottaminen tuntuu.
+
+Hoitaja työntää testitikun nenään ja pyörittää tikkua.
+
+Yksi vastaaja kertoi, että tuntui kuin nenään olisi mennyt vettä. Toinen sanoi, että tuntui kuin pulloharja olisi työnnetty nenään.
+
+Testiä kuvattiin näillä sanoilla: kamala, kivulias, kutittava, siedettävä, nopea ja helppo.
+
+## Sää viilenee
+
+![Keltainen kukka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11507407)
+
+Avaa kuvien katselu
+
+Nyt on auringonkukkien aika, ennen kuin kesä vaihtuu syksyksi. Kuva: Minna Uusi-Eskola / YLE
+
+Vielä säätietoja.
+
+Ensi viikko alkaa epävakaisena. Huomenna maanantaina sadekuuroja tulee koko maassa.
+
+Ylihuomenna tiistaina sää poutaantuu ja aurinko paistaa.
+
+Nyt sää viilenee joka päivä.

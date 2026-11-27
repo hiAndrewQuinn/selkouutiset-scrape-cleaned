@@ -1,0 +1,65 @@
+# Maanantai 25.5.2015
+
+Hallitusneuvottelut ovat aivan loppusuoralla. Suomalaisten työurat ovat lyhyitä. Suomalaiset ja virolaiset haluavat lisää yhteistyötä. Uutta perunaa aletaan nostaa pian.
+
+## Hallitusneuvottelut ovat loppusuoralla
+
+![Kokoomuksen puheenjohtaja Alexander Stubb saapui Smolnaan Helsingissä maanantaina 25. toukokuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8014609)
+
+Avaa kuvien katselu
+
+Kokoomuksen puheenjohtaja Alexander Stubb saapui hallitusneuvotteluihin Smolnaan eli valtioneuvoston juhlahuoneistoon. Kuva: Jussi Nukari / Lehtikuva
+
+Hallitusneuvottelut ovat loppusuoralla eli alkavat olla valmiina.  Maanantain aikana on tarkoitus sopia viimeisestäkin yksityiskohdasta.
+
+Tiistaina ei enää neuvotella, ja uudesta hallituksesta kerrotaan keskiviikkona. Tulevien ministerien nimet tiedetään ehkä loppuviikolla.
+
+Ensin keskusta, perussuomalaiset ja kokoomus tutustuvat hallitusohjelmaan ja päättävät, menevätkö ne mukaan uuteen hallitukseen. Lisäksi hallitusohjelma käännetään muille kielille.
+
+## Suomessa työurat ovat lyhyitä työttömyyden takia
+
+![Asiakas menossa Kluuvin TE-keskukseen Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8014918)
+
+Avaa kuvien katselu
+
+TE-keskuksista ei kaikille löydy työtä. Esimerkiksi moni yli 60-vuotias on työttömänä. Kuva: Jarno Mela / Lehtikuva
+
+Suomalaisten työurat ovat edelleen lyhyitä, eli Suomessa ei olla tarpeeksi monta vuotta työssä.
+
+Työttömyys on suurin syy siihen, että työurat ovat lyhyitä. Työurat eivät ole pidentyneet 1990-luvun jälkeen, vaikka eläkeiät ovat nousseet.
+
+Kelan tutkija Pertti Honkanen sanoo, että työttömyys lyhentää työuraa enemmän kuin opiskelu tai hoitovapaat. Varsinkin 60 - 64-vuotiaiden työttömyys on kasvanut. Heillä työttömyys kestää ehkä 4,2 vuotta.
+
+## Viro on esillä Ylessä
+
+![Suhtautuminen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8008265)
+
+Avaa kuvien katselu
+
+Yle kysyi suomalaisilta ja virolaisilta, mitä he ajattelevat toisistaan.  Kuva: Yle Uutisgrafiikka
+
+Suomalaiset ja virolaiset haluavat lisätä Suomen ja Viron yhteistyötä.
+
+Ylen kyselyssä selvitettiin, miten suomalaiset ja virolaiset suhtautuvat toisiinsa. Eniten ihmiset haluavat lisätä matkailua, kulttuurivaihtoa ja kaupankäyntiä Suomen ja Viron välillä.
+
+Suomalaiset ja virolaiset ovat eri mieltä sotilasliitto Natosta ja sotilaallisesta yhteistyöstä.  Viro kuuluu Natoon, ja 70 prosenttia virolaisista haluaa sotilaallista yhteistyötä Suomen kanssa. Suomessa tätä haluaa vain kolmannes kyselyn vastaajista.
+
+Yle on kertonut maanantaina paljon eteläisestä naapuristaan Virosta radiossa, televisiossa ja netissä.
+
+## Uutta perunaa saadaan ehkä päättäjäisjuhliin
+
+![Pestyjä uusia perunoita kattilassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7333316)
+
+Avaa kuvien katselu
+
+Suomalaiset odottavat ensimmäisiä uusia perunoita joka kevät.  Kuva: Juha Peltoperä / Yle
+
+Suomessa keskustellaan joka kevät, milloin uusia perunoita eli varhaisperunoita saa ostaa. Uudet perunat ovat perinteinen merkki kesän tulosta. Peruna on suomalaisille tärkeä ja rakas juures.
+
+Perunaa aletaan nostaa lähipäivinä Rymättylässä, Naantalin saaristokunnassa  Länsi-Suomessa. Kotimaista perunaa saadaan jo ensi viikonloppuna koulujen päättäjäisjuhliin mutta vain osassa maata.
+
+Perunasato on myös normaalia pienempi, koska kevät on ollut kylmä ja on satanut paljon.
+
+Suomessa keskustellaan myös siitä, kuinka uudet perunat pitää keittää. Perinteisesti uudet perunat pannaan kiehumaan kuumaan veteen, jossa on suolaa.
+
+(Lukija Pälvi Tammi)

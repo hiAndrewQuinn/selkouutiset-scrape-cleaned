@@ -1,0 +1,63 @@
+# Lauantai 3.10.2015
+
+Suomessa on ollut mielenosoituksia maahanmuuttoa vastaan ja sen puolesta. Valio-myrsky teki vahinkoja eri puolilla Suomea. Tyrnimarja on vitamiinipommi. Lapissa satoi ensilumi.
+
+## Maahanmuutto oli mielenosoitusten aiheena
+
+![AVoin Lahti -mielenosoitus Lahden torilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8352157)
+
+Avaa kuvien katselu
+
+Lahdessa yli 1000 ihmistä oli mukana mielenosoituksissa. Kuva: Vihtori Koskinen / Yle
+
+Monissa Suomen kaupungeissa on ollut mielenosoituksia. Mielenosoitusten aihe oli maahanmuutto. Mielenosoituksia järjestettiin turvapaikanhakijoiden puolesta ja turvapaikanhakijoita vastaan.
+
+Helsingin 2 mielenosoituksessa oli mukana yhteensä noin 600 ihmistä. Toiset vastustivat maahanmuuttoa, toiset rasismia. Molemmat mielenosoitukset sujuivat rauhallisesti, koska poliisi ei päästänyt niitä liian lähelle toisiaan.
+
+Myös Lahdessa oli 2 mielenosoitusta. Toinen mielenosoitus oli maahanmuuttoa vastaan, toinen turvapaikanhakijoiden puolesta. Mielenosoitukset sujuivat rauhallisesti, vaikka paikalla oli yhteensä yli 1000 ihmistä.
+
+Mielenosoituksia oli lauantaina myös Torniossa ja Mikkelissä.
+
+## Valio-myrsky katkaisi sähköjä
+
+![Sähköjohdot ovat pinkeellä Valio-myrskyn jäljiltä Ukko-Kolille nousevan tien varressa Lieksassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8352250)
+
+Avaa kuvien katselu
+
+Monet kodit jäivät ilman sähköä, kun myrsky kaatoi puita sähköjohtojen päälle. Kuva: Jouki Väinämö / Yle
+
+Syysmyrsky on tehnyt vahinkoja eri puolilla Suomea. Perjantaina Suomen yli kulki myrsky, joka sai nimen Valio.
+
+Valio-myrsky katkaisi sähköt monilta kodeilta. Yli 100 000 kotia oli ilman sähköä myrskyn jälkeen. Menee ehkä monta päivää, ennen kuin kaikki viat on korjattu.
+
+Myrsky häiritsi myös junaliikennettä, koska se esimerkiksi kaatoi puita junaratojen päälle. Junamatkustajia kuljetettiin busseilla eri puolilla Suomea.
+
+## Tyrni on terveellinen marja
+
+![Tyrnimarjoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8348560)
+
+Avaa kuvien katselu
+
+Pienessä tyrnimarjassa on paljon vitamiineja. Kuva: Susanna Pekkarinen / Yle
+
+Tyrnimarja on vitamiinipommi. Tyrnissä on melkein kaikkia vitamiineja, joita ihminen tarvitsee. Tyrnimarjassa ja sen siemenissä on myös terveellisiä omega-rasvoja.
+
+Tyrniä sanotaan myös miniappelsiiniksi. Tyrni on samanvärinen kuin appelsiini, ja siinä on vähän samanlainen kirpeä maku.
+
+Tyrnipensaita kasvaa Suomessa Pohjanlahden rannikolla. Luonnon tyrnipensaissa on paljon piikkejä, ja siksi marjoja on hankala poimia.
+
+Nykyään Pohjanmaalla myös viljellään tyrniä. Viljelijät yrittävät löytää sellaisia tyrnilajikkeita, joiden pensaissa on vähän piikkejä ja joiden marjat eivät ole kovin kirpeitä.
+
+Suomalaiset viljelijät ovat tuoneet uusia tyrnilajikkeita esimerkiksi Venäjältä Suomeen. Venäjällä ja myös Kiinassa tyrniä viljellään enemmän kuin Suomessa.
+
+## Lapissa satoi lunta
+
+![luminen suo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8351797)
+
+Avaa kuvien katselu
+
+Lapissa on jo valkoista. Kuva: TV1
+
+Lapissa on satanut ensilumi. Lauantaiaamuna lunta oli maassa ensimmäisen kerran kesän jälkeen.
+
+Kittilässä lunta oli 4 senttimetriä. Kilpisjärvellä lunta oli maassa 1 senttimetri. Sunnuntaina Lapissa voi sataa lisää lunta.

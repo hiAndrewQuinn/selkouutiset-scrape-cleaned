@@ -1,0 +1,73 @@
+# Perjantai 30.4.2021 (radio)
+
+Turpeentuottajien marssi. Osatyökykyisille vuokrafirma. Äänikirjojen suosio kasvaa. Euroalueen taantuma. Vappu.
+
+## Turpeentuottajien vappumarssi
+
+![Turvealan toimijoiden moottorimarssi, rekkamielenosoitus, Eduskuntatalon edessä Mannerheimintiellä Helsingissä vappuaaton aamuna 30. huhtikuuva 2021.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11908800)
+
+Avaa kuvien katselu
+
+Turpeentuottajat ajoivat eduskuntatalon eteen rekoilla. Kuva: Markku Ulander / Lehtikuva
+
+Turpeentuottajat ovat osoittaneet mieltä Helsingissä.Turpeentuottajat ajoivat aamulla eduskuntatalon eteen yli sadalla (100) rekka-autolla.
+
+Turpeentuottajat sanovat, että hallituksen tukipaketti turvealalle on liian pieni.
+
+Turpeentuottajat toivovat, että Suomi jatkaa ja kehittää turpeenkäyttöä.
+
+## Osatyökykyisille vuokrafirma
+
+![Kehitysvammaisten koulutusta ei hyödynnetä riittävästi työelämässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5356223)
+
+Avaa kuvien katselu
+
+Osatyökykyisä voivat olla esimerkiksi vammaiset. Kuva: Antti Eintola / Yle
+
+Hallitus perustaa vuokratyöfirman osatyökykyisille. Vuokrafirma välittää osatyökykyisiä ihmisiä töihin muille firmoille. Tarkoitus on, että osatyökykyiset pääsevät töihin pitkäksi aikaa.
+
+Tarkoitus on myös, että osa heistä voi ehkä jäädä töihin firmaan, johon on päässyt vuokratyöntekijäksi.
+
+Osatyökykyiset ovat ihmisiä, joiden kyky työskennellä on alentunut. Osatyökykyisiä voivat olla esimerkiksi vammaiset, pitkäaikaissairaat tai ihmiset, jotka toipuvat vakavasta sairaudesta.
+
+## Äänikirjojen ja e-kirjojen suosio
+
+![Nainen tutkailee äänikirjaa kännykästä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11906361)
+
+Avaa kuvien katselu
+
+Äänikirjoja voi kuunnella esimerkiksi älypuhelimella. Kuva: Ella Tommila
+
+Äänikirjojen suosio on kasvanut korona-aikana paljon. Myös e-kirjojen ja e-lehtien suosio on kasvanut paljon. Äänikirjoja, e-kirjoja ja e-lehtiä voi kuunnella tai lukea verkossa, esimerkiksi puhelimella tai tabletilla.
+
+Äänikirjojen lainaus kirjastoista on kasvanut korona-aikana noin 40 prosenttia.
+
+Suomessa tehdään kirjastojen e-palvelujen uudistusta. Tarkoitus on, että äänikirjoja ja e-kirjoja voi lainata yhdestä palvelusta.
+
+## Euroalueen talous
+
+![Euro-patsas, euro statue](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10656834)
+
+Avaa kuvien katselu
+
+Euron tunnus. Kuva: Anna Karismo / Yle
+
+Euroalueen taloustilanne on huonontunut. Euroalueen talous on vajonnut uuteen taantumaan. Euroalueen tuotanto eli bruttokansantuote pieneni alkuvuonna 0,6 prosenttia loppuvuodesta.
+
+Euroalueen bruttokansantuote pieneni nyt toisena neljänneksenä peräkkäin. Silloin sanotaan, että talous taantuu.
+
+Euroalueeseen kuuluvat ne Euroopan maat, joiden valutta eli raha on euro. Euroalueen maita on 19.
+
+## Vietä vappua koronaturvallisesti
+
+![Valkolakin ja kasvomaskin saanut Havis Amandan patsas Helsingissä 20. huhtikuuta 2021.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11903687)
+
+Avaa kuvien katselu
+
+Havis Amandan patsas saa perinteisesti vappuna valkolakin. Nyt patsas on saanut myös kasvomaskin. Kuva: Jussi Nukari / Lehtikuva
+
+Tänään perjantaina ja huomenna lauantaina vietetään vappua. Viranomaiset muistuttavat suomalaisia koronaturvallisesta vapunvietosta.
+
+Poliisi, kunnat ja terveysviranomaiset suosittelevat, että vappua juhlitaan vain omien läheisten kesken, mutta ei isolla joukolla.
+
+Viranomaiset toivovat, että kaupunkien keskustoihin ei kokoonnuta, että koronavirus ei leviä.

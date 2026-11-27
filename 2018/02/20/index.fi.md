@@ -1,0 +1,77 @@
+# Tiistai 20.2.2018 (radio)
+
+Maahanmuuttovirasto arvioi, että turvapaikanhakijoiden on turvallista palata Bagdadiin. Työttömien määrä vähenee. Kevään yhteishaku ammattikouluihin ja lukioihin on alkanut. Tanskassa oli kuninkaalliset hautajaiset. Pakkassää jatkuu.
+
+## Irakin turvallisuustilanne
+
+![Sotilas vartioi torikauppaa Irakin pääkaupungissa Bagdadissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10082392)
+
+Avaa kuvien katselu
+
+Irakin pääkaupungin Bagdadin turvallisuustilanne on parantunut. Kuva: Ali Abbas / EPA
+
+Maahanmuuttovirasto eli Migri on arvioinut Irakin turvallisuutta.
+
+Maahanmuuttoviraston tutkijat kävivät Irakin pääkaupungissa Bagdadissa. He tutkivat, onko turvapaikanhakijoiden turvallista palata Bagdadiin.
+
+Maahanmuuttoviraston arvio ei muuttunut matkan takia. Migri on edelleen sitä mieltä, että Bagdad on melko turvallinen kaupunki. Siksi Suomi jatkaa irakilaisten käännyttämistä, eli turvapaikanhakijoita lähetetään takaisin Irakiin.
+
+Maahanmuuttovirasto kuitenkin sanoo, että Irakissa on myös vaarallisia alueita. Vaarallisille alueille ei lähetetä ketään.
+
+## Työttömiä vähemmän
+
+![TE-palvelutoimiston ovi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10071822)
+
+Avaa kuvien katselu
+
+Työttömien määrän väheneminen on huomattu myös Työ- ja elinkeinotoimistoissa. Kuva: Antti Haanpää / Yle
+
+Työttömien määrä vähenee. Työttömiä oli tämän vuoden tammikuussa 4000 vähemmän kuin viime vuoden tammikuussa.
+
+Työttömiä on nyt noin 230 000. Nämä luvut ovat Tilastokeskukselta.
+
+Myös Työ- ja elinkeinotoimistot kertovat, että työttömien määrä vähenee. Myös työttömiä nuoria on Työ- ja elinkeinotoimistojen asiakkaina nyt vähemmän kuin vuosi sitten.
+
+## Yhteishaku alkoi
+
+![Ammattikoulussa rakennusalaa opiskeleva poika mittaa lautaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6557030)
+
+Avaa kuvien katselu
+
+Nyt on aika hakea esimerkiksi ammattikouluun. Kuva: Yle
+
+Kevään yhteishaku on alkanut. Nuoret voivat nyt hakea ammattikouluun ja lukioon. Yhteishaku loppuu maaliskuun 13. päivä.
+
+Nuoret saavat tietää kesäkuussa, saivatko he opiskelupaikan. Opinnot alkavat syksyllä.
+
+## Kuninkaalliset hautajaiset Tanskassa
+
+![Tanskan prinssi Henrikin hautajaiset Christiansborgin linnan kirkossa Kööpenhaminassa 20. helmikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10083709)
+
+Avaa kuvien katselu
+
+Prinssi Henrikin arkku Christiansborgin linnan kirkossa Kööpenhaminassa. Kuva: Liselotte Sabroe / AFP
+
+Tanskassa oli tiistaina kuninkaalliset hautajaiset. Tanskan prinssi Henrik haudattiin Tanskan pääkaupungissa Kööpenhaminassa.
+
+Prinssi Henrik oli kuningatar Margareetan puoliso. Margareeta on ollut Tanskan kuningatar jo 46 vuotta.
+
+Tanska ja Suomi kuuluvat Pohjoismaihin. Pohjoismailla on hyvät ja läheiset suhteet. Myös Tanskan kuninkaalliset ovat vierailleet usein Suomessa.
+
+Tanskan prinssi Henrik kuoli viikko sitten.
+
+## Pakkanen jatkuu
+
+![Mies menee Oulujokeen uimaan talvella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10059453)
+
+Avaa kuvien katselu
+
+Nyt on aika nauttia talvesta. Kuva: Timo Nykyri / Yle
+
+Pakkassää jatkuu Suomessa. Tämä viikko on kylmä, ja ensi viikon alussa on vielä kovempi pakkanen.
+
+Ylen meteorologi Joonas Koskela kertoo, että Venäjältä Siperiasta tulee silloin tosi kylmää ilmaa Suomeen.
+
+Ensi viikolla pakkasta voi olla yöllä jopa 30 astetta. Päivällä aurinko jo vähän lämmittää ja pakkanen laskee 10 ja 20 asteen välille. Tuulen takia pakkanen kuitenkin tuntuu kovemmalta.
+
+Ei ole tavallista, että Etelä-Suomessa on näin kova pakkanen vielä helmikuun lopussa.

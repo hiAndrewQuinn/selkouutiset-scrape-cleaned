@@ -1,0 +1,87 @@
+# Keskiviikko 12.7.2017 (radio)
+
+Pitkäaikaissairaus tulee kalliiksi. Karhun kaatolupia lisätty. Iso jäävuori irronnut Etelämantereesta. Turkki torjuu EU:n. Youtuben suosikkihitti vaihtui.
+
+## Pitkäaikaissairaus tulee kalliiksi
+
+![Lääkäri mittaa potilaan verenpaineen terveysasemalla Helsingissä 26. marraskuuta 2013. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8503522)
+
+Avaa kuvien katselu
+
+Ihmisten pitää päästä nopeasti hoitoon, jotta sairaus ei veny liian pitkäksi. Kuva: Milla Takala / Lehtikuva
+
+Suomessa on melkein kaksi miljoonaa työikäistä ihmistä, jotka ovat sairastaneet pitkään. He ovat pitkäaikaissairaita.
+
+Pitkäaikaissairaista noin kolmasosa sanoo, että heidän on vaikeaa tehdä töitä sairauden takia.
+
+Pitkä sairaus maksaa ihmiselle paljon. Se maksaa jopa paljon enemmän, kuin on aikaisemmin arvioitu.
+
+![grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9715933)
+
+Avaa kuvien katselu
+
+Pitkään sairauteen liittyy paljon sellaisia kuluja, joita ei ole aiemmin huomioitu.  Kuva: Yle Uutisgrafiikka
+
+Pitkä sairastaminen maksaa myös työnantajalle ja yhteiskunnalle. Uuden tutkimuksen mukaan yhteiskunta joutuu maksamaan melkein 1 600 euroa kuukaudessa jokaisesta työikäisestä, joka sairastaa pitkään.
+
+Terveydenhoidon asiantuntijat sanovat, että ihmisten pitää päästä nopeasti hoitoon, jotta sairaus ei jatku liian pitkään.
+
+## Karhujen kaatolupia lisätty
+
+![Karhu mökkiterassilla Kuusamossa 2017 heinäkuussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9711452)
+
+Avaa kuvien katselu
+
+Karhut voivat tulla joskus liian lähelle ihmisten asutusta.  Kuva: Juho Liikanen
+
+Suomessa on lisätty karhujen kaatolupia. Karhuja saa nyt metsästää enemmän kuin viime vuonna.
+
+Suomen riistakeskus antoi 170 lupaa karhun metsästykseen. Lisäksi Pohjois-Suomessa, poronhoitoalueella saa metsästää 85 karhua. Metsästyskausi alkaa 20. elokuuta.
+
+Viime vuonna metsästyskaudella Suomessa saatiin saaliiksi 179 karhua. Karhun kaatolupia on annettu etenkin sellaisille alueille, joissa karhuja on paljon.
+
+## Etelämantereesta irtosi valtava jäävuori
+
+![Valokuva Etelänapamantereen halkeamasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9391328)
+
+Avaa kuvien katselu
+
+Halkeama, josta jäävuori irtosi. Kuva: NASA / John Sonntag / EPA
+
+Etelämantereesta on irronnut iso jäävuori. Jäävuoren koko on melkein 6 000 neliökilometriä ja sen paksuus on noin 200 metriä.  Se on yksi
+
+suurimmista jäävuorista, joka on mitattu.
+
+Jäävuori voi haitata laivaliikennettä.
+
+Tutkijat ovat odottaneet jo vuosia, että jäävuori irtoaa Etelämantereen reunasta. 
+
+## Turkki torjuu EU:n
+
+![Turkin presidentti Recep Tayyip Erdogan. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9718331)
+
+Avaa kuvien katselu
+
+Turkin presidentti sanoo, että maa pärjää ilman EU:ta. Kuva: Daniel Kopatsch / EPA
+
+Turkin presidentti Recep Tayyip Erdogan sanoo, että Turkki ei tarvitse EU-jäsenyyttä.
+
+Erdogan sanoi Britannian yleisradio-yhtiön BBC:n haastattelussa, että Turkki pärjää yksinkin.
+
+Turkki ja EU aloittivat neuvottelut jo vuonna 2005, mutta eteneminen on ollut hidasta.
+
+Hitaus on johtunut muun muassa siitä, että Turkissa on annettu paljon valtaa presidentti Erdoganille ja kansalaisten oikeuksia on loukattu.
+
+## Youtuben suosikkihitti vaihtui
+
+![Wiz Khalifa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9718849)
+
+Avaa kuvien katselu
+
+Wiz Khalifa Kuva: AOP
+
+Youtuben suosituin musiikkivideo on vaihtunut. Aikaisemmin suosituin musiikkivideo on ollut eteläkorealaisen Psyn Gangnam Style.
+
+Se oli suosituin musiikkivideo viisi vuotta. Nyt suosituin musiikkivideo on yhdysvaltalaisen Wiz Khalifan ja Charlie Puthin See you again. 
+
+Video on katsottu jo yli 2,9 miljardia kertaa.

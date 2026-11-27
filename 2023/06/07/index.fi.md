@@ -1,0 +1,69 @@
+# Radio | Selkouutiset | Keskiviikko 7.6.2023
+
+Kahovka. Ukrainan maanviljely. Ilmastovalitus. Saimaannorppa. Sääennuste.
+
+## Kahovkan patorikko
+
+![Kahtia rajattu kuvapinta, jossa näkyy pato ennen ja jälkeen tuhon.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125533647f64b6235d3/1686075043)
+
+Avaa kuvien katselu
+
+Dnepr-joki tulivii, koska Kahovkan pato on rikottu. Kuva: Yle
+
+Ukrainassa ja lännessä seurataan Kahovkan patorikon vaikutuksia. Kahovkan pato murtui aikaisin aamulla tiistaina. Ukraina sanoo, että Venäjä tuhosi padon. Myös länsimaissa uskotaan laajasti, että padon tuhosi Venäjä. Padon tuhoajaa ei kuitenkaan tiedetä varmasti.
+
+Venäjä sanoo, että padon rikkoi Ukraina. Tulvasta on haittaa myös Venäjän joukoille ja puolustukselle. Siksi on pieni mahdollisuus, että Ukraina tuhosi padon. Länsimaissa uskotaan kuitenkin enemmän, että padon rikkoi Venäjä.
+
+Ukrainassa tuhannet ihmiset ovat lähteneet pakoon, koska Dnepr-joki tulvii. YK arvioi, että noin 16 000 ihmisen koti jää tulvaveden alle.
+
+## Dnepr-joen tulva
+
+![ Karttakuva Ukrainasta. Merkattu paikka Dneprjoen varrella, missä pato on räjäytetty.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125142647ec80e23ee9/1686030437)
+
+Avaa kuvien katselu
+
+Nova Kahovkan pato on merkitty karttaan. Kuva: Lauri Karo / Yle, MapCreator, OpenStreetMap
+
+Dnepr-joen tulva aiheuttaa isoja ongelmia Ukrainan maanviljelylle. Ukrainan maatalousministeriö sanoo, että tulvan alle jää kymmeniä tuhansia hehtaareja maatilojen maita.
+
+Padon tuhoutuminen aiheuttaa myös ongelmia maatalouden kastelulle.
+
+Padon rikkoutumisen takia vesi laskee toisilla alueilla. Näillä alueilla voi tulla ongelmia viljelyksien kastelulle. Siksi Kahovkan patorikolla on tosi iso vaikutus Ukrainan maanviljelyyn.
+
+## Ilmastovalitus
+
+![Savupiippuja Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_516/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6324815e21d78ae9962/1579281551)
+
+Avaa kuvien katselu
+
+Ympäristöjärjestöt haluavat, että hallitus tekee enemmän päästöjen pienentämiseksi. Kuva: Petteri Bülow / Yle
+
+Korkein hallinto-oikeus on hylännyt ympäristöjärjestöjen pyynnön ottaa käsittelyyn ilmastovalitus. Korkein hallinto-oikeus sanoo, että ilmastovalituksessa ei ole sellaisia asioita, joista voi valittaa.
+
+Valituslupaa pyysivät ympäristöjärjestöt Greenpeace ja Suomen luonnonsuojeluliitto. Ne sanovat, että hallitus ei ole tehnyt tarpeeksi ilmastotoimia.
+
+Koska Korkein hallinto-oikeus ei ota asiaa käsittelyyn, Suomessa ei ala iso oikeudenkäynti ilmastoasioista.
+
+## Saimaannorppa
+
+![Kuutti kalliolla.](https://img.img-cdn.yle.fi/crop_extract,w_2143,h_1205,x_184,y_550/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112578664805c7fb4570/1689913757)
+
+Avaa kuvien katselu
+
+Saimaannorppa on uhanalainen. Kuva: UEF-NORPPATUTKIMUS
+
+Saimaalla on tehty kaksi saimaannorpan siirtoa. Itä-Suomen yliopisto kertoo, että siirrot onnistuivat. Naarasnorppa **Amalia** siirrettiin Pihlajavedeltä Kolovedelle. Urosnorppa **Tuukka** siirrettiin Pihlajavedeltä eteläiselle Saimaalle.
+
+Saimaannorppa on uhanalainen eläin eli niitä on elossa vain vähän. Saimaalla elää noin 450 saimaannorppaa. Saimaan norpan siirroilla autetaan norppia säilymää Saimaalla. Tarkoitus on säilyttää norppakannan monimuotoisuus.
+
+Siirroilla vähennetään myös saimaannorpan kantojen joutumista erilleen. Saimaannorppia siirrettiin Suomessa nyt toisen kerran.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112607464808aa33c46e/1686145720)
+
+Avaa kuvien katselu
+
+Päivällä tulee sateita, mutta sää poutaantuu vähitellen.
+
+Torstaina suuressa osassa Suomea sataa tai tulee sadekuuroja. Poutaisinta on länsirannikolla ja Lapissa. Sää poutaantuu myös muualla lännestä alkaen. Päivälämpötila on 10 ja 20 asteen välillä. Pohjoisessa on viileämpää.

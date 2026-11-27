@@ -1,0 +1,52 @@
+# TV \| Selkouutiset \| keskiviikko 9.4.2025
+
+Pienpuolueiden tentti. Kuntavaalit. Helmarit. Sää.
+
+## Pienten puolueiden vaalitentti
+
+Ensin uutinen pienten puolueiden vaalitentistä.
+
+Tiistaina oli Ylen vaalitentti pienille puolueille. Vaalitentissä oli mukana puolueita, joilla ei ole eduskunnassa yhtään kansanedustajaa.
+
+Pienet puolueet ovat eri mieltä monista asioista. Kommunistisen puolueen edustaja sanoo, että terveydenhuollon palveluita ei saa vähentää. Eläinoikeuspuolue on samaa mieltä. Avoin puolue, liberaalipuolue, vapauden liitto, valta kuuluu kansalle ja kristallipuolue ovat sitä mieltä, että rahat eivät riitä nykyisiin terveyspalveluihin.
+
+Tiistaina oli Ylen vaalitentti pienille puolueille. Asiantuntijat sanovat, että pienet puolueet ovat tärkeitä. Pienet puolueet antavat äänestäjille vaihtoehtoja.
+
+## Kuntavaalit
+
+Suomessa on sunnuntaina kahdet vaalit. Ihmiset äänestävät kuntavaaleissa ja aluevaaleissa samana päivänä.
+
+Sinä asut kunnassa.
+
+Mitä kunta tekee?
+
+Kunnan tehtävä on antaa sinulle palveluita.
+
+Suomi on jaettu kuntiin.
+
+Kunnat päättävät monista asioista, jotka vaikuttavat sinun elämääsi.
+
+Sinä saat omalta kunnalta monia palveluita.
+
+Kunnan palveluita ovat esimerkiksi päiväkodit, koulut, kirjastot, urheilutilat, julkinen liikenne ja jätehuolto.
+
+Kaikki tämä maksetaan verorahoilla.
+
+Me kaikki maksamme veroja.
+
+Myös sinä.
+
+## Helmarit
+
+Nyt urheilua.
+
+Jalkapallossa Suomen naisten maajoukkue Helmarit voitti Kansojen liigan ottelun. Helmarit voitti Tampereella Unkarin 3-0. Suomen maalit tekivät Emma Koivisto, Linda Sällström ja Sanni Franssi.
+
+Helmarit kamppailee yhä Kansojen liigan lohkovoitosta.
+
+## Sää
+
+Vielä sääennuste.
+
+Monin paikoin paistaa aurinko. Lännessä taivaalla on pilviä. Illalla lännessä sataa lunta. Lämpötila on enimmäkseen -3 ja +3 asteen välillä.
+

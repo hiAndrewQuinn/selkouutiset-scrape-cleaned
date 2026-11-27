@@ -1,0 +1,81 @@
+# Tiistai 8.3.2022 (radio)
+
+Kysely kansanedustajille Natosta. Apua Ukrainaan. Ukrainan pakolaiset. Naistenpäivä. Sää.
+
+## Kansanedustajat ja Nato
+
+![Eduskunnan istuntosalissa äänestettiin 10. joulukuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_348/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89050761b347ad1fc76/1639139802)
+
+Avaa kuvien katselu
+
+Kansanedustajat tekevät työtä eduskunnassa. Kuva: Silja Viitala / Yle
+
+Monet kansanedustajat eivät ole vielä päättäneet, kannattavatko he Suomen jäsenyyttä sotilasliitto Natossa.
+
+Kun Yle kysyi asiaa kansanedustajilta, suurin osa kansanedustajista ei vastannut kysymykseen ollenkaan.
+
+58 kansanedustajaa kannatti Nato-jäsenyyttä. 9 kansanedustajaa ei halunnut, että Suomesta tulee Naton jäsen.
+
+Suomen Nato-jäsenyydestä on puhuttu paljon, sen jälkeen kun Venäjä hyökkäsi Ukrainaan helmikuussa. Monien mielestä Suomi on paremmin turvassa, jos se on mukana sotilasliitto Natossa.
+
+Nykyään Suomi ei ole Naton jäsen, mutta Suomi tekee yhteistyötä Naton kanssa.
+
+## Apua Ukrainaan
+
+![Itä-Uudenmaan ambulanssi seisoo autotallissaan odottamassa lähetystä Ukrainaan.](https://img.img-cdn.yle.fi/crop_extract,w_3699,h_2080,x_0,y_100/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9237326221dd1a516f6/1646386625)
+
+Avaa kuvien katselu
+
+Tämä ambulanssi lähtee pian Ukrainaan. Kuva: Itä-Uudenmaan pelastuslaitos
+
+Suomi vie apua Ukrainaan. Ukrainassa on sota, koska Venäjä on hyökännyt Ukrainaan.
+
+Suomi lähettää Ukrainaan 15 ambulanssia ja 2 paloautoa. Ne eivät ole uusia, mutta ne ovat vielä hyvässä kunnossa. Osassa ambulansseista on myös hyvät varusteet.
+
+Ambulanssit ja paloautot ajetaan Ukrainaan viikon sisällä.
+
+Lisäksi Ukrainaan viedään pelastustarvikkeita, esimerkiksi kypäriä ja moottorisahoja.
+
+## Ukrainan pakolaiset
+
+![Kaksi naista syö pöydän äärellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12349209)
+
+Avaa kuvien katselu
+
+Ukrainalaisia pakolaisia Kalle Åbergin luona Inkoossa. Kuva: Yle
+
+Ukrainan pakolaiskriisi pahenee. Jo yli 2 miljoonaa ihmistä on paennut pois Ukrainasta sodan takia.
+
+Myös Suomi ottaa pakolaisia Ukrainasta. Viranomaiset ovat lisänneet paikkoja vastaanottokeskuksissa. Vapaita paikkoja on nyt yli 3000.
+
+Monet ukrainalaiset menevät kuitenkin sukulaisten tai tuttavien luokse.
+
+Esimerkiksi maanviljelijä Kalle Åberg on kutsunut luokseen ukrainalaisia, jotka ovat olleet kesällä töissä Åbergin maatilalla.
+
+Åbergin luokse on tullut joitakin naisia ja lapsia. Kaikki eivät kuitenkaan halua lähteä Ukrainasta ja jättää kotia ryöstäjille, Åberg kertoo.
+
+## Naistenpäivä
+
+![Asiakkaat ostavat kukkia Tallinnan Viru-kadulla kansainvälisenä naistenpäivänä 8. maaliskuuta](https://img.img-cdn.yle.fi/crop_extract,w_1620,h_911,x_0,y_170/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-78222060461ec685fd7/1615209030)
+
+Avaa kuvien katselu
+
+Virossa naisille ostetaan usein kukkia naistenpäivänä. Kuva: Priit Mürk / ERR
+
+Tiistaina on vietetty kansainvälistä naistenpäivää.
+
+Naistenpäivä syntyi maailmalla 1900-luvun alussa. Silloin naistenpäivänä vaadittiin esimerkiksi, että myös naiset saavat oikeuden äänestää vaaleissa.
+
+Myöhemmin YK eli Yhdistyneet kansakunnat julisti kansainvälisen naistenpäivän. Ensimmäisen kerran kansainvälistä naistenpäivää vietettin 8. maaliskuuta vuonna 1975.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12349686)
+
+Avaa kuvien katselu
+
+Keskiviikkona maan etelä- ja keskiosassa paistaa aurinko. Pohjoisessa on pilvisempää.
+
+Lännessä lämpötila on nollan ja +3 asteen välillä, idässä ja pohjoisessa -1 ja -5 asteen välillä.
+
+Loppuviikolla sää lämpenee.

@@ -1,0 +1,77 @@
+# Lauantai 11.5.2019 (radio)
+
+Lapsiasiavaltuutettu sanoo, että suomalaisten vierastaistelijoiden lapset pitää hakea Suomeen. Venäläiset hakevat paljon viisumeita Suomeen. Timo Soini kirjoittaa seuraavaksi kirjan. Kiljuhanhien määrä on kääntynyt kasvuun. Jääkiekon MM-kisat alkoivat.
+
+## Lapsiasiavaltuutettu: Isis-lapset pitää hakea kotiin
+
+![Sosiaalityön professori Elina Pekkarinen, lapsiasiavaltuutettu 1. toukokuuta 2019 alkaen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10675413)
+
+Avaa kuvien katselu
+
+Lapsiasiavaltuutettu Elina Pekkarinen. Kuva: Jouni Koutonen / Yle
+
+Uusi lapsiasiavaltuutettu sanoo, että suomalaisten vierastaistelijoiden lapset pitää hakea Suomeen turvaan.
+
+Lapsiasiavaltuutettu Elina Pekkarinen sanoo lehtihaastattelussa, että esimerkiksi suomalaisten Isis-taistelijoiden lapsilla on samanlainen oikeus suojeluun kuin muillakin suomalaislapsilla.
+
+Suojelupoliisi sanoo, että Syyrian ja Irakin konfliktialueille on matkustanut Suomesta ainakin 80 ihmistä. Heistä noin 30 on lapsia. Alueella on myös syntynyt lapsia, joilla on side Suomeen.
+
+## Venäläiset hakevat viisumeita
+
+![viisumihakemus suomen pietarin pääkonsulaatti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10534482)
+
+Avaa kuvien katselu
+
+Venäläiset hakevat nyt Suomen viisumeita ennätystahtiin. Kuva: Kari Kosonen / Yle
+
+Venäläiset hakevat nyt paljon viisumeita Suomeen.
+
+Lännen Media kertoo, että esimerkiksi Pietarissa Suomen pääkonsulaattiin jätettiin huhtikuussa noin 63 000 viisumihakemusta. Se on 37 prosenttia enemmän kuin viime vuoden huhtikuussa.
+
+Venäläiset hakevat nyt paljon viisumeita myös muihin EU-maihin. Hakemusten määrä on kasvanut esimerkiksi Tshekissä, Ranskassa ja Espanjassa.
+
+## Timo Soini kirjoittaa kirjan
+
+![Timo Soini](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10778705)
+
+Avaa kuvien katselu
+
+Timo Soini aikoo kirjoittaa uuden kirjan.  Kuva: Mauri Ratilainen / Yle
+
+Ulkoministeri Timo Soini on kertonut tulevaisuuden suunnitelmistaan.
+
+Soini kertoo, että hän aikoo kirjoittaa kirjan populismista. Kirjan on määrä olla valmis jo tänä vuonna.
+
+Populismi on tapa tehdä politiikkaa. Populisti esittää jyrkkiä mielipiteitä ja isoja lupauksia. Niillä populisti yrittää saada kansan suosion.
+
+Soini on Perussuomalaisten entinen puheenjohtaja. Viime vuodet hän on ollut Sininen tulevaisuus -puolueessa.
+
+Soin kertoi huhtikuussa, että hän jättää politiikan. Hän hoitaa ulkoministerin tehtäviä, kunnes Suomeen on saatu uusi hallitus.
+
+## Kiljuhanhet ovat muuttomatkalla
+
+![Kiljuhanhihavaintoja tänä keväänä Oulun seudulla. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6099773)
+
+Avaa kuvien katselu
+
+Kiljuhanhet ovat uhanalaisia. Kuva: Tapio Kostet / WWF Suomi
+
+Suomessa on tällä viikolla nähty paljon kiljuhanhia. Ympäristöjärjestö WWF kertoo, että Oulun seudulla on laskettu jo yli 100 kiljuhanhea.
+
+Linnut ovat pysähtyneet Oulun seudulle vain lepäämään. Ne ovat muuttomatkalla Kreikasta Norjan Lappiin, jossa ne pesivät.
+
+Vielä 2000-luvun alussa Suomessa nähtiin alle 10 kiljuhanhea vuodessa. Nyt jo monena keväänä Oulun seudulla on nähty yli 100 lintua.
+
+## Jääkiekon MM-kisat alkoivat
+
+![Kaapo Kakko](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10778730)
+
+Avaa kuvien katselu
+
+Kaapo Kakko teki Kanadaa vastaan 2 maalia. Kuva: AOP
+
+Jääkiekon maailmanmestaruuskisat alkoivat eilen perjantaina Slovakiassa.
+
+Suomen ensimmäinen ottelu oli Kanadaa vastaan. Kanada oli ennakkosuosikki, mutta Suomi yllätti ja voitti ottelun 3-1.
+
+Tänään lauantaina Suomi pelaa Slovakiaa vastaan. Peli alkaa iltayhdeksän jälkeen.

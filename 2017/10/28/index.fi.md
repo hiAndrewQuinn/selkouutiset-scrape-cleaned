@@ -1,0 +1,71 @@
+# Lauantai 28.10.2017 (radio)
+
+Laulujoutsenilla vain vähän poikasia tänä kesänä. Kellot käännetään talviaikaan ensi yönä. Tuomas Kyrö on uusi selkokirjakummi. Espanja purkaa Katalonian itsehallintoa.
+
+## Laulujoutsenilla poikaskato
+
+![joutsenia uiskentelemassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7534160)
+
+Avaa kuvien katselu
+
+Laulujoutsenilla on vain vähän poikasia tänä vuonna. Kuva: Vesa Vaarama / Yle
+
+Laulujoutsenen pesintä näyttää epäonnistuneen tänä vuonna. Lintuharrastajat Pohjois-Suomessa kertovat, että joutsenparvissa näkyy vain vähän poikasia. Suurin osa linnuista on aikuisia joutsenia.
+
+Esimerkiksi lintuharrastaja Pirkka Aalto näki ison parven laulujoutsenia Kemijärvellä lokakuun alussa. Hän laski, että parvessa oli aikuisia lintuja yli tuhat ja poikasia vain noin 50. Poikaset on helppo erottaa, koska ne ovat harmaita. Aikuiset joutsenet ovat kirkkaan valkoisia.
+
+Lintuharrastajat sanovat, että joutsenen pesintä on ehkä epäonnistunut kylmän ja sateisen kesän takia.
+
+Lintuharrastajat eri puolilla maata bongaavat joutsenia tämän viikonlopun aikana. Tarkoitus on selvittää, kuinka paljon joutsenia Suomessa nyt on.
+
+## Kelloja käännetään ensi yönä
+
+![Diimmuid sirdin dálveáigái](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9258269)
+
+Avaa kuvien katselu
+
+Talviaikaan siirrytään kääntämällä kelloa tunnin verran taaksepäin. Kuva: Yle Uutisgrafiikka
+
+Suomi siirtyy ensi yönä talviaikaan.
+
+Kelloja siirretään tunnin verran taaksepäin aamuneljältä lauantain ja sunnuntain välisenä yönä.
+
+Talviaika on Suomen normaaliaika. Kesällä kuitenkin käytetään kesäaikaa, koska EU-maat ovat niin sopineet.
+
+## Tuomas Kyröstä selkokirjakummi
+
+![Nainen ja mies istuvat lavalla, molemmilla on mikrofonit kädessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9906254)
+
+Avaa kuvien katselu
+
+Leealaura Leskelä Selkokeskuksesta haastatteli uutta selkokirjakummia kirjailija Tuomas Kyröä Helsingin kirjamessuilla. Kuva: Kaisa Kaatra/Selkokeskus.
+
+Kirjailija Tuomas Kyrö on uusi selkokirjakummi. Hänet haastoi tehtävään edellinen kummi, kirjailija Eppu Nuotio.
+
+Selkokirjakummius tarkoittaa sitä, että Tuomas Kyrön suosittu kirja Mielensäpahoittaja mukautetaan selkokielelle. Selkosuomeksi mukautettu kirja julkistetaan 2 vuoden kuluttua Helsingin kirjamessuilla.
+
+![Kaksi naista istuu pöydän takana. Edessä pöydällä pari kirjaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9906267)
+
+Avaa kuvien katselu
+
+Johanna Kartio on mukauttanut selkokielelle kirjailija Eppu Nuotion kirjan Peiton paikka. Kuva: Kaisa Kaatra/Selkokeskus
+
+Edellisen kummin Eppu Nuotion kirjoista selkokielelle mukautettiin Peiton paikka. Kirjan selkomukautuksen teki Johanna Kartio. Kirja on nyt julkistettu Helsingin kirjamessuilla.
+
+Selkokirjakummin kausi on 2 vuotta. Kummiuden idea on tehdä tunnetuksi selkokielistä kirjallisuutta ja tarjota selkolukijoiden luettavaksi samoja suosittuja kirjoja, joita myös muut ihmiset lukevat.
+
+## Espanja purkaa Katalonian itsehallintoa
+
+![Espanjan pääministeri Mariano Rajoy](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9905762)
+
+Avaa kuvien katselu
+
+Espanjan pääministeri Mariano Rajoy määräsi, että Kataloniassa pidetään uudet vaalit joulukuussa. Kuva: Juanjo Martin / EPA
+
+Espanja on alkanut purkaa Katalonian itsehallintoa.
+
+Katalonia julistautui perjantaina itsenäiseksi. Espanja sanoo, että itsenäisyysjulistus on vastoin perustuslakia.
+
+Espanja on hajottanut Katalonian alueparlamentin ja aluehallituksen ja määrännyt, että uudet vaalit pidetään joulukuussa. Espanja on myös erottanut Katalonian aluepoliisin päällikön ja kymmeniä virkamiehiä.
+
+Katalonian johtoon on nimitetty Espanjan varapääministeri.

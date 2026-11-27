@@ -1,0 +1,79 @@
+# Perjantai 16.12.2022 (radio)
+
+Kotien sähkölaskut. Korkojen nousu. Kirkon jäsenmäärä. Tulvavaara kaduilla. Sää.
+
+## Kotien sähkölaskut
+
+![Asiakas tutkii sähkölaskua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6491978)
+
+Avaa kuvien katselu
+
+Sähkölasku on nyt ikävää luettavaa. Kuva: Lassi Lähteenmäki / Yle
+
+Suomen hallitus miettii, miten kotien sähkölaskuja voidaan pienentää. 
+
+Sähkö on nyt niin kallista, että monien kotien on vaikea selvitä sähkölaskuista.
+
+Hallitus yrittää löytää mallin, jolla koteja voidaan parhaiten tukea.
+
+Suurin hallituspuolue SDP on esimerkiksi ehdottanut sähkön hintakattoa. Jos hintakatto on esimerkiksi 20 senttiä kilowattitunnilta, kotien ei tarvitse itse maksaa sähköstä sitä enempää.
+
+Yksi vaihtoehto on, että kodit saavat suoraa tukea sähkölaskujen maksamiseen.
+
+Hallituspuolueet ovat keskustelleet asiasta perjantaina. Kaikki eduskunnan puolueet keskustelevat sähkön hinnasta maanantaina.
+
+Hallitus aikoo päättää ensi viikon aikana, millä mallilla koteja aletaan tukea.
+
+## Korkojen nousu
+
+![Asuntolainat. Kiinteistötoimisto. Helsinki. 20.5.2021.](https://img.img-cdn.yle.fi/crop_extract,w_6016,h_3384,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80887060a6895212eda/1644294960)
+
+Avaa kuvien katselu
+
+Myös monet asuntolainojen korot nousevat. Kuva: Jorge Gonzalez / Yle
+
+Korot nousevat. 12 kuukauden euribor-korko on jo noin 3 prosenttia. 
+
+Monien asuntolainojen korot seuraavat 12 kuukauden euribor-korkoa. Siksi monet huomaavat viimeistään ensi vuoden puolella, että asuntolainan korko nousee ja lainan hoitaminen kallistuu.
+
+Korot nousevat, koska Euroopan keskuspankki on nostanut ohjauskorkoja. Ohjauskorot ohjaavat, kuinka korkeita muut korot ovat.
+
+## Kirkon jäsenmäärä
+
+![Joensuun evankelis-luterilainen kirkko sisältä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10197568)
+
+Avaa kuvien katselu
+
+Kirkon jäsenmäärä vähenee, ja jumalanpalveluksissa käy vähemmän ihmisiä kuin ennen. Kuva: Jouki Väinämö / Yle
+
+Suomen luterilaisen kirkon jäsenmäärä vähenee. Kirkossa on nyt 64 000 jäsentä vähemmän kuin viime vuonna.
+
+Nyt noin 65 prosenttia Suomen asukkaista on luterilaisen kirkon jäseniä.
+
+Vielä vuonna 2000 85 prosenttia suomalaisista oli kirkon jäseniä, ja vuonna 1950 95 prosenttia suomalaisista kuului luterilaiseen kirkkoon.
+
+Suomessa on 2 kansankirkkoa, luterilainen kirkko ja ortodoksinen kirkko. Noin 1 prosentti suomalaisista kuuluu ortodoksiseen kirkkoon.
+
+Kansankirkoilla on enemmän oikeuksia kuin muilla uskontoryhmillä. Kansankirkot saavat esimerkiksi kerätä veroja.
+
+## Tulvavaara kaduilla
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5519543"
+
+Avaa kuvien katselu
+
+Ensi viikolla kaduille tulee vettä, jos sadevesiviemärit ovat tukossa. Kuva: YLE
+
+Etelä-Suomen kaduille voi ensi viikolla tulla paljon vettä. Sää lauhtuu eli pakkanen heikkenee, ja lumi alkaa sulaa. Lisäksi sataa vettä.
+
+Monet sadevesiviemärit ovat nyt tukossa lumen ja jään takia. Siksi vesi voi jäädä kaduille.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12685456)
+
+Avaa kuvien katselu
+
+Lauantaina sää on pilvistä ja paikoin voi sataa vähän lunta. Maan etelä- ja keskiosassa pakkasta on 1-6 astetta. Lapissa on 10-20 astetta pakkasta.
+
+Sunnuntaina sää lauhtuu. Etelässä lämpötila on jo vähän plussan puolella. Sunnuntaina Suomeen tulee myös sateita. Sade voi olla lunta, räntää tai vettä.

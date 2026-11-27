@@ -1,0 +1,63 @@
+# Lauantai 14.1.2017 (radio)
+
+Presidentti Sauli Niinistö on huolissaan ilkeästä käytöksestä sosiaalisessa mediassa. Kylmä talvisää haittaa pakolaisia Etelä-Euroopassa. Venla-gaalassa annettiin palkintoja viime vuoden parhaille tv-ohjelmille. 18-vuotias Joni Saarinen menestyy alamäkiluistelussa.
+
+## Presidentti toivoo parempaa käytöstä
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9404185)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Tiina Jutila / Yle
+
+Presidentti Sauli Niinistö on huolissaan ilkeästä käytöksestä sosiaalisessa mediassa. Presidentin mielestä on tosi ikävää, että monet yrittävät tahallaan loukata toisia ihmisiä.
+
+Niinistö toivoo, että ihmiset käyttäytyvät paremmin. Se ei ole kovin vaikeaa, presidentti sanoo. Hän sanoo myös, että ihmiset kärsivät itse, jos he loukkaavat muita.
+
+Niinistö kuitenkin uskoo, että suurin osa suomalaisista tuntee olon melko mukavaksi tämän päivän Suomessa.
+
+Presidentti Niinistö puhui näistä asioista lauantaina televisiossa, kun hän oli Ykkösaamu-ohjelman vieraana.
+
+## Turvapaikanhakijat kärsivät kylmyydestä
+
+![Jäätynyttä Tonavaa Belgradissa Serbiassa. Tonava on jäätynyt viimeksi yli 15 vuotta sitten. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9396760)
+
+Avaa kuvien katselu
+
+Balkanilla on ollut kylmää. Kuva on Belgradista Serbiasta. Kuva: EPA / Andrej Cukic
+
+YK eli Yhdistyneet kansakunnat on huolissaan turvapaikanhakijoista Euroopan kylmässä talvessa. YK:n mielestä Euroopan maat eivät pidä tarpeeksi hyvää huolta ihmisistä, jotka yrittävät päästä Eurooppaan.
+
+Esimerkiksi Bulgariasta on löydetty kuolleena 2 irakilaista miestä ja somalialainen nainen. He kuolivat ehkä kylmyyteen.
+
+Myös Kreikassa ja Balkanilla talvi on ollut kylmä ja lunta on satanut paljon. Monet turvapaikanhakijat asuvat kylmissä teltoissa.
+
+## Palkintoja tv-ohjelmille
+
+![Arman Alizad ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9403886)
+
+Avaa kuvien katselu
+
+Arman Alizad on Suomen paras tv-esiintyjä. Kuva: Markku Ulander / Lehtikuva
+
+Suomen viime vuoden parhaat televisio-ohjelmat ovat saaneet palkintoja. Palkinnot annettiin Venla-gaalassa perjantaina.
+
+Paras draamasarja oli Sorjonen. Se on rikossarja, jota on esitetty Ylen kanavilla. Rikossarja Sorjonen keräsi Venla-gaalassa myös muita palkintoja. Sarjan päärooleissa näyttelevät Ville Virtanen ja Anu Sinisalo. He saivat parhaan miesnäyttelijän ja naisnäyttelijän palkinnot.
+
+Myös tv-katsojat valitsivat oman suosikkiohjelman. Katsojien mielestä vuoden paras tv-ohjelma oli sairaalasarja Syke. Sitä on esitetty Ylen kanavilla.
+
+Katsojat äänestivät vuoden parhaaksi tv-esiintyjäksi Arman Alizadin. Alizad on kotoisin Iranista. Hän on tehnyt tv-työtä pitkään. Nyt Alizadilla on oma ohjelma tv-kanava Nelosella.
+
+## Voitto suomalaisluistelijalle
+
+![Joni Saarinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9404149)
+
+Avaa kuvien katselu
+
+Joni Saarinen oli paras juniori alamäkiluistelun MM-osakilpailussa Ranskassa. Kuva: Samo Vidic/Red Bull Content Pool
+
+Vielä iloinen urheilu-uutinen.
+
+18-vuotias Joni Saarinen on menestynyt alamäkiluistelussa. Saarinen voitti junioreiden MM-osakilpailun, joka järjestettiin nyt ensimmäistä kertaa. Kilpailu oli Ranskan Marseillessa.
+
+Alamäkiluistelussa luistelijat laskevat kovaa vauhtia alas rataa, jossa on myös mutkia ja hyppyjä. Luistelijan vauhti voi olla yli 80 kilometriä tunnissa.

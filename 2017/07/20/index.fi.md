@@ -1,0 +1,7 @@
+# Torstai 20.7.2017 (tv)
+
+Kaikki hallituspuolueet ovat menettäneet kannatusta. Pesäpallon MM-kilpailut pelataan tällä viikolla Turussa. Kellokosken sairaalassa voi tutustua siihen, miten psykiatrinen hoito on muuttunut. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Kaikki hallituspuolueet ovat menettäneet kannatusta. Pesäpallon MM-kilpailut pelataan tällä viikolla Turussa. Kellokosken sairaalassa voi tutustua siihen, miten psykiatrinen hoito on muuttunut. Säätiedot.

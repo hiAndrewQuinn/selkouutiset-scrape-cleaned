@@ -1,0 +1,65 @@
+# Maanantai 23.2.2015
+
+Vaarallisia huumeita Suomeen postipaketeissa. Berliinissä suljettiin koulu tuhkarokon takia. Suomessa vähän tuhkarokkoa. Hollywoodissa jaettiin Oscar-palkinnot. Radiossa luetaan keväällä Koraania.
+
+## Vaarallisia huumeita Suomeen postipaketeissa
+
+![Tullin löytämää muuntohuume etyylifenidaattia Helsinki-Vantaan lentokentän postitullissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7817345)
+
+Avaa kuvien katselu
+
+Helsinki-Vantaan tulli löytää melkein joka päivä jotain synteettistä huumetta postipaketeista.
+
+Suomeen tulee ulkomailta yhä enemmän vaarallisia huumeita postipaketeissa. Niitä tilataan internetistä. Helsinki-Vantaan lentokentän tulli kertoo, että se löytää joka päivä synteettisiä huumeita paketeista, jotka on lähetetty ulkomailta. Kaikkia niitä ei voi aina pysäyttää, koska vain osa niistä on laittomia.
+
+Aineet valmistetaan tavallisesti laboratoriossa Kiinassa. Huumeiden rakennetta muutetaan jatkuvasti. Laki ei ehdi kieltää niitä yhtä nopeasti.
+
+## Berliinissä suljettiin koulu tuhkarokon takia
+
+![Tuhkarokko-rokote.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7823802)
+
+Avaa kuvien katselu
+
+Tuhkarokko-rokote. Kuva: Reuters
+
+Saksan pääkaupungissa Berliinissä leviää tuhkarokko eli morbilli. Sen vuoksi maanantaina jouduttiin sulkemaan koulu.
+
+Berliinissä on sairastunut yli 550 ihmistä tuhkarokkoon lokakuun jälkeen. Viime viikolla uusia tapauksia oli 70. Sairastuneilla ei ollut suojana tuhkarokko-rokotusta.
+
+Saksan hallitus harkitsee nyt, pitääkö ihmiset pakottaa ottamaan rokote.
+
+## Suomessa vähän tuhkarokkoa
+
+![tuhkarokkoa sairastava lapsi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5831376)
+
+Avaa kuvien katselu
+
+Tuhkarokkoa sairastava lapsi. Tuhkarokko ei itse ole vakava tauti, mutta se voi aiheuttaa vaarallisen jälkitaudin. Kuva: CDC / Barbara Rice
+
+Suomessa tuhkarokkoon sairastuu muutama ihminen vuodessa. He saavat tartunnan ulkomailla. Suomessa lapset rokotetaan vauvana tuhkarokkoa vastaan. Rokotuksen ottaa vähintään 95 prosenttia lapsista. Tuhkarokko ei itse ole vakava tauti, mutta se voi aiheuttaa vaarallisen taudin, johon voi kuolla.
+
+## Hollywoodissa jaettiin Oscar-palkinnot
+
+![Alejandro G. Inarritu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7822724)
+
+Avaa kuvien katselu
+
+Birdman-elokuva sai parhaan elokuvan Oscarin. Sen ohjasi Alejandro González Iñárritu. Elokuva sai palkinnot myös parhaasta käsikirjoituksesta ja kuvauksesta. Kuva: Paul Buck / EPA
+
+Oscar-palkinnot jaettiin maanantaiyönä perinteisessä gaalassa Hollywoodissa.
+
+Parhaan elokuvan Oscar-palkinnon voitti elokuva Birdman. Sen ohjasi meksikolainen Alejandro González Iñárritu. Parhaana naisnäyttelijänä palkittiin Julianne Moore elokuvasta Still Alice. Parhaana miesnäyttelijänä palkittiin Eddie Redmayne, joka näytteli fyysikko Stephen Hawkingia elokuvassa Kaiken teoria.
+
+## Radiossa luetaan keväällä Koraania
+
+![Henkilö selaa Koraania.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6210371)
+
+Avaa kuvien katselu
+
+Koko Koraani luetaan radiossa kevään aikana Yle Radio 1 -kanavalla. Ensimmäinen osa on 7. maaliskuuta. Kuva: Yle
+
+Islamin perusteos Koraani luetaan kokonaan radiossa keväällä. Ylen radio-sarjassa on kaikkiaan 60 osaa.
+
+Tavoitteena on lisätä tietoa Koraanista ja muslimien kulttuurista. Jokaisen osan aluksi imaami ja tutkija kertovat Koraanista.
+
+Ohjelmasarja alkaa Yle Radio 1 -kanavalla maaliskuun 7. päivänä.

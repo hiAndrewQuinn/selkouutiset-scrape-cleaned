@@ -1,0 +1,67 @@
+# Perjantai 24.8.2018 (radio)
+
+Kuopiossa paha liikenneonnettomuus. Ministeri moittii armeijaa kasvisruuasta. Presidentti täyttää 70 vuotta. Espoo FM kertoo uutisia Suomesta arabiaksi. Sibeliuksen Metsä on uusi luonnonsuojelualue.
+
+## Kuopiossa paha onnettomuus
+
+![Näkymä onnettomuuspaikalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10369964)
+
+Avaa kuvien katselu
+
+Bussi putosi sillalta junaradalle Kuopiossa. Kuva: Timo Hartikainen / Lehtikuva
+
+Kuopiossa on tapahtunut paha liikenneonnettomuus. Onnettomuudessa on kuollut 4 ihmistä. 17 on loukkaantunut, neljä heistä vakavasti.
+
+Onnettomuudessa bussi syöksyi sillalta junaradalle iltapäivällä. Kuopion onnettomuuden nähnyt ihminen kertoi, että bussi tuli sillalle kovaa vauhtia kahdella pyörällä. Se törmäsi autoihin, jotka seisoivat liikennevaloissa. Törmäyksen jälkeen bussi syöksyi sillankaiteen läpi alas junaradalle.
+
+Bussin kuljettaja on kertonut poliisille, että bussin jarrut eivät toimineet.
+
+## Ministeri moittii armeijaa kasvisruuasta
+
+![Sotilaat ruokailevat. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9167397)
+
+Avaa kuvien katselu
+
+Sotilaita syömässä. Kuva: Katriina Laine / Yle
+
+Puolustusministeri Jussi Niinistö moittii armeijaa kasvisruuasta.
+
+Armeija päätti alkaa tarjota sotilaille kaksi kertaa viikossa pelkkää kasvisruokaa. Ministeri Jussi Niinistö sanoo, että kasvisruoka ei ehkä riitä sotilaille ravinnoksi. Ministeri vaatii asiasta selvityksen.
+
+Sotilaille ruokaa tekevä firma sanoo, että kasvisruoka on terveellistä ihmiselle ja maapallon ilmastolle.
+
+## Ensimmäinen kuva presidentin vauvasta
+
+![Sauli Niinistö, Aaro ja Lennu Twitter-kuvassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10368600)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö, poika Aaro ja koira Lennu. Kuva: Twitter / Yle Uutisgrafiikka
+
+Presidentti Sauli Niinistöllä on syntymäpäivä. Hän täyttää 70 vuotta.
+
+Niinistö on tosi suosittu. Suurin osa suomalaisista sanoo, että Niinistö hoitaa työnsä hyvin. Ylen kyselyssä melkein 90 prosenttia ihmisistä antoi Niinistölle kouluarvosanan 8 tai enemmän. 80 prosenttia suomalaisista haluaa antaa presidentille enemmän valtaa sisäpolitiikassa. Nykyään presidentin työhön kuuluu ulkopolitiikka eli yhteydet muihin valtioihin.
+
+Presidentti julkaisi syntymäpäivänä ensimmäistä kertaa valokuvan 6 kuukautta vanhasta Aaro-pojasta.
+
+## Suomen uutisia arabiaksi
+
+Suomeen on perustettu arabiankielinen uutiskanava.
+
+Espoo FM -niminen kanava toimii internetissä. Se kertoo arabiaksi suomalaisen median uutisia Suomesta. Kanavaa pyörittää 17 vapaaehtoista ihmistä. Melkein kaikki ovat media-alan ammattilaisia, jotka ovat tulleet Suomeen turvapaikanhakijoina.
+
+Espoo FM -kanava haluaa auttaa maahan tulleita ihmisiä ymmärtämään Suomen yhteiskuntaa ja suomalaisia.
+
+## Sibeliuksen Metsä on uusi luonnonsuojelualue
+
+![Auringonnousu Aulangolla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10365705)
+
+Avaa kuvien katselu
+
+Aurinko nousee Aulangolla. Kuva: Ville Välimäki / Yle
+
+Hämeenlinnan kaupunkiin on perustettu uusi luonnonsuojelualue.
+
+Suojelualue on Aulangolla ja sen nimi on Sibeliuksen Metsä. Tarina kertoo, että säveltäjä Jean Sibelius sävelsi metsässä musiikkia, esimerkiksi Finlandian.
+
+Monet Hämeenlinnan asukkaat käyvät alueella usein. He juoksevat polkuja pitkin, ajavat maastopyörällä ja ratsastavat. Metsässä on myös näkötorni, jossa käy turisteja.

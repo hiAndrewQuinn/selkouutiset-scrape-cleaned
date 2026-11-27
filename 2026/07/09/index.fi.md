@@ -1,0 +1,75 @@
+# Selkouutiset | torstai 9.7.2026
+
+Nato-kokous. Marjojen hinta. Sähkölentokone. Sääennuste.
+
+## Nato-kokous
+
+Aluksi uutinen turvallisuuspolitiikasta.
+
+Sotilasliitto Naton iso kokous päättyi keskiviikkona.
+
+Kokouksen iso asia olivat päätökset, joilla Eurooppa ottaa enemmän vastuuta Natossa.
+
+Suomea edusti kokouksessa presidentti **Alexander Stubb**.
+
+Stubb sanoi, että tärkein asia oli keskittyä Naton kehittämiseen.
+
+Stubb sanoi, että Suomea hyödyttää myös se, että muut Nato-maat sitoutuvat 5 prosentin puolustusmenoihin.
+
+*”Me kasvatamme puolustusmenoja ja puolustuskykyjä. Se että Nato-liittolaiset ovat sitoutuneet 5 prosenttiin hyödyttää myös Suomea.”*
+
+Sotilasliitto Naton iso kokous päättyi keskiviikkona.
+
+Kokous kesti 2 päivää. Se pidettiin Turkin pääkaupungissa Ankarassa.
+
+## Luonnonmarjojen hinta
+
+Nyt uutinen luonnonmarjojen kaupasta.
+
+Marjojen hinta nousee tänä kesänä, koska Suomeen ei tule ulkomailta marjanpoimijoita.
+
+Suomi on hylännyt suurimman osan poimijoiden viisumihakemuksista, koska toiminnassa on ollut hyväksikäyttöä ja muita väärinkäytöksiä.
+
+Marjoja saadaan metsistä vähemmän myyntiin kuin aiemmin.
+
+Siksi myös hinnat nousevat.
+
+Kajaanin kauppatorilla myytiin eilen ensimmäisiä mustikoita. Yksi litra maksoi 8 euroa.
+
+Torimyyjä **Raul Seema** sanoo, että hinta on hieman korkea.
+
+*”Viime vuoteen verrattuna se on kallis hinta. Se oli noin vitonen (5€) viime vuonna.”*
+
+Marjojen hinta nousee tänä kesänä, koska ulkomailta pääsee Suomeen vain vähän marjanpoimijoita.
+
+## Sähkölentokone
+
+Lopuksi uutinen tekniikasta.
+
+Sähkölentokone on tehnyt historiaa ja vieraillut Suomessa.
+
+Tämä on Elektra Trainer -sähkölentokone.
+
+Se on ensimmäinen sähkölentokone, joka on lentänyt avomeren yli.
+
+Kone lensi Suomeen Ruotsista. Se lähti matkaan Saksasta.
+
+Koneen koelentäjä on saksalainen **Uwe Nortmann**.
+
+Nortmann kertoo, että lento Suomeen sujui nopeasti ja helposti.
+
+Sähkölentokone on tehnyt historiaa ja vieraillut Suomessa.
+
+Vierailu on osa Oulun ammattikorkeakoulun toimintaa.
+
+Kiertue kerää tietoa siitä, miten sähkömoottori ja akut toimivat.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina on enimmäkseen poutaa eli ei sada. Myös aurinko paistaa laajalti.
+
+Maan etelä- ja keskiosassa voi tulla sadekuuroja.
+
+Lämpötila on enimmäkseen 20 ja 25 asteen välillä.

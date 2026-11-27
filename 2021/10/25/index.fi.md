@@ -1,0 +1,97 @@
+# Maanantai 25.10.2021 (radio)
+
+Maskisuositus. Koronapotilaat ja koronakuolemat. Viron koronarajoitukset. Sotilasliitto Nato. Elokuvapalkinto. Sää.
+
+## Maskin käyttö
+
+![Kasvomaskia käyttävä henkilö aurinkoisena syyspäivänä Pasilassa 15. syyskuuta.](https://img.img-cdn.yle.fi/crop_extract,w_4834,h_2719,x_0,y_506/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8540766141ee916967d/1631711295)
+
+Avaa kuvien katselu
+
+Junien matkustajat voivat nyt itse päättää, käyttävätkö he maskia. Kuva: Silja Viitala / Yle
+
+Maskipakko junissa loppuu. VR kertoi asiasta maanantaina.
+
+Matkustaja voi nyt itse päättää, käyttääkö hän junassa maskia vai ei. VR kuitenkin suosittelee, että maskia käytetään.
+
+Maskipakko loppuu myös Helsingin seudun joukkoliikenteessä.
+
+Busseissa, lähijunissa ja metrossa maski ei ole enää pakollinen. Maskia on kuitenkin hyvä vielä käyttää.
+
+## Koronaluvut
+
+![Hoitajia kulkee koronapotilaiden luo ovesta Tyksin teho-osastolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11835833)
+
+Avaa kuvien katselu
+
+Hoitajilla on nyt paljon työtä koronapotilaiden takia. Kuva: Minna Rosvall / Yle
+
+Koronapotilaiden määrä sairaaloissa kasvaa. Suomen sairaaloissa on nyt 215 koronapotilasta.
+
+Viikonlopun aikana 11 ihmistä on kuollut koronan takia. Lisäksi viikonloppuna löydettiin noin 1730 uutta koronatartuntaa.
+
+## Viron koronarajoitukset
+
+![Pyyntö osoittaa negatiivinen koronatodistus hotellin vastaanotossa Tallinnassa 5. lokakuuta 2021.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_368/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8709736174df5e2fc2d/1635049348)
+
+Avaa kuvien katselu
+
+Koronapassi on nyt tarpeen kaikille, jotka käyvät Virossa. Kuva: Teemu Salonen / Lehtikuva
+
+Suomen naapurimaassa Virossa on tullut voimaan uusia koronarajoituksia.
+
+Virossa on nyt maskipakko esimerkiksi busseissa ja kaupoissa.
+
+Aikuiset pääsevät elokuviin, teattereihin ja konsertteihin vain, jos heillä on koronapassi.
+
+Viron koronarajoitukset ovat voimassa 10. tammikuuta asti.
+
+Virossa toivotaan, että koronarajoitukset vähentävät koronapotilaiden määrää sairaaloissa.
+
+## Naton pääsihteeri
+
+![Jens Stoltenberg ja Sauli Niinistö tiedotustilaisuudessa Presidentinlinnassa.](https://img.img-cdn.yle.fi/crop_extract,w_2646,h_1488,x_540,y_558/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-871233617674eb0e621/1635153194)
+
+Avaa kuvien katselu
+
+Naton pääsihteeri Jens Stoltenberg ja Suomen presidentti Sauli Niinistö. Kuva: Vesa Moilanen / Lehtikuva
+
+Sotilasliitto Naton pääsihteeri Jens Stoltenberg on vierailulla Suomessa. Stoltenberg keskusteli maanantaina presidentti Sauli Niinistön kanssa.
+
+Stoltenberg arvioi, että Suomi voi auttaa Natoa parantamaan suhteita Venäjään. Sotilasliitto Naton ja Venäjän suhteet ovat nykyään huonot.
+
+Suomi ei ole sotilasliitto Naton jäsen, mutta Suomi tekee paljon yhteistyötä Naton kanssa.
+
+Tämän viikon perjantaina presidentti Niinistö vierailee Venäjällä ja tapaa Venäjän presidentti Vladimir Putinin.
+
+## Elokuvapalkinto
+
+![Nasra (Yasmin Warsame) halaa Guledia (Omar Abdi).](https://img.img-cdn.yle.fi/crop_extract,w_2933,h_1650,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82512960d4354e77309/1706789574)
+
+Avaa kuvien katselu
+
+Haudankaivaja Guledia näyttelee helsinkiläinen Omar Abdi. Kuva: Arttu Peltomaa / BUFO
+
+Suomalainen elokuva on voittanut palkinnon Afrikassa.
+
+Voittajaelokuvan nimi on Guled & Nasra, ja se on somalinkielinen.
+
+Elokuvan ohjaaja on suomalais-somalialainen Khadar Ayderus Ahmed.
+
+Palkinto tuli Fespaco-elokuvajuhlilla. Fespaco on Afrikan tärkein elokuvajuhla.
+
+Guled & Nasra voitti elokuvajuhlien pääpalkinnon. Palkinto on 30 000 euroa.
+
+## Tiistain sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12159243)
+
+Avaa kuvien katselu
+
+Lumisateet jatkuvat pohjoisessa.
+
+Tiistaina lunta sataa Keski- ja Pohjois-Lapissa. Etelä-Lapissa sataa vettä.
+
+Muualla Suomessa tulee vain paikoin vettä tai tihkua eli hyvin heikkoa sadetta.
+
+Maan etelä- ja keskiosassa lämpötila on tiistaina +5 ja +10 asteen välillä, Lapissa -5 ja +1 asteen välillä.

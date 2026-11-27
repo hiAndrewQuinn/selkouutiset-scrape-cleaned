@@ -1,0 +1,7 @@
+# Keskiviikko 29.8.2018 (tv)
+
+Ranskan presidenttipari tulee illalla Suomeen. Hovioikeus pohtii uusnatsijärjestön lakkauttamista. Jyväskylässä yritetään helpottaa koulun ja urheiluharrastuksen yhdistämistä. Amos Rex -taidemuseo avaa ovensa huomenna. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Ranskan presidenttipari tulee illalla Suomeen. Hovioikeus pohtii uusnatsijärjestön lakkauttamista. Jyväskylässä yritetään helpottaa koulun ja urheiluharrastuksen yhdistämistä. Amos Rex -taidemuseo avaa ovensa huomenna. Säätiedot.

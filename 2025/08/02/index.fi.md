@@ -1,0 +1,79 @@
+# Radio | Uutisviikko selkosuomeksi | lauantai 2.8.2025
+
+Alkoholilain uudistaminen
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Uutisviikon aihe on alkoholilain muuttaminen. Puolueet ja suomalaisetkin ovat ehdotuksesta eri mieltä.
+
+Jos uusi laki hyväksytään, alkoholia voi esimerkiksi tilata suoraan kotiovelle.
+
+## Alkoholin kotiinkuljetus ehkä sallitaan
+
+![Wolt ruokalähetti Timur selaa puhelinta.](https://images.cdn.yle.fi/image/upload/c_crop,h_1500,w_2668,x_0,y_655/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1637591789/39-882491619ba8aff282c)
+
+Avaa kuvien katselu
+
+Jos laki muuttuu, alkoholia voi tilata suoraan kotiovelle. Kuva: Benjamin Suomela / Yle
+
+Kesällä on puhuttu paljon alkoholista.
+
+Hallitus on jättänyt ehdotuksen alkoholilain muutoksesta. Laki on ollut lausuntokierroksella, eli eri asiantuntijat arvioivat sitä.
+
+Lausuntokierros päättyi heinäkuun lopussa.
+
+Muutosehdotus on saanut paljon palautetta. Suurin osa palautteesta on ollut vastustavaa.
+
+Uudessa ehdotuksessa kaikenlaisen alkoholin etämyynti ja kotiinkuljetus sallitaan. Myös alkoholijuomien mainostaminen helpottuu.
+
+Nyt Alkon tuotteita voi tilata verkkokaupasta, mutta ne pitää hakea myymälästä tai noutopisteestä.
+
+Uutta laissa on se, että myös ulkomaalaiset yritykset voivat myydä alkoholia Suomeen.
+
+## Alkoholilain muutos herättää huolta
+
+![yleiskuva.](https://images.cdn.yle.fi/image/upload/c_crop,h_3035,w_5395,x_0,y_438/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712302683/39-791796606c5f7ddba38)
+
+Avaa kuvien katselu
+
+Ulkomaisesta verkkokaupasta voi jatkossa ostaa väkevääkin alkoholia laillisesti kotiovelle, jos hallituksen lakiaikeet toteutuvat. Kuva: Mikko Koski / Yle Kuva: Mikko Koski / Yle
+
+Alkoholilain muutos herättää myös huolta. Osa suomalaisista kannattaa kotiinkuljetusta, osa vastustaa sitä.
+
+Monet sosiaali- ja terveysalan järjestöt sekä hyvinvointialueet vastustavat muutosta. Järjestöt uskovat, että riskiryhmät alkavat juoda enemmän.
+
+Alkoholihaittoja voi tulla lisää. Niitä ovat esimerkiksi maksasairaudet, mielenterveysongelmat, tapaturmat, perheväkivalta ja lastensuojelun tarpeet.
+
+Järjestöt sanovat myös, että ikärajaa on vaikea valvoa kotiinkuljetuksessa.
+
+Myös puolueet ovat alkoholilain muuttamisesta eri mieltä. Eniten muutosta vastustavat kristillisdemokraatit.
+
+## Kauppa ja Alko kannattavat muutosta
+
+![Kuvassa on Alkon viestintäohtaja Maritta Iso-Aho. ](https://images.cdn.yle.fi/image/upload/c_crop,h_2964,w_5295,x_0,y_110/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1753187112/39-1496972687f815855407)
+
+Avaa kuvien katselu
+
+Alkon viestintäjohtaja Maritta Iso-Aho sanoo, että Alko suhtautuu myönteisesti alkoholin kotiinkuljetukseen. Kuva: Kuva: Alko Kuva: Kuva: Alko
+
+Uusi alkoholilaki saa kannatusta ruokakaupoista. Päivittäistavarakauppa PTY suhtautuu ehdotukseen nyt myönteisesti.
+
+Matkailu- ja Ravintolapalvelut MaRa sen sijaan arvostelee ehdotusta.
+
+Palvelualojen ammattiliitto PAM sanoo, että kotiinkuljetus on työturvallisuusriski.
+
+Valtion monopolifirma Alko suhtautuu kotiinkuljetukseen myönteisesti. Alko sanoo, että Ruotsissa ja Norjassa alkoholia on saanut kotiin jo monta vuotta.
+
+Osuus on kuitenkin vain noin 1 prosentin verran.
+
+## Kertaus
+
+Uutisviikon aihe oli alkoholilain muuttaminen.
+
+Jos uusi laki hyväksytään, suomalaiset voivat esimerkiksi tilata juomia kotiin.
+
+Lausuntokierros laista on juuri päättynyt.
+
+Uutisviikko selkosuomeksi jälleen huomenna sunnuntaina. Tavataan taas, kuulemiin!

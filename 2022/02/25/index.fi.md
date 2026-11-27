@@ -1,0 +1,79 @@
+# Perjantai 25.2.2022 (radio)
+
+Sota Ukrainassa. Ihmiset pakenevat maasta. Niinistö ja Zelenskyi. Euroviisut. Sää.
+
+## Venäjän sotatoimet Ukrainassa
+
+![Venäjän panssareita junassa.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1079,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9204126218b5cbc1f2b/1645786766)
+
+Avaa kuvien katselu
+
+Venäjän viranomaisten välittämä kuva Venäjän panssarivaunuista junassa juuri ennen hyökkäystä Ukrainaan.  Kuva: EyePress News/Shutterstock/All Over Press
+
+Ukrainassa taistelut ovat kiihtyneet. Venäjän joukot ovat edenneet Ukrainassa jo pääkaupunki Kiovan pohjoisosiin. Presidentti Volodymyr Zelenskyi syyttää Venäjää hyökkäyksistä siviilikohteisiin.
+
+Kiovan pormestari sanoo, että Ukrainan pääkaupunki on siirtynyt puolustusvaiheeseen. Britannia kertoo, että maan keskeiset kaupungit ovat yhä Ukrainan joukkojen hallinnassa.
+
+## Ukrainalaiset pakenevat
+
+![Kiovasta pois lähtevää liikennettä torstaiaamuna.](https://img.img-cdn.yle.fi/crop_extract,w_3535,h_1988,x_8,y_95/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-919569621725046c2f6/1645791350)
+
+Avaa kuvien katselu
+
+Tuhannet ukrainalaiset yrittävät paeta maasta naapurimaihin turvaan. Kuva: Pierre Crom / Getty Images
+
+YK:n pakolaisjärjestö kertoo, että ainakin 100 000 ukrainalaista on paennut kodeista. Tuhannet ihmiset ovat matkustaneet naapurimaihin Moldovaan, Romaniaan ja Puolaan.
+
+Jo torstaina lähes 11 000 ukrainalaista ylitti rajan naapurimaahan Romaniaan aamun hyökkäyksen jälkeen. Osa heistä jatkoi Unkariin.
+
+Tiet Ukrainasta ulos ovat täynnä autoja.
+
+Myös Suomessa varaudutaan pakolaisten tuloon. Esimerkiksi Turun vastaanottokeskus voi majoittaa heti vajaat 00 ihmistä.
+
+Suomen Punaisella Ristillä on myös muita tiloja väliaikaista majoitusta varten.
+
+## Presidentit keskustelivat
+
+![Volodymyr Zelensky.](https://img.img-cdn.yle.fi/crop_extract,w_4129,h_2319,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89677361caeb49878e3/1640688712)
+
+Avaa kuvien katselu
+
+Ukrainan presidentti Volodymyr Zelenski. Kuva: Johanna Geron / AFP
+
+Presidentti Sauli Niinistö on keskustellut puhelimessa Ukrainan presidentin Volodymyr Zelenskin kanssa.
+
+Niinistö kertoi, että Suomi antaa lähes 15 miljoonaa euroa lisätukea Ukrainalle. Tuki annetaan rahastoon, joka tukee Ukrainan resilienssiä eli kestokykyä. Rahaa annetaan myös humanitääriseen apuun.
+
+Niinistö kertoi jälleen puhelussa, että Suomi tuomitsee jyrkästi Venäjän sotatoimet Ukrainassa.
+
+## Venäjä ja Euroviisut
+
+![Euroviisujen voittaja Italian Måneskin.](https://img.img-cdn.yle.fi/crop_extract,w_5258,h_2958,x_0,y_550/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-80982560aa059bc6689/1621755390)
+
+Avaa kuvien katselu
+
+Viime vuonna Euroviisut voitti Italia. Kuva: Robin Van Lonkhuijsen / EPA
+
+Suomen yleisradiohtiö Yle vetoaa Euroopan yleisradiounioni EBU:uun Euroviisujen vuoksi. Yle toivoo, että EBU sulkee Venäjän pois Eurovision laulukilpailusta.
+
+Yle ei aio osallistua kilpailuun Italian Torinossa, jos Venäjä on mukana.
+
+Yle sanoo, että Venäjän hyökkäys Ukrainaan on vastoin kaikkia niitä arvoja, joita Yle ja muut eurooppalaiset yleisradioyhtiöt edustavat. Ruotsin yleisradioyhtiö SVT tiedusteli asiaa EBU:lta eilisaamuna.
+
+Suomen tämän vuoden edustaja Euroviisuihin valitaan huomenna lauantaina Uuden Musiikin Kilpailun finaalissa. Lähetys selostetaan nyt ensimmäistä kertaa myös selkosuomeksi Yle Areenassa. Lähetys alkaa huomisiltana kello 21 Yle Areenassa ja Yle TV1:ssä.
+
+Katso UMK-finaali, jossa on selkokielinen selostus
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12334945)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Lauantaiksi Suomeen virtaa kuivaa ilmaa. Huomininen lauantai on hieman kylmempi ja laajoilla alueilla aurinkoinen päivä.
+
+Lämpötila eteläosissa 0 – -4 astetta, pohjoisessa pakkasta on 6 – 12 astetta.
+
+Sunnuntain vastaisena yönä pohjoisessa liikkuu lumisateita itään. Päivä on poutainen, melko aurinkoinen ja tuulinen.

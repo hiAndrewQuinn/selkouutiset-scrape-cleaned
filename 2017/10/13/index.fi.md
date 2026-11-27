@@ -1,0 +1,7 @@
+# Perjantai 13.10.2017 (tv)
+
+Suomessa on paperittomia perheitä. Poliisi alkaa ehkä tutkia, ovatko tupakkafirmat tappaneet ihmisiä kevytsavukkeilla. Suomen koululaiset ovat saaneet ilmaista kouluruokaa jo melkein 70 vuotta. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Suomessa on paperittomia perheitä. Poliisi alkaa ehkä tutkia, ovatko tupakkafirmat tappaneet ihmisiä kevytsavukkeilla. Suomen koululaiset ovat saaneet ilmaista kouluruokaa jo melkein 70 vuotta. Säätiedot.

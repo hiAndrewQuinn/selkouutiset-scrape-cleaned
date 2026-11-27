@@ -1,0 +1,65 @@
+# Sunnuntai 4.11.2018 (radio)
+
+Suomessa on aikaisempaa enemmän ihmisiä, joilla ei ole tuloja. Italiassa on kuollut lisää ihmisiä myrskyn ja tulvavesien takia. Suomalainen Joona Sotala on uusi maailmanmestari e-urheilussa. Avioparit voivat parantaa seksielämää puhumalla ja kokeilemalla uutta.
+
+## Ihmisiä ilman tuloja
+
+![Kolikoita kädellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10111162)
+
+Avaa kuvien katselu
+
+Monilla ei ole yhtään tuloja. Kuva: Henrietta Hassinen / Yle
+
+Nollatuloisia ihmisiä on enemmän kuin ennen. Nollatuloisilla ihmisillä ei ole yhtään tuloja, joista maksetaan veroja.
+
+Viime vuonna nollatuloisia oli noin 160 000. Suurin osa heistä on ulkomaalaisia, jotka ovat esimerkiksi opiskelleet Suomessa.
+
+Myös monet suomalaiset ovat nollatuloisia. Monet heistä elävät tukirahalla, josta ei mene veroa. Jotkut elävät vanhempien tai puolison rahoilla.
+
+## Tulvia Sisiliassa
+
+![Tulvan aiheuttamia vahinkoja kadulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10492033)
+
+Avaa kuvien katselu
+
+Tulvavesi jätti kadut huonoon kuntoon. Kuva: Alessandro Fucarini / AFP
+
+Italiassa on kuollut lisää ihmisiä myrskyn ja tulvavesien takia.
+
+Viikonloppuna ainakin 12 ihmistä kuoli Sisilian saarella. 9 heistä kuoli talossa, joka jäi tulvaveden alle. Kuolleiden joukossa on lapsia. Vesi tuli taloon joesta, jonka vedenpinta nousi nopeasti.
+
+Italiassa on kuollut tällä viikolla monta ihmistä myrskyn takia. Kuolleita on noin 30. Italiassa on ollut kova tuuli ja sade koko viikon.
+
+## Maailmanmestari e-urheilussa
+
+![Joona Sotala](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10492098)
+
+Avaa kuvien katselu
+
+Maailmanmestari Joona Sotala. Kuva: ESL
+
+Suomalaisten hyvä menestys e-urheilussa jatkuu. Suomalainen Joona Sotala on uusi Starcraft 2 -videopelin maailmanmestari.
+
+E-urheilu tarkoittaa elektronista urheilua, jota harrastetaan tietokoneella tai pelikonsolilla. Starcraft 2 on strategiapeli.
+
+Joona Sotala osallistui kilpailuihin USA:ssa. Sotala voitti loppuottelussa eteläkorealaisen pelaajan.
+
+Sotalan voitto on historiallinen. Hän on sarjan ensimmäinen maailmanmestari, joka ei ole korealainen.
+
+## Seksi parisuhteessa
+
+![Mies ja nainen nauttivat toisistaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10491515)
+
+Avaa kuvien katselu
+
+Kuopiolainen pari esiintyi Helsingin seksimessuilla. Kuva: Henrietta Hassinen / Yle
+
+Helsingissä oli viikonloppuna seksimessut.
+
+Messuilla esiintyi myös kuopiolainen pari Itä-Suomesta. Pari viettää tavallista perhe-elämää, mutta kuvaa myös eroottista viihdettä aikuisille.
+
+Ylen toimittaja kysyi parilta, miten muut avioparit voivat parantaa seksielämää.
+
+Parin tärkein neuvo on puhuminen. Puoliso ei osaa lukea ajatuksia. Seksistä on vaikea puhua, mutta sitä on hyvä opetella. Jos puolisot eivät puhu, he eivät tiedä, mitä toinen haluaa.
+
+Pari neuvoo muita pareja myös kokeilemaan uutta. Pitkässä parisuhteessa seksi on usein samanlaista. Se voi vähentää iloa parisuhteessa. Puolisoilla on oikeus kokeilla erilaisia asioita, joista he molemmat tykkäävät. Heidän ei tarvitse kuunnella muiden ihmisten mielipiteitä.

@@ -1,0 +1,7 @@
+# Maanantai 31.7.2017 (tv)
+
+Henkilöstöravintoloilla menee taas hyvin. Ulkomaiset vuokratyöfirmat haluavat marjabisnekseen. Urheiluseurat rakentavat liikuntapaikkoja. Suomi 100 -juoksutapahtuma pääsi maaliin.
+
+Yle Uutiset selkosuomeksi
+
+Henkilöstöravintoloilla menee taas hyvin. Ulkomaiset vuokratyöfirmat haluavat marjabisnekseen. Urheiluseurat rakentavat liikuntapaikkoja. Suomi 100 -juoksutapahtuma pääsi maaliin.

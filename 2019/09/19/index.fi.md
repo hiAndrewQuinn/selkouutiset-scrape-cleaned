@@ -1,0 +1,69 @@
+# Torstai 19.9.2019 (radio)
+
+Merivoimat saa uusia sotalaivoja. Parikkalaan tulee uusi kansainvälinen rajanylityspaikka. Myös pojille halutaan antaa HPV-rokote. Äitien ja lasten kuolleisuus maailmassa on laskenut.
+
+## Merivoimille uusia sotalaivoja
+
+![Pohjanmaa-luokan aluksen havainnekuva](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10979308)
+
+Avaa kuvien katselu
+
+Merivoimat saa 4 uutta laivaa Kuva: Puolustusvoimat
+
+Suomi ostaa uusia sotalaivoja.
+
+Hallitus on päättänyt ostaa Merivoimille 4 uutta sotalaivaa. Laivat korvaavat 7 vanhaa alusta, jotka poistuvat käytöstä.
+
+Uudet laivat rakennetaan Suomessa Rauman telakalla. Laivojen rakentaminen tuo työtä ehkä noin 2000 ihmiselle.
+
+Laivat maksavat 1,3 miljardia euroa. Laivojen on määrä olla valmiita vuonna 2028.
+
+## Uusi reitti Venäjälle
+
+![Parikkalan raja-asema](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10978102)
+
+Avaa kuvien katselu
+
+Parikkalassa on nyt tilapäinen rajanylityspaikka. Kuva: Mikko Savolainen / Yle
+
+Suomen ja Venäjän rajalle avataan uusi kansainvälinen rajanylityspaikka.
+
+Uusi rajanylityspaikka on Suomen Parikkalan ja Venäjän Syväoron välillä. Uusi rajanylityspaikka aiotaan avata matkustaja- ja tavaraliikenteelle vuonna 2024.
+
+Nykyisin Parikkalassa on tilapäinen rajanylityspaikka. Se tarkoittaa sitä, että rajanylitykseen pitää olla erikoislupa.
+
+Uusi rajanylityspaikka avataan Parikkalaan, koska hallitus haluaa vahvistaa Itä-Suomen ja Savonlinnan alueen elinvoimaa.
+
+## HPV-rokote myös pojille
+
+![HPV-rokote annetaan olkavarteen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10351199)
+
+Avaa kuvien katselu
+
+HPV-rokote annetaan nykyään vain tytöille. Kuva: AOP
+
+HPV-rokote halutaan antaa myös pojille. Terveysviranomaiset haluavat, että jo ensi syksynä HPV-rokote annetaan myös pojille.
+
+HPV-rokote suojaa monilta syöviltä. HPV-rokote antaa suojaa esimerkiksi kohdunkaulan syöpää ja peniksen syöpää vastaan.
+
+Nyt rokote annetaan vain tytöille. Tytöistä noin 70 prosenttia saa HPV-rokotuksen.
+
+Terveyden ja hyvinvoinnin laitoksen ylilääkäri Tuija Leino sanoo, että jos rokote annetaan myös pojille, rokotuksilla voidaan ehkäistä ehkä noin 300 syöpää vuodessa
+
+## Lapsi- ja äitikuolleisuus laskevat
+
+![Lapsi vanhemman sylissä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10846571)
+
+Avaa kuvien katselu
+
+Lapsikuolleisuus on vähentynyt esimerkiksi rokotteiden ja paremman hygienian ansiosta. Kuva: Marko Väänänen / Yle
+
+Lapsikuolleisuus on laskenut ympäri maailmaa, kertoo YK:n lastenjärjestö Unicef.
+
+Lapsikuolleisuus on laskenut yli 50 prosenttia vajaan 30 vuoden aikana. Vuonna 1990 maailmassa kuoli yli 14 miljoonaa alle 15-vuotiasta lasta. Viime vuonna lapsia kuoli noin 6 miljoonaa.
+
+Lapsikuolleisuus on vähentynyt esimerkiksi rokotteiden ja entistä paremman hygienian ansiosta.
+
+Myös äitien kuolleisuus on laskenut. Vuonna 2017 eri puolilla maailmaa kuoli vähän alle 300 000 äitiä. Se on 35 prosenttia vähemmän kuin vuonna 2000.
+
+Äitien ja pienten lasten kuolleisuus on korkein Saharan eteläpuolisessa Afrikassa.

@@ -1,0 +1,81 @@
+# Thursday 2.12.2021 (radio)
+
+The corona virus Omicron variant. A third corona vaccine. The Ombudsman for Older People. Party support. Weather forecast.
+
+## Omicron variant
+
+![THL sign.](https://img.img-cdn.yle.fi/crop_extract,w_5280,h_2970,x_11,y_549/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88729461a8c91093c2e/1638451532)
+
+Open image viewer
+
+Photo: Vesa Moilanen / Lehtikuva
+
+The Omicron variant of the corona virus has been found in Finland.
+
+The Finnish Institute for Health and Welfare, THL, told about Finland's first Omicron case on Thursday.
+
+The new Omicron variant of the corona virus was only found last week in southern Africa. It has spread quickly to many countries.
+
+There is still little information about Omicron. For example, it is not yet known how well the corona vaccine protects against Omicron.
+
+## Third corona vaccine
+
+![Northern Helsinki corona vaccination point. Malmi. 27.1.2021.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-766968601162d3b5858/1611819993)
+
+Open image viewer
+
+Photo: Jorge Gonzalez / Yle
+
+The Finnish Institute for Health and Welfare recommends that everyone over 18 years old is given 3 corona vaccines. Until now only people over 60 and risk groups could get 3 corona vaccines. Risk groups include people who have a serious illness.
+
+The number of corona infections is still growing in Finland. On Thursday it was reported that there are more than 1600 new corona infections in Finland. That is more than ever before in one day.
+
+## Ombudsman for Older People
+
+![An older person walking in the city](https://img.img-cdn.yle.fi/crop_extract,w_4346,h_2445,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-7891958dd4108b5306/1712639702)
+
+Open image viewer
+
+There are many older people in Finland. Photo: Henrietta Hassinen / Yle
+
+The first Ombudsman for Older People has been chosen for Finland.
+
+Päivi Topo will take up the job of Ombudsman for Older People. Topo is now the director of the Ikäinstituutti foundation.
+
+Topo starts in the job of Ombudsman for Older People in January. The job lasts 5 years.
+
+The job of the Ombudsman for Older People is to defend the rights of older people. The ombudsman looks at whether the rights of older people are realised.
+
+So Päivi Topo becomes Finland's first Ombudsman for Older People.
+
+## Party support
+
+![Party support](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12212809)
+
+Open image viewer
+
+Photo: Ruuti Ylitalo / Yle
+
+The support for the opposition parties has risen.
+
+This is what Yle's new opinion poll says. In the opinion poll, people were asked which party they support.
+
+The largest party in the opinion poll is the National Coalition Party. The support for the National Coalition Party is now almost 22 per cent.
+
+The second largest party is the Finns Party. Its support is almost 19 per cent.
+
+The National Coalition Party and the Finns Party are opposition parties, that is, they are not in the government.
+
+The largest government party, the SDP, came third in the opinion poll. The support for the SDP is a little over 18 per cent. The SDP is the party of Prime Minister Sanna Marin.
+
+The support figures for all parties can be found at yle.fi.
+
+## Friday's weather
+
+![weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12214932)
+
+Open image viewer
+
+On Friday the cloudiness varies. Mostly in the south of the country there will be some snow showers. Elsewhere in the country it is mostly dry.
+
+In the daytime it is 5 to 10 degrees of frost. In Lapland it is 10 to 20 degrees of frost. A moderate east wind makes it feel colder.

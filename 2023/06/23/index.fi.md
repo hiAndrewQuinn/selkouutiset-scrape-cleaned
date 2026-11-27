@@ -1,0 +1,67 @@
+# Radio selkouutiset torstai 22.6.2023
+
+Ministeri pahoittelee. Asuntomurrot. Juhannus. Sää.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Ministeri pahoittelee
+
+![Tuleva elinkeinoministeri Vilhelm Junnila (ps.) kuunteli hallitusnelikon infoa Säätytalolla.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_336/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11333736492f0311083d/1687351467)
+
+Avaa kuvien katselu
+
+Elinkeinoministeri Vilhelm Junnila. Kuva: Silja Viitala / Yle
+
+Uusi elinkeinoministeri, perussuomalaisten Vilhelm Junnila pahoittelee käytöstään menneisyydessä. Vuoden 2019 eduskuntavaalien aikaan Junnila laski leikkiä ehdokasnumerostaan 88, joka on äärioikeiston symboli.
+
+Junnila pahoittelee asiaa ja sanoo, että käyttäytyi huonosti.
+
+Junnila piti myös puheen äärioikeistolaisen järjestön tilaisuudessa. Junnila sanoo, että ei enää nykyään osallistuisi samanlaiseen tilaisuuteen.
+
+Asiasta puhuttiin torstaina eduskunnassa.
+
+## Asuntomurrot
+
+![Liettualaiskopla teki ison murtosarjan kesällä 2012 Etelä-Suomessa. He etsivät erityisesti kultakoruja ja rahaa.](https://img.img-cdn.yle.fi/crop_extract,w_3422,h_1925,x_0,y_1816/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-1675354b65f3b4b42e/1627016788)
+
+Avaa kuvien katselu
+
+Varas on sotkenut paikat. Kuva: Poliisi
+
+Asuntomurtojen määrä Suomessa on vähentynyt 2000-luvulla. Vakuutusyhtiö Fennia kertoo, että ihmiset osaavat nykyään varoa varkaita paremmin kuin ennen. He lukitsevat ja suojaavat kotinsa paremmin.
+
+Poliisi neuvoo, että omakotitaloissa ja rivitaloissa ovet ja ikkunat on hyvä lukita, vaikka asukas olisi poissa kotoa vain vähän aikaa. Kalliit esineet kannattaa laittaa sellaiseen paikkaan, ettei kukaan näe niitä ikkunasta. Varkaat haluavat esimerkiksi koruja ja elektroniikkaa.
+
+Jos joku on murtautunut kotiin, kotia ei pidä siivota. Se tekee poliisin työn vaikeaksi, kun poliisi tutkii asuntomurtoa.
+
+Eniten asuntomurtoja tehdään kesäkuussa ja heinäkuussa.
+
+## Juhannus
+
+![Juhannuskokko Haukivuoren Kapustasalmessa. Sää 2022 oli lämmin ja paikalla on kymmeniä veneitä. Kokko palaa pienessä saaressa.](https://img.img-cdn.yle.fi/crop_extract,w_6016,h_3384,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97453462b6e8bb7e218/1656154478)
+
+Avaa kuvien katselu
+
+Juhannuksena poltetaan juhannuskokko. Kuva: Isto Matias Janhunen / Yle
+
+Suomi hiljenee perjantaina, kun ihmiset alkavat viettää juhannusta eli keskikesän juhlaa. Jo torstaina monet matkustavat kesämökille tai jonnekin muualle viettämään juhannusta.
+
+Torstaina on paljon liikennettä autoteillä ja paljon matkustajia junissa. Isoilla autoteillä päivä ennen perjantain juhannusaattoa on yleensä tosi vilkas. Joillakin teillä voi olla ruuhka.
+
+Poliisi valvoo liikennettä tarkasti. Poliisi kertoo, että autoja valvoo tänä juhannuksena yli kaksisataa automaattista kameraa.
+
+Myös sunnuntaina on paljon liikennettä, kun ihmiset palaavat kotiin. Monilla alkaa juhannuksen jälkeen kesäloma.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113400664945eeac7b3c/1687445271)
+
+Avaa kuvien katselu
+
+Sääkartta. Kuva: Yle
+
+Yöllä ja perjantaina sateita ja ukkosia on Suomen keskiosissa. Muualla on aurinkoista.
+
+Perjantaina lämpötila on 20 ja 30 asteen välillä

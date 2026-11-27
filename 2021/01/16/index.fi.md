@@ -1,0 +1,79 @@
+# Lauantai 16.1.2021 (radio)
+
+Virusmuunnos. Koronaluvut. Rokotukset. Lahti. Sää.
+
+## Muuntunut koronavirus
+
+![Helsingin yliopiston zoonoosivirologian professori Olli Vapalahti Meilahdessa Helsingissä 1. joulukuuta 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11740715)
+
+Avaa kuvien katselu
+
+Professori Olli Vapalahti. Kuva: Roni Rekomaa / Lehtikuva
+
+Koronavirustestausta Suomen rajoilla pitää lisätä. Lisätestausta tarvitaan, jotta muuntuneen koronaviruksen leviäminen Suomeen voidaan estää. Näin sanoo Helsingin yliopiston virologian professori Olli Vapalahti.
+
+Uusi, muuntunut koronavirus on vaarallinen, koska se tarttuu helposti ja leviää nopeasti.
+
+Pääosa muuntuneista viruksista tulee Suomeen tällä hetkellä Britanniasta, mutta niitä tulee myös muista maista.
+
+Professori Olli Vapalahti sanoo, että Suomessa virusmuunnoksen leivämiseen on vielä mahdollista vaikuttaa. Muunnos ei ole täällä vielä levinnyt yhtä paljon kuin muissa maissa.
+
+Suomessa on tähän mennessä todettu yli 60 koronatartuntaa, jotka virusmuunnos on aiheuttanut.
+
+## Suomen koronaluvut
+
+![Koeputkia Messukeskuksen drive-in-koronavirustestausasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11615208)
+
+Avaa kuvien katselu
+
+Koeputkia Helsingin Messukeskuksen koronavirustestausasemalla. Kuva: Silja Viitala / Yle
+
+Suomessa on todettu nyt yhteensä yli 40 000 koronavirustartuntaa.
+
+Uusia tartuntoja on raportoitu 190, kertoo Terveyden ja hyvinvoinnin laitos.
+
+Keväästä lähtien Suomessa on tehty yli 2,6 miljoonaa koronavirustestiä.
+
+## Intia aloitti rokotukset
+
+![Rokotelaatikoita Intiassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11740728)
+
+Avaa kuvien katselu
+
+Koronavirusrokotteita tuotiin eilen Pohjois-Intian Dharamsalaan. Kuva: Sanjay Baid / EPA
+
+Intia on tänään aloittanut koronarokotukset. Elokuun alkuun mennessä Intia aikoo rokottaa 300 miljoonaa ihmistä.
+
+Intian rokotusohjelma on yksi maailman isoimmista, sillä Intiassa asuu yli miljardi ihmistä.
+
+Maailman terveysjärjestö WHO sanoo, että kaikkien maiden pitää nopeuttaa koronarokotuksia. WHO sanoo, että kaikkien maiden pitää aloittaa rokotukset seuraavan sadan päivän aikana.
+
+Maailmassa on nyt raportoitu noin 94 miljoonaa koronavirustartuntaa. Koronaan on kuollut yhteensä yli 2 miljoonaa ihmistä.
+
+## Euroopan ympäristöpääkaupunki
+
+![Ympäristöpääkaupunki 2021-juliste Lahdessa.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6364585e316cad90a19/1580303026)
+
+Avaa kuvien katselu
+
+Kuva: Petteri Bülow / Yle
+
+Lahti on uusi Euroopan ympäristöpääkaupunki. Lahden vuosi Euroopan ympäristöpääkaupunkina alkoi eilen.
+
+Euroopan ympäristöpääkaupungin pitää toimia esimerkkinä ympäristöasioissa. Lahti aikoo nostaa esiin esimerkiksi sitä, miten keskisuuret kaupungit voivat torjua ilmastonmuutosta.
+
+Lahti on ensimmäinen suomalainen ympäristöpääkaupunki. Ennen Lahtea ympäristöpääkaupunki oli Portugalin pääkaupunki Lissabon.
+
+## Sunnuntain sää
+
+![Talvi talvimaisema pakkanen kuura arboretum tampere luonto ulkoilu lenkkeily](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10621984)
+
+Avaa kuvien katselu
+
+Kuva: Jani Aarnio / Yle
+
+Pakkanen lauhtuu huomenna.
+
+Sunnuntaina etelässä ja idässä sataa heikosti lunta. Pohjanmaan rannikolla ja Lapissa paistaa aurinko.
+
+Pakkasta on noin 5 astetta. Länsi-Lapissa pakkasta voi kuitenkin olla 15 astetta.

@@ -1,0 +1,85 @@
+# Sunnuntai 19.2.2023 (radio)
+
+Nato-kysely. Viherpesu. Poliisikoulu. Laskiainen. Sää.
+
+## Suomi ja Nato
+
+![Eduskuntatalon portaat olivat suurilta osin lumen peitossa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_233/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1049631639c973917388/1677920580)
+
+Avaa kuvien katselu
+
+Suomen ensisijainen tavoite on päästä Natoon yhdessä Ruotsin kanssa. Maat jättivät hakemukset yhtäaikaa. Kuva: Silja Viitala / Yle
+
+Suurin osa puolueista sanoo, että Suomen pitää olla valmis liittymään Natoon myös ilman Ruotsia. Yle kyselyyn vastasivat eduskuntapuolueiden puheenjohtajat.
+
+Kokoomus, perussuomalaiset, keskusta, kristillisdemokraatit ja Liike nyt kannattavat liittymistä Natoon yksin. 
+
+Vain vasemmistoliitto vastustaa Ruotsin jättämistä taakse.
+
+RKP ja vihreät eivät osaa sanoa, ja SDP ei halunnut vastata kysymykseen.
+
+Kaikkien puolueiden ensisijainen tavoite on silti edelleen se, että Suomi ja Ruotsi liittyvät Natoon yhtä aikaa ja nopeasti.
+
+Nato-maista vain Turkki ja Unkari eivät vielä ole hyväksyneet maiden liittymistä puolustusliittoon. Turkilla on Ruotsille vielä vaatimuksia. 
+
+## Viherpesu
+
+![Lappar med texten bio, green och eco hänger på ett klädstreck.](https://img.img-cdn.yle.fi/crop_extract,w_3888,h_2185,x_0,y_200/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-412884595628447a7c3/1498818733)
+
+Avaa kuvien katselu
+
+Firmojen väitteisiin ympäristöystävällisyydestä ei aina voi luottaa. Kuva: Mostphotos/Jakub Jirsak
+
+Euroopan komissio valmistelee direktiiviä, joka puuttuu yritysten viherpesuun. Direktiivi on ohje EU-maiden lainsäädäntöön. 
+
+Viherpesu tarkoittaa sitä, että toimintaa väitetään ympäristöystävälliseksi, vaikka toimintatapoja ei muuteta. 
+
+Usein firmat käyttävät sanoja vihreä, ympäristöystävällinen, vastuullinen tai hiilineutraali. EU:n komissio kertoo, että 40 prosenttia ympäristöväittämistä on vääriä. 
+
+Suomen ympäristökeskus selvitti, että yli puolet ympäristöväitteistä on epäasiallisia.
+
+EU:n alueella on käytössä yli 200 erilaista ympäristömerkintää. Komissio sanoo, että merkintöihin ei voi luottaa.
+
+## Poliisikoulutus
+
+![Poliisiammattikorkeakoulu syksyllä 2021.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_359/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-868977616ec6df4193e/1634649944)
+
+Avaa kuvien katselu
+
+Suomessa on vain yksi poliisiammattikorkeakoulu, josta valmistutaan poliisin ammattiin. Oppilaitos sijaitsee Tampereen Hervannassa. Kuva: Miikka Varila / Yle
+
+Poliisiammattikorkeakoulun pääsykokeissa on ollut hakijakato.
+
+Yli puolet niistä, jotka on kutsuttu testeihin, ei saavu pääsykokeisiin. Muun muassa tämän takia kaikkia aloituspaikkoja ei ole saatu täyteen.
+
+Pääsykokeen ykkösvaiheeseen on osallistunut tavallisesti noin 500 hakijaa. Tämän kevään pääsykokeisiin osallistui vain 250 hakijaa. Syy olivat muun muassa korona ja sairastumiset.
+
+Koulutukseen valittiin viime syksynä noin 300 opiskelijaa. Tavoite oli 400. 
+
+Syksyn hakuun on taas tulossa tavanomainen määrä hakijoita.
+
+## Laskiainen
+
+![Laskiaispullia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9440880)
+
+Avaa kuvien katselu
+
+Laskiaispulla on pulla, joka on nykyään täytetty kermavaahdolla ja joko mantelimassalla tai hillolla. Se on muunnelma saksalaisesta Heißweckesta. Kuva: Olli Koski / Yle
+
+Tänään on vietetty laskiaissunnuntaita. 
+
+Perinteisesti laskiaisesta alkaa pääsiäisen odotus. Juhlan nimi tulee paastoon laskeutumisesta.
+
+Laskiaisessa yhdistyvät kirkolliset ja pakanalliset perinteet.
+
+Suomalaisia laskiaisperinteitä ovat pulkkamäki, hernerokka ja laskiaispullat.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689090)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Alkuviikolla pakkanen kiristyy ja lumisateet heikkenevät. Pakkasta on 2 - 10 astetta. Kylmintä on idässä.

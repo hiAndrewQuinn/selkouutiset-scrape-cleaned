@@ -1,0 +1,5 @@
+# TV Selkouutiset maanantai 28.8.2023
+
+Wagner palkka-armeija ja Suomi. Sähkön hinta. Presidentti Sauli Niinistö ja liikunta. PAHOITTELEMME, ETTÄ LÄHETYKSESSÄ EI OLE TEKSTITYSTÄ.
+
+Teknisen ongelman takia lähetyksessä ei ole tekstitystä. Pahoittelemme.

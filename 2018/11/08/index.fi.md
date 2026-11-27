@@ -1,0 +1,67 @@
+# Torstai 8.11.2018 (radio)
+
+Eurooppalainen EPP-puolueryhmä on pitänyt kokouksen Helsingissä. Vuoden isä -palkinnot on jaettu. SDP on suosituin puolue Ylen kyselyssä. Saksalainen bändi Rammstein esiintyy ensi kesänä Tampereella.
+
+## Stubb hävisi
+
+![Manfred Weber (vas.) ja Alexander Stubb EPP:n puoluekokouksessa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10498325)
+
+Avaa kuvien katselu
+
+Manfred Weber ja Alexander Stubb Helsingissä. Kuva: Kimmo Brandt / EPA
+
+Eurooppalainen EPP-puolueryhmä on pitänyt kokouksen Helsingissä. EPP valitsi kokouksessa oman ehdokkaan Euroopan unionin tärkeimpään virkaan.
+
+EPP:n ehdokas on saksalainen Manfred Weber. EPP haluaa, että Weberistä tulee EU-komission puheenjohtaja.
+
+Suomalainen Alexander Stubb kilpaili ehdokkuudesta Weberin kanssa. Stubb hävisi Weberille selvästi.
+
+EPP-puolueryhmään kuuluu keskustaoikeistolaisia puolueita Euroopan eri maista. Ne valmistautuivat Helsingin kokouksessa Euroopan parlamentin vaaleihin, jotka pidetään ensi vuonna.
+
+## Vuoden isät
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5343864"
+
+Avaa kuvien katselu
+
+Kais Zaya on Vuoden isä. Kuva: YLE / Markku Sandell
+
+Vuoden isä -palkinnot on jaettu. Tänä vuonna palkinto annettiin 3 isälle. He saivat palkinnon työstä lasten ja isien hyväksi.
+
+Yksi Vuoden isistä on Kais Zaya. Hän on valmentanut lapsia jalkapallossa ja järjestänyt kerhotoimintaa. Turkulainen Zaya on syntynyt Irakissa, ja hän tekee työtä myös maahanmuuttajien kotouttamisen puolesta.
+
+Muut Vuoden isät ovat Risto Tuominen Lempäälästä ja Topi Linjama Joensuusta. Tuominen on vetänyt isäryhmiä neuvoloissa. Linjama on auttanut firmoja ymmärtämään, mitä perheystävällisyys työpaikoilla tarkoittaa.
+
+Suomessa vietetään isänpäivää sunnuntaina.
+
+## Puolueiden kannatus
+
+![Puoluekannatusmittaus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10496755)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Yle on kysynyt taas suomalaisilta, mitä puoluetta he kannattavat.
+
+Lokakuun kyselyssä eniten kannatusta saa SDP eli sosiaalidemokraatit. SDP on oppositiopuolue, eli se ei ole hallituksessa.
+
+Melkein 23 prosenttia vastaajista kannattaa sosiaalidemokraatteja.
+
+Hallituspuolue kokoomuksen kannatus on noussut vähän yli 20 prosenttiin. Hallituspuolue keskustan kannatus on pudonnut alle 17 prosenttiin.
+
+Kaikkien puolueiden kannatusluvut löytyvät Ylen nettisivuilta. Osoite on yle.fi.
+
+## Rammstein Suomeen
+
+![Rammstein Norrköpingissä, Ruotsissa vuonna 2013.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10498277)
+
+Avaa kuvien katselu
+
+Rammstein esiintyi Ruotsissa vuonna 2013. Kuva: AOP
+
+Saksalainen bändi Rammstein tulee ensi kesänä Suomeen. Rammstein esiintyy Tampereella elokuussa.
+
+Tampereen konserttiin oli 32 000 pääsylippua. Ne myytiin loppuun 10 minuutissa.
+
+Rammstein esittää metallimusiikkia. Bändin esiintyminen on aina iso show. Tuli on tärkeä osa Rammsteinin show'ta.

@@ -1,0 +1,63 @@
+# Maanantai 5.10.2020 (radio)
+
+Vaasa kieltää yli 50 henkilön kokoontumiset. Valtiovarainministeriö on pienentänyt arviota Suomen talouden heikentymisestä. Pariisissa suljetaan baarit ja kahvilat. Aluehallintovirastot on palkittu selkeästä kielestä..
+
+## Koronavirus Suomessa
+
+![Vaasan yliopiston ovet ovat jälleen kiinni ja opetus annetaan etänä. ](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_253/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7258495f76fc53e9dfc/1601633491)
+
+Avaa kuvien katselu
+
+Vaasan yliopiston ovet ovat kiinni ja opetus annetaan etänä. Kuva: Sebastian Björklund / Yle
+
+Aluksi uusia tietoja koronaviruksesta.
+
+Koronavirus leviää nopeasti Vaasan sairaanhoitopiirissä. Vaasan kaupunki kieltää yli 50 henkilön kokoontumiset. Vaasassa on karanteenissa lähes 1000 henkilöä.
+
+Yhteensä Suomessa todettiin päivässä 164 uutta koronatartuntaa. Uusia tartuntoja on 2 viikon aikana todettu yli 900 enemmän kuin aikaisemmin. Eniten tartuntoja on pääkaupunkiseudulla.
+
+Suomessa on todettu 1 uusi kuolema, joka liittyy koronavirukseen. Suomessa on nyt kuollut koronaviruksen takia 346 ihmistä.
+
+## Suomen talous
+
+![VM:n ennuste bkt:n muutokselle](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11579025)
+
+Avaa kuvien katselu
+
+VM:n ennuste bkt:n muutokselle. Kuva: Samuli Huttunen / Yle
+
+Valtiovarainministeriö on muuttanut arviota Suomen taloudesta.
+
+Ministeriö sanoo nyt, että Suomen talous pienentyy tänä vuonna 4,5 prosenttia. Kesällä valtiovarainministeriö arvioi, että Suomen talous pienentyy tänä vuonna jopa 6 prosenttia.
+
+Valtiovarainministeriö arvioi, että ensi vuonna Suomen talous kasvaa noin 2,5 prosenttia. Tämä ministeriön arvio toteutuu vain, jos koronaviruksen leviäminen loppuu.
+
+## Pariisin baarit ja kahvilat kiinni
+
+![Pariisilainen kavhila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11579607)
+
+Avaa kuvien katselu
+
+Pariisissa suljetaan kahvilat ja baarit uudestaan. Kuva: Chritophe Petit Teson / EPA
+
+Ranskan pääkaupungissa Pariisissa suljetaan baarit ja kahvilat kokonaan. Sulku kestää 2 viikkoa. Ravintolat pysyvät auki.
+
+Koronavirus on levinnyt Pariisin baareissa ja kahviloissa.
+
+## Vuoden selväsanainen
+
+![Palkinnonsaajat Sonja Tanttari ja Taina Taskinen ja eduskunnan oikeusasiamies Petri Jääskeläinen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11579962)
+
+Avaa kuvien katselu
+
+Vuoden selväsanainen -palkinnon saivat aluehallintovirastojen selkeän kielen koulutuksen työryhmä ja verkkosivu-uudistuksen työryhmät. Voittajan valitsi eduskunnan oikeusasiamies Petri Jääskeläinen. Palkinnot jaettiin Pikkuparlamentissa 5. lokakuuta 2020. Palkinnon vastaanottivat Sonja Tanttari ja Taina Taskinen. Kuva: Hanne Salonen / Eduskunta
+
+Aluehallintovirastot on palkittu selkeästä kielestä. Vuoden selväsanainen -palkinto annetaan aluehallintovirastojen työryhmille, jotka ovat tehneet selkeän kielen koulutusta ja uudistaneet nettisivuja.
+
+Aluehallintovirasto esimerkiksi valvoo, että ihmisten perusoikeuksia ei rikota.
+
+Aluehallintovirastoissa tämä vuosi on selkeän kielen teemavuosi. Virastot antavat selkeän kielen koulutusta kaikille työntekijöille.
+
+Aluehallintovirastolla on myös uudet nettisivut. Uudet nettisivut ovat selkeämmät kuin entiset nettisivut. Tekstit on kirjoitettu uudelleen, jotta ne ovat selkeämmät kuin ennen.
+
+Voittajan valitsi eduskunnan oikeusasiamies Petri Jääskeläinen. Jääskeläisen mielestä on tärkeää, että viranomaisen kieli on selkeää.

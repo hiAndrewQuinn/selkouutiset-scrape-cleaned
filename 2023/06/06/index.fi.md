@@ -1,0 +1,69 @@
+# Radio | Selkouutiset | Tiistai 6.6.2023
+
+Nova Kahovkan pato. Suurhyökkäys. Espoon siltaonnettomuus. Naiset armeijassa. Sääennuste.
+
+## Nova Kahovkan pato
+
+![Räjäytetty pato ja joki](https://img.img-cdn.yle.fi/crop_extract,w_2966,h_1669,x_104,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125214647eed9bcf1bb/1686046325)
+
+Avaa kuvien katselu
+
+Nova Kahovkan pato Hersonissa. Kuva: AFP
+
+Venäjä on räjäyttänyt Nova Kahovkan padon Hersonissa Ukrainassa. Siksi Dneprjoki tulvii Hersonin alueella. Viranomaiset ovat evakuoineet ihmisiä alueelta, koska vesi nousee alueella.
+
+Pato oli 30 metriä korkea ja 3 kilometriä pitkä. Kahovkan pato on tärkeä rakennus.
+
+Asiantuntijat ovat varoittaneet pitkän aikaa, että pato on mahdollinen kohde sotilasiskulle. Siksi ei ole iso yllätys, että pato räjäytettiin.
+
+## Suurhyökkäys
+
+![Dronekuvassa näkyy räjähdys vihreällä pellolla.](https://img.img-cdn.yle.fi/crop_extract,w_2559,h_1440,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1124923647dccb9dda11/1685966098)
+
+Avaa kuvien katselu
+
+On epäselvää, mitä Donetskin alueella tapahtuu. Kuva: Venäjän puolustusministeriö / Reuters
+
+Venäjä sanoo, että Ukraina on aloittanut suurhyökkäyksen. Venäjä sanoo, että Venäjä on torjunut Ukrainan suurhyökkäyksen Donetskin alueella.
+
+Venäjä sanoo, että Ukrainalle on tullut paljon tappioita hyökkäyksessä, koska Venäjä torjui sen. Venäjän väitteitä ei ole voitu varmistaa.
+
+Ukraina sanoo, että se ei ole vielä aloittanut suurhyökkäystä Venäjää vastaan. Ukraina kertoi viikonloppuna, että Ukraina on valmis aloittamaan suurhyökkäyksen. Ukraina ei kuitenkaan ehkä vielä ole aloittanut suurhyökkäystä.
+
+## Espoon siltaonnettomuus
+
+![En byggarbetsplats där en bro byggs och en skylt för fotgängare.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_62/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1112030645cb9b933cad/1683798491)
+
+Avaa kuvien katselu
+
+Tilapäinen kävelysiilta romahti toukokuussa Espoon Tapioassa. Kuva: Jussi Nukari/Lehtikuva
+
+Onnettomuustutkintakeskus on kertonut uusia tietoja Espoon siltaonnettomuudesta. Espoon Tapiolassa romahti työmaan kävelysilta toukokuun lopulla. Onnettomuudessa loukkaantui 23 koululaista ja 1 opettaja.
+
+Onnettomuustutkintakeskus kertoo, että sillan rakentamisessa oli virheitä. Kukaan ei tehnyt rakennelaskelmia, kun silta rakennettiin. Siksi kukaan ei tiennyt, miten paljon ihmisiä silta kestää.
+
+Onnettomuustutkintakeskus sanoo, että Suomessa pitää tarkastaa myös muut samanlaiset sillat. Myös siltojen rakentamisprosesseja pitää parantaa jatkossa.
+
+## Naiset armeijassa
+
+![Minttu Sainio ja Hilma Kemppinen käyvät parhaillaan asepalvelusta Kainuun prikaatissa.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_455/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11218846475c8e7b5c19/1685440936)
+
+Avaa kuvien katselu
+
+Naiset kokevat, että armeijasta on hyötyä työelämässä. Kuva: Timo Sihvonen / Yle
+
+Armeija voi auttaa naisia etenemään työuralla. Näin kokevat monet naiset, jotka ovat käyneet armeijan. Yle on kysynyt naisilta, onko armeijasta ollut hyötyä työelämässä.
+
+Monet naiset kertovat, että he ovat saaneet armeijasta varmuutta ja rohkeutta. Silloin pärjää myös työpaikoilla, joissa on paljon miehiä. Myös naisvaltaisilla työpaikoilla armeijasta voi olla hyötyä. Naista esimerkiksi kuunnellaan enemmän työpaikalla, jos hän on käynyt armeijan.
+
+Armeija on naisille Suomessa vapaaehtoinen. Naisten kiinnostus armeijaan on lisääntynyt. Viime vuonna naisia oli armeijassa ennätyspaljon.
+
+## Sää
+
+![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1125508647f519e1fbe6/1686065607)
+
+Avaa kuvien katselu
+
+Enimmäkseen on poutaa.
+
+Keskiviikkona suuressa osassa maata on poutaa eli ei sada. Pohjoisessa tulee sadekuuroja. Lämpötila on 14 ja 20 asteen välillä, pohjoisessa 5 ja 14 asteen välillä.

@@ -1,0 +1,57 @@
+# Sunnuntai 17.5.2015
+
+Sateet haittaavat peltotöitä. Suomalaiset ovat ostaneet paljon lomamatkoja. Lappeenrannassa haudattiin sankarivainajia. Palomiehet pelastivat koiran maan alta.
+
+## Sää ei ole hyvä maanviljelijöille
+
+![Traktori pellon reunalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7994807)
+
+Avaa kuvien katselu
+
+Maanviljelijät odottavat, että pellot ovat niin kuivia, että kevättyöt voi aloittaa. Kuva: Pasi Takkunen / Yle
+
+Sateet haittaavat peltotöitä. Sateiden takia pellot ovat hyvin märkiä esimerkiksi Pohjanmaalla. Märät pellot ja kylmä sää hidastavat maanviljelijöiden kevättöitä.
+
+Maanviljelijät ovat kylväneet kevään viljasta vasta pienen osan. Maanviljelijät ovat pystyneet tekemään peltotöitä eniten Varsinais-Suomessa ja Etelä-Pohjanmaalla. Pohjois-Suomessa vielä odotetaan, että pellot kuivuvat. Esimerkiksi Pohjois-Kainuussa pellot ovat vielä lumen alla.
+
+## Matkoja on myyty melko paljon
+
+![Perhe uimassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7998260)
+
+Avaa kuvien katselu
+
+Suomalaiset haluavat kesällä lämpöä ja aurinkoa. Kuva: Nikos Arvanitids / EPA
+
+Suomalaiset ovat ostaneet paljon kesän lomamatkoja. Syy on ehkä kylmä kevät. Ihmiset haluavat varmistaa, että he saavat viettää ainakin kesäloman lämpimässä säässä.
+
+Matkatoimistot ovat kuitenkin vähentäneet valmiiden lomamatkojen määrää. Valmismatkoja ei myydä nykyään yhtä paljon kuin ennen, koska taloustilanne on huono. Lisäksi monet suunnittelevat matkansa itse internetissä, eivätkä halua matkatoimiston valmismatkaa.
+
+Kesällä suomalaiset ostavat eniten matkoja Kreikkaan. Suomalaiset pitävät myös Turkista. Yksi matkakohde on Espanja, jossa suomalaisilla on paljon omia loma-asuntoja.
+
+## Lappeenrannassa haudattiin sankarivainajia
+
+![Seppele sankarivainajien muistoksi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6851548)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat muistaneet sankarivainajia eli sotilaita, jotka ovat kuolleet sodassa. Kuva: Yle
+
+Sunnuntaina on vietetty kaatuneiden muistopäivää. Päivän aikana on muistettu sotilaita, jotka ovat kuolleet sodissa. Näiden sankarivainajien päivä on joka vuosi toukokuun kolmas (3.) sunnuntai.
+
+Lappeenrannassa haudattiin sunnuntaina sankarivainajia, jotka ovat löytyneet Karjalasta Venäjän puolelta. Yli 70 vainajan jäännökset pääsivät hautaan. Vainajien nimiä ei tiedetä. He kuolivat toisen maailmansodan taisteluissa yli 70 vuotta sitten. Silloin suomalaiset ja venäläiset sotivat toisiaan vastaan.
+
+## Palomiehet pelastivat koiran maan alta
+
+![Pelastettu koira ja pelstajat yhteiskuvassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7998164)
+
+Avaa kuvien katselu
+
+Koira ja koiran pelastajat. Kuva: Helsingin kaupungin pelastuslaitos
+
+Helsingin pelastuslaitoksella oli erikoinen tehtävä lauantai-iltana. Pelastuslaitoksen palomiehet pelastivat koiran, joka ei päässyt pois luolasta maan alta.
+
+Koira juoksi luolaan mäyrän perässä. Luola oli ahdas, ja koira jäi kiinni luolaan. Se ei voinut enää liikkua, eikä se päässyt takaisin maan pinnalle.
+
+Koiran omistaja soitti pelastuslaitokselle. Palomiehet kaivoivat maata lapiolla, mutta he eivät löytäneet koiraa. Lopulta paikalle tuli kaivinkone, joka löysi koiran viemärikameran avulla.
+
+Pelastusoperaatio kesti kuusi (6) tuntia. Koira oli hyvässä kunnossa. Se kiitti pelastajia murisemalla.

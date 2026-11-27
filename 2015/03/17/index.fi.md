@@ -1,0 +1,53 @@
+# Tiistai 17.3.2015
+
+Vaalien ehdokkaista alle puolet haluaa Suomeen lisää pakolaisia. Ihmiset ostavat varovasti asuntoja. Ranska aikoo kieltää liian laihat mallit.
+
+## Ehdokkaista alle puolet haluaa lisää pakolaisia
+
+![Eduskuntavaalit 2015 logo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7871701)
+
+Avaa kuvien katselu
+
+Ylen vaalikone auttaa valitsemaan parhaan ehdokkaan. Se löytyy täältä: yle.fi/uutiset  Kuva: Yle uutisgrafiikka
+
+Eduskuntavaalien ehdokkaista vähän alle puolet haluaa, että Suomi vastaanottaa enemmän pakolaisia. Ylen vaalikoneessa noin 40 prosenttia ehdokkaista vastaa, että Suomen täytyy auttaa enemmän Eurooppaan tulevia turvapaikanhakijoita eli pakolaisia.
+
+Ruotsalaisen Kansanpuolueen ehdokkaista yli 90 prosenttia ajattelee, että pakolaisia täytyy vastaanottaa lisää. Melkein kaikki perussuomalaiset vastustavat ajatusta. Vihreiden ja Vasemmistoliiton ehdokkaista suurin osa haluaa enemmän pakolaisia, SDP:n ehdokkaista noin puolet. 
+
+Kokoomuksen ja Keskustan ehdokkaista noin 25 prosenttia haluaa, että Suomi auttaa isompaa pakolaisjoukkoa.   
+
+## Asuntojen ostajat varovaisia
+
+![Nordean konttorin nimikyltti seinässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7786964)
+
+Avaa kuvien katselu
+
+Nordea-pankki sanoo, että asuntojen ostajat ovat varovaisia. Kuva: Martti Kainulainen / Lehtikuva
+
+Nordea-pankki sanoo, että ihmiset ostavat edelleen vähän asuntoja.
+
+Nordea sanoo, että ostajat ja myyjät ovat eri mieltä hinnoista. Lisäksi ihmiset pelkäävät esimerkiksi, että he jäävät työttömäksi. Siksi he eivät uskalla ottaa asuntolainaa, vaikka lainoissa on nyt tosi pieni korko.
+
+Joissakin kaupungeissa pienet asunnot menevät kuitenkin hyvin kaupaksi. Maaseudulla isot, vanhat omakotitalot taas menevät vähän huonosti kaupaksi. 
+
+## Liian laiha malli on huono malli
+
+![Malleja lavalla Pariisin muotiviikon näytöksessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7872168)
+
+Avaa kuvien katselu
+
+Malleja muotinäytöksessä Pariisissa. Kuva: Etienne Laurent / EPA
+
+Ranska aikoo kieltää liian laihat mallit muotinäytöksissä.
+
+Ranskan sosialistipuolue ehdottaa, että jokaisen mallin täytyy näyttää lääkärintodistus, joka kertoo hänen painonsa. Jos painoa ei ole tarpeeksi paljon, malli ei saa esiintyä muotinäytöksessä.
+
+Monet tytöt ja nuoret naiset matkivat malleja ja haluavat olla hyvin laihoja. Joillekin tytöille tulee syömishäiriöitä kuten anoreksiaa. Anoreksia on sairaus, johon voi kuolla.
+
+Myös esimerkiksi Italiassa, Espanjassa ja Israelissa yritetään vastustaa muotimaailman sairaita ihanteita.
+
+## Oikaisu
+
+Ja lopuksi oikaisu vanhaan uutiseemme, jossa oli virhe:
+
+Selkouutisessa 9:s maaliskuuta annettiin virheellisesti ymmärtää, että jos mies saa jostakin työstä euron, nainen saa samasta työstä vain 83 senttiä. Naisten ja miesten palkkaeroja käsitelleessä tutkimuksessa ei selvitetty, kuinka suuri palkkaero on, kun miesten ja naisten tehtävien erot otetaan huomioon. Uutisesta saattoi syntyä myös virheellinen käsitys, että palkkaero olisi suurin nuorten naisten ja nuorten miesten palkoissa.

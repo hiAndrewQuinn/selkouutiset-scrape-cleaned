@@ -1,0 +1,79 @@
+# Keskiviikko 22.8.2018 (radio)
+
+Niinistö ja Putin tapasivat. Koirarodut. Huonokuntoiset sillat. Sairaala myy synnytyksiä. Sää on tuulinen.
+
+## Niinistö ja Putin tapasivat
+
+![Sauli Niinistö ja Vladimir Putin Sochissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10365279)
+
+Avaa kuvien katselu
+
+Suomen ja Venäjän presidentit tapasivat Sotshissa Venäjällä. Kuva: Markku Ulander / Lehtikuva
+
+Suomen presidentti Sauli Niinistö tapasi tänään Venäjän presidentin Vladimir Putinin.
+
+Presidentit tapasivat Venäjällä.
+
+Venäjän presidentti Vladimir Putin sanoi, että Suomen ja Venäjän suhteet ovat hyvät.
+
+Suomen presidentti Sauli Niinistö sanoi, että hän halusi puhua arktisten alueiden ympäristöasioista ja lentoturvallisuudesta Itämerellä. He keskustelivat myös Syyriasta ja Ukrainasta.
+
+## Koirahyökkäyksistä puhutaan
+
+![Koira puree](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10356170)
+
+Avaa kuvien katselu
+
+Suomessa puhutaan nyt paljon koirista. Kuva: pixabay
+
+Suomessa puhutaan paljon koirien tekemistä hyökkäyksistä. Koira voi hyökätä ihmisen tai toisen koiran kimppuun.
+
+Kennelliitto on koiranomistajien järjestö. Kennelliiton puheenjohtaja Harri Lehkonen sanoo, että koiranomistajan pitää hallita koira joka tilanteessa.
+
+Lehkonen sanoo, että jotkut koirarodut ovat sellaisia, että kaikki eivät voi niitä omistaa.
+
+Voi olla hyvä, jos ensin tutkitaan, millainen ihminen aikoo hankkia koiran. Näin sanoo Kennelliiton puheenjohtaja Harri Lehkonen.
+
+## Suomessa sillat eivät romahda, sanoo Liikennevirasto
+
+![Vuoksen ylittävä Mansikkakosken vanha rautatiesilta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10362906)
+
+Avaa kuvien katselu
+
+Liikennevirasto sanoo, että Suomessa sillat eivät romahda. Kuva: Vesa Winberg / Yle
+
+Suomessa on monta huonokuntoista siltaa.
+
+Suomessa siltoja valvoo Liikennevirasto. Liikennevirasto pitää huolta yli 15 000 sillasta. Niistä 600 on huonossa kunnossa.
+
+Liikennevirasto sanoo, että Suomessa sillat eivät romahda, vaikka ne ovat huonossa kunnossa.
+
+Jos silta on huonossa kunnossa, siihen laitetaan painorajoitus. Liian painavat ajoneuvot eivät saa ajaa sillalle.
+
+## Sairaala myy synnytyksiä
+
+![Synnytyssali odottamassa synnyttäjää.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10364457)
+
+Avaa kuvien katselu
+
+Ulkomaalaiset äidit voivat tulla Lappeenrannan sairaalaan synnyttämään. Kuva: Tommi Parkkinen / Yle
+
+Itä-Suomessa Lappeenrannassa sairaala alkaa myydä synnytyksiä. Se tarkoittaa, että ulkomaalainen äiti voi tulla Lappeenrannan sairaalaan synnyttämään.
+
+Synnytys maksaa noin 7500 euroa. Sairaala uskoo, että venäläiset äidit haluavat tulla Suomeen synnyttämään.
+
+Lappeenrannan sairaala tarvitsee lisää synnyttäjiä. Muuten synnytysosasto voidaan sulkea.
+
+## Huomenna on tuulista
+
+![Omenoita elokuussa 2018 Turussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10363337)
+
+Avaa kuvien katselu
+
+Nyt on vielä lämmintä säätä. Omenat kypsyvät. Kuva: Minna Rosvall / Yle
+
+Huomenna torstaina Suomeen tulee lämmintä ilmaa.
+
+Etelä-Suomessa on lämmin päivä.
+
+Koko maassa on kova tuuli. Puuskassa tuuli voi olla todella kova.

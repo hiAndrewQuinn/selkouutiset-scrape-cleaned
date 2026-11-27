@@ -1,0 +1,51 @@
+# Friday 1.9.2017 (radio)
+
+Economists are cautious about state debt. More than 40 people have already sought help to leave an extremist movement. Police will get submachine guns. Gas grills have safety shortcomings.
+
+## Opinions differ on state debt
+
+Economists are cautiously positive that state debt is turning downward. On Thursday, at the presentation of the budget, Prime Minister Juha Sipilä said that the state's borrowing will end in four (4) years.
+
+Next year the state will borrow a good two (2) billion euros less than this year. Still, new debt of 2.9 billion euros will be taken on.
+
+Economists say that the direction is right, but the results are still uncertain. Brisk economic growth may raise expectations too much, economic researchers say. The general economic situation affects state debt, for example.
+
+Yle interviewed four (4) economists.
+
+## Many want out of extremist movements
+
+In Finland there has been a need for help to assist people in leaving extremist movements. Extremist movements can be religious or political.
+
+More than 40 people have sought help to leave an extremist movement over the last year and a half. Help has been sought through the Radinet Exit programme. Radinet's activity is based on volunteering. The authorities say that the large number is a surprise.
+
+The Turku mass stabbing two weeks ago has increased concern about violent radicalisation. A Moroccan man killed two people. It has been reported that the man was interested in the ideology of the terrorist organisation Isis.
+
+Most of the clients of the Radinet programme have been men. The men are aged 17 and up. Most help has been sought for leaving religious ideologies.
+
+## Police patrols get submachine guns
+
+![Police on patrol with a submachine gun displayed at Helsinki-Vantaa airport in Vantaa, 13 April 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9810241)
+
+Open image viewer
+
+Police patrolling with a submachine gun on display at Helsinki-Vantaa airport in Vantaa. Photo: LEHTIKUVA / JUSSI NUKARI
+
+All mobile police patrols will be equipped with submachine guns. Traditional pistols are also used alongside them.
+
+Ari Alanen, police inspector at the National Police Board, says that this is how they prepare for the increased terror threat.
+
+Alanen says that the guns create more of a feeling of safety than a feeling of threat.
+
+## Grill hoses may be faulty
+
+![Gas grill](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9810470)
+
+Open image viewer
+
+Biltema gas grill 37-530 is one of the recalled products. Photo: Biltema
+
+The Safety and Chemicals Agency has noticed that there may be shortcomings in the hoses of gas grills. In a test, three (3) of ten (10) hoses did not meet safety regulations. The hoses did not withstand hard frost.
+
+The tested hoses cause a risk of explosion when a gas grill or the grill's burner is used. One (1) of the tested grills was also a mortal danger.
+
+TUKES says that the condition of gas appliances, especially the hoses and connectors, must be checked. This must be done by spring at the latest, before the grilling season begins.

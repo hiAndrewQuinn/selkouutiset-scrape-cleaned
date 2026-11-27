@@ -1,0 +1,65 @@
+# Saturday 15.4.2017 (radio)
+
+Bosses work long days. The Eurojackpot top prize came to Finland again. North Korea celebrated with a military parade. The Via Crucis Easter play drew a big audience.
+
+## The Finnish boss works long days
+
+![How bosses use their time](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9561483)
+
+Open image viewer
+
+Photo: Yle News Graphics
+
+The bosses of Finnish companies work long working days and long working weeks.
+
+A boss's working day is on average 10 hours long. On Sunday the boss plans the next week's work. On Saturday the boss rests.
+
+Yle asked the bosses of the biggest companies what kind of working week and everyday life they have. About 100 bosses answered the survey.
+
+Many bosses say that they do not have enough time for family, friends or hobbies. Many also say that they do not get enough sleep at night.
+
+## Eurojackpot top prize to Tampere
+
+![A man fills in a Eurojackpot coupon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9567395)
+
+Open image viewer
+
+The Eurojackpot prize has now come to Finland 11 times. Photo: Kimmo Brandt / EPA
+
+The Eurojackpot top prize has come to Finland again. This time the top prize was 87 million euros. The winning coupon was played in Tampere.
+
+Veikkaus says that the prize sum is the 3rd biggest in Eurojackpot history. The biggest wins in Eurojackpot have been 90 million euros. They have gone to Germany and the Czech Republic.
+
+Finns have been very lucky in Eurojackpot. This was already the 11th top prize that came to Finland.
+
+In Friday's draw, 3 other big prizes also came to Finland. They went to Joensuu, Pukkila and Riihimäki.
+
+## North Korea celebrated with a military parade
+
+![Parade in Pyongyang.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9567442)
+
+Open image viewer
+
+North Korea celebrates the 105th anniversary of the birth of its founder Kim Il-sung on 15 April 2017. The holiday had been named the "Day of the Sun". Photo: Ed Jones / AFP
+
+North Korea has celebrated the most important holiday of the year, the birthday of the country's founder Kim Il-Sung. It is now 105 years since Kim was born.
+
+In the capital Pyongyang, a big military parade was held on Saturday afternoon. In the parade there were many soldiers and different weapons, for example many kinds of missiles.
+
+In advance, it was thought that North Korea might do a nuclear or missile test on the holiday. Because of that, the United States has sent warships to the area and said that it is ready to stop a nuclear test.
+
+North Korea has warned the United States that it is ready to strike back.
+
+## Thousands of people in Helsinki walked the Way of the Cross
+
+![Jesus played by Maria Ylipää and the Virgin Mary played by Jaana Saarinen in the crucifixion scene of the Via Crucis Easter procession on the steps of Helsinki Cathedral.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9567330)
+
+Open image viewer
+
+This year the role of Jesus was played by actor Maria Ylipää. Photo: Jussi Nukari / Lehtikuva
+
+In Helsinki, thousands of people came on the evening of Good Friday to watch the Via Crucis Easter play. The play Via Crucis, that is, the Way of the Cross, tells about the last moments of Jesus.
+
+The play began in Kaisaniemi park. During the play, the actors and the audience walked along the streets of Helsinki. The final scene of the play was seen in Senate Square.
+
+Via Crucis has been performed in Helsinki 22 times already. This year women played all the roles. The role of Jesus was played by actor Maria Ylipää.

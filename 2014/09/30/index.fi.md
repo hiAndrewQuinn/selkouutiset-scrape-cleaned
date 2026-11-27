@@ -1,0 +1,57 @@
+# Tiistai 30.9.2014
+
+Talvivaaran metallikaivos halutaan pelastaa. Suomalaiset eivät enää tuhlaa rahaa. Suuri Araljärvi on hävinnyt kokonaan. Liian harva käyttää heijastinta.
+
+## Talvivaaran kaivos halutaan pelastaa
+
+![Talvivaaran bioliuotuskasoja ja metallitehdas.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7174903)
+
+Avaa kuvien katselu
+
+Talvivaaran kaivos sijaitsee Sotkamossa. Kuva: Heikki Rönty / Yle 
+
+Kaivosfirma Talvivaara voidaan pelastaa. Selvitysmies Pekka Jaatinen sanoo, että kaivos voi jatkaa toimintaansa, jos sen velat annetaan anteeksi. Talvivaaralla on velkaa yli miljardi eli tuhat miljoonaa euroa.
+
+Talvivaaran talous on huonossa kunnossa. Firma teki viime vuonna 700 miljoonaa euroa tappiota. Tänä vuonna Talvivaaralla meni vähän paremmin kuin viime vuonna. 
+
+Talvivaara tarvitsee lisää rahaa omistajilta. Valtio voi ehkä antaa rahaa Talvivaaran pelastamiseksi. Talvivaaralla on Sotkamossa suuri metallikaivos, joka tuottaa nikkeliä ja sinkkiä.
+
+## Suomalaiset eivät uskalla kuluttaa
+
+![Euron kolikko.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7181201)
+
+Avaa kuvien katselu
+
+Suomalaiset säästävät, koska taloustilanne on huono. Kuva: Yle
+
+Suomalaiset ovat entistä tarkempia rahojen käytössään. Syynä on heikko taloustilanne. 25 prosenttia suomalaisista on vähentänyt rahan käyttöään, koska tulot ovat pudonneet. Suomalaisten rahankäyttöä on selvittänyt vakuutusfirma Lähitapiola.
+
+Firma kysyi ihmisiltä, miten huono taloustilanne on vaikuttanut arkeen. 50 prosenttia ihmisistä katsoo kaupassa tarkemmin ruoan hintoja. Myös vaatteita ostetaan vähemmän. Ihmiset käyttävät rahaa vähemmän myös vapaa-ajan huveihin.
+
+Kyselyyn vastasi yli 2 000 suomalaista.
+
+## Suuri Araljärvi kuivui kokonaan
+
+![Satelliittikuvat Araljärvestä vuosilta 2000 ja 2014.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7498416)
+
+Avaa kuvien katselu
+
+Araljärvi hävisi kokonaan vuonna 2014 satelliittikuvista. Kuva: Yle Uutisgrafiikka, lähde: NASA
+
+Yksi maailman suurimmista järvistä on kuivunut kokonaan. Satelliittikuvat paljastavat, että Araljärven suurin vesialue on kuivunut kokonaan. Aral sijaitsee Kazakstanin ja Uzbekistanin välillä.
+
+Saksalainen Zeit-lehti sanoo, että kyseessä on ehkä maailman suurin ympäristökatastrofi. Aikaisemmin Araljärvestä saatiin paljon kalaa. Järvi kuivui, kun jokiin rakennettiin patoja ja vedellä kasteltiin peltoja. Vedenpinta laski järvessä ja ilmasto muuttui. Lopulta suuri järvi muuttui pelkäksi hiekka-aavikoksi. Aral oli maailman neljänneksi (4.) suurin järvi ennen kuivumistaan.
+
+## Heijastin puuttuu liian monelta ihmiseltä
+
+![Heijastimia takissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6921272)
+
+Avaa kuvien katselu
+
+Vain lapsilla on hyvin heijastimia käytössä. Kuva: Anja Hiltunen / Yle
+
+Heijastimia käytetään liian vähän. Liikenneturva kertoo, että vain 50 prosenttia kävelijöistä ja pyöräilijöistä käyttää heijastinta. Vain lapset käyttävät hyvin heijastimia.
+
+Ihminen näkyy paremmin pimeässä, kun hänellä on heijastin. Esimerkiksi autoilija näkee ihmisen pimeässä 50 metrin päästä, jos kävelijällä ei ole heijastinta. Autoilija erottaa ihmisen 150 metrin matkan päästä, jos vaatteissa on heijastin. Heijastin lisää liikenneturvallisuutta paljon varsinkin syksyllä.
+
+Suomessa on mainostettu heijastimen käyttöä jo yli 50 vuoden ajan. Ihmiset eivät silti käytä heijastimia, koska he luulevat, että tavalliset katuvalot riittävät valaisemaan teitä ja katuja.

@@ -1,0 +1,89 @@
+# Sunnuntai 3.4.2022 (radio)
+
+Venäjän sotarikokset. Nato-yhteistyö. Kaasu. Työttömyysetuus. Sää
+
+## Sotarikokset
+
+![Mielenosoittaja vaatii kyltissään sotarikosten tekijöiden saattamista vastuuseen.](https://img.img-cdn.yle.fi/crop_extract,w_1916,h_1075,x_0,y_200/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9361096245a1b88411e/1648730689)
+
+Avaa kuvien katselu
+
+Mielenosoittaja vaatii kyltissään sotarikosten tekijöiden saattamista vastuuseen. Kuva: Charles M Vella / AOP
+
+Ukrainan puolustusministeriö syyttää Venäjän joukkoja siviilien mielivaltaisista teloituksista Butšan kaupungissa Kiovan lähellä.
+
+Uutistoimisto AFP:n toimittajat pääsivät lauantaina Butšaan. He kertovat, että kadulta löytyi 20 siviiliasuisen miehen ruumiit.
+
+Kaupungin pormestari kertoi, että ainakin 280 ruumista on peitetty joukkohautaan Butšassa.
+
+## Ihmisoikeusjärjestö
+
+![Human Rights Watchin logo](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_369/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-794708607701a166df5/1618412003)
+
+Avaa kuvien katselu
+
+Ihmisoikeusjärjestö on saanut tietonsa muun muassa asiakirjoista, uhreilta ja paikallisilta järjestöiltä. Kuva: Milan Adzic / AOP
+
+Ihmisoikeusjärjestö Human Rights Watch vaatii tutkintaa Venäjän sotarikoksista Ukrainassa. Järjestö on dokumentoinut Venäjän sotilasjoukkojen tekoja, joita epäillään sotarikoksiksi.
+
+Järjestö on dokumentoinut useita tapauksia Tšernihivissä, Harkovassa ja Kiovan lähellä.
+
+Euroopan unioni auttaa Ukrainaa ja kansalaisjärjestöjä keräämään todisteita kansainvälisille tuomioistuimille.
+
+Presidentti Sauli Niinistö ja pääministeri Sanna Marin ovat tuominneet Venäjän toimet. He vaativat, että sotarikokset pitää tutkia ja saada syylliset vastuuseen.
+
+## Suomen ja Ruotsin kokoomuspuolueet
+
+![Ulf Kristersson](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11860096)
+
+Avaa kuvien katselu
+
+Maltillisen kokoomuksen johtaja Ulf Kristersson. Kuva: F. Wennerlund / AOP
+
+Suomen kokoomus ja Ruotsin maltillinen kokoomus ovat perustaneet yhteisen turvallisuuspoliittisen työryhmän. Ryhmä käsittelee kysymyksiä, jotka koskevat mahdollista jäsenyyttä puolustusliitto Natossa.
+
+Puolueiden tavoite on, että Suomi ja Ruotsi jättävät jäsenhakemukset. Puolueet haluavat hakemukset Naton kesäkuun huippukokoukseen mennessä.
+
+Suomen kokoomus ja Ruotsin maltillinen kokoomus ovat oppositiopuolueita.
+
+## Kaasu
+
+![Mielenosoittaja pitää pahvinpalaansa ilmassa, lähikuva kädestä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12382995)
+
+Avaa kuvien katselu
+
+Venäläisen kaasun käyttöä vähennetään kaikkialla Euroopassa. "Mieluummin kylmä kuin Putinin kaasua", luki mielenosoittajan pahvinpalassa Kölnissä Saksassa. Kuva: AOP
+
+Kaikki Baltian maat ovat lopettaneet venäläisen maakaasun tuonnin, kertoo latvialaisen maakaasuyhtiön johtaja.
+
+Johtaja sanoi Latvian radion haastattelussa, että Virossa, Latviassa ja Liettuassa käytetään nyt kaasua, joka on varastoitu Latviassa.
+
+Liettuan presidentti Gitanas Nauseda vahvisti tiedon Liettua kaasutoimituksista jo aiemmin.
+
+## Soviteltu työttömyysetuus
+
+![Kahvilatyöntekijä kaataa maitoa kahviin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8750690)
+
+Avaa kuvien katselu
+
+Soviteltua työttömyysturvaa saadaan useimmin terveydenhuollossa ja palvelualoilla. Kuva: Jyrki Lyytikkä / Yle
+
+Yhä useampi suomalainen yhdistää osa-aikaisen työn tai keikkatyön ja työttömyyskorvauksen. Soviteltua työttömyysetuutta saavien määrä kaksinkertaistui 2010-luvulla.
+
+Soviteltua työttömyysetua saadaan useimmin terveydenhuollossa ja palvelualoilla.
+
+Se on harvinaista teollisuudessa.
+
+## Sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12388639)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Maanantaina maan eteläosaan ja keskiosaan leviää runsasta lumi- tai räntäsadetta. Pohjoisessa tulee lähinnä lumikuuroja.
+
+Etelässä lämpötila on plussalla, pohjoisessa on vähän pakkasta.
+
+Tiistaina lumisateita tulee Lapissa. Maan itäosassa voi tulla lunta 10–20 senttimetriä.

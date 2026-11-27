@@ -1,0 +1,7 @@
+# Keskiviikko 21.2.2018 (tv)
+
+Suomelle pronssia naisten jääkiekossa. Ulkomaiset asunto-sijoittajat tulivat Suomeen. Opinto-ohjaaja kokeilee ammattikoulua. Biohajoavia pakkauksia muovista. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Suomelle pronssia naisten jääkiekossa. Ulkomaiset asunto-sijoittajat tulivat Suomeen. Opinto-ohjaaja kokeilee ammattikoulua. Biohajoavia pakkauksia muovista. Säätiedot.

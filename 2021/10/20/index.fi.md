@@ -1,0 +1,91 @@
+# Keskiviikko 20.10.2021 (radio)
+
+Koronan hinta. Koronatartunnat telakalla. Koulukiusaaminen. Cannonballs voidaan lakkauttaa. Saharov-palkinto. Sää.
+
+## Koronaepidemian hinta
+
+![Sairaanhoitaja Jenna Muurama työskentelee teho-osastolla](https://img.img-cdn.yle.fi/crop_extract,w_4988,h_2806,x_0,y_522/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8669216167fe3c50ecd/1634893574)
+
+Avaa kuvien katselu
+
+Teho-osaston sairaanhoitaja Turun yliopistollisessa keskussairaalassa lokakuussa 2021 Kuva: Arash Matin / Yle
+
+Suomessa on tehty laskelmia koronaepidemian hinnasta yhteiskunnalle. Koronan kustannuksia on arvioinut tuotantotalouden professori Paul Lillrank Aalto-yliopistosta.
+
+Lillrank sanoo, että koronapotilaiden hoito on kymmeniä kertoja kalliimpaa kuin tavallinen hoito. Pandemian vaikutukset ovat kuitenkin monimutkaiset, joten tarkkaa hintaa on vaikea selvittää.
+
+Lillrank on arvioinut koronan hoidon hyötyjä ja haittoja. Laskelmassa on mukana esimerkiksi se, kuinka monta ihmishenkeä hoito ehkä säästää. Laskelma kertoo, että tähän mennessä on voinut säästyä yli 2000 ihmishenkeä.
+
+Koronan kokonaishinta on tähän mennessä voinut olla valtion budjetissa noin 20 miljardia euroa.
+
+## Konatartunnat telakalla Helsingissä
+
+![Helsinki Shipyard](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_556/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7317595f8d699a6c123/1660300206)
+
+Avaa kuvien katselu
+
+Helsinki Shipyard. Kuva: Matti Myller / Yle 
+
+Helsinki Shipyard Oy:n telakalla aloitetaan pakolliset terveystarkastukset. Ne on määrännyt Etelä-Suomen aluehallintovirasto.
+
+Yli tuhat työntekijää testataan koronaepidemian vuoksi.
+
+Aluehallintovirasto kertoo, että telakalla on todettu tänä syksynä laajoja tartuntaketjuja.
+
+## Selvitys koulukiusaamisen ehkäisystä
+
+![Nuori hyppää repun päälle.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-6259157e0f219d29cc/1474359987)
+
+Avaa kuvien katselu
+
+Nuoret ja lapset eivät saa aikuisilta tarpeeksi apua koulukiusaamisessa. Kuva: Tiina Jutila / Yle
+
+Koulujen menetelmiä kiusaamista vastaan aletaan tutkia ensi keväänä. Kansallinen koulutuksen arviointikeskus Karvi selvittää menetelmien tehoa.
+
+Samanlaista arviointia ei ole Suomessa aiemmin tehty.
+
+Noin puolet koulukiusaamisesta ei tule lainkaan aikuisten tietoon.
+
+## Cannonballsin lakkauttaminen
+
+![cannonball liivi poliisin arkistosta.](https://img.img-cdn.yle.fi/crop_extract,w_657,h_370,x_0,y_10/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-869220616fbe63cecbf/1634713231)
+
+Avaa kuvien katselu
+
+Kuva: Poliisin arkisto / Lehtikuva
+
+Syyttäjät hakevat moottoripyöräjengi Cannonballin ja sen alayhdistys Squad 32:n lakkauttamista.
+
+Kyseessä on ensimmäinen kerta, kun valtakunnallista moottoripyöräjengiä yritetään lakkauttaa. Syyttäjä sanoo, että Cannonball on järjestäytynyt rikollisryhmä.
+
+Aiemmin Suomessa on lakkautettu uusnatsijärjestö Pohjoismainen vastarintaliike sekä liivijengi United Brotherhood.
+
+## Saharov-palkinto
+
+![Aleksej Navalnyj](https://img.img-cdn.yle.fi/crop_extract,w_2086,h_1173,x_0,y_108/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-791621606b3ac570cdc/1617640179)
+
+Avaa kuvien katselu
+
+Oppositiovaikuttaja Aleksei Navalnyj. Kuva: AFP / Lehtikuva
+
+Venäläinen oppositiovaikuttaja Aleksei Navalnyi saa Euroopan parlamentin Saharov-ihmisoikeuspalkinnon.
+
+Navalnyi on tällä hetkellä vankilassa Venäjällä. Navalnyi on presidentti Vladimir Putinin äänekkäimpiä arvostelijoita.
+
+Navalnyi joutui myrkytyksen kohteeksi viime vuonna. Häntä hoidettiin Saksassa, minkä jälkeen hän palasi Venäjälle.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12152799)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sadealue väistyy torstaiksi itään ja tuuli heikkenee.
+
+Lapissa sataa vielä paikoin vähän lunta. Etelässä tulee vähän sadekuuroja tai tihkusadetta.
+
+Lämpötila on etelässä 10 asteen yläpuolella. Lapissa on pakkasta.
+
+Torstaina illalla maan eteläosaan saapuu runsaita sateita.

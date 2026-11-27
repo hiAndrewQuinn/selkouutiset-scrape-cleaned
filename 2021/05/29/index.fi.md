@@ -1,0 +1,69 @@
+# Lauantai 29.5.2021 (radio)
+
+Muumilaakso oli paras lasten- ja nuortenohjelma Kultainen Venla -kilpailussa. Paras urheilu- ja tapahtumaohjelma oli Ylen Linnan juhlat. Ylen ohjelmille annettiin yhteensä 13 Kultaista Venlaa.
+
+## Valko-Venäjä
+
+![Sauli Niinistö vieraili Pasilassa Ylen Ykkösaamussa 29. toukokuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_180/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81296960b1efa7dcc4f/1623911384)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Silja Viitala / Yle
+
+Presidentti **Sauli Niinistö** moittii Valko-Venäjän lentokonekaappausta. Valko-Venäjä pakotti viime sunnuntaina eurooppalaisen lentoyhtiön koneen laskeutumaan Valko-Venäjälle.
+
+Presidentti Niinistö sanoi Ylen haastattelussa, että Valko-enäjän toiminta on iso poikkeus normaalista tavoista. Matkustajalentoliikenne on aiemmin saanut toimia rauhassa.
+
+Niinistö sanoo, että Valko-Venäjän toiminta heikentää kansainvälistä luottamusta maata kohtaan.
+
+## Yliopistotutkijat
+
+![Itä-Suomen yliopisto](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_341/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6451755e4e943a84392/1582208184)
+
+Avaa kuvien katselu
+
+Itä-Suomen yliopiston kyltti. Kuva: Sami Takkinen / Yle
+
+Yliopistot ovat huolestuneita nuorten tutkijoiden työllistymisestä. Hallitus päätti kehysriihessä, että tutkimusrahoitusta, jonka Suomen akatemia myöntää, pienennetään 35 miljoonalla eurolla 2 vuoden kuluttua.
+
+Yliopistojen rehtorit sanovat, että rahoituksen pieneneminen vähentää nuorten tutkijoiden töitä.
+
+Tutkijasukupolveen tulee samalla aukko, koska vain osa nuorista tutkijoista saa rahoitusta.
+
+## Sisällissodan uhrit
+
+![Kahdessa rivissä pieniä puisia arkkuja](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81300960b22e5bbd214/1622290126)
+
+Avaa kuvien katselu
+
+50 arkkua Heinolan hautausmaalla. Kuva: Laura Rautavuori/Yle
+
+Päijät-Hämeessä on haudattu uudelleen sisällissodan uhreja. Vierumäellä oli haudattu joukkohautaan 50 ihmistä, jotka taistelivat punaisten puolella Suomen sisällissodassa.
+
+Hauta oli teollisuusalueella. Vainajat siirrettiin ja heidät haudattiin lauantaina Heinolan hautausmaalle.
+
+Tarkoitus oli, että vainajat myös tunnistetaan. Tunnistaminen kuitenkin peruttiin, koska se oli liian vaikeaa ja kallista.
+
+## Kultainen Venla -palkinnot
+
+![Biolapset esiintymässä Presidentinlinnan Atriumissa itsenäisyyspäivän juhlassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11684482)
+
+Avaa kuvien katselu
+
+Biolapset yhtye esiintyi Linnan Juhlat -ohjelmassa. Kuva: Emmi Korhonen / Tasavallan presidentin kanslia
+
+Ylen ohjelmat ovat saaneet paljon palkintoja televisio-ohjelmien Kultainen Venla -kilpailussa.
+
+Paras urheilu- ja tapahtumaohjelma oli Ylen Linnan juhlat. Paras viihdeohjelma oli Sohvaperunat. Paras uutis- ja ajankohtaisohjelma oli dokumenttisarja Logged in, jossa seurattiin työttömien nuorten miesten elämää. Paras lasten- ja nuortenohjelma oli Muumilaakso. Vuoden esiintyjä oli Eränkävijät ohjelman Aki Huhtanen.
+
+Yhteensä Ylen ohjelmille annettiin 13 Kultainen Venla -palkintoa.
+
+## Sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11954954)
+
+Avaa kuvien katselu
+
+Sunnuntaina on poutaista ja selkeää.
+
+Sää Sunnuntaina on poutainen ja laajalti selkeä. Pohjois-Lapissa pilvisyys on ajoittain runsasta. Ylin lämpötila on sunnuntaina 14 ja 20 asteen välillä. Pohjois-Lapissa on vähän viileämpää.

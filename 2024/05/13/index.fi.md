@@ -1,0 +1,62 @@
+# TV \| Selkouutiset \| maanantai 13.5.2024
+
+Vanhustenhoito. Öljyntorjunta. Autojen lisävarusteet. Sää
+
+## Vanhustenhoito
+
+Ensin uutinen vanhustenhoidosta.
+
+Vanhusten hoitopaikkoihin on pitkät jonot.
+
+Monet vanhukset odottavat ympärivuorokautista hoitopaikkaa yli 3 kuukautta. Se on laitonta.
+
+Laki sanoo, että viranomaisilla on 3 kuukautta aikaa etsiä hoitopaikka vanhukselle, joka tarvitsee ympärivuorokautista hoitoa.
+
+Vanhusten hoitopaikkoihin on siis liian pitkät jonot, ja tilanne vain huononee säästöjen takia.
+
+Vanhusasiavaltuutettu Päivi Topo on huolissaan siitä, että rahat vanhustenhoitoon vähenevät samaan aikaan, kun vanhusten määrä kasvaa.
+
+## Öljyntorjunta
+
+Sitten aiheena öljyntorjunta merellä.
+
+Viranomaiset harjoittelevat öljyntorjuntaa säännöllisesti.
+
+Tämä harjoitus järjestettiin viime viikolla Pohjanlahdella.
+
+Mukana oli laivojen lisäksi lentokone ja helikopteri. Ne auttavat etsimään öljyä, jos sitä on päässyt mereen.
+
+Sitten öljyntorjunta-alus kerää öljyn pois merestä.
+
+Viranomaiset harjoittelevat öljyntorjuntaa säännöllisesti.
+
+Suomen merialueilla kuljetaan paljon öljyä.
+
+Viranomaisten pitää olla aina valmiina siltä varalta, että merellä tapahtuu öljyonnettomuus.
+
+## Autojen lisävarusteet
+
+Sitten aiheena autojen lisävarusteet.
+
+Lisävarusteilla halutaan lisätä autojen mukavuutta.
+
+Lisävarusteet tulevat ensin kalliisiin autoihin. Esimerkiksi tässä autossa on digitaalinen ohjaamo ja latausluukut avautuvat pyyhkäisemällä.
+
+Osa lisävarusteista voi löytyä myöhemmin myös vähän halvemmista autoista. Esimerkiksi nelipyöräohjaus löytyy ehkä useammista autoista jo lähivuosina.
+
+Lisävarusteilla halutaan lisätä autojen mukavuutta.
+
+Osa kalliiden autojen lisävarusteista on kuitenkin luksusta, jota tavallinen autoilija ei tarvitse.
+
+Tässä autossa on esimerkiksi samppanjajäähdytin.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna aurinko paistaa suuressa osassa maata.
+
+dässä on pilvistä ja paikoin sataa vähän vettä.
+
+Lämpötila on lännessä 20-25 astetta, idässä ja pohjoisessa 15-20 astetta.
+

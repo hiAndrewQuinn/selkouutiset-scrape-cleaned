@@ -1,0 +1,55 @@
+# Maanantai 30.11.2020 (radio)
+
+Koronarokotukset alkavat ehkä jo tänä vuonna. Koronatartuntojen määrä kasvaa nopeasti. Suomessa on kallista asua vuokra-asunnossa.
+
+## Koronarokotukset alkavat ehkä jo tänä vuonna
+
+![Kvinna injiceras med Modernas coronavaccin i försökssyfte i augusti 2020 i Michigan, USA. ](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_48/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7434175fb4fd35d859f/1605696978)
+
+Avaa kuvien katselu
+
+Modernan koronarokotetta annettiin koehenkilölle Michiganissa Yhdysvalloissa elokuussa 2020. Kuva: AFP / Lehtikuva
+
+Koronarokotukset alkavat Suomessa ehkä jo ennen joulua.
+
+Lääkefirmat Pfizer ja BioNTech saavat ehkä joulukuun alkupuolella luvan myydä rokotetta. Firmat ovat kehittäneet rokotteen yhdessä. Suomessa aiotaan rokottaa ensin esimerkiksi riskiryhmiä ja hoitohenkilökuntaa.
+
+Asiantuntijat sanovat, että melkein kaikki Suomen aikuiset ehditään ehkä rokottaa ensi kesään mennessä. Aikataulu on vielä epävarma. Lapsia ei ainakaan heti rokoteta.
+
+## Lääkefirma Moderna hakee lupaa myydä koronarokotetta
+
+Myös lääkefirma Moderna hakee lupaa myydä koronarokotetta. Moderna aikoo heti hakea lupaa myydä rokotetta Euroopassa ja USA:ssa.
+
+Lupaa haetaan, koska Modernan tutkimukset rokotteesta ovat loppuneet. Tutkimukset vahvistavat, että rokotteen teho on noin 94 prosenttia. Moderna kertoo, että rokote on turvallinen.
+
+## Koronatartuntojen määrä kasvaa nopeasti
+
+![Työmiehiä asentamassa aitausta Koskikeskuksen yleisöpenkeille.](https://img.img-cdn.yle.fi/crop_extract,w_5486,h_3086,x_0,y_103/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7467135fbf9a8c61eeb/1606393451)
+
+Avaa kuvien katselu
+
+Pirkanmaan kauppakeskuksissa suositellaan suljettaviksi oleskelutilat 21. joulukuuta asti. Kuva: Antti Eintola / Yle
+
+Suomessa on 6 uutta koronakuolemaa.
+
+Sairaalahoidossa on koronan takia 175 ihmistä. Tehohoidossa on 18 ihmistä. Sairaalahoidossa olevien ihmisten määrä on kasvanut.
+
+Uusia koronatartuntoja on todettu Suomessa 283. Koronatartuntojen määrä on kasvanut paljon. Tartuntoja on todettu 2 viikon aikana lähes 5500. Tämä on lähes 2 500 enemmän kuin 2 viikkoa sitten.
+
+Eniten uusia tartuntoja on Helsingin ja Uudenmaan sairaanhoitopiirin alueella. Seuraavaksi eniten uusia tartuntoja on Pohjois-Pohjanmaalla ja Varsinais-Suomessa.
+
+Koronatilanne on huonontunut Kymenlaaksossa eli Kouvolan ja Kotkan seudulla. Alueelle on tulossa uusia rajoituksia, joista kerrotaan tarkemmin huomenna tiistaina.
+
+## Vuokra-asuminen on Suomessa kallista
+
+![Kuvassa on kerrostalolähiömaisema Helsingistä.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_419/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6681445ea3e0325166d/1587798702)
+
+Avaa kuvien katselu
+
+Kuvassa on kerrostalolähiömaisema Helsingistä. Kuva: Silja Viitala / Yle
+
+Suomessa on kallista asua vuokra-asunnossa.
+
+Turun yliopiston selvitys kertoo, että ihmisillä menee Suomessa vuokraan enemmän rahaa kuin muualla Euroopassa. Suomessa ihmisillä menee vuokraan keskimäärin noin 32 prosenttia kaikista tuloista. Monella ihmisellä menee vuokraan yli 40 prosenttia tuloista.
+
+Jos maksaa asuntovelkaa, asumiseen menee keskimäärin noin 15 prosenttia tuloista.

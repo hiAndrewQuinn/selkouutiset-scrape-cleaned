@@ -1,0 +1,79 @@
+# Viikon uutinen selkosuomeksi | lauantai 14.3.2026
+
+Muutokset maahanmuutossa.
+
+Tämän viikon aiheena ovat muutokset maahanmuutossa. Suomeen muutetaan ennen kaikkea Aasiasta.
+
+Nyt kerromme aiheesta lisää.
+
+## Ulkomaalaisten määrä Suomessa kasvaa
+
+![Suomen kielen tunti Kotkan XAMKin kampuksella.](https://img.img-cdn.yle.fi/crop_extract,w_5590,h_3144,x_0,y_265/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1601486699c08977ff7a/1771835678)
+
+Avaa kuvien katselu
+
+Kaakkois-Suomen ammattikorkeakoulu XAMKin toimipiste Kotkassa. Kansainväliset opiskelijat opiskelemassa suomen kieltä opettaja Anna-Liisa Luovan tunnilla. Kuva: Antro Valo / Yle
+
+Yhä useampi Suomen asukas on ulkomaalaistaustainen. Se tarkoittaa ihmistä, jonka vanhemmat ovat syntyneet ulkomailla.
+
+Suomessa asuu nyt noin 5,6 miljoonaa ihmistä. Noin 11 prosentilla on ulkomaalaistausta.
+
+Vuonna 2014 Suomessa oli 323 000 ulkomaalaistaustaista. Heitä oli toissa vuonna jo 624 000.
+
+Alueiden välillä on eroja.
+
+Lahden Liipolassa ulkomaalaistaustaisia on 30 prosenttia. Vieressä Launeen–Nikkilän alueella heitä on vain 6 prosenttia.
+
+## Maahanmuuttajien tausta on muutoksessa
+
+![Mies istuu haudan äärellä lumisella hautausmaalla. Hautojen päätyihin on kiinnitetty Ukrainan lippuja.](https://img.img-cdn.yle.fi/crop_extract,w_2878,h_1618,x_0,y_425/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-15754706953a11255280/1767088582)
+
+Avaa kuvien katselu
+
+Venäjän täysimittainen hyökkäyssota Ukrainaan on kestänyt 4 vuotta. Sen näkyy myös Suomen tilastoissa maahanmuutosta. Kuva: Sergey Kozolov / EPA
+
+Suurin osa ulkomaalaistaustaisista on tähän asti tullut Virosta, Venäjältä ja entisen Neuvostoliiton alueelta.
+
+Toissa vuoden lopussa heitä oli noin 180 000.
+
+Venäjän hyökkäyssota Ukrainaan 4 vuotta sitten toi muutoksen. Ukrainalaiset ovat nousseet muuttotilastojen kärkeen.
+
+Varsinainen iso muutos on se, että Suomeen muutetaan nyt ennen kaikkea Aasiasta.
+
+Ihmisiä muuttaa paljon Suomeen Kiinasta tai Intiasta.
+
+Toissa vuonna heitä oli yhteensä jo noin 40 000. He tulevat usein opiskelemaan tai töihin teknologia-alalle.
+
+Espoon Otaniemessä yli puolet asukkaista on ulkomaalaistaustaisia.
+
+## Aasia, Lähi-itä ja Afrikka
+
+![Hoitohenkilökuntaan kuuluva nainen pesee käsiä hoivakodin käytävällä.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_202/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-142113267ad99788b5ee/1739430801)
+
+Avaa kuvien katselu
+
+Filippiiniläinen Eugelynn Marie Glynn kuhmolaisessa Hoivakoti Honkalinnassa. Kuvattu 12.2.2025. Kuva: Tiia Korhonen / Yle
+
+Monet tulevat Aasiasta Suomeen nimenomaan työn takia. Näitä maita ovat Filippiinit, Thaimaa, Vietnam, Pakistan, Nepal, Bangladesh ja Sri Lanka.
+
+Toissa vuonna Suomessa asui noin 90 000 ihmistä näistä maista.
+
+Filippiiniläisten määrä on kasvanut eniten. Heitä on haluttu Suomeen varsinkin hoitotyöhön.
+
+Myös Lähi-idästä ja Afrikasta muutetaan Suomeen.
+
+Maita ovat esimerkiksi Irak, Iran, Syyria, Turkki ja Somalia. Toissa vuonna heitä asui Suomessa noin 98 000.
+
+Noin puolet kaikista ulkomaalaistaustaisista asuu Helsingin, Espoon ja Vantaan alueella.
+
+## Kertaus
+
+Kerrataan vielä.
+
+Ulkomaalaistaustaisten määrä kasvaa Suomessa.
+
+Suomen väkiluvusta noin 11 prosenttia on ulkomaalaistaustaisia.
+
+Alueiden erot ovat suuria.
+
+Tässä oli Viikon uutinen selkosuomeksi. Kuulemiin!

@@ -1,0 +1,55 @@
+# Lauantai 18.3.2018 (radio)
+
+Keskustelut Pohjois-Koreasta jatkuvat Suomessa. Kiteellä toimii hiihtokoulu turvapaikanhakijalapsille. Runoilija Heli Laaksonen on testannut suomen kielen uusia sanoja.
+
+## Keskustelut Pohjois-Koreasta jatkuvat
+
+![Helsinki kauppatori](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10121587)
+
+Avaa kuvien katselu
+
+Helsinki on paikka tärkeälle tapaamiselle. Kuva: Sergio Azenha / AOP
+
+Suomessa järjestetään tärkeä tapaaminen sunnuntaina. Tapaaminen liittyy Pohjois-Korean tilanteeseen. Suomi ei itse osallistu tapaamiseen.
+
+Sunnuntaina Suomeen tulee myös Pohjois-Korean edustajia. Viime päivinä Pohjois-Korean tilanteesta on neuvoteltu Ruotsissa.
+
+Pohjois-Korean tilanne on vaikea, koska maa on riidellyt Etelä-Korean ja USA:n kanssa. Ne eivät pidä siitä, että Pohjois-Korea on kehittänyt ydinasetta.
+
+Pohjois-Korean johtaja Kim Jong-un ja USA:n presidentti Donald Trump aikovat tavata tänä keväänä.
+
+## Hiihtokoulu turvapaikanhakijalapsille
+
+![Kansainvälisen hiihtokoulun lapsia Kiteellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10117626)
+
+Avaa kuvien katselu
+
+Abdullah, Fatima ja muut turvapaikanhakijalapset tykkäävät hiihtää. Kuva: Tanja Perkkiö / Yle
+
+Sitten Kiteelle, Itä-Suomeen.
+
+Kiteellä toimii hiihtokoulu turvapaikanhakijoille. Hiihtokoulussa käy lapsia, jotka asuvat Kiteen vastaanottokeskuksessa.
+
+Tällä viikolla hiihtokoululaiset pääsivät vierailulle ampumahiihdon maailmacup-kilpailuihin. Kilpailut olivat 100 kilometrin päässä Kontiolahdessa.
+
+Vierailu järjestyi, koska Kaisa Mäkäräinen on lasten kummiurheilija. Mäkäräinen on kuuluisa ampumahiihtäjä. Lapset myös tapasivat Mäkäräisen, joka on heidän suuri idoli.
+
+Kiteen hiihtokoululaiset ovat saaneet sukset ja hiihtovaatteet Kansainväliseltä hiihtokoululta. Se on järjestö, joka auttaa turvapaikanhakijalapsia kotoutumaan Suomen talveen.
+
+## Uudet sanat runoilijan testissä
+
+![Runoilija Heli Laaksonen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10120531)
+
+Avaa kuvien katselu
+
+"Sydäniskuri" on Heli Laaksosen mielestä hyvä sana. Kuva: Pipsa Uutto / Yle
+
+Suomen kieli saa tänä vuonna virallisesti 600 uutta sanaa. Ne pääsevät kielitoimiston sanakirjaan. Kielitoimisto huolehtii suomen kielestä.
+
+Yle Uutiset pyysi runoilija Heli Laaksosta testaamaan uusia sanoja. Laaksonen kirjoittaa runoja murteella, ja hän rakastaa suomen kielen sanoja.
+
+Kun Laaksonen testaa uusia sanoja, hän miettii, mitä sana tarkoittaa ja miltä sana kuulostaa.
+
+Laaksonen tykkää monesta uudesta sanasta. Sellainen on esimerkiksi "sydäniskuri". Laaksonen on aina iloinen, kun vieraskielisen sanan tilalle löytyy suomenkielinen sana. Suomalaisen on paljon helpompi sanoa "sydäniskuri" kuin "defibrillaattori". Se on ollut laitteen nimi tähän asti. "Sydäniskuri" myös kertoo hyvin, että laite käynnistää sydämen sähköiskuilla.
+
+Laaksonen ei tykkää vieraskielisistä uusista sanoista. Suomalaisen on vaikea tietää, mitä ne tarkoittavat. Esimerkiksi "drooni" pääsee nyt kielitoimiston sanakirjaan. Se tarkoittaa pientä helikopterin näköistä laitetta. Ehdotan "droonin" tilalle sanaa "minikopteri", runoilija Laaksonen sanoo.

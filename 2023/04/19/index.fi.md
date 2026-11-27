@@ -1,0 +1,67 @@
+# Radio Selkouutiset keskiviikko 19.4.2023
+
+Hallitustunnustelut. Venäjän tiedustelu. Sukunimet. Norppa. Sää.
+
+## Hallitustunnustelut
+
+![Valtioneuvoston linna.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10132356332d6a642890/1664276228)
+
+Avaa kuvien katselu
+
+Valtioneuvoston linna Helsingissä. Kuva: Mikko Koski / Yle
+
+Hallitustunnustelija Petteri Orpo sanoo, että hallituspohja voi olla selvillä ennen vappua. Hallituspohja tarkoittaa sitä, mitkä puolueet tulevat uuteen hallitukseen. Kokoomuksen puheenjohtaja Petteri Orpo kokoaa hallitusta, koska kokoomus on nyt eduskunnan suurin puolue.
+
+Orpo sanoo, että keskustelut puolueiden kanssa eivät ole päivästä tai kahdesta kiinni. Hän kuitenkin toivoi, että varsinaiset neuvottelut alkavat heti vapun jälkeen. Hallitusneuvotteluissa sovitaan, millaista politiikkaa hallitus alkaa ajaa.
+
+## Venäläistiedustelu
+
+![Venäläinen valtamerentutkimusalus Admiral Vladimirsky. ](https://img.img-cdn.yle.fi/crop_extract,w_2482,h_1396,x_820,y_117/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1100861643ebc6b99038/1681891910)
+
+Avaa kuvien katselu
+
+Pohjoismainen dokumentti Varjojen sota esitetään TV1:ssä. Ensimmäinen osa on myös jo Yle Areenassa. Kuva: Morten Krüger / DR
+
+Venäläiset sotilas- ja siviililaivat tutkivat pohjoisen merialueita. Laivat tutkivat Itämeren ja Pohjanmeren infrastruktuuria, esimerkiksi kaapeleita. Pohjoismaiset yleisradioyhtiöt, myös Yle, ovat saaneet Venäjän tiedustelun selville. Tanskan yleisradion toimittajat pääsivät venäläisten jäljille marraskuussa.
+
+Venäläisten radioliikenne paljasti, että Kattegatin salmessa liikkui 148-metrinen tutkimusalus.
+
+Pohjoismainen dokumenttisarja kertoo, että venäläisten mielenkiinnon kohteita ovat kaasuputket ja tietoliikennekaapelit. Myös tuulivoimalat ja niiden sähkökaapelit kiinnostavat. Asiantuntijat sanovat, että Venäjä voi esimerkiksi estää sähkönsiirron merialueiden tuulivoimaloista.
+
+Venäjän tiedustelutoimintaa käsitellään 3-osaisessa dokumentissa Varjojen sota. Ensimmäinen jakso on jo Yle Areenassa.
+
+## Sukunimet
+
+![Postilaatikko, jossa lukee Munkki](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_322/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6004335da5bd46cc850/1571143063)
+
+Avaa kuvien katselu
+
+Avioparien sukunimen valinnassa on tapahtunut käänne. Kuva: Päivi Meritähti / Yle
+
+Alle puolet viime vuoden aviopareista otti sulhasen sukunimen. Asiasta kertoo Digi- ja väestötietovirasto. Nyt oli ensimmäinen kerta, kun enemmistö mies - naispareista valitsi muun vaihtoehdon kuin sulhasen nimen. 41 prosenttia pariskunnista säilytti omat sukunimet. Alle 2 prosenttia pareista valitsi naisen nimen.
+
+Suomalaiset avioparit ovat saaneet valita sukunimen melko vapaasti vuodesta 1986. Aiemmin laki velvoitti naisen ottamaan miehen sukunimen.
+
+## Itämerennorppa
+
+![Itämerennorppa vedessä.](https://img.img-cdn.yle.fi/crop_extract,w_4288,h_2412,x_0,y_302/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5487805c88f00e78741/1650434762)
+
+Avaa kuvien katselu
+
+Itämerennorppaa täytyy suojella, koska ilmastonmuutos haittaa sen pesintää. Kuva: Zoo-Life / Alamy
+
+Itämerennorppa on hyväksynyt keinopesän Saaristomerellä ja synnyttänyt sinne kuutin eli poikasen helmikuussa. Näin tapahtui ensimmäisen kerran.
+
+Ilmastonmuutos on vaikeuttanut itämerennorpan elämää. Eläin tekee pesän normaalisti merijäähän mutta on joutunut synnyttämään maalla. Siellä vastasyntyneet kuutit ovat vaarassa.
+
+Keinopesillä yritetään suojella lajin säilymistä.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106407763d1fcd4a5fb2/1674706168)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Torstaina sää on melko aurinkoinen ja keväisen lämmin. Lämpötila on 10...17 astetta, Pohjois-Lapissa on viileämpää.

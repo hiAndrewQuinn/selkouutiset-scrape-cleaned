@@ -1,0 +1,73 @@
+# Keskiviikko 6.6.2018 (radio)
+
+USA:n ja Pohjois-Korean johtajat tapaavat ensi viikolla. Suomen hallitus aikoo parantaa lasten oikeuksia avioerossa. Poliisi on etsinyt rattijuoppoja liikenteestä. Susien määrä on kasvanut Suomessa. Presidenttipari muuttaa vauvan kanssa kesäksi Naantaliin.
+
+## Trump ja Kim
+
+![Capella Hotel Sentosan saarella Singaporessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10240087)
+
+Avaa kuvien katselu
+
+Trump ja Kim tapaamispaikka on Capella-hotelli Sentosan saarella. Kuva: Grant Smith / AOP
+
+USA:n ja Pohjois-Korean johtajat tapaavat ensi viikon tiistaina. USA:n presidentti Donald Trump ja Pohjois-Korean johtaja Kim Jong-un tapaavat Aasiassa, Singaporessa.
+
+Tapaamispaikka on Sentosan saarella, joka on osa Singaporea. Uskotaan, että tapaamispaikka on saarella turvallisuuden takia.
+
+Trumpin ja Kim Jong-unin tapaamisen aiheena ovat Pohjois-Korean ydinaseet. USA haluaa sopia, miten Pohjois-Korea luopuu ydinaseista.
+
+## Avioerolapset
+
+![Lapsen ulkovaatteet penkillä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9447605)
+
+Avaa kuvien katselu
+
+Nykyään lapsi voi menettää tärkeitä ihmisiä vanhempien avioeron jälkeen. Kuva: Sanna Savela / Yle
+
+Suomen hallitus aikoo parantaa lasten oikeuksia avioerossa.
+
+Hallitus haluaa esimerkiksi varmistaa, että lapsen tärkeät ihmissuhteet säilyvät myös vanhempien avioeron jälkeen. Hallituksen mielestä on tärkeää, että lapsi saa tavata esimerkiksi isovanhempia.
+
+Hallituksen tavoite on, että uusi laki tulee voimaan ensi keväänä. Uudesta laista päättää eduskunta.
+
+## Rattijuopot
+
+![Poliisi puhalluttaa autoilijaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9436193)
+
+Avaa kuvien katselu
+
+Poliisi on etsinyt rattijuoppoja. Kuva: Kalle Schönberg / Yle
+
+Poliisi on valvonut keskiviikkona liikennettä tarkemmin kuin tavallisesti. Poliisi on etsinyt rattijuoppoja eli ihmisiä, jotka ajavat autoa humalassa.
+
+Rattijuoppoja on nykyään monenlaisia. Osa on juonut alkoholia, mutta osa on käyttänyt huumausaineita. Etenkin nuoret rattijuopot ovat usein käyttäneet huumeita.
+
+Viime vuonna poliisi sai Suomessa kiinni yli 17 000 rattijuoppoa.
+
+## Susi
+
+![Kurikkalaisen Leena Latvalan perhe asuu lähellä Jurvan rajaa. Kotitalon lähistöllä on tehty susihavaintoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10241280)
+
+Avaa kuvien katselu
+
+Latvalan perheen kodin lähellä Pohjanmaalla on nähty susia. Kuva: Mirva Ekman/Yle
+
+Susien määrä on kasvanut Suomessa. Suomessa elää nyt noin 200 sutta. Se on 10 prosenttia enemmän kuin viime vuonna.
+
+Susien määrä on kasvanut eniten Länsi-Suomessa. Esimerkiksi Pohjanmaalla susia on nyt 2 kertaa niin paljon kuin vuosi sitten. Ihmiset ovat nähneet susia jopa talojen lähellä.
+
+Sudet elävät usein laumassa. Yhdessä laumassa on monta sutta. Asiantuntijat arvioivat, että Suomessa on nyt 20 susilaumaa.
+
+## Presidenttiperhe
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10240624)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Martti Kainulainen / Lehtikuva
+
+Presidentti Sauli Niinistö on kertonut elämästä pienen vauvan kanssa. Presidentti Niinistön ja rouva Jenni Haukion poikavauva syntyi helmikuussa.
+
+Niinistö kertoi toimittajille keskiviikkona, että perhe viettää onnellista ja tavallista suomalaista elämää.
+
+Presidenttipari muuttaa vauvan kanssa kesäksi Naantaliin. Presidentin kesäasunto Kultaranta on Naantalissa.

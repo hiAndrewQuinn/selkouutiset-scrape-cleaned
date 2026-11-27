@@ -1,0 +1,83 @@
+# Tiistai 14.12.2021 (radio)
+
+Vankiloiden on vartijapula. Norja tiukentaa koronarajoituksia. Suomen koronatartunnat. Presidentti Niinistö keskusteli presidentti Putinin kanssa. Aluevaalien ehdokasasettelu päättyi. Sääennuste.
+
+## Vankiloiden vartijapula
+
+![Turun vankilan vartija nojaamassa kaltereihin.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7304315f88339083557/1602762388)
+
+Avaa kuvien katselu
+
+Vartijapula on suurinta isoissa vankiloissa. Kuva: Saana Sjöblom-Hasselblatt / Yle
+
+Vankiloissa on pulaa vartijoista. Syy on se, että vanginvartijoiden koulutuspaikkoja on vähennetty noin 10 vuotta sitten. Nyt vanginvartijan työhön ei tule tarpeeksi päteviä hakijoita.
+
+Vankiloissa on töissä paljon sijaisia, joilla ei ole riittävää koulutusta. Vanginvartijat sanovat, että työ on raskaampaa, koska vartijoita on liian vähän. Sijaisten opettaminen lisää vanginvartijoiden työtä.
+
+Vartijapula on suurinta isoissa vankiloissa, esimerkiksi Sukevalla, Turussa ja Helsingissä.
+
+## Norjan koronatoimet
+
+![Suomen ja Norjan raja Utsjoella. ](https://img.img-cdn.yle.fi/crop_extract,w_2275,h_1283,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88604361a5f28d13f34/1638265561)
+
+Avaa kuvien katselu
+
+Norja tiukentaa koronatoimia rajalla. Kuva: Sara Kelemeny / Yle
+
+Norja tiukentaa koronarajoituksia. Kaikkien ihmisten, jotka saapuvat Norjaan, pitää käydä koronatestissä. Syy on koronaviruksen omikron-muunnos, joka leviää Norjassa nopeasti.
+
+Norja kieltää myös alkoholitarjoilun ravintoloissa ja baareissa kuukauden ajaksi. Tarkoitus on vähentää ihmisten kokoontumisia.
+
+Norjassa omikron-tartuntojen määrä on kaksinkertaistunut viikossa.
+
+## Suomen koronaluvut
+
+![Kaksi vihreää kylttiä, joissa lukee Koronatestaus Drive-in, taustalla autoja jonossa. ](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_4,y_120/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88758361a9d6176719a/1639259580)
+
+Avaa kuvien katselu
+
+Kyltti ohjaa koronatestiin. Kuva: Mia Sivula / Yle
+
+Suomessa on raportoitu tiistaina melkein 1700 uutta koronavirustartuntaa.
+
+Uusia koronakuolemia on 2.
+
+Sairaaloissa on lähes 300 koronapotilasta. Heistä 52 koronapotilasta on tehohoidossa.
+
+## Niinistö keskusteli Putinin kanssa
+
+![President Sauli Niinistö skakar hand med Rysslands president Vladimir Putin.](https://img.img-cdn.yle.fi/crop_extract,w_3500,h_1968,x_0,y_410/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-2947435776819ee1fd4/1467384540)
+
+Avaa kuvien katselu
+
+Sauli Niinistö ja Vladimir Putin ovat myös tavanneet. Tiistaina he puhuivat puhelimessa. Kuva: Mikhail Metzel/TASS All Over Press
+
+Presidentti Sauli Niinistö on puhunut puhelimessa Venäjän presidentin Vladimir Putinin kanssa tiistaina.
+
+Niinistö sanoi Putinille, että Ukrainan tilanne huolestuttaa Niinistöä.
+
+Niinistö sanoi Putinille, että Ukrainan tilanteeseen on hyvä saada diplomaattinen ratkaisu, eli tilanteesta on hyvä sopia ilman sotilaallista voimankäyttöä.
+
+## Aluevaalit
+
+![Pirkanmaan hyvinvointialueen toimisto Finmedi 5:ssa Tampereella](https://img.img-cdn.yle.fi/crop_extract,w_3590,h_2019,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8517996139f7e992507/1637674032)
+
+Avaa kuvien katselu
+
+Suomeen tulee 21 hyvinvointialuetta. Kuva: Kirsi Matson-Mäkelä / Yle 
+
+Aluevaalien ehdokasasettelu on päättynyt. Ehdokasasettelu päättyi tiistaina iltapäivällä. Aluevaaleihin ilmoitettiin yli 10 000 ehdokasta. Mikään puolue ei saanut ehdokaslistoja täyteen.
+
+Suomen ensimmäiset aluevaalit järjestetään 23. tammikuuta. Vaaleissa valitaan edustajat aluevaltuustoihin. Aluevaltuustot päättävät hyvinvointialueiden palveluista.
+
+Suomeen tulee 21 hyvinvointialuetta. Hyvinvointialueet järjestävät sosiaali- ja terveydenhuollon sekä palo- ja pelastustoimen maaliskuusta alkaen.
+
+## Sää
+
+![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12230307)
+
+Avaa kuvien katselu
+
+Keskiviikkona tulee sateita.
+
+Sää on keskiviikkona pilvistä. Etelässä tulee vesikuuroja, muualla maassa tulee lumikuuroja. Lämpötila vaihtelee etelän +3 asteen ja pohjoisen -7 asteen välillä.

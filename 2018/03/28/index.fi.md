@@ -1,0 +1,7 @@
+# Keskiviikko 28.3.2018 (tv)
+
+Pohjois-Korean johtaja on vieraillut Kiinassa. Hali-järjestelmä pitää huolta siitä, että ambulanssille ja paloautolle palaa aina vihreä valo. Keniassa maahan on tullut syvä vajoama. Luksian opiskelijat esittelevät rakannusalan opintoja. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Pohjois-Korean johtaja on vieraillut Kiinassa. Hali-järjestelmä pitää huolta siitä, että ambulanssille ja paloautolle palaa aina vihreä valo. Keniassa maahan on tullut syvä vajoama. Luksian opiskelijat esittelevät rakannusalan opintoja. Säätiedot.

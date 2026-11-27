@@ -1,0 +1,43 @@
+# TV | Selkouutiset | tiistai 16.9.2025
+
+Työpaikat. Vanhukset. Ylioppilaskokeet. Sää.
+
+## Uudet työpaikat
+
+Ensin uutinen työpaikoista.
+
+Suomessa on vähemmän avoimia työpaikkoja kuin vuosi sitten. Yksityiset firmat palkkaavat tällä hetkellä vain vähän uusia työntekijöitä. Asiantuntijat sanovat, että Suomen talouskasvu on hidasta. Ihmiset eivät usko, että talous kehittyy hyvin.
+
+Suomessa on vähemmän avoimia työpaikkoja kuin vuosi sitten. Palvelualalla uusia työpaikkoja on vain vähän. Teollisuudessa uusia työpaikkoja on vähän enemmän.
+
+## Vanhukset
+
+Seuraavaksi aiheena ovat vanhukset.
+
+Monen vanhan ihmisen pitää asua kaukana kotoa. Vanhuksen hoitopaikka voi olla kaukana kodista, jossa vanhus asui aikaisemmin.
+
+Hyvinvointialue etsii joskus vanhukselle hoitopaikan, joka on kaukana kotoa.
+
+Niina Mannisen muistisairas äiti asuu nyt hoitopaikassa Sievissä. Äidin aikaisempi koti on kaukana.
+
+Niina Mannisella on äidin luo nyt yli 2 tunnin ajomatka:
+
+*-Miten heitä voi heitellä paikasta toiseen ja viedä ihmisiä niin kauas, että he eivät näe enää läheisiään. Muistisairaalle on todella tärkeätä se, että näkee niitä ihmisiä, joita vielä tuntee.*
+
+## Ylioppilaskokeet
+
+Nyt aiheena ovat ylioppilaskokeet.
+
+Syksyn ylioppilaskokeet alkoivat maanantaina. Maanantaina oli äidinkielen lukutaidon koe.
+
+Syksyllä valmistuu enemmän ylioppilaita kuin aikaisemmin. Viime vuonna 17 prosenttia ylioppilaista valmistui syksyllä.
+
+Opinto-ohjaaja Jonna Rinkiö vantaalaisesta Vaskivuoren lukiosta:
+
+*-Koko ajan on kasvanut kirjoittajien määrä myös syksyllä. Yhä useampi haluaa jakaa kirjoituksensa useammalle kerralle. Se näkyy myös syksyn suosiossa.*
+
+## Sää
+
+Vielä sääennuste.
+
+Sää on epävakainen. Vettä sataa varsinkin maan etelä- ja keskiosissa.

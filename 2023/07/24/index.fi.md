@@ -1,0 +1,67 @@
+# Radio Selkouutiset maanantai 24.7.2023
+
+Kreikan maastopalot. Suomen matkatoimistot. Rikollisten tekstiviestit. Sää.
+
+## Kreikan maastopalot
+
+![Ilmakuva kaupunkiympäristöstä. Horisontista nousee sankkaa tummaa savua.](https://img.img-cdn.yle.fi/crop_extract,w_4996,h_2810,x_0,y_520/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114683364be9b931f306/1690213794)
+
+Avaa kuvien katselu
+
+Tuli on tehnyt paljon vahinkoja Ródoksella. Kuva: Spyros Bakalis / Lehtikuva
+
+Kreikan maastopalot jatkuvat.
+
+Myös uusia maastopaloja on syttynyt. Esimerkiksi Korfun saarelta on siirretty turvaan monta tuhatta ihmistä maastopalojen takia.
+
+Pahin tilanne on Ródoksen saarella. Tuli on polttanut Ródoksella maastoa, metsää ja taloja jo monta päivää. Jopa 30 000 ihmistä on siirretty Ródoksella pois tulen tieltä.
+
+Tulipalot leviävät Kreikassa nyt helposti, koska sää on kuiva ja tosi lämmin. Lämpötila on noussut jopa yli 40 asteeseen.
+
+## Suomen matkatoimistot
+
+![Ihmisiä lentokentällä](https://img.img-cdn.yle.fi/crop_extract,w_4561,h_2565,x_0,y_233/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114642364bd3960c7e3c/1690122680)
+
+Avaa kuvien katselu
+
+Monet suomalaiset turistit tulevat nyt takaisin Ródokselta. Kuva: Mikko Ahmajärvi / Yle
+
+Kreikan maastopalot vaikuttavat myös Kreikan-matkoihin. Suomalaiset tekevät paljon lomamatkoja Kreikan saarille.
+
+Maastopalojen takia matkatoimistot rajoittavat nyt matkoja Suomesta Kreikkaan. Osa matkatoimistoista lentää edelleen Ródokselle, mutta ei vie turisteja lähelle maastopaloja.
+
+Osa matkatoimistoista on perunut lennot Ródokselle ainakin tiistaihin asti. Niiden lentokoneet lentävät Ródokselle ilman matkustajia, jotta ne voivat tuoda turisteja Ródokselta takaisin Suomeen.
+
+Matkatoimistot arvioivat tilannetta päivä kerrallaan.
+
+## Rikollisten tekstiviestit
+
+![Matkapuhelimen näytöllä Postin nimissä lähetetty huijausviesti.](https://img.img-cdn.yle.fi/crop_extract,w_946,h_532,x_0,y_142/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114610164baa03d8b891/1715950940)
+
+Avaa kuvien katselu
+
+Tätä linkkiä ei pidä avata. Kuva: Juha-Petri Koponen / Yle
+
+Posti kertoo, että sen puhelinnumeroa on käytetty väärin.
+
+Rikolliset ovat lähettäneet ihmisille tekstiviestejä, joissa pyydetään tullimaksua. Rikollisten tekstiviestit ovat tulleet Postin oikeiden tekstiviestien joukkoon.
+
+Rikollisten tekstiviesteissä on linkki, jonka kautta asiakas voi vahvistaa tullimaksun. Näin rikolliset yrittävät saada ihmisten pankkitietoja.
+
+Posti, puhelinfirmat ja viranomaiset etsivät keinoa, jolla rikollisten tekstiviestit voidaan estää.
+
+Jos asiakas saa tekstiviestin tullimaksusta, hänen ei pidä avata linkkiä, ennen kuin hän tarkistaa asian Postista. Asiakas voi soittaa Postin asiakaspalveluun tai mennä netin Omaposti-palveluun.
+
+Jos asiakas on avannut linkin ja antanut sen kautta oman pankkitunnuksen, hänen pitää ottaa yhteyttä omaan pankkiin ja poliisiin.
+
+## Sää
+
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114684264bea08f72cc7/1690214573)
+
+Avaa kuvien katselu
+
+Sää on etelässä aurinkoista. Sadekuuroja voi tulla tiistaina iltapäivällä. Lämpötila on yli 20 astetta.
+
+Pohjoisessa sataa itärajan lähellä. Pohjoisessa on pilvistä ja lämpötila on noin 15 astetta. Tuuli on heikkoa.
+
+Myös myöhemmin tällä viikolla saadaan sateita. Viikon loppupuolella vettä sataa erityisesti idässä ja pohjoisessa.

@@ -1,0 +1,71 @@
+# Maanantai 8.7.2019 (radio)
+
+Valta on vaihtunut Kreikassa. Varusmiesliitto esittää, että myös naisten pitää käydä armeija. Kesän hedelmäsadosta on tulossa hyvä. Kaustisen kansanmusiikkijuhlat alkoivat.
+
+## Uusi Demokratia voitti Kreikan vaalit
+
+![Kyriakos Mitsotakis](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10864855)
+
+Avaa kuvien katselu
+
+Kreikan keskustaoikeistolainen Uusi Demokratia -puolue palasi valtaan sunnuntain vaaleissa Kyriakos Mitsotakisin johdolla. Kuva: Orestis Panagiotou / EPA
+
+Valta on vaihtunut Kreikassa. Kreikkalaiset äänestivät sunnuntaina parlamenttivaaleissa. Keskustaoikeistolainen. Uusi Demokratia -puolue sai äänistä noin 40 prosenttia.
+
+Puolue saa parlamenttiin 158 paikkaa 300:sta. Puolue nousee takaisin valtaan.
+
+Kreikan hallituksessa on tällä hetkellä vasemmiston Syriza-puolue. Syriza hävisi ja sai runsaan 30 prosentin ääniosuuden.
+
+Pääministeri Aléxis Tsípras on onnitellut Kyriakos Mitsotakisia, josta tuli uusi pääministeri.
+
+Uusi Demokratia on luvannut pienentää kreikkalaisten veroja. Monet kreikkalaiset ovat kyllästyneet siihen, että heillä on verojen ja valtion säästöjen takia vähemmän rahaa kuin ennen.
+
+Kreikan taloustilanne on ollut huono jo pitkään. Kreikan ongelma on, että valtiolla on hyvin paljon velkaa.
+
+## Varusmiesliitto esittää armeijaa myös naisille
+
+![Naisalokas Meri Nuutinen valmistautuu asepalvelukseen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10867550)
+
+Avaa kuvien katselu
+
+Alokas Meri Nuutinen valmistautuu asepalvelukseen. Kuva: Antti-Jussi Korhonen / Yle
+
+Varusmiesliitto esittää, että myös naisten pitää käydä armeija. Nyt naisten asepalvelus on Suomessa vapaaehtoinen.
+
+Varusmiesliitto ehdottaa myös, että fyysiset ja psyykkiset testit tehdään jo kutsunnoissa. Varusmiesliitto sanoo, että palvelukseen pitää ottaa alokkaat koko ikäluokasta sukupuolesta riippumatta.
+
+Liiton puheenjohtaja Matias Pajula sanoo, että asepalvelus on monien mielestä epäoikeudenmukainen.
+
+Uudet alokkaat ovat aloittaneet tänään palveluksen armeijassa. Uusia alokkaita on yli 12 000. Melkein 10 000 aloittaa maavoimissa ja noin 1 700 merivoimissa.
+
+Palvelus alkaa 8 viikon peruskoulutuksella.
+
+## Luumusadosta on tulossa ennätyssuuri
+
+![Luumupuussa runsaasti raakileita. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10857831)
+
+Avaa kuvien katselu
+
+Luumusadosta on tulossa ennätysrunsas. Kuva: Simo Tommola
+
+Kesän hedelmäsadosta on tulossa hyvä.
+
+Varsinkin luumuja on tulossa ennätyksellisen paljon. Siksi viljelijöiden kannattaa poistaa puista jopa puolet raaoista luumuista. Vaara on, että luumupuut käyttävät hedelmien kasvattamiseen liikaa energiaa. Silloin ne eivät selviä ensi talvesta. Oksat voivat myös katketa.
+
+Omenasadosta on tulossa keskinkertainen. Myös raakoja omenia kannattaa poistaa oksista.
+
+## Kaustisella soi taas kansanmusiikki
+
+![Yleisöä areenan täydeltä Kaustisella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10306532)
+
+Avaa kuvien katselu
+
+Kaustisella soi taas kansanmusiikki. Kuva: Raila Paavola / Yle
+
+Kaustisen kansanmusiikkijuhlat ovat alkaneet Keski-Pohjanmaalla.
+
+Viikon aikana on 1 600 konserttia ja noin 4000 esiintyjää. Tänäkin vuonna lavalla nähdään kotimaisia ja ulkomaisia huippuartisteja.
+
+Kesän festivaaleilla on 3 teemaa: kansainvälisyys, rytmi ja Savon maakunta.
+
+Kaustisen kansanmusiikkijuhlille odotetaan tänä vuonna paljon kävijöitä. Viime vuonna yleisötavoite oli 47 000 ja se saavutettiin.

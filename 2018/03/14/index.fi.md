@@ -1,0 +1,71 @@
+# Keskiviikko 14.3.2018 (radio)
+
+Eduskunta on keskustellut sote-uudistuksesta. Suomi on maailman onnellisin maa. Brittiläinen tiedemies Stephen Hawking on kuollut. Hiihtäjä Ilkka Tuomisto sai pronssimitalin paralympialaisissa.
+
+## Sote-keskustelu
+
+![eduskuntasali](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10117090)
+
+Avaa kuvien katselu
+
+Eduskunta keskusteli sote-uudistuksesta. Kuva: Yle
+
+Eduskunta on keskustellut sote-uudistuksesta. Sote tarkoittaa sosiaalipalveluja ja terveyspalveluja.
+
+Hallitus ehdottaa valinnanvapautta sote-palveluihin. Se tarkoittaa, että ihminen saa itse valita, mistä hän hakee hoitoa. Hän voi valita julkiset tai yksityiset palvelut.
+
+Oppositiopuolueet sanovat, että valinnanvapaus tulee kalliiksi ja asiakkaiden maksut nousevat. Hallitus sanoo, että valinnanvapaus ei nosta hintoja.
+
+Hallitus haluaa, että eduskunta hyväksyy sote-lait kesäkuussa.
+
+## Onnellinen Suomi
+
+![Mies ui avannossa Helsingin Hernesaaressa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10115791)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat onnellisia. Kuva: Martti Kainulainen / Lehtikuva
+
+Suomi on maailman onnellisin maa.
+
+Tieto on YK:n onnellisuusraportista. YK eli Yhdistyneet kansakunnat julkaisee raportin joka vuosi. Raportin nimi on englanniksi The World Happiness Report.
+
+YK tutki yli 150 maassa, kuinka onnellisia ihmiset ovat. Tutkijat selvittivät esimerkiksi, kuinka pitkään ihmiset elävät ja onko maassa korruptiota. Tutkimuksessa oli mukana ensimmäistä kertaa myös maahanmuuttajia.
+
+Suomi oli tutkimuksen paras maa. Onnellisia maita ovat myös muut Pohjoismaat. Suomen jälkeen tulivat Norja, Tanska ja Islanti.
+
+## Stephen Hawking
+
+![Stephen Hawking](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10115729)
+
+Avaa kuvien katselu
+
+Stephen Hawking jaksoi tehdä työtä, vaikka hänellä oli vaikea sairaus. Kuva: Andrew Cowie / AFP
+
+Sitten uutisia tiedemaailmasta.
+
+Brittiläinen tiedemies Stephen Hawking on kuollut. Hän oli 76-vuotias.
+
+Hawking oli fyysikko. Hän tutki avaruutta. Hawking halusi kertoa myös tavallisille ihmisille, mitä ovat esimerkiksi avaruuden mustat aukot.
+
+Hawkingilla oli hyvä huumorintaju. Hän oli mukana myös hauskoissa tv-ohjelmissa, esimerkiksi Simpsoneissa.
+
+Hawking teki paljon työtä, vaikka hänellä oli paha sairaus. Sairauden takia Hawking kulki pyörätuolilla.
+
+## Suomelle pronssimitali
+
+![Ilkka Tuomisto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9464698)
+
+Avaa kuvien katselu
+
+Hiihtäjä Ilkka Tuomisto. Kuva: Lehtikuva / Handout
+
+Lopuksi urheilua.
+
+Suomi on saanut pronssimitalin paralympialaisissa. Paralympialaisissa kilpailevat vammaisurheilijat.
+
+Suomi sai pronssimitalin, kun hiihtäjä Ilkka Tuomisto oli kolmas 1,5 kilometrin pystyhiihdossa. Myös kanadalainen hiihtäjä sai pronssimitalin, koska hän tuli maaliin yhtä aikaa Tuomiston kanssa.
+
+Kilpailun voittaja oli kazakstanilainen hiihtäjä. Hän sai kultamitalin. Hopeamitali meni japanilaiselle hiihtäjälle.
+
+Talvilajien paralympialaiset ovat Etelä-Koreassa, Pjongchangissa. Samassa paikassa järjestettiin myös olympialaiset helmikuussa.

@@ -1,0 +1,43 @@
+# TV | Selkouutiset | keskiviikko 26.11.2025
+
+Suomen talous. Oranssit päivät. Stella Polaris. Sää.
+
+## Suomen talous
+
+Ensin uutinen Suomen taloudesta.
+
+Euroopan komissio ryhtyy seuraamaan tarkasti Suomen talouden kehitystä. Syynä on se, että Suomen taloudella menee komission mielestä huonosti. Suomen valtiolla on liikaa velkaa. Suomen pitää kertoa Euroopan komissiolle suunnitelmista, joilla talous paranee.
+
+Euroopan komissio ryhtyy seuraamaan Suomen talouden kehitystä. EU:ssa on nyt 10 maata, joiden talous on komission tarkkailussa.
+
+## Oranssit päivät
+
+Nyt aiheena on YK:n kampanja.
+
+YK:n naistenjärjestön kampanja Oranssit päivät on alkanut. Kampanjan tarkoitus on vähentää väkivaltaa, joka kohdistuu naisiin.
+
+Rakennuksia valaistaan oranssilla värillä eri puolilla maailmaa. Suomessa yli 150 rakennusta valaistaan oranssilla värillä.
+
+Oranssi väri merkitsee toivoa tulevaisuudesta, jossa ei ole väkivaltaa.
+
+YK:n kampanja Oranssit päivät on alkanut.
+
+Viime vuonna noin 50 000 naista tai tyttöä kuoli maailmassa niin, että surmaaja oli kumppani tai perheenjäsen.
+
+## Stella Polaris
+
+Seuraavaksi kulttuuria.
+
+Stella Polaris -teatteri täyttää 35 vuotta. Stella Polaris on improvisaatioteatteri. Tämä tarkoittaa, että näyttelijöillä ei ole käsikirjoitusta. Teatteriesityksen hahmot ja tarina syntyvät esityksen aikana.
+
+Improvisaatioteattereita on nykyään monella paikkakunnalla Suomessa. Stella Polariksen taiteellinen johtaja **Mikko Penttilä**:
+
+-Stella on onnistunut kouluttamaan tässä 35 vuoden aikana itselleen valtavasti kilpailijoita. Improvisaatioteatteri elää ja voi hyvin ja se on varmasti pitkälti Stella Polariksen ansiota.
+
+Stella Polaris -teatteri täyttää 35 vuotta. Näissä kuvissa Stella Polariksen näyttelijät harjoittelevat esitystä Aleksanterin teatterissa Helsingissä.
+
+## Sää
+
+Vielä sääennuste.
+
+Sää on pääosin pilvinen. Etelässä voi paikoin paistaa aurinko. Länsi-Lapissa sataa lunta. Pohjoisen maanteillä ajokeli on huono.

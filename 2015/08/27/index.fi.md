@@ -1,0 +1,59 @@
+# Torstai 27.8.2015
+
+Pakolaisuus vaarantaa yhä useamman hengen. Vastaanottokeskuksien vastustus. Autojen romutusraha loppuu. Suomalaisten suosikkieines.
+
+## Pakolaistulvassa yhä useamman henki on vaarassa
+
+![Rekka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8259087)
+
+Avaa kuvien katselu
+
+Siirtolais- ja pakolaistulvassa yhä useamman henki on vaarassa. Hädässä olevat voivat joutua ihmissalakuljettajien uhriksi. Kuva: Roland Schlager / EPA
+
+Itävallassa ehkä 50 pakolaista on löydetty kuolleena kuorma-autosta. Kronen Zeitung -lehti kertoo, että ihmiset ovat ehkä tukehtuneet autoon. Kuorma-autossa oli unkarilaiset rekisterikilvet.
+
+Välimereltä Libyan rannikon läheltä on löydetty kymmeniä ihmisiä kuolleena. EU-operaation pelastajat löysivät 51 kuollutta veneestä, jossa oli yli neljä sataa (400) ihmistä. Toisesta veneestä löydettiin kolme (3) kuollutta.
+
+Libyan rannikon läheltä pelastettiin noin 3000 venepakolaista.
+
+## Pakolaiskeskuksia vastustetaan monessa kunnassa
+
+![Tuomas Martikainen seisoo huoneessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8256556)
+
+Avaa kuvien katselu
+
+Siirtolaisinstituutin johtaja ja maahanmuuttotutkija Tuomas Martikaisen mukaan varsinkin sosiaalinen media voi antaa kuvan, että pakolaiskeskuksia voi ja kannattaa vastustaa. Kuva: Yrjö Hjelt / Yle
+
+Siirtolaisinstituutin johtaja Tuomas Martikainen sanoo, että monilla Suomen paikkakunnilla vastustetaan vastaanottokeskuksia.
+
+Esimerkiksi Forssassa kaupunginhallitus päätti, että kaupunkiin ei tule Suomen Punaisen Ristin hätämajoitusta turvapaikanhakijoille. Salossa järjestellään mielenosoitusta pakolaiskeskusta vastaan. Helsingissä jotkut ovat kiinnittäneet Koskelan vastaanottokeskuksen lähelle lappuja, joissa varoitetaan ulkomaalaisista.
+
+Siirtolaisinstituutin johtaja sanoo, että vastustus on ehkä suunniteltua ja organisoitua.
+
+## Autojen romutusraha loppuu pian
+
+![Autonromu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5423987)
+
+Avaa kuvien katselu
+
+Suomessa autoa ei kannata hylätä maastoon, sillä auton romuttaminen on ilmaista. Tällä hetkellä romuttamisesta on saanut palkkion. Kuva: Petra Haavisto / Yle
+
+Liikenneministeriö hakee jatkoa romutuspalkkiolle. Romutuskokeilussa vanhan auton omistaja saa 1500 euron palkkion, jos hän vie auton romutettavaksi autokierrätykseen. Rahan voi käyttää uuden henkilöauton ostossa.
+
+Ministeriö ehdottaa lisätalousarvioon eli -budjettiin viittä (5) miljoonaa euroa autojen romutuskokeilulle vuoden loppuun asti.
+
+Suomalaiset ovat innostuneet romutuskokeilusta, ja ilman lisärahaa kokeilu loppuu elokuussa. Kokeilun tarkoitus on poistaa liikenteestä vanhat autot, jotka saastuttavat paljon. Auton romuttaminen on Suomessa ilmaista.
+
+## Maksalaatikko on suomalaisten suosikkieines
+
+![Paistettuja Saarioisten maksalaatikkoja tehtaan tuotantolinjalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7969977)
+
+Avaa kuvien katselu
+
+Maksalaatikko on suomalaisten suosikkieines. Siitä kuitenkin kiistellään, onko maksalaatikko parempaa rusinoilla vai ilman. Kuva: Marjut Suomi / Yle
+
+Suomalaisten suosikkieines eli -valmisruoka on maksalaatikko. Suomalaisen Työn Liitto on tehnyt valmisruoista kyselyn. Kysely kertoo, että maksalaatikosta pitävät kaikenikäiset ihmiset, varsinkin yli 30-vuotiaat. Maksalaatikko on suosittu ehkä siksi, että monen mielestä sitä on vaikea valmistaa itse.
+
+Kysely kertoo, että toiseksi suosituin valmisruoka on hernekeitto. Kolmanneksi suosituin valmisruoka on makaronilaatikko.
+
+Suosikkilistan viimeisinä olivat kasvissosekeitto, kermaperunat ja pyttipannu.

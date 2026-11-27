@@ -1,0 +1,55 @@
+# Keskiviikko 31.5.2017 (radio)
+
+Hallituksella hankalaa alkoholilain kanssa. Poliisi epäilee syrjintärikoksia Puolustusvoimissa. VR suututtaa vammaisia. Karhut haluavat tehdä nyt pentuja.
+
+## Alkoholilaki on vaikeuksissa
+
+![Vahvoja lonkerojuomia Alkon hyllyllä Helsingissä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9641442)
+
+Avaa kuvien katselu
+
+Tällaisetkin long drink-juomat voivat tulla ruokakauppaan myyntiin, jos alkoholilaki vielä hyväksytään. Kuva: Emmi Korhonen / Lehtikuva
+
+Suomen uusi alkoholilaki on suurissa vaikeuksissa. Hallitus on yrittänyt muuttaa sääntöjä siitä, millaista alkoholia saa myydä esimerkiksi ruokakaupassa. Hallituspuolueissa syntyi kuitenkin paha kiista uudistuksesta.
+
+Kiistaa on siitä, voiko ruokakaupassa myydä esimerkiksi vahvaa olutta ja long drink-juomia, joiden vahvuus on 5,5 prosenttia. Nyt siellä saa myydä esimerkiksi olutta, jonka vahvuus on 4,7 prosenttia.
+
+Moni haluaa, että alkoholin myynti olisi Suomessa vapaampaa kuin nyt. Toiset vastustavat esimerkiksi vahvan oluen tuloa kauppaan. Alkoholitutkija sanoo, että jos vahvat oluet ja long drink-juomat tulevat ruokakauppoihin, ihmisten terveys huonontuu paljon.
+
+## Poliisi epäilee syrjintärikoksia Puolustusvoimissa
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9447338)
+
+Avaa kuvien katselu
+
+Poliisi tutkii Suomen ja Venäjän kaksoiskansalaisten syrjintäepäilyjä.  Kuva: Yle Uutisgrafiikka
+
+Poliisi epäilee, että Puolustusvoimissa työskentelevät ihmiset ovat syrjineet eli kohdelleet väärin kaksoiskansalaisia. Poliisi tutkii kahta tapausta, joissa on voinut tapahtua rikos. Tapaukset liittyvät Suomen ja Venäjän kaksoiskansalaisiin.
+
+Toisessa tapauksessa epäillään, että Suomen ja Venäjän kaksoiskansalaista syrjittiin, kun hän haki töitä ravintolasta armeijan alueella. Henkilölle ilmoitettiin, että hänelle ei voi antaa työtä kaksoiskansalaisuuden takia.
+
+Toisessa tapauksessa Suomen ja Venäjän kaksoiskansalainen oli melkein aloittanut työn, jossa hän pääsi Puolustusvoimien tietojärjestelmään. Työ kuitenkin estettiin, kun henkilön kaksoiskansalaisuus tuli tietoon.  
+
+## VR:n uudistukset huolestuttavat vammaisia
+
+![Invamerkki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9087637)
+
+Avaa kuvien katselu
+
+Vammaisjärjestöt ovat huolissaan VR:n palveluista, joita vammaisten on vaikea käyttää.  Kuva: Risto Degerman / Yle
+
+Vammaiset ovat huolestuneita junayhtiö VR:n uudistuksista. Ensi kuussa ei esimerkiksi enää voi ostaa junalippua Helsingin seudun lähijunissa. Lipun voi ostaa esimerkiksi lippuautomaatista. Sokeat sanovat, että he eivät voi käyttää automaattia.
+
+Myös vaikeasti liikkuvat vammaiset ovat huolissaan VR:n palveluista. Vammaiset sanovat, että he eivät pääse esimerkiksi uusiin VR:n ravintolavaunuihin.
+
+## Karhut liikkuvat nyt paljon
+
+![Karhu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9642017)
+
+Avaa kuvien katselu
+
+Karhut ovat nyt liikkeellä ja niitä voi nähdä lähellä talojakin.  Kuva: Ismo Pekkarinen / AOP
+
+Karhut liikkuvat nyt paljon, koska ne etsivät ruokaa ja asuinpaikkaa. Lisäksi karhuilla on nyt myös kiima eli ne haluavat tehdä pentuja. Karhuja voi näkyä nyt ihmisten asuinalueiden lähellä.
+
+Niitä on paljon varsinkin Itä-Suomessa. Arvioidaan, että karhuja on Suomessa nyt noin 2000.

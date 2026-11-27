@@ -1,0 +1,80 @@
+# Maanantai 13.7.2020 (radio)
+
+Monet koronarajoitukset helpottuivat maanantaina. Suomessa ei ole raportoitu yhtään uutta koronakuolemaa. Puolan presidentinvaalien voittaja on nykyinen presidentti Andrzej Duda. Fossiilinen eläinlaji on saanut nimen suomalaisen Nightwish-bändin mukaan.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Koronarajoitukset helpottuvat
+
+![Uimaranta Rodoksella Kreikassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11412333)
+
+Avaa kuvien katselu
+
+Suomesta voi jo matkustaa esimerkiksi Kreikan rannoille. Kuva: AOP
+
+Monet koronarajoitukset ovat helpottuneet.
+
+Suomalaiset voivat nyt matkustaa vapaasti suureen osaan Euroopan maita. Suomalaiset pääsevät matkustamaan esimerkiksi moniin lomakohteisiin, kuten Kreikkaan, Italiaan ja Saksaan. Matkan jälkeen ei tarvitse enää jäädä kotiin karanteeniin.
+
+Matkustusrajoitukset ovat helpottuneet myös moniin Euroopan ulkopuolisiin maihin. Työmatkat ovat nyt sallittuja esimerkiksi Japaniin, Kiinaan ja Thaimaahan.
+
+Myös ravintoloiden koronarajoitukset ovat helpottuneet. Ravintolat saavat nyt olla auki vapaasti. Ne saavat myös ottaa normaalin määrän asiakkaita. Kaikilla ravintolan asiakkailla pitää kuitenkin olla istumapaikka.
+
+## Ei uusia koronakuolemia
+
+![Pidä turvaväli!- tarra lentoaseman lattiassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11331731)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat noudattaneet koronarajoituksia hyvin. Kuva: Tiina Jutila / Yle
+
+Suomessa ei ole raportoitu yhtään uutta koronakuolemaa. Suomessa on kuollut koronan takia tähän mennessä 329 ihmistä.
+
+Maanantaina kerrottiin 1 uudesta koronatartunnasta. Noin 7300 ihmistä on saanut Suomessa koronatartunnan.
+
+## Puolan presidentti jatkaa
+
+![ Andrzej Duda tapaamassa paikallisia asukkaita Zamoscissa, Puolassa 10. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11444309)
+
+Avaa kuvien katselu
+
+Puolan presidentti Andrznej Duda. Kuva: Wojtek Jargilo / EPA
+
+Puolassa on järjestetty presidentinvaalit.
+
+Vaalien voittaja on Puolan nykyinen presidentti Andrzej Duda. Duda jatkaa presidenttinä myös seuraavat 5 vuotta.
+
+Duda on konservatiivinen poliitikko. Hän ei hyväksy esimerkiksi homoseksuaalien oikeuksia.
+
+Monet EU-maat ovat olleet huolissaan siitä, että Dudan aikana Puola on mennyt epädemokraattiseen suuntaan. Dudan puole on kerännyt valtaa itselleen.
+
+Dudan vastustaja presidentinvaaleissa oli Rafał Trzaskowski. Trzaskowski on halunnut esimerkiksi parantaa Puolan suhdetta Euroopan unioniin.
+
+Vaalit olivat melko tasaiset. Vaalien voittaja Duda sai noin 51 prosenttia äänistä, ja Trzaskowski sai noin 49 prosenttia äänistä.
+
+## Nightwish-bändille kunniaa
+
+![Nightwishin Tuomas Holopainen ja Marco Hietala uuden levyn esittelytilaisuudessa Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6362645e313e79a3992/1580285682)
+
+Avaa kuvien katselu
+
+Nightwishin jäseniä ovat esimerkiksi Tuomas Holopainen ja Marco Hietala. Kuva: Tapio Laakkonen / Yle
+
+Suomalainen bändi Nightwish on saanut epätavallisen kunnian.
+
+Fossiilinen eli ikivanha eläinlaji on saanut nimen Nightwishin mukaan. Nimi on Tanidromites nightwishorum.
+
+Amerikkalaiset tutkijat antoivat nimen rapulajille, joka eli dinosaurusten aikaan noin 150 miljoonaa vuotta sitten.
+
+Suomalaisen Nightwishin musiikki on ulkomailla suosittua. Nightwish on iloinen siitä, että ikivanha eläinlaji on saanut nimen bändin mukaan.
+
+## Sää
+
+![Nainen kävelee kesämökin pihalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10078228)
+
+Avaa kuvien katselu
+
+Tällä viikolla sää lämpenee vähitellen. Kuva: Ismo Pekkarinen / AOP
+
+Sateet loppuvat tiistaina Etelä-Suomessa. Keskiviikkona on jo koko maassa poutaa, eli vettä ei sada. Loppuviikolla sää lämpenee.

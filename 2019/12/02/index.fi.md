@@ -1,0 +1,63 @@
+# Maanantai 2.12.2019 (radio)
+
+Suomessa on poliittinen kriisi. Espanjassa on alkanut iso ilmastokokous. Yle on aloittanut uutiset helpolla ruotsin kielellä.
+
+## Poliittinen kriisi
+
+![antti rinne](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6177475de1178dd8745/1575032747)
+
+Avaa kuvien katselu
+
+Pääministeri Antti Rinne. Kuva: Lehtikuva
+
+Suomessa on poliittinen kriisi. Monet vaativat, että pääministeri Antti Rinteen pitää erota.
+
+Rinne on saanut kritiikkiä siitä, miten hän hoiti Postin riitaa. Postissa oli riidan takia lakko, joka kesti yli 2 viikkoa. Valtio on Postin omistaja, ja monien mielestä hallitus ei valvonut Postia tarpeeksi hyvin.
+
+Pääministeri Rinne on SDP:n puoluejohtaja. Hallituksen muut puolueet miettivät, voivatko ne vielä tukea pääministeriä. Hallituspuolue keskusta on jo sanonut, että sen luottamus Rinteeseen on heikentynyt.
+
+Koko hallituksen tilanne selviää viimeistään keskiviikkona. Silloin eduskunta äänestää siitä, luottaako se vielä hallitukseen. Hallitus ei voi jatkaa, jos se ei saa eduskunnan luottamusta.
+
+## YK:n ilmastokokous
+
+![YK:n pääsihteeri Antonio Guterres puhuu Madridissa ilmastokouksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11098982)
+
+Avaa kuvien katselu
+
+YK:n pääsihteeri Antonio Guterres. Kuva: Cristina Quicler / AFP
+
+Espanjassa on alkanut iso ilmastokokous.
+
+Kokouksessa on mukana melkein 200 maata. Ne miettivät, miten ilmastonmuutosta voidaan hidastaa.
+
+Ilmastonmuutoksen suurin syy on hiilidioksidi, jota pääsee ilmaan esimeriksi teollisuudesta ja liikenteestä. Jos hiilidioksidin määrä ilmassa kasvaa, ilmaston lämpeneminen jatkuu. Silloin esimerkiksi kuivuus ja myrskyt lisääntyvät.
+
+Espanjan kokouksessa YK:n pääsihteeri Antonio Guterres sanoi, että ihmisten pitää toimia nopeasti. Aikaa ilmastonmuutoksen pysäyttämiseen ei ole paljon.
+
+YK eli Yhdistyneet kansakunnat on ilmastokokouksen järjestäjä. Kokous kestää 2 viikkoa.
+
+## Uutisa helpolla ruotsilla
+
+![Nainen radiostudiossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11099320)
+
+Avaa kuvien katselu
+
+Camilla Andelin luki ensimmäisen Yle Nyheter på lätt svenska -lähetyksen. Kuva: Yle
+
+Vielä asiaa selkokielisistä uutisista.
+
+Yle on aloittanut uutiset myös helpolla ruotsin kielellä. "Nyheter på lätt svenska" tulee radiosta joka arkipäivä kello 11.30. Kanava on Yle Vega. Uutiset voi kuunnella myös Yle Areenasta.
+
+Svenska Ylen julkaisupäällikkö Johanna Törn-Mangs kertoo, että Yle haluaa palvella kaikkia suomalaisia. Suomi on kaksikielinen maa, ja myös monet ruotsinkieliset tarvitsevat selkokieltä, Törn-Mangs sanoo.
+
+Lisäksi ruotsinkielisistä selkouutisista on iloa kaikille, jotka haluavat oppia ruotsia. Uutisten tekstit löytyvät netistä. Osoite on svenska.yle.fi/lättsvenska.
+
+## Sateita tulossa
+
+![Autoja, liikennettä lumisateella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11090828)
+
+Avaa kuvien katselu
+
+Tiistai-iltana alkaa sataa lunta, räntää ja vettä. Maanteillä on hyvä ajaa varovaisesti. Kuva: Ismo Pekkarinen / AOP
+
+Alkuviikon sää on aurinkoinen ja poutainen. Tiistaina illalla Suomeen leviää sadealue ja sää lämpenee. Pohjoisessa sataa lunta, maan etelä- ja keskiosassa sateet ovat räntää ja vettä.

@@ -1,0 +1,69 @@
+# Sunday 28.11.2021 (radio)
+
+A new corona variant is found in Europe. Finland restricts entry from southern Africa. Today is the first Advent Sunday.
+
+## The Omicron corona variant
+
+![Nurses wait to transfer a corona patient from the airport in Münster, in northern Germany.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_199/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88522761a2aa781829b/1638050688)
+
+Open image viewer
+
+Nurses wait to transfer a corona patient from the airport in Münster, a city in northern Germany. Photo: Ina Fassbender / AFP
+
+The new corona virus variant has been found in various parts of Europe.
+
+In Denmark, 2 people have the new Omicron variant of the corona virus. The new virus variant is in people who came to Denmark from southern Africa. Denmark is the 1st Nordic country where the new virus variant has been found.
+
+The new corona virus variant has also been found, for example, in Britain, Germany, Italy and the Czech Republic. The virus variant has been found in people who came from southern Africa.
+
+The new corona virus variant may perhaps spread more easily than the delta variant of the corona virus. It is not yet known what kind of protection the vaccines give against the new virus variant.
+
+## Entry into Finland
+
+![Air passengers at Helsinki-Vantaa airport.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88527761a3734041705/1638101863)
+
+Open image viewer
+
+Air passengers at Helsinki-Vantaa airport on 28 November 2021. Photo: Mikko Stig / Lehtikuva
+
+Finland is restricting entry to Finland from some African countries. The reason is the new variant of the corona virus.
+
+No one may come to Finland if they have been in southern Africa in the last 2 weeks. People may come to Finland only if the reason is very important. Countries in southern Africa are, for example, South Africa, Namibia and Zimbabwe.
+
+A Finnish citizen or a person who lives in Finland may always come to Finland.
+
+## Finnair crew in Hong Kong
+
+![Finnair aircraft waiting at Helsinki-Vantaa airport.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11708202)
+
+Open image viewer
+
+The picture shows Finnair aircraft. Photo: Silja Viitala / Yle
+
+The crew of the Finnair flight to Hong Kong have to go into quarantine in Hong Kong. The pilot of the aircraft has a corona infection.
+
+The crew of the aircraft may have to stay in quarantine in Hong Kong for many weeks. Hong Kong usually does not let people out of quarantine to their home country, not even on an empty aircraft.
+
+## Restaurant restrictions
+
+![A waiter wearing a beanie in a restaurant.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_204/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88464861a0b8e8e5466/1637923723)
+
+Open image viewer
+
+A waiter wearing a beanie in a restaurant. Photo: Antti-Petteri Karhunen / Yle
+
+The corona restrictions for restaurants are tightened on Sunday.
+
+In many places the sale of alcohol in restaurants must stop at 17.00. Alcohol may also be sold later, if the restaurant uses a corona pass.
+
+## Advent
+
+![The Vaasa church lit up in orange.](https://img.img-cdn.yle.fi/crop_extract,w_3019,h_1686,x_0,y_1134/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88438961a0889631ed0/1637910806)
+
+Open image viewer
+
+The picture shows Vaasa church lit up in orange. Photo: Anna Wikman
+
+Sunday is the 1st Advent. The waiting for Christmas begins with Advent. The Christian church year also begins with Advent.
+
+There are 4 Advent Sundays before Christmas. Advent is an important church holiday. During Advent candles are lit and there are concerts in churches.

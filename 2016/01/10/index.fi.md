@@ -1,0 +1,69 @@
+# Sunnuntai 10.1.2016 (radio)
+
+Suomen ja Ruotsin armeijat ehkä lisäävät yhteistyötä. Iijoessa on vaikea jäätilanne. Suomen kieleen tuli mielenkiintoisia uusia sanoja myös viime vuonna.
+
+## Suomen ja Ruotsin armeijoiden yhteistyö
+
+![Stefan Löfven ja Juha Sipilä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8583380)
+
+Avaa kuvien katselu
+
+Ruotsin pääministeri Stefan Löfvén ja Suomen pääministeri Juha Sipilä. Kuva: EPA ja Lehtikuva
+
+Suomen ja Ruotsin armeijat ehkä lisäävät yhteistyötä. Suomen ja Ruotsin pääministerien mielestä yhteistyötä voidaan tarvita myös kriiseissä, joissa käytetään aseita.
+
+Pääministerit sanovat, että Euroopan turvallisuus on nyt huonompi kuin ennen. Syynä on Ukrainan kriisi. Myös Syyrian kriisi ja terroristijärjestö Isis huolestuttavat pääministerejä.
+
+Suomen pääministeri Juha Sipilä ja Ruotsin pääministeri Stefan Löfvén kirjoittivat yhteisen kirjoituksen turvallisuusasioista sunnuntain lehtiin.
+
+Suomi ja Ruotsi eivät kuulu puolustusliitto Natoon. Maiden armeijoilla on jo paljon yhteistyötä.
+
+## Iijoen jääpato
+
+![Iijoen hyydepato lauantaina 9. tammikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8583537)
+
+Avaa kuvien katselu
+
+Iijoessa on nyt paljon jäätä. Kuva: Yle
+
+Iijoessa on vaikea jäätilanne. Iijoki on Pohjois-Suomessa. Jääkappaleet ovat tehneet Iijokeen jääpadon, joka estää vettä kulkemasta normaalisti.
+
+Jääpato on yli kilometrin pituinen. Se on Pudasjärven kaupungin kohdalla. Pudasjärven asukkaat pelkäävät, että joen vesi nousee taloihin asti.
+
+Viranomaiset kertoivat sunnuntaina, että jääpadon läpi pääsee vettä. Siksi joen vedenpinta ei enää nouse. Vaara on ehkä ohi, jos kova pakkanen pysyy poissa.
+
+## Suomen kielen uudet sanat
+
+![Sauna-emoji](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8430262)
+
+Avaa kuvien katselu
+
+Sauna-emoji. Kuva: Ulkoasiainministeriö
+
+Suomen kieleen tulee uusia sanoja koko ajan. Myös vuonna 2015 suomen kieleen tuli tuhansia uusia sanoja. Ne antavat hyvän kuvan siitä, mitä maailmassa tapahtuu.
+
+Suomalaiset lainaavat paljon sanoja muista kielistä. Uusi sana on esimerkiksi emoji. Se on tullut japanin kielestä suomen kieleen.
+
+Emoji on kuvasymboli, jota voi käyttää esimerkiksi sosiaalisessa mediassa. Suomi julkaisi viime vuonna oman emoji-kokoelman. Suomi-emojeissa ollaan esimerkiksi saunassa.
+
+Uusia sanoja myös käännetään vieraista kielistä. Nakukakku tulee englannin sanoista naked cake. Nakukakulla on paljaat reunat.
+
+Monet uudet suomen kielen sanat ovat yhdyssanoja. Uusi sana on esimerkiksi iskävartalo eli isävartalo. Se tarkoittaa pehmeää miehen vartaloa. Isä ei tarvitse suuria lihaksia.
+
+## Helsingin valofestivaali
+
+![Alexander Reichstein: He olivat täällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8583611)
+
+Avaa kuvien katselu
+
+Tämän valotaideteoksen nimi on "He olivat täällä". Kuva: Marja Väänänen / Yle
+
+Sunnuntai on ollut Helsingin valofestivaalin viimeinen päivä. Festivaalin nimi on Lux Helsinki. Tapahtuma tuo valoa pimeään talveen.
+
+Valotaide kiinnostaa ihmisiä. Tapahtuma alkoi keskiviikkona, ja lauantaihin mennessä tapahtumassa kävi yli 400 000 ihmistä. Se on Lux Helsingin uusi ennätys.
+
+![pilvi -taideteos](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8583610)
+
+Avaa kuvien katselu
+
+Tämän valotaideteoksen nimi on "CLOUD". Kuva: Marja Väänänen / Yle

@@ -1,0 +1,80 @@
+# Sunnuntai 2.8.2020 (radio)
+
+Pääministeri Sanna Marin on mennyt naimisiin. Terveyden ja hyvinvoinnin laitos aikoo suositella kasvomaskien käyttöä julkisissa tiloissa. Suomesta on löydetty 10 uutta koronatartuntaa. Maailmalla koronavirus leviää kovaa vauhtia. Alkuviikon aikana sataa välillä vettä.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Pääministeri naimisiin
+
+![Sanna Marin ja Markus Räikkönen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11476567)
+
+Avaa kuvien katselu
+
+Sanna Marin ja Markus Räikkönen. Kuva: Minttu Saarni
+
+Suomen pääministeri Sanna Marin on mennyt naimisiin. Häät vietettiin lauantaina.
+
+Hääjuhla oli pääministerin virka-asunnolla Kesärannassa, joka on Helsingissä. Juhlaan osallistui vain pieni joukko ihmisiä.
+
+Marinin aviomies on Markus Räikkönen. Marin ja Räikkönen ovat olleet yhdessä 16 vuotta. Heillä on 2,5-vuotias tytär.
+
+## Kasvomaskit ehkä käyttöön
+
+![Kirurginen kasvomaski](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_291/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7037185f228e9ae45cc/1596101100)
+
+Avaa kuvien katselu
+
+Kasvomaski peittää suun ja nenän. Kuva: Jenni Joensuu / Yle
+
+Terveyden ja hyvinvoinnin laitos eli THL aikoo suositella kasvomaskien käyttöä julkisissa tiloissa. THL päättää asiasta lähipäivinä.
+
+Kasvomaski peittää suun ja nenän. Siksi se voi estää koronaviruksen leviämistä sisätiloissa.
+
+Syksyllä sisätiloissa on taas enemmän ihmisiä, koska kesälomat loppuvat. Myös busseissa ja junissa matkustajien määrä kasvaa.
+
+## Uudet koronatartunnat
+
+![THL:n kyltti Mannerheimintiellä Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_339/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6782375ec3516ecc544/1618662483)
+
+Avaa kuvien katselu
+
+Kuva: Tiina Jutila / Yle
+
+Suomesta on löydetty 10 uutta koronatartuntaa. Terveyden ja hyvinvoinnin laitos eli THL kertoi asiasta sunnuntaina.
+
+THL kertoo uusien koronatartuntojen määrän joka päivä. Suomesta on löydetty yhteensä melkein 7500 koronatartuntaa.
+
+329 ihmistä on kuollut Suomessa koronan takia. THL kertoo maanantaina, onko kuolemantapauksia tullut lisää viikonlopun aikana.
+
+## Korona leviää maailmalla
+
+![Nainen ulkoiluttaa koiria Fitzroy Gardensin alueella Melbournissa Australiassa. ](https://img.img-cdn.yle.fi/crop_extract,w_2353,h_1324,x_0,y_96/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7026035f1e3b6740224/1595817024)
+
+Avaa kuvien katselu
+
+Australian Melbournessa ihmiset saavat ulkoilla vain, jos siihen on hyvä syy. Kuva: David Crosling / Epa
+
+Maailmalla koronavirus leviää kovaa vauhtia.
+
+USA:ssa on löydetty yli 60 000 uutta koronatartuntaa joka päivä jo 5 päivän ajan. USA:ssa on kuollut korona takia yhteensä yli 150 000 ihmistä.
+
+USA:n eteläpuolella eli Latinalaisen Amerikan maissa korona on tappanut yli 200 000 ihmistä. Eniten kuolleita on Brasiliassa.
+
+Myös Aasiasta kuuluu huonoja uutisia. Esimerkiksi Filippiineillä on jo yli 100 000 koronatartuntaa.
+
+Australiassa koronavirus on alkanut levitä uudelleen. Tilanne on niin huono, että esimerkiksi Melbournen kaupungissa ihmisten pitää pysyä yöaikaan kotona.
+
+## Luvassa vesisateita
+
+![kesäsadetta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10265046)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+Maanantaina Etelä-Suomessa sataa välillä vettä. Pohjoisessa on poutaa eli vesisateet pysyvät poissa.
+
+Tiistaina sade loppuu etelässä, ja sade siirtyy pohjoiseen.
+
+Lämpötila on maanantaina 15 ja 20 asteen välillä. Tiistaina vähän lämpenee, ja lämpötila on etelässä yli 20 astetta.

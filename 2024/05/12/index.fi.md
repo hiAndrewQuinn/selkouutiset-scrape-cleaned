@@ -1,0 +1,62 @@
+# Radio \| Uutisviikko selkosuomeksi \| sunnuntai 12.5.2024
+
+Makeisten hinta.
+
+Uutisviikon aihe on tällä kertaa makeisten eli karkin ja suklaan hinta. Makeiset kallistuvat pian.
+
+Syy on se, että hallitus korottaa makeisten veroa. Voi olla että suomalaiset syövät vähemmän makeisia, kun ne kallistuvat.
+
+Nyt kerromme enemmän makeisten eli karkin ja suklaan hinnasta.
+
+## Irtokarkit
+
+![Kaupan irtokarkkihylly. Kuva: Markku Pitkänen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2973,w_5286,x_10,y_223/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1677160471/39-107684863f76dfd7cffd)
+
+Suomalaiset syövät paljon makeisia. Erityisen paljon suomalaiset tykkäävät irtokarkeista.
+
+Esimerkiksi viime vuonna irtokarkkien kulutus kasvoi 10 prosenttia.
+
+Kun oli koronapandemia, ihmiset söivät vähemmän irtokarkkia. Ihmiset pelkäsivät, että korona tarttuu, kun ihminen koskee kaupan irtokarkkikauhaan.
+
+Monet kaupat eivät siksi myyneet irtokarkkia koronan aikana. Nyt korona ei enää vaikuta irtokarkkien kulutukseen.
+
+S-ryhmän kaupat kertovat, että irtokarkkien jälkeen suosituimmat makeiset ovat Fazerin sininen suklaalevy ja Tupla-suklaapatukka.
+
+## Hinta nousee
+
+![Nämä makeiset näyttävät kolikoilta. Kuva: Pontus Nyqvist ](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4031,x_0,y_475/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712574608/39-12674676613c953b20c8)
+
+Makeiset eli karkki ja suklaa kallistuvat pian. Syy on se, että hallitus korottaa makeisten veroa.
+
+Tärkein syy veron korotukseen on se, että hallitus tarvitsee rahaa. Toinen syy on se, että makeiset ovat epäterveellisiä.
+
+Voi olla, että suomalaiset syövät vähemmän makeisia, kun ne kallistuvat.
+
+On hyvä, jos suomalaiset syövät tulevaisuudessa vähemmän makeisia.
+
+Makeiset aiheuttavat esimerkiksi ylipainoa.
+
+## Vaikutukset
+
+![Makeiset tekevät reikiä hampaisiin. Kuva: Medicimage / AOP](https://images.cdn.yle.fi/image/upload/c_crop,h_573,w_1022,x_0,y_85/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1701006781/39-120684465634d4a1709e)
+
+Makeisten hinta nousee pian. Tutkijat sanovat silti, että suomalaiset eivät ehkä vähennä makeisten syömistä.
+
+Monet ihmiset tykkäävät makeisista niin paljon, että he ehkä syövät niitä, vaikka ne kallistuvat.
+
+Jotkut alkavat ehkä ostaa ulkomaalaisia makeisia. Ne ovat halvempia kuin suomalaiset makeiset.
+
+Fazer on suurin suomalainen firma, joka tekee makeisia. Fazer sanoo, että veron korotus on sille tosi huono asia.
+
+## Kertaus
+
+Uutisviikon aihe oli makeisten hinta. Kerrataan vielä tärkeimmät asiat.
+
+Makeiset ovat epäterveellisiä, jos ihminen syö niitä liikaa.
+
+Hallitus aikoo korottaa makeisten veroa.
+
+Siksi makeisten kallistuvat.
+
+Tämä oli Uutisviikko selkosuomeksi, tavataan taas. Kuulemiin!
+

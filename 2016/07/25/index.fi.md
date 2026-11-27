@@ -1,0 +1,75 @@
+# Maanantai 25.7.2016 (radio)
+
+Ansbachin räjähdys Saksassa oli terrori-isku. 2 ihmistä kuoli ampumisessa USA:ssa. Ammattiliitot eivät kiinnosta nuoria. Jaakko heitti kylmän kiven veteen. Tiistaista tulee kuuma päivä.
+
+## Saksassa terrori-isku
+
+![Poliisit kantavat laatikkoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9050009)
+
+Avaa kuvien katselu
+
+Poliisit tutkivat Ansbachin räjäyttäjän asunnon. Kuva: Daniel Karmann / AOP
+
+Saksan viranomaiset sanovat, että Ansbachin räjähdys oli terrori-isku.
+
+Iskun tekijä räjäytti itsensä Ansbachin kaupungissa sunnuntaina. Tekijä kuoli ja 15 ihmistä loukkaantui.
+
+Tekijän puhelimessa oli video, jossa hän lupasi uskollisuutta terroristijärjestö Isisille. Tekijä halusi kostaa saksalaisille, koska he vastustavat islamia.
+
+Tekijä oli 27-vuotias turvapaikanhakija Syyriasta. Mies tuli Saksaan 2 vuotta sitten, mutta hän ei saanut turvapaikkaa. Miehellä oli mielenterveysongelmia, ja hän yritti kahdesti itsemurhaa.
+
+## USA:ssa ampumistapaus
+
+Kuva: Reuters
+
+Myös USA:ssa on ollut ampumistapaus. Poliisi sanoo, että se ei ollut terroriteko.
+
+Ampumisessa kuoli 2 ihmistä ja loukkaantui melkein 20 ihmistä.
+
+Ampuminen tapahtui floridalaisessa yökerhossa, jossa oli nuorten juhlat. Kuolleet olivat 14 ja 18 vuotta vanhoja.
+
+Poliisi on ottanut kiinni 3 ihmistä tapauksen takia.
+
+## Ammattiliitoissa vähän nuoria
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5568469"
+
+Avaa kuvien katselu
+
+Vain osa nuorista työntekijöistä liittyy ammattiliittoon. Kuva: YLE Mari Latva-Karjanmaa
+
+Ammattiliitot eivät kiinnosta nuoria. Alle 50 prosenttia nuorista työntekijöistä kuuluu ammattiliittoon. Kun alle 25-vuotiaita vertaa vanhempiin työntekijöihin, ero on suuri.
+
+Noin 70 prosenttia kaikista työntekijöistä kuuluu Suomessa ammattiliittoon. Eri alojen työntekijöillä on omat ammattiliitot, jotka ajavat työntekijöiden asioita.
+
+Nuorilla on nykyään harvoin vakituinen työpaikka. Se on yksi syy siihen, että ammattiliitot eivät heitä kiinnosta.
+
+Tiedot ovat Ylen uudesta kyselystä.
+
+## Kylmä kivi
+
+![Jaakko heitin kylmän kiven mereen Helsingin Kolera-altaalla 25. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9048759)
+
+Avaa kuvien katselu
+
+Kylmä kivi heitetään veteen Helsingin kauppatorin rannassa. Kuva: Yle
+
+Jaakko on taas heittänyt kylmän kiven veteen. Vanha perinne kertoo, että uimavedet alkavat kylmetä Jaakon nimipäivänä.
+
+Siksi Suomen Epätieteellinen Seura järjestää Jaakon päivänä hauskan tapahtuman, jossa kylmä kivi heitetään veteen Helsingin kauppatorin rannassa.
+
+Myös tänä vuonna kauppatorilla oli paljon ihmisiä seuraamassa Jaakon puuhia.
+
+## Kuuma kesä
+
+![Ihmisiä uimassa järvessä auringonlaskun aikaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9049968)
+
+Avaa kuvien katselu
+
+Nyt on kuuma! Kuva: Ismo Pekkarinen / AOP
+
+Tiistaista tulee kuuma päivä. Ylen meteorologi Marjo Hoikkanen kertoo, että melkein koko Suomessa on hellettä. Lämpötila on lähellä 30 astetta.
+
+Asiantuntijat sanovat, että kuumuus pitää ottaa työpaikalla huomioon. Jos lämpöä on yli 28 astetta, työssä on hyvä pitää tauko kerran tunnissa. Vettä kannattaa juoda 3 tai 4 kertaa tunnissa.
+
+Kuumia työpaikkoja ovat esimerkiksi keittiöt ja leipomot. Ulkona kuumia töitä ovat esimerkiksi asfalttityöt.

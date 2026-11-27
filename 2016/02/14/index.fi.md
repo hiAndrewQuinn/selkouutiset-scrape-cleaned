@@ -1,0 +1,75 @@
+# Sunnuntai 14.2.2016 (radio)
+
+Suomi ei palauta turvapaikanhakijoita Unkariin. Suomalaisen on vaikea tuoda ulkomaalaista puolisoa Suomeen, jos hallituksen suunnitelmasta tulee totta. Romanttinen rakkaus on aivokemiaa. Lotossa jaettiin historian suurin voitto. Selkouutisten verkkosivuilla keskustellaan YKIstä.
+
+## Turvapaikanhakijoita ei palauteta Unkariin
+
+![Turvapaikanhakijoita Hegyeshalomin rautatieasemalla Unkarissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8323939)
+
+Avaa kuvien katselu
+
+Turvapaikanhakijoita Unkrarissa syksyllä 2015. Kuva: Csaba Krizsan / EPA
+
+Suomi ei tällä hetkellä palauta turvapaikanhakijoita Unkariin. Suomi epäilee, että turvapaikanhakijoita ei kohdella Unkarissa oikein.
+
+Euroopan unionin sopimus sanoo, että turvapaikanhakija palautetaan siihen EU-maahan, johon hän on turvapaikanhakijana ensiksi tullut. Siksi turvapaikanhakija ei tähän asti ole saanut siirtyä Unkarista Suomeen.
+
+## Perheen yhdistäminen vaikeutuu
+
+![Ihmisten varjoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8517652)
+
+Avaa kuvien katselu
+
+Kuva: Henrietta Hassinen / Yle
+
+Suomalaisen on vaikea tuoda ulkomaalaista puolisoa Suomeen, jos hallituksen suunnitelmasta tulee totta. Hallitus suunnittelee, että Suomen kansalainen saa tuoda puolison Euroopan unionin ulkopuolelta vain, jos hän ansaitsee tarpeeksi paljon.
+
+Jos suomalainen ansaitsee alle 1700 euroa kuukaudessa ja puolisolla ei ole työpaikkaa Suomessa, puoliso ei saa oleskelulupaa Suomesta. Jos perheessä on lapsia, myös palkan täytyy olla isompi.
+
+Vielä ei ole varmaa, tuleeko uusi laki voimaan.
+
+## Ystävänpäivä
+
+![Suklaasydämet.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6596264)
+
+Avaa kuvien katselu
+
+Sydän on rakkauden symboli, mutta rakkaus asuu aivoissa. Kuva: Arja Lento / Yle
+
+Romanttinen rakkaus on aivokemiaa. Näin sanovat tutkijat. He kertovat myös, että rakastuminen vaikuttaa aivoissa samalla tavalla kuin kokaiini.
+
+Romanttinen rakkaus kestää kauemmin kuin tavalliset tunteet, esimerkiksi ilo ja suru. Romanttinen rakkaus voi kestää jopa monta vuotta. Kun se loppuu, tilalle tulee kiintymys. Kiintymys voi jatkua vaikka kuinka kauan.
+
+Sunnuntaina on vietetty ystävänpäivää. Se on monissa maissa juuri rakkauden juhla.
+
+Suomessa on tavallista, että ihmiset muistavat kaikkia ystäviä. Ystäville lähetetään esimerkiksi postikortteja.
+
+## Ennätyssuuri lottovoitto
+
+![Lottokuponki](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8637943)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat pelanneet lottoa jo 45 vuotta. Kuva: Veikkaus
+
+Lauantaina Suomen lotossa tehtiin historiaa. Voittaja sai 14,1 miljoonaa euroa. Se on suurin voitto, joka Suomen lotossa on koskaan jaettu.
+
+Suomalaiset ovat voittaneet vielä suurempia rahasummia eurooppalaisessa lotossa, Eurojackpotissa. Suurin Eurojackpot-voitto, joka Suomeen on tullut, on yli 60 miljoonaa euroa.
+
+## Keskustelu YKIstä
+
+![Shadi Hatem ja Mirja Tarnanen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8665644)
+
+Avaa kuvien katselu
+
+Shadi Hatem ja Mirja Tarnanen. Kuva: Kalevi Rytkölä / Yle
+
+Yleiset kielitutkinnot eli YKI on tärkeä aihe suomen kielen opiskelijoille. Suomen kansalaisuuden saamiseen tarvitaan YKIn keskitaso eli YKI 3.
+
+Selkouutisten verkkosivuilla voi nyt kuunnella keskustelun YKIstä. Professori Mirja Tarnanen vastaa kysymyksiin, joita suomen kielen opiskelijat ja selkouutisten kuuntelijat ovat tehneet. Kysymykset esittää opiskelija Shadi Hatem.
+
+Mirja Tarnasen ja Shadi Hatemin keskustelu löytyy osoitteesta yle.fi/selkouutiset, osasta Kotoutujan Suomi.
+
+**Kuuntele keskustelun osa 1**
+
+**Kuuntele keskustelun osa 2**

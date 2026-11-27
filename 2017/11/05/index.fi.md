@@ -1,0 +1,63 @@
+# Sunnuntai 5.11.2017 (radio)
+
+Puigdemont antautui Brysselissä. Pahoja rattijuoppoja viikonloppuna. Painajaisunet. Kehitysvammaisten Kamusta tuli Haminassa suosittu ravintola.
+
+## Puigdemont antautui poliisille
+
+![Carles Puigdemont](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9909434)
+
+Avaa kuvien katselu
+
+Carles Puigdemont on ollut Brysselissä noin viikon.  Kuva: Oliver Hoslet / EPA
+
+Poliisi on pidättänyt Espanjan Katalonian entisen aluejohtajan Belgiassa. Carles Puigdemont pidätettiin aamulla, kun hän ja 4 muuta Katalonian johtajaa menivät poliisin luo.
+
+Espanja on halunnut, että heidät pidätetään. Espanja haluaa saada Puidgemontin ja muut oikeuteen.
+
+Puidgemont on yrittänyt tehdä Kataloniasta itsenäisen valtion. Espanja on suuttunut siitä Puidgemontille.
+
+Puidgemont on ollut Belgiassa noin viikon. Hän matkusti Belgiaan sen jälkeen, kun Espanja erotti Katalonian aluehallituksen. 
+
+## Viikonloppuna paljon rattijuoppoja
+
+![Poliisi puhalluttaa autoilijaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9436193)
+
+Avaa kuvien katselu
+
+Yksi rattijuoppo puhalsi alkometriin 4,4 promillea.  Kuva: Kalle Schönberg / Yle
+
+Poliisi on ottanut kiinni paljon rattijuoppoja viikonloppuna. Poliisi sai kiinni rattijuoppoja, jotka ajoivat autoa pahassa humalassa.
+
+Moni oli yli 2 promillen humalassa. Esimerkiksi Janakkalassa Hämeessä rattijuoppo oli niin humalassa, että ajoi moottoritietä väärään suuntaan. Rattijuoppo luuli, että hän ajaa kohti etelää ja Vantaata. Hän ajoi kuitenkin kohti pohjoista ja Tamperetta.
+
+Etelä-Savossa Rantasalmella poliisi pysäytti miehen, joka ajoi autoa tosi pahassa humalassa. Mies puhalsi poliisin alkoholimittariin eli alkometriin ja se näytti 4,4 promillea.
+
+## Painajaisunista laaja tutkimus
+
+![Mies makaa pallomeressä unimaski kasvoillaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9683298)
+
+Avaa kuvien katselu
+
+Painajaisessa voi kokea kauheita ja ihan kummallisia hetkiä.  Kuva: Kalle Mäkelä / Yle
+
+Moni suomalainen aikuinen näkee painajaisunen ainakin yhden kerran kuukaudessa. Uusi tutkimus kertoo, että noin puolet aikuisista näkee painajaisen joka kuukausi.  Painajainen on paha uni, joka ahdistaa. 
+
+Tutkimuksen mukaan painajaisten näkeminen lisääntyy, kun ihminen vanhenee. Sadat tuhannet suomalaiset näkevät painajaisia joka viikko.
+
+Tutkija arvioi, että painajaisunia nähdään silloin, jos elämässä ei ole kaikki hyvin.
+
+Uudessa tutkimuksessa tutkittiin painajaisia 40 vuoden ajalta. Mukana oli kymmeniä tuhansia suomalaisia.
+
+## Kehitysvammaisten ravintola suosittu Haminassa
+
+![Jussi Hurttila](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9917341)
+
+Avaa kuvien katselu
+
+Kehitysvammaisten ravintola Kamu toimii Haminan linnoituksessa.  Kuva: Juha Korhonen / Yle
+
+Sitten kerromme, että kehitysvammaisten ravintolasta Haminassa on tullut tosi suosittu. Ravintola Kamu perustettiin Haminaan neljä vuotta sitten, jotta kehitysvammaiset saavat töitä.
+
+Yli puolet Kamun työntekijöistä on kehitysvammaisia. He palvelevat asiakkaita, tarjoilevat, tuovat ruokia, siivoavat ja auttavat keittiössä. Ruokaa he eivät kuitenkaan tee.
+
+Kamu haluaa vaikuttaa siihen, mitä kehitysvammaisista ajatellaan.

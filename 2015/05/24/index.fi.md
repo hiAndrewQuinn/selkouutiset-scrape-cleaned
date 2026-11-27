@@ -1,0 +1,57 @@
+# Sunnuntai 24.5.2015
+
+Ruotsi voitti euroviisut. Irlanti hyväksyi tasa-arvoisen avioliittolain. Eri puolilla maailmaa mielenosoituksia kemikaalifirma Monsantoa vastaan. Satamaito sai luvan valmistaa taas maitoa.
+
+## Ruotsi voitti euroviisut
+
+![Måns Zelmerlöw toi Ruotsille jo kuudennen viisuvoiton .](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8009313)
+
+Avaa kuvien katselu
+
+Måns Zelmerlöw Ruotsista voitti euroviisut hienolla esityksellään. Kappaleen nimi on Heroes. Kuva: Georg Hochmuth / EPA
+
+Ruotsi on voittanut tämän vuoden euroviisut. Laulun nimi on Heroes ja sen esitti Måns Zelmerlöw.
+
+Yhteensä Ruotsi sai 365 pistettä. Toiseksi sijoittui Venäjä 303 pisteellä. Kolmas oli Italia.
+
+Ruotsi on voittanut euroviisut jo 6 kertaa. Viimeksi maa voitti kilpailun 3 vuotta sitten. Irlannilla on vielä enemmän voittoja. Se on voittanut laulukilpailun 7 kertaa.
+
+## Irlanti hyväksyi tasa-arvoisen avioliittolain
+
+![Mies tuulettaa sateenkaarilipun kanssa väkijoukossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8013489)
+
+Avaa kuvien katselu
+
+Irlantilaiset äänestivät tasa-arvoisen avioliittolain puolesta. Dublinin linnan luokse kerääntyi väkeä juhlimaan tulosta. Kuva: Aidan Crawley / EPA
+
+Irlantilaiset päättivät kansanäänestyksessä, että he hyväksyvät tasa-arvoisen avioliittolain. Lakia kannatti yli 62 prosenttia irlantilaisista.
+
+Vaalitulos on ensimmäinen kerta, kun tasa-arvoinen avioliittolaki hyväksytään kansanäänestyksessä.
+
+Kaikki maan pääpuolueet kannattivat lakimuutosta. Myös useat suuret yritykset kertoivat, että ne tukevat lakia.
+
+Irlannin katolinen kirkko ilmoitti sunnuntaina, että se kunnioittaa kansan päätöstä. Arkkipiispa Diarmuid Martin sanoi, että katolisen kirkon täytyy ottaa huomioon kansalaisten mielipiteet.
+
+## Eri puolilla maailmaa mielenosoituksia kemikaalifirma Monsantoa vastaan
+
+![Monsanton vastainen mielenosoitus Morgesin kaupungissa Sveitsissä 22. toukokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8013691)
+
+Avaa kuvien katselu
+
+Monsanton vastainen mielenosoitus Morgesin kaupungissa Sveitsissä. Kuva: Laurent Gillieron / EPA
+
+Sadoissa kaupungeissa eri puolilla maailmaa osoitettiin lauantaina mieltä Monsanto-firmaa vastaan. Amerikkalainen Monsanto valmistaa tuholaismyrkkyjä ja geenimuunneltuja tuotteita.
+
+Mielenosoituksia järjestettiin yli 40 maassa. Mielenosoittajat vastustavat geenimuunneltujen kasvien viljelyä ja Roundup-nimistä rikkaruohojen torjunta-ainetta. Maailman terveysjärjestö WHO pitää mahdollisena, että siinä oleva glyfosaatti -niminen aine saattaa aiheuttaa syöpää.
+
+## Satamaito sai luvan valmistaa taas maitoa
+
+![maitoa Satamaito ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7995097)
+
+Avaa kuvien katselu
+
+Satamaito saa taas tehdä maitoa. Meijeriä on puhdistettu bakteereista melkein 2 viikkoa. Kuva: Katja Halinen / Yle
+
+Porilainen meijerifirma Satamaito aloittaa maidontuotannon jälleen maanantaina. Meijeri on saanut Porin kaupungin terveysvalvojalta siihen luvan. 
+
+Satamaito joutui keskeyttämään maidontuotannon melkein 2 viikkoa sitten, kun sen maidosta löytyi liikaa listeria-bakteeria.

@@ -1,0 +1,73 @@
+# Lauantai 31.3.2018 (radio)
+
+Pohjois-Karjalassa on romahtanut kolme kattoa lumen takia. Etelä- ja Keski-Suomessa on tosi huono ajokeli maanantaina, kun moni ajaa pääsiäislomalta takaisin kotiin. Kesämökkivero on noussut nopeasti. Nobel-palkittu Malala Yousafzai on käynyt kotiseudulla Pakistanissa ensimmäistä kertaa sen jälkeen, kun häntä ammuttiin siellä yli viisi vuotta sitten. Yhdysvallat aikoo kysyä sosiaalisen median käytöstä melkein kaikilta, jotka hakevat viisumia Yhdysvaltoihin.
+
+## Liikaa lunta katoilla
+
+![Vanhan kaupan katto romahtanut](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10141157)
+
+Avaa kuvien katselu
+
+Entisen kaupan katto romahti Joensuussa lauantaina. Kuva: Yle / Tapio Laakkonen
+
+Pohjois-Karjalassa on romahtanut eilen ja tänään yhteensä kolme kattoa.
+
+Katoilla on niin paljon lunta, että ne eivät kestä. Lauantaina romahti ruokakaupan katto Joensuussa. Perjantaina Nurmeksessa ja Kontiolahdella putosi alas varaston katto. Kukaan ei ole loukkaantunut onnettomuuksissa.
+
+Pelastuslaitos suosittelee, että ihmiset käyvät pudottamassa lunta pois katoilta Itä-Suomessa.
+
+## Maanantaina vaarallinen keli
+
+![lumipyryä turuntiellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10052669)
+
+Avaa kuvien katselu
+
+Maanantaina voi sataa lunta jopa 20 senttiä Etelä-Suomessa. Kuva: Heikki Saukkomaa
+
+Helsingin pelastuslaitos suosittelee, että ihmiset palaavat kotiin pääsiäislomalta jo sunnuntaina.
+
+Monilla on vielä maanantaina vapaapäivä, mutta silloin Etelä- ja Keski-Suomessa on tosi huono ajokeli. Lunta sataa paljon ja tuulee kovaa. Etelä-Suomeen sataa maanantaina ehkä jopa 20 senttiä lunta. Maantiellä täytyy ajaa hitaasti ja varovasti.
+
+## Mökkivero nousee
+
+![kesämökki järven rannalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10120164)
+
+Avaa kuvien katselu
+
+Kesämökkivero on keskimäärin noin 250 euroa vuodessa. Kuva: Jari Hautalan kotialbumi
+
+Kesämökkivero on noussut paljon 2000-luvulla.
+
+Esimerkiksi Raaseporissa ja Porvoossa mökistä täytyy maksaa kiinteistöveroa noin 500 - 600 euroa vuodessa. Koko Suomen keskiarvo on noin 250 euroa vuodessa.
+
+Kunnat ovat keränneet mökkiveroa vajaat 30 vuotta. Nyt kunnat keräävät sitä noin kolminkertaisesti alkuun verrattuna.
+
+## Malala kävi kotona
+
+![Malala Yousafzai](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10141080)
+
+Avaa kuvien katselu
+
+Malala Yousafzai. Kuva: Sashenka Gutierrez / EPA
+
+Nobelin rauhanpalkinnon voittaja, pakistanilainen Malala Yousafzai on palannut kotikaupunkiinsa.
+
+Yousafzai on Mingoran kaupungissa nyt ensimmäistä kertaa sen jälkeen kuin häntä ammuttiin siellä. Äärijärjestö Talebanin asemies ampui 15-vuotiasta tyttöä päähän vuonna 2012. Yousafzai loukkaantui vakavasti.
+
+Malala Yousafzai tunnetaan maailmalla siitä, että hän puolustaa tyttöjen koulunkäyntiä ja muita lasten oikeuksia. Hän sai Nobelin rauhanpalkinnon vuonna 2014, nuorempana kuin kukaan muu.
+
+Malala Yousafzai vierailee kotimaassa Pakistanissa neljä päivää. Mingorassa hän kävi entisessä kodissa ja tapasi lapsuudenystäviä.
+
+## Lisää tietoja viisuminhakijoista
+
+![Yhdysvaltain Suomen suurlähetystön viisumiohjeistus tietokoneen näytöllä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10141076)
+
+Avaa kuvien katselu
+
+Yhdysvallat tiukentaa viisumin saantia. Kuva: Tiina Jutila / Yle
+
+Yhdysvallat aikoo vaatia lähes kaikilta viisuminhakijoilta tietoja sosiaalisen median käytöstä.
+
+Yhdysvaltojen ulkoministeriö ehdottaa, että viisuminhakijalta vaaditaan lista sosiaalisen median palveluista, joita hän käyttää. Lisäksi häneltä kysytään kaikki puhelinnumerot, sähköpostiosoitteet ja ulkomaanmatkat 5 vuoden ajalta. Tarkoituksena on esimerkiksi löytää ääriliikkeiden kannattajat.
+
+Uusi käytäntö koskee arviolta yli 10:tä miljoonaa ihmistä joka vuosi. Suomalaiset matkailijat eivät tarvitse viisumia Yhdysvaltoihin.

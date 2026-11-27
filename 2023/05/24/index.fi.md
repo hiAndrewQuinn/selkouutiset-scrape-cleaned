@@ -1,0 +1,75 @@
+# Radio Selkouutiset keskiviikko 24.5.2023
+
+Suomen talous. Maahanmuutto. Sudanin taistelut. Hyönteistuhot. Sää.
+
+## Suomen talous
+
+![Handelspankin nimi rakennuksen seinässä.](https://img.img-cdn.yle.fi/crop_extract,w_3834,h_2156,x_0,y_390/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-95803062879a4c8f0f3/1653054901)
+
+Avaa kuvien katselu
+
+Handelsbanken. Kuvituskuva. Kuva: Aalto Puutio / Yle
+
+Suomen valtion talous kasvaa tänä vuonna. Näin arvioi Handelsbanken. Pankki sanoo, että Suomen talous kasvaa tänä vuonna 0,2 prosenttia.
+
+Moni arvio sanoi aikaisemmin, että Suomen talous ei kasva tänä vuonna ollenkaan.
+
+Hinnat eivät nouse enää yhtä hurjaa vauhtia kuin aikaisemmin. Handelsbanken arvioi, että inflaatio eli hintojen nousu hidastuu tänä vuonna 5,8 prosenttiin. Alkuvuonna hinnat ovat nousseet tätä nopeammin.
+
+Inflaation hidastumisen syynä on, että bensa ja sähkö maksavat vähemmän kuin aikaisemmin.
+
+## Maahanmuutto
+
+![Muuttokuormaa siirretään.](https://img.img-cdn.yle.fi/crop_extract,w_5568,h_3132,x_0,y_583/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5038825b76b45c270e3/1534506796)
+
+Avaa kuvien katselu
+
+Muuttolaatikoita. Kuvituskuva. Kuva: Derrick Frilund / Yle
+
+Suomeen muutti viime vuonna ennätysmäärä ihmisiä.
+
+Tilastokeskus kertoo, että Suomeen muutti vuonna 2022 lähes 50 000 ihmistä. Aikaisempina vuosina Suomeen muutti noin 30 000 ihmistä.
+
+Suomeen muutti aiempaa enemmän ihmisiä varsinkin Venäjältä. Venäjältä tuli Suomeen viime vuonna noin 6000 ihmistä. Seuraavaksi eniten Suomeen muutti ihmisiä Ruotsista, Intiasta ja Virosta.
+
+## Sudanin taistelut
+
+![Ihmiset jonottavat matkatavaroiden kanssa bussin kyytiin.](https://img.img-cdn.yle.fi/crop_extract,w_5109,h_2873,x_10,y_356/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1118900646df449c3374/1684927610)
+
+Avaa kuvien katselu
+
+Sudanissa yli miljoona ihmistä on paennut taisteluita. Kuva: AFP / Lehtikuva
+
+YK sanoo jälleen, että Sudanin taistelut pitää lopettaa.
+
+Sudanin pääkaupungissa Khartumissa taistelut jatkuvat, vaikka maassa on tulitauko. Sudanin asevoimat ja RSF-joukot sopivat viikonloppuna, että tulitauko kestää viikon.
+
+Sudanin taisteluissa on kuollut satoja ihmisiä. Suuri osa uhreista on siviilejä. Yli miljoona ihmistä on lähtenyt pakoon kotoa.
+
+## Hyönteistuhot
+
+![Kirjanpainajan purukasa kaatuneen kuusen rungolla](https://img.img-cdn.yle.fi/crop_extract,w_3024,h_1701,x_0,y_912/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83337560f5704193edb/1626699183)
+
+Avaa kuvien katselu
+
+Kirjanpainajan purukasa kaatuneen kuusen rungolla. Kuva: Riikka Pennanen / Yle
+
+Hyönteiset aiheuttavat Suomen metsissä enemmän vahinkoa kuin aikaisemmin.
+
+Suomeen leviää uusia hyönteisiä, jotka tuhoavat metsiä. Suomen nykyiset lajit myös siirtyvät entistä kauemmaksi pohjoiseen. Syynä on ilmastonmuutos.
+
+Pohjola Vakuutus sanoo, että hyönteisistä eniten tuhoa puille tekee kirjanpainaja. Kirjanpainaja on kuoriainen, joka tuhoaa kuusia.
+
+Metsätuhoista suurimman osan aiheuttavat kuitenkin myrskyt.
+
+## Sää
+
+Idässä sataa torstaina päivällä vettä. Myös Lapissa sataa paikoin vähän vettä. Länsi-Suomessa taivaalla ei ole paljon pilviä.
+
+Lämpötila on yöllä 7 ja 14 asteen välillä. Torstaina päivälämpötila on 10 ja 18 asteen välillä, idässä paikoin noin 20 astetta.
+
+![Tampereen Säästöpankintalo ja tyhjä kadunkulma.](https://img.img-cdn.yle.fi/crop_extract,w_3819,h_2148,x_8,y_5/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1118677646de8c002de0/1684934149)
+
+Avaa kuvien katselu
+
+Sää on ollut aurinkoinen. Kuva Tampereen keskustasta. Kuva: Yle Tampere

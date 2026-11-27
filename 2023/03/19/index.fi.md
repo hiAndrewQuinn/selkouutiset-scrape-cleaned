@@ -1,0 +1,65 @@
+# Sunnuntai 19.3.2023 (radio)
+
+Junalakko alkaa. Pankkifuusio Sveitsissä. Minna Canthin päivä. Sääennuste.
+
+## Junalakko alkaa
+
+![Juna Espoon keskuksesta kohti Helsinkiä.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2800,x_0,y_208/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10469936397399216625/1671005676)
+
+Avaa kuvien katselu
+
+Kuva: Henrietta Hassinen / Yle
+
+Veturinkuljettajien lakko alkaa maanantaina. Lakko pysäyttää koko Suomen henkilöjunien liikenteen aamulla kello 1. 
+
+Kaikki kaukoliikenteen ja lähiliikenteen matkustajajunien vuorot perutaan. VR peruu vuorot päivä kerrallaan. Esimerkiksi nyt sunnuntaina VR peruu maanantain vuorot ja maanantaina tiistain vuorot.
+
+Näin jatkuu lakon päättymiseen asti.
+
+Lakolle ei ole ilmoitettu päättymispäivää. Lakko päättyy, kun sovinto saadaan aikaan. Neuvotteluja jatketaan jo maanantaina.
+
+Osapuolet neuvottelivat vielä tänään sunnuntaina. Neuvotteluja johti valtakunnansovittelija Anu Sajavaara. Sopua ei kuitenkaan saatu.
+
+## Pankkifuusio Sveitsissä
+
+![Närbild av bokstäver som bildar namnet på banken Credit Suisse. Bilden är från 6 april 2021.](https://img.img-cdn.yle.fi/crop_extract,w_5250,h_2953,x_10,y_223/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9180106212c2880da30/1645396765)
+
+Avaa kuvien katselu
+
+Sveitsi ehkä harkitsee Credit Suissen pelastamisessa pankin kansallistamista kokonaan tai osittain. SIlloin valtio voi ottaa pankin valtion omistukseen tai hankkia merkittävän osakemäärän pankista. Kuva: LEHTIKUVA / AFP
+
+Sveitsissä neuvotellaan merkittävästä pankkifuusiosta eli yhdistämisestä. Sveitsin suurin pankki UBS ehkä ostaa Credit Suisse -pankin noin miljardilla dollarilla. 
+
+Creditin maine on kärsinyt, koska se on tehnyt miljardien eurojen luottotappiot. 
+
+Pankkia on epäilty myös rahanpesusta. Rahanpesussa omaisuus, joka on hankittu rikollisella tavalla, yritetään saada näyttämään lailliselta.
+
+Jos fuusio toteutuu, se on merkittävin pankkifuusio Euroopassa pitkään aikaan. Edellinen finanssikriisi oli vuosina 2007 - 2009. Kriisi alkoi USA:sta.
+
+Euroopassa on puhuttu uudesta pankkikriisistä. Suomen Pankin pääjohtaja Olli Rehn sanoo, että nyt kriisin uhka Suomessa ja Euroopassa on pieni. Pankkiala on vahvassa kunnossa, ja pankeilla on nykyään vahva maksukyky.
+
+## Minna Canth ja tasa-arvo
+
+![Minna Canthin Kuopio -näyttely avautuu Kuopion korttelimuseossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10772702)
+
+Avaa kuvien katselu
+
+Minna Canth kirjoitti näytelmiä, pienoisromaaneja ja novelleja. Hän oli myös liikenainen. Kuva: Kuopion kulttuurihistoriallinen museo
+
+Sunnuntaina on vietetty Minna Canthin päivää. 
+
+Minna Canth oli suomalainen kirjailija, journalisti ja yhteiskunnallinen vaikuttaja. Canth syntyi vuonna 1844. 
+
+Canthin elämäntyö on vaikuttanut paljon siihen, että Suomesta on kehittynyt tasa-arvon ja koulutuksen edelläkävijä.
+
+Canth on ainoa suomalaisnainen, jolla on oma vakiintunut liputuspäivä. Minna Canthin päivä on myös tasa-arvon päivä.
+
+Tänä vuonna lokakuussa myös Miina Sillanpään päivästä tulee vakiintunut liputuspäivä. Sillanpää syntyi vuonna 1866, ja hän oli ensimmäinen suomalainen naisministeri.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689922)
+
+Avaa kuvien katselu
+
+Kuva: Yle

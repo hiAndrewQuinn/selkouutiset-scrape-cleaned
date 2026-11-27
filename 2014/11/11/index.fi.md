@@ -1,0 +1,59 @@
+# Tiistai 11.11.2014
+
+Oppositio vaatii muutosta talouden hoitoon. Koululaiset eivät syö terveellisesti. Eduskunnassa kiisteltiin ruotsin kielestä. Suurin osa Helsingin asukkaista ei pian kuulu kirkkoon.
+
+## Opposition puolueet haluavat muuttaa Suomen talouspolitiikkaa
+
+![Timo Soini.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7459521)
+
+Avaa kuvien katselu
+
+Timo Soini on perussuomalaiset-puolueen puheenjohtaja. Puolue kertoi tiistaina, miten valtion rahaa täytyy käyttää. Kuva: Yle
+
+Oppositiopuolueet vaativat muutosta Suomen talouspolitiikkaan. Suurin oppositiopuolue, eli perussuomalaiset, sanoo, että valtion täytyy korjata esimerkiksi autoteitä ja rakennuksia paljon enemmän kuin nykyään. Oppositiopuolue vasemmistoliitto on samaa mieltä.
+
+Perussuomalaiset ja vasemmistoliitto ajattelevat, että Suomeen tulee lisää työpaikkoja, jos valtio käyttää rahaa esimerkiksi rakennusten korjaamiseen. Molemmat puolueet sanovat, että valtion täytyy käyttää enemmän rahaa, että Suomen talous paranee.
+
+Oppositiopuolueet ovat niitä eduskunnan puolueita, jotka vastustavat hallitusta.
+
+## Suomen koululaiset eivät syö terveellisesti
+
+![Lapsi syö pullaa ja pelaa peliä äypuhelimella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6715622)
+
+Avaa kuvien katselu
+
+Koululaiset syövät liikaa pullaa ja muita sokeriherkkuja. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Koululaiset syövät liikaa sokeria. Tutkijat kertovat, että teini-ikäiset koululaiset saavat melkein puolet päivän energiasta herkuista, joissa on sokeria. Sellaisia ovat esimerkiksi pullat ja keksit.
+
+Tutkijat ovat huolissaan myös siitä, että koululaiset syövät liian vähän kasviksia. Esimerkiksi peruskoulun pojista alle 10 prosenttia syö kasviksia joka päivä.
+
+Tutkijat sanovat, että vanhempien täytyy opettaa lapset syömään terveellisesti.
+
+## Eduskunnassa keskusteltiin ruotsin kielestä
+
+![Ruotsin tunti koulussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7014337)
+
+Avaa kuvien katselu
+
+Kysymyksiä ruotsin kielellä. Ruotsin kieli on Suomen toinen kansallinen kieli. Kuva: Yle
+
+Eduskunnassa on kiistelty ruotsin kielen opiskelusta koulussa.  Yli 60 000 kansalaista on tehnyt eduskunnalle ehdotuksen, että pakko opiskella ruotsia loppuu. Ehdotus sanoo, että ruotsin kielestä on suomalaisille vähän hyötyä, koska ruotsi on pieni kieli.
+
+Suomen entinen pääministeri Paavo Lipponen on eri mieltä ehdotuksen kanssa. Lipponen sanoi eduskunnassa, että Suomessa ja muissa Pohjoismaissa saa helpommin töitä, jos osaa ruotsia.
+
+Suomalaisten täytyy nykyään opiskella ruotsia vähintään kolme (3) vuotta.
+
+## Suurin osa Helsingin asukkaista ei pian kuulu kirkkoon
+
+![Apostoli Johannes on yksi Helsingin Tuomiokirkon kahdestatoista patsaasta. Hänellä on kädessään malja ja kirja. Hän on mm. kirjanpainajien, kirjakauppiaiden, notaarien ja kirjailijoiden pyhimys.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5254257)
+
+Avaa kuvien katselu
+
+Apostoli Johannes Helsingin tuomiokirkon katolla. Kuva: YLE
+
+Tutkijat sanovat, että suurin osa Helsingin asukkaista ei muutaman vuoden kuluttua kuulu kirkkoon. Ihmisiä eroaa kirkosta jatkuvasti. Helsinkiin tulee myös paljon maahanmuuttajia, jotka eivät kuulu kirkkoon.
+
+Nykyään suunnilleen 60 prosenttia Helsingin asukkaista kuuluu kirkkoon.
+
+Kaikista suomalaisista noin 75 prosenttia kuuluu kirkkoon.

@@ -1,0 +1,91 @@
+Spede Pasanen
+
+# Perjantai 8.9.2017 (radio)
+
+Kuolemankolarien syyt ovat muuttuneet. Poliisi haluaa palautuslennot pois Helsinki-Vantaan kentältä. Floridassa USA:ssa ihmiset odottavat pyörremyrskyä. Kirja Spede Pasasen elämästä. Aurinkomyrsky tekee revontulia viikonloppuna.
+
+![Revontulia Rovaniemellä syksyllä 2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9133856)
+
+Avaa kuvien katselu
+
+Kuva: Jussi Perkkiö
+
+- 
+
+  
+
+  Margit Alasalmi
+
+  
+
+  
+
+8.9.2017 18:05
+
+## Palautuslentoja maakuntien kentiltä
+
+![Mielenosoitus turvapaikanhakijoiden palautusta vastaan Helsinki-Vantaan lentokentällä 4. heinäkuuta 2017. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9821434)
+
+Avaa kuvien katselu
+
+Mielenosoitus Helsinki-Vantaan kentällä heinäkuussa. Kuva: Emmi Korhonen / Lehtikuva 
+
+Poliisi haluaa siirtää turvapaikanhakijoiden palautuslentoja Helsinki-Vantaalta muille lentokentille.
+
+Ihmiset järjestävät joskus mielenosoituksia, kun he vastustavat turvapaikanhakijoiden palauttamista kotimaahan. Isot mielenosoitukset häiritsevät Helsinki-Vantaan kentän muita matkustajia ja lentoja. Siksi poliisi siirtää lentoja pienemmille kentille, joilla on vähemmän liikennettä.
+
+Esimerkiksi tällä viikolla yksi palautuslento lähti yöllä Lappeenrannasta Afganistaniin. Lennolla vietiin Kabuliin 9 nuorta afgaanimiestä, joille ei annettu turvapaikkaa Suomesta.
+
+## Maa järisi Meksikossa
+
+![Potilaita ja lääkäreitä taivasalla sairaalan pihalla maanjäristyksen aikana Villahermosassa, Meksikossa 8. syyskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9822491)
+
+Avaa kuvien katselu
+
+Potilaita hoidetaan ulkona maanjäristyksen jälkeen. Kuva: STR / EPA
+
+Meksikossa on ollut kova maanjäristys. Järistyksen voimakkuus oli 8,2 ja se tapahtui merellä 100 kilometrin päässä rannasta.
+
+Ensimmäisten tietojen mukaan ainakin 20 tai 30 ihmistä on kuollut. Uhreja on luultavasti enemmän, sillä kerrostaloja on romahtanut.
+
+Vuonna 1985 Meksikossa oli melkein yhtä kova maanjäristys. Siinä kuoli tuhansia ihmisiä.
+
+## Kolarin syy usein sairauskohtaus
+
+![Pelastusajoneuvoja Paukarlahden kolaripaikalla huhtikuussa 2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9821254)
+
+Avaa kuvien katselu
+
+Kolaripaikka. Kuva: Yle
+
+Pahan kolarin syy on nykyään usein sairauskohtaus tai itsemurha. Tutkijat arvioivat, että jopa puolet kuolemankolareista on sellaisia, esimerkiksi Itä-Suomessa.
+
+Poliisi ja lääkärit eivät kuitenkaan voi aina olla varmoja, mikä kolarin syy on. Sairauskohtaus ei ehkä näy ruumiinavauksessa, ja kaikki itsemurhan tekijät eivät jätä viestiä.
+
+## Spede nauratti 50 vuotta
+
+![spede](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9818340)
+
+Avaa kuvien katselu
+
+Pertti "Spede" Pasanen.
+
+Pertti Pasasen eli Speden elämästä on kirjoitettu kirja.
+
+Spede nauratti suomalaisia yli 50 vuotta. Hän teki kymmeniä elokuvia ja paljon televisiosarjoja. Suomalaiset tykkäsivät eniten Uuno Turhapuro-elokuvista. Median elokuvatoimittajat eivät ymmärtäneet Spedeä, vaan haukkuivat Speden elokuvat ja tv-ohjelmat. Monet nuoremmat tv-ohjelmien tekijät ovat oppineet Spedeltä paljon.
+
+Spede Pasanen kuoli 16 vuotta sitten.
+
+## Aurinkomyrsky teki revontulia
+
+![Revontulia Rovaniemellä syksyllä 2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9133856)
+
+Avaa kuvien katselu
+
+Nämä revontulet kuvattiin syksyllä 2016 Rovaniemellä. Kuva: Jussi Perkkiö
+
+Suomessa huomattiin perjantaina yöllä aurinkomyrsky.
+
+Auringon magneettimyrsky sotkee joskus satelliittiyhteyksiä ja sähkönjakelua. Suomessa ei ollut sellaisia häiriöitä. 
+
+Kovan aurinkotuulen takia taivaalla oli kuitenkin revontulia koko maassa. Suuressa osassa maata ne jäivät kuitenkin pilvien taakse. Revontulia on melko varmasti vielä kahtena yönä, sunnuntaihin asti.

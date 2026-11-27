@@ -1,0 +1,61 @@
+# Sunnuntai 11.3.2018 (radio)
+
+Monella nuorella on liikaa velkaa. Moni haluaa suojella oman metsänsä. Saamelaiselokuva sai palkinnon. Suomalaisilla on 120 000 eri etunimeä.
+
+## Joillakin nuorilla paljon velkaa
+
+![Kolikoita kädellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10111162)
+
+Avaa kuvien katselu
+
+Lainaa on helpompi ottaa kuin maksaa takaisin. Kuva: Henrietta Hassinen / Yle
+
+Monella nuorella on liikaa velkaa.
+
+Joillakin nuorilla on niin paljon velkaa, että melkein koko palkka menee velan maksuun. Silloin nuori ehkä lopettaa työnteon ja elää toimeentulotuella, koska siitä ei ole pakko maksaa velkaa. Nykyään on paljon helpompi lainata rahaa kuin ennen. Lainoja mainostetaan ja niitä saa nopeasti. Monella nuorella ei kuitenkaan ole vakituista työtä, jonka palkasta olisi helpompi maksaa laina takaisin.
+
+Takuusäätiö auttaa ihmisiä, joilla on liikaa velkaa. Juha Pantzar Takuusäätiöstä sanoo, että lainojen mainoksia täytyy vähentää.
+
+## Oma metsä halutaan suojella
+
+![Kivisuon pohjoisaltaan eteläisen metsäsaarekkeen laitarämettä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10107844)
+
+Avaa kuvien katselu
+
+Metsää ja suota Pohjois-Suomessa. Kuva: Ari-Pekka Auvinen / Suomen Luonnonsuojelun Säätiö
+
+Monet metsänomistajat haluavat suojella omat metsänsä.
+
+Metsiä suojelevat esimerkiksi tavalliset suomalaiset, jotka asuvat kaupungissa ja saavat metsää perinnöksi sukulaisilta. Monet haluavat säilyttää metsän luonnon eivätkä halua kaataa ja myydä puita. Viime vuonna ihmiset perustivat ainakin 170 uutta suojelualuetta, yhteensä 30 neliökilometriä metsää.
+
+Samaan aikaan valtio vähentää rahaa, joka käytetään metsien suojeluun. Hallitus myös toivoo, että puuta kaadetaan enemmän. Suomeen on perustettu uusia tehtaita, jotka käyttävät paljon puuta.
+
+Metsiä kaadetaan niin paljon, että Suomen luonto muuttuu köyhemmäksi: kasvi- ja eläinlajeja häviää kokonaan.
+
+## Luontoa ja balettia saamelaiselokuvassa
+
+![Eatnanvuloš lottit – Maan sisällä linnut.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10111630)
+
+Avaa kuvien katselu
+
+Birit ja Katja Haarla elokuvassa Maan sisällä Linnut. Kuva: Marja Helander / Eatnanvuloš lottit – Maan sisällä linnut
+
+Saamelaiselokuva Maan sisällä linnut on saanut Risto Jarva -palkinnon.
+
+Marja Helanderin elokuva kysyy, kuka omistaa maat ja vedet pohjoisilla alueilla, joilla saamelaiset elävät. Elokuvan pääosissa ovat Lapin luonto ja kaksi saamelaista balettitanssijaa, Birit ja Katja Haarla.
+
+Risto Jarva -palkinnon antoi Suomen elokuvasäätiö Tampereen lyhytelokuvajuhlilla.
+
+## Etunimiä on paljon enemmän kuin ennen
+
+![Ukko Vilho Valtterin nimiäiskakku.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6178941)
+
+Avaa kuvien katselu
+
+Kakku sen kunniaksi, että Ukko saa nimen. Kuva: Yle
+
+Suomen kansalaisilla on käytössä 120 000 eri etunimeä. Vielä 1980-luvulla etunimiä oli puolet vähemmän.
+
+Nykyään on muotia antaa lapselle erikoinen etunimi. Myös luonnosta otetaan paljon nimiä, esimerkiksi Lumi, Kaisla ja Meri. Usein vanhemmat antavat nimen, joka on tuttu ja suosittu yhtä aikaa monessa maassa, esimerkiksi Maria, Emilia, Oliver ja Daniel. Moni vanhempi ei halua antaa lapselle nimeä, jossa on ä- tai ö-kirjain, koska se on vaikea ulkomailla.
+
+Vuonna 2016 suosituimpia tytön etunimiä olivat Emma, Sofia ja Aino ja suosituimpia pojan nimiä Onni, Elias ja Leo.

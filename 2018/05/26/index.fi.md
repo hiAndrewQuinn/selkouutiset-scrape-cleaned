@@ -1,0 +1,65 @@
+# Lauantai 26.5.2018 (radio)
+
+Irlanti helpottaa abortin saamista. Maakuntavaaleja ei voida järjestää lokakuussa. Sinilevää voi tulla vesistöihin jo lähiviikkoina. Uutisvuoto loppuu yli 20 vuoden jälkeen.
+
+## Irlanti sallii abortin
+
+![kaksi naista halaa ja hihkuu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10225059)
+
+Avaa kuvien katselu
+
+Äänestäjät Andrea Horan ja Cara Sanquest iloitsevat aborttikiellon kaatumisesta. Kuva: Paul Faith / EPA
+
+Irlantilaiset ovat äänestäneet aborttilainsäädännön muuttamisesta. Näyttää siltä, että selvä enemmistö irlantilaisista haluaa helpottaa abortin saamista.
+
+Irlannin hallitus aikoo nyt uudistaa aborttilakia samanlaiseksi kuin monessa muussa Euroopan maassa. Abortti sallitaan 12 raskausviikkoon asti. Abortti on mahdollista saada myös myöhemmin, jos äidin henki tai terveys on vaarassa tai sikiöllä on kehityshäiriö, jonka takia se kuolee.
+
+Tähän asti Irlannin aborttilainsäädäntö on ollut maailman tiukin. Abortin on voinut saada laillisesti vain, jos äidin henki on vaarassa.
+
+Laittomasta abortista on voinut saada jopa 14 vuoden vankeustuomion.
+
+## Maakuntavaalit lykkääntyvät
+
+![Petteri Orpo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10218160)
+
+Avaa kuvien katselu
+
+Kokoomuksen puheenjohtaja Petteri Orpo. Kuva: Vesa Moilanen / Lehtikuva
+
+Maakuntavaaleja ei ehkä voida pitää vielä lokakuussa, sanoo Kokoomuksen puheenjohtaja Petteri Orpo.
+
+Orpo sanoi Ylen Ykkösaamun haastattelussa, että eduskunnan pitää ensin hyväksyä sosiaali- ja terveysuudistuksen ja maakuntauudistuksen lainsäädäntö. Vasta sen jälkeen voidaan päättää, milloin maakuntavaalit pidetään.
+
+Maakuntavaalit on ollut tarkoitus pitää lokakuussa. Lakiuudistuksen käsittely eduskunnassa on kuitenkin viivästynyt.
+
+## Vesistöihin tulee sinilevää jo lähiviikkoina
+
+![Sinilevää kivikkoisella rannalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7502747)
+
+Avaa kuvien katselu
+
+Jos vedessä on sinilevää, siinä ei saa uida. Kuva: Hanne Kinnunen / Yle
+
+Vesistöihin tulee tänä kesänä sinilevää ehkä aikaisemmin kuin tavallisesti.
+
+Suomen ympäristökeskus sanoo, että järvissä ensimmäiset sinilevähavainnot tehdään ehkä jo kesäkuun alkupuolella. Myös matalissa merenlahdissa sinilevää voi ehkä nähdä jo lähiviikojen aikana. Se on pari, kolme viikkoa tavallista aikaisemmin.
+
+Toukokuun sää on ollut niin lämmin, että pintavedet ovat jo lämmenneet. Myös sinilevät viihtyvät lämpimässä vedessä.
+
+Sinilevä on myrkyllinen levä. Vettä, jossa on sinilevää, ei saa juoda eikä siinä saa uida.
+
+## Uutisvuoto jättää jäähyväiset
+
+![Uutisvuoto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10224583)
+
+Avaa kuvien katselu
+
+Uutisvuodon esiintyjiä vuosien varrelta: Stan Saanila, Katja Ståhl, Jari Tervo, Baba Lybeck, Peter Nyman, Anna Perho, Jani Halme, Petteri Ahomaa. Kuva: Jussi Mankkinen / Yle
+
+Television suosikkiohjelma Uutisvuoto loppuu. Uutisvuodon viimeinen jakso nähdään tänään lauantaina.
+
+Uutisvuotoa tehtiin yli 20 vuoden ajan. Ensimmäinen jakso nähtiin Ylen TV1:ssä helmikuussa 1998. Ohjelmaa tehtiin yhteensä 700 jaksoa.
+
+Uutisvuoto oli satiirinen visailu, jossa kaksi joukkuetta puhui viikon uutisista hauskasti ja nokkelasti.
+
+Uutisvuodosta tuli jo alussa yleisön suosikki, ja ohjelma voitti useita television Venla-palkintoja. Kriitikot eivät ohjelmasta pitäneet.

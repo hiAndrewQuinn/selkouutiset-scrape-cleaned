@@ -1,0 +1,73 @@
+# Lauantai 26.8.2017 (radio)
+
+Liput liehuivat Suomen luonnon kunniaksi. Valtionhallinto kiinnosti yleisöä. Ulosotossa on enemmän ihmisiä kuin ennen. Hirmumyrsky Harvey iski Texasiin.
+
+## Suomen luonnon päivä
+
+![Sauli Niinistö ja Jenni Haukio](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9799380)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö ja rouva Jenni Haukio vierailivat luonnon päivän juhlassa Teijon kansallispuistossa Salossa.  Kuva: Johanna Manu / Yle
+
+Tänään lauantaina on liputettu Suomen luonnon kunniaksi. 
+
+Suomen luonnon päivää on vietetty vuodesta 2013 lähtien. Nyt oli ensimmäinen kerta, että päivä oli myös liputuspäivä.
+
+Eri puolilla maata järjestettiin satoja tapahtumia, joissa juhlittiin Suomen luontoa.
+
+Esimerkiksi kansallispuistoissa pidettiin konsertteja, joissa kuorot lauloivat. Kuoroissa oli mukana yhteensä tuhansia ihmisiä.
+
+Presidentti Sauli Niinistö ja rouva Jenni Haukio vierailivat luonnon päivän juhlassa Teijon kansallispuistossa Salossa.
+
+Rouva Jenni Haukio on Suomen luonnon päivän suojelija.
+
+## Ministeriöissä avoimet ovet
+
+![Valtioneuvoston linna presidentin esittelysali](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9797344)
+
+Avaa kuvien katselu
+
+Yleisö pääsi katsomaan presidentin esittelysalia Valtioneuvoston linnassa. Kuva: Vesa Marttinen / Yle
+
+Helsingissä useat ministeriöt avasivat tänään ovet yleisölle Suomi 100-juhlavuoden kunniaksi.
+
+Yleisö pääsi tutustumaan esimerkiksi ulkoministeriöön, sisäministeriöön ja oikeusministeriöön sekä valtioneuvoston linnaan.
+
+Valtioneuvoston linnassa sai kurkistaa esimerkiksi presidentin esittelysaliin ja pääministerin työhuoneeseen. Pääministeri Sipilä oli myös paikalla ja otti vieraita vastaan.
+
+Myös Säätytalossa oli avoimet ovet. Siellä oli esillä harvinaisia asiakirjoja, jotka liittyvät Suomen itsenäistymiseen.
+
+Tapahtumalla haluttiin edistää hallinnon avoimuutta ja tehdä valtionhallinnon työtä tutuksi ihmisille.
+
+## Ulosotot
+
+![Ulosottohakemus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9552531)
+
+Avaa kuvien katselu
+
+Vuoden vaihteessa perittiin noin 500 000 suomalaisen velkoja ulosoton kautta. Kuva: Ismo Pekkarinen / AOP
+
+Noin joka kymmenes suomalainen on ulosotossa. Vuodenvaihteessa lähes puolen miljoonan ihmisen velkoja perittiin ulosoton kautta.
+
+Ihminen joutuu ulosottoon, jos hän ei ole maksanut velkaansa. Ulosotossa velan periminen on siirtynyt viranomaisille,
+
+Vuoden 2008 taloustaantuman jälkeen ulosottoon on joutunut yhä enemmän ihmisiä.
+
+Monien velkarästit ovat kuitenkin pieniä. Yli 40 prosentilla ulosotossa peritään alle 1000 euron velkaa.
+
+## Hirmumyrsky Harvey
+
+![Harvey-hurrikaani riepottelee palmuja Corpus Christin kaupungissa, Texasissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9799161)
+
+Avaa kuvien katselu
+
+Hirmumyrsky Harvey riepottelee palmupuita Corpus Christien kaupungissa Texasissa. Kuva: Darren Abate / EPA
+
+Yhdysvalloissa hirmumyrsky Harvey on iskenyt Texasin osavaltioon.
+
+Myrsky on kaatanut puita, irrottanut talojen kattoja ja katkaissut sähköt ainakin 400 000 taloudelta.
+
+Myrskyn mukana tulee rankkasateita. Texasissa pelätään, että ne aiheuttavat pahoja tulvia.
+
+Harveya on pidetty Yhdysvaltojen voimakkaimpana hirmumyrskynä 10 vuoteen. Se on kuitenkin heikentynyt sen jälkeen, kun se rantautui Texasiin.

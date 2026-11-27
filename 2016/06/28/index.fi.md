@@ -1,0 +1,81 @@
+# Tiistai 28.6.2016 (radio)
+
+EU-huippukokouksessa valmistellaan Britannian EU-eroa. Kesämökkien jätevedet pitää puhdistaa nykyistä paremmin.  Suomalaiset käyvät taas teattereissa. Helsingissä uusi sade-ennätys kesäkuussa. Islannin jalkapallomenestys ihastuttaa Suomessakin.
+
+## 
+
+## EU-huippukokous pui Brexitiä
+
+![Donald Tusk ja Juha Sipilä tiedotustilaisuudessa 16. kesäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8964209)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä ja Eurooppa-neuvoston puheenjohtaja Donald Tusk. Kuva: Laura Kotila / Valtioneuvoston kanslia
+
+Suomen pääministeri Juha Sipilä osallistuu tiistaina ja keskiviikkona EU-maiden huippukokoukseen, jossa keskustellaan Britannian kansanäänestyksen vaikutuksista.
+
+Britit äänestivät viime viikolla, että he haluavat erota EU:sta.
+
+Britannian pääministeri David Cameron kertoo kokouksessa, miten Britannia aikoo toimia kansanäänestyksen jälkeen.
+
+Pääministeri Sipilä sanoo, että EU-maat haluavat Britannialta erohakemuksen viimeistään syksyllä. 
+
+## Kesämökin jätevesistä voi tulla iso lasku
+
+## 
+
+Kesämökkien jätevesien puhdistamista pitää parantaa.
+
+Ensi vuonna tulee voimaan uusi laki, jossa jätevesien puhdistamista on tiukennettu.
+
+Sadattuhannet kesämökin omistajat joutuvat parantamaan jätevesien puhdistusjärjestelmää, ja se voi maksaa jopa kymmeniä tuhansia euroja.
+
+Valtaosa suomalaisista kesämökeistä on kuitenkin niin vaatimattomia, ettei jätevesiä tule paljon.
+
+Monissa kesämökeissä on esimerkiksi kuivakäymälät eli vessat, jotka toimivat ilman vettä. Niissä ei tarvita kalliita puhdistusjärjestelmiä.
+
+## Teatterit houkuttelevat taas yleisöä
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5488374"
+
+Avaa kuvien katselu
+
+Kouvolan teatterissa pyörii Kaaos-näytelmä. Teatteri sai viime vuonna lisää kävijöitä. Kuva: YLE / Jani Aarnio
+
+Suomalaiset käyvät taas vähän ahkerammin teatterissa.
+
+Yleisöämäärä nousi hieman viime vuonna. Teattereilla oli monta vaikeaa vuotta, koska valtion tuki ja yleisömäärät vähenivät.
+
+Suomalaiset tykkäävät etenkin komedioista sekä vanhoista musiikki- ja kansannäytelmistä, kertoo ohjaaja ja professori Saana Lavaste. Suosittua ohjelmaa on nyt enemmän tarjolla.
+
+Myös lasten ja nuorten teatteri on suosittua.
+
+## Helsingissä ennätykselliset sateet kesäkuussa
+
+![Rännistä tulee vettä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8162678)
+
+Avaa kuvien katselu
+
+Vettä on satanut paljon Kuva: Marja Väänänen / Yle
+
+Helsingissä on satanut kesäkuussa ennätyksellisen paljon.
+
+Sademittauksia on tehty jo vuodesta 1845, ja tämän vuoden kesäkuu on ollut mittaushistorian sateisin.
+
+Helsingissä on satanut kesäkuun aikana noin 140 millimetriä, kun tavallisesti sademäärä on kesäkuussa noin 57 millimetriä.
+
+Pääkaupunkiseudun lisäksi myös Pohjanmaalla ja Länsi-Lapissa on satanut kesäkuussa tavallista enemmän.
+
+## Islannin jalkapallomenestystä ihaillaan
+
+![Islannin kippari Aron Gunnarsson.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8987896)
+
+Avaa kuvien katselu
+
+Joukkueen kapteeni Aron Gunnarsson tuulettaa voitettuaan Englannin. Kuva: EPA
+
+Pienen Pohjoismaan Islannin menestys jalkapallon Euroopan-mestaruuskisoissa on herättänyt ihailua myös Suomessa.
+
+Islanti voitti maanantai-iltana ennakkosuosikin Englannin maaleilla 2-1. Englanti putosi pois kisoista ja päävalmentaja ilmoitti eroavansa tehtävästä.
+
+Islanti on nyt EM-kisoissa kahdeksan parhaan maan joukossa. Se pelaa seuraavaksi EM-kisojen isäntämaata Ranskaa vastaan.

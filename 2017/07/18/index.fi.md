@@ -1,0 +1,63 @@
+# Tiistai 18.7.2017 (radio)
+
+Tulli on löytänyt Suomesta vaarallista lääkeainetta, karfentaniilia. Suomalaiset tutkijat kehittävät diabetesrokotetta. Etelä-Euroopassa on isoja metsäpaloja. Koira auttaa hammaslääkäripelkoon.
+
+## Vaarallista ainetta löydetty
+
+![Tullin havainnekuva tappavasta määrästä karfentaniilia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9727780)
+
+Avaa kuvien katselu
+
+Jo pieni määrä karfentaniilia tappaa ihmisen. Kuva: Tulli
+
+Tulli on löytänyt Suomesta vaarallista lääkeainetta. Lääkkeen nimi on karfentaniili.
+
+Karfentaniilia myydään maailmalla huumeena, vaikka se on tosi vaarallista. Se on tuhansia kertoja vahvempaa kuin morfiini. Jo noin 0,03 milligrammaa karfentaniilia tappaa ihmisen.
+
+Tulli epäilee, että karfentaniilia myydään huumeena myös Suomessa.
+
+Karfentaniilia käytetään laillisesti eläinlääkkeenä. Sillä tainnutetaan isoja eläimiä.
+
+## Diabetekseen kehitetään rokotetta
+
+![Verensokeria mitataan vastaanotolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9706025)
+
+Avaa kuvien katselu
+
+Diabetes nostaa veren sokeriarvoja. Kuva: Jaani Lampinen / Yle
+
+Suomalaiset tutkijat ovat kehittäneet rokotteen diabetesta eli sokeritautia vastaan. Rokote on kehitetty ykköstyypin diabetesta vastaan. Sitä sairastavat eniten lapset.
+
+Tutkijat alkavat testata uutta rokotetta ihmisillä ensi vuonna. Testaukset alkavat vuoden 2018 lopussa. Jos rokote toimii ihmisillä, se voi tulla käyttöön noin 8 vuoden päästä.
+
+Uusi rokote voi säästää paljon rahaa. Jos ihminen saa diabeteksen lapsena, hoito maksaa koko elämän aikana yhteensä noin miljoona euroa. 
+
+## Etelä-Euroopassa palaa metsää
+
+![Metsä paloi rajusti Splitin kaupungin lähistöllä sijaitsevassa Podstranan kylässä Kroatiassa 18. heinäkuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9728359)
+
+Avaa kuvien katselu
+
+Metsä paloi lähellä Splitin kaupunkia Kroatiassa. Kuva: AFP
+
+Etelä-Euroopassa on isoja metsäpaloja. Metsää palaa monissa maissa. Isoja tulipaloja on ainakin Kroatiassa, Montenegrossa, Italiassa ja Portugalissa.
+
+Kroatiassa tuli pääsi aivan lähelle isoa Splitin kaupunkia. Keskustan ulkopuolella tuli jo poltti taloja ja autoja. Lopulta palomiehet saivat tulipalot hallintaan. Tulipaloja sammutettiin esimerkiksi lentokoneiden avulla.
+
+Myös Kroatian naapurimaassa Montenegrossa tulipalot ovat isoja. Montenegro pyysi muilta mailta apua tulipalojen sammuttamiseen.
+
+## Koira auttaa hammaslääkäripelkoon
+
+![Mimmi-koira auttaa hammaslääkäripelkoisia ihmisiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9704447)
+
+Avaa kuvien katselu
+
+Mimmi-koira auttaa ihmisiä, jotka pelkäävät hammaslääkäriä. Kuva: Juha Hintsala / Yle
+
+Pelkäätkö hammaslääkäriä? Et ole ainoa. 10 prosenttia potilaista pelkää hammaslääkärillä käyntiä tosi paljon. Se voi jopa estää hampaiden hoitamisen ja aiheuttaa terveysongelmia.
+
+Oulussa on kehitetty uusi apu hammaslääkärin pelkoon. Se on koira. Hammaslääkärin potilaita auttavat koirat, jotka on testattu ja koulutettu.
+
+Hammaslääkärin potilas rauhoittuu, kun kaverina on koira. Ihmisen sydän lyö hitaammin, kun hän silittää koiraa. Stressi vähenee. Niin hammaslääkärissä käynti onnistuu, vaikka potilas pelkää hammaslääkärin tuolia.
+
+Oulu on ehkä ensimmäinen paikka maailmassa, jossa tutkitaan, miten koira auttaa hammaslääkärin pelkoon.

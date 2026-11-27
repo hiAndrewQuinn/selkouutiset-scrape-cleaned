@@ -1,0 +1,73 @@
+# Radio Selkouutiset tiistai 9.5.2023
+
+Hallitusneuvottelut. Sudan. Euroviisut. Norppalive. Sää.
+
+## Hallitusneuvottelut
+
+![Petteri Orpo.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_80/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11105806459f6be36c8c/1683617530)
+
+Avaa kuvien katselu
+
+Kokoomuksen puheenjohtaja Petteri Orpo. Kuva: Emmi Korhonen / Lehtikuva
+
+Hallitusneuvotteluissa mukana olevien puolueiden tavoite on, että tulevaisuudessa Suomessa käy töissä 100 000 ihmistä enemmän kuin nyt. Hallitustunnustelija Petteri Orpo sanoo, että Suomen talous paranee paljon, jos työpaikkoja on enemmän kuin aikaisemmin.
+
+Petteri Orpo on sanonut aikaisemmin, että puolueet ovat samaa mieltä siitä, että valtion pitää säästää paljon rahaa.
+
+Hallitusneuvotteluissa ovat mukana kokoomus, perussuomalaiset, RKP ja kristillisdemokraatit.
+
+## Sudan
+
+![Savua nousee Khartumin kaupungin yläpuolelle 1. toukokuuta 2022.](https://img.img-cdn.yle.fi/crop_extract,w_1900,h_1068,x_0,y_197/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1106911644fb1ee54251/1682944531)
+
+Avaa kuvien katselu
+
+Ihmiset pakenevat taisteluita Sudanissa. Kuvituskuva. Kuva: AFP / Lehtikuva
+
+Sudanissa yli 700 000 ihmistä on lähtenyt pakoon taisteluita. Noin 150 000 ihmistä on mennyt Sudanista ulkomaille.
+
+Taistelut Sudanin asevoimien ja RSF-joukkojen välillä alkoivat huhtikuun puolivälissä. Taisteluissa on kuollut ainakin satoja ihmisiä.
+
+## Euroviisujen semifinaali
+
+![Käärijä tanssiryhmineen Euroviisujen lavalla.](https://img.img-cdn.yle.fi/crop_extract,w_4480,h_2520,x_0,y_464/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11104576459311cba3b3/1683604364)
+
+Avaa kuvien katselu
+
+Käärijä ja tanssiryhmä Euroviisujen lavalla. Kuva: Vesa Moilanen / Lehtikuva
+
+Euroviisujen semifinaali on tänään tiistaina Liverpoolissa.
+
+Suomea Euroviisuissa edustaa Käärijä kappaleella Cha cha cha. Käärijä on semifinaalin suosikki. Käärijä esiintyy semifinaalin viimeisenä laulajana.
+
+Illan semifinaalissa kilpailee 15 maata, joista 10 maata pääsee laulukilpailun finaaliin. Torstaina on vielä 2. semifinaali.
+
+Euroviisujen 1. semifinaali alkaa illalla kello 22. Yle lähettää euroviisut suorana televisiossa, radiossa ja netissä.
+
+Euroviisujen finaali on Liverpoolissa lauantaina.
+
+## Norppalive
+
+![Venla-niminen saimaannorppa köllöttelee kivellä.](https://img.img-cdn.yle.fi/crop_extract,w_1716,h_965,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107240363ea546fa12b8/1676301726)
+
+Avaa kuvien katselu
+
+Venla-niminen saimaannorppa köllöttelee kivellä. Kuvituskuva. Kuva: WWF Suomi / Ismo Marttinen
+
+Ympäristöjärjestö WWF:n Norppalive on taas auki. Norppaliven kamera kuvaa saimaannorppaa. Norppalivessä voi seurata saimaannorpan elämää rantakivellä Saimaan rannalla.
+
+Norppalive on osa WWF:n Luontolive-palvelua. Luontoliven kameroiden kuvissa näkyy saimaannorpan lisäksi itämerennorppa, sääksi ja lapinpöllö.
+
+Luontoliveä voi katsoa osoitteessa https://wwf.fi/luontolive.
+
+## Sää
+
+![Rantapuut heijastuvat järven pinnasta.](https://img.img-cdn.yle.fi/crop_extract,w_3704,h_2084,x_872,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11072546450d47615439/1683019030)
+
+Avaa kuvien katselu
+
+Sää on poutainen. Kuva: Anne-Maria Niskanen / Yle
+
+Sää on enimmäkseen poutainen ja paikoin paistaa aurinko. Keskiviikkona päivällä Kainuussa, Pohjois-Pohjanmaalla ja Lounais-Lapissa voi sataa vähän vettä.
+
+Yölämpötila on 0 ja +6 asteen välillä. Keskiviikon päivällä lämpötila on 12 ja 18, Pohjois-Lapissa 6 ja 12 asteen välillä.

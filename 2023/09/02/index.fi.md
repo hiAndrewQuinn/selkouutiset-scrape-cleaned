@@ -1,0 +1,67 @@
+# Radio. Selkouutiset. Lauantai 2.9.2023
+
+RKP. SDP. Suomen ja Ruotsin maaottelu. Sää.
+
+## RKP
+
+![Anna-Maja Henriksson Ylen studiossa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_370/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116650764f2e4dd1b642/1693643295)
+
+Avaa kuvien katselu
+
+RKP:n puheenjohtaja Anna-Maja Henriksson Ylen haastattelussa lauantaina. Kuva: Antti Haanpää / Yle
+
+Hallitukseen osallistuminen on ollut RKP:lle vaikeaa. Näin sanoo puolueen puheenjohtaja Anna-Maja Henriksson.
+
+Henriksson kertoo Ylen haastattelussa, että RKP:ssä on keskusteltu jopa siitä, lähteekö puolue pois hallituksesta. Henriksson toivoo, että hallitukseen tulee työrauha ja hallitus voi aloittaa syksyn työt.
+
+RKP on riidellyt hallituksessa erityisesti perussuomalaisten kanssa. Perussuomalaisten ministerien vanhat rasistiset kirjoitukset huononsivat puolueiden välejä.
+
+Tällä viikolla hallitus sai valmiiksi tiedonannon rasismista. Tiedonannossa hallitus kertoo, miten se aikoo taistella rasismia vastaan. Tiedonanto on kaikkien hallituspuolueiden yhteinen kirjoitus.
+
+Eduskunta käsittelee hallituksen tiedonantoa ensi viikolla. Henriksson toivoo, että RKP:n kansanedustajat tukevat silloin hallitusta.
+
+## SDP
+
+![Mikkel Näkkäläjärvi, Nasima Razmyar, Niina Malm, Matias Mäkynen, Nasima Razmyar ja Antti Lindtman.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_428/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116665064f32473a477c/1693662413)
+
+Avaa kuvien katselu
+
+SDPP:n puoluesihteeri Mikkel Näkkäläjärvi (vasemmalla) ja puheenjohtaja Antti Lindtman (oikealla). Lindtmanin vieressä ensimmäinen varapuheenjohtaja Nasima Razmyar. Kuva: Silja Viitala / Yle
+
+SDP:n puoluekokous on jatkunut Jyväskylässä.
+
+Lauantaina puoluekokous valitsi puoluesihteerin ja varapuheenjohtajat. SDP:n uusi puoluesihteeri on Mikkel Näkkäläjärvi, ja ensimmäinen varapuheenjohtaja on nyt Nasima Razmyar.
+
+SDP sai uuden puheenjohtajan jo perjantaina, kun puheenjohtajan paikalle valittiin Antti Lindtman.
+
+Lindtman alkaa nyt johtaa SDP:n työtä yhdessä puoluesihteerin ja varapuheenjohtajien kanssa. SDP on suurin oppositiopuolue, eli puolue ei ole hallituksessa.
+
+## Maaottelu
+
+![Elmo Lakka ylittää aidan.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1992,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1003182631494b542375/1662293244)
+
+Avaa kuvien katselu
+
+Suomen ja Ruotsin yleisurheilijat kohtaavat maaottelussa joka vuosi. Maaottelu järjestetään vuorotellen Ruotsissa ja Suomessa. Tämä kuva on viime vuodelta. Kuva: Matti Raivio / All Over Press
+
+Suomen ja Ruotsin yleisurheilijat kilpailevat tänä viikonloppuna maaottelussa. Yleisurheilun maaottelu järjestetään tänä vuonna Tukholmassa.
+
+Suomen ja Ruotsin maaottelu on vanha perinne. Ensimmäisen kerran maaottelu järjestettiin melkein 100 vuotta sitten, vuonna 1925.
+
+Naisurheilijat tulivat maaotteluun mukaan 70 vuotta sitten. Yleisurheilun maaottelu Suomen ja Ruotsin välillä järjestetään joka vuosi.
+
+Viime vuosina Ruotsi on ollut maaottelussa parempi. Suomen naiset voittivat Ruotsin viimeksi vuonna 2015. Suomen miesten edellinen voitto tuli vuonna 2018.
+
+Ylen kanavilta voi seurata, miten maaottelussa käy tänä vuonna.
+
+## Sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116666364f32ed72e1d3/1693658890)
+
+Avaa kuvien katselu
+
+Sunnuntaina sateet vähenevät. Sadekuuroja tulee kuitenkin eri puolilla maata, erityisesti Länsi-Suomessa.
+
+Maanantaina Suomeen tulee uusia sateita. Sateen jälkeen Suomeen virtaa kuivempaa ilmaa.
+
+Lämpötila on 15 ja 20 asteen välillä. Lapissa on maanantaina kylmempää.

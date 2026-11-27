@@ -1,0 +1,83 @@
+# Keskiviikko 3.2.2021 (radio)
+
+Astra Zenecan koronarokotetta annetaan Suomessa vain alle 70-vuotiaille. Presidentti avasi eduskunnan työkauden. Tampereella oikeus tutkii sotarikossyytteitä. Pakkassää jatkuu.
+
+## Astra Zenecan koronarokote
+
+![Astra Zenecan lääkepurkki rokottajan kädessä.](https://img.img-cdn.yle.fi/crop_extract,w_4718,h_2654,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7679856014709d98e47/1612013185)
+
+Avaa kuvien katselu
+
+Kuva: AFP / Lehtikuva
+
+Suomen viranomaiset suosittelevat, että Astra Zenecan koronarokotetta annetaan vain alle 70-vuotiaille.
+
+Astra Zenecan koronarokotetta saadaan Suomeen ehkä ensi viikolla. EU antoi sille myyntiluvan viime perjantaina.
+
+Käytössä on jo 2 muuta koronarokotetta. Niillä rokotetaan myös vanhuksia.
+
+Arvioidaan, että Suomessa kaikki vanhukset on rokotettu koronaa vastaan ainakin kerran huhtikuun loppuun mennessä.
+
+Koronarokote annetaan 2 kertaa.
+
+## Suomen koronaluvut
+
+![Terveyden ja hyvinvoinnin laitoksen THL:n kyltti Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11760661)
+
+Avaa kuvien katselu
+
+THL eli Terveyden ja hyvinvoinnin laitos seuraa Suomen koronatartuntoja. Kuva: Emmi Korhonen / Lehtikuva
+
+Terveyden ja hyvinvoinnin laitos kertoo, että Suomesta on löydetty 265 uutta koronatartuntaa. Koronatartuntoja on Suomessa yhteensä noin 46 000.
+
+Keskiviikkona kerrottiin myös 1 uudesta koronakuolemasta. Suomessa on kuollut yhteensä 685 ihmistä koronan takia.
+
+## Eduskunnan avajaiset
+
+![tasavallan presidentti Sauli Niinistö](https://img.img-cdn.yle.fi/crop_extract,w_2878,h_1619,x_0,y_31/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6558035e74973a51530/1584731761)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Juha Kivioja / Yle
+
+Suomen parlamentti eli eduskunta on aloittanut tämän vuoden työt.
+
+Presidentti Sauli Niinistö avasi eduskunnan työkauden keskiviikkona. Presidentti sanoi, että Suomessa on onnistuttu torjumaan koronaa hyvin.
+
+Niinistö myöntää, että koronarajoitukset ovat raskaita. Vielä raskaampaa on kuitenkin sairastua koronaan tai menettää perheenjäsen tai ystävä koronan takia, presidentti Niinistö sanoi.
+
+Eduskunnan tilaisuudessa oli presidentin lisäksi vain eduskunnan puhemies Anu Vehviläinen. Kansanedustajat eivät olleet paikalla koronan takia. He seurasivat tilaisuutta netissä.
+
+## Oikeudenkäynti sotarikoksista
+
+![Syytetty Gibril Massaquoi ](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-769287601a58f7ddea7/1612339476)
+
+Avaa kuvien katselu
+
+Sierraleonelaista miestä syytetään sotarikoksista Kuva: Matias Väänänen / Yle 
+
+Tampereella on alkanut epätavallinen oikeudenkäynti.
+
+Oikeudessa on mies, jota syytetään sotarikoksista.
+
+Sierraleonelainen mies on asunut Suomessa yli 10 vuotta, mutta hän ehkä teki rikoksia Liberiassa noin 20 vuotta sitten. Afrikkalaisessa Liberiassa oli silloin sisällissota.
+
+Syyttäjä sanoo, että mies tappoi ja raiskasi tavallisia ihmisiä sodan aikana.
+
+Mies itse sanoo, että hän ei tehnyt näitä rikoksia.
+
+Oikeus antaa tuomion todennäköisesti syksyllä.
+
+## Lähipäivien sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11771229)
+
+Avaa kuvien katselu
+
+Perjantai on tosi kylmä päivä. Kuva: Yle
+
+Sää on torstaina poutainen, vain paikoin voi sataa kevyesti lunta.
+
+Torstaina päivällä pilvisyys on vaihtelevaa. Selkeillä alueilla pakkasta on jopa yli 20 astetta, muuten pakkanen on heikkoa.
+
+Perjantaina pakkanen tuntuu tuulen takia tosi kylmältä. Koko viikonloppuna on kova pakkanen.

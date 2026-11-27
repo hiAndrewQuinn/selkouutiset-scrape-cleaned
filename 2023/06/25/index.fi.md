@@ -1,0 +1,83 @@
+# Radio Selkouutiset sunnuntai 25.6.2023
+
+Venäjän tilanne. Huvipuiston onnettomuus Ruotsissa. Reservin sotilaiden tapaaminen. Special Olympics -maailmankisat. Sää.
+
+## Venäjän tilanne
+
+![Ihmisiä Kremlin eristävällä aitauksella Moskovassa.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_152/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11342256496d0b9baeaa/1687622277)
+
+Avaa kuvien katselu
+
+Moskovan turvatoimet ovat ollee viikonloppuna tiukat. Kuva: Boris Alekseev / AOP
+
+Venäjällä Wagner-joukkojen kapina on ohi. Wagner-joukot ovat lopettaneet toimet Venäjän sotilasjohtoa vastaan.
+
+Venäjä kertoo, että Wagner-joukkojen johtaja Jevgeni Prigožin lähtee pois Venäjältä. Lisäksi on sovittu, että Wagner-sotilaat eivät saa rangaistusta kapinan takia.
+
+Wagner-joukot olivat lauantaina matkalla kohti Venäjän pääkaupunkia Moskovaa. Wagnerin johtaja Prigožin halusi vaihtaa Venäjän armeijan johtajat.
+
+Wagner-joukot ovat osallistuneet Venäjän sotaan Ukrainaa vastaan. Prigožinin mielestä Venäjän armeijan johtajat ovat johtaneet sotaa huonosti.
+
+Lauantai-iltana Prigožin ilmoitti, että Wagner-sotilaiden matka kohti Moskovaa loppuu. Turvatoimet Moskovassa ovat kuitenkin olleet tiukat myös sunnuntaina.
+
+## Onnettomuus huvipuistossa
+
+![Vuoristorata kesäisessä huvipuistossa.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113429764982979b4aaf/1687705175)
+
+Avaa kuvien katselu
+
+Gröna Lundin huvipuisto Tukholmassa. Kuva: Yle / Jutta Mattsson
+
+Ruotsissa on tapahtunut paha onnettomuus. Onnettomuus tapahtui Tukholmassa, Gröna Lundin huvipuistossa.
+
+1 ihminen kuoli, kun vuoristoradan vaunu irtosi radalta. Lisäksi 9 ihmistä loukkaantui.
+
+Jetline-vuoristoradan kovin nopeus on 90 kilometriä tunnissa. Vuoristorata kulkee jopa 30 metrin korkeudessa.
+
+Onnettomuuden jälkeen Gröna Lundin huvipuisto tyhjennettiin ja suljettiin.
+
+Onnettomuuden syytä ei vielä tiedetä.
+
+## Reservin sotilaiden tapaaminen
+
+![Sinivalkoinen Nato-lippu.](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1078,x_0,y_212/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9627436295f4b920940/1653994733)
+
+Avaa kuvien katselu
+
+Reserviläisjärjestön kesätapaamiseen tulee reservin sotilaita monista Nato-maista. Kuva: Pertti Aherva/Yle
+
+Helsingissä alkaa iso reserviläisjärjestön kesätapaaminen. Sen aikana Helsingin kaduilla näkyy paljon sotilaspukuja.
+
+Kesätapaamiseen tulee noin 500 reservin sotilasta eri maista. Reservin sotilaat eivät ole enää armeijassa, mutta heidät kutsutaan palvelukseen kriisitilanteessa.
+
+Reserviläisjärjestön kesätapaaminen jatkuu perjantaihin asti.
+
+## Special Olympics
+
+![Veera Luhtanen, voimistelija](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_125/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11331306492c266b2f99/1687340260)
+
+Avaa kuvien katselu
+
+Veera Luhtanen voitti Berliinissä 5 kultamitalia. Kuva: Lauri Jaakkola / Suomen Paralympiakomitea
+
+Suomi on menestynyt hyvin kehitysvammaisten Special Olympics -maailmankisoissa.
+
+Suomen joukkue Sisujengi sai 54 mitalia. Eniten mitaleita tuli rytmisestä voimistelusta, jossa Suomi sai 17 mitalia.
+
+Rytmisen voimistelun tähti oli Veera Luhtanen. Luhtanen sai 5 kultamitalia.
+
+Special Olympics -maailmankisat järjestettiin Berliinissä, Saksassa.
+
+## Sää
+
+![Kuvassa näkyy alkuviikon sääkartat.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1134303649838df05101/1687697662)
+
+Avaa kuvien katselu
+
+Kuva: Elias Paakkanen / Yle
+
+Viikko alkaa lämpimässä säässä. Lämpötila on maanantaina suuressa osassa maata noin 25 astetta.
+
+Maanantai on myös aurinkoinen päivä. Lapissa tulee kuitenkin sadekuuroja ja ukkosia.
+
+Tiistaina sateita ja ukkosia tulee eri puolilla Suomea. Auringossa lämpötila nousee edelleen noin 25 asteeseen, mutta sateessa on viileämpää.

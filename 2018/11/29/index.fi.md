@@ -1,0 +1,69 @@
+# Torstai 29.11.2018 (radio)
+
+Hallitus ehdottaa uutta lakia kaksoiskansalaisista. Suomi menestyy hyvin, kun verrataan eri maiden hyvinvointia. Uusi tieliikennelaki vähentää ylinopeussakkojen määrää. Kuusenviljelijät ovat nyt kiireisiä.
+
+## Kaksoiskansalaiset
+
+![Jussi Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10532528)
+
+Avaa kuvien katselu
+
+Puolustusministeri Jussi Niinistö. Kuva: Vesa Moilanen / Lehtikuva
+
+Hallitus ehdottaa uutta lakia kaksoiskansalaisista. Kaksoiskansalaisilla on Suomen ja jonkin toisen maan kansalaisuus.
+
+Hallituksen ehdotus koskee Suomen sotilasvirkoja. Hallitus ei halua kieltää Suomen sotilasvirkoja kaikilta kaksoiskansalaisilta.
+
+Hallitus kuitenkin ehdottaa, että kaksoiskansalainen ei pääse sotilasvirkaan, jos kaksoiskansalaisuus voi vahingoittaa Suomen turvallisuutta.
+
+Puolustusministeri Jussi Niinistö ei kerro, minkä maan kansalaisuus voi olla vaara Suomelle.
+
+Seuraavaksi eduskunta eli Suomen parlamentti käsittelee hallituksen lakiehdotusta.
+
+## Hyvinvointivertailu
+
+![Koululuokka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10202041)
+
+Avaa kuvien katselu
+
+Suomalainen koulu oli vertailun paras. Kuva: Terhi Varjonen/Yle
+
+Suomi on menestynyt hyvin uudessa kansainvälisessä vertailussa. Lontoolainen instituutti vertasi hyvinvointia eri maissa.
+
+Vertailussa oli mukana 149 maata. Suomi oli sijalla 3.
+
+Maiden hyvinvointia tutkittiin 9 eri alalla. Suomi oli paras koulutuksessa ja hallinnossa.
+
+Suomen huonoin tulos tuli, kun tutkittiin terveyttä. Suomi oli terveydessä vasta sijalla 25.
+
+Myös muut Pohjoismaat menestyivät hyvin. Norja oli vertailun paras maa.
+
+## Tieliikennelaki
+
+![Peltipoliisi valvoo nopeuksia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9720373)
+
+Avaa kuvien katselu
+
+Peltipoliisi ottaa kuvia autoista. Kuva: Ismo Pekkarinen / AOP
+
+Tieliikennelaki muuttuu. Uusi laki tulee voimaan kesällä 2020.
+
+Uusi laki vähentää ylinopeussakkojen määrää. Poliisi voi antaa sakot vain, jos valvontakameran eli peltipoliisin kuva on hyvä. Kuljettajan kasvojen pitää näkyä kuvassa selvästi. Esimerkiksi lumisateessa peltipoliisin kuvat ovat usein huonoja. Siksi sakkolappua ei tule kaikille kuljettajille, jotka ajavat liian kovaa vauhtia.
+
+Muiden sakkojen määrä kasvaa, kun uusi laki tulee voimaan. Poliisi voi antaa sakot, jos peltipoliisin kuvassa näkyy, että kuljettaja esimerkiksi ajaa päin punaista valoa tai ilman turvavyötä.
+
+## Joulukuuset
+
+![Ähtäriläinen Janne Muhonen kasvattaa joulukuusia pienimuotoisesti omalla kotipihallaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10531437)
+
+Avaa kuvien katselu
+
+Monet suomalaiset haluavat oikean joulukuusen. Kuva: Mirva Ekman / Yle
+
+Kuusenviljelijät ovat nyt kiireisiä. Viljelijät kaatavat joka vuosi noin miljoona joulukuusta.
+
+Kuusia viljellään Suomessa melko vähän. Siksi joulukuusia tuodaan ulkomailta, esimerkiksi Tanskasta ja Virosta.
+
+Suomalaiset tykkäävät oikeista kuusista, vaikka nykyään on myös muovikuusia.
+
+Kuuset kasvavat hitaasti. Joulukuusi kasvaa noin 10 tai 15 vuotta, ennen kuin se kaadetaan.

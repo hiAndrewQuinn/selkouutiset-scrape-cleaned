@@ -1,0 +1,81 @@
+# Lauantai 30.4.2022 (radio)
+
+Vappuaatto. Perussuomalaiset. Tupakkalaki. Etelä-Aasian kuumuus. Suomen sää.
+
+## Vapunvietto
+
+![Statyn Havis Amanda iklädd en vit studentmössa. I bakgrunden syns ett vimmel av människor.](https://img.img-cdn.yle.fi/crop_extract,w_4928,h_2772,x_0,y_346/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6675315ea1a987e3fd4/1587653075)
+
+Avaa kuvien katselu
+
+Manta saa ylioppilaslakin aina vappuaattona. Kuva: Lehtikuva
+
+Suomessa vietetään vappua.
+
+Vappua vietetään taas samalla tavalla kuin ennen koronaa. 2 edellisenä vuonna järjestettiin etäjuhlia koronan takia.
+
+Nyt ihmiset ovat taas kokoontuneet juhlimaan vappua yhdessä. Vappuaaton tapahtumia on järjestetty monissa kaupungeissa.
+
+Vappuaatto on erityisesti opiskelijoiden juhlapäivä. Vappuaaton tunnetuin tapahtuma on Helsingin kauppatorilla, jossa Havis Amandan eli Mantan patsas sai taas ylioppilaslakin kello 18.
+
+Mantan saa ylioppilaslakin aina opiskelijoilta. Tänä vuonna Manta sai lakin Helsingin yliopiston opiskelijoilta.
+
+## Perussuomalaiset
+
+![Puheenjohtaja Riikka Purra perussuomalaisten puoluevaltuuston kokouksessa.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_177/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948465626cfd807a67a/1651310160)
+
+Avaa kuvien katselu
+
+Perussuomalaisten puheenjohtaja Riikka Purra. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Perussuomalaiset haluaa, että Suomi liittyy puolustusliitto Natoon. Perussuomalaisten puolue päätti asiasta lauantaina.
+
+Puolueista SDP ja vasemmistoliitto eivät ole vielä kertoneet, kannattavatko ne Nato-jäsenyyttä. Muut puolueet ovat valmiita siihen, että Suomi hakee jäsenyyttä Natossa.
+
+Suomessa keskustellaan puolustusliitto Natosta Ukrainan sodan takia. Euroopan turvallisuustilanne muuttui, kun Venäjä hyökkäsi Ukrainaan.
+
+Monien mielestä Suomi on paremmassa turvassa, jos Suomi on Natossa. Natossa on 30 jäsenmaata.
+
+Suomi päättää ehkä jo toukokuussa, hakeeko se Naton jäsenyyttä vai ei.
+
+## Tupakkalaki
+
+![Naisen käsi, jossa sormien välissä palava savuke.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11960038)
+
+Avaa kuvien katselu
+
+Tupakkalaki suojelee lapsia. Kuva: Petteri Bülow / Yle
+
+Tupakointi leikkikentillä ja uimarannoilla kielletään.
+
+Uusi tupakkalaki tulee voimaan sunnuntaina. Se kieltää tupakoinnin leikkikentillä ja määrää, että kesällä ei saa tupakoida yleisillä uimarannoilla.
+
+Näin halutaan suojella lapsia tupakansavulta.
+
+## Etelä-Aasian kuumuus
+
+![Ihminen kävelee valtavassa jätekasassa.](https://img.img-cdn.yle.fi/crop_extract,w_6008,h_3372,x_0,y_627/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-948423626c16d0465d6/1651251054)
+
+Avaa kuvien katselu
+
+Palomies intialaisella kaatopaikalla. Kuva: Idrees Mohammed / EPA
+
+Etelä-Aasiassa on kuumaa. Intiassa ja Pakistanissa lämpötila on yli 40 astetta.
+
+Kuuman sään takia esimerkiksi ilmastointilaitteita käytetään paljon. Sähköstä on jo pulaa, ja Intian pääkaupungissa Delhissä varoitetaan sähkökatkoksista.
+
+Kuuma sää aiheuttaa myös terveysongelmia. Myös monet lapset ovat sairastuneet kuuman sään takia.
+
+Tilannetta pahentaa se, että joissakin kaupungeissa on syttynyt tulipalo kaatopaikalla. Esimerkiksi Delhissä palaa jätevuori, joka on 60 metriä korkea.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12424598)
+
+Avaa kuvien katselu
+
+Suomessa vappua vietetään viileässä säässä.
+
+Sunnuntaina eli vappupäivänä lämpötila on 5 ja 10 asteen välillä suuressa osassa maata.
+
+Maanantaina vesi- ja lumisateita tulee Keski- ja Pohjois-Suomeen.

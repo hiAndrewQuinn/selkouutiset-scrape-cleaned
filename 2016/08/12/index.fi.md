@@ -1,0 +1,73 @@
+# Perjantai 12.8.2016 (radio)
+
+Thaimaassa on ollut useita räjähdyksiä turistialueella. Venäjän presidentti Vladimir Putin erotti läheisen työtoverin. Stockmann vähentää 300 työpaikkaa. Kesäteatteri on suosittu harrastus.
+
+## Thaimaan turistialueilla räjähdyksiä
+
+![Ensihoitajat veivät loukkaantunutta sairaalaan Hua Hinissä 12. elokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9089727)
+
+Avaa kuvien katselu
+
+Kymmeniä ihmisiä loukkaantui räjähdyksissä. Kuva: Rungroj Yongrit / EPA
+
+Thaimaassa on ollut useita räjähdyksiä.
+
+Räjähdyksiä on ollut paikoissa, joissa on paljon turisteja. Räjähdyksiä on ollut Hua Hinissä, Surat Thanissa, Phuketissa ja Trangissa.
+
+Thaimaan poliisi sanoo, että räjähdykset ovat ehkä paikallista sabotaasia eli ilkivaltaa. Poliisi sanoo myös, että kyse ei ole kansainvälisestä terrorismista.
+
+Räjähdyksissä kuoli neljä ihmistä ja kymmeniä on loukkaantunut.
+
+Suomen Thaimaan suurlähetystö sanoo, että uhrit eivät ole suomalaisia.
+
+Suomalaiset tykkäävät matkustaa Thaimaahan lomalle, mutta eivät kesällä. Suomalaiset matkustavat Thaimaahan yleensä talvella.
+
+## Putin erotti läheisen työtoverin
+
+![Mannerheim-laatta punaisen maalin peitossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9079621)
+
+Avaa kuvien katselu
+
+Sergei Ivanov oli mukana, kun Mannerheimin muistolaatta paljastettiin. Moni venäläinen suuttui. Kuva: Sergei Kozhanov / Yle
+
+Venäjän presidentti Vladimir Putin on erottanut läheisen työtoverin Sergei Ivanovin.
+
+Ivanov oli presidentin hallintopäällikkö, mikä on tärkeä virka Venäjällä. Ivanovilla oli myös paljon yhteyksiä Suomeen.
+
+Putin joutui erottamaan Ivanovin ehkä siksi, että moni venäläinen on Ivanoville vihainen.
+
+Ivanov oli mukana, kun Pietarin kaupungissa paljastettiin kesäkuussa Suomen marsalkka Mannerheimin muistolaatta.
+
+Moni venäläinen vastusti muistolaattaa, koska Mannerheim osallistui sotaan Neuvostoliittoa eli nykyistä Venäjää vastaan 2. maailmansodassa.
+
+Mannerheim johti Suomen armeijaa, kun Suomi ja Saksa piirittivät pääkaupunkia Leningradia eli nykyistä Pietaria. Piirityksessä kuoli yli 600 000 venäläistä.
+
+## Stockmann vähentää työpaikkoja
+
+![Helsingin Stockmann.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8832922)
+
+Avaa kuvien katselu
+
+Kuva: Jyrki Lyytikkä / Yle
+
+Stockmann-tavaratalo vähentää 300 työpaikkaa, mutta myyjien määrää ei vähennetä.
+
+Stockmann yrittää säästää tänä vuonna 50 miljoonaa euroa.
+
+Monilla tavarataloilla on vaikeuksia, koska asiakkaita on vähemmän kuin ennen. Tavaroita ostetaan nyt paljon internetistä.
+
+## Kesäteatteri on suosittu harrastus
+
+![Kälviän kesäteatterin näyttelijöitä harjoittelemassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8939290)
+
+Avaa kuvien katselu
+
+Kesäteattereita on ympäri Suomea, myös pienissä kylissä. Kuva: Raila Paavola / Yle
+
+Kesäteatteri on tosi suosittua. Suomen kesäteattereissa on ollut tänä vuonna noin 400 näytelmän ensi-iltaa.
+
+Näytelmiä käy katsomassa ehkä jopa miljoona suomalaista.
+
+Kesäteatteri on usein ulkona. Kesäteatterissa näyttelijät, lavastajat ja muusikot ovat yleensä tavallisia ihmisiä, joille teatteri on tärkeä harrastus.
+
+Monessa pienessä kylässä kesäteatteri on asukkaiden yhteinen harrastus.

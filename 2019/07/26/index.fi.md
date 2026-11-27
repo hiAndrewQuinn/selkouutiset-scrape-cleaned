@@ -1,0 +1,73 @@
+# Perjantai 26.7.2019 (radio)
+
+Suomessa kuolee liikaa ihmisiä tieliikenteessä. Sairaaloiden päivystyksissä on ruuhkaa. Suomessa on vähän sähköbusseja. Keihäänheittäjä Jorma Kinnunen on kuollut. Viikonloppu on kuuma.
+
+## Liikenteessä kuolee paljon ihmisiä
+
+![Auto-onnettomuus Nakkilassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10722560)
+
+Avaa kuvien katselu
+
+Kuva: Pauli Lahti / Yle
+
+Suomessa kuolee liikaa ihmisiä tieliikenteessä.
+
+EU-maiden tavoite on, että vuonna 2020 tieliikenteessä kuolee puolet vähemmän ihmisiä kuin vuonna 2010. Suomen osalta tavoite on, että ensi vuonna kuolleita on korkeintaan vähän yli 130.
+
+Suomi ei todennäköisesti pääse tavoitteeseen. Viime vuonna Suomen tieliikenteessä kuoli vielä yli 230 ihmistä.
+
+## Päivystyksissä on ruuhkaa
+
+![Sairaaloiden päivystykset ruuhkautuvat eri puolella Suomea.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10894143)
+
+Avaa kuvien katselu
+
+Sairaaloiden päivystykset ruuhkautuvat eri puolella Suomea. Kuva: Simo Pitkänen / Yle
+
+Sairaaloiden päivystyksissä on ruuhkaa. Päivystyksessä on usein liian paljon potilaita.
+
+Lääkärit pelkäävät, että potilaiden turvallisuus kärsii ruuhkien takia. Potilaiden pitää odottaa kauan, ja työntekijät ovat väsyneitä.
+
+Potilaita tulee päivystykseen eniten illalla ja viikonloppuna, kun terveysasemat ovat kiinni. Potilaita tulee kuitenkin paljon myös päivällä, koska terveysasemalle on vaikea saada aikaa.
+
+Monien mielestä ongelmat vähenevät, jos terveysasemille saadaan lisää lääkäreitä. Tarvitaan lisää lääkärin virkoja ja parempia palkkoja, että nuoret lääkärit haluavat tulla töihin terveysasemalle.
+
+## Sähköbusseja on vähän
+
+![HSL:n Linkker-sähköbussi Helsingin Rautatientorilla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10893541)
+
+Avaa kuvien katselu
+
+Sähköbussi Helsingin Rautatientorilla. Kuva: Timo-Pekka Heima / Yle
+
+Suomessa on vasta vähän sähköbusseja. Sähköbusseja on Helsingissä, Turussa ja Tampereella.
+
+Suomen naapurimaat Ruotsi ja Norja ovat ostaneet sähköbusseja enemmän. Niille on tärkeää, että bussit eivät saastuta ympäristöä.
+
+Suomi seuraa, miten sähköbussien tekniikka kehittyy. Sähköbussit maksavat enemmän kuin tavalliset bussit. Myös latauslaitteet ovat kalliita.
+
+Sähköbussien määrä kasvaa kuitenkin myös Suomessa. Syksyn ja talven aikana Helsingin seudulle tulee melkein 40 uutta sähköbussia.
+
+## Keihäänheittäjä Jorma Kinnunen kuoli
+
+![Jorma Kinnunen ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10895604)
+
+Avaa kuvien katselu
+
+Jorma Kinnunen. Kuva: Lehtikuva / Jorma Pouta
+
+Kuuluisa suomalainen urheilija Jorma Kinnunen on kuollut. Kinnunen oli keihäänheittäjä. Hän kuoli 77-vuotiaana.
+
+Jorma Kinnusen paras aika oli 30 vuotta sitten. Kinnunen sai hopeamitalin Meksikon olympialaisissa vuonna 1968. Hän heitti myös keihäänheiton maailmanennätyksen vuonna 1969.
+
+## Lämpöä on yli 30 astetta
+
+![Kesäinen maisema.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10892450)
+
+Avaa kuvien katselu
+
+Kuva: Vesa Moilanen / Lehtikuva
+
+Viikonloppu on kuuma. Lauantaina lämpötila nousee yli 30 asteen melkein koko maassa.
+
+Sunnuntaina sää kylmenee idässä ja pohjoisessa, etelässä on vielä kuumaa.

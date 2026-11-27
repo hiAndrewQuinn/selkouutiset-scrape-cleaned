@@ -1,0 +1,57 @@
+# Sunnuntai 1.2.2015
+
+Oikeus kokopäivähoitoon säilyy kaikilla lapsilla. Suomalaiset ovat hakeneet vasta vähän autoveron palautuksia. Tuli tuhosi arvokkaita kirjoja Moskovassa. Retkiluistelun suosio kasvaa.
+
+## Oikeus kokopäivähoitoon säilyy kaikilla lapsilla
+
+![Lapsia päiväkodin pihalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7734901)
+
+Avaa kuvien katselu
+
+Hallitus päätti, että lasten oikeus päivähoitoon pysyy samanlaisena kuin ennen. Kuva: Jarkko Riikonen / Yle
+
+Hallitus ei toteuta perhepakettiaan. Perhepaketti tarkoittaa hallituksen suunnitelmia esimerkiksi lasten päivähoidosta. Hallitus aikoi säästää rahaa perhepaketin avulla.
+
+Koska hallitus luopuu perhepaketista, esimerkiksi lasten oikeus päivähoitoon ei muutu. Hallitus suunnitteli, että lapsi ei pääse koko päiväksi päiväkotiin, jos toinen lapsen vanhemmista on kotona. Nyt hallitus on päättänyt, että päivähoito-oikeus pysyy samanlaisena kuin ennen.
+
+Hallitus luopuu perhepaketista, koska paketti ei sittenkään säästä rahaa. Hallitus arvioi, että perhepaketti ei tuo sellaisia säästöjä, kuin hallitus suunnitteli. Hallituksen puolueet ovat samaa mieltä siitä, että perhepakettia ei toteuteta.
+
+## Autoveron palautuksia on haettu vähän
+
+![Urheiluauto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7774121)
+
+Avaa kuvien katselu
+
+Monet suomalaiset ovat ostaneet ja tuoneet auton ulkomailta. Kuva: Yle
+
+Suomalaiset ovat hakeneet vasta vähän autoveron palautuksia. Monet suomalaiset ovat maksaneet liikaa veroa autosta, jonka he ovat tuoneet ulkomailta. Nyt heillä on oikeus saada osa verosta takaisin.
+
+Tähän mennessä vain noin 6000 suomalaista on hakenut autoveron palautusta. Tulli arvioi, että oikeus palautukseen on ehkä 60 000 suomalaisella. Tavallisesti palautus on noin 1000 euroa.
+
+Tulli alkaa käsitellä palautuksia maaliskuussa, mutta käsittely voi kestää jopa vuoden. Lisätietoa asiasta saa Tullin internet-sivulta.
+
+## Tuli tuhosi arvokkaita kirjoja Moskovassa
+
+![Palokunta sammutustöissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7773918)
+
+Avaa kuvien katselu
+
+Yli 200 palomiestä oli sammuttamassa tieteellisen kirjaston tulipaloa. Kuva: Alexander Utkin / AFP
+
+Venäjän pääkaupungissa Moskovassa on tapahtunut ikävä tulipalo. Tuli tuhosi paljon arvokkaita kirjoja tieteellisessä kirjastossa. Ehkä yli miljoona kirjaa paloi Yhteiskuntatieteen tieteellisen instituutin kirjastossa.
+
+Tulipalo syttyi perjantai-iltana. Yli 200 palomiestä oli sammuttumassa tulipaloa. Tulipalo oli ohi vasta sunnuntaiaamuna.
+
+Yhteiskuntatieteen tieteellisen instituutin kirjasto on perustettu vuonna 1918. Kirjastossa on noin 10 miljoonaa kirjaa. Osa kirjoista on monta sataa vuotta vanhoja.
+
+## Retkiluistelu on suosittu harrastus
+
+![Retkiluistelijoita Saimaan jäällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7038415)
+
+Avaa kuvien katselu
+
+Retkiluistelijoita Saimaan jäällä. Kuva: Yle
+
+Retkiluistelun suosio kasvaa. Retkiluistelija ei luistele tavallisilla luistimilla. Retkiluistelija käyttää noin 40 senttimetriä pitkiä irrallisia teriä, jotka hän kiinnittää kenkiin. Retkiluistelija tarvitsee myös kypärän ja sauvat.
+
+Retkiluistelua harrastetaan meren tai järven jäällä. Jäälle voidaan myös tehdä retkiluistelurata, jota pitkin retkiluistelijan on helpompi ja turvallisempi luistella. Esimerkiksi Lappeenrannassa on tehty kolme (3) kilometriä pitkä retkiluistelurata Saimaa-järven jäälle.

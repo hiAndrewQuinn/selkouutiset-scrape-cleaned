@@ -1,0 +1,83 @@
+# Tiistai 9.7.2019 (radio)
+
+Pekka Haavisto edustaa EU:ta Sudanissa. Helsingin ja Tallinnan välille halutaan rautatietunneli. Lahden kaupungin tietoverkkoon tehtiin kyberhyökkäys. Kotitaloudet tuottavat enemmän jätettä kuin ennen. Yötaivaalla voi nyt nähdä Saturnus-planeetan.
+
+## Ulkoministeri Haavisto Sudaniin
+
+![Pekka Haavisto / Ulkoministeri / Ritaripuisto Helsinki 24.06.2019](https://img.img-cdn.yle.fi/crop_extract,w_4236,h_2383,x_0,y_13/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5726785d10a07f4d805/1561370811)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto. Kuva: Jouni Immonen / Yle
+
+Suomen ulkoministeri Pekka Haavisto keskustelee Sudanin tilanteesta Euroopan unionin puolesta.
+
+Ulkoministeriö kertoo, että Haavistolla on EU:n ulkoministerin Federica Mogherinin lupa keskustella Sudanin tilanteesta koko EU:n puolesta.
+
+Haavisto matkustaa lähiaikoina Sudaniin. Hän käy myös useissa muissa lähialueen maissa.
+
+Sudania johti 30 vuoden ajan diktaattori Omar al-Bashir. Huhtikuussa armeija otti vallan.
+
+Sudanissa on ollut paljon mielenosoituksia, joissa on vaadittu maahan siviilihallintoa.
+
+## Tunneli Helsingistä Tallinnaan
+
+![Peter Vesterbacka ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10868474)
+
+Avaa kuvien katselu
+
+Liikemies Peter Vesterbacka. Kuva: Lukas Rusk 7 Yle 
+
+Helsingin ja Tallinnan välille halutaan rautatietunneli.
+
+Yhden tunnelisuunnitelman on tehnyt liikemies Peter Vesterbacka.
+
+Vesterbacka kertoo, että suunnitelma on nyt ottanut askeleen eteenpäin. Iso kiinalainen rakennusfirma CREC lähtee projektiin mukaan.
+
+Jos suunnitelma toteutuu, tunnelin rakentaminen kestää ehkä 6 vuotta. Rakentaminen voi työllistää jopa 20 000 ihmistä vuodessa.
+
+Vesterbackan tunneliprojekti maksaa ehkä 15 miljardia euroa. Vesterbackalla on esisopimus rahoituksesta kiinalaisten kanssa.
+
+Myös Suomen ja Viron viranomaiset suunnittelevat tunnelia Helsingin ja Tallinnan välille.
+
+## Lahden kyberhyökkäys
+
+![Kyberhyökkäys](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9614029)
+
+Avaa kuvien katselu
+
+Hyökkääjät levittivät Lahden kaupungin tietoverkkoon haitttaohjelmaa.  Kuva: Richie B Tongo / EPA
+
+Poliisi tutkii kyberhyökkäystä, joka tehtiin Lahden kaupungin tietoverkkoihin. Hyökkäys tehtiin kesäkuussa.
+
+Poliisi kertoo, että hyökkäys oli tahallinen. Kyberhyökkäyksen tekijä tai tekijät levittivät Lahden kaupungin tietoverkkoon haittaohjelmaa. Haittaohjelman takia esimerkiksi alueen sosiaali- ja terveyspalveluissa on vielä häiriöitä.
+
+Hyökkäyksen kohteeksi joutui ainakin 1000 laitetta.
+
+## Kotitalouksien jätteet
+
+![Jätekeskus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9297513)
+
+Avaa kuvien katselu
+
+Sekajätettä kaatopaikalla. Kuva: Niko Mannonen / Yle
+
+Kotitaloudet tuottavat enemmän jätettä kuin ennen, kertoo Tilastokeskus
+
+Kotitaloudet tuottivat jätettä vuonna 2017 noin 3 miljoonaa tonnia. Se on 100 000 tonnia enemmän kuin vuotta aiemmin.
+
+Kaikkiaan Suomessa tuotettiin jätettä vuonna 2017 yli 100 miljoonaa tonnia.
+
+## Saturnus loistaa yötaivaalla
+
+![Saturnus planeetta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6590877)
+
+Avaa kuvien katselu
+
+Saturnus-planeetta. Kuva: AURA / STScl / NASA / ESA
+
+Ensi yönä taivaalla voi nähdä Saturnus-planeetan.
+
+Tähtitieteellinen yhdistys Ursa kertoo, että Saturnus loistaa nyt tavallista kirkkaammin. Planeetan voi nähdä yötaivaalla, kun katsoo matalalle etelään.
+
+Saturnus on 6. planeetta. Se tunnetaan renkaista, jotka ympäröivät sitä.

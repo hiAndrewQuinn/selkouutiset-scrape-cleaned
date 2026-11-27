@@ -1,0 +1,63 @@
+# Maanantai 20.2.2017 (radio)
+
+Sastamalan kolari oli itsemurhayritys. SPR lähettää apua Irakiin. Suomesta muuttaa ulkomaille monia, joilla on hyvä koulutus. 100-vuotias Suomi saa onnitteluja Dubain Suomi-koululaisilta.
+
+## Sastamalan kolari
+
+![Onnettomuuspaikka Sastamalassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9469628)
+
+Avaa kuvien katselu
+
+Ihmiset ovat tuoneet kynttilöitä kolaripaikalle, jossa kuoli kaksi nuorta. Kuva: Matias Väänänen / Yle
+
+Poliisi on kertonut uutta tietoa Sastamalan kolarista. Poliisi sanoo, että kolarin syynä oli itsemurhayritys.
+
+Kolari tapahtui Sastamalassa lauantaina. Siinä kuoli kaksi 17-vuotiasta nuorta, jotka ajoivat mopoautoa. He kuolivat, kun isompi auto törmäsi nuorten pieneen mopoautoon.
+
+Isomman auton kuljettaja törmäsi mopoautoon tahallaan, koska hän halusi tappaa itsensä. Itsemurha ei kuitenkaan onnistunut, koska kuljettaja ajoi päin pientä mopoautoa. Poliisi sanoo, että kuljettaja ei huomannut, että toinen auto oli mopoauto.
+
+## Apua Irakiin
+
+![Suomen Punaisella Ristillä on telttaklinikoita kahdella pakolaisleirillä Pohjois-Kreikassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9392407)
+
+Avaa kuvien katselu
+
+SPR on tottunut viemään apua ulkomaille. Kuva: Jessica Stolzmann / Yle
+
+Avustusjärjestö SPR eli Suomen Punainen Risti lähettää apua Irakiin. SPR lähettää Irakiin 4 sairaanhoitajaa ja hoitovälineitä.
+
+Irakissa tarvitaan apua, koska Mosulin kaupungissa taistellaan. Taisteluissa on loukkaantunut niin paljon ihmisiä, että alueen sairaalat eivät pysty hoitamaan kaikkia.
+
+Irakin armeija taistelee Mosulissa terroristijärjestö Isisiä vastaan. SPR sanoo, että taisteluissa on loukkaantunut kymmeniä tuhansia ihmisiä.
+
+## Ulkomaille muuttajia
+
+![Puhtaampaan polttoon tähtää Åbo Akademin laboratorio, esittelee professori Mikko Hupa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5497438)
+
+Avaa kuvien katselu
+
+Rehtori Mikko Hupa on huolissaan siitä, että suomalaisia tutkijoita muuttaa ulkomaille. Kuva: YLE / Maria Puhakka
+
+Suomesta muuttaa ulkomaille monia, joilla on hyvä koulutus. Monet tutkijat ovat jääneet Suomessa ilman työtä, koska valtio antaa yliopistoille vähemmän rahaa kuin ennen.
+
+Suomalaisia tutkijoita on muuttanut esimerkiksi Ruotsiin. Ruotsissa tutkijoille on enemmän töitä kuin Suomessa.
+
+Turkulaisen yliopiston Åbo Akademin rehtori Mikko Hupa toivoo, että suomalaisen tutkimuksen hyvä taso säilyy. Siksi hän toivoo, että ainakin osa suomalaisista tutkijoista tulee ulkomailta takaisin Suomeen. Lisäksi Suomessa tarvitaan ulkomaalaisia tutkijoita, rehtori Hupa sanoo.
+
+## Terveiset Dubaista
+
+![Suomi-paitainen lapsi haastateltavana Suomen lipun edessä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9468699)
+
+Avaa kuvien katselu
+
+Dubain Suomi-koulun oppilas. Kuva: Yle
+
+Eri puolilla maailmaa asuu suuri joukko suomalaisia lapsia ja nuoria, jotka opiskelevat suomen kieltä ja suomalaista kulttuuria Suomi-kouluissa.
+
+Kun itsenäinen Suomi nyt täyttää 100 vuotta, Suomi-koulut lähettävät videolla terveisiä Suomeen.
+
+Uusimmat terveiset tulevat Dubain Suomi-koulusta. Koulussa on 110 oppilasta. Nuorimmat ovat pikkulapsia, vanhimmat 12-vuotiaita. He käyvät Suomi-koulussa kerran viikossa.
+
+Dubain Suomi-koulun terveiset voi käydä katsomassa selkouutisten internet-sivuilla. Osoite on yle.fi/selkouutiset.
+
+**Terveisiä Dubain Suomi-koulusta**

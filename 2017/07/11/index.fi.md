@@ -1,0 +1,65 @@
+# Tiistai 11.7.2017 (radio)
+
+Suomalaisilla on lepsu asenne tankojuoppoihin. Venäjän Karjalassa etsitään suomalaisia sotavainajia. Porin SuomiAreena kiinnostaa yleisöä. Hunajasato tarvitsee nyt hyvää säätä.
+
+## Tankojuoppous
+
+![pyöräilijöiden siluetteja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9716533)
+
+Avaa kuvien katselu
+
+Lain mukaan pyörällä ei saa ajaa humalassa. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomalaiset suhtautuvat lepsusti tankojuoppouteen eli humalassa pyöräilyyn.
+
+Liikenneturvan kyselyssä yli 25 prosenttia vastaajista kertoi, että on ajanut pyörää humalassa 5 viime vuoden aikana. 14 prosenttia kertoi, että pyöräillee usein humalassa.
+
+Yli 40 prosenttia suomalaisista hyväksyy pienessä humalassa pyöräilemisen. Sen sijaan  50 prosenttia ei hyväksy ollenkaan tankojuoppoutta.
+
+Lain mukaan pyörällä ei saa ajaa humalassa. Siitä voidaan tuomita sakkoon tai vankeuteen enintään 3 kuukaudeksi.
+
+## Sotavainajat
+
+![Nina Stolepova, Oleg Stolepov ja Ismo Mikkonen etsivät sotavainajia Maaselän kannaksella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9696636)
+
+Avaa kuvien katselu
+
+Nina ja Oleg Stolepov sekä Ismo Mikkonen etsivät yhdessä sotavainajien jäänteitä. Kuva: Heikki Haapalainen / Yle
+
+Venäjän Karjalassa etsitään kesän aikana suomalaisten sotavainajien jäänteitä.
+
+Talvi- ja jatkosodan taisteluissa kuoli yli 90 000 suomalaista sotilasta. Noin 12 000 ruumiit jäivät taistelukentälle. Heistä on tähän mennessä löydetty noin 1200.
+
+Savonlinnalainen Ismo Mikkonen tutkii Krivin metsää Maaselän kannaksella. Alueella käytiin kovia taisteluja syksyllä 1942.
+
+Mikkonen etsii metallinpaljastimen avulla esimerkiksi tuntolevyä, metallinappia tai vyönsolkea. Ne voivat olla merkki siitä, että maasta löytyy myös vainajan luut.
+
+Tämä on jo 24. kesä, kun Ismo Mikkonen tekee etsintätyötä. Vuosien kuluessa hän on onnistunut löytämään yli 100 suomalaissotilaan jäänteet.
+
+## SuomiAreena
+
+![Yleisöä SuomiAreenan keskustelussa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9714607)
+
+Avaa kuvien katselu
+
+Suomi Areenan keskustelutilaisuudet kiinnostavat yleisöä. Kuva: Päivi Meritähti / Yle
+
+Yhteiskunnallinen keskustelu kiinnostaa suomalaisia, vaikka sitten keskellä kesälomaa. Porissa alkoi maanantaina perinteinen SuomiAreena. Se keräsi heti ensimmäisenä päivänä ennätysyleisön, yli 10 000 kävijää.
+
+SuomiAreenalla järjestetään 5 päivän aikana yli 170 keskustelua. Niihin osallistuu melkein 1000 puhujaa. Mukana on erilaisia yhteiskunnallisia vaikuttajia kuten esimerkiksi presidentti ja arkkipiispa, poliitikkoja ja yritysjohtajia.
+
+Viime vuonna SuomiAreena keräsi Poriin noin 63 000 kävijää.
+
+## Hunajasato
+
+![Tarhamehiläisiä pesän letoaukolla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8939426)
+
+Avaa kuvien katselu
+
+Mehiläiset valmistavat hunajaa. Kuva: Heikki Rönty / Yle 
+
+Lähiviikkojen sää ratkaisee, millainen on tämän kesän hunajasato.
+
+2 edellisen kesän hunajasato on ollut huono. Tänäkään vuonna ei saada huippusatoa, sanoo Savon mehiläishoitajien puheenjohtaja Markku Puumalainen.
+
+Puumalainen sanoo, että on kuitenkin mahdollista, että hunajasadosta tulee kohtalainen. Siihen kuitenkin tarvitaan nyt pari viikkoa lämmintä ja poutaista säätä.

@@ -1,0 +1,69 @@
+# Tiistai 16.3.2021 (radio)
+
+Astra Zenecan koronarokote. Suomalaiset ovat tyytyväisiä elämään. Kaikki eivät saa tehdä etätöitä. Nokia vähentää väkeä. Sääennuste.
+
+## Ihmiset peruneet rokotusaikoja
+
+![En sjukskötare håller i ett coronavaccin av tillverkaren Astra Zeneca.](https://img.img-cdn.yle.fi/crop_extract,w_5076,h_2855,x_0,y_127/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-78466160506d23d252e/1615883659)
+
+Avaa kuvien katselu
+
+Suomessa ei ole todettu ongelmia Astra Zenecan rokotteesta. Kuva: AFP / Lehtikuva
+
+Suomalaiset ovat peruneet jonkin verran aikoja koronarokotuksiin. Syynä on keskustelu Astra Zenecan koronarokotteen turvallisuudesta.
+
+Esimerkiksi Espoossa on peruttu joitakin kymmeniä rokotusaikoja. Kuopiossa, Turussa ja Tampereella on peruttu muutamia aikoja. Ihmiset ovat myös kyselleet rokotteesta aiempaa enemmän.
+
+Terveyden ja hyvinvoinnin laitos sanoo, että Astra Zenecan rokotteesta ei ole havaittu Suomessa ongelmia.
+
+## Vuosi korona-aikaa
+
+![Nainen lukee kirjaa lattialla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11289499)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat tyytyväisiä elämään. Kuva: Henrietta Hassinen / Yle
+
+Korona-aikaa ja poikkeusoloja on kulunut Suomessa nyt tasan vuosi. Korona-aika on muuttanut ihmisten elämää paljon.
+
+Suomalaiset ovat silti tyytyväisiä elämään. Ylen kyselyssä yli 80 prosenttia suomalaisista sanoo, että he ovat tyytyväisiä elämään.
+
+Korona-aika on raskasta erityisesti nuorille. 15-29 vuotiaiden nuorten tyytyväisyys elämään on vähentynyt. Nuoret luottavat kuitenkin tulevaisuuteen vanhempia ihmisiä enemmän. Nuoret uskovat myös omiin vaikutusmahdollisuuksiin.
+
+## Kaikki eivät saa tehdä etätyötä
+
+![Etätyöntekijä venyttelee hartioita.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7441715fb694b649c99/1605846107)
+
+Avaa kuvien katselu
+
+Noin miljoona suomalaista tekee etätöitä. Kuva: Petteri Juuti / Yle
+
+Vain osa suomalaisista saa tehdä etätöitä. Yle on kysynyt suomalaisilta, saavatko he tehdä etätöitä. Yli puolet vastaajista sanoo, että työnantaja ei anna tehdä etätöitä vaikka työ sopii etätyöksi.
+
+Vastaajat sanovat, että työnantaja ei luota työntekijöihin. Työnantaja voi esimerkiksi ajatella, että työntekijä ei tee kotona töitä tarpeeksi.
+
+Suomessa on voimassa etätyösuositus. Yli miljoona suomalaista on siirtynyt etätöihin koronatilanteen takia.
+
+## Nokia vähentää työntekijöitä
+
+![Nokian pääkonttori Espoossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11839320)
+
+Avaa kuvien katselu
+
+Nokian pääkonttori Espoossa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Suomalainen verkkofirma Nokia vähentää paljon työntekijöitä.
+
+Nokia aikoo vähentää jopa 10 000 työpaikkaa eri maissa 2 vuoden aikana. Nokiassa on töissä nyt 90 000 ihmistä eri puolilla maailmaa.Nokian tavoitteena on säästää noin 600 miljoonaa euroa.
+
+Nokia sanoo, että Suomessa työntekijöitä tarvitaan kuitenkin lisää. Nokia tarvitsee lisää työntekijöitä nopeiden 5G verkkojen suunnitteluun ja kehitykseen.
+
+## Sää
+
+![Sääkartta keskiviikko iltapäivästä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11840464)
+
+Avaa kuvien katselu
+
+Keskiviikkona on melko lauhaa.
+
+Itä-Suomessa ja Pohjois-Suomessa tulee keskiviikkona lumikuuroja. Muualla on poutaa eli ei sada. Lämpötila on -2 ja +5 asteen välillä.

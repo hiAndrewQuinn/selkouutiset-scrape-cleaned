@@ -1,0 +1,65 @@
+# Viikon uutinen selkosuomeksi | lauantai 6.6.2026
+
+Jalkapallon MM-kisat.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Aiheena on tällä kertaa jalkapallon MM-kisat.
+
+Jalkapallon MM-kisat alkavat ensi viikolla. Kisat pelataan Pohjois-Amerikassa. MM-kisoissa on mukana enemmän maita kuin aikaisemmin. Jalkapallon uusi maailmanmestari tiedetään 19. päivä heinäkuuta.
+
+Kerromme nyt lisää jalkapallon MM-kisoista.
+
+## Jalkapallon MM-kisat 2026
+
+![Monterreyn jalkapallostadion korkealta kuvattuna.](https://img.img-cdn.yle.fi/crop_extract,w_5928,h_3334,x_0,y_288/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16555676a226bb46dd9e/1780640730)
+
+Avaa kuvien katselu
+
+Kuva: Getty Images
+
+Jalkapallon MM-kisat alkavat ensi torstaina. Kisat pelataan USA:ssa, Kanadassa ja Meksikossa. Tämä on 1. kerta, kun jalkapallon MM-kisat järjestetään 3 eri maassa.
+
+Jalkapallon MM-kisojen pelejä pelataan yhteensä 16 kaupungissa. Kisoissa pelataan yhteensä yli 100 ottelua.
+
+MM-kisojen 1. peli on Meksikossa. Ottelussa pelaavat Meksiko ja Etelä-Afrikka.
+
+MM-kisojen pelit tulevat televisiosta Ylen ja MTV:n kanavilla.
+
+## Erilaiset kisat kuin ennen
+
+![Erling Haaland reagoi maaliin.](https://img.img-cdn.yle.fi/crop_extract,w_4121,h_2318,x_0,y_215/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16556366a2276544d084/1780643439)
+
+Avaa kuvien katselu
+
+Kuva: Getty Images
+
+MM-kisoissa on mukana enemmän maita kuin koskaan ennen. Mukana on 48 maata, kun vielä 4 vuotta sitten joukkueita oli 32. Pohjoismaista mukana ovat Norja ja Ruotsi. Suomi ei päässyt karsinnoista mukaan kisoihin.
+
+MM-kisoissa pelataan ensin alkulohkot. Alkulohkoja on 12. Alkulohkoista pääsee jatkoon yhteensä 32 maata. Tämän jälkeen pelataan pudotuspelit, joissa aina ottelun voittaja pääsee jatkoon.
+
+Loppuottelu pelataan heinäkuun 19. päivä USA:ssa. Pelipaikka on Metlife-stadion New Jerseyn osavaltiossa.
+
+## MM-kisojen historia
+
+![Argentiinan pelaajat juhlivat maailmanmestaruutta.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_411/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16555786a226e5cd91bc/1780641417)
+
+Avaa kuvien katselu
+
+Kuva: Getty Images
+
+Jalkapallon MM-kisat pelattiin 1. kerran vuonna 1930. Kisat pelataan aina 4 vuoden välein.
+
+4 vuotta sitten jalkapallon maailmanmestaruuden voitti Argentiina. Eniten mestaruuksia on voittanut Brasilia, jolla on 5 mestaruutta. Saksa ja Italia ovat voittaneet kisat 4 kertaa.
+
+Tällä kertaa ennakkosuosikkeja ovat esimerkiksi Espanja, Ranska ja Englanti.
+
+## Kertaus
+
+Viikon uutisen aihe oli jalkapallon MM-kisat. Kerrataan vielä tärkeimmät asiat.
+
+Jalkapallon MM-kisat alkavat ensi viikolla. Kisat pelataan USA:ssa, Kanadassa ja Meksikossa. Mukana on 48 maata. Kisojen loppuottelu pelataan heinäkuun puolivälissä.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

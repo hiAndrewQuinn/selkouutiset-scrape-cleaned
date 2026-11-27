@@ -1,0 +1,75 @@
+# Tiistai 20.8.2019 (radio)
+
+Monet nuoret ovat yksinäisiä. Työllisyys ei kasva. Alkoholituonti Virosta kasvoi. Putinin vierailu haittaa liikkumista keskiviikkona. Viljoja puidaan nyt.
+
+## Nuorten yksinäisyys
+
+![Nainen kulkee Aurajoen rantaa Turussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10252045)
+
+Avaa kuvien katselu
+
+Yksinäisyys voi lisätä nukahtamisvaikeuksia ja hermostuneisuutta. Kuva: Kalle Mäkelä / Yle
+
+Monet nuoret ovat yksinäisiä. Jyväskylän yliopiston tutkimuksessa huomattiin, että peruskoulun 9. luokalla yksinäisyyttä tuntee useampi oppilas, kuin 7. luokalla.
+
+9\. luokan oppilaista 20 prosenttia sanoo, että on yksinäinen.
+
+7\. luokan oppilaista yksinäisyyttä tuntee 14 prosenttia.
+
+Tytöt tuntevat yksinäisyyttä enemmän kuin pojat.
+
+Yksinäiset koululaiset ovat myös hermostuneita, kokevat kipuoireita ja heillä on nukahtamisvaikeuksia enemmän kuin muilla koululaisilla.
+
+## Työllisyys
+
+![kädet näppiksellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10918303)
+
+Avaa kuvien katselu
+
+Työllisyyden kasvu on pysähtynyt. Kuva: Ilmari Fabritius / Yle
+
+Työllisyys ei ole parantunut niin hyvin, kuin hallitus haluaa.
+
+Työssä kävi heinäkuussa vain vähän enemmän ihmisiä, kuin viime vuonna heinäkuussa. Asiantuntija sanoo, että työllisyyden parantuminen on pysähtynyt alkuvuonna.
+
+Työllisyysasteen trendi oli heinäkuussa 72,4 prosenttia. Hallitus haluaa, että työllisyysaste nousee 75 prosenttiin.
+
+## Alkoholin tuonti Virosta
+
+![Juomakärry satamassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7916512)
+
+Avaa kuvien katselu
+
+Viro laski alkoholiveroa heinäkuun alussa. Kuva: Yle
+
+Suomalaiset tuovat alkoholia Virosta Suomeen enemmän kuin ennen.
+
+Suomalaiset toivat alkoholia Virosta Suomeen heinäkuussa yhteensä noin 4,7 miljoonaa litraa. Se on 1,4 miljoonaa litraa enemmän kuin viime vuoden heinäkuussa.
+
+Alkoholin tuonti on kasvanut, koska Virossa alkoholi on nyt halvempaa kuin ennen. Viro laski alkoholin veroa heinäkuun alussa 25 prosenttia.
+
+## Putinin vierailu
+
+![Venäjän presidentti Vladimir Putin kommentoi Ukraina-asiaa Pekingissä Uusi silkkitie -kokouksen päätöspäivänä lauantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10757988)
+
+Avaa kuvien katselu
+
+Putin vierailee Helsingissä keskiviikkona. Kuva: Sergei Ilinitski / EPA
+
+Poliisi sanoo, että huomenna keskiviikkona kannattaa käyttää julkista liikennettä, jos haluaa mennä Helsingin keskustaan. Kannattaa myös varata aikaa liikkumiseen.
+
+Venäjän presidentti **Vladimir Putin** vierailee keskiviikkona Helsingissä. Muu liikenne voi välillä joutua odottamaan, kun Putinin auto liikkuu keskustassa.
+
+Putinin vierailun takia myös Kauppatori on keskiviikkona kiinni koko päivän.
+
+## Viljojen puinti
+
+![Ohrapelto syksyllä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10403416)
+
+Avaa kuvien katselu
+
+Myös ohraa puidaan nyt. Kuva: Pyry Sarkiola / Yle
+
+Sateet ja välillä kylmä sää ovat hidastaneet viljasadon keräämistä eli puintia. Maan eteläosissa ruis on kohta kerätty, mutta Keski-Suomessa rukiin puinti alkaa tällä viikolla. Myös vehnää puidaan nyt.
+
+Ruis- ja vehnäsato on tänä vuonna melko hyvä. Joillakin alueilla on ollut kuivaa ja vilja on kasvanut huonosti.

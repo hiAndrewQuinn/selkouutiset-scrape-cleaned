@@ -1,0 +1,76 @@
+# Maanantai 8.8.2022
+
+Suomen vastaanottojärjestelmä. Polttoaineiden hinta. Junaliikenne. Museokäynnit. Sääennuste.
+
+TV:n selkouutisilla on kesätauko 6.6.–12.8.
+Lue ja kuuntele radiolähetys tästä.
+
+## Vastaanottokeskukset
+
+![Huone jossa kerrosänkyjä ja pöytä tuoleineen.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_336/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-924127622265695070a/1646421772)
+
+Avaa kuvien katselu
+
+Vastaanottokeskus Helsingissä. Kuva: Mårten Lampén / Yle
+
+Suomesta hakee suojaa nyt paljon ihmisiä. Suomen vastaanottojärjestelmässä on nyt enemmän asiakkaita kuin koskaan aiemmin.
+
+Maahanmuuttovirasto kertoo, että vastaanottojärjestelmässä on yli 37 000 ihmistä. Se on enemmän kuin esimerkiksi vuoden 2015 pakolaiskriisin aikana.
+
+Määrää ovat kasvattaneet ukrainalaiset, jotka ovat paenneet sotaa. Yli 35 000 ukrainalaista on jättänyt Suomessa hakemuksen tilapäisestä suojelusta. Monet heistä ovat äitejä ja lapsia.
+
+## Polttoaineiden hinta
+
+![Huoltoaseman hinnastokyltti, jonka takana pyöräilevä mies.](https://img.img-cdn.yle.fi/crop_extract,w_6606,h_3698,x_0,y_688/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99182062f1100903c36/1669550424)
+
+Avaa kuvien katselu
+
+Polttoaineiden hinta on laskenut. Enimmäkseen bensiini ja diesel maksavat nyt vähän yli 2 euroa litra. Kuva: Sara Aaltio / Yle
+
+Polttoaineiden hinta on jatkanut laskua. Diesel-polttoaineen litrahinta on laskenut muutamilla paikkakunnilla jo alle 2 euron.
+
+Yli 5 kuukauteen bensiiniä tai dieseliä ei ole saanut alle 2 eurolla litra. Bensiinin hinta on nyt vähän yli 2 euroa litra.
+
+Bensiinin ja dieselin hinta on laskenut, koska hallitus on pienentänyt uusiutuvien polttoaineiden jakeluvelvoitetta. Hintaa laskee myös se, että polttoaineiden ostaminen on vähentynyt korkean hinnan takia.
+
+## Junaliikenne
+
+![Rautatiesilta Lempäälässä.](https://img.img-cdn.yle.fi/crop_extract,w_4242,h_2386,x_0,y_441/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99170962f0f0b9ec79c/1659957654)
+
+Avaa kuvien katselu
+
+Joku on ehkä tehnyt ilkivaltaa kaapeleille tällä junasillalla Lempäälässä. Kuva: Jani Aarnio / Yle
+
+VR:n junaliikenne oli maanantaina aamulla ja päivällä poikki monta tuntia Tampereen ja Riihimäen välillä. Junaliikenne keskeytyi, koska sähkökaapeleihin tuli vika.
+
+Väylävirasto sanoo, että kaapelivian syy on ehkä ilkivalta. Joku tai jotkut ihmiset ovat ehkä rikkoneet kaapeleita, jotka ohjaavat junaradan laitteita.
+
+Väylävirasto on tehnyt asiasta rikosilmoituksen poliisille. Junaliikenne Tampereen ja Riihimäen välillä alkoi kulkea taas iltapäivällä.
+
+## Museoiden vilkas kesä
+
+![Museokorttia näytettään lukulaitteelle.](https://img.img-cdn.yle.fi/crop_extract,w_5333,h_2999,x_0,y_498/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98942262e9024bbcc4b/1659438858)
+
+Avaa kuvien katselu
+
+Museokortilla pääsee tosi moniin museoihin Suomessa. Museokortti on suosittu. Kuva: Antti Haanpää / Yle
+
+Suomalaiset ovat käyneet paljon museoissa tänä kesänä. Museoissa on käynyt jopa enemmän ihmisiä, kuin ennen korona-aikaa.
+
+Monet suomalaiset haluavat nyt mennä museoihin ja tapahtumiin pitkän tauon jälkeen. Ihmiset ovat myös palanneet esimerkiksi Helsingin isoihin museoihin. Kesälomalla suomalaiset myös liikkuvat paljon.
+
+Myös museokortti, eli vuosilippu, jolla pääsee moniin museoihin, on lisännyt paljon suomalaisten intoa käydä museoissa.
+
+## Sää
+
+![Tiistain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12568175)
+
+Avaa kuvien katselu
+
+Tiistaina on enimmäkseen poutaa eli ei sada.
+
+Tiistaina maan etelä- ja keskiosassa on poutaa eli ei sada. Pilvisyys vaihtelee.
+
+Pohjoisessa pilvisyys on runsasta ja paikoin tulee sadekuuroja.
+
+Lämpötila on maan etelä- ja keskiosassa 20 ja 23 asteen välillä. Pohjoisessa lämpötila on 15 ja 21 asteen välillä.

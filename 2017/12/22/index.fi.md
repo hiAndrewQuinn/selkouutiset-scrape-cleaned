@@ -1,0 +1,7 @@
+# Perjantai 22.12.2017 (tv)
+
+Monet suomalaiset matkustavat joululomalla ulkomaille. Suurin osa suomalaisten joulukuusista viljellään Suomessa. Loviisan Strömfors on vuoden 2018 kylä Uudellamaalla. Elokuva "95" kertoo vuodesta 1995, kun Suomesta tul jääkiekon maailmanmestari. Lauantaina on huono ajokeli.
+
+Yle Uutiset selkosuomeksi
+
+Monet suomalaiset matkustavat joululomalla ulkomaille. Suurin osa suomalaisten joulukuusista viljellään Suomessa. Loviisan Strömfors on vuoden 2018 kylä Uudellamaalla. Elokuva "95" kertoo vuodesta 1995, kun Suomesta tul jääkiekon maailmanmestari. Lauantaina on huono ajokeli.

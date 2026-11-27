@@ -1,0 +1,57 @@
+# TV | Selkouutiset | perjantai 12.12.2025
+
+Nato. Viherpesudirektiivi. Koulutusagentit ja ulkomaiset opiskelijat. Sää.
+
+## Nato Venäjästä
+
+Aluksi puolustuksesta.
+
+Puolustustusliitto Naton pääsihteeri Mark Rutte varoittaa, että Nato-maat voivat olla Venäjän seuraava kohde.
+
+Rutte kehottaa Nato-maita lisäämään nopeasti puolustusmenoja. Myös Suomi kuuluu Natoon.
+
+Rutte sanoi Berliinissä, että liian moni Naton jäsenmaa ei ymmärrä Venäjän uhan vakavuutta.
+
+Venäjä hyökkäsi Ukrainaan pian 4 vuotta sitten ja käy sotaa edelleen. Naton pääsihteeri varoittaa, että Nato-maat voivat olla seuraava kohde.
+
+## Viherpesudirektiivi
+
+Nyt EU-direktiivistä, joka koskee viherpesua.
+
+Ruokapakkauksissa on usein epämääräisiä ympäristöväitteitä. Pakkauksessa voi lukea esimerkiksi "ilmastopositiivinen valinta" tai "hiilidioksidivapaa tuotanto".
+
+Monet merkinnät pitää ensi vuonna poistaa. Euroopan unionin direktiivi eli säädös kieltää ympäristöväitteet, jotka eivät ole totta.
+
+Erikoistutkija Juha-Matti Katajajuuri antaa esimerkin:
+
+\- *Täältä löytyy tällainen sillituote, missä sanotaan I’m green. Tällainen liian yleinen olen vihreä, ympäristöystävällinen, ilmastopositiivinen, ne antavat väärän kuva kuluttajille, ovat liian yleisiä, ne ovat kiellettyjä jatkossa.*
+
+Ruokapakkauksiin halutaan täsmällistä tietoa.
+
+Ensi syksyn jälkeen ympäristövaikutuksista pitää kertoa selkeästi ja väitteet pitää todistaa.
+
+## Koulutusagentit
+
+Sitten ulkomaisista opiskelijoista.
+
+Suomea on markkinoitu harhaanjohtavasti ulkomaisille opiskelijoille.
+
+Ylen MOT-ohjelma paljastaa, että ulkomaiset konsulttiyritykset eli koulutusagentit antavat Suomesta vääriä tietoja.
+
+Agentit esimerkiksi sanovat, että ulkomaiset opiskelijat saavat Suomessa helposti töitä, joilla voi maksaa opinnot.
+
+*- Luin sanomalehdistä, että Suomi on onnellisin maa ja passin sijoitus on kolmas.*
+
+Suomea on markkinoitu ulkomaisille opiskelijoille harhaanjohtavasti. Töitä ei ole, rahat loppuvat, ja ruokaa on haettava leipäjonoista.
+
+Suomi on halunnut ulkomaisia opiskelijoita. Heitä on tullut paljon varsinkin Etelä-Aasiasta.
+
+## Sää
+
+Vielä sääennuste.
+
+Viikonloppua vietetään laajalti pakkassäässä.
+
+Lauantaipäivä on sateeton.
+
+Idässä on melko aurinkoistakin. Länteen leviää pilviä ja illalla myös lumisateita.

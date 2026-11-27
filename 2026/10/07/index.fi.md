@@ -1,0 +1,87 @@
+# Selkouutiset | keskiviikko 7.10.2026
+
+Ravintolat. Romutuspalkkio. Hugo Simberg. Sääennuste.
+
+## Ravintoloiden hygienia
+
+Aluksi uutinen ravintoloista.
+
+Monissa ravintoloissa on puutteita hygieniassa.
+
+Yle tutki Ruokaviraston terveystarkastusten tietoja.
+
+Joka kolmas ravintola sai huonon arvosanan.
+
+Ravintolat ovat säilyttäneet ruokaa liian lämpimässä ja tilat ovat olleet likaisia. Tarkastajat löysivät ravintoloista myös tuholaisia.
+
+Huonoja arvosanoja on enemmän kuin ennen.
+
+Elintarvikehygienian professori **Johanna Björkroth** on huolestunut tuloksista.
+
+*”Kyllä se oli sillä lailla surullista luettavaa, että siellä on ollut enemmän korjattavaa kuin aikaisempina vuosina.”*
+
+Monissa ravintoloissa on puutteita hygieniassa.
+
+Syy laatuongelmiin on ravintoloiden huono talous.
+
+Lisäksi kaikilla yrittäjillä ja työntekijöillä ei ole tarpeeksi tietoa tai kielitaitoa.
+
+Viranomaiset ovat sulkeneet joitakin ravintoloita tilapäisesti.
+
+## Autojen romutuspalkkio
+
+Nyt uutinen vanhojen autojen romutuksesta.
+
+Tässä kierrätysfirma hakee vanhan auton romutukseen.
+
+Suomalaiset ovat hakeneet melko vähän uutta romutuspalkkiota.
+
+Valtio voi maksaa vanhan auton romutuksesta yli 2 000 euroa.
+
+Rahan saa, jos ihminen ostaa tilalle uuden vähäpäästöisen auton.
+
+Monet ihmiset ostavat silloin sähköauton.
+
+Tavoite on vähentää liikenteen päästöjä.
+
+Suomalaiset ovat hakeneet romutuspalkkiota vasta vähän.
+
+Tukeen on varattu 20 miljoonaa euroa, mutta rahaa on kulunut vasta alle 3 miljoonaa euroa.
+
+Romukauppias **Toni Keinänen** kertoo, että ihmiset ovat kuitenkin romuttaneet vanhoja autoja enemmän kuin viime vuonna.
+
+Esimerkiksi tämän auton romuttaja halusi vain auton pois pihalta.
+
+## Hugo Simberg -taidenäyttely
+
+Lopuksi kulttuuriuutinen.
+
+Turun taidemuseossa on avattu Hugo Simbergin näyttely.
+
+Hugo Simberg on yksi suomalaisten suosituimmista taiteilijoista.
+
+Tämä maalaus on ”Haavoittunut enkeli”.
+
+Se oli äänestyksessä suomalaisten suosikkimaalaus.
+
+Simberg kuvasi usein kuolemaa ja satumaailmaa.
+
+Kuraattori Selina Kiiskinen kertoo, että kuolema oli Simbergille luonnollinen osa elämää.
+
+Turun taidemuseossa on avattu laaja näyttely Hugo Simbergin taiteesta.
+
+Simbergin teokset kiinnostavat monia suomalaisia.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Torstaina sää on vaihtelevaa.
+
+Pohjoisessa paistaa aurinko.
+
+Etelässä on pilvistä.
+
+Lännessä voi tulla sadekuuroja.
+
+Lämpötila on melkein koko maassa alle 10 astetta.

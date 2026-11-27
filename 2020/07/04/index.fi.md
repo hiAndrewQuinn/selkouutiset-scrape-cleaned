@@ -1,0 +1,72 @@
+# Lauantai 4.7.2020 (radio)
+
+Maailmassa on jo yli 11 miljoonaa koronatartuntaa. Sosiaalisessa mediassa liikkuu vääriä tietoja koronaviruksesta. Suomalaiset luottavat hallituksen osaamiseen. Viikonloppu on sateinen, mutta sunnuntaina näkyy myös aurinko.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Koronatilanne
+
+![Nainen halaa isäänsä suojaverhon läpi Brasilian Sao Paulossa 2. heinäkuuta 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4794,h_2697,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6962945effa9f7beab4/1593813748)
+
+Avaa kuvien katselu
+
+Brasilialainen nainen ja naisen isä halaavat suojaverhon läpi. Kuva: Sebastiao Moreira / EPA
+
+Koronavirus leviää maailmalla edelleen.
+
+Koko maailmassa on löydetty jo yli 11 miljoonaa koronatartuntaa. Tartuntoja on ehkä paljon enemmän, koska kaikkia tartuntoja ei löydetä.
+
+Koronaviruksen takia on kuollut yli 520 000 ihmistä. Koronakuolemia on eniten USA:ssa ja Brasiliassa.
+
+Suomen koronatilanne on rauhallinen.
+
+Terveyden ja hyvinvoinnin laitos eli THL kertoi lauantaina, että Suomessa on 6 uutta koronatartuntaa. Yhteensä Suomessa on yli 7200 koronatartuntaa.
+
+Suomessa on kuollut koronan takia 329 ihmistä. THL kertoo maanantaina, onko viikonlopun aikana kuollut lisää koronapotilaita.
+
+## Vääriä tietoja koronaviruksesta
+
+![Teknikko asentaa puhelinverkon antennia talon katolle Freiburgissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10810902)
+
+Avaa kuvien katselu
+
+Leviääkö korona, jos dataverkko on 5G? Kuva: AOP
+
+Sosiaalisessa mediassa liikkuu vääriä tietoja koronaviruksesta.
+
+Sosiaalisessa mediassa, kuten Facebookissa, väitetään esimerkiksi, että koronakriisin syy on 5G-tekniikka. 5G on uudenlainen tehokas dataverkko. Jotkut uskovat, että 5G levittää myös koronavirusta. Asiantuntijat sanovat, että se ei ole totta.
+
+Venäjällä jopa valtion televisiokanavat kertovat vääriä tietoja koronasta. Ne ovat kertoneet esimerkiksi, että amerikkalaiset ovat keksineet koronaviruksen.
+
+Asiantuntijat sanovat, että suomalaiset eivät yleensä usko vääriä tietoja. Suomalaiset osaavat myös huomata, mihin sosiaalisen median sivuihin ei voi luottaa.
+
+## Hallituksen osaamiseen luotetaan
+
+![Sanna Marin eduskunnan täysistunnossa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11433301)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin. Kuva: Vesa Moilanen / Lehtikuva
+
+Suomalaiset luottavat siihen, että Sanna Marinin hallitus osaa hoitaa Suomen asioita. Sanna Marin aloitti pääministerin tehtävässä viime joulukuussa.
+
+Noin 60 prosenttia suomalaisista luottaa hallituksen osaamiseen. Vain noin 20 prosenttia suomalaisista ei luota siihen, että hallitus pystyy hoitamaan maan asioita hyvin.
+
+Suomalaiset luottavat Marinin hallitukseen enemmän kuin 2 edelliseen hallitukseen.
+
+Tiedot ovat Kunnallisalan kehittämissäätiön tutkimuksesta.
+
+## Sateinen viikonloppu
+
+![Koiranulkoiluttaja sateisessa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11431883)
+
+Avaa kuvien katselu
+
+Kuva: Olivia Ranta / Lehtikuva
+
+Viikonloppu on sateinen. Lauantaina on satanut vettä eri puolilla Suomea.
+
+Sunnuntaina päivällä Etelä-Suomessa on poutaa, eli vettä ei enää sada. Sunnuntaina illalla Suomeen tulee kuitenkin uusia sateita.
+
+Etelässä on sunnuntaina noin 20 astetta lämmintä, kun aurinko paistaa. Sateessa lämpötila on noin 15 astetta. Pohjoisessa lämpötila on alle 15 astetta.

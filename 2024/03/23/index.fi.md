@@ -1,0 +1,50 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 23.3.2024
+
+Hepatiittitartunnat.
+
+Uutisviikon aihe on tällä kertaa hepatiittitartunnat. Hepatiittitartunnat ovat lisääntyneet Suomessa.
+
+Hepatiitti on maksasairaus. Kaupoista on poistettu myynnistä meetvurstimakkaraa, jossa on ollut hepatiittivirusta.
+
+Uutisviikko kertoo nyt hepatiitista ja sen tartunnoista.
+
+## Hepatiittitartuntojen lisääntyminen
+
+![Yksi syy tartuntojen lisääntymiseen voi olla meetvurstimakkara, jossa on ollut hepatiittivirusta. Kuva: Rami Moilanen / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2653,w_4722,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710411708/39-125753965f2cd3be2140)
+
+Suomessa on todettu hepatiitti E-tartuntoja tänä vuonna enemmän kuin tavallisesti. Tartuntoja on ollut eri puolilla Suomea.
+
+Tartuntatautirekisteriin ilmoitettiin tammi-helmikuun aikana 90 Hepatiitti E -tapausta. Koko viime vuonna Suomessa oli vain 30 hepatiittitapausta, eli niiden määrä on kasvanut paljon tänä vuonna.
+
+Noin 40 prosenttia hepatiittipotilaista on joutunut sairaalaan. Heillä on ollut yleensä jokin muu sairaus, joka altistaa infektiolle.
+
+Suurin osa hepatiittipotilaista ei tarvitse sairaalahoitoa.
+
+Hepatiittitartunnan oireita voivat olla kuume, vatsakipu ja keltainen väri iholla ja silmissä. Suurin osa ihmisistä sairastaa hepatiitin ilman oireita. Silloin he eivät ehkä huomaa tartuntaa.
+
+## Hepatiitti E on maksatulehdus
+
+Hepatiitti E on maksatulehdus. Sen aiheuttaa virus. Ihminen saa hepatiittitartunnan tavallisesti elintarvikkeista.
+
+Hepatiittivirus voi levitä esimerkiksi ihmisten tai eläinten ulosteesta veteen ja elintarvikkeisiin.
+
+Hepatiittitartunnan oireet tulevat ihmiselle yleensä noin 40 päivän kuluttua tartunnasta.
+
+## Hepatiittia todettu meetvursteissa
+
+![Meetvurstia tutkitaan laboratoriossa. Kuva: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_2250,w_4000,x_0,y_814/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1710511303/39-125826365f451bdb7786)
+
+Terveyden ja hyvinvoinnin laitos eli THL tutkii hepatiittitartuntojen lisääntymistä Suomessa.
+
+Hepatiittitartuntojen yksi syy voi olla meetvurstimakkarat. Lihafirma Kotivara on poistanut myynnistä meetvursteja, koska niistä on löydetty hepatiitti E -virusta.
+
+Hepatiittivirus tuhoutuu, kun ruokaa kypsennetään kuumassa. Meetvursti kypsennetään kylmäsavustuksella eli melko viileässä. Siksi hepatiittivirus on voinut säilyä meetvurstissa.
+
+## Kertaus
+
+Uutisviikon aihe oli hepatiittitartunnat. Hepatiittitartunnat ovat lisääntyneet tänä vuonna paljon.
+
+THL tutkii, miksi hepatiitti on lisääntynyt. Esimerkiksi joistakin meetvursteista on löytynyt hepatiittivirusta.
+
+Hepatiitti on maksasairaus. Hepatiitti voi levitä ruoan välityksellä, jos ruokaa ei kypsennetä kuumassa.
+

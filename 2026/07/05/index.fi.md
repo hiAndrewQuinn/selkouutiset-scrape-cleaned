@@ -1,0 +1,91 @@
+# Uutisviikko selkosuomeksi | sunnuntai 5.7.2026
+
+Hallituksen sote-tukiriita. Puoluekannatus. Alkojen aukioloajat. Hailuodon silta.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Sote-tukiriita
+
+![Sosiaali- ja terveys­ministeri Wille Rydman (ps.) ja pääministeri Petteri Orpo (kok.). ](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1080,x_0,y_90/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16624426a314ce6c3a55/1781615918)
+
+Avaa kuvien katselu
+
+Perussuomalainen ministeri Rydman päätti yksin tukileikkauksista. Pääministeri Orpo sanoo, että muu hallitus puuttuu tilanteeseen, jos Rydman ei muuta päätöstä. Kuva: Susanna Pesonen / Yle, Selma Rita / Yle
+
+Politiikassa on näkynyt tällä viikolla hallituksen riita järjestöjen avustuksista.
+
+Sosiaali- ja terveysministeri **Wille Rydman** haluaa tiukentaa sote-avustusten sääntöjä.
+
+Muut hallituspuolueet eli kokoomus ja RKP sanovat, että Rydmanin säännöt ovat syrjiviä, koska ne leikkaavat tukia maahanmuuttajien ja seksuaalivähemmistöjen järjestöiltä.
+
+Pääministeri **Petteri Orpo** yrittää ratkaista vaikean riidan.
+
+Orpo vaatii, että hallitus päättää uusista säännöistä, jos Rydman ei muuta päätöstä, jonka Rydman teki.
+
+Orpo sanoo, että hallitus tekee päätöksen elokuun puolivälissä.
+
+## Puoluekannatus
+
+![Puoluekannatus: SDP 23,2 %, kokoomus 17,4 %, keskusta 14,5 % ja perussuomalaiset 13,6 %. Muutokset: +0,2; −0,9; +0,7; −0,5.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16694436a44db1bb2fe6/1782897804)
+
+Avaa kuvien katselu
+
+Perussuomalaisten suosio nousi Keskustan ohi. Kuva: Eetu-Mikko Pietarinen / Yle
+
+Jatketaan toisella politiikan aiheella.
+
+Yle julkaisi tällä viikolla taas puolueiden kannatuskyselyn. Yle kysyy noin kuukauden välein suomalaisilta, mitä puoluetta he kannattavat.
+
+Suosituin puolue on edelleen SDP, jota kannattaa noin 23 prosenttia suomalaisista. Toiseksi suosituin puolue on edelleen kokoomus, jonka kannatus on vähän yli 17 prosenttia.
+
+Perussuomalaiset on noussut kolmanneksi eli se on tullut keskustan ohi.
+
+Perussuomalaisten kannatus on melkein 15 prosenttia.
+
+Neljänneksi suosituin puolue on keskusta. Keskustan jälkeen suosituimmat puolueet ovat vasemmistoliitto ja vihreät.
+
+## Alkojen aukiolo
+
+![mainos alkon sisällä](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_221/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16716866a4a2b51f0946/1783245830)
+
+Avaa kuvien katselu
+
+Osa Alkoista on nyt auki myös sunnuntaisin. Kuva: Harri Fagerholm / Yle
+
+Nyt uutinen Alkoista.
+
+Alkoholikauppojen eli Alkojen aukioloaika laajeni tällä viikolla.
+
+Tänään sunnuntaina Alkot saavat olla auki ensimmäistä kertaa myös sunnuntaina.
+
+Monien isojen kauppakeskusten Alkot ovat nyt auki sunnuntaisin kello 12-18. Auki on noin 35 Alkon myymälää. Kaikki Alkot eivät ole sunnuntaisin auki.
+
+Alkojen aukioloajat pitenivät myös muina päivinä. Alkot saavat nyt olla myös lauantaisin auki kello 21:een.
+
+Muutosten syy on lakiuudistus, jonka eduskunta hyväksyi kesäkuussa.
+
+## Hailuodon silta
+
+![Ilmakuva Oulun Hailuotoon johtavasta tiestä.](https://img.img-cdn.yle.fi/crop_extract,w_8062,h_4536,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16683446a42211751d33/1782718815)
+
+Avaa kuvien katselu
+
+Hailuodon tieyhteys on yli 8 kilometriä pitkä. Kuva: Antti Tauriainen / Yle
+
+Lopuksi asiaa uudesta tieyhteydestä.
+
+Hailuodon saareen avattiin tällä viikolla tieyhteys. Hailuoto on suuri saari länsirannikolla Oulun edustalla.
+
+Hailuotoon pääsee nyt tietä ja siltoja pitkin. Niiden pituus on yli 8 kilometriä.
+
+Tieyhteyttä rakennettiin noin 2 ja puoli vuotta. Tien rakentaminen sujui hyvin ja tie valmistui etuajassa.
+
+Hailuoto on Perämeren suurin saari. Siellä asuu ihmisiä ja se on suosittu matkailukohde.
+
+Tie Hailuotoon lähtee Oulunsalosta eli Oulun läheltä.
+
+Hailuotoon on kulkenut lautta melkein 60 vuotta. Nyt lauttaliikenne päättyi, kun Hailuotoon valmistui tie.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

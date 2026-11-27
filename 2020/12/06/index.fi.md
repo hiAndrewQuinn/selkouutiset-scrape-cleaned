@@ -1,0 +1,83 @@
+# Sunnuntai 6.12.2020 (radio)
+
+Lipunnosto. Seppeleenlasku. Porin prikaati. Presidentti Niinistö. Pääministeri Marin. Linnanjuhlat.
+
+## Itsenäisyyspäivän lipunnosto
+
+![Suomen Lippu liehuu salossa](https://img.img-cdn.yle.fi/crop_extract,w_4154,h_2337,x_0,y_214/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4482345a27ae2854b8e/1512550066)
+
+Avaa kuvien katselu
+
+Itsenäisyyspäivän lipunnosto järjestettiin esimmäisen kerran vuonna 1927. Kuva: Pekka Tynell / Yle
+
+Tänään sunnuntaina on juhlittu Suomen itsenäisyyspäivää. Valtakunnallinen lipunnosto järjestettiin aamulla Hämeenlinnassa.
+
+Itsenäisyyspäivän lipunnosto on tavallisesti Helsingissä, mutta koronatilanteen takia lipunnosto järjestettiin Hämeenlinnassa.
+
+## Seppeleenlasku Helsingissä
+
+![Presidentti Sauli Niinistö laskee seppleen Hietaniemen hautausmaallla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11683772)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö laski seppleen Hietaniemen hautausmaallla. Kuva: Silja Viitala / Yle
+
+Presidentti **Sauli Niinistö** ja rouva **Jenni Haukio** kävivät aamulla Helsingin tuomiokirkossa, jossa he sytyttivät kynttilät.
+
+Sen jälkeen presidentti Niinistö laski seppeleen Sankaristille Hietaniemen hautausmaalla.
+
+Suomen armeijan Hornet-hävittäjät tekivät ylilennon, eli ne lensivät Hietaniemen hautausmaan yli matalalla. Hornet-hävittäjät tekivät ylilentoja myös muissa Suomen kaupungeissa.
+
+## Myös Porissa laskettiin seppele
+
+'
+
+![Ilmavoimien Hornet-hävittäjä nousee Pirkkalan lentokentältä.](https://img.img-cdn.yle.fi/crop_extract,w_3130,h_1760,x_701,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6460205e52d2537744a/1634878122)
+
+Avaa kuvien katselu
+
+Ilmavoimien Hornet-hävittäjä. Kuva: Petteri Bülow / Yle
+
+Itsenäisyyspäivän sotilasparaatia ei tänä vuonna järjestetty koronatilanteen takia. Porin prikaati eli armeija Porissa ja Porin kaupunki järjestivät kuitenkin pienen juhlatilaisuuden. Juhlatilaisuudessa laskettiin seppele sankariristille Porissa.
+
+## Niinistö sanoo, että koronaa pitää torjua yhdessä
+
+![Presidentti Sauli Niinistö ja Jenni Haukio seppeleenlaskutilaiuudessa Hietaniemen hautausmaallla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11683770)
+
+Avaa kuvien katselu
+
+Rouva Jenni Haukio ja presidentti Sauli Niinistö. Kuva: Jorge Gonzales / Yle
+
+Presidentti **Sauli Niinistö** toivoo, että suomalaiset torjuvat koronavirusta yhdessä.
+
+Niinistö sanoo itsenäisyyspäivähaastattelussa, että koronavirus on vaara koko Suomessa. Niinistö sanoo, että koronatoimia pitää tehdä kaikilla alueilla.
+
+Presidentti Niinistö sanoo, että suomalaisten pitää estää taudin leviämistä yhdessä.
+
+## Pääministerin itsenäisyyspäivän toivotus
+
+![Pääministeri Sanna Marin sytyttää kynttilän ennen itsenäisyyspäivän ekumeenista jumalanpalvelusta Tuomiokirkossa ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11683853)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin sytytti aamulla kynttilän Helsingin tuomiokirkossa. Kuva: Valtioneuvoston Kanslia
+
+Pääministeri **Sanna Marin** on esittänyt itsenäisyyspäivän toivotuksen suomalaisille twitterissä.
+
+Marin sanoo, että koronakriisi kyllä loppuu, vaikka koronakriisi tuntuu nyt pitkältä. Marin sanoo, että me suomalaiset selviämme koronakriisistä, koska otamme toiset ihmiset huomioon.
+
+## Linnanjuhlat uudella tavalla
+
+![Linnan juhlien juntajat Susani Mahadura, Jussi-Pekka Rantanen, Ella Kanninen ja Daniel Olin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11683398)
+
+Avaa kuvien katselu
+
+Linnan juhlat juhlaohjelmaa juonsivat Susani Mahadura, Jussi-Pekka Rantanen, Ella Kanninen ja Daniel Olin. Kuva: Jyrki Valkama / Yle
+
+Linnanjuhlia on vietetty poikkeuksellisella tavalla koronatilanteen takia. Presidentinlinnassa ei ollut isoja juhlia.
+
+Presidentinlinnassa oli kuitenkin esiintyjiä ja Yle on lähetti sieltä juhlaohjelmaa. Presidentti **Sauli Niinistö** oli illan isäntä.
+
+Ylen juhlalähetyksessä nähtiin ohjelmaa presidentinlinnasta ja muualta Suomesta.
+
+Linnan juhlia ja päivän juhlallisuuksia voit katsoa Yle Areenasta.

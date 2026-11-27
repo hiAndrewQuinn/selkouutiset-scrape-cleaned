@@ -1,0 +1,59 @@
+# Perjantai 17.4.2015
+
+Valio vähentää työntekijöitä. Saksassa on muistettu ihmisiä, jotka kuolivat Germanwingsin lento-onnettomuudessa. Suomalaiset osaavat hyvin englantia. Suomessa on nyt myös sankarikissoja.
+
+## Yli 300 Valion työntekijää voi menettää työnsä
+
+![Jogurttipurkkeja rivissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6837705)
+
+Avaa kuvien katselu
+
+Valiolla menee huonosti, koska Venäjä ei osta maitotuotteita EU-maista. Kuva: Yle
+
+Suuri suomalainen maitofirma Valio vähentää työntekijöitä. Työ voi loppua jopa 320 työntekijältä. Valiolla on Suomessa nyt yhteensä 3600 työntekijää.
+
+Valiolla menee huonosti, koska se myy Venäjälle vähemmän maitotuotteita kuin ennen. Venäjä on kieltänyt monien ruokatavaroiden ostamisen EU-maista, koska Venäjä ja EU ovat riidelleet Ukrainan kriisin takia. Valion tulot ovat vähentyneet noin 20 prosenttia Venäjän tilanteen takia.
+
+Valiolla ei mene hyvin myöskään Suomessa. Nykyään alle 30 prosenttia maidosta, joka myydään Suomessa, tulee Valiolta. Se on selvästi vähemmän kuin ennen.
+
+## Saksassa oli muistotilaisuus lento-onnettomuuden uhreille
+
+![Saksan liittopresidentti Joachim Gauck hiljentyi kunnioittamaan lentoturman uhreja Kölnin katedraalissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7936130)
+
+Avaa kuvien katselu
+
+Saksan presidentti Joachim Gauck osallistui muistotilaisuuteen Kölnin tuomiokirkossa. Kuva: Oliver Berg / EPA
+
+Saksalaiset ovat muistaneet ihmisiä, jotka kuolivat Germanwingsin lento-onnettomuudessa maaliskuussa. Kölnin tuomiokirkossa oli perjantaina suuri muistotilaisuus. Tilaisuudessa oli mukana satoja ihmisiä, joiden perheenjäseniä kuoli onnettomuudessa.
+
+Saksalaisen Germanwingsin lentokone putosi Ranskassa maaliskuun 24. päivä. Lentokone oli matkalla Espanjasta Saksaan. Onnettomuudessa kuoli 150 ihmistä, joista suurin osa oli saksalaisia ja espanjalaisia.
+
+Lentokoneen toinen ohjaaja aiheutti onnettomuuden tahallaan. Hän lensi päin vuorta, ja kaikki matkustajat kuolivat hänen mukanaan.
+
+## Suomalaisten englannin kielen taito on hyvä
+
+![Englannin sanakirja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7473124)
+
+Avaa kuvien katselu
+
+Suomalaiset opiskelevat englantia ahkerasti. Kuva: Yle
+
+Suomalaiset osaavat hyvin englantia. Suomalaiset ovat sijalla neljä (4), kun verrataan eri maiden asukkaiden englannin kielen taitoa. Koulutusfirma EF-Education First tutki aikuisten kielitaitoa yli 60 maassa.
+
+Aikuisten englannin taidot ovat hyvät koko Pohjois-Euroopassa. Tanskalaiset, hollantilaiset ja ruotsalaiset osaavat englantia vielä paremmin kuin suomalaiset. Myös norjalaiset osaavat englantia paremmin kuin suomalaiset, kun verrataan kielitaitoa työelämässä.
+
+Tutkimus kertoo myös, että suomalaisissa firmoissa pikkupomot osaavat englantia paremmin kuin suuret johtajat.
+
+## Myös kissat voivat olla sankareita
+
+![Sankarikissa Simba](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7934862)
+
+Avaa kuvien katselu
+
+Sankarikissa Simba. Kuva: Kissaliitto
+
+Suomessa on nyt myös sankarikissoja. Suomen Kissaliitto on antanut ensimmäisen kerran sankarikissan arvonimiä. Arvonimen sai viisi (5) kissaa.
+
+Sankarikissat ovat pelastaneet ihmisiä. Esimerkiksi sankarikissa Simba pelasti omistajansa, kun omistajalla oli paha sairauskohtaus. Simba puri ja raapi omistajaansa niin kauan, että omistaja heräsi ja pystyi hoitamaan itseään.
+
+Suomessa on valittu sankarikoiria jo monta vuotta. Myös Kissaliitto aikoo tulevaisuudessa valita sankarikissoja joka vuosi.

@@ -1,0 +1,41 @@
+# Selkouutiset | keskiviikko 21.10.2026
+
+Ukraina. Työttömyys. Akut. Sää.
+
+## Ukrainan rauhankeskustelut
+
+Ensin uutinen rauhankeskusteluista.
+
+Oslossa neuvoteltiin tiistaina siitä, miten sota Ukrainassa loppuu. Keskusteluissa oli mukana presidentti Alexander Stubb. Ukrainaa edusti presidentti Volodymyr Zelenskyi. Paikalla oli myös USA:n edustajia.
+
+Presidentti Zelenskyi sanoi, että neuvottelut menivät hyvin.
+
+Oslossa neuvoteltiin tiistaina siitä, miten sota Ukrainassa loppuu. Tänään keskiviikkona USA:n lähettiläs Steve Witkoff tapasi Pietarissa Venäjän presidentin Vladimir Putinin.
+
+## Työttömyys
+
+Nyt aiheena on työttömyys.
+
+Työttömiä ihmisiä on enemmän kuin aikaisemmin. Työttömiä oli syyskuussa 39 000 enemmän kuin vuotta aiemmin.
+
+Varsinkin miehiä on nyt töissä vähemmän kuin ennen. Syynä on se, että rakentamisella menee huonosti. Myös teollisuuden aloilla on vain vähän uusia työpaikkoja.
+
+Työttömiä ihmisiä on enemmän kuin aikaisemmin. Asiantuntijat sanovat, että työttömyys ei ehkä helpota tämän vuoden aikana.
+
+## Akkujen tulipalot
+
+Seuraavan uutisen aiheena on akku.
+
+Akku aiheuttaa tulipalon useammin kuin ennen. Ihmisillä on kotona paljon erilaisia akkuja. Akku on esimerkiksi puhelimessa, tietokoneessa ja sähköpyörässä.
+
+Asiantuntijat sanovat, että akku pitää ladata oikein. Akku kannattaa ladata päivällä, kun ihminen on hereillä. Kun lataat akkua, sen vieressä ei saa olla helposti syttyviä tavaroita. Tällaisia ovat esimerkiksi paperi, pahvi ja tekstiilit.
+
+Jos akku on tosi vanha, akkua ei saa enää ladata.
+
+Akku aiheuttaa tulipalon useammin kuin ennen. Suomessa on vuodessa noin 150 sellaista tulipaloa, joka alkaa akusta tai paristosta.
+
+## Sää
+
+Vielä sääennuste.
+
+Torstaina sää on pilvinen, idässä aurinkoinen. Lämpötila on 5 ja 10 asteen välillä. Pohjoisessa on kylmempää ja etelässä lämpimämpää. Lapissa voi sataa vähän vettä.

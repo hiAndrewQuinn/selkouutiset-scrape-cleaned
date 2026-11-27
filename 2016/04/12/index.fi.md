@@ -1,0 +1,81 @@
+# Tiistai 12.4.2016 (radio)
+
+Hallitus kertoi, miten se yrittää saada Suomeen 100 000 uutta työpaikkaa. Likaisia neuloja käyttänyt hoitaja oli huolimaton. Punkalaidun osaa kotouttaa. Ukrainassa sota kovenee. Kirja dekkareista. Puoli miljoonaa linnunpönttöä on jo rakennettu.
+
+## Hallitus yrittää saada uusia työpaikkoja
+
+![Hallituksen infossa Jari Lindström, Olli Rehn ja Lenita Toivakka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8805453)
+
+Avaa kuvien katselu
+
+Ministeri Jari Lindström (vas.), Olli Rehn ja Lenita Toivakka. Kuva: Yle
+
+Suomen hallitus haluaa saada maahan yli 100 000 uutta työpaikkaa. Tänään tiistaina hallitus kertoi, mitä se aikoo tehdä.
+
+Hallitus tukee varsinkin pieniä firmoja. Hallitus kokeilee palkkatukea, eli valtio maksaa osan palkasta, jos yhden ihmisen firma palkkaa toisen työntekijän. Työttömyyskorvausta muutetaan niin, että työttömän on helpompi perustaa oma firma. Lisäksi ulkomaalainen voi saada oleskeluluvan, jos hän perustaa firman. 
+
+## Laboratoriossa ei oltu huolellisia
+
+![Turvaneula](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8783554)
+
+Avaa kuvien katselu
+
+Huslabin turvaneula. Kuva: HUS
+
+Viranomaiset ovat tutkineet, miksi Huslab-laboratoriossa Helsingissä käytettiin vahingossa likaisia neuloja noin kaksi viikkoa sitten.
+
+Viranomaiset sanovat, että laboratoriossa tehtiin monta virhettä. Virheitä tehtiin esimerkiksi siinä, miten uusia neuloja otettiin käyttöön ja vanhoja heitettiin pois. Työntekijä oli huolimaton ja hänellä oli kiire.
+
+19 ihmistä joutui vaaraan saada likaisista neuloista tauti. 
+
+## Hyvä kotouttaja
+
+![Turvapaikanhakijoita istuu pöydän ääressä koululuokassa ja opettaja seisoo heidän edessään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8804100)
+
+Avaa kuvien katselu
+
+Suomen kielen tunnnilla. Kuva: Yle
+
+Tampereen lähellä oleva Punkalaidun osaa hyvin kotouttaa pakolaisia.
+
+Punkalaitumella on jo kauan asunut kymmeniä pakolaisia, ja melkein kaikilla on työpaikka.
+
+Kunnassa ajatellaan, että tärkeintä on alkaa heti opettaa pakolaisille suomen kieltä. Tärkeää on myös, että pakolaiset tutustuvat Punkalaitumen muihin asukkaisiin. Näin he oppivat suomalaisia tapoja: esimerkiksi sen, että nainen ja mies hoitavat lapsia ja kotia yhdessä. Ja molemmat käyvät töissä.
+
+## Itä-Ukrainan sota jatkuu
+
+![Itä-Ukrainan rintama on täynnä juoksuhautoja ja poteroita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8796001)
+
+Avaa kuvien katselu
+
+Sotilas Itä-Ukrainan rintamalla. Kuva: Antti Kuronen / Yle
+
+Itä-Ukrainassa sota on kiihtynyt keväällä.
+
+Syksy ja talvi olivat vähän rauhallisempia, mutta nyt Venäjän tukemat kapinalliset hyökkäävät taas enemmän. Rintaman lähellä asuvat ihmiset ovat koko ajan vaarassa.
+
+Myös muualla Itä-Ukrainassa elämä on vaikeaa, koska esimerkiksi kaivokset eivät toimi ja ihmiset ovat työttömiä. Ihmisten on vaikea hankkia ruokaa.    
+
+## Dekkarin historiaa
+
+![Yksityiskohta Alussa oli murha -kirjasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8800478)
+
+Avaa kuvien katselu
+
+Paula Arvas ja Voitto Ruohonen kirjoittivat kirjan dekkareiden historiasta. Kuva: Yle
+
+Rikoskirjojen eli dekkareiden historiasta on kirjoitettu kirja.
+
+1900-luvun alussa ajateltiin, että dekkarit ovat roskaa, jota nuorten ei kannata lukea. Myöhemmin dekkarit on hyväksytty. Tutkija sanoo, että ihmiset lukevat paljon dekkareita, koska ne ovat jännittäviä. Lisäksi aivot saavat töitä, kun lukija yrittää arvata, kuka on murhaaja. 
+
+## Puoli miljoonaa linnunpönttöä
+
+![Nainen riustaa lnnunpönttöä puuhun.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8787687)
+
+Avaa kuvien katselu
+
+Linnunpönttö pannaan narulla kiinni puuhun. Kuva: Heli Mäkikauppila / Yle
+
+Ylen Miljoona linnunpönttöä -kampanja on alkanut hyvin.
+
+Yle innostaa ihmisiä rakentamaan linnuille pesäpönttöjä ja kirjaamaan ne Ylen nettisivuille. Kampanja alkoi kuukausi sitten ja pönttöjä on jo puoli miljoonaa.

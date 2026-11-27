@@ -1,0 +1,77 @@
+# Sunday 15.3.2020 (radio)
+
+Finland now has 240 coronavirus cases. A state of emergency has begun in Spain. Sales of medicines have grown. There are crowds in nature areas. The popularity of the Corona game is growing.
+
+## 240 coronavirus cases in Finland
+
+![The emergency department of the central hospital in Kokkola.](https://img.img-cdn.yle.fi/crop_extract,w_4305,h_2422,x_0,y_249/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6524785e69eaaaef46e/1584000659)
+
+Open image viewer
+
+The emergency department of the central hospital in Kokkola. Photo: Sari Vähäsarja / Yle
+
+30 new coronavirus infections have become known in Finland. In total there are now 240 coronavirus infections in Finland.
+
+Not all coronavirus infections may be known, because not everyone who has flu symptoms is tested any more.
+
+Doctors say that if the symptoms are not serious, the person must stay ill at home. If the symptoms are serious, they must phone the health centre.
+
+## More coronavirus measures in many countries
+
+![Workers cleaning the Madrid metro.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11254268)
+
+Open image viewer
+
+Workers clean the metro in Madrid, Spain. Photo: COMUNIDAD DE MADRID handout / Lehtikuva
+
+Spain has declared a state of emergency because of the coronavirus. Movement and shop opening hours are being restricted in Spain.
+
+Austria is also restricting movement. Gatherings of more than 5 people are banned in Austria.
+
+Estonia is closing its borders for two weeks. Foreign travellers will not be let into Estonia from Tuesday onwards.
+
+## People are now buying a lot of medicines
+
+![Pharmacy neon advertising sign in a pharmacy](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6408575e4146c11a76a/1581336329)
+
+Open image viewer
+
+A lot of medicines have now been bought from pharmacies. Photo: Marko Väänänen / Yle
+
+Sales of medicines have grown a lot. Finnish pharmaceutical companies say that pharmacies have now ordered a lot of fever and pain medicines.
+
+Pharmacies have ordered a lot of medicines, because people have bought them a lot.
+
+Pharmaceutical companies say that there are enough medicines in Finland. There is no shortage of medicines, even though a lot of them have been sold now.
+
+## Crowds in the forest
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5822188"
+
+Open image viewer
+
+Nuuksio National Park. Photo: Pekka Kauranen / YLE
+
+Many people went out into nature at the weekend.
+
+In the Helsinki area there has been crowding at nature sites. The nature sites are managed by Metsähallitus, the Finnish state forest enterprise. Metsähallitus says that very many people visited Haukkalampi in Nuuksio and Meikko in Kirkkonummi at the weekend.
+
+People have gone out into nature because many events and hobbies have been cancelled because of the coronavirus.
+
+Metsähallitus says that people are well advised to go, for example, to a nearby forest where there are not so many people.
+
+## The Corona game became popular again
+
+![Close-up of the Corona board game](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_628/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6529185e6b484f6bbde/1584089307)
+
+Open image viewer
+
+The Corona game is made of wood. The pieces are knocked with a stick into holes in the corners. Photo: Minna Matintupa / Yle
+
+Finally, a different coronavirus news item. The popularity of the Corona game has grown, because people are now talking a lot about the coronavirus.
+
+The Corona game is made by a small toy factory in Jyväskylä, Finland. The factory says that more Corona games are being bought now than usual. Spare parts are also being bought for old Corona games.
+
+The Corona game is played on a wooden board. Coloured plastic pieces are knocked into holes with a wooden stick, the holes are in the corners of the game board.
+
+The Corona game has been made in Finland for more than 75 years.

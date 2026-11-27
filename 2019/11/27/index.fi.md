@@ -1,0 +1,73 @@
+# Keskiviikko 27.11.2019 (radio)
+
+Postilakko on loppunut. Jouluposti ehtii ajoissa perille. Pajtim Statovci on voittanut kirjallisuuden Finlandia-palkinnon. Sää on sateinen.
+
+## Postilakko loppui
+
+![postilakko ](https://img.img-cdn.yle.fi/crop_extract,w_2048,h_1152,x_0,y_192/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6162355dde342555d0c/1574843835)
+
+Avaa kuvien katselu
+
+Postilaiset ovat tyytyväisiä, koska sopimus syntyi. Kuva: Jani Aarnio / Yle 
+
+Postilakko on loppunut. Työnantajien ja työntekijöiden järjestöt hyväksyivät uuden sopimuksen keskiviikkona. Sopimus määrää alan palkat ja työajan.
+
+Postilakko loppuu heti, ja Postin työntekijät palaavat töihin niin pian kuin mahdollista. Lakossa on ollut esimerkiksi postinjakajia.
+
+Postilakko kesti yli 2 viikkoa. Postialan työntekijät saivat lakon aikana tukea muiden alojen työntekijöiltä. Tukilakot esimerkiksi pysäyttivät osan liikenteestä maanantaina. Nyt myös tukilakot peruuntuvat ja loppuvat.
+
+## Jouluposti perille
+
+![Joulupostin kuoria postin lajittelukeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9341936)
+
+Avaa kuvien katselu
+
+Suomalaiset lähettävät jouluna paljon postia. Kuva: Anna Nevalainen / Yle
+
+Postilakon loppuminen tarkoittaa, että jouluposti ehtii ajoissa perille.
+
+Posti yrittää palata normaaliin aikatauluun niin nopeasti kuin mahdollista. Postin työntekijät alkavat heti selvittää ruuhkaa, joka syntyi lakon aikana.
+
+Kestää kuitenkin jonkin aikaa, että lakkoajan postit tulevat perille. Pieni osa postista tulee perille ehkä vasta tammikuun alussa.
+
+## Finlandia-palkinnot
+
+![Pajtim Statovci ja teos Bolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11089309)
+
+Avaa kuvien katselu
+
+Pajtim Statovci sai Finlandia-palkinnon kirjasta Bolla. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Tämän vuoden Finlandia-palkinnot on jaettu. Finlandia-palkinto on Suomen tärkein kirjallisuuspalkinto.
+
+Kaunokirjallisuuden Finlandia-palkinnnon voittaja on Pajtim Statovci. Palkinto tuli Statovcin kirjasta Bolla.
+
+Bolla kertoo rakkaudesta ja haaveista. Kirjan tarina on surullinen, koska taustalla on Kosovon sota.
+
+Pajtim Statovci on 29-vuotias. Hän nuorin kirjailija, joka on voittanut Finlandia-palkinnon.
+
+Statovci on kotoisin Kosovosta. Hän oli 2-vuotias, kun hän muutti perheen mukana Suomeen. Statovci sanoo, että hän yrittää kirjoittamalla selvittää, minkälaisesta paikasta on kotoisin.
+
+Myös paras tietokirja ja paras lastenkirja saivat palkinnon.
+
+![Marisha Rasi-Koskinen (vas.) lasten ja nuorten Finlandian voittaja, tietokirjallisuuden Finlandian voittajat Jenni Räinä, Pekka Juntti, Anssi Jokiranta ja Anna Ruohonen ja kaunokirjallisuuden Finlandia-palkinnon voittaja Pajtim Statovci poseeraavat lavalla palkinnonjakotilaisuudessa Helsingissä 27. marraskuuta 2019. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11090234)
+
+Avaa kuvien katselu
+
+Marisha Rasi-Koskinen (vasemmalla) sai palkinnon kirjasta Auringon pimeä puoli. Jenni Räinä, Pekka Juntti, Anssi Jokiranta ja Anna Ruohonen saivat palkinnon kirjasta Metsä meidän jälkeemme. Pajtim Statovci sai palkinnon kirjasta Bolla. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Tietokirjallisuuden Finlandia-palkinto meni kirjalle Metsä meidän jälkeemme. Se kertoo metsästä ja suomalaisten suhteesta metsään.
+
+Lasten- ja nuortenkirjallisuuden Finlandia-palkinto meni kirjalle Auringon pimeä puoli. Kirjassa esimerkiksi matkustetaan ajassa.
+
+## Sateinen torstai
+
+![Lumisateinen syysmaisema Joensuun Heinävaarassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11026161)
+
+Avaa kuvien katselu
+
+Torstaina Suomessa sataa lunta, räntää ja vettä. Kuva: Ismo Pekkarinen / AOP
+
+Sää on sateinen. Torstaina sataa melkein koko maassa.
+
+Pohjoisessa sataa lunta, ja lunta voi tulla yli 10 senttimetriä. Maan etelä- ja länsiosassa sateet ovat vettä tai räntää, koska lämpötila on nollan yläpuolella.

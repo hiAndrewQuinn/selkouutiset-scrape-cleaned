@@ -1,0 +1,59 @@
+# Sunnuntai 3.4.2016 (radio)
+
+Suomalaiset luottavat oman työpaikan säilymiseen. Talvirenkaiden vaihto kesärenkaisiin on alkanut Suomen eteläosassa. Brysselin lentokenttä avattiin. Lontoon poliisi etsii harvinaista murtovarasta.
+
+## Suomessa luotetaan työpaikan säilymiseen
+
+![Tilastografiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8784502)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Suomalaiset luottavat oman työpaikan säilymiseen. Yle tilasi kyselyn, jossa selvitettiin, kuinka varma oma työpaikka suomalaisten mielestä on.
+
+Kyselyn mukaan yli 82 prosenttia suomalaisista ajattelee, että oma työpaikka on varma tai melko varma. Viime joulukuussa  tehtiin sama kysely. Silloin näin ajatteli 77 prosenttia. 
+
+Nuoret kuitenkin ajattelevat melko paljon niin, että oma työpaikka voi olla epävarma. Nuoret pelkäävät, että jos firma joutuu vaikeuksiin, firma irtisanoo ensin nuoria.
+
+## Talvirenkaita vaihdetaan kesärenkaisiin
+
+![Renkaanpainetta mitataan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8784093)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Autoilijat vaihtavat Etelä-Suomessa nyt talvirenkaita kesärenkaisiin. Kesärenkaat vaihdetaan nykyään usein rengasfirmassa, vaikka ne saa vaihtaa myös itse. Moni vaihtaa renkaat ammattifirmassa, koska se on nopeaa ja renkaat vaihtaa ammattilainen.
+
+Monet rengasliikkeet voivat myös säilyttää kesärenkaita talvella rengashotellissa. Esimerkiksi Helsingin seudulla ne ovat tosi suosittuja.
+
+Autoilijan täytyy muistaa, että kesärengas ei saa olla kulunut liikaa. Jos rengas on kulunut liikaa, rengas tekee autosta vaarallisen liikenteessä, kun tiellä on vettä.
+
+## Brysselin lentokenttä avautui liikenteelle
+
+![Poliisit tarkastavat lentokentälle saapuvia ajoneuvoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8774671)
+
+Avaa kuvien katselu
+
+Poliisit tarkastavat lentokentälle saapuvia ajoneuvoja 29. maaliskuuta. Kuva: Laurent Dubrule / EPA
+
+Belgiassa Brysselin lentokenttä toimii taas. Liikenne jouduttiin lopettamaan, kun Brysselin Zaventemin lentokentällä tehtiin terrori-isku melkein kaksi viikkoa sitten.
+
+Liikennettä on ensin vähän mutta se alkaa vilkastua lähipäivinä. Suomalainen Finnair ei lennä vielä Zaventemiin. Finnair aikoo aloittaa Brysselin lennot keskiviikkona.
+
+## Lontoossa etsitään Wimbledonin hiipparia
+
+![Turvakameran kuvaa varkaasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8784407)
+
+Avaa kuvien katselu
+
+Turvakameran kuvaa varkaasta. Kuva: AOP
+
+Sitten vähän erilainen uutisaihe. Lontoossa poliisi yrittää saada kiinni harvinaisen murtovarkaan. Varas on murtautunut koteihin jo yli kymmenen vuoden ajan ja on vieläkin vapaa. Poliisi sanoo, että murtovaras on ryöstänyt tavaraa noin 12 miljoonan euron arvosta.
+
+Varas on tehnyt yli 200 murtoa. Lehdistö on antanut murtovarkaalle lempinimen Wimbledonin hiippari, koska mies on tehnyt murtoja paljon Wimbledonin kaupunginosassa. Se on kallis asuinalue.
+
+Mies on murtautunut monta kertaa esimerkiksi tennistähti Boris Beckerin kotiin.
+
+Viranomaiset myöntävät, että murtovaras on taitava. Poliisi kuitenkin uskoo, että murtovaras jää vielä kiinni. Lontoossa kerrotaan, että poliisi on piiloutunut esimerkiksi puuhun, kun se on yrittänyt saada kiinni Wimbledonin hiipparia.

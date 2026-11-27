@@ -1,0 +1,59 @@
+# Keskiviikko 11.11.2015
+
+Vain pieni osa turvapaikanhakijoista saa turvapaikan. Puhu selkokieltä! -kampanja alkoi. Kiinalainen Liutao Gao on oppinut suomea myymälätyössä. Lapissa on jo paljon lunta.
+
+## Vain osa turvapaikanhakijoista saa turvapaikan
+
+![Turvapaikanhakijoita Tornion järjestelykeskuksen edessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8384356)
+
+Avaa kuvien katselu
+
+Suomeen on tullut tänä vuonna 27 000 turvapaikanhakijaa. Kuva: Kati Teirikko / Yle
+
+Vain pieni osa tämän vuoden turvapaikanhakijoista saa Suomesta turvapaikan. Viranomaiset sanovat, että yli 60 prosenttia turvapaikanhakijoista saa Suomessa kielteisen päätöksen.
+
+Se tarkoittaa, että jos turvapaikanhakijoita on kolme, vain yksi saa turvapaikan. Suomeen on tullut tänä vuonna 27 000 turvapaikanhakijaa.
+
+Viime aikoina turvapaikanhakijoiden määrä on alkanut taas kasvaa. Eniten Suomeen tulee nyt afganistanilaisia.
+
+Suomen sisäministeri Petteri Orpo sanoo, että suuri osa turvapaikanhakijoista hakee Suomesta vain hyvää elintasoa eli rikkaampaa elämää.
+
+## Puhu selkokieltä! -kampanja alkoi
+
+![Puhu selkokieltä! -kampanjan avaus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8448608)
+
+Avaa kuvien katselu
+
+Puhu selkokieltä! -kampanjan avajaistilaisuus oli keskiviikkona. Tilaisuudessa olivat mukana myös Työ- ja elinkeinoministeriön erityisasiantuntija Hanna-Maria Hyttinen ja SAK:n maahanmuuttoasioiden asiantuntija Eve Kyntäjä (keskellä). Oikealla Selkokeskuksen kehittämispäällikkö Leealaura Leskelä. Kuva: Kaisa Kaatra / Selkokeskus
+
+Jokainen voi puhua selkokieltä turvapaikanhakijoiden ja maahanmuuttajien kanssa. Selkokeskus ja Yle Uutiset selkosuomeksi ovat aloittaneet kampanjan selkokielen eli helpon suomen kielen puolesta. Kampanja alkoi keskiviikkona.
+
+Kampanjassa sanotaan, että työpaikka on hyvä tapa oppia kieltä. Selkokieli auttaa maahanmuuttajaa kotoutumisessa Suomeen. Työpaikalla kannattaa puhua helppoa suomea eikä aina vaihtaa kieltä englanniksi.
+
+Kampanjalla on nettisivu, jossa annetaan neuvoja selkokielen käyttämiseen. Sivulla on myös työelämän vaikeita sanoja, jotka on kirjoitettu selkokielellä. Verkkosivun osoite on www.selkokeskus.fi/puhu-selkokielta.
+
+## Liutao Gao menestyy työssä
+
+![Mika Koskinen ja Liutao Gao.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8448619)
+
+Avaa kuvien katselu
+
+Mika Koskinen ja Liutao Gao saivat Puhu selkokieltä! -kampanjan huoneen taulut, joissa on vinkkejä selkokieleen. Kuva: Kaisa Kaatra / Selkokeskus
+
+Kiinalainen Liutao Gao on oppinut suomea myymälätyössä. Gao muutti Suomeen 2,5 vuotta sitten, ja hän on tehnyt myymälätyötä vuoden ajan. Gao on tyytyväinen, että pomo on puhunut hänen kanssaan aina suomea.
+
+Liutao Gaon pomo Mika Koskinen otti Gaon töihin työharjoittelun jälkeen. Koskinen opettaa Gaolle uusia sanoja koko ajan, ja hän kehuu, kuinka nopeasti Gao oppii suomea. Myös asiakkaat ovat Gaon työhön tyytyväisiä, pienet kielivirheet eivät haittaa ketään, Koskinen sanoo.
+
+Liutao Gao ja Mika Koskinen tekevät työtä S-market Vallilassa Helsingissä. Se oli ensimmäinen työpaikka, joka osallistui Puhu selkokieltä! -kampanjaan.
+
+## Pohjoisessa on jo lunta
+
+![Luminen maisema Kuusamossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8447360)
+
+Avaa kuvien katselu
+
+Kuusamossa maa on jo valkoinen. Kuva: Ensio Karjalainen / Yle
+
+Suomen pohjoisessa osassa eli Lapissa on jo paljon lunta. Lunta voi olla Lapissa yli 20 senttimetriä.
+
+Lapissa satoi lunta tiistain ja keskiviikon välisenä yönä melko paljon. Esimerkiksi Kemijärvellä ja Sodankylässä lunta oli keskiviikkoaamuna 24 senttimetriä.

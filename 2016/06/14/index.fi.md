@@ -1,0 +1,71 @@
+# Tiistai 14.6.2016 (radio)
+
+Nimet alle kilpailukykysopimukseen. Diabeteslääke estää sydän- ja verisuonitauteja. Vastaanottokeskuksissa hyvä tunnelma. Venäjä joutuu ulos EM-kisoista, jos fanit vielä tappelevat. Ilmastonmuutos tuhosi eläinlajin.
+
+## Nimet alle sopimukseen
+
+![Kesäranta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8240103)
+
+Avaa kuvien katselu
+
+Sopimus allekirjoitettiin Kesärannassa, joka on pääministerin virka-asunto. Kuva: Tina Lundán / Yle
+
+Työntekijöiden ja työnantajien liitot allekirjoittivat tiistaina kilpailukykysopimuksen.
+
+Sopimus jää historiaan, koska se huonontaa työehtoja. Yleensä sopimukset nostavat palkkoja tai parantavat muita työehtoja. Työaika pitenee nyt 24 tuntia vuodessa, mutta palkka pysyy samana. Sopimuksesta neuvoteltiin yli vuosi.
+
+Suomen hallitus ja firmat toivovat, että firmat pystyvät nyt kilpailemaan paremmin ulkomaisten firmojen kanssa.
+
+## Diabeteslääke auttaa sydäntäkin
+
+![Naiselta otetaan verikoetta lääkärissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7168119)
+
+Avaa kuvien katselu
+
+Hoitaja ottaa verikokeen sormesta. Kuva: Yle
+
+Diabeteslääke estää ehkä sydän- ja verisuonitauteja.
+
+Yhdysvaltalainen tutkimus näytti, että jo käytössä oleva lääke vähensi kakkostyypin diabetespotilaiden kuolemia sydän- ja verisuonitauteihin. Diabetespotilaiden ryhmässä, joka söi lääkettä, oli 22 prosenttia vähemmän sydän- ja verisuonikuolemia kuin muilla diabetespotilailla.
+
+Ihmisistä, joilla on diabetes, 75 prosenttia kuolee sydän- ja verisuonitauteihin.
+
+## Vastaanottokeskuksissa hyvä tunnelma
+
+![Kylttejä pöydällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8416233)
+
+Avaa kuvien katselu
+
+Vastaanottokeskuksissa on usein hyvä yhteishenki. Kuva: Anu Rummukainen / Yle
+
+Yle kysyi turvapaikanhakijoiden vastaanottokeskusten työntekijöiltä, minkälainen tunnelma keskuksissa on.
+
+Työntekijät sanoivat, että tunnelma on hyvä. Joskus tunnelma on huonompi, koska ihmiset väsyvät odottamaan. Melkein kaikki odottavat päätöstä siitä, saavatko he turvapaikan eli saavatko he jäädä Suomeen.
+
+Vastaanottokeskusten työntekijät sanovat, että myöhemmin kesällä tunnelma on ehkä vähän huonompi, koska monelle Suomen viranomaiset sanovat "ei". Heidän, jotka eivät saa turvapaikkaa, pitää lähteä Suomesta.
+
+## Venäjä ulos, jos fanit tappelevat
+
+![Venäjän fanit Marseillessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8956245)
+
+Avaa kuvien katselu
+
+Venäjän faneja Marseilles'ssa. Kuva: EPA
+
+Venäjän joukkue joutuu ulos jalkapallon EM-kisoista, jos joukkueen fanit tappelevat vielä stadioneilla.
+
+Euroopan jalkapalloliitto UEFA antoi Venäjän joukkueelle myös 150 000 euron sakot. Venäläiset fanit hyökkäsivät lauantaina Englannin fanien kimppuun Marseilles'n stadionilla. Venäläiset ja englantilaiset tappelivat myös kaupungin kaduilla.
+
+## Ilmastonmuutos hävitti lajin
+
+![sukupuuttoon kuollut hiiri](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8955000)
+
+Avaa kuvien katselu
+
+Eläimen tieteellinen nimi on Melomys rubicola. Kuva: Queenslandin osavaltion hallinto
+
+Ilmastonmuutos on ehkä tappanut maailmasta yhden kokonaisen eläinlajin.
+
+Tutkijat eivät löytäneet pieneltä Australian saarelta enää yhtään hiiren näköistä eläintä, joita oli 70-luvulla vielä monta sataa. Saari oli maailman ainoa paikka, missä näitä hiiriä eli.
+
+Saari on kymmenen vuoden aikana jäänyt usein meriveden alle. Merivesi on nykyään korkeammalla kuin ennen, koska maapallon ilma on lämmennyt ja lämpö on sulattanut pohjois- ja etelänavan jäätä. Maapallon ilma lämpenee, koska ihminen polttaa esimerkiksi öljyä.

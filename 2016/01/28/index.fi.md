@@ -1,0 +1,71 @@
+# Torstai 28.1.2016 (radio)
+
+Pitkät työvuorot ja pitkät vapaat ovat hyväksi terveydelle. Zikavirus tarttuu vielä miljooniin ihmisiin. Tuhannet irakilaiset ovat lähteneet Suomesta. Kauhavan vastaanottokeskus julkaisi oman lehden.
+
+## Pitkät työvuorot ovat hyväksi terveydelle
+
+![Mies nojaa metallipajassa suureen kierrejouseen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8559581)
+
+Avaa kuvien katselu
+
+Ainakin tehdastyössä pitkät työvuorot ja pitkät vapaat ovat hyväksi terveydelle. Kuva: Jyrki Lyytikkä / Yle
+
+Pitkät työvuorot ovat paremmat ihmisen terveydelle kuin lyhyet. Ihminen nukkuu ja voi paremmin, jos hän tekee 12 tunnin työvuoroja, kertoo Työterveyslaitoksen uusi tutkimus.
+
+Jos ihminen tekee pitkiä työvuoroja, hän saa myös usempia vapaapäiviä. Pitkillä vapailla ehtii paremmin levätä ja virkistyä, tutkimus kertoo.
+
+Työterveyslaitos tutki työvuorojen merkitystä tehdastyössä.
+
+Tutkimus kertoo, että pitkistä työvuoroista on hyötyä myös työn kannalta. Pitkässä työvuorossa ihmiset ehtivät paremmin hoitaa tehtävänsä loppuun asti.
+
+## Miljoonat ihmiset saavat zikaviruksen
+
+![Kartta, johon on merkitty Zika-viruksen levinneisyys maailmassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8624826)
+
+Avaa kuvien katselu
+
+Zikavirus on levinyt laajalle Etelä- ja Keski-Amerikassa  Kuva: Yle Uutisgrafiikka / Yle
+
+Maailman terveysjärjestö WHO arvioi, että zikavirus tarttuu vielä miljooniin ihmisiin. Järjestö sanoo, että tartunnan saa ehkä noin 3-4 miljoonaa ihmistä.
+
+Zikavirus on vaarallinen naisille, jotka odottavat lasta. Virus voi aiheuttaa lapselle kehityshäiriöitä.
+
+Zikavirus on levinnyt laajalle Etelä- ja Keski-Amerikassa. Hyttyset levittävät zikavirusta. Zikavirusta vastaan ei ole vielä lääkettä.
+
+## Tuhannet irakilaiset ovat lentäneet Turkkiin
+
+![Turvapaikanhakijoita saapumassa Tornion järjestelykeskukseen 25. syyskuuta 2015. Nuoret miehet omassa jonossaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8370842)
+
+Avaa kuvien katselu
+
+Turvapaikanhakjoita Torniossa viime syyskuussa. Kuva: Panu Pohjola / Lehtikuva
+
+Tuhannet turvapaikanhakijat ovat lähteneet pois Suomesta vapaaehtoisesti.
+
+Rajavartiolaitos kertoo, että lokakuun jälkeen noin 3000 turvapaikanhakijaa on lähtenyt Suomesta.
+
+Rajavartiolaitos kertoo, että lähes kaikki ovat olleet irakilaisia. He ovat lentäneet Turkkiin Istanbuliin. Melkein kaikki ovat maksaneet matkalippunsa itse.
+
+Moni turvapaikanhakija on myös voinut lähteä Suomesta johonkin toiseen EU-maahan. Heidän määräänsä ei tiedetä.
+
+## Mamulandian sanomat - juttuja 5 kielellä
+
+![Mamulandian sanomat on Kauhavan vastaanottokeskuksen julkaisu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8630473)
+
+Avaa kuvien katselu
+
+Mamulandian sanomat jaettiin moniin koteihin Etelä-Pohjanmaalla. Kuva: Pasi Takkunen / Yle
+
+Kauhavan vastaanottokeskus on julkaissut oman lehden.  Lehden nimi on Mamulandian sanomat. Se jaettiin torstaina myös satoihin suomalaiskoteihin Etelä-Pohjanmaalla.
+
+![Mamulandian sanomat esittelee Kauhavan vastaanottokeskuksen toimintaa monin kuvin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8630475)
+
+Avaa kuvien katselu
+
+Lehti kertoo 5 kielellä elämästä Kauhavan vastaanottokeskuksessa. Kuva: Pasi Takkunen / Yle
+
+Lehdessä on juttuja, joissa kerrotaan, mitä vastaanottokeskuksessa tapahtuu ja millaista elämä siellä on.
+
+Lehden kaikki jutut on julkaistu 5 kielellä: suomeksi, dariksi, arabiaksi, somaliksi ja kurdin soraniksi.
+
+Turvapaikanhakijat ovat olleet mukana tekemässä lehteä. He ovat esimerkiksi auttaneet juttujen kuvittamisessa ja kääntäneet juttuja omalle äidinkielelleen.

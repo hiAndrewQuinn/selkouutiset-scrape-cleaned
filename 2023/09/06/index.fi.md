@@ -1,0 +1,71 @@
+# Radio Selkouutiset keskiviikko 6.9.2023
+
+Eduskunta. Nordean kasvuennuste. Finnair. Kuumuus. Sää.
+
+## Eduskunta
+
+![Ihmisiä kokoontuneena suuren kivisen rakennuksen portaille.](https://img.img-cdn.yle.fi/crop_extract,w_5376,h_3025,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116727664f5da50bec37/1693835586)
+
+Avaa kuvien katselu
+
+Eduskuntatalo. Kuva: Mimmi Nietula / Yle
+
+Eduskunta on keskustellut hallituksen tiedonannosta, jossa hallitus kertoi toimistaan rasismia vastaan. Oppositiopuolueiden edustajat epäilivät keskustelussa sitä, tekeekö hallitus tosissaan työtä rasismia vastaan.
+
+Oppositiopuolueet SDP, vihreät ja vasemmistoliitto esittävät hallitukselle epäluottamusta. Oppositiopuolue keskusta hyväksyy hallituksen tiedonannon.
+
+Eduskunta äänestää hallituksen ja ministereiden luottamuksesta perjantaina.
+
+## Nordea Suomen taloudesta
+
+![Nordea bank, kontor, skylt där det står Nordea. ](https://img.img-cdn.yle.fi/crop_extract,w_6720,h_3780,x_0,y_259/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115026664c8e69db2194/1690887891)
+
+Avaa kuvien katselu
+
+Nordea-pankki ennustaa, että Suomen talouskasvu jää nollaan. Kuva: Sonja Sajavaara / Yle
+
+Nordea-pankki ennustaa, että Suomen talouskasvu jää nollaan tänä vuonna ja ensi vuonna. Nordea arvioi, että Suomen bruttokansantuote pysyy ennallaan vuosina 2023 ja 2024.
+
+Nordea ennustaa, että inflaatio laskee ensi vuonna 2,1 prosenttiin. Tällä hetkellä inflaatio eli hintojen nousu on paljon tätä nopeampaa.
+
+## Finnair
+
+![Finnairin kone sinisellä taivaalla.](https://img.img-cdn.yle.fi/crop_extract,w_4329,h_2435,x_405,y_240/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115654864db05e72b971/1692075554)
+
+Avaa kuvien katselu
+
+Finnairin lentokone. Kuva: Esko Jämsä / AOP
+
+Lentofirma Finnairin lentokoneiden matkustajamäärä nousi elokuussa, kun matkustajien määrää vertaa vuoden 2022 elokuuhun.
+
+Finnair kuljetti elokuussa noin 976 000 matkustajaa, mikä on noin 10 prosenttia enemmän kuin vuonna 2022. Finnairin lentokoneilla matkusti elokuussa kuitenkin melkein 9 prosenttia vähemmän ihmisiä kuin heinäkuussa.
+
+Finnair kertoo, että Venäjän ilmatilan sulkeminen näkyy Aasian-liikenteessä. Venäjän ilmatila suljettiin sen jälkeen, kun Venäjä hyökkäsi Ukrainaan. Tämän takia Finnair joutuu lentämään Aasiaan pitempää reittiä kuin ennen.
+
+## Kuumuus
+
+![Tiekyltti englanninkielellä, jossa varoitetaan äärimmäisestä kuumuudesta. Taustalla näkyy kuiva ja aurinkoinen aavikko.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114341564b421e461e8b/1689527349)
+
+Avaa kuvien katselu
+
+Kalifornian Death Valleyssä varoitetaan kyltillä äärimmäisestä kuumuudesta (16.7.2023). Kuva: Reuters
+
+Tämä vuosi on kaikkien aikojen kuumin. EU:n ilmastonmuutosta seuraava Copernicus-palvelu sanoo, että esimerkiksi tämän vuoden elokuu oli kuumin koko mittaushistorian aikana.
+
+Kesän aikana helteet, kuivuus ja maastopalot kiusasivat monia maita esimerkiksi Etelä-Eurooppassa.
+
+Kuumuusennätyksiä mitattiin myös Intiassa ja Japanissa. USA:ssa Arizonan osavaltion pääkaupungissa Phoenixissä lämpötila nousi yli 43 asteeseen 18 päivänä peräkkäin.
+
+Myös merivesi lämpeni tänä kesänä enemmän kuin aikaisemmin.
+
+## Sää
+
+![Marjanpoimijoita pellolla. Kesäinen poutapäivä.](https://img.img-cdn.yle.fi/crop_extract,w_5389,h_3031,x_0,y_523/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135154649ad5061c9b1/1687869675)
+
+Avaa kuvien katselu
+
+Sää on poutainen. Kuva: Jani Saikko / Yle
+
+Sää on lähes koko maassa poutainen ja aurinkoinen.
+
+Yölämpötila on 1 ja 10 asteen välillä. Päivälämpötila on torstaina enimmäkseen 14 ja 18 asteen välillä, Pohjois-Lapissa on paikoin viileämpää.

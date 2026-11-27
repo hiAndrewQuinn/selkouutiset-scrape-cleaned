@@ -1,0 +1,59 @@
+# Tiistai 13.4.2021 (radio)
+
+USA aikoo keskeyttää rokotukset Johnson & Johnsonin koronarokotteella. Suomessa on 3 uutta koronakuolemaa. Talven lomamatkat käyvät kaupaksi. WHO suosittaa villieläinten myynnin kieltoa toreilla.
+
+## Johnson & Johnsonin rokote
+
+![Lähikuva rokotteen pistämisestä olkavarteen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11879585)
+
+Avaa kuvien katselu
+
+Lähikuva rokotteen pistämisestä olkavarteen. Kuva: Nic Bothma / EPA
+
+USA:ssa viranomainen suosittelee, että lääkeyhtiö Johnson & Johnsonin koronarokotteen käyttö keskeytetään. Syynä on epäily, että rokote aiheuttaa ehkä veritukoksia.
+
+USA:ssa lähes 7 miljoonaa ihmistä on jo saanut Johnson & Johnsonin rokotteen. 6 naista on saanut rokotuksen jälkeen harvinaisen veritukoksen. 1 nainen on kuollut. Viranomainen haluaa nyt tutkia rokotetta.
+
+Viime viikolla myös EU:n lääkevirasto aloitti tutkimuksen Johnson & Johnsonin rokotteesta. Johnson & Johnsonin rokote on saanut myyntiluvan EU:n alueella. Rokotetta ei kuitenkaan vielä anneta ihmisille EU-maissa.
+
+## Koronatartunnat
+
+![&quot;Korona-näytteenotto&quot; -kyltti Nuijamaan raja-asemalla.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-79093460658dc133616/1617269157)
+
+Avaa kuvien katselu
+
+"Korona-näytteenotto" -kyltti Nuijamaan raja-asemalla. Kuva: Mikko Savolainen / Yle
+
+Suomessa on 286 uutta koronatartuntaa. Uusia tartuntoja on vähän enemmän kuin maanantaina.
+
+Eniten uusia tartuntoja on edelleen Helsingin ja Uudenmaan sairaanhoitopiirissä. Yhteensä korontartuntoja on todettu Suomessa tähän mennessä noin 82 600.
+
+Uusia koronakuolemia on 3. Sairaalahoidossa on koronan takia nyt yhteensä 182 ihmistä. Tehohoidossa on 38 ihmistä.
+
+## Talven lomamatkat
+
+![Kuvassa on näkymä rannalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11454821)
+
+Avaa kuvien katselu
+
+Famagustassa Kyproksella nautittiin auringosta ja merestä viime vuoden kesäkuussa. Kuva: Katia Christodoulou / EPA
+
+Ihmiset ostavat jo paljon lomamatkoja. Suomalaiset ovat ostaneet matkoja ensi talveksi.
+
+Matkoja on ostettu paljon Kreikkaan ja Kanariansaarille. Ihmiset haluavat mennä myös esimerkiksi Thaimaahan ja Malediiveille.
+
+Kesäksi on ostettu vain vähän matkoja. Ihmiset eivät vielä tiedä, miten koronaepidemia kehittyy. Moneen maahan ei ehkä voi matkustaa vielä kesällä. Esimerkiksi monessa Välimeren turistikohteessa on tiukkoja koronarajoituksia.
+
+## Villieläinten kauppa
+
+![Eläintori täynnä ihmisiä.](https://img.img-cdn.yle.fi/crop_extract,w_5760,h_3240,x_0,y_297/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7025875f1d9b0eb7087/1595775839)
+
+Avaa kuvien katselu
+
+Eläintori täynnä ihmisiä. Kuva: Ahmad Kamal / AOP
+
+Maailman terveysjärjestö WHO sanoo, että elävien villieläinten myynti pitää kieltää. WHO sanoo, että eläviä nisäkkäitä ei saa myydä torilla.
+
+Villieläimet levittävät tauteja. Varsinkin villit nisäkkäät levittävät tauteja.
+
+WHO uskoo, että koronavirus tarttui ihmiseen eläimestä. Kiina on jo vähentänyt villieläinten kauppaa.

@@ -1,0 +1,75 @@
+# Perjantai 21.10.2022 (radio)
+
+Stora Enso. Koronavirus. Asuntojen hinnat. Euroviisut. Sää.
+
+## Stora Enso
+
+![Stora Enson kartonkituotantoa Oulun Nuottasaaren tehtaalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12664145)
+
+Avaa kuvien katselu
+
+Kartongista valmistetaan pakkauksia. Kuva: Paulus Markkula / Yle
+
+Metsäfirma Stora Enso uudistaa Oulun paperitehdasta. Stora Enso käyttää uudistukseen miljardi euroa.
+
+Rahat käytetään vanhaan paperikoneeseen, joka ei ole enää käytössä. Paperikone muutetaan kartonkikoneeksi. Muutoksen jälkeen kone valmistaa kartonkia, josta tehdään pakkauksia.
+
+Stora Enso sanoo, että ympäristöystävällisiä pakkauksia myydään nykyään paljon. Niiden myynti kasvaa enemmän kuin muovipakkausten myynti.
+
+## Koronavirus
+
+![Mäkikylän jätevedenpuhdistamo Kouvolassa.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_325/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7173005f5a06190f642/1640691891)
+
+Avaa kuvien katselu
+
+Jätevedestä voidaan tutkia, paljonko koronavirusta on liikkeellä. Kuva: Antro Valo / Yle
+
+Koronavirusta on nyt paljon koko Suomessa. Näin kertoo Terveyden ja hyvinvoinnin laitos eli THL.
+
+Koronaviruksen määrää voidaan tutkia jätevesistä. THL sanoo, että koronaviruksen määrä on kasvanut jätevesissä. Se tarkoittaa, että myös koronatartuntojen määrä on kasvanut.
+
+Koronavirusta on nyt liikkeellä yhtä paljon kuin tämän vuoden alkupuolella. Kesällä koronavirusta oli vähemmän.
+
+Koronatapaukset ovat lisääntyneet nyt syksyllä koko Euroopassa.
+
+## Asuntojen hinnat
+
+![Kolme ihmistä asuntoesittelyssä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10878105)
+
+Avaa kuvien katselu
+
+Moni suomalainen haluaa ostaa oman asunnon. Kuva: Elisa Kinnunen / Yle
+
+Asuntojen hinnat voivat laskea. Pankit ennustavat, että asuntojen hinnat laskevat ensi vuonna 1-5 prosenttia. Syy on se, että taloustilanne muuttuu.
+
+Korona-aikana ihmiset halusivat lisää tilaa etätöiden takia. Samaan aikaan lainojen korot olivat alhaalla. Siksi asunnon ostajia oli paljon, ja asuntojen hinnat nousivat.
+
+Nyt korot nousevat, ja asuntolaina kallistuu. Ihmisillä on vähemmän rahaa asunnon ostoon.
+
+Siksi asuntojen hinnat voivat laskea. Se on hyvä uutinen niille, jotka päättävät ostaa asunnon. He voivat ehkä neuvotella asunnon hintaa alaspäin.
+
+## Euroviisut
+
+![Kalush Orchestra. Bändin jäsenet pitelevät Ukrainan lippua ja Euroviisujen palkintopystiä.](https://img.img-cdn.yle.fi/crop_extract,w_3072,h_1728,x_0,y_320/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9554336281c980d1c2f/1653880903)
+
+Avaa kuvien katselu
+
+Ukraina voitti Euroviisut viime keväänä. Kuva: Alessandro Di Marco / EPA
+
+Ensi vuoden Euroviisuista jää pois 3 maata. Pohjois-Makedonia, Montenegro ja Bulgaria ovat ilmoittaneet, että ne eivät osallistu Euroviisujen laulukilpailuun.
+
+Syynä on raha. Maat maksavat Euroviisuissa osallistumismaksun. Rahaa kuluu myös matkustamiseen ja itse esitykseen.
+
+Seuraavat Euroviisut järjestetään Englannissa Liverpoolissa. Ukraina voitti edelliset Euroviisut, mutta se ei voi järjestää Euroviisuja sodan takia.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12664896)
+
+Avaa kuvien katselu
+
+Viikonloppuna Pohjois-Lapissa tulee lumisateita ja ajokeli on huono. Lauantaina voi idässä sataa vähän vettä.
+
+Muuten sää on poutainen ja pilvinen. Sunnuntai on aurinkoisempi päivä.
+
+Pohjoisessa lämpötila on päivällä lähellä nollaa ja yöllä on pakkasta. Etelässä on päivällä 10 astetta lämmintä ja yöllä lämpötila on lähellä nollaa astetta.

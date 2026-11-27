@@ -1,0 +1,85 @@
+# Perjantai 24.5.2019 (radio)
+
+Ylen toimittaja tapasi suomalaisia naisia Isis-leirillä Syyriassa. Suomi ei aio auttaa Isis-naisia palaamaan Suomeen. Britannian pääministeri Theresa May eroaa. Nuoret ovat osoittaneet ilmastonmuutosta vastaan. Kela aloittaa puhelinpalvelun somalin kielellä. Suomen jääkiekkojoukkue pääsi mukaan MM-mitalipeleihin.
+
+## Isis-leirillä on suomalaisia
+
+![ISIS-leiriltä Syyriassa suomalaisnaisia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10799396)
+
+Avaa kuvien katselu
+
+Suomalaisia naisia Isis-leirillä Syyriassa. Kuva: Yle
+
+Syyrialaisella Isis-leirillä on myös suomalaisia. Ylen toimittaja tapasi suomalaisia naisia Al-Holin leirillä.
+
+Naiset kertoivat, että leirillä on 11 suomalaista naista ja 33 suomalaista lasta. Naiset sanoivat myös, että he haluavat palata Suomeen.
+
+Al-Holin leirillä on yhteensä yli 70 000 ihmistä. Monet ovat Isis-terroristien perheenjäseniä. Perheet vietiin leirille, kun Isis-terroristit hävisivät taistelut.
+
+## Suomi ei auta Isis-naisia
+
+![Sisäministeri Kai Mykkänen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10719267)
+
+Avaa kuvien katselu
+
+Suomen sisäministeri Kai Mykkänen. Kuva: Matti Myller / Yle 
+
+Suomen sisäministeri Kai Mykkänen sanoo, että Suomi ei auta Isis-naisia palaamaan Suomeen.
+
+Mykkäsen mielestä pitää tutkia, ovatko naiset osallistuneet terrorismiin. Mykkänen toivoo, että naiset tuomitaan kansainvälisessä oikeudessa.
+
+Suomi kuitenkin tutkii, miten se voi auttaa Isis-leirin suomalaisia lapsia. Lapset voidaan ehkä tuoda Suomeen, jos se sopii myös lasten äideille.
+
+## Britannian May eroaa
+
+![Theresa May](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10800159)
+
+Avaa kuvien katselu
+
+Britannian pääministeri Theresa May. Kuva: Tolga Akmen / AFP
+
+Britannian pääministeri Theresa May eroaa. May lopettaa pääministerin tehtävät tänä kesänä.
+
+May on epäonnistunut brexitin hoitamisessa. Parlamentti ei ole hyväksynyt Mayn suunnitelmaa siitä, miten Britannia eroaa Euroopan unionista.
+
+Britit äänestivät EU-eron eli brexitin puolesta jo 3 vuotta sitten.
+
+## Nuoret vastustavat ilmastonmuutosta
+
+![Auringoksi pukeutunut mielenosoittaja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10800210)
+
+Avaa kuvien katselu
+
+Nuoret osoittivat mieltä myös Kölnissä, Saksassa. Kuva: Friedemann Vogel / EPA
+
+Nuoret ovat osoittaneet mieltä ilmastonmuutoksen takia monissa maissa. Nuoret haluavat, että päättäjät tekevät enemmän työtä ilmastonmuutosta vastaan.
+
+Mukana oli nuoria yli 100 maassa. Suomessa nuoret veivät ilmastoterveisiä poliitikoille, jotka neuvottelevat uudesta hallituksesta.
+
+## Kela palvelee somaliksi
+
+![Kela](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9768451)
+
+Avaa kuvien katselu
+
+Kuva: Ismo Pekkarinen / AOP
+
+Kela aloittaa puhelinpalvelun somalin kielellä. Somalinkielinen puhelinpalvelu alkaa kesäkuun 10. päivä.
+
+Kela palvelee puhelimessa suomen ja ruotsin lisäksi jo venäjäksi, arabiaksi ja englanniksi.
+
+## Suomi pääsi mitalipeleihin
+
+![Harri Pesonen tekee maskia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10799519)
+
+Avaa kuvien katselu
+
+Suomen ja Ruotsin pelissä oli vauhtia. Kuva: Jussi Nukari / Lehtikuva
+
+Suomen jääkiekkojoukkue eli Leijonat on saanut tärkeän voiton. Leijonat voitti Ruotsin jääkiekon MM-kilpailuissa torstaina.
+
+Voitto tarkoittaa, että Suomi pääsee mukaan mitalipeleihin. Mitalipeleissä on mukana 4 parasta maata.
+
+Suomi pelaa lauantaina Venäjää vastaan. Jos Suomi voittaa, Leijonat pääsee loppuotteluun.
+
+Sunnuntaina selviää, mikä maa on jääkiekon maailmanmestari tänä vuonna.

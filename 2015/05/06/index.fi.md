@@ -1,0 +1,51 @@
+# Keskiviikko 6.5.2015
+
+Suomessa neuvotellaan yhteiskuntasopimuksesta. Suomen kalleinta bensaa myydään Lapissa Inarissa ja halvinta etelässä Loviisassa. GermanWingsin tutkijat kertovat, että turmakoneen perämies harjoitteli maahansyöksyä aikaisemmin samana päivänä.
+
+## Sipilä ja järjestöt neuvottelevat yhteiskuntasopimuksesta
+
+![Keskustan puheenjohtaja Juha Sipilä tiedotustilaisuudessa Sibelius-Akatemiassa eduskunnassa Helsingissä maanantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7971105)
+
+Avaa kuvien katselu
+
+Juha Sipilä aikoo huomenna kertoa, mitkä puolueet yrittävät tehdä Suomen uuden hallituksen. Kuva: Roni Rekomaa / Lehtikuva
+
+Suomen uuden hallituksen muodostaja Juha Sipilä on keskustellut paljon työntekijöiden ja työnantajien järjestöjen kanssa uudesta yhteiskuntasopimuksesta.
+
+Sipilä kertoo, että hän on puhunut  järjestöjen edustajien kanssa koko tiistai-illan ja tämän päivän. Sipilä sanoo, että joistakin asioista voi syntyä sopu mutta jotkut asiat ovat vaikeita.
+
+Sipilä haluaa, että järjestöt kertovat hänelle huomenna torstaina, haluavatko ne osallistua yhteiskuntasopimukseen uuden hallituksen kanssa.
+
+Sipilä haluaa tietää järjestöjen mielipiteen ensin. Sen jälkeen hän kertoo, mitkä puolueet yrittävät muodostaa Suomen uuden hallituksen.
+
+Yhteiskuntasopimus on iso sopimus, jolla halutaan Suomelle lisää kilpailukykyä. Suomalaisille se voi tarkoittaa esimerkiksi pitempiä työpäiviä. 
+
+## Bensa maksaa paljon, vaikka öljy on halpaa
+
+![Grafiikan hintatiedot perustuvat Ylen 4.-5.5. bensa-asemilta keräämiin tietoihin. Osassa kuntia tietoja on kerätty useammalta asemalta, jolloin karttaan on merkattu kunnan bensa-asemien keskiarvohinnat.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7973310)
+
+Avaa kuvien katselu
+
+Yle keräsi bensan ja dieselin hintoja maanantaina ja tiistaina.  Kuva: Yle Uutisgrafiikka
+
+Raakaöljy maksaa maailmalla nykyään vähemmän kuin ennen. Vaikka öljyn hinta on laskenut, bensa maksaa Suomen bensa-asemilla vieläkin aika paljon. Tilastokeskus kertoo, että bensan hinta on laskenut maailmalla jopa 45 prosenttia.
+
+Suomessa bensa-asemilla hinta on laskenut vain 17 prosenttia. Syy on se, että bensan hintaan vaikuttaa myös esimerkiksi verotus.
+
+Yle tutki yli 60 bensa-aseman hinnat tämän viikon alussa. Siinä huomattiin, että kalleinta 95 E -bensa, eli ysivitonen oli Lapissa Inarin Nesteellä. Halvinta se oli etelärannikolla Loviisassa.
+
+Lapissa hinta on korkea, koska bensaa pitää kuljettaa pitkä matka etelästä pohjoiseen.
+
+## Germanwingsin perämies harjoitteli syöksyä
+
+Ranskan television France 2-kanavan valmistama animaatio kertoo Germanwingsin turmalennon etenemisestä. Käännös ja lukija: Mika Hentunen. Kuva: FT2
+
+Saksalaisen lentoyhtiö Germanwingsin turman tutkijat ovat kertoneet uusia tietoja lentokoneesta, joka ohjattiin tahallaan vuorta päin.
+
+Tutkijat ovat saaneet selville, että Germanwingsin lentokoneen perämies Andreas Lubitz harjoitteli syöksyä aikaisemmin. He ovat tutkineet lentokoneen mustia laatikoita, joissa on tietoja koneen toiminnasta.
+
+Perämies harjoitteli saman päivän toisella lennolla, kuinka hän voi ohjata koneen syöksyyn. Hän oli myös silloin ohjaamossa yksin.
+
+Perämies aloitti monta kertaa koneen ohjaamisen alas. Sitten hän ohjasi koneen takaisin ylös. Lentokoneen korkeuden muutokset olivat niin pieniä, että niitä oli vaikea huomata.
+
+Kun perämies Andreas Lubitz ohjasi lentokoneen myöhemmin päivällä vuoreen, 150 ihmistä kuoli. Turma tapahtui maaliskuussa.

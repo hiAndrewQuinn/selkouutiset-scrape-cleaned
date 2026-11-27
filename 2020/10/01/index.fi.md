@@ -1,0 +1,5 @@
+# Torstai 1.10.2020 (tv)
+
+Suomen koronatilanne. Ravintola-alan työpaikat. Tampereen patsaat. Säätietoja.
+
+Yle Uutiset selkosuomeksi

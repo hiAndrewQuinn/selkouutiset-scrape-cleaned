@@ -1,0 +1,91 @@
+# Keskiviikko 11.10.2017 (radio)
+
+Etelä-Suomen tulvat jatkuvat. Espanja vaatii Katalonialta selvitystä itsenäisyysjulistuksesta. YK: Myanmar estää rohingya-väestön paluun. Tytöt nousivat tänään johtajiksi ympäri maailmaa. Niklas Herlin on kuollut.
+
+## Tulvat pahenevat Etelä-Suomessa
+
+![Ruuhkaa ja tulvavettä Turun moottoritiellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9877155)
+
+Avaa kuvien katselu
+
+Tulvavesi aiheutti ruuhkia Turunväylällä. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Etelä-Suomessa tulvat ovat pahentuneet keskiviikon aikana.
+
+Turunväylällä on ollut pahoja liikenneruuhkia, koska Espoon kohdalla on noussut paljon vettä tielle.
+
+Turunväylä on yksi Suomen vilkkaimmista moottoriteistä. Myös Länsi-Vantaalla ja Sipoossa on noussut paljon vettä tielle.
+
+Riihimäellä joesta on tulvinut vettä kerrostalojen kellareihin.
+
+Tulvat voivat jatkua viikonloppuun asti.
+
+## Espanja vaatii vastauksia Katalonialta
+
+![Espanjan pääministeri Mariano Rajoy](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9877105)
+
+Avaa kuvien katselu
+
+Espanjan hallitus piti varhain keskiviikkona hätäkokouksen pääministeri Mariano Rajoyn johdolla. Kuva: Cesar P. Sendra / EPA
+
+Espanjan pääministeri haluaa vielä kuulla, onko Katalonia julistautunut itsenäiseksi.
+
+Espanjan pääministeri sanoo, että hän on kysynyt asiaa Katalonian aluehallinnolta.
+
+Katalonian aluehallinto ilmoitti eilen, että se lykkää itsenäisyysjulistusta ja haluaa neuvotella ensin Espanjan hallituksen kanssa.
+
+Espanja aikoo ryhtyä vastatoimiin, jos Katalonia julistautuu itsenäiseksi.
+
+Katalonialaiset äänestivät kansanäänestyksessä yli viikko sitten, että he haluavat Katalonian itsenäiseksi. Äänestämässä kävi kuitenkin vain 40 prosenttia katalonialaisista.
+
+## YK: Myanmar yrittää estää rohingya-väestön paluun maahan
+
+![Nukkuvia rohingyapakolaisia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9877698)
+
+Avaa kuvien katselu
+
+Sadattuhannet rohingyat ovat paenneet Myanmarin armeijan julmuuksia. Kuva: Abir Abdullah / EPA-EFE
+
+Myanmar yrittää ajaa rohingya-muslimit pysyvästi pois maasta, sanoo YK.
+
+YK sanoo, että Myanmarin armeija on terrorisoinut rohingya-väestöä järjestelmällisesti. Rohingyat ovat kertoneet, että sotilaat ovat tehneet mm. joukkosurmia.
+
+Yli puoli miljoonaa rohingyaa on paennut Bangladeshiin elokuun jälkeen.
+
+YK:n mukaan Myanmarin armeija on laittanut Bangladeshin rajalle miinoja, jotta rohingyat eivät pääse takaisin kotiin, Rakhinen maakuntaan.
+
+## Tyttöjen päivänä tytöt ottivat vallan
+
+![Girl Takeover -päivän tytöt tuulettavat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9872135)
+
+Avaa kuvien katselu
+
+Tytöt ympäri maailmaa osoittivat tänään, että he ovat hyviä johtajia. Kuva: Plan International Suomi
+
+Tänään on vietetty tyttöjen päivää eri puolilla maailmaa.
+
+Lastenoikeusjärjestö Plan on järjestänyt tyttöjen päivänä Girls Takeover -tapahtuman, jossa tytöt ovat olleet yhteiskunnan johtopaikoilla.
+
+![Maailman 500 vaikutusvaltaisimman yrityksen toimitusjohtajista naisia on 6,2 %](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9870025)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Suomessa tytöt ovat olleet johtajina esimerkiksi peliyhtiö Supercellissä ja jääkiekon SM-liigassa. Myös pääministeri Juha Sipilän sijaisena on ollut tänään nuori tyttö.
+
+Tapahtuman tavoitteena on muistuttaa, että monia tyttöjä syrjitään ympäri maailmaa. Samalla halutaan myös nostaa esiin tyttöjen voimaa ja mahdollisuuksia.
+
+## Mahtisuvun Niklas Herlin on kuollut
+
+![Niklas Herlin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9877113)
+
+Avaa kuvien katselu
+
+Niklas Herlin teki pitkän uran suomalaisessa mediassa. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Kirjakustantaja, toimittaja ja tietokirjailija Niklas Herlin on kuollut.
+
+Herlin kuoli äkillisesti 53-vuotiaana.
+
+Herlin oli yksi Suomen rikkaimmista miehistä, sillä hän kuului hissiyhtiö Koneen omistajasukuun.

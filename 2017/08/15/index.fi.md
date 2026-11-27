@@ -1,0 +1,27 @@
+# Tiistai 15.8.2017 (radio)
+
+Veturinkuljettajat ovat lakossa. 18-vuotiaita miehiä kutsutaan varusmiespalvelukseen. Irakin armeija valmistautuu hyökkäykseen. Nigeriassa kokeillaan ruoan kierrättämistä. Facebookin Marketplace tulee Suomeen.
+
+## Veturinkuljettajat ovat tänään lakossa
+
+Veturinkuljettajat ovat olleet tänään lakossa.  Matkustajajunat eivät ole kulkeneet lainkaan.  Veturinkuljettajat ovat luvanneet, että he palaavat töihin kello 24.  Sen jälkeen junat kulkevat taas normaalisti.
+
+## 18-vuotiaita miehiä kutsutaan varusmiespalvelukseen
+
+Suomen puolustusvoimat kutsuu miehiä varusmiespalvelukseen. Tänä vuonna kutsutaan vuonna 1999 syntyneet miehet, jotka ovat Suomen kansalaisia. He ovat saaneet kirjeen asiasta.
+
+Kutsuntatilaisuudessa tutkitaan miehen terveys. Hän voi myös kertoa, mihin varuskuntaan haluaa mennä. Kutsuntatilaisuudessa mies voi myös ilmoittaa, jos hän ei halua suorittaa varusmiespalvelusta esimerkiksi uskonnon takia. Suomessa varusmiespalveluksen voi suorittaa myös ilman asetta.
+
+## Irakin armeija valmistautuu hyökkäykseen
+
+Irakissa armeija aikoo hyökätä Isis-terroristijärjestöä vastaan. Armeija aikoo hyökätä Tal Afarin kaupunkiin. Isis on pitänyt kaupunkia hallussaan. Kaupunki sijaitsee lähellä Syyrian rajaa.  Irakin ilmavoimat ovat pommittaneet Isisin kohteita.
+
+## Nigeriassa kierrätetään ruokaa
+
+Länsi-Afrikassa Nigeriassa kokeillaan ruoan kierrättämistä. Kauppias voi ilmoittaa verkkosivulla, että hän voi lahjoittaa ruokaa. Hyväntekeväisyysjärjestöt vievät sitten ruokaa ihmisille, jotka tarvitsevat apua.
+
+Kauppias ei voi myydä tuotetta, jos sen parasta ennen -päiväys on jo mennyt. Usein tuotetta voi kuitenkin ihan hyvin käyttää. Nigeriassa heitetään paljon ruokaa roskikseen tai jätetään kadulle mätänemään.
+
+## Facebookin Marketplace tulee Suomeen
+
+Pian myös Suomessa voi käyttää yhteisöpalvelu Facebookin kauppapaikka-toimintoa. Facebookilla on oma kauppapaikka, jossa voi ostaa ja myydä tavaroita. Sen nimi on Marketplace. Sitä ei ole ennen voinut käyttää Suomessa.

@@ -1,0 +1,63 @@
+# Sunnuntai 3.5.2020 (radio)
+
+Koronarajoituksia vähennetään Euroopassa. USA:ssa koronavirus leviää vankiloissa. Suomessa leivotaan nyt paljon. Sääennusteet ovat epätarkempia.
+
+## Koronarajoituksia vähennetään Euroopassa
+
+![Kuvassa on näkymä Barcelonan kaupunkiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11327678)
+
+Avaa kuvien katselu
+
+Näkymä Barcelonaan Espanjassa. Kuva: Pau Barrena / AFP
+
+Monissa Euroopan maissa vähennetään koronavirusrajoituksia. Esimerkiksi Italiassa ihmiset voivat maanantaista lähtien tavata sukulaisia ja hakea ruokaa ravintoloista.
+
+Myös Puolassa, Unkarissa ja Sloveniassa osa firmoista saa avata ovet alkavalla viikolla.
+
+Saksassa hallitus päättää keskiviikkona, avataanko Saksassa koulut ja ravintolat.
+
+Espanjassa kotikaranteenia helpotettiin lauantaina ja espanjalaiset pääsevät nyt ulkoilemaan 7 viikon jälkeen.
+
+Myös Suomessa hallitus on keskustellut sunnuntaina siitä, mitä rajoituksia voidaan purkaa ja milloin. Jo aikaisemmin viikolla hallitus kertoi, että koulut avataan 14. toukokuuta.
+
+## USA:n vankiloissa paljon koronatartuntoja
+
+![Vangin kädet vankilan ikkunassa tekstin alla jossa lukee &quot;help, we matter&quot;.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11333245)
+
+Avaa kuvien katselu
+
+Vangin kädet vankilan ikkunassa USA:ssa.  Kuva: Tannen Maury / EPA
+
+USA:ssa koronaepidemia leviää nopeasti vankiloissa. Joissakin USA:n vankiloissa 80 % vangeista on sairastunut tautiin, jonka koronavirus aiheuttaa.
+
+Monissa USA:n vankiloissa on ahdasta, koska vankeja on paljon. Koronavirus leviää niissä helposti.
+
+USA:ssa monet vankilat ovat yksityisiä firmoja. Ne eivät halua tehdä vangeille koronavirustestejä, koska testit maksavat paljon. USA:n vankiloissa on 2,3 miljoonaa vankia.
+
+## Asfalttityöt alkoivat
+
+![Asfalttityöntekijöitä tekemässä asfalttitöitä Lohjalla Koisjärven kylässä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6688525ea7f02879286/1588064374)
+
+Avaa kuvien katselu
+
+Asfalttittöitä Lohjalla Koisjärven kylässä. Kuva: Toni Määttä / Yle
+
+Kesän asfalttityöt ovat alkaneet Suomessa. Tietä päällystetään tänä kesänä Suomessa noin 4000 kilometriä eli paljon enemmän kuin moneen vuoteen.
+
+Isoin asfalttityö on Nelostiellä, jossa päällystetään tieosuus Orimattilan liittymästä Vierumäelle. Tieosuus on noin 50 kilometriä pitkä.
+
+Asfaltin hinta on laskenut, koska öljyn hinta on laskenut. Jos öljyn hinta pysyy matalalla, Suomessa voidaan tehdä loppukesällä vielä vähän lisää asfalttitöitä.
+
+## Suomessa leivotaan nyt paljon
+
+![kädet vaivaavat taikinaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10436195)
+
+Avaa kuvien katselu
+
+Tässä vaivataan hapanjuuritaikinaa. Siihen ei käytetä hiivaa. Kuva: Pyry Sarkiola / Yle
+
+Suomalaiset leipovat nyt paljon, koska kotona pitää olla paljon. Suomalaiset ovat ostaneet jauhoja kolme kertaa niin paljon kuin tavallisesti. Myös hiivaa on myyty kaupoissa paljon.
+
+Monet suomalaiset leipovat nyt esimerkiksi pullaa tai pataleipää. Monet jakavat reseptejä ja kertovat, mitä ovat leiponeet. Monet kokeilevat leipoa jotakin uutta, esimerkiksi leipää, joka tehdään hapanjuureen eli ilman hiivaa.
+
+Monet ihmiset tykkäävät leipoa. Leipominen palkitsee, kun saa syödä leipää tai pullaa, jonka on itse tehnyt.

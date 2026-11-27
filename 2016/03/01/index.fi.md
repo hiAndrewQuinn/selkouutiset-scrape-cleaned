@@ -1,0 +1,71 @@
+# Tiistai 1.3.2016 (radio)
+
+Päätoimittajat puhuvat luotettavan journalismin puolesta. Calais'n pakolaisleiriä puretaan. Yhdysvaltain presidenttiehdokaskilvassa supertiistai. Maailman suurimmat pönttötalkoot ovat alkaneet.
+
+## Päätoimittajat puhuvat luotettavan journalismin puolesta
+
+![Kasa suomalaisia sanomalehtiä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8709318)
+
+Avaa kuvien katselu
+
+Päätoimittajat puolustavat luotettavaa journalismia ja varoittavat valemediasta. Kuva: Yle
+
+Suomalaiset päätoimittajat vetoavat luotettavan journalismin ja median puolesta. Yli 20 päätoimittajaa on allekirjoittanut kannanoton, jossa vastustetaan valemedian toimintatapaa.
+
+Valemedia tarkoittaa sellaisia internetsivustoja, joilla kerrotaan tahallaan väärää tietoa ja puhutaan ihmisistä pahaa. 
+
+Valemedia on viime aikoina hyökännyt useita toimittajia vastaan. Toimittajista on puhuttu pahaa ja heitä on häiritty monella tavalla.
+
+Päätoimittajat sanovat, että toimittajat jatkavat työtään tavalliseen tapaan valemedian hyökkäyksistä huolimatta.
+
+## Calais'n pakolaisleiriä puretaan
+
+![Mies kävelee vesilätäköiden ja telttojen välissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8694544)
+
+Avaa kuvien katselu
+
+Calais'n pakolaisleirissä asuu tuhansia ihmisiä. Kuva: Julien Warnand / EPA
+
+Ranska on aloittanut pakolaisleirin purkamisen Calais'ssa. Calais'n leirillä asuu noin 4000 pakolaista, jotka yrittävät päästä Britanniaan.
+
+Leirillä puhkesi mellakoita, kun pakolaisten asuntoja alettiin purkaa.
+
+Belgia on käännyttänyt satoja turvapaikanhakijoita takaisin Ranskaan. Se pelkää, että Calais´n pakolaisleirin asukkaat tulevat Belgiaan.
+
+## Yhdysvaltain presidenttiehdokaskilvassa supertiistai
+
+![Republikaanien esivaaliehdokkaat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8709033)
+
+Avaa kuvien katselu
+
+Donald Trump, Marco Rubio ja Ted Cruz haluavat republikaanipuolueen presidenttiehdokkaaksi. Kuva: Yle Uutisgrafiikka
+
+Monessa Yhdysvaltain osavaltiossa äänestetään tiistaina presidentinvaalien esivaaleissa. Tiistaita sanotaan supertiistaiksi, koska silloin demokraatit ja republikaanit järjestävät esivaalit samaan aikaan 11 osavaltiossa.
+
+![Demokraattien esivaaliehdokkaat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8709036)
+
+Avaa kuvien katselu
+
+Hillary Clinton ja Bernie Sanders pyrkivät demokraattien presidenttiehdokkaaksi. Kuva: Yle Uutisgrafiikka
+
+Esivaaleissa äänestetään siitä, kenestä tulee puolueen ehdokas presidentinvaaleihin. Supertiistain ennakkosuosikki on republikaaneilla liikemies Donald Trump ja demokraateilla entinen ulkoministeri Hillary Clinton.
+
+Puolueiden presidenttiehdokkaat ovat usein ratkenneet juuri supertiistaina.
+
+Yhdyvalloissa pidetään presidentinvaalit ensi marraskuussa.
+
+## Maailman suurimmat pönttötalkoot ovat alkaneet
+
+![Linnunpönttö koivussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5532491)
+
+Avaa kuvien katselu
+
+Linnunpönttöjä tarvitaan, koska linnuilla on pulaa pesäkoloista. Kuva: YLE / Jouko Uschanoff
+
+Suomessa alkaa tänään kampanja, jonka avulla halutaan helpottaa lintujen pesintää. Tavoitteena on rakentaa miljoona linnunpönttöä vuoden 2017 kevääseen mennessä.
+
+Pöntöt auttavat kolopesijöitä eli sellaisia lintuja, jotka tekevät pesänsä puun koloon tai onkaloon. Kolopesijöitä ovat esimerkiksi monet tiaset, pöllöt ja tikat. Niiden on nykyään vaikeaa löytää hyvää pesäkoloa, koska vanhat puut on kaadettu metsistä pois.
+
+Pönttöjä toivotaan myös kaupunkeihin. Esimerkiksi Helsinki on päättänyt, että linnunpönttöjä saa laittaa kaupungin puistoihin.
+
+Presidentti Sauli Niinistö ja hänen vaimonsa Jenni Haukio nikkaroivat kampanjan ensimmäiset linnunpöntöt.

@@ -1,0 +1,65 @@
+# Torstai 3.8.2017 (radio)
+
+Asuntojen vuokrat nousevat Suomessa. Matkatoimistot myyvät paljon matkoja kylmän kesän jälkeen. Katseessa on voimaa. Suomen kielen yhdyssanat ovat vaikeita.
+
+## Kalliit vuokrat
+
+![Yksiö Viitatornissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6685383)
+
+Avaa kuvien katselu
+
+Monet etsivät pientä vuokra-asuntoa. Kuva: Matti Myller / Yle
+
+Asuntojen vuokrat nousevat Suomessa. Kesän alussa vuokrat olivat 2,5 prosenttia suurempia kuin vuosi sitten.
+
+Suurimmat vuokrat löytyvät Helsingin seudulta. Siellä keskimääräinen vuokra on jo yli 18 euroa asunnon neliötä kohti.
+
+Suomessa on liian vähän pieniä vuokra-asuntoja. Siksi yksiöiden neliövuokrat ovat kalliimpia kuin isojen asuntojen neliövuokrat.
+
+## Suomalaisten lomamatkat
+
+![Auringonpalvominen ja etenkin ihon polttaminen altistavat melanoomalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6556606)
+
+Avaa kuvien katselu
+
+Suomalainen haluaa talvella etelään, jos kesä kotona oli kylmä. Kuva: Pekka Sipilä / Yle
+
+Matkatoimistot myyvät nyt paljon matkoja. Suomalaiset haluavat matkustaa ensi syksynä tai talvena etelään, koska kesä on ollut Suomessa kylmä.
+
+Suurin osa syksyn matkoista on jo myyty. Syysloman aikana monet suomalaiset matkustavat esimerkiksi Kreikan saarille tai Espanjaan.
+
+Myös talven matkoja on myyty paljon. Talvella suomalaiset matkustavat esimerkiksi Kanarian saarille ja Thaimaahan.
+
+Suomalaisilla on nyt varaa ostaa matkoja, koska Suomen taloustilanne on parantunut.
+
+## Voimakas katse
+
+![Silmät](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9753937)
+
+Avaa kuvien katselu
+
+Vaikuttaako tämä sinuun? Kuva: Matias Väänänen / Yle
+
+Katseessa on voimaa. Ihminen on tarkkaavaisempi ja pirteämpi, jos joku katsoo häntä. Silloin ihminen myös oppii ja muistaa paremmin.
+
+Psykologi Terhi Helminen Tampereen yliopistosta on tutkinut katseen voimaa. Helminen sanoo, että ihmisen kädet hikoilevat vähän tavallista enemmän, kun joku katsoo häntä. Se voidaan mitata kaikilta ihmisiltä kaikkialla maailmassa.
+
+Käsien hikoileminen on merkki siitä, että ihminen on tavallista tarkkaavaisempi. Ihminen voi siis vaikuttaa katseella toiseen ihmiseen.
+
+## Vaikeat yhdyssanat
+
+![Kuvituskuva kielipoliisista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9755749)
+
+Avaa kuvien katselu
+
+Suomen kieli on joskus vaikeaa myös suomenkieliselle. Kuva: Yle Uutisgrafiikka
+
+Suomen kielen yhdyssanat ovat vaikeita. Pitkiä sanoja on paljon. Esimerkiksi "työterveyslääkäriasema" kirjoitetaan yhteen.
+
+Myös suomenkieliset tekevät yhdyssanoissa virheitä. Virheistä jopa riidellään esimerkiksi Facebookissa.
+
+Tutkija Sari Maamies sanoo, että erilaisten tekstien ja kirjoittajien määrä on kasvanut sosiaalisen median takia. Siksi yhdyssanavirheitä näkee nykyään enemmän kuin ennen.
+
+Myös kieli ja sen säännöt muuttuvat. Vanha sääntö on, että esimerkiksi "päinvastoin" kirjoitetaan yhteen, eli se on yhdyssana. Nykyään sen voi kuitenkin kirjoittaa myös erikseen eli "päin vastoin".
+
+Kun yhdyssanoja oikein miettii, myös asiantuntija voi mennä sekaisin, tutkija Sari Maamies nauraa.

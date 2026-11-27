@@ -1,0 +1,61 @@
+# Selkouutiset | torstai 29.10.2026
+
+Väkivalta päiväkodeissa. Talvinopeudet. Saimaannorpat. Sää.
+
+## Väkivalta päiväkodeissa
+
+Aluksi aiheena ovat työolot päiväkodeissa.
+
+Väkivalta päiväkodeissa on iso ongelma.
+
+Esimerkiksi Tampereella työntekijät ovat ilmoittaneet tänä vuonna jo yli tuhat kertaa, että lapsi on käyttäytynyt väkivaltaisesti.
+
+Ilmoitusten määrä on moninkertaistunut viime vuosien aikana.
+
+Lapset ovat esimerkiksi potkineet, lyöneet ja repineet työntekijöitä hiuksista.
+
+Väkivalta voi aiheuttaa työntekijöille vammoja ja pelkoa.
+
+Työsuojeluvaltuutettu **Petri Vuorio:**
+
+\- On tullut ilmoituksia, että on lyöty kynällä, saksilla, haarukalla. Eli hyvin vakavaakin väkivaltaa.
+
+Päiväkotien työntekijät kohtaavat väkivaltaa lähes päivittäin.
+
+Työsuojeluvaltuutettu Petri Vuorio sanoo, että lapsiryhmiin tarvitaan lisää aikuisia.
+
+## Talvinopeudet
+
+Sitten tietoa autoilijoille.
+
+Suomen maanteillä siirrytään tällä viikolla talvinopeuksiin.
+
+Se tarkoittaa sitä, että autojen nopeusrajoitukset alenevat talvikuukausien ajaksi.
+
+Valtaosalla maanteistä nopeusrajoitus on 80 kilometriä tunnissa. Moottoriteillä suurin sallittu nopeus on 100 kilometriä tunnissa.
+
+Talvinopeudet tulevat käyttöön tällä viikolla.
+
+Nopeusrajoitusten alentamisella halutaan parantaa liikenneturvallisuutta.
+
+## Saimaannorpat
+
+Sitten iloinen uutinen saimaannorpasta.
+
+Saimaannorppien määrä on kasvanut vähän.
+
+Metsähallitus sanoo, että Saimaalla elää nyt ehkä noin 545 saimaannorppaa. Se on 15 enemmän kuin viime vuonna.
+
+Vaikka norppien määrä on kasvanut, saimaannorppa on yhä uhanalainen laji.
+
+Lauhat ja vähälumiset talvet haittaavat norpan pesintää. Norppia myös kuolee kalastuspyydyksiin.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Perjantaina pohjoisessa ja lännessä on poutaa, eli sateetonta.
+
+Etelässä ja idässä sataa vähän vettä tai tihkua.
+
+Päivälämpötila vaihtelee pohjoisen noin +5 ja etelän noin +10 asteen välillä.

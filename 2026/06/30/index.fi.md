@@ -1,0 +1,82 @@
+# Selkouutiset | tiistai 30.6.2026
+
+Hailuoto. Postipaketit. Purkutaide. Sääennuste.
+
+## Hailuodon silta
+
+Aluksi uutinen liikenteestä.
+
+Hailuodon silta ja tie avattiin maanantaina.
+
+Hailuodon saareen pääsee nyt ajamaan autolla. Automatka kestää vain 10 minuuttia.
+
+Tiessä on kaksi pitkää siltaa. Muu tie on rakennettu mereen hiekan ja kivien päälle.
+
+Uusi tie on yli 8 kilometriä pitkä. Se on pisin tällainen tie meren yli Suomessa.
+
+Lauttaliikenne Hailuotoon loppuu. Lautta ajoi Hailuotoon lähes 60 vuotta.
+
+Hailuodon silta ja tie avattiin maanantaina.
+
+Rakennustyöt kestivät noin kaksi ja puoli vuotta.
+
+Rakentaminen sujui hyvin ja tie valmistui etuajassa.
+
+## Pakettitullit
+
+Nyt uutinen taloudesta.
+
+Halpojen tavaroiden tilaaminen EU:n ulkopuolelta kallistuu.
+
+Syy on uusi tullimaksu, joka tulee voimaan keskiviikkona.
+
+Maksu on vähintään 3 euroa jokaisesta tuotteesta.
+
+Syy on se, että kiinalaiset verkkokaupat ovat tosi suosittuja.
+
+EU haluaa vähentää pakettien määrää.
+
+Viime vuonna Suomeen tuli yli 50 miljoonaa pakettia. Lähes kaikki paketit tulivat Kiinasta.
+
+Tunnetuin kiinalainen verkkokauppa on Temu.
+
+Halpatavaran tilaaminen EU:n ulkopuolelta kallistuu keskiviikkona.
+
+Muutos vaikuttaa monien suomalaisten ostoksiin.
+
+Verkkokaupat lisäävät uuden tullimaksun tilauksen hintaan.
+
+Ostajan ei tarvitse huolehtia asiasta.
+
+## Purkutaidenäyttely
+
+Lopuksi uutinen taiteesta.
+
+Helsingissä on avattu uusi purkutaiteen näyttely.
+
+Purkutaide on taidetta, jota taiteilijat tekevät tyhjiin rakennuksiin.
+
+Se muuttaa rakennuksen taidemaailmaksi.
+
+Tämä näyttely juhlii sitä, että purkutaidetta on tehty jo 10 vuotta.
+
+Taiteilija **Mia Kolarin** teos on *Pehmeä vallankumous*.
+
+Kolari sanoo, että näyttelyssä jokainen saa olla sellainen kuin on.
+
+*”Pitäiskö ihmisten saada olla sellasia kun ne on. Osa on hauraita, osa on pehmeitä. Täällä huoneessa, kun sä tulet tänne, se riittää.  
+Sä olet just sellainen ku sä olet.”*
+
+Helsingissä on avattu uusi purkutaiteen näyttely.
+
+Näyttely on entisen Taideteollisen korkeakoulun tiloissa.
+
+Mukana on teoksia yli 50 taiteilijalta.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona sää on poutainen ja osin aurinkoinen.
+
+Lämpötila on suuressa osassa maata 20 ja 25 asteen välillä, Pohjois-Lapissa on viileämpää.

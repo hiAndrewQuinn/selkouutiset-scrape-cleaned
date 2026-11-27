@@ -1,0 +1,61 @@
+# Selkouutiset | perjantai 25.9.2026
+
+Ruoan hinta. Oppikirjat. Suomen Tivoli. Sää.
+
+## Ruoan hinta
+
+Aluksi aiheena on ruoan hinta.
+
+Ruoan hinta nousee.
+
+Pellervon taloustutkimus PTT sanoo, että ruoan hinta nousee tänä vuonna 1,5 prosenttia ja ensi vuonna 2,5 prosenttia.
+
+Tänä vuonna etenkin naudanliha ja virvoitusjuomat ovat kallistuneet.
+
+Ensi vuonna esimerkiksi kahvi, kaakao ja riisi uhkaavat kallistua. Niiden satonäkymät ovat epävarmat El Niño -sääilmiön takia, PTT sanoo.
+
+El Niño aiheuttaa esimerkiksi hellettä ja kuivuutta, rankkasateita ja tulvia.
+
+Ruoan hintaa nostavat myös energian ja lannoitteiden kallistuminen.
+
+## Oppikirjat
+
+Sitten uutinen koulusta ja oppimisesta.
+
+Riihimäen yläkouluissa on palattu käyttämään paperikirjoja. Digimateriaalit vaihdetiin perinteisiin kirjoihin 2 vuotta sitten.
+
+Kokemukset ovat hyviä, sanovat opettajat, oppilaat ja vanhemmat
+
+Oppilaiden keskittyminen on parantunut ja luokissa on parempi työrauha. Vanhempien on helpompi seurata lasten kehittymistä, kun käytössä ovat paperikirja ja vihko.
+
+Riihimäen yläkouluissa käytetään taas paperikirjoja.
+
+Näin Karan koulun 9-luokkalainen **Eetu Rajala**:
+
+\- Keskittyminen on yleensä vähän ehkä parempaa paperikirjoilla, että jos on niitä koneita, niin silloin saattaa mennä siellä koneella ja tekee jotain ihan muuta.
+
+## Suomen Tivoli
+
+Lopuksi aiheena on kiertävä huvipuisto Suomen Tivoli.
+
+Suomen Tivoli lopettaa toiminnan.
+
+Tivoli kertoo, että sen rahat ovat loppu. Se on tehnyt tappiota 7 vuotta peräkkäin.
+
+Talousvaikeuksien taustalla ovat esimerkiksi koronapandemia ja kustannusten nousu.
+
+Suomen Tivoli oli viimeistä päivää auki syyskuun alussa Keravalla.
+
+Huvipuisto ehti kiertää ympäri maata melkein 140 vuotta.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Huomenna lauantaina tulee monin paikoin hajanaisia vesisateita.
+
+Idässä on vielä päivällä poutaista, mutta pilvistä.
+
+Alkuillasta alkaen sateet muuttuvat yhtenäisemmiksi.
+
+Lämpötila on 10 ja 15 asteen välillä.

@@ -1,0 +1,65 @@
+# Selkouutiset | keskiviikko 14.10.2026
+
+Hyvinvointialueet. Ambulanssilennot. Kirjasto Metso täyttää 40 vuotta. Sää.
+
+## Hyvinvointialueet vähentävät työntekijöitä
+
+Aluksi hoitoalasta.
+
+Hyvinvointialueet vähentävät hoitoalan työpaikkoja säästöjen takia. Ylen kysely kertoo, että alueet vähentävät tänä vuonna ainakin 2700 henkilötyövuotta.
+
+Hyvinvointialueet huolehtivat sosiaalihuollosta ja terveydenhuollosta.
+
+Niille kuuluu myös pelastustoimi.
+
+Hyvinvointialueet vähentävät hoitoalan työpaikkoja.
+
+Esimerkiksi Keski-Suomessa on historian yhdeksännet yt-neuvottelut. Niissä työnantaja ja työntekijät neuvottelevat työpaikkojen vähentämisestä.
+
+Luottamusedustaja **Anne Puronaho** kuvaa tilannetta:
+
+\- Todella radikaalisti on muuttunut tämä luottamusedustajan työ.
+
+Suomessa on 21 hyvinvointialuetta.
+
+## Ambulanssilennot
+
+Nyt ambulanssilennoista.
+
+Ambulanssilentojen määrä voi nousta yli tuhanteen vuodessa. Ambulanssilennolla potilas viedään nopeasti sairaalaan, jossa saa vaativaa hoitoa.
+
+Lentoja tarvitaan enemmän, jos hoitoa keskitetään harvempiin sairaaloihin. Nyt lentoja on vain kymmeniä vuodessa.
+
+Valtiovarainministeriö ehdottaa, että hyvinvointialueita vähennetään.
+
+Ambulanssilentojen määrä voi nousta yli tuhanteen vuodessa.
+
+Ambulanssilennot ovat pitkillä matkoilla nopeampia ja halvempia kuin tavallinen ambulanssi.
+
+## Metso täyttää 40 vuotta
+
+Lopuksi kuuluisaa arkkitehtuuria.
+
+Tampereen pääkirjasto Metso täyttää tänä syksynä 40 vuotta.
+
+Arkkitehdit **Raili ja Reima Pietilä** suunnittelivat Tampereelle uuden kirjaston. Se on yksi Suomen tunnetuimpia rakennuksia.
+
+Ihmiset tulevat ihailemaan Metsoa myös eri puolilta maailmaa.
+
+Talo muistuttaa ylhäältä metsäkanalintu metsoa, joka levittää siipiä ja pyrstöä.
+
+Tampereen pääkirjasto Metso täyttää 40 vuotta. Metso oli vastalause 1980-luvun laatikkoarkkitehtuurille. Se oli Tampereen kaupungilta rohkea valinta.
+
+Metsossa on otettu huomioon myös esteettömyys.
+
+## Sää
+
+Vielä sääennuste.
+
+Torstai on pilvinen. Lämpötilat vaihtelevat 2 ja 12 asteen välillä.
+
+Iltapäivä on tuulinen.
+
+Pohjoisessa tuuli on voimakasta.
+
+Osassa Lappia sataa räntää tai lunta.

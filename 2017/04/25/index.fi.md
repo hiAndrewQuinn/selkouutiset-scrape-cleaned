@@ -1,0 +1,75 @@
+# Tiistai 25.4.2017 (radio)
+
+Ammattikoulutus muuttuu. Ylessä vietettiin tiistaina Uutisluokan päivää. Keinopesä kelpasi saimaannorpalle. Sisältö on tärkeintä, kun pienet lapset käyttävät digilaitteita.
+
+## Ammattikoulutus siirtyy työpaikoille
+
+![Ammattikoulussa rakennusalaa opiskeleva poika mittaa lautaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6557030)
+
+Avaa kuvien katselu
+
+Hallituksen mielestä ammatin oppii parhaiten työpaikalla. Kuva: Yle
+
+Hallitus on sopinut, että ammattikoulutus muuttuu. Hallitus haluaa, että opiskelijat saavat enemmän opetusta työpaikoilla.
+
+Tarkoitus on myös, että nuoret voivat hakea ammattikoulutukseen milloin vain. Nykyään ammattikoulutukseen haetaan keväällä tai syksyllä.
+
+Ammattikoulutus muuttuu todennäköisesti ensi vuonna.
+
+## Koululaiset tekivät uutisia Ylessä
+
+![Uutisluokan toimittajat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9580166)
+
+Avaa kuvien katselu
+
+Uutisluokkalaisten päivä alkoi jo aikaisin aamulla radiossa ja televisiossa. Ylen Aamu-teeveessä oli paljon iloisia toimittajia. Kuva: Yle
+
+Tiistaina Yleisradiossa on vietetty Uutisluokan päivää.
+
+Uutisluokassa koululaiset ovat toimittajia televisiossa, radiossa ja verkossa. Ylen toimittajat auttavat koululaisia toimitustyössä. Koululaiset päättävät, mistä aiheista uutisia tehdään.
+
+Uutisaiheita olivat esimerkiksi kesätyö, kouluruoka ja tanssiharrastus. Koululaiset haastattelivat myös presidentti Sauli Niinistöä. He kysyivät presidentiltä esimerkiksi koulukiusaamisesta.
+
+Yle Uutisluokan tavoite on auttaa koululaisia ymmärtämään, miten media toimii. Uutisluokassa on ollut mukana yli 300 koulua. Uutisluokan päivää vietettiin nyt neljännen kerran.
+
+## Saimaannorppa käytti keinopesää
+
+![Saimaannorpalle tehty ruokopesä osittain lumen alla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9580753)
+
+Avaa kuvien katselu
+
+Järviruoko oli rakannusaineena, kun saimaannorpalle tehtiin pesä. Kuva: Juha Taskinen
+
+Saimaannorpan suojelussa on saatu uusi voitto. Saimaannorppa on tänä talvena käyttänyt pesää, jonka ihminen on rakentanut. Pesän materiaalit olivat lumi ja järviruoko, joka on pitkää ruohoa.
+
+Tavallisesti saimaannorppa rakentaa pesän lumesta. Se tarvitsee pesää poikasia eli kuutteja varten. Siksi ihmiset haluavat auttaa saimaannorppia, jos talvella ei ole tarpeeksi lunta pesää varten.
+
+Saimaannorppia elää vain Suomessa.
+
+## Lasten digilaitteet
+
+![Lapsi harjoittelee matematiikkaa tabletilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6241791)
+
+Avaa kuvien katselu
+
+Digilaitteilla voi tehdä paljon myös hyödyllisiä asioita. Kuva: Yle
+
+Monet vanhemmat miettivät, kuinka paljon lapsen on hyvä käyttää digilaitteita. Tutkimukset kertovat, että alle kouluikäiset lapset käyttävät joskus digilaitteita melkein 2 tuntia päivässä.
+
+Tietokirjailija Satu Irisvik sanoo, että aika ei ole tärkeintä. Vanhempien pitää katsoa, mitä lapsi tekee laitteilla. Tärkeintä on, että sisältö sopii lapselle ja lapsi tekee asioita, ei vain tuijota ruutua. Esimerkiksi valokuvaaminen ja pelaaminen voivat olla hyvää tekemistä lapselle, Irisvik sanoo.
+
+## Suomi 100: Alko
+
+![Koskenkorva, Leijona ja Suomi viina pulloja Alkossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8579793)
+
+Avaa kuvien katselu
+
+Vain Alko myy vahvoja alkoholijuomia Suomessa. Kuva: Kalevi Rytkölä / Yle
+
+Suomalaiset juovat melko paljon alkoholia. Mutta miksi alkoholi pitää Suomessa ostaa Alkosta?
+
+Selkouutisten "Suomalainen juttu" kertoo tällä kertaa alkoholista ja Alkosta.
+
+Video löytyy selkouutisten facebook-sivulta  ja internet-sivulta osoitteesta yle.fi/selkouutiset, osasta Suomi 100.
+
+**Suomalainen juttu: Alko**

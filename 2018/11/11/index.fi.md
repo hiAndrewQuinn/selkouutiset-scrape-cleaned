@@ -1,0 +1,61 @@
+# Sunnuntai 11.11.2018 (radio)
+
+Ensimmäinen maailmansota loppui 100 vuotta sitten. Pääministeri Sipilä: "Gps-laitteita häiritsi ehkä Venäjä." Vantaalla sairaala ottii käyttöön uuden tietokoneohjelman Apotin. Isänpäivästä tulee virallinen liputuspäivä.
+
+## Ensimmäisestä maailmansodasta on 100 vuotta
+
+![Valtionjohtajat kokoontuivat Pariisiin muistamaan ensimmäisen maailmansodan päättymistä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10502765)
+
+Avaa kuvien katselu
+
+Pariisin juhlassa oli mukana 70 valtiojohtajaa. Kuva: Ludovic Marin / EPA
+
+Tänään on kulunut 100 vuotta siitä, kun ensimmäinen maailmansota loppui. 
+
+Euroopan pääjuhla oli Pariisissa. Juhlassa oli mukana 70 valtion johtajat eri puolilta maailmaa. Mukana oli myös presidentti Sauli Niinistö. Pariisin juhlassa puhui Ranskan presidentti Emmanuel Macron. Hän sanoi, että riidat täytyy ratkaista sanoilla eikä aseilla. Macron sanoi myös, että rauha on hauras eli se särkyy helposti. Hän halusi, että ihmisillä on toivoa eikä pelkoa. 
+
+Ensimmäisessä maailmansodassa kuoli kymmeniä miljoonia ihmisiä. 
+
+## "Joku häiritsi lentokoneita tahallaan"
+
+![Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10502845)
+
+Avaa kuvien katselu
+
+Juha Sipilä. Kuva: Jarno Kuusinen / AOP
+
+Pääministeri Juha Sipilä sanoo, että joku häiritsi tahallaan lentokoneiden gps-laitteita Lapissa tällä viikolla. 
+
+Vielä ei tiedetä varmasti, kuka gps-laitteita eli satelliittisuunnistusta häiritsi. Pääministeri Sipilä sanoi kuitenkin radiossa, että esimerkiksi Venäjä osaa häiritä gps-laitteita. Sipilä sanoi, että gps-laitteiden häirintä on yhtä vakava asia kuin lentäminen jonkin valtion yläpuolella ilman lupaa. Lentokoneiden gps-laitteita häirittiin Lapissa samaan aikaan kuin sotilasliitto Natolla oli sotaharjoitus. 
+
+Norjan viranomaiset sanoivat, että samanlaista häirintää on aikaisemmin tullut Venäjältä.  
+
+## Potilaiden tiedot yhteen paikkaan
+
+![Sairaanhoitajat käyttävät tietokonetta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10099797)
+
+Avaa kuvien katselu
+
+Apotti on sairaaloiden tietokoneohjelma. Kuva: Roni Rekomaa / Lehtikuva
+
+Vantaalla Peijaksen sairaala on ottanut käyttöön uuden tietokoneohjelman, jonka nimi on Apotti. 
+
+Apotti on tosi iso ja monimutkainen tietokoneohjelma. Sitä on suunniteltu ja tehty monta vuotta ja se on tullut kalliiksi. Apotti otetaan käyttöön monessa kaupungissa Uudellamaalla. Se kerää 1,6 miljoonan potilaan kaikki tiedot yhteen paikkaan. 
+
+Peijaksen sairaalassa Apotin käyttöönotto sujui aika hyvin. Isoja ongelmia ei ollut. 
+
+## Isänpäivästä virallinen liputuspäivä
+
+![Grafiikka rakastavasta isästä vauva sylissään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10500519)
+
+Avaa kuvien katselu
+
+Isä ja vauva. Kuva: Asmo Raimoaho, Yle.
+
+Isänpäivästä tulee Suomessa virallinen liputuspäivä. Se tarkoittaa, että isänpäivänä nostetaan Suomen lippu tankoon niin kuin äitienpäivänäkin. 
+
+Suomessa on vain 6 virallista liputuspäivää. Isänpäivästä tulee seitsemäs. Myös muina päivinä saa nostaa lipun tankoon. 
+
+Tänään sunnuntaina on isänpäivä. Monessa kodissa lapset tekivät isälle aamupalaa ja antoivat kortin tai lahjan. 
+
+Suomessa on noin 1,3 miljoonaa isää. Isien yleisimmät ammatit ovat kuorma-auton kuljettaja, myyntiedustaja ja rakennusmies.

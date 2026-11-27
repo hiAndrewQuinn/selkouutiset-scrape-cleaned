@@ -1,0 +1,65 @@
+# Lauantai 30.12.2017 (radio)
+
+Sähkökatkot jatkuvat Itä-Suomessa. Suomen ja Venäjän presidentit keskustelivat puhelimessa. Uudenvuoden tinassa ei jatkossa saa olla lyijyä. Göteborgissa leviää tuhkarokko.
+
+## Itä-Suomen sähkökatkot
+
+![Tykkylumitilanne](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9994426)
+
+Avaa kuvien katselu
+
+Painava tykkylumi kaataa puita sähkölinjojen päälle. Kuva: PKS Sähkönsiirto Oy
+
+Itä-Suomessa sähkökatkot ovat jatkuneet jo monta päivää.
+
+Tänään lauantaina sähköt ovat olleet poikki yli 10 000 kotitaloudelta. Eniten sähkökatkoja on ollut Lieksassa, Suomussalmella, Ilomantsissa ja Hyrynsalmella.
+
+Sähköyhtiöt korjaavat vikoja koko ajan, mutta uusia vikoja tulee samaa tahtia. Sähköyhtiöt sanovat, että voi kestää vuodenvaihteen yli, ennen kuin kaikkiin koteihin saadaan sähköt takaisin.
+
+Sähkökatkot johtuvat tykkilumesta. Tykkylumi on kovaa lunta ja huurretta, joka kertyy puihin. Tykkylumi on painavaa. Se voi painaa puita sähkölinjojen päälle. Myös puun oksat ja latva voivat katketa tykkylumen painosta.
+
+## Presidenttien puhelu
+
+![Vladimir Putin ja Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10000315)
+
+Avaa kuvien katselu
+
+Venäjän presidentti Vladimir Putin ja Suomen presidentti Sauli Niinistö. Kuva: AOP
+
+Suomen ja Venäjän presidentit ovat keskustelleet puhelimessa. Suomen presidentti Sauli Niinistö soitti Venäjän presidentille Vladimir Putinille.
+
+Niinistö ja Putin puhuivat puhelimessa esimerkiksi Suomen ja Venäjän suhteista ja arktisen alueen suojelemisesta. Presidentit puhuivat myös Pohjois-Koreasta ja Ukrainan konfliktista.
+
+Puhelun aikana presidentit myös toivottivat toisilleen hyvää uutta vuotta.
+
+## Uudenvuoden tinat
+
+![Kaksi tinahevosenkenkää. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5694104)
+
+Avaa kuvien katselu
+
+Perinteisessä uudenvuoden tinassa on paljon lyijyä. Lyijo on vaarallista ihmiselle ja ympäristölle. Kuva: Yle
+
+Perinteisten uudenvuoden tinojen myynti loppuu kaupoissa tämän uuden vuoden jälkeen. Perinteisiä tinoja ei enää saa myydä, koska niissä on paljon lyijyä.
+
+EU on luokitellut lyijyn ihmiselle vaaralliseksi aineeksi. Siksi lyijyn myynti kuluttajille kielletään koko EU:ssa maaliskuusta lähtien.
+
+Jo tänä vuonna uudenvuoden tinoissa pitää olla varoitusetiketti. Etiketissä pitää varoittaa lyijystä.
+
+Turvallisuus- ja kemikaalivirasto Tukes muistuttaa, että lyijy on vaarallista myös ympäristölle, Sen takia uudenvuoden tinoja ei saa heittää tavalliseen roskakoriin. Ne pitää viedä ongelmajätekeräykseen.
+
+## Tuhkarokkoa Göteborgissa
+
+![Hoitajaa pitää kädessään rokotusruiskua neuvolassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7052178)
+
+Avaa kuvien katselu
+
+Suomessa melkein kaikki lapset rokotetaan tuhkarokkoa vastaan. Kuva: Yle
+
+Ruotsissa Göteborgin kaupungissa useat ihmiset ovat sairastuneet tuhkarokkoon.
+
+Tuhkarokkoon on joulukuun aikana sairastunut jo 10 ihmistä. Lääkärit uskovat, että sairastuneita tulee vielä lisää, sillä tuhkarokko tarttuu helposti.
+
+Tuhkarokon oireita ovat korkea kuume, nuha, yskä ja ihottuma. Tuhkarokko voi aiheuttaa myös vakavia jälkitauteja kuten esimerkiksi keuhkokuumeen tai aivotulehduksen.
+
+Suomessa tuhkarokkoon sairastuu vuosittain alle 5 ihmistä. Suomessa melkein kaikki ihmiset rokotetaan tuhkarokkoa vastaan.

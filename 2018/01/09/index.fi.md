@@ -1,0 +1,63 @@
+# Tiistai 9.1.2018 (radio)
+
+Suomalaiset haluavat lomalle lämpimään. Kaupoihin ei saada järvikalaa jäätilanteen takia. Tykkylumi on aiheuttanut paljon tuhoa Itä-Suomessa. Suomen sisällissodasta on kulunut 100 vuotta.
+
+Lomamatkoihin halutaan nyt luksusta
+
+![Ranta Teneriffalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10012915)
+
+Avaa kuvien katselu
+
+Talvella suomalaiset matkustavat mielellään Kanarian saarille. Kuva: Graham Harries / AOP
+
+Suomalaiset varaavat nyt innokkaasti matkoja. Suomalaiset haluavat lähteä keväällä tai kesällä lomamatkalle ulkomaille.
+
+Tammikuussa myydään paljon etenkin pakettimatkoja eli matkoja, joiden hintaan kuuluu lento ja hotelli.
+
+Matkatoimisto Aurinkomatkat kertoo, että että suomalaiset haluavat nyt lomaan luksusta. Sen takia moni varaa lomalle 4 tai 5 tähden hotellin.
+
+Talvella suomalaiset haluavat matkustaa Kanarian saarille tai Thaimaahan. Kesällä suomalaisten suosikkikohde on Kreikka. Myös Turkin ja Tunisian turistikohteet kiinnostavat suomalaisia.
+
+Kotimaisesta kalasta on pulaa
+
+![Kuore verkossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8715939)
+
+Avaa kuvien katselu
+
+Talvikalastus on vaikeaa huonon jäätilanteen vuoksi Kuva: Antti Pylväs / Yle
+
+Kaupoissa on pulaa kotimaisesta järvikalasta. Kalaa saadaan kauppoihin vain vähän, koska kalastajat eivät pääse järvelle kalastamaan jäätilanteen takia.
+
+Tänä talvena ei ole ollut kovia pakkasia, ja siksi monet järvet eivät ole jäätyneet kunnolla. Järvessä on ehkä vähän jäätä, joten kalastamaan ei pääse veneellä. Jää ei kuitenkaan ole tarpeeksi paksua, joten kalastamaan ei voi myöskään kävellä jäätä pitkin.
+
+Kaupassa ulkomaisen kalan hinta nousee, kun kotimaisesta kalasta on pulaa.
+
+Tykkylumi on aiheuttanut paljon vahinkoja
+
+![Kainuu tykkylumi sähkökatkot](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10009339)
+
+Avaa kuvien katselu
+
+Tykkylumi on kovaa lunta, joka kertyy puihin Kuva: Kainuun Pelastuslaitos / Loiste sähköverkko Oy
+
+Tykkylumi on aiheuttanut laajat tuhot Itä-Suomen ja Kainuun metsissä. Metsänomistajien arvioidaan menettävän miljoonia euroja tykkylumituhojen takia.
+
+Esimerkiksi Kainuun metsissä tykkylumi on katkonut puita ehkä jopa kymmeniätuhansia kuutiometerejä. Tuhojen koko laajuus selviää vasta keväällä.
+
+Monet puut ovat kaatuneet sähkölinjojen päälle. Sen takia monet kodit ovat jääneet ilman sähköä.
+
+Tykkylumi on kovaa lunta, joka kertyy puihin. Se on niin painavaa, että puiden latvat ja oksat voivat katketa sen alla. Tänä talvena tykkylumi on kaatanut puita sähkölinjoille. Siksi sähköt ovat katkeneet monista kodeista.
+
+Suomen sisällisodasta järjestetään muistotilaisuuksia
+
+![Valkoisten valmistautumista sotaan, Lammin suojeluskuntalaisia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9961280)
+
+Avaa kuvien katselu
+
+Suomessa oli sisällisota vuonna 1918 Kuva: Yle arkisto
+
+Suomen sisällissodasta on tänä vuonna kulunut 100 vuotta. Vuoden 1918 sisällissotaa muistetaan vuoden aikana eri puolilla maata monissa eri tilaisuuksissa.
+
+Esimerkiksi Tampreella pidetään muistotilaisuus helmikuussa. Samalla tulee ensi-iltaan ooppera, joka kertoo Suomen sisällissodasta. Oopperan nimi on Veljeni vartija.
+
+Eduskunnassa pidetään muistotilaisuus tammikuun lopulla. Silloin pidetään myös hiljainen hetki sisällissodan uhrien muistoksi. Muistovuoden pääsihteeri Pekka Timonen sanoo, että tilaisuudessa korostetaan demokratian ja yhteiskunnallisen eheyden merkitystä.

@@ -1,0 +1,59 @@
+# Maanantai 16.11.2015
+
+Euroopassa on vietetty hiljaista hetkeä. Belgiassa on ollut poliisin suuroperaatio terrorismin takia. Hallitus perui eläkeläisten asumistuen leikkaukset. Kaikilla ei ole rahaa säästössä yllättävien menojen varalta.
+
+## Euroopassa on pidetty hiljainen hetki
+
+![Mies sytyttää katukäytävälle aseteltuja kynttilöitä. Taustalla on Eiffel-tornin kuva ja kehotus solidaarisuuteen Pariisia kohtaan. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8458537)
+
+Avaa kuvien katselu
+
+Afganistanilainen ihmisoikeusaktivisti sytytti kynttilöitä Kabulissa. Kyltissä lukee, että afgaanit haluavat maailman, jossa ei ole terrorismia.  Kuva: Jawad Jalali / EPA
+
+Euroopassa on pidetty hiljainen hetki Pariisin terrori-iskun uhrien muistoksi. Hiljainen hetki pidettiin maanantaina kello 13 Suomen aikaa, ja se kesti minuutin.
+
+Suomen hallitus toivoi, että myös Suomessa osallistutaan hiljaiseen hetkeen. Hiljainen hetki pidettiin myös monilla työpaikoilla. Ihmiset ovat osoittaneet solidaarisuutta Pariisin uhreille monissa maissa ympäri maailmaa.
+
+Pariisin iskuissa kuoli 129 ihmistä ja 352 ihmistä haavoittui.
+
+## Belgian poliisi etsi terroristeja suuressa operaatiossa
+
+![Belgian poliisivoimilla oli suuroperaatio Molenbeekin lähiössä Brysselissä maanantaina 16. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8458635)
+
+Avaa kuvien katselu
+
+Belgian poliisilla oli suuroperaatio Molenbeekin lähiössä maanantaina. Piiritys päättyi ilman pidätyksiä. Kuva: John Thys / AFP
+
+Belgian poliisilla on ollut suuri operaatio Brysselin esikaupungissa Molenbeekissa. Kaksi Pariisin iskun terroristia on asunut Molenbeekissa. Ketään ei ehkä kuitenkaan pidätetty.
+
+Viranomaiset sanovat, että iskut suunniteltiin ehkä Belgiassa. Molenbeek on monien ääri-islamistien tukikohta. Ääri-islamistit toimivat salaisissa paikoissa, jotka ovat esimerkiksi ihmisten kodeissa.
+
+Ranskan pääministeri Manuel Valls sanoo, että poliisi on tehnyt yli 150 kotietsintää sunnuntain ja maanantain välisenä yönä. Poliisi on pidättänyt yli 20 ihmistä ja löytänyt paljon aseita.
+
+## Hallitus peruu eläkeläisten asumistuen leikkaukset
+
+![Mielenosoituskylttejä eläkeläisten puolesta Kansalaistorin mielenosoituksessa 8. lokakuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8366084)
+
+Avaa kuvien katselu
+
+Eläkeläisten järjestöt pitivät mielenosoituksen Helsingin Kansalaistorilla lokakuussa. Kuva: Yle
+
+Hallitus peruu eläkeläisten asumistuen leikkaukset. Hallitus päätti, että eläkeläisten asumistukia ei yhdistetä yleiseen asumistukeen.
+
+Aikaisemmin hallitus sanoi, että eläkeläisten asumistuki pienenee. Leikkausten peruminen tarkoittaa sitä, että eläkeläisten asumistuki ei pienene.
+
+Eläkeläiset järjestivät lokakuussa mielenosoituksen, koska leikkaukset uhkasivat pienentää tuhansien eläkeläisten tukia. Monilla eläkeläisillä tuet uhkasivat pienentyä yli 100 euroa kuukaudessa.
+
+## Suomalaisilla on liian vähän rahaa yllättävien menojen varalta
+
+![Avoin kukkaro ja kolikoita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8417900)
+
+Avaa kuvien katselu
+
+Alle puolella suomalaisista on säästöjä siltä varalta, että sattuu jotakin yllättävää. Euroopassa ruotsalaiset ja norjalaiset panevat eniten rahaa säästöön. Kuva: Jyrki Lyytikkä / Yle
+
+Alle puolella suomalaisista on rahaa säästössä yllättävää rahanmenoa varten. Kysely kertoo, että vain 44 prosentilla suomalaisista on säästöjä yllättävää menoa varten. 45 prosenttia sanoi, että jos tulee yllättävä rahameno, heidän täytyy lainata rahaa ystäviltä tai sukulaisilta.
+
+Ruotsissa ja Norjassa yli 60 prosenttia vastaajista panee rahaa säästöön joka kuukausi.
+
+Kyselyn teki perintäfirma. Kyselyssä oli mukana yli 22 000 ihmistä 21 maassa.

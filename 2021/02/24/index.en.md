@@ -1,0 +1,89 @@
+# Wednesday 24.2.2021 (radio)
+
+Coronavirus restrictions are tightening in Uusimaa. About 300,000 Finns have received the first coronavirus vaccine. WHO has started to give free coronavirus vaccines to poor countries. There is a plan to increase the use of Finnish fish. On Thursday the weather will be dry.
+
+## Uusimaa coronavirus restrictions
+
+![Reminder to keep safe distances in a shopping centre](https://img.img-cdn.yle.fi/crop_extract,w_4819,h_2711,x_0,y_248/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-77149460213f8d9b9dc/1612791781)
+
+Open image viewer
+
+Reminder to keep safe distances in a shopping centre. Photo: Petteri Sopanen / Yle
+
+Coronavirus restrictions are tightening in the Helsinki and Uusimaa area.
+
+For example, in shops and gyms, customers must keep 2 metres apart. The order applies to premises where there are more than 10 people. The order does not apply to restaurants.
+
+The order comes into force on Thursday, and it is valid until 14 March.
+
+## Finland's coronavirus figures
+
+The number of coronavirus infections in Finland is growing. On Wednesday it was reported that there are 590 new coronavirus infections.
+
+There are 3 new coronavirus deaths. In total, 737 people have died in Finland because of the coronavirus.
+
+## Coronavirus vaccinations for Finns
+
+![Coronavirus vaccination point at the Tennari sports hall in Lohja.](https://img.img-cdn.yle.fi/crop_extract,w_5691,h_3201,x_0,y_525/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-775265602d348b0a695/1613575813)
+
+Open image viewer
+
+Photo: Petteri Bülow / Yle
+
+About 300,000 Finns have received the first coronavirus vaccine. This means that about 5.5 percent of Finns have been vaccinated once already.
+
+Most vaccinations have been given to people over 80 years old. More than 40 percent of them have received the coronavirus vaccine.
+
+The coronavirus vaccine is given to everyone twice. Only a small part of Finns have already received 2 coronavirus vaccines.
+
+## WHO's coronavirus vaccines
+
+![Hands in white protective gloves hold a face mask with the white logo of the World Health Organization, WHO, on a blue background.](https://img.img-cdn.yle.fi/crop_extract,w_5451,h_3066,x_0,y_26/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6713345eb1830bd0cef/1589952308)
+
+Open image viewer
+
+WHO is the World Health Organization. Photo: Kaan Baytur / Alamy / All Over Press
+
+The World Health Organization, WHO, has started to give free coronavirus vaccines to poor countries.
+
+The first free coronavirus vaccines were taken to Africa, to Ghana. Ghana received 600,000 coronavirus vaccines. Ghana plans to vaccinate healthcare workers first.
+
+Rich countries can support poorer countries through the World Health Organization. The aim is that coronavirus vaccines reach all countries.
+
+## Finnish food fish
+
+![Herring fillets in boxes](https://img.img-cdn.yle.fi/crop_extract,w_3328,h_1872,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-775282602d3788624c8/1613576148)
+
+Open image viewer
+
+Herring is fished a lot in Finland. Photo: Markku Sandell / Yle
+
+There is a wish to increase the use of Finnish fish.
+
+Nowadays Finns eat a lot of fish that is imported from abroad. Fish is imported especially from Norway.
+
+A lot of herring is fished in Finland. However, only a small part of the herring ends up on Finnish dinner tables.
+
+It is hoped that Finns will start to eat more herring.
+
+## Thursday's weather
+
+![Weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11808277)
+
+Open image viewer
+
+Photo: Yle
+
+Warmer air is flowing into Finland. On Wednesday, snowfall and freezing rain moved across the country and the roads are very slippery.
+
+On Thursday it is dry. Only in the south may a little rain fall. In parts of Lapland there is still a little frost, but otherwise the temperature rises above zero.
+
+## Clear News website
+
+The Clear News website has a technical fault. Because of the fault, the Clear News archive does not work.
+
+However, you can watch and listen to Clear News from previous days on Areena.
+
+Clear News TV broadcasts on Areena
+
+Clear News radio broadcasts on Areena

@@ -1,0 +1,71 @@
+# Radio | News week in plain Finnish | Sunday 25.5.2025
+
+Competitive sports.
+
+Listen
+
+You can read the news simultaneously below.
+
+The topic of this week's news is sports. The Ice Hockey World Championships have been played in Sweden and Denmark. In football, the series in many major European countries ended this week.
+
+There are many big sports competitions in the summer.
+
+We will now explain in more detail what has happened in competitive sports.
+
+## Ice Hockey World Championships
+
+![The Swiss team celebrates a goal at the World Ice Hockey Championships.](https://images.cdn.yle.fi/image/upload/c_crop,h_2879,w_5119,x_1,y_533/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1748108678/39-1471099683205536d904)
+
+Open image viewer
+
+Photo: Jonathan Nackstrand / AFP
+
+The Ice Hockey World Championships have been played in Sweden and Denmark.
+
+The final match of the games will be played between the USA and Switzerland. The final match will now be played on Sunday evening. The Finnish games ended when Finland lost to the USA. Finland did not make it to the top 4 countries.
+
+## Football
+
+![Neapolitans celebrate their team's football championship.](https://images.cdn.yle.fi/image/upload/c_crop,h_1152,w_2048,x_0,y_127/ar_1.777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1748092838/39-14710316831c75e323a2)
+
+Open image viewer
+
+Photo: AOP
+
+In football, many countries' leagues ended this week. In England, Liverpool won the Premier League clearly. In Germany, Bayern Munich won the championship and in Spain, Barcelona. The Italian champion is Napoli.
+
+The Women's Champions League was won by English team Arsenal. The Men's Champions League final will be played next Saturday between Italian team Inter Milan and French team PSG from Paris.
+
+The Europa League final was won by English side Tottenham on Wednesday.
+
+In Finland, football is played in the summer, so the men's Veikkausliiga and women's National League are still underway.
+
+In football, qualifiers are being played for the men's World Cup, which will be held in North America next year. Finland will next play against the Netherlands on June 7th in Helsinki.
+
+## Summer sports competitions
+
+![Finnish fans at the European Basketball Championship 2022.](https://images.cdn.yle.fi/image/upload/c_crop,h_1687,w_2999,x_0,y_312/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1743093032/39-144262767e57d15642e3)
+
+Open image viewer
+
+Photo: IMAGO/Newspix/All Over Press
+
+There are many different big sports competitions in the summer.
+
+The European Women's Football Championship will be held in Switzerland in July. Finland will be participating in the championship. Finland will also be participating in the European Under-21 Football Championship for boys. The championship will be held in Slovakia in June.
+
+The European Basketball Championship will be played in August and September. The competition will be played in 4 countries. The Finnish matches will be in Tampere.
+
+This year, for example, the World Orienteering Championships will also be held in Kuopio and the World Athletics Championships in Japan.
+
+## Repetition
+
+The topic of the news week was competitive sports. Let's recap the most important things.
+
+The USA and Switzerland will play in the final of the Ice Hockey World Championship.
+
+The Champions League final will be played next Saturday between Paris Saint-Germain and Inter Milan.
+
+This summer, for example, the European Women's Football Championship and the European Men's Basketball Championship will be held.
+
+This was Uutisviikko in plain Finnish. Listen!

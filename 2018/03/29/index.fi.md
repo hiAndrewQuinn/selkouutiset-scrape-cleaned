@@ -1,0 +1,7 @@
+# Torstai 29.3.2018 (tv)
+
+Kokoomus on suurin puolue Ylen uudessa kyselyssä. Monet kaupat ovat auki myös pääsiäisenä. Nobelin rauhanpalkinnon saaja Malala Yousafzai on vierailulla Pakistanissa. Pääsiäisenä pääsee hiihtämään, koska lunta on vielä melkein koko maassa. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Kokoomus on suurin puolue Ylen uudessa kyselyssä. Monet kaupat ovat auki myös pääsiäisenä. Nobelin rauhanpalkinnon saaja Malala Yousafzai on vierailulla Pakistanissa. Pääsiäisenä pääsee hiihtämään, koska lunta on vielä melkein koko maassa. Säätiedot.

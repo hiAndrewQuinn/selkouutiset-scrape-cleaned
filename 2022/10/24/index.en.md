@@ -1,0 +1,77 @@
+# Monday 24.10.2022 (radio)
+
+The race for British Prime Minister is decided. Sweden's new defence minister visited Finland. Finland ranked well in an EU gender equality comparison. People were excluded from a song contest because of Russian citizenship. Weather forecast.
+
+## Britain's new Prime Minister
+
+![British politician Rishi Sunak.](https://img.img-cdn.yle.fi/crop_extract,w_4123,h_2319,x_0,y_44/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10033646315ba40b2991/1666586167)
+
+Open image viewer
+
+Britain's new Prime Minister Rishi Sunak. Photo: Neil Hall / AOP
+
+The race for British Prime Minister has been decided. Rishi Sunak rises to become Prime Minister and leader of the Conservative Party.
+
+Sunak's only rival, Penny Mordaunt, withdrew from the race, when she did not manage to get enough supporters behind her.
+
+Sunak is 42 years old and a former Chancellor of the Exchequer. He will become Britain's first Prime Minister with a background in India.
+
+The previous Prime Minister, Liz Truss, announced her resignation last week.
+
+## Sweden's defence minister
+
+![Pål Jonson and Antti Kaikkonen at a press conference.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1024458635676b1f3741/1666610913)
+
+Open image viewer
+
+Sweden's Defence Minister Pål Jonson and Finland's Defence Minister Antti Kaikkonen. Photo: Jussi Nukari / Lehtikuva
+
+Sweden's new Defence Minister Pål Jonson has visited Finland. The visit was Jonson's first foreign visit as Defence Minister.
+
+Jonson and Finland's Defence Minister Antti Kaikkonen assured that good cooperation will continue.
+
+Jonson also hoped that Finland and Sweden will move forward together towards NATO membership.
+
+## Equality
+
+![People standing in a row; legs photographed, with high heels on one pair and suit shoes on the other three.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_45/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/14-svyle-2911165757137f5842b/1709884429)
+
+Open image viewer
+
+The comparison measured equality, for example in the labour market and in the exercise of power. Photo: Yle / Henrietta Hassinen
+
+Finland has done well in a comparison that looked at gender equality in EU countries.
+
+Finland came fourth in the comparison. Sweden, Denmark and the Netherlands rose above Finland in gender equality.
+
+The European Institute for Gender Equality's comparison measured equality, for example in the labour market, in healthcare and in the exercise of power.
+
+## The Voice of Finland
+
+![Stage of The Voice of Finland](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12665459)
+
+Open image viewer
+
+The Voice of Finland song contest is shown on the Nelonen channel. Photo: Nelonen Media
+
+Two contestants have been removed from the television song contest because of Russian citizenship.
+
+In The Voice of Finland song contest, two people who are Russian citizens got through to the next round. At least one of the contestants also has Finnish citizenship.
+
+However, the production company ITV told the contestants that they will not be able to take part in the programme. The decision was justified by the war of aggression that Russia is waging in Ukraine. The production company said that because of the war, Russian citizens cannot be part of a non-political entertainment programme.
+
+When Yle asked the production company about the matter, the contestants were invited back to the programme. The production company says that removing the contestants from the programme was a mistake.
+
+## Tuesday's weather
+
+![Finland weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12666038)
+
+Open image viewer
+
+Photo: Yle
+
+Tomorrow, Tuesday, it will rain in the south and centre of the country.
+
+In Western Lapland it will snow or there will be freezing rain. Elsewhere it is dry.
+
+In Lapland there is frost, elsewhere a few degrees above zero.

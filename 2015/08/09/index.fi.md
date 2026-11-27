@@ -1,0 +1,57 @@
+# Sunnuntai 9.8.2015
+
+Poliisi tutkii monsteriauto-onnettomuutta. Japanissa on muistettu atomipommin uhreja. Yhdysvalloissa on tapahtunut paha ympäristöonnettomuus. Meänkieli kiinnostaa nuoria Ruotsissa.
+
+## Autotapahtumassa loukkaantui ihmisiä
+
+![Monsteriautojen showesityksiä on nähty Powerparkissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8212789)
+
+Avaa kuvien katselu
+
+Tästä monsteriautosta irtosi rengas lauantaina. Kuva: Pts Messut Oy
+
+Poliisi tutkii monsteriauto-onnettomuutta, joka tapahtui lauantaina. Onnettomuuspaikka oli autotapahtuma Alahärmässä Pohjanmaalla. Onnettomuudessa loukkaantui 2 lasta ja 2 aikuista.
+
+Tapahtumassa oli paljon ihmisiä, jotka katsoivat monsteriautojen esitystä. Monsteriautoissa on tosi isot renkaat, ja kuljettajat tekevät autoilla myös hyppyjä. Lauantaina yhdestä monsteriautosta irtosi rengas kesken esityksen, ja rengas lensi katsojien päälle.
+
+## Nagasakin atomipommi räjähti 70 vuotta sitten
+
+![Arkistokuva ydinpommin räjähdyksestä Japanin Nagasakissa 9. elokuuta 1945.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7382653)
+
+Avaa kuvien katselu
+
+Atomipommi räjähti Nagasakissa 9.8.1945. Noin 87 000 ihmistä kuoli. Kuva: Nagasaki Atomic Bomb Museum / EPA
+
+Japanissa on muistettu atomipommin uhreja. Noin 87 000 ihmistä kuoli, kun Yhdysvallat pudotti atomipommin Nagasakin kaupunkiin. Se tapahtui tasan 70 vuotta sitten, elokuun 9. päivä vuonna 1945.
+
+Vähän aikaisemmin Yhdysvallat pudotti atomipommin Hiroshiman kaupunkiin, jossa kuoli noin 140 000 ihmistä. Yhdysvallat pudotti atomipommit, koska se taisteli Japania vastaan toisessa maailmansodassa. Sota loppui pian Hiroshiman ja Nagasakin atomipommien jälkeen.
+
+Atomipommi oli 70 vuotta sitten uusi ja voimakas ase. Yksi pommi tuhosi kokonaisen kaupungin. Japani on ainoa maa maailmassa, jota vastaan on käytetty atomipommeja.
+
+## Vanhat jätevedet pääsivät luontoon Coloradossa
+
+![Coloradon osavaltiossa sijaitsevasta, käytöstä poistetusta kultakaivoksesta on purkautunut valtava määrä saastunutta vettä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8213415)
+
+Avaa kuvien katselu
+
+Colorado-joki on nyt likainen ja keltainen. Kuva: CSBN
+
+Yhdysvalloissa on tapahtunut paha ympäristöonnettomuus. Vanhan kultakaivoksen jätevedet pääsivät luontoon Coloradossa, Yhdysvaltojen keskiosissa. Kultakaivos suljettiin melkein 100 vuotta sitten.
+
+Kultakaivoksessa oli noin 4 miljoonaa litraa jätevettä. Vesi pääsi ulos kaivoksesta, kun kaivoksen pato meni rikki. Jätevesi on virrannut Colorado-jokeen, joka on nyt kullankeltainen ja hyvin likainen.
+
+## Meänkieli on trendikästä Ruotsissa
+
+![Meän Kulttuurikehdon kesäleirillä lapsia istumassa nurmikolla Seittenkaaressa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8209660)
+
+Avaa kuvien katselu
+
+Lapset oppivat mäenkieltä kesäleirillä Haaparannassa. Kuva: Minna Aula / Yle
+
+Meänkieli kiinnostaa nuoria Ruotsissa. Meänkieli on hyvin lähellä suomen kieltä. Meänkieltä puhutaan Pohjois-Ruotsissa.
+
+Pohjois-Ruotsin Haaparannassa on meneillään kesäleiri meänkielisille. Leirillä on yli 50 meänkielistä. Melkein puolet heistä on lapsia eli meänkielellä "kläppejä".
+
+Meänkieli on nyt nuorten mielestä hienoa ja jännittävää. Nuoret ovat ylpeitä siitä, että he osaavat ruotsin lisäksi myös meänkieltä. Vielä 1900-luvun alkupuolella meänkieltä ei saanut puhua esimerkiksi koulussa.
+
+Nykyään meänkieli on virallinen vähemmistökieli Pohjois-Ruotsissa. Alueella on noin 30 000 meänkielen puhujaa.

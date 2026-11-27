@@ -1,0 +1,83 @@
+# Selkouutiset | perjantai 21.8.2026
+
+Kehitysvammaisten kohtelu. Karhunmetsästys. & Julia -musikaali. Sääennuste.
+
+## Kehitysvammaisten kohtelu
+
+Aluksi uutinen kehitysvammaisten kohtelusta.
+
+Hoitajat ovat käyttäneet turvasumutinta kehitysvammaisiin ihmisiin Kajaanissa.
+
+Turvasumutin ruiskuttaa kemikaalia, joka kirvelee silmiä.
+
+Hyvinvointialue sanoo, että syy on turvallisuus.
+
+Palveluyksikköpäällikkö **Jarkko Hanhela** sanoo, että työssä on ollut väkivallan uhkaa.
+
+Hoitajat ovat käyttäneet turvasumutinta kehitysvammaisiin ihmisiin Kajaanissa.
+
+Vammaistutkimuksen professori **Hisayo Katsui** arvostelee toimintaa.
+
+Hän sanoo, että se voi olla ihmisoikeusloukkaus.
+
+*”Kuulostaa erittäin pahalta ihmisoikeusloukkaukselta, jos näin on tapahtunut.”*
+
+Viranomaiset sanovat, että turvasumuttimen käyttö kehitysvammapalveluissa ei ole laillista.
+
+Kainuun hyvinvointialue kertoo, että sumuttimen käyttö on nyt lopetettu.
+
+## Karhunmetsästys
+
+Nyt uutinen metsästyksestä.
+
+Karhunmetsästys on alkanut Itä-Suomessa ja Keski-Suomessa.
+
+Metsästys oli kiellettyä 2 vuotta.
+
+Karhujen määrä on kasvanut paljon. Siksi karhunmetsästys on taas sallittua.
+
+Koko maassa saa kaataa yli 180 karhua.
+
+Karhua saa metsästää, jos karhu on tehnyt vahinkoa tai jos karhu uhkaa ihmisiä.
+
+Lieksassa karhuja on tullut pihoille enemmän kuin ennen.
+
+Jahdin johtaja **Yrjö Eronen** kertoo, että aiemmin karhunmetsästys oli paljon sattumaa. Nyt metsästys on suunniteltu tarkasti.
+
+Karhunmetsästys on alkanut 2 vuoden tauon jälkeen.
+
+Metsästyskausi jatkuu lokakuun loppuun.
+
+## & Julia -musikaali
+
+Lopuksi kulttuuriuutinen.
+
+Helsingin kaupunginteatterissa on uusi musikaali.
+
+Musikaalin nimi on ”& Julia”.
+
+Musikaali yhdistää vanhan tarinan ja modernit hittikappaleet.
+
+Tarina on Shakespearen Romeo ja Julia.
+
+Musiikki on tuottaja Max Martinin hittejä.
+
+Martin on tehnyt musiikkia esimerkiksi Backstreet Boysille ja Britney Spearsille.
+
+Helsingin kaupunginteatterin uusi musikaali on ”& Julia”.
+
+Musikaalin tarinassa Julia ei tee itsemurhaa. Hän päättää elää.
+
+Ohjaaja **Samuel Harjanne** sanoo, että musikaali kertoo syistä elää.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina on enimmäkseen poutaa eli ei sada.
+
+Aurinko paistaa paikoin.
+
+Lämpötila on 15–20 astetta.
+
+Lauantaina illalla etelässä ja idässä sataa paljon vettä. Myös sunnuntaina sataa.

@@ -1,0 +1,55 @@
+# Sunnuntai 6.8.2017 (radio)
+
+Liha maistuu suomalaisille. Professorit ehdottavat palveluseteleitä terveydenhoitoon. Suomessa on hyvä matkailusää.
+
+## Lihan syönti
+
+![Possunkylkeä ja vihanneksia lautasella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8973686)
+
+Avaa kuvien katselu
+
+Suomalaiset syövät paljon lihaa. Myös kasvisten käyttö on kasvanut. Kuva: Olli Koski/Yle
+
+Liha maistuu suomalaisille.
+
+Terveysalan asiantuntijat ovat sanoneet, että suomalaisten pitää syödä vähemmän lihaa. Kuitenkin yli 40 prosenttia suomalaisista syö lihaa melkein joka päivä. Luku on suurempi kuin ennen.
+
+Miehet syövät lihaa enemmän kuin naiset. Asiantuntijoiden mielestä on epäterveellistä syödä lihaa yli puoli kiloa viikossa. Monet miehet syövät lihaa kuitenkin enemmän.
+
+Naisten tilanne on parempi. Noin 70 prosenttia naisista syö lihaa enintään puoli kiloa viikossa.
+
+Vaikka suomalaiset syövät paljon lihaa, myös kasviksia ja hedelmiä syödään enemmän kuin ennen. Kuitenkin vain pieni osa suomalaisista syö kasviksia niin paljon kuin asiantuntijat suosittelevat. Asiantuntijat sanovat, että niitä pitää syödä puoli kiloa joka päivä.
+
+## Sote-uudistus
+
+![Lääkäri kävelee terveyskeskuksen käytävällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9759211)
+
+Avaa kuvien katselu
+
+Uusia terveyspalveluja on suunniteltu jo monta vuotta. Kuva: Mikael Kokkola / Yle
+
+Keskustelu sote-uudistuksesta jatkuu. Sote tarkoittaa sosiaalipalveluja ja terveyspalveluja.
+
+Nyt Aalto-yliopiston professorit ovat tehneet ehdotuksen sote-uudistuksesta. Professorit ehdottavat palveluseteleitä.
+
+Professorien ehdotus on, että terveyskeskuksen lääkäri päättää, mitä hoitoa potilas tarvitsee. Sen jälkeen potilas voi palvelusetelillä ostaa hoidon, mistä haluaa, professorit ehdottavat.
+
+Sote-uudistuksen yksi tavoite on, että potilas voi itse valita, meneekö hän terveyskeskukseen vai yksityiselle lääkäriasemalle. Ajatus on, että hinta on potilaalle sama.
+
+Uudet terveyspalvelut alkavat todennäköisesti vuonna 2020. Terveyspalvelut pitää uudistaa, että rahat riittävät hyviin palveluihin koko maassa myös tulevaisuudessa.
+
+## Suomen matkailusää
+
+![Kajaanilainen Juha Kauppinen kesämökkinsä pihalla. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9262950)
+
+Avaa kuvien katselu
+
+Onko Suomi kylmä vai raikas matkailumaa? Kuva: Laura Tolonen / Yle
+
+Suomessa on hyvä ja monipuolinen matkailusää. Tätä mieltä ovat suomalaiset matkailualan ihmiset.
+
+Sää on tärkeä osa pakettia, kun he myyvät Suomea ulkomailla. Esimerkiksi arabimaa Dubain matkamessuilla ihmiset kiinnostuivat Suomen raikkaasta ja märästä kesästä.
+
+Myös vuodenajat ovat Suomessa erilaisia. Talvella sää on selvästi erilainen kuin kesällä. Monissa muissa maissa niin ei ole.
+
+Matkailualan asiantuntijat toivovat, että suomalaiset eivät aina valita ulkomailla, että Suomen sää on tosi huono. Suomalaiset eivät huomaa, että on epäkohteliasta valittaa Suomen sateesta maassa, jossa sadetta on odotettu ehkä puoli vuotta.

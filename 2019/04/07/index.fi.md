@@ -1,0 +1,65 @@
+# Sunnuntai 7.4.2019 (radio)
+
+Monet ovat äänestäneet eduskuntavaaleissa ennakkoon. Maahanmuuttajien kielikoulutus oli yksi teema Ylen Selkokielisessä vaalikeskustelussa. Sunnuntaina myytiin kallis muumimuki. Ilmassa on siitepölyä.
+
+## Vilkas ennakkoäänestys
+
+![Ennakkoäänestystä Hämeenlinnassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10725463)
+
+Avaa kuvien katselu
+
+Ennakkoäänestyspaikoilla on käynyt paljon ihmisiä. Kuva: Riitta Tapiomäki / Yle
+
+Monet ovat äänestäneet eduskuntavaaleissa ennakkoon. Yli 800 000 ihmistä kävi äänestämässä lauantaihin mennessä.
+
+Ennakkoäänestys jatkuu tiistaihin asti. Äänestyspaikkoja on esimerkiksi kauppakeskuksissa ja kirjastoissa.
+
+Vaalipäivänä jokaisen pitää äänestää siinä paikassa, joka lukee äänioikeusilmoituksessa. Ilmoitus on tullut kotiin postissa.
+
+Vaalipäivä on viikon kuluttua, huhtikuun 14. päivä.
+
+## Selkokielinen vaalikeskustelu: kielikoulutus
+
+![Mies puhuu mikrofoniin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10726985)
+
+Avaa kuvien katselu
+
+Rezaei Amir Shah esitti maahanmuuttajaopiskelijoiden kysymyksen puolueille. Kuva: Yle
+
+Maahanmuuttajien kielikoulutus oli yksi teema Ylen Selkokielisessä vaalikeskustelussa. Vaalikeskustelussa oli mukana 9 puoluetta.
+
+Puolueet saivat yleisökysymyksen myös suomen kielen opiskelijoilta. Opiskelijat kysyivät puolueilta: Millainen kielitaito maahanmuuttajalla pitää olla, jotta hän saa Suomen kansalaisuuden?
+
+Melkein kaikkien puolueiden edustajat olivat sitä mieltä, että nykyinen kielitaitovaatimus eli tyydyttävä suomen taito on hyvä. Vain vihreiden Outi Alanko-Kahiluoto oli eri mieltä. Hän sanoi, että kielitaito ei voi olla kansalaisuuden ehto, koska kielikoulutusta on liian vähän ja se on usein huonoa.
+
+Samaa mieltä puolueet olivat siitä, että maahanmuuttajien kielikoulutusta pitää parantaa ja kielikoulutusta pitää olla enemmän.
+
+Selkokielisen vaalikeskustelun voit katsoa Yle Areenassa ja selkouutisten nettisivuilla.
+
+## Kallis muumimuki
+
+![Harvinainen muumimuki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10726754)
+
+Avaa kuvien katselu
+
+Ostaja maksoi tästä muumimukista 6100 euroa. Kuva: Ville Välimäki / Yle
+
+Sunnuntaina myytiin harvinainen muumimuki. Muki myytiin huutokaupassa eli mukin sai ostaja, joka tarjosi mukista eniten rahaa.
+
+Mukin hinta nousi korkealle. Ostaja maksoi mukista 6100 euroa. Muki on kallis, koska muita samanlaisia mukeja ei ole.
+
+Mukissa on Vilijonkan kuva. Tehtaassa tapahtui kuitenkin virhe, kun muki valmistettiin. Mukissa näkyy Vilijonkasta 2 alaosaa, mutta ei yhtään yläosaa. Muki sai kuitenkin vahingossa virallisen muumileiman. Kallis virhe, voidaan nyt sanoa.
+
+## Siitepölyä ilmassa
+
+![Siitepölynorkkoja roikkuu puussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8787708)
+
+Avaa kuvien katselu
+
+Leppä kukkii jo suuressa osassa Suomea. Kuva: Maarit Siitonen
+
+Suuressa osassa Suomea on jo siitepölyaika. Monet puut ja pensaat kukkivat. Niistä tulee ilmaan siitepölyä.
+
+Siitepöly aiheuttaa oireita allergisille ihmisille: Nenä vuotaa ja silmiä kutisee.
+
+Lähipäivinä siitepölyn määrä ilmassa vähenee, koska Suomeen tulee sateita. Sade puhdistaa ilmaa.

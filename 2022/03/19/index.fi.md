@@ -1,0 +1,85 @@
+# Lauantai 19.3.2022 (radio)
+
+Ukraina rauhanneuvotteluista. Virolaistutkija sodan kestosta. Musiikki. Minna Canth. Sää.
+
+## Ukraina
+
+![Volodymyr Zelenskyj sitter vid ett skrivbord. Han tittar framåt. I bakgrunden Ukrainas flagga.](https://img.img-cdn.yle.fi/crop_extract,w_2131,h_1198,x_106,y_63/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-92612062298255891b1/1646887555)
+
+Avaa kuvien katselu
+
+Ukrainan presidentti Volodymyr Zelenskyi. Kuva: Lehtikuva / AFP
+
+Britannian tiedustelu kertoo, että Venäjän joukot ovat edenneet Ukrainassa vain vähän tällä viikolla.
+
+Samaan aikaan Venäjä on tulittanut raskaasti kaupunkeja, jotka se on saartanut. Mariupolin satamakaupungissa Venäjän joukot ovat edenneet kaupungin keskustaan.
+
+Ukrainan presidentti Volodymyr Zelenskyi vaatii, että Venäjän kanssa aloitetaan laajat rauhanneuvottelut.
+
+Zelenskyi sanoi tv-puheessa, että nyt on aika palauttaa Ukrainan alueellinen koskemattomuus. Muuten Venäjän menetykset ovat niin suuria, että Venäjä tarvitsee toipumiseen monia kymmeniä vuosia, Zelenskyi sanoi.
+
+## Kristi Raik
+
+![Viron Ulkopoliittisen instituutin johtaja Kristi Raik A-studiossa.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8715186176f668cb34b/1635186371)
+
+Avaa kuvien katselu
+
+Viron ulkopoliittisen instituutin johtaja Kristi Raik varoittaa myös epätavanomaisista aseista. Niitä ovat esimerkiksi biologiset aseet.
+
+Virolaistutkija arvioi, että sota Ukrainassa kestää kauan.
+
+Viron ulkopoliittisen instituutin johtaja Kristi Raik sanoo, että Venäjän sotatoimet voivat muuttua entistä raaemmiksi. Samalla kasvaa riski siitä, että Venäjä käyttää Ukrainassa myös epätavanomaisia aseita.
+
+Kristi Raik sanoo, että Suomen Nato-jäsenyys olisi yhtä looginen askel kuin Suomen liittyminen Euroopan unioniin. Suomi liittyi EU:hun vuonna 1995.
+
+Raik oli Ylen Ykkösaamun haastattelussa.
+
+Raikin mielestä Itämeren turvallisuustilanne paranisi, jos Suomi ja Ruotsi liittyisivät Natoon.
+
+## Musiikki
+
+![Pääkirjaston Minnansalin yhteislaulut ovat olleet sangen suosittuja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10588153)
+
+Avaa kuvien katselu
+
+Yhteislaulua kirjastossa.  Kuva: Esa-Pekka Autio
+
+Suomalaistutkimukset kertovat, että musiikki voi parantaa. Musiikki kuntouttaa esimerkiksi niitä, joilla on aivovaurio.
+
+Musiikin vaikutusta aivoihin on voitu tutkia uusien kuvantamismenetelmien avulla. Musiikki voi korjata hermoratayhteyksiä ja lisätä aivojen verenkiertoa.
+
+Musiikin avulla on voitu vähentää vahvoja kipulääkkeitä leikkauksen jälkeen.
+
+Musiikki auttaa myös muistisairaudessa. Varsinkin yhdessä laulaminen voi sairauden alkuvaiheissa tukea muistin toimintaa ja mielialaa.
+
+## Minna Canth
+
+![Minna Canthin Kuopio -näyttely avautuu Kuopion korttelimuseossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10772702)
+
+Avaa kuvien katselu
+
+Minna Canth syntyi 19. maaliskuuta 1844 Tampereella. Kuva: Kuopion kulttuurihistoriallinen museo
+
+Lauantaina on juhlistettu Minna Canthin ja tasa-arvon päivää. Canthin syntymästä on kulunut 178 vuotta.
+
+Canth on ensimmäinen nainen, joka on saanut Suomessa oman liputuspäivän. Canth oli kirjailija, yhteiskunnallinen vaikuttaja ja journalisti.
+
+Canth kirjoitti muun muassa naisten ja köyhien asemasta yhteiskunnassa.
+
+Lisäksi tänään on vietetty kirjaston päivää.
+
+## Sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12367485)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sunnuntaista on tulossa kevään lämpimin päivä tähän mennessä.
+
+Lämpötila kohoaa Etelä-Lappia myöten monin paikoin yli 10 asteen. Maan länsiosassa voi olla 15 lämpöastetta.
+
+Pohjois- ja Keski-Lapissa on pilvisempää ja paikoin sataa lunta.
+
+Alkuviikolla aurinkoinen ja lämmin sää jatkuu.

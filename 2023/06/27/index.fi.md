@@ -1,0 +1,63 @@
+# Radio selkouutiset tiistai 27.6.2023
+
+Sairaalat. Ulkomaalaiset työntekijät. Venäjä. Sää.
+
+## Sairaalat
+
+![Lähikuva sairaanhoitajan käsistä ja iäkkään naisen käsistä. Sairaanhoitaja tarkistaa vanhuksen arvot.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1079791640023a047114/1687836272)
+
+Avaa kuvien katselu
+
+Suomessa on liian vähän sairaanhoitajia. Kuva: Aleksei Gorodenkov / AOP
+
+Monet sairaalat ja terveyskeskukset laittavat kesällä palveluita kiinni. Syy on se, että työntekijöitä on liian vähän. Monessa paikassa Suomessa ei ole tarpeeksi hoitajia ja lääkäreitä.
+
+Esimerkiksi joitain sänkypotilaiden osastoja laitetaan kesällä kokonaan kiinni tai potilaspaikkoja vähennetään.
+
+Monessa paikassa ne pysyvät kiinni niin kauan kuin työntekijöiden kesälomat jatkuvat. Ongelma on, että sairaalat ja terveyskeskukset eivät löydä tarpeeksi sijaisia niille työntekijöille, jotka ovat kesälomalla.
+
+Sairaaloissa ja terveyskeskuksissa on ollut jo kauan vaikeaa löytää sijaisia. Silti esimerkiksi Turun seudulla tilanne on tänä kesänä huonompi kuin koskaan ennen.
+
+## Ulkomaalaiset työntekijät
+
+![Tatuoitu mies laittaa ruokaa ravintolan keittiössä. ](https://img.img-cdn.yle.fi/crop_extract,w_4478,h_2519,x_0,y_231/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8609146155fda8a9d42/1687866720)
+
+Avaa kuvien katselu
+
+Ongelmia oli esimerkiksi ravintola-alalla. Kuva: Emilia Åberg / Yle
+
+Ulkomaalaisten työntekijöiden asema Suomessa ei ole aina hyvä, kertovat viranomaiset. Ongelmia on joskus esimerkiksi rakennusfirmoissa ja ravintoloissa.
+
+Työnantajan ja työntekijän työsuhde ei ole aina kunnossa. Esimerkiksi jotkut ravintolat sanovat, että ulkomaalainen vain auttaa ravintolassa, vaikka hän tekee koko päivän työtä.
+
+Ulkomaalaiset työntekijät saavat joskus myös liian vähän palkkaa.
+
+Joissain rakennusfirmoissa ulkomaalaiset tekevät työtä ilman työlupaa.
+
+Ongelmia on myös siksi, että ulkomaalaiset työntekijät eivät aina tiedä, millaiset ovat työntekijän oikeudet Suomessa. Lisäksi he eivät aina tiedä, millaiset ovat työnantajan velvollisuudet.
+
+## Venäjä
+
+![Vladimir Putin seisoo Venäjän lipun edessä sisätiloissa.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_0,y_106/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11347456499ed1595abe/1687866889)
+
+Avaa kuvien katselu
+
+Venäjän presidentti Vladimir Putin piti maanantaina puheen televisiossa. Kuva: Lehtikuva
+
+Venäjä on lopettanut rikostutkinnan, joka koski Wagner-sotilaiden kapinaa. Venäjän johtajat sanovat, että Wagner-sotilaat eivät saa rikossyytettä, mutta heidän täytyy antaa pois raskaat aseet.
+
+Wagner-sotilaat sotivat pitkään Ukrainassa, mutta he aloittivat juhannuksena kapinan Venäjän sotilasjohtajia vastaan. Kapina loppui nopeasti.
+
+Wagner on yksityinen sotilasryhmä, joka ei ole osa Venäjän armeijaa.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135247649af63283534/1687877240)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Keskiviikkona voi tulla sadekuuroja ja monessa paikassa myös ukkosia.
+
+Lämpötila on 20–26 astetta.

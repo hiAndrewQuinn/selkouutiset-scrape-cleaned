@@ -1,0 +1,75 @@
+# Perjantai 9.3.2018 (radio)
+
+Eri puolilla maailmaa ollaan tyytyväisiä siitä, että Pohjois-Korean ja USA:n johtajat aikovat tavata. Turun puukottaja ymmärsi, mitä hän teki. Suomessa vanhemmat auttavat lapsia kotiläksyissä vähemmän kuin monissa muissa maissa. Paralympialaiset ovat alkaneet Etelä-Koreassa. Viikonloppuna on mukava ulkoilusää.
+
+## Trump ja Kim tapaavat
+
+![Ihmiset katsovat televisiolähetystä Etelä-Korean Soulissa, jossa kerrotaan Pohjois-Korean johtajan Kim Jong-unin lähettäneen tapaamiskutsun Yhdysvaltojen presidentille Donald Trumpille Etelä-Korean välityksellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10108654)
+
+Avaa kuvien katselu
+
+Trump ja Kim tapaavat tämän kevään aikana. Kuva: Jung Yeon-Je / AFP
+
+Maailmalla ollaan tyytyväisiä siitä, että Pohjois-Korean ja USA:n johtajat aikovat tavata. Esimerkiksi Euroopan unioni ja Kiina sanovat, että tapaaminen on positiivinen asia.
+
+Pohjois-Korean johtaja Kim Jong-un kutsui USA:n presidentti Donald Trumpin tapaamiseen. Trump otti kutsun vastaan. Johtajat tapaavat kevään aikana.
+
+Trump ja Kim aikovat keskustella ydinaseista. USA on suuttunut Pohjois-Korealle, koska Pohjois-Korea on tehnyt ohjuskokeita. Ohjukset voivat kuljettaa ydinaseita pitkiä matkoja.
+
+Pohjois-Korea on luvannut keskeyttää ohjuskokeet, että tapaaminen onnistuu.
+
+## Turun puukottaja ymmärsi teon
+
+![Kuva Turun puukottajasta 18. elokuuta 2017. Poliisit ovat ympäröineet maassa makaavan miehen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10108919)
+
+Avaa kuvien katselu
+
+Poliisi otti Turun puukottajan kiinni viime kesänä heti teon jälkeen. Kuva: Kirsi Kanerva / Lehtikuva
+
+Viranomaiset ovat antaneet lisää tietoa Turun puukotuksesta. Puukotuksesta syytetään marokkolaista miestä.
+
+Oikeus kertoo nyt, että mies oli syyntakeinen. Se tarkoittaa, että mies ymmärsi, mitä hän teki.
+
+Turun puukotus tapahtui viime kesänä. Silloin Abderrahman Bouanane löi puukolla 10 ihmistä, joista 2 kuoli. Bouananea syytetään nyt murhista.
+
+## Vanhempien apu kotiläksyissä
+
+![Koululainen tekee kotiläksyjä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9659468)
+
+Avaa kuvien katselu
+
+Suomalaiset lapset haluavat usein tehdä läksyt ilman vanhempien apua. Kuva: Henrietta Hassinen / Yle
+
+Suomessa vanhemmat auttavat lapsia kotiläksyissä vain vähän. Vanhemmat käyttävät aikaa lasten kotiläksyihin vähemmän kuin monissa muissa maissa.
+
+Tieto on uudesta tutkimuksesta, jossa oli mukana 29 maata.
+
+Vain 5 prosenttia suomalaisista vanhemmista auttaa lapsia kotiläksyissä ainakin tunnin verran. Se oli vähiten kaikista tutkimuksen maista.
+
+Tutkimus kertoo myös, että Suomessa on paljon lapsia, jotka eivät edes halua vanhemmilta apua kotiläksyissä.
+
+## Paralympialaiset alkoivat
+
+![Suomen paralympiajoukkue avajaisissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10110668)
+
+Avaa kuvien katselu
+
+Suomen joukkue talviparalympialaisten avajaisjuhlassa. Kuva: EPA
+
+Paralympialaiset ovat alkaneet. Paralympialaiset ovat vammaisurheilijoiden olympialaiset. Nyt on vuorossa talviurheilu.
+
+Talviparalympialaiset järjestetään Etelä-Koreassa, Pjongchangissa. Samassa paikassa järjestettiin myös talviolympialaiset helmikuussa.
+
+Talviparalympialaisten avajaisjuhla oli perjantaina. Lumilautailija Matti Suur-Hamari kantoi avajaisissa Suomen lippua.
+
+Yhteensä 13 suomalaista urheilijaa osallistuu talviparalympialaisiin.
+
+## Viikonlopun sää
+
+![Sauvakävelijöitä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10016214)
+
+Avaa kuvien katselu
+
+Viikonloppuna kannattaa ulkoilla. Kuva: Jukka Uotila / AOP
+
+Viikonloppuna on melko mukava ulkoilusää. Lämpötila nousee, ja Länsi-Suomessa on jopa plusasteita. Yöllä on kuitenkin pakkasta koko maassa. Viikonloppuna sataa myös lunta.

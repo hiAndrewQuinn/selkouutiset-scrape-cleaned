@@ -1,0 +1,77 @@
+# Tiistai 17.7.2018 (radio)
+
+Poliisi on tyytyväinen Helsingin huipputapaamisen turvatoimiin. Presidentti Sauli Niinistö tapaa Venäjän presidentin Vladimir Putinin elokuussa. Helsingin seudun junaliikenteeseen tulee muutoksia keskiviikkona. Ruotsissa on metsäpaloja. Turussa mitattiin tiistaina 33,3 astetta.
+
+## Turvatoimet onnistuivat
+
+![Poliisi Esplanadin puistossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10306423)
+
+Avaa kuvien katselu
+
+Poliiseja Helsingissä 16.7.2018. Kuva: Marja Väänänen / Yle
+
+Poliisi on tyytyväinen Helsingin huipputapaamisen turvatoimiin. USA:n ja Venäjän presidenttien tapaaminen sujui maanantaina rauhallisesti.
+
+Huipputapaaminen oli Suomen poliisille iso työ. Poliisin piti huolehtia tapaamisen turvallisuudesta ja liikenteestä.
+
+Monet poliisit tulivat vapaaehtoisesti kesälomalta töihin. Helsingissä oli poliiseja eri puolilta Suomea.
+
+Poliisilla oli vain 2 viikkoa aikaa valmistautua Helsingin huipputapaamiseen. Se oli tosi lyhyt aika, koska maailmalla huipputapaamisten turvatoimia suunnitellaan tavallisesti monta kuukautta.
+
+## Presidentit tapaavat
+
+![Putin ja Niinistö.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10310069)
+
+Avaa kuvien katselu
+
+Vladimir Putin ja Sauli Niinistö tapasivat myös viime kesänä. Kuva: AOP
+
+Presidentti Sauli Niinistö tapaa Venäjän presidentin Vladimir Putinin ensi kuussa. Niinistö vierailee Venäjällä elokuun 22. päivä.
+
+Niinistö tapasi Putinin maanantaina, kun Suomi järjesti Venäjän ja USA:n presidenttien huipputapaamisen Helsingissä. Elokuun tapaamisesta sovittiin jo aikaisemmin.
+
+Presidentti Putin on kiittänyt Niinistöä huipputapaamisen järjestämisestä.
+
+## Junaliikenteessä muutoksia
+
+![Lähijuna.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9770692)
+
+Avaa kuvien katselu
+
+Lähijunien muutokset johtuvat ratatöistä. Kuva: Henrietta Hassinen / Yle
+
+Helsingin seudun junaliikenteeseen tulee muutoksia keskiviikkona.
+
+P- ja I-junat lentoasemalta Myyrmäen kautta Helsinkiin kulkevat vain Pasilaan asti. A- ja L-junat eivät pysähdy Ilmalassa.
+
+Nämä muutokset jatkuvat elokuun 4. päivään asti. Muutosten syynä ovat ratatyöt.
+
+Muutoksia ei enää ole lähijunilla, jotka tulevat Helsinkiin Keravan suunnalta. Ne kulkevat nyt normaalisti.
+
+## Ruotsissa metsäpaloja
+
+![Kartta metsäpaloalueista](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10308706)
+
+Avaa kuvien katselu
+
+Metsäpaloja on eri puolilla Ruotsia. Kuva: Yle Uutisgrafiikka
+
+Suomen naapurimaassa Ruotsissa on metsäpaloja. Tulipaloja on vaikea sammuttaa, koska luonto on kuivaa.
+
+Tulipaloja on jopa 80 paikassa eri puolilla Ruotsia. Tuli on polttanut myös taloja, ja ihmisiä on siirretty pois vaarallisilta alueilta.
+
+Sammutustyöt jatkuvat koko ajan. Palomiehiä ja sammutusvälineitä on liian vähän, koska tulipaloja on niin paljon.
+
+Norja on lähettänyt Ruotsiin 6 helikopteria, jotka auttavat sammutustyössä. Italia on lähettänyt 2 sammutuslentokonetta, jotka ovat perillä Ruotsissa tiistai-iltana.
+
+## Kuuma tiistai
+
+![Pöytätuuletin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10309034)
+
+Avaa kuvien katselu
+
+Nyt on kuumaa! Kuva: Ismo Pekkarinen / AOP
+
+Tiistai on ollut tosi kuuma päivä koko Suomessa. Turussa mitattiin 33,3 astetta. Kuuma sää myös jatkuu vielä lähipäivinä.
+
+Sää on nyt niin kuumaa, että hellevaroitus on voimassa melkein koko maassa.

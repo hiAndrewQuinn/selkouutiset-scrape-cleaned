@@ -1,0 +1,49 @@
+# TV | Selkouutiset | keskiviikko 28.1.2026
+
+Auerin oikeudenkäynti. Hallituksen säästöt. Woltin työtilit. Sää
+
+## Auerin ja Ihlen oikeudenkäynti päättyy
+
+Ensin uutinen Anneli Auerin oikeudenkäynnistä.
+
+Julkisuudessa on seurattu pitkään Anneli Auerin ja Jens Ihlen oikeudenkäyntiä. Heitä syytetään julmista seksuaali- ja väkivaltarikoksista.
+
+Auer ja Ihle tuomittiin rikoksista jo vuonna 2013. Toissa vuonna tuomio peruttiin, koska Auerin lapset kertoivat, että he valehtelivat seksuaalirikoksista.
+
+Syytteet nostettiin kuitenkin uudestaan.
+
+Syyttäjien mielestä lapset eivät olleet valehdelleet. Syyttäjien mielestä Auer ja Ihle tekivät lapsille seksuaalista väkivaltaa.
+
+Oikeudenkäynti päättyy tänään. Tuomio tulee myöhemmin.
+
+## Tarkastaja: Hallitus liioittelee säästöjä
+
+Seuraavaksi uutinen hallituksen säästöistä.
+
+Hallituksen säästöt ovat vain 3,5 miljardia euroa, sanoo Tarkastusvirasto.
+
+Hallitus on sanonut, että sen leikkaukset säästävät rahaa jopa 10 miljardia euroa. Hallitus on tehnyt isoja leikkauksia esimerkiksi sosiaalitukiin.
+
+Tarkastusvirasto on laskenut, että säästöjä tulee vähemmän veronalennusten vuoksi. Hallitus päätti alentaa joitakin veroja tänä vuonna ja ensi vuonna.
+
+Hallitus ei onnistu säästämään 10 miljardia euroa, laskee Tarkastusvirasto.
+
+## Woltin ruokalähetiksi vaikea päästä
+
+Lopuksi uutinen Woltista.
+
+Woltin ruokalähetiksi on vaikea päästä. Se johtuu siitä, että ruokalähetti tarvitsee työtilin, jota on vaikea saada.
+
+Siksi moni ruokalähetti vuokraa tilin ja joutuu maksamaan siitä jopa 900 euroa kuukaudessa. Tilejä vuokrataan esimerkiksi Facebookissa.
+
+Mohammed Wasayh on aikaisemmin vuokrannut Wolt-tilin. Hän kertoo, että tilin omistajat haluavat vuokramaksun usein käteisenä. Silloin he voivat vältellä veroja.
+
+Wolt sanoo, että yhtiö ei hyväksy verojen välttelemistä. Yhtiö ei kuitenkaan kiellä sijaisen käyttöä. Woltin mukaan työtilin omistaja on yrittäjä, ja hänellä on oikeus palkata sijainen.
+
+## Pakkasta on paljon
+
+Vielä sääennuste.
+
+Sää on koko maassa poutaista eli ei sada. Pilvisyys vaihtelee.
+
+Pakkasta on etelässä noin 10 astetta. Pohjoisessa on pakkasta noin 30 astetta.

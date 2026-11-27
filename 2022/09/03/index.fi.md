@@ -1,0 +1,71 @@
+# Lauantai 3.9.2022 (radio)
+
+Suomi Natossa. Gorbatšov haudattiin. Yrittäjien vaikeudet. Rauhankulkue Helsingissä. Sääennuste.
+
+## Suomen Nato-jäsenyys
+
+![Mies istuu YLEn studiossa.](https://img.img-cdn.yle.fi/crop_extract,w_3084,h_1734,x_53,y_661/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1002968631302a213093/1662203069)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto oli lauantaina vieraana Ylen Ykkösaamu-ohjelmassa. Kuva: Sasha Silvala / Yle
+
+Yle on haastatellut ulkoministeri Pekka Haavistoa Suomen Nato-jäsenyydestä. Suomesta tulee Naton jäsen ehkä muutaman kuukauden kuluttua.
+
+Haavisto sanoi, että Suomi on mukana kaikkien Nato-maiden puolustuksessa. Haavisto sanoi, että Suomi saa Natossa kaikki oikeudet, ja Suomi hoitaa Natossa kaikki velvollisuudet.
+
+Haavisto sanoi, että Pohjoismaiden yhteistyö tiivistyy, kun Suomesta tulee Naton jäsen, mutta Suomi osallistuu Naton puolustamiseen myös muualla, jos Suomea tarvitaan.
+
+## Mihail Gorbatšovin hautajaiset
+
+![Mihail Gorbatšovin hauta-arkkua kannetaan näytteille Moskovassa.](https://img.img-cdn.yle.fi/crop_extract,w_3238,h_1821,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1002973631306f586079/1662191439)
+
+Avaa kuvien katselu
+
+Mihail Gorbatšovin hautajaiset pidettiin Moskovassa. Kuva: Maxim Shipenkov / EPA
+
+Neuvostoliiton viimeinen johtaja Mihail Gorbatšov on haudattu Moskovassa. Gorbatšoville järjestettiin aamupäivällä muistoseremonia Ammattiliittojen talossa Moskovan keskustassa.
+
+Tuhannet venäläiset kävivät hyvästelemässä Gorbatsovin. Venäjän presidentti Vladimir Putin ei osallistunut Gorbatšovin hautajaisiin.
+
+Gorbatšov kuoli viime tiistaina. Hän oli 91-vuotias.
+
+## Yrittäjien vaikeudet
+
+![Leivonnaistiski kahvilassa.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_756/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97330562b1d53bb03e9/1656494971)
+
+Avaa kuvien katselu
+
+Yrittäjien kustannukset ovat nousseet nopeasti. Siksi myös hintoja pitää nostaa. Kuva: Sofia Herrlin / Yle
+
+Ukrainan sota ja energiakriisi vaikeuttavat monien yrittäjien tilannetta. Yrittäjiä ovat ihmiset, joilla on oma firma.
+
+Yrittäjät ovat esimerkiksi nostaneet hintoja ja alkaneet säästää energiaa, koska sähkö ja monet tavarat kallistuvat koko ajan. Näin kertoo kysely, jonka Suomen Yrittäjät -järjestö teki yrittäjille.
+
+Yli 30 prosenttia yrittäjistä kertoo, että on nostanut hintoja. Yli 30 prosenttia yrittäjistä sanoo, että on säästänyt energiaa. Firma voi esimerkiksi alentaa lämpötilaa, että energiaa säästyy.
+
+Noin 30 prosenttia yrittäjistä sanoo, että firman kannattavuus on huonontunut.
+
+## Rauhankulkue Ukrainan tueksi
+
+![Rauhanmarssille osallistuneita Senaatintorilla.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-100305163134fcc5a6d1/1662210089)
+
+Avaa kuvien katselu
+
+Rauhantapahtumaan Senaatintorilla osallistui noin 1500 ihmistä. Kuva: Jaani Lampinen / Yle
+
+Helsingissä järjestettiin lauantaina rauhankulkue Ukrainan tueksi. Tapahtumassa puhuivat Suomen ulkoministeri Pekka Haavisto ja Ukrainan suurlähettiläs Olga Dibrova.
+
+Suurlähettiläs Dibrova kertoi, kuinka sota on tuhonnut Ukrainassa kotien lisäksi kirkkoja, sairaaloita ja kouluja. Dibrova sanoi myös, että Ukraina tarvitsee sotilasapua, että sota saadaan loppumaan.
+
+Rauhankulkue päättyi Helsingin Senaatintorille, jossa nähtiin esimerkiksi musiikkiesityksiä. Rauhantapahtumaan osallistui noin 1500 ihmistä.
+
+## Sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12608086)
+
+Avaa kuvien katselu
+
+Idässä ja pohjoisessa tulee sadekuuroja. Muualla on poutaa.
+
+Sää on sunnuntaina laajalti poutainen eli ei sada. Idässä ja pohjoisessa tulee paikoin sadekuuroja. Päivällä lämpötila on enimmäkseen 10 ja 15 asteen välillä.

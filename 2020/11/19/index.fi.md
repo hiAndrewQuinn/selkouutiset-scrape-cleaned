@@ -1,0 +1,79 @@
+# Torstai 19.11.2020 (radio)
+
+Koronatartuntojen määrä kasvaa Suomessa. Suomi jatkaa maahantulon rajoituksia. Koronarokotteista on saatu taas hyviä uutisia. Liisa-myrsky riehui torstaina. Perjantaina tuuli heikkenee ja sää kylmenee.
+
+## Suomen koronatilanne
+
+![STM:stä johtaja Pasi Pohjola, strategiajohtaja Liisa-Maria Voipio-Pulkki ja THL:n ylilääkäri Taneli Puumalainen STM:n ja THL:n koronavirustilannetta koskevassa tilannekatsauksessa Helsingissä 19. marraskuuta 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11656851)
+
+Avaa kuvien katselu
+
+Viranomaiset kertoivat torstaina Suomen koronatilanteesta. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Uusien koronatartuntojen määrä kasvaa Suomessa.
+
+Torstaina raportoitiin 351 uutta koronatartuntaa. Se on enemmän kuin koskaan ennen yhdessä päivässä.
+
+Suomessa on raportoitu yhteensä noin 20 000 koronatartuntaa. Asiantuntijat pelkäävät, että Suomen koronatilanne voi huonontua nopeasti.
+
+Koronatartuntoja on lisää myös vanhuksilla. Se on huono asia, koska korona on vaarallinen vanhuksille.
+
+Korona on levinnyt myös työpaikoilla. Asiantuntijat sanovat, että työntekijöiden pitää muistaa turvavälit ja hyvä hygienia myös taukotiloissa ja kahvihuoneissa.
+
+## Maahantulon rajoitukset
+
+![Matkustajia lähdössä Kemi-Tornion lentoasemalla](https://img.img-cdn.yle.fi/crop_extract,w_5780,h_3251,x_0,y_27/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7376025fa143a7cf85b/1604404551)
+
+Avaa kuvien katselu
+
+Lentoasemilla on nyt hiljaista. Kuva: Laura Valta / Yle
+
+Suomi jatkaa maahantulon rajoituksia. Hallitus päätti, että rajoitukset jatkuvat 13. joulukuuta asti.
+
+Suomeen ei voi tulla vapaasti Euroopan maista, joissa on koronatartuntoja yli sallitun rajan. Raja on 25 uutta koronatapausta 100 000 ihmistä kohden 2 viikossa.
+
+Raja on ankara. Käytännössä se tarkoittaa, että matkustus muualta Euroopasta Suomeen on poikki. Vain työmatkaliikenne Virosta ja Ruotsista on sallittua ilman karanteenia.
+
+Suomen koronatilanne on Euroopan paras. Siksi hallitus yrittää rajoitusten avulla estää koronan leviämisen ulkomailta Suomeen.
+
+## Koronarokotteen testitulokset
+
+![AstraZenecan rokotetta testataan mAbxience-laboratoriossa, Garinissa, Argentiinassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11613763)
+
+Avaa kuvien katselu
+
+Oxfordin yliopiston ja AstraZenecan koronarokote toimi testissä hyvin. Kuva: Juan Ignacio Roncoroni / EPA
+
+Koronarokotteista on saatu taas hyviä uutisia.
+
+Oxfordin yliopiston koronarokotteen testitulokset ovat hyviä. Oxfordin yliopisto kehittää koronarokotetta yhdessä AstraZeneca-lääkefirman kanssa.
+
+Tämä on jo kolmas koronarokote, josta saadaan hyviä testituloksia. Asiantuntijat arvioivat, että koronarokotteet tulevat käyttöön ensi vuonna.
+
+## Liisa-myrsky
+
+![Kuvassa on Liisa-myrskyn Luvialla 19. marraskuuta kaatama puu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11656686)
+
+Avaa kuvien katselu
+
+Liisa-myrsky on kaatanut puita. Kuva: Jenni Joensuu / Yle
+
+Suomessa on ollut torstaina myrsky. Myrsky sai nimen Liisa.
+
+Myrskytuuli on puhaltanut kovaa, ja Liisa-myrsky katkaisi sähköt tuhansilta kodeilta.
+
+Myrsky rikkoi myös junarataa Keski-Suomessa. Siksi osa junaliikenteestä on ollut poikki, ja junamatkustajia on kuljetettu busseilla.
+
+Liisa-myrskyssä on myös satanut paljon. Esimerkiksi Kokkolassa satoi yli 5 senttimetriä vettä yhdessä päivässä. Pohjoisessa on satanut lunta.
+
+## Perjantain sää
+
+![Kuura peittää lehdet loppusyksyn kylmänä aamuna](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9748996)
+
+Avaa kuvien katselu
+
+Perjantaina sää kylmenee myös etelässä. Kuva: Hanne Leiwo/Yle
+
+Perjantaina sää muuttuu. Tuuli heikkenee, ja samalla sää kylmenee.
+
+Perjantaina päivällä lumikuuroja tulee etelä- ja keskiosassa Suomea. Perjantai-iltana sateet loppuvat, ja sää kylmenee lisää.

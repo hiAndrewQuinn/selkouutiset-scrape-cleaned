@@ -1,0 +1,89 @@
+# Radio Selkouutiset sunnuntai 11.6.2023
+
+RKP:n puheenjohtaja. Kanadan maastopalot. Pakistanin rankkasateet. Mansikkasato. Valas. Sää.
+
+## RKP:n puheenjohtaja
+
+![Anna-Maja Henriksson.](https://img.img-cdn.yle.fi/crop_extract,w_2904,h_1633,x_0,y_145/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11280706485a1c623bb0/1686479500)
+
+Avaa kuvien katselu
+
+RKP:n puheenjohtaja Anna-Maja Henriksson. Kuva: Bengt Östling / Yle
+
+Anna-Maja Henriksson jatkaa RKP:n puheenjohtajan tehtävässä.
+
+RKP:n puoluekokous valitsi Henrikssonin puheenjohtajaksi sunnuntaina. Muita ehdokkaita ei ollut.
+
+Henriksson on ollut RKP:n puheenjohtaja vuodesta 2016 lähtien.
+
+Henriksson on ollut monta vuotta myös Suomen oikeusministeri.
+
+## Kanadan maastopalot
+
+![Ilmakuva metsäpalosta.](https://img.img-cdn.yle.fi/crop_extract,w_5104,h_2871,x_1,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-112781364845d5e52e23/1686820309)
+
+Avaa kuvien katselu
+
+Kanadassa palaa metsää ja muuta maastoa laajoilla alueilla. Kuva: AFP
+
+Maastopalot jatkuvat Kanadassa. Maastoa ja metsää palaa jo noin 400 paikassa.
+
+Tuli uhkaa jo monien kanadalaisten koteja. Siksi monta tuhatta kanadalaista on jättänyt kodin ja lähtenyt pakoon maastopaloja.
+
+Kanadan viranomaiset sanovat, että maastopalot ovat nyt pahempia kuin koskaan ennen. Maastopaloja on myös isolla alueella eri puolilla Kanadaa.
+
+Maastopalojen savu on levinnyt Kanadasta myös USA:n puolelle. Viime päivinä esimerkiksi New Yorkissa oli niin paljon savua, että ihmisten oli parempi pysyä sisällä.
+
+## Pakistanin rankkasateet
+
+![Miestä kuljetetaan paareilla sairaalaan. Sairaalan oven ympärillä toistakymmentä ihmistä.](https://img.img-cdn.yle.fi/crop_extract,w_3880,h_2182,x_0,y_290/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11280026484d53b0b031/1686427299)
+
+Avaa kuvien katselu
+
+Ihmisiä on kuollut ja loukkaantunut Pakistanin rankkasateissa. Kuva: Noman Khan / EPA
+
+Pakistanissa on ollut kovia sateita ja tuulia. Rankkasade ja myrskytuuli iskivät Pakistaniin lauantaina.
+
+Pakistanin viranomaiset kertovat, että noin 30 ihmistä kuoli rankkasateen takia. Kuolleiden joukossa on myös lapsia. Loukkaantuneita on paljon.
+
+Sateet ovat tehneet myös paljon vahinkoja. Esimerkiksi taloja on romahtanut rankkasateen takia.
+
+## Mansikkasato
+
+![Mansikka varressa.](https://img.img-cdn.yle.fi/crop_extract,w_1723,h_967,x_0,y_144/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10976706435564757156/1681217423)
+
+Avaa kuvien katselu
+
+Mansikat kypsyvät lämpimässä säässä nopeasti. Kuva: Erkki Suonio
+
+Suomen mansikkasato kypsyy pian. Mansikat kypsyvät nyt nopeasti, koska sää lämpenee.
+
+Suomalaisia mansikoita tulee enemmän myyntiin jo noin 2 viikon kuluttua eli juhannuksen aikaan.
+
+Arvioidaan, että mansikan hinta on tänä kesänä korkeampi kuin viime vuonna.
+
+## Valas
+
+![Kartassa Turun ja Ahvenanmaan saaristo, Kökar, Eckerö, Maarianhamina ja Turku.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11280826485b48c22a7a/1686484170)
+
+Avaa kuvien katselu
+
+Valas nähtiin viikonloppuna Eckerön ja Kökarin lähellä Ahvenanmaalla. Kuva: Leena Luotio / Yle
+
+Suomen merialueella liikkuu iso valas. Kalastajat ovat nähneet valaan Ahvenanmaan lähellä.
+
+Asiantuntijat arvioivat, että valas on ehkä ryhävalas. Ryhävalas painaa usein noin 30 000 kiloa ja on noin 15 metriä pitkä.
+
+## Sää
+
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11280936485df82f2dea/1686495159)
+
+Avaa kuvien katselu
+
+Sää lämpenee.
+
+Maanantaina lämpötila on yli 20 astetta suuressa osassa maata.
+
+Tiistaina lämpötila nousee etelässä jopa 25 asteeseen, keskiviikkona jopa 27 asteeseen. Etelään on siis luvassa hellettä. Rannikolla on vähän viileämpää, koska meri viilentää ilmaa.
+
+Pohjoisessa lämpötilat ovat alempia kuin etelässä. Lapissa lämpötila on maanantaina noin 20 astetta ja tiistaina Lapin lämpötila putoaa 10 ja 15 asteen välille.

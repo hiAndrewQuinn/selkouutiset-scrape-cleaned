@@ -1,0 +1,69 @@
+# Perjantai 21.8.2020 (radio)
+
+Koronan talousvaikeudet jatkuvat monissa perheissä. Suomi osallistuu EU:n rokotehankintaan. Suomalaiset palasivat alkoholiostoksille Viroon. Koronatilanne voi muuttaa linnanjuhlia. Sää.
+
+## Perheiden korona-ahdinko jatkuu
+
+![Hope ry:n vapaaehtoinen Anja Salmi esittelee lahjoituksena saatua urheilupaitaa. ](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_480/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7099845f3e28d1a1ce5/1597909629)
+
+Avaa kuvien katselu
+
+Avustustyöntekijä järjestelee vaatteita, joita ihmiset ovat lahjoittaneet. Ruokaa ja vaatteita tarvitaan monissa perheissä, joissa rahaa on vähän. Kuva: Milka Krogerus / Yle
+
+Monissa perheissä jatkuu huono taloustilanne koronatilanteen takia. Monissa perheissä rahat eivät riitä, jos esimerkiksi äiti tai isä on joutunut työttömäksi tai lomautetuksi.
+
+Perheiden avustusjärjestö *Hope* kertoo, että siltä pyydetään nyt paljon apua.
+
+Esimerkiksi vaatteita, hygieniatarvikkeita ja ruoka-apua tarvitaan monissa perheissä.
+
+## Suomi mukaan EU:n rokotehankintaan
+
+![Kuvassa on Suomen ja Euroopan unionin liput.](https://img.img-cdn.yle.fi/crop_extract,w_4866,h_2737,x_0,y_456/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6731635eb693b5a04b3/1589096939)
+
+Avaa kuvien katselu
+
+Suomen lippu ja EU:n lippu. Kuva: Silja Viitala / Yle
+
+Suomi osallistuu EU:n yhteiseen koronavirusrokotteen hankintaan.
+
+EU:n komissio on tehnyt lääkefirma AstraZenecan kanssa sopimuksen, että EU saa ostaa lääkefirmalta koronarokotetta, kun rokote on valmis.
+
+EU-maiden on helpompi saada rokotetta yhdessä, koska EU on lääkefirmalle iso asiakas. Suomi on päättänyt, että Suomi osallistuu rokotteen yhteishankintaan.
+
+## Suomalaisia käy taas Tallinnan alkoholikaupoissa
+
+![Miikka Riikonen Helsingistä ja Juha Tunttunen Tuusulasta ostivat Tallinnasta kotiin viemisiksi olutta ja siideriä. Heidän mielestään juomien hinnat ovat Virossa niin paljon halvempia kuin Suomessa, että niiden kuljettaminen meren yli on vaivan arvoista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11504577)
+
+Avaa kuvien katselu
+
+Miikka Riikonen ja Juha Tunttunen ostivat Tallinnasta olutta ja siideriä.  Kuva: Silja Massa
+
+Suomalaiset turistit ovat palanneet Viron alkoholikauppoihin. Kevät oli Viron alkoholikaupoissa hiljaista, koska matkailu loppui koronatilanteen takia.
+
+Nyt suomalaisia on taas käynyt Viron alkoholikaupoissa. Viron alkoholikaupat kertovat, että myyntimäärät ovat palanneet normaaliksi. Osa suomalaisista on myös ostanut aiempaa enemmän alkoholia. Tallinnan sataman alkoholikauppojen asiakkaista suurin osa, jopa 80 prosenttia, on suomalaisia.
+
+Viron alkoholikaupat pelkäävät, että koronatilanne voi lopettaa matkustamisen taas syksyllä.
+
+## Linnanjuhlat pitää ehkä järjestää uudella tavalla
+
+![Presidenttipari tanssii, Itsenäisyyspäivän Juhlavastaanotto Presidentinlinnassa vuonna 2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11090836)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö ja rouva Jenni Haukio Linnanjuhlissa vuonna 2016. Kuva: AOP
+
+Tasavallan presidentin itsenäisyyspäivän vastaanotto eli Linnan juhlat järjestetään tänä vuonna ehkä uudella tavalla.
+
+Presidentti Sauli Niinistön toimisto miettii, miten juhlat voidaan järjestää. Koronatilanteen takia presidentinlinnaan ei ehkä voida kutsua vieraita, koska linnassa on ahdasta.
+
+Presidentin itsenäisyyspäivän vastaanotto on Suomen itsenäisyyspäivänä eli 6. joulukuuta. Presidentin toimisto kertoo myöhemmin syksyllä, miten juhlat järjestetään.
+
+## Sää
+
+![Sadepilviä Tuusulanjärvellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11465036)
+
+Avaa kuvien katselu
+
+Sadepilviä. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Lauantaina lännessä sataa. Sade voi olla lännessä runsasta. Iltapäivällä ja illalla sadekuuroja leviää myös muualle Suomeen. Lämpötila on noin 20 astetta.

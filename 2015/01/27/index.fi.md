@@ -1,0 +1,49 @@
+# Tiistai 27.1.2015
+
+Asuntojen hinnat laskevat ja vuokrat nousevat. Hoitajat huolissaan vanhusten hoidosta. Valio ostaa maidon halvemmalla. Auschwitzin vangit vapaiksi tasan 70 vuotta sitten.
+
+## Asuntojen hinnat laskevat ja vuokrat nousevat
+
+![Minna Ruppa asunnonesittelijä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7274358)
+
+Avaa kuvien katselu
+
+Asuntovälittäjä esittelee asuntoa. Kuva: Heikki Ahonen / Yle
+
+Asunnot halpenevat tänä vuonna melkein prosentin verran.  Helsingissä hintojen lasku on pienempi, noin 0,5 prosenttia. Pellervon taloustutkimus PTT kertoo, että vuosina 2016 ja 2017 asuntojen hinnat nousevat vähän. Ne nousevat saman verran kuin palkat.
+
+Sen sijaan asuntojen vuokrat nousevat tänä vuonna 2-3 prosenttia. Vuokrat nousevat, koska vuokra-asuntoja tarvitaan enemmän huonon taloustilanteen takia. Joillakin alueilla Helsingissä vuokrat ovat nousseet enemmän, kuin mitä ihmisillä on rahaa maksaa.
+
+## Hoitajat huolissaan vanhusten hoidosta
+
+![Kotihoito, vanhus, Siiri ja Viktor Hammela](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7165537)
+
+Avaa kuvien katselu
+
+Moni vanhus haluaa asua kotona. Hoitajat ovat huolissaan kotihoidon laadusta. Kuva: Elise Tykkyläinen / Yle
+
+Hoitajat ovat huolissaan siitä, miten vanhuksia hoidetaan kotona. Hoitajien järjestö SuPer kysyi hoitajilta asiasta. Suuri osa hoitajista sanoi, että hoidon laatu on huonontunut. Lisäksi he sanoivat, että on liian vähän työntekijöitä, jotka hoitavat vanhuksia kotona. He sanoivat myös, että vanhukset eivät saa kaikkia tarpeellisia palveluja ja hoitoja. Kysely tehtiin työntekijöille, jotka hoitavat vanhuksia kotona. Kyselyyn vastasi 2400 hoitajaa.
+
+## Valio ostaa maidon halvemmalla
+
+![Maitotila, lehmä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7638822)
+
+Avaa kuvien katselu
+
+Valio maksaa vähemmän maidosta. Maitotilalliset menettävät paljon rahaa. Kuva: Juuso Valkonen / Yle
+
+Maitofirma Valio kertoi, että se maksaa maidosta vähemmän maatiloille, jotka myyvät maitoa. Hinta laskee helmikuun alussa 35 senttiin litralta. Hinta oli aikaisemmin 40 senttiä litralta. Valio laskee hintaa, koska Venäjälle ei enää viedä maitoa. Syynä on myös se, että perheillä on vähemmän rahaa, ja he ostavat vähemmän maitoa.
+
+Maanviljelijöiden järjestö MTK sanoo, että maanviljelijät menettävät paljon rahaa hinnan alennuksen takia.
+
+## Auschwitzin vangit vapaiksi tasan 70 vuotta sitten
+
+![Auschwitzin keskitysleirin portti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7761862)
+
+Avaa kuvien katselu
+
+Auschwitzin keskitysleirin portti 26.1.2015 Kuva: Jacek Bednarczyk / EPA
+
+Tänään tiistaina on muisteltu Auschwitzin keskitysleirin uhreja. Nyt on kulunut tasan 70 vuotta siitä, kun Neuvostoliiton joukot vapauttivat keskitysleirin vangit. Natsit olivat perustaneet Auschwitzin keskitysleirin Puolaan. Siellä he tappoivat yli miljoona ihmistä. Heistä suurin osa oli juutalaisia.
+
+Muistotilaisuuteen osallistui jopa sata Auschwitzin entistä vankia sekä paljon Euroopan johtajia, esimerkiksi Ranskan ja Saksan presidentit. Sen sijaan Venäjän presidentti Vladimir Putin ei ollut paikalla, vaikka nimenomaan Neuvostoliiton joukot vapauttivat Auschwitzin. Joidenkin tietojen mukaan Puola ei kutsunut Putinia tilaisuuteen, koska mailla on huonot välit Ukrainan kriisin takia.

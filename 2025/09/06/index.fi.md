@@ -1,0 +1,81 @@
+# Radio | Uutisviikko selkosuomeksi | lauantai 6.9.2025
+
+Säästöt valtion budjetissa
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Säästöt valtion budjetissa
+
+Uutisviikon aihe on tällä kertaa säästöt valtion budjetissa.
+
+Hallituksella oli tällä viikolla tärkeä budjettikokous.
+
+Hallitus päätti useiden miljardien eurojen säästöistä. Säästöt toteutuvat vuosien 2026 ja 2027 aikana.
+
+Hallituksen tavoite on vähentää valtion velkaa ja parantaa Suomen talouden tilannetta.
+
+Kerromme nyt säästöistä, joista hallitus päätti.
+
+![Moderni kerrostalo, jossa on useita parvekkeita ja punatiilistä seinäpintaa.](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_312/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1755509156/39-150870368a2ef86038b6)
+
+Avaa kuvien katselu
+
+Vuokra-asuntojen rakentamistukea leikataan. Kuva: Mikko Savolainen / Yle
+
+## Vuokra-asuntojen rakentaminen
+
+Suurin leikkaus tulee kohtuuhintaiseen asuntotuotantoon.
+
+Valtio vähentää tukea vuokra-asuntojen rakentamiseen ja peruskorjauksiin melkein 370 miljoonaa euroa.
+
+Tämä voi vaikeuttaa asunnon saantia erityisesti pienituloisille ja esimerkiksi maahanmuuttajille.
+
+Firmojen tukia leikataan yli 140 miljoonaa euroa.
+
+Myös firmojen innovaatiotukia, eli uusien ideoiden tukia ja energiahankkeiden tukia leikataan.
+
+Tutkimus- ja kehitysrahoituksesta leikataan noin 95 miljoonaa euroa.
+
+## Kotouttamispalvelut
+
+Kehitysyhteistyöstä leikataan 20 miljoonaa euroa. Leikkaus ei kuitenkaan kohdistu kansalaisjärjestöjen työhön.
+
+Maahanmuuttajien kotouttamispalveluista leikataan 30 miljoonaa euroa. Tämä tehdään niin, että kunnilta vähennetään velvollisuuksia kotoutukseen.
+
+Leikkauksia tehdään myös yksityislääkärikäyntien Kela-korvauksiin, virastojen rahoitukseen ja sosiaali- ja terveydenhuollon henkilökunnan koulutukseen.
+
+Säästöjä tehdään myös lääkekorvauksista.
+
+Budjettiin otetaan rahaa myös Valtion eläkekassasta ja Metsähallitukselta.
+
+![Savonlinnan kansanopiston opetustilanne luokassa.](https://images.cdn.yle.fi/image/upload/c_crop,h_2268,w_4032,x_0,y_448/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1739520684/39-142177967aef398879b2)
+
+Avaa kuvien katselu
+
+Kotoutuskoulutuksen oppitunti Savonlinnan kansanopistossa. Kunnilta vähennetään velvollisuutta järjestää kotouttamiskoulutusta. Kuva: Sami Ikonen / Yle
+
+## Alkoholi- ja tupakkavero
+
+Hallitus ei kiristä veroja yleisesti, mutta haittaveroja korotetaan.
+
+Esimerkiksi alkoholin, tupakan ja nikotiinituotteiden veroja nostetaan.
+
+Suurituloisten eläkeläisten veronalennus jää pienemmäksi kuin mitä hallitus sanoi aiemmin.
+
+Hallitus sanoo, että uusia säästöjä ei kohdisteta sosiaaliturvaan, lapsiperheiden etuuksiin, eläkkeisiin eikä sosiaali- ja terveyspalveluihin.
+
+Myös maatalouden ruokatuotantoon ja luonnonsuojeluun ei tehdä säästöjä.
+
+## Kertaus
+
+Uutisviikon aihe oli säästöt valtion budjetissa.
+
+Leikkauksia tulee noin miljardi euroa. Leikkaukset vaikuttavat eniten ensi vuonna, ja ne jatkuvat myös seuraavana vuonna.
+
+Säästöjä tehdään erityisesti asuntotuista, firmatuista ja esimerkiksi tutkimuksesta.
+
+Uusia säästöjä ei kohdisteta lapsiperheisiin, eläkkeisiin tai peruspalveluihin.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!

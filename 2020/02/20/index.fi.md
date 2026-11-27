@@ -1,0 +1,83 @@
+# Torstai 20.2.2020 (radio)
+
+Saksassa on kuollut ihmisiä ampumisessa. EU-maiden johtajat neuvottelevat unionin rahoista. Presidentti Sauli Niinistö terveys on hyvä. Ruotsin asukasluku kasvaa. Kopioi/liitä -komennon keksijä on kuollut.
+
+## Ampumistapaus Saksassa
+
+![Poliiseja joukkoampumispaikalla Saksan Hanaussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11219211)
+
+Avaa kuvien katselu
+
+Ampuja iski 2 vesipiippukahvilaan Hanaussa. Kuva: Thomas Lohnes / AFP
+
+Saksassa on kuollut ihmisiä ampumisessa. Ampuja tappoi 9 ihmistä Hanaussa, lähellä Frankfurtin suurkaupunkia.
+
+Kuolleet olivat maahanmuuttajia. Ampuminen tapahtui 2 vesipiippukahvilassa keskiviikkona.
+
+Ampuja oli 43-vuotias saksalainen mies. Teon jälkeen mies ampui itsensä. Poliisi löysi ruumiin ampujan kodista.
+
+Poliisi löysi ampujan kodista myös toisen kuolleen. Hän oli ampujan äiti. Ampuja todennäköisesti tappoi myös hänet.
+
+Ampumista tutkitaan terrorismina. Saksan lehdet kertovat, että ampuja jätti videoviestin. Viestissä oli vihaa maahanmuuttajia kohtaan.
+
+## EU-johtajien kokous
+
+![Sanna Marin ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11219842)
+
+Avaa kuvien katselu
+
+Suomen pääministeri Sanna Marin on mukana Brysselin kokouksessa. Kuva: Ian Langsdon / EPA
+
+EU-maiden johtajat ovat kokoontuneet Brysseliin. He neuvottelevat Euroopan unionin rahoista.
+
+EU:n rahat vähenevät, koska Britannia ei enää maksa jäsenmaksuja EU:lle. Britannia erosi EU:sta tammikuun lopussa.
+
+EU-maat ovat eri mieltä siitä, mitä uudessa tilanteessa pitää tehdä.
+
+Rikkaat EU-maat haluavat, että EU alkaa säästää. Ne eivät halua maksaa suurempia jäsenmaksuja EU:lle.
+
+Köyhät EU-maat eivät kannata säästämistä. Ne pelkäävät, että niiden EU-tuet pienenevät.
+
+EU-maiden neuvotteluista tulee vaikeat.
+
+## Presidentin terveys on hyvä
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11219275)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Emmi Korhonen / Lehtikuva
+
+Presidentti Sauli Niinistö terveys on hyvä. Uusi lääkärinlausunto kertoo, että Niinistöllä ei ole sairauksia, jotka haittaavat presidentin tehtävien hoitamista.
+
+Suomessa on julkaistu tietoja presidentin terveydestä jo melkein 40 vuoden ajan. Tavan aloitti presidentti Mauno Koivisto.
+
+Ennen Koivistoa Suomen presidenttinä oli Urho Kekkonen. Presidentti Kekkonen oli lopuksi niin sairas, että hänen piti erota presidentin työstä.
+
+## Ruotsin asukasluku kasvaa
+
+![Katunäkymä Tukholmasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11202905)
+
+Avaa kuvien katselu
+
+Ruotsin ja sen pääkaupungin Tukholman asukasluku on kasvanut. Kuva: Frida Lönnroos
+
+Suomen naapurimaan Ruotsin asukasluku kasvaa. Ruotsalaisia on nyt vähän yli 10 miljoonaa.
+
+10 viime vuoden aikana Ruotsin asukasluku on kasvanut noin miljoonalla.
+
+Ruotsin asukasluku on kasvanut erityisesti maahanmuuton takia.
+
+## Larry Tesler on kuollut
+
+![Larry Tesler](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11218692)
+
+Avaa kuvien katselu
+
+Larry Tesler keksi copy/paste -komennon. Kuva: Wikimedia / CC BY 2.0
+
+Tietotekniikan tutkija Larry Tesler on kuollut. Amerikkalainen Tesler oli 74-vuotias.
+
+Tesler teki pitkän uran tietotekniikan parissa. Hän teki töitä esimerkiksi Applelle.
+
+Tesler halusi tehdä tietokoneiden käytöstä helpompaa. Hän keksi esimerkiksi kopioi/liitä -komennon eli copy/paste -komennon.

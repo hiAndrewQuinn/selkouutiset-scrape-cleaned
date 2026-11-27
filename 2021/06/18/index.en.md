@@ -1,0 +1,70 @@
+# Friday 18.6.2021 (radio)
+
+Summer cottages. Corona epidemic. Elokapina. The weather
+
+The TV easy news has a summer break.
+The radio easy news is made every day, also in summer.
+
+## Summer cottages
+
+![summer cottage in Asikkala](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_573/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6715255eb286807eb42/1588758240)
+
+Open image viewer
+
+Finns spend an average of about 100 days a year at their cottage. Photo: Juha-Petri Koponen / Yle
+
+Finns spend more time at their cottage than before.
+
+A new survey says that Finns spend an average of about 100 days a year at their cottage. That is about 20 days more than in 2016, when the survey was last done.
+
+Many people spend more time at the cottage because of the corona epidemic. Many also do remote work at the cottage.
+
+The survey shows that as many as about 3 million Finns spend time at a cottage. Most cottages are by the water. The average distance from home to the cottage is a little over 100 kilometres.
+
+The size of cottages is the same as 5 years ago, on average about 70 square metres. However, the equipment level of cottages has risen. More and more cottages now have, for example, a shower, a dishwasher or an air-source heat pump.
+
+About 5,000 cottage owners answered the Natural Resources Institute's cottage survey.
+
+## Corona epidemic
+
+![People queuing for coronavirus vaccination at the vaccination point at the Tampere Messukeskus.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_567/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82212060cb0876eab0e/1623918903)
+
+Open image viewer
+
+People are queuing for coronavirus vaccination at the Tampere Messukeskus. Photo: Miikka Varila / Yle
+
+The corona epidemic is still easing in Finland.
+
+The corona epidemic is now at the basic level in almost the whole country. The epidemic is still at the acceleration level in the Helsinki region and in the Kanta-Häme and Päijät-Häme hospital districts.
+
+The Ministry of Social Affairs and Health says that remote work has helped to hold back corona. That is why the remote work recommendation continues over the summer in the areas at the acceleration stage.
+
+Today it was reported that 73 new coronavirus infections have been found in Finland. About 50 of the infections have been found in the Helsinki region.
+
+People still go to corona tests diligently. About 90,000 corona tests are done every week.
+
+## Elokapina
+
+![People demonstrating by sitting on the road.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_491/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82226560cb317b70ecd/1623930749)
+
+Open image viewer
+
+Elokapina demonstrators sat on Mannerheimintie. Photo: Miro Johansson / Yle
+
+The environmental movement Elokapina has demonstrated in Helsinki. About 100 people have demonstrated on Mannerheimintie near the Parliament House.
+
+The demonstration started on Thursday afternoon, and it continued overnight and still on Friday. The police allowed the demonstration to continue, because it did not cause major harm to traffic or public order.
+
+Elokapina demands that the government declares a climate emergency.
+
+## The weather
+
+![weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11989514)
+
+Open image viewer
+
+Photo: Yle Meteo
+
+On Saturday the weather is sunny in almost the whole country. In the central part of the country there may be rain or thunder showers.
+
+It may be up to 30 degrees warm in the south, and it is cooler in the north.

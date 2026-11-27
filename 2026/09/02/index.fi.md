@@ -1,0 +1,69 @@
+# Selkouutiset | keskiviikko 2.9.2026
+
+Vuoden 2027 budjetti. Budjetin vaikutukset. Kittilän kultakaivos. Sääennuste.
+
+## Vuoden 2027 budjetti
+
+Aluksi uutinen politiikasta.
+
+Hallitus on sopinut ensi vuoden budjetista. Hallitus kertoi asiasta illalla.
+
+Ensi vuoden budjetti on noin 92,5 miljardia euroa. Se on 800 miljoonaa euroa enemmän kuin tänä vuonna.
+
+Valtio antaa lisää rahaa puolustukseen ja Ukrainalle.
+
+Lisää rahaa saavat myös tiet, radat ja tutkimus.
+
+Hallitus kuitenkin leikkaa tukea järjestöiltä ja kunnilta.
+
+Pääministeri **Petteri Orpo** sanoo, että budjetti vahvistaa ostovoimaa ja työllisyyttä.
+
+”Me vahvistetaan kotien ostovoimaa. Ja me vahvistetaan edellytyksiä kasvun ja työllisyyden edelleen parantumiselle.”
+
+Hallitus on sopinut ensi vuoden budjetista.
+
+Budjetti on yli 12 miljardia euroa alijäämäinen. Se tarkoittaa, että valtio käyttää enemmän rahaa kuin saa tuloja.
+
+## Budjetin vaikutukset
+
+Nyt uutinen siitä, mitä asiantuntijat sanovat budjetista.
+
+Asiantuntijat sanovat, että budjetin vaikutukset tulevat hitaasti.
+
+Yliopistotutkija **Jenni Karimäki** sanoo, että ensi vuoden vaalit näkyvät budjetissa. Siksi hallitus ei tehnyt enää uusia isoja leikkauksia.
+
+Pääekonomisti **Mauri Kotamäki** ja professori **Johanna Wallenius** sanovat, että budjetti ei vahvista valtion taloutta heti.
+
+Esimerkiksi firmojen veroalennukset ja leikkaukset sosiaaliturvaan vaikuttavat talouteen vasta myöhemmin.
+
+Monet muutokset vievät aikaa. Siksi budjetin vaikutukset näkyvät vasta hitaasti.
+
+## Kittilän kultakaivos
+
+Lopuksi uutinen kultakaivoksesta.
+
+Tämä on Kittilän kultakaivos Lapissa.
+
+Kaivos on saavuttanut tärkeän vaiheen. Se on tuottanut rahaa niin paljon kuin kaivoksen rakentaminen maksoi. Tästä eteenpäin kaivos tuottaa voittoa.
+
+Kittilän kaivos on Euroopan suurin kultakaivos.
+
+Siellä on kaivettu kultaa jo lähes 20 vuotta.
+
+20 vuoden aikana kullan hinta on noussut paljon. Hinta on nyt 8 kertaa niin paljon, kuin silloin kun tehdas aloitti.
+
+Kittilän kultakaivoksella menee hyvin.
+
+Kaivoksen johtaja **Jani Lösönen** sanoo, että työt jatkuvat Kittilässä vielä 2040-luvulla.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Maan keskivaiheilla ja idässä tulee vesisateita.
+
+Lapissa ja lännessä tulee sadekuuroja.
+
+Etelässä ja lännessä voi paistaa välillä aurinko.
+
+Lämpötila on 15–20 astetta.

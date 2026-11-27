@@ -1,0 +1,70 @@
+# TV \| Selkouutiset \| maanantai 3.3.2025
+
+Sota Ukrainassa. Opiskelu. Laskiainen. Sää.
+
+## Sota Ukrainassa
+
+Ensin aiheena sota Ukrainassa.
+
+Euroopan johtajilla oli sunnuntaina kokous Lontoossa.
+
+Kokouksen aihe oli, miten Ukrainaan tulee rauha.
+
+Myös Suomen presidentti **Alexander Stubb** oli kokouksessa.
+
+Kokouksen jälkeen Ranska ja Britannia tekivät ehdotuksen.
+
+Ne ehdottivat, että Venäjä ja Ukraina pitävät tauon taisteluissa.
+
+Tauon aikana ne eivät taistele merellä tai ilmassa. Maajoukkoja tauko ei aluksi koske.
+
+Euroopan johtajilla oli sunnuntaina Lontoossa Ukraina-kokous.
+
+Euroopan maat sopivat Ukrainan kanssa, että ne alkavat valmistella rauhaa yhdessä.
+
+Osa Euroopan maista sanoo, että ne voivat lähettää sotilaita Ukrainaan sitten, kun sota loppuu.
+
+Sotilaat valvovat, että rauha pysyy.
+
+Venäjä hyökkäsi Ukrainaan 3 vuotta sitten.
+
+## Opiskelu
+
+Sitten aiheena opiskelu.
+
+Yliopistot haluavat lisää opiskelijoita, joiden äidinkieli ei ole suomi.
+
+Opiskelijoita, joilla suomi on toinen kieli, halutaan koulutukseen suomen kielellä.
+
+Siksi Jyväskylän yliopisto aloittaa ensi vuonna kokeilun.
+
+Kokeilussa tulee erillinen haku opiskelijoille, joilla suomi on toinen kieli.
+
+Se ehkä houkuttelee lisää opiskelijoita.
+
+Kokeilu koskee esimerkiksi opettajan koulutusta suomeksi.
+
+Yliopisto-koulutukseen suomeksi halutaan lisää opiskelijoita, joiden äidinkieli ei ole suomi.
+
+## Laskiainen
+
+Sitten aiheena laskiainen.
+
+Sunnuntaina oli laskiainen. Laskiainen aloittaa pääsiäisen odotuksen.
+
+Laskiaispullat ovat laskiaisen vanha herkku.
+
+Kauppiaat kertovat, että he myivät laskiaispullia tänä vuonna tosi paljon, monta miljoonaa.
+
+Laskiaispullia myytiin 30 prosenttia enemmän kuin viime vuonna.
+
+## Sää
+
+Vielä sääennuste.
+
+Tiistaina lännessä ja Lapissa paistaa aurinko. Idässä voi sataa lunta.
+
+Pohjoisessa on pikku pakkanen.
+
+Muualla lämpötila on +1:n ja +5 asteen välillä.
+

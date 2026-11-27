@@ -1,0 +1,53 @@
+# Tiistai 31.3.2015
+
+Ruoka halpenee tänä vuonna. Maksullinen netti-tv ei kiinnosta. Merikotkat kuolevat usein lyijymyrkytykseen. Nopeusrajoitukset vaihdetaan kesäaikaan.
+
+## Ruoka halpenee tänä vuonna
+
+![Maitoa kaupassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7900528)
+
+Avaa kuvien katselu
+
+Maidon hinta laskee tänä vuonna. Myös muiden elintarvikkeiden hinnat laskevat, arvioi PTT. Kuva: Jyrki Lyytikkä / Yle
+
+Ruuan hinta kaupoissa laskee. Näin ennustaa Pellervon taloustutkimuslaitos PTT. Kaikkien elintarvikkeiden hinnat laskevat. Eniten laskee maidon, leivän ja sianlihan hinta. Maidon hinta laskee ehkä yli 4 prosenttia. Viljan hinta laskee noin 3 prosenttia. Liha halpenee vajaat 2 prosenttia.
+
+PTT arvioi, että ensi vuonna ruuan hinta nousee vain vähän.
+
+Kauppa on pienentänyt kustannuksiaan ja myy ruokaa halvemmalla, koska ihmiset ovat vähentäneet ruuan ostamista. Myös ruuantuottajat saavat pienemmän hinnan tuotteistaan.
+
+## Maksullinen netti-tv ei kiinnosta
+
+![Katsomon netti-tv](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7899734)
+
+Avaa kuvien katselu
+
+Suomalaiset katsovat paljon netti-tv:tä. Maksulliset palvelut eivät kiinnosta niin paljon kuin ilmaiset. Kuva: Yle
+
+Suomalaiset eivät halua maksaa netti-tv-palveluista yhtä innokkaasti kuin muut pohjoismaalaiset.
+
+Täällä käytetään paljon kotimaisia ilmaisia palveluja. Netti-tv:tä katsotaan paljon. Ylivoimaisesti suosituin palvelu on Yle Areena. Sitä käyttää yli 80 prosenttia suomalaisista. Seuraavaksi eniten käytetään Katsomoa ja Ruutua. Suosituin kansainvälinen maksullinen tv-palvelu Netflix tulee vasta neljänneksi (4.).
+
+## Merikotkat kuolevat usein lyijymyrkytykseen
+
+![Merikotka nappaa saaliin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7410918)
+
+Avaa kuvien katselu
+
+Merikotka on suuri petolintu.  Kuva: Patrick Pleul / EPA
+
+Merikotkien kuolema johtuu usein lyijymyrkytyksestä. Tähän yllättävään tulokseen tulivat lintututkijat. He tutkivat lähes 100 kuollutta merikotkaa. Niistä 27 oli kuollut lyijymyrkytykseen. Tutkijat ajattelevat, että merikotkaan tulee lyijyä metsästyksen takia. Kun merikotka syö esimerkiksi vesilintuja, joita on ammuttu lyijyammuksilla, niiden lyijy siirtyy merikotkaan. Lyijymyrkytys aiheuttaa yleensä hitaan kuoleman.
+
+Manner-Suomessa lyijyammusten käyttö kiellettiin vesilintujen metsästyksessä jo lähes 20 vuotta sitten, mutta Ahvenanmaalla kieltoa ei ole.
+
+## Nopeusrajoitukset vaihdetaan kesäaikaan
+
+![Mies vaihtaa nopeusrajoitusmerkin näyttämään sadan kilometrin tuntinopeusrajoitusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7169845)
+
+Avaa kuvien katselu
+
+Nopeusrajoituksia vaihdetaan nyt kesänopeusrajoituksiin. Kuva: Mika Moksu / Yle
+
+Maanteillä nopeusrajoitukset muuttuvat. Alemmat talvinopeusrajoitukset vaihdetaan korkeampiin kesänopeusrajoituksiin vähitellen koko maassa.
+
+Moottoriteillä nopeusrajoitus nostetaan 100:sta 120 kilometriin tunnissa ja muilla pääteillä 80:sta 100 kilometriin tunnissa.

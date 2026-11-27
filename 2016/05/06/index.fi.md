@@ -1,0 +1,75 @@
+# Perjantai 6.5.2016 (radio)
+
+Maahanmuuttovirasto ei ole pystynyt tekemään turvapaikkapäätöksiä niin nopeasti, kuin se aikoi. Monet vanhukset eivät käytä verkkopankkia. Perjantaina on ollut kansallinen mökkipäivä. Jääkiekon MM-kilpailut ovat alkaneet. Tänä kesänä luonnossa voi nähdä paljon kyykäärmeitä. Lehmät ovat päässeet ulos.
+
+## Turvapaikkapäätöksiä yritetään tehdä nopeammin
+
+![Maahanmuuttoviraston tunnus rakennuksen ulkoseinässä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8514134)
+
+Avaa kuvien katselu
+
+Maahanmuuttovirastossa on nyt kiirettä. Kuva: Yle
+
+Maahanmuuttovirasto ei ole pystynyt tekemään turvapaikkapäätöksiä niin nopeasti, kuin se aikoi. Tavoite oli, että Maahanmuuttovirasto tekee jo maaliskuussa 1000 turvapaikkapäätöstä viikossa. Päätöksiä on kuitenkin tehty vain 600 viikossa.
+
+Maahanmuuttovirastolla on ollut ongelmia saada laitteita, joita tarvitaan tulkkauksessa. Maahanmuuttovirasto on kuitenkin saanut lisää työntekijöitä. Virasto uskoo, että turvapaikkapäätöksiä tehdään täydellä vauhdilla jo ensi viikolla.
+
+## Monet eläkeläiset eivät käytä verkkopankkia
+
+![Olavi Selin asioi pankin kassalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8859634)
+
+Avaa kuvien katselu
+
+Olavi Selin haluaa käydä pankissa, eikä käyttää tietokonetta. Kuva: Marko Melto / Yle
+
+Suomessa on paljon ihmisiä, jotka eivät käytä verkkopankkia. Verkkopankkitunnukset puuttuvat noin 400 000 suomalaiselta.
+
+Esimerkiksi monet vanhukset eivät käytä verkkopankkia. On vielä paljon eläkeläisiä, jotka olivat töissä ennen digiaikaa. He haluavat käydä pankissa, koska he eivät ole tottuneet hoitamaan asioita tietokoneella.
+
+Pankeissa arvioidaan, että jo 10 vuoden päästä tilanne on toinen. Silloin eläkkeellä on paljon ihmisiä, jotka ovat jo töissä tottuneet käyttämään tietokonetta.
+
+## Perjantai oli mökkipäivä
+
+![Aallot keinuttavat laituriin kiinnitettyä soutuvenettä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7320651)
+
+Avaa kuvien katselu
+
+Paras mökki on veden äärellä. Kuva: Anssi Lepikko / Yle
+
+Perjantaina on ollut kansallinen mökkipäivä. Mökki on monelle suomalaiselle tosi tärkeä.
+
+Suomalaiset haluavat, että mökki on järven tai meren rannalla. Veden puhtaus ei kuitenkaan vaikuta paljon mökin hintaan.
+
+Tärkeintä on se, kuinka lähellä Helsinkiä mökki on. Kalleimmat mökit ovat Etelä-Suomessa, vaikka etelän merivesi on usein melko likaista. Halvimmat mökit löytyvät Pohjois-Suomesta, jossa on puhtaita järviä.
+
+## Jääkiekon MM-kilpailut pelataan Venäjällä
+
+![Patrik Laine](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8841104)
+
+Avaa kuvien katselu
+
+Jääkiekko on suosittu peli Suomessa. Kuva: Tomi Hänninen
+
+Jääkiekon MM-kilpailut ovat alkaneet. Maailmanmestaruudesta pelataan tänä vuonna Venäjällä. Pelejä on Moskovassa ja Pietarissa.
+
+Jääkiekon MM-kilpailut jatkuvat 2 viikkoa. Toukokuun 22. päivä selviää, mikä maa on maailmanmestari tänä vuonna.
+
+## Kyykäärmeitä on nyt paljon
+
+![Kyykäärme maassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6615316)
+
+Avaa kuvien katselu
+
+Kyy on Suomen ainoa myrkkykäärme. Kuva: Pentti Palmu / Yle
+
+Tänä keväänä ja kesänä luonnossa voi nähdä paljon kyykäärmeitä. Suomalainen tutkija sanoo, että viime talvi oli kyykäärmeille helppo.
+
+Usein käärmeitä kuolee paljon talvella. Kyykäärme on talvella maan alla horroksessa eli syvässä unessa. Käärme herää keväällä, kun sää lämpenee.
+
+Kyykäärme on Suomen ainoa myrkyllinen käärme. Kyykäärmettä kannattaa varoa, mutta sitä ei tarvitse pelätä.
+
+## Lehmät ovat päässeet ulos
+
+Kuva: Minna Heikura / Yle
+
+Suomessa on nyt lämmin sää, ja lehmät ovat päässeet pitkästä aikaa ulos. Lehmät juoksevat ja hyppivät, kun ne talven jälkeen päästetään ulos eli lasketaan laitumelle. Talvella lehmät ovat navetassa.

@@ -1,0 +1,89 @@
+# Friday 12.2.2021 (radio)
+
+A new kind of coronavirus test has been developed in Finland. Many municipal workers will retire in the next few years. On Friday it was Sign Language Day. THL said how you can enjoy the skiing holiday safely. There is beautiful winter weather at the weekend.
+
+## New kind of coronavirus test
+
+![A breathalyser and a smartphone in close-up](https://img.img-cdn.yle.fi/crop_extract,w_3328,h_1872,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-76885760190c6d7a4e6/1613392572)
+
+Open image viewer
+
+A breathalyser and a smartphone in close-up. Photo: Markku Sandell / Yle
+
+A new kind of device for coronavirus testing has been developed in Finland. The device tells in a minute whether a person has a coronavirus infection or not.
+
+The device is a breathalyser. A person blows into the device, which measures the air you breathe out. The test result comes to the phone almost at once.
+
+Production of the device may start as early as February. Devices worth millions of euros have already been ordered from different parts of the world.
+
+## Finland's coronavirus figures
+
+![Finnish Institute for Health and Welfare, Helsinki.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11780252)
+
+Open image viewer
+
+Photo: Vesa Moilanen / Lehtikuva
+
+On Friday it was reported that 2 new coronavirus deaths have occurred in Finland. A total of 710 people have died in Finland because of the coronavirus.
+
+On Friday it was also reported that there are 407 new coronavirus infections. Almost 50,000 coronavirus infections have already been found in Finland.
+
+## Municipal workers
+
+![An anonymous practical nurse at the Jaala service centre in Kouvola.](https://img.img-cdn.yle.fi/crop_extract,w_6239,h_3509,x_0,y_272/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7342255f969c7f082e8/1743669565)
+
+Open image viewer
+
+Tens of thousands of carers will retire in the next few years. Photo: Antro Valo / Yle
+
+Many municipal workers will retire in the next few years.
+
+The pension insurer Keva estimates that about 30 percent of municipal workers now working will retire within the next 10 years.
+
+When many municipal workers retire, there may be a shortage of workers.
+
+For example, it is hard to find enough new carers, because about 19,000 practical nurses and 13,000 registered nurses will soon retire.
+
+## Sign Language Day
+
+![Mikaela Tillander and Thomas Sandholm in the studio.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10590736)
+
+Open image viewer
+
+Mikaela Tillander and Thomas Sandholm make Yle's news in sign language. Photo: Tiina Jutila / Yle
+
+Sign Language Day was celebrated in Finland on Friday. There are more than 5,000 sign language users in Finland.
+
+Sign language is made with hand movements and facial expressions. Most sign language users are deaf, which means they cannot hear speech.
+
+You can see Finnish sign language on television, for example. Yle broadcasts sign language TV news every day.
+
+## Safe skiing holiday
+
+![Ski trail at Ounasvaara.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11773067)
+
+Open image viewer
+
+Skiing is safe during the coronavirus time too. Photo: Annu Passoja / Yle
+
+The skiing holiday season will soon start in Finland. THL, the Finnish Institute for Health and Welfare, has said how you can enjoy the skiing holiday safely during the coronavirus time.
+
+THL says that outdoor exercise is safe. On holiday you can ski and go down hills. Outdoors the coronavirus usually does not spread.
+
+However, after being outdoors it is not a good idea to go to an after ski bar. Indoors the coronavirus spreads more easily, THL advises.
+
+## The weather at the weekend
+
+![Weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11788004)
+
+Open image viewer
+
+Photo: Yle
+
+There is beautiful winter weather at the weekend.
+
+On Saturday the weather is dry over most of the country, and only in Lapland will a little snow fall in places.
+
+The frost is weak in the south and west of the country. It is colder in the east and in the north.
+
+Sunday is also dry and sunny, but the frost tightens a little.

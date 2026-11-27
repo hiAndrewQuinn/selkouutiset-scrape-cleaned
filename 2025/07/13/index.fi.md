@@ -1,0 +1,75 @@
+# Radio | Uutisviikko selkosuomeksi | sunnuntai 13.7.2025
+
+Kesämökin kulut
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+Uutisviikon aihe on tällä kertaa kesämökin kulut.
+
+Suomalaiset viettävät paljon aikaa mökillä.
+
+Mökin omistajalla kuluu rahaa esimerkiksi ruokaan, remonttiin ja erilaisiin maksuihin.
+
+Kerromme nyt aiheesta lisää.
+
+## Ruoka ja mökin korjaaminen maksaa
+
+Kesämökistä tulee mökin omistajalle paljon erilaisia kuluja.
+
+Mökin omistajat ovat kertoneet kuluista maa- ja metsätalousministeriön kyselyssä. Kyselyyn vastasi 5 000 mökin omistajaa.
+
+Viime vuonna kesämökillä käytettiin rahaa keskimäärin noin 7 000 euroa.
+
+Eniten rahaa kuluu ruokaan ja mökin korjaamiseen. Lisäksi rahaa kuluu sähkömaksuun ja kiinteistöveroon.
+
+Moni mökin omistaja maksaa myös tien hoidosta, puhtaasta vedestä ja roskien kuljetuksesta.
+
+## Kulujen vähentäminen
+
+![Mökkeilijä Pete Mäki mökillään Puumalassa.](https://images.cdn.yle.fi/image/upload/c_crop,h_3213,w_5712,x_0,y_664/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1752066759/39-1491632686e6857c3bd5)
+
+Avaa kuvien katselu
+
+Pete Mäki mökin pihalla Puumalassa. Kuva: Petri Vironen/Yle
+
+Mökin omistaminen voi olla kallista.
+
+**Pete Mäki** omistaa mökin Puumalassa, Etelä-Savossa. Mäki käyttää kesämökillä rahaa noin 10 000 euroa vuodessa.
+
+Mäki sanoo, että eniten rahaa kuluu sähköön, ruokaan ja kiinteistöveroon. Viime syksynä mökkiin tehtiin kattoremontti.
+
+Moni mökin omistaja käyttää kuitenkin vähemmän rahaa kuin ennen. Usein syy on hintojen kallistuminen.
+
+Rahaa käytetään vähemmän esimerkiksi mökin korjaamiseen ja rakentamiseen. Korjausraha on noin 1000 euroa pienempi kuin 4 vuotta sitten.
+
+## Tuloja kuntaan ja kaupoille
+
+![Elina ja Jari Värelän mökki sijaitsee saaressa Kannonkoskella.](https://images.cdn.yle.fi/image/upload/c_crop,h_2247,w_3995,x_4,y_424/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1719219263/39-130787366792e4b58d7b)
+
+Avaa kuvien katselu
+
+Kesämökki Kannonkoskella.  Kuva: Niko Mannonen / Yle
+
+Suomessa on noin puoli miljoonaa mökkiä. Mökillä vietetään aikaa etenkin kesällä.
+
+Mökin omistajat tuovat paljon rahaa kuntaan, jossa mökki sijaitsee. Myös mökkikunnan ruokakaupoille on hyvä, kun ihmiset tulevat ostoksille.
+
+Esimerkiksi Varsinais-Suomessa, Taivassalon K-Marketissa myynti kasvaa, kun kesä alkaa. Kauppias **Timo Vormisto** kertoo, että kaupan myynti kaksinkertaistuu.
+
+Kauppa myy mökkiläisille pihvejä, makkaraa ja jäätelöä.
+
+## Kertaus
+
+![Rantasauna tyynen järven ääressä.](https://images.cdn.yle.fi/image/upload/c_crop,h_1123,w_1998,x_1,y_293/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1737986583/39-1412642679791432e1dc)
+
+Avaa kuvien katselu
+
+Kesämökin rantasauna järven rannalla. Kuva: Antti Tuuha
+
+Uutisviikon aihe oli kesämökin kulut.
+
+Mökin omistaja käyttää vuodessa rahaa keskimäärin noin 7 000 euroa. Rahaa kuluu esimerkiksi ruokaan, mökin remonttiin ja kiinteistöveroon.
+
+Moni kesämökin omistaja käyttää kuitenkin rahaa vähemmän kuin ennen.

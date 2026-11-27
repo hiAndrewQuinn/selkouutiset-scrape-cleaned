@@ -1,0 +1,69 @@
+# Keskiviikko 15.2.2023 (radio)
+
+Kuljetusalalla alkoi lakko. Kuljetusalan lakko vaikuttaa moniin asiohin. Afganistanilaiset naiset saavat Suomessa pakolaisaseman. Nato-maat lähettävät Ukrainaan lisää aseistusta. Sääennuste.
+
+## Kuljetusalan lakko
+
+![Aurinkoinen Vuosaaren satama.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_66/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107314863ecc16f7ad38/1676460582)
+
+Avaa kuvien katselu
+
+Satamalakko pysäyttää viennin ja tuonnin. Kuva: Silja Viitala / Yle
+
+Auto- ja kuljetusalalla on alkanut lakko. Lakko alkoi keskiviikkona aamulla, koska palkkaneuvotteluissa ei syntynyt sopua tiistaina. 
+
+Satamalakko pysäyttää lähes kokonaan Suomen viennin ja tuonnin. Viennin ja tuonnin arvo on noin 400 miljoonaa euroa päivässä. Siksi lakko vaikuttaa Suomen talouteen. 
+
+Vientialojen järjestö Teknologiateollisuus on vihainen auto- ja kuljetusalan lakosta. Teknologiateollisuuden aloille on tehty jo sopimus, mutta kuljetusalan lakko haittaa teknologiateollisuuden toimintaa tosi paljon. 
+
+## Lakon vaikutukset
+
+![Roska-astia on täynnä käytettyjä hautakynttilöitä Asikkalassa. Taustalla talvinen hautausmaa.](https://img.img-cdn.yle.fi/crop_extract,w_4027,h_2266,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105479263b298c7d13dd/1672649015)
+
+Avaa kuvien katselu
+
+Jäteastioiden tyhjennys harvenee lakon takia. Kuva: Petri Niemi / Yle
+
+Auto- ja kuljetusalan lakko vaikuttaa moniin asioihin. Esimerkiksi satamissa laivoja ei lastata tai pureta. Siksi lakko näkyy myös kaupoissa. 
+
+Esimerkiksi appelsiinit tai banaanit voivat loppua kaupoista, koska ne tuodaan ulkomailta. 
+
+Postin ja pakettien kulku voi hidastua. Helsingin seudulla jätteiden kuljetus ei toimi normaalisti. Siksi talojen roska-astiat voivat täyttyä. 
+
+## Afganistanilaiset pakolaiset
+
+![Afganistanin naisopiskelijat osoittavat mieltään Talebanin yliopistokieltoon Kabulissa, Afganistanissa 21.12.2022.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_567/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105589563b5a93233cfc/1672850987)
+
+Avaa kuvien katselu
+
+Naisten asema on huonontunut Afganistanissa. Kuva: STELLA Pictures/ddp/abaca press
+
+Maahanmuuttovirastolla on uusi linja afganistanilaisille pakolaisille. Kaikille afganistanilaisille naisille ja tytöille myönnetään Suomessa pakolaisasema. 
+
+Maahanmuuttovirasto sanoo, että naisten asema on huonontunut Afganistanissa paljon Talebanin valtaannousun takia. 
+
+Maahanmuuttovirasto sanoo, että kaikki naiset kohtaavat Afganistanissa vainoa. Siksi afganistanilaisilla tytöillä ja naisilla on oikeus turvapaikkaan Suomessa. 
+
+## Suomi, Ruotsi ja Nato
+
+![Jens Stoltenberg.](https://img.img-cdn.yle.fi/crop_extract,w_3897,h_2185,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107323963ecd62bed5f6/1676465735)
+
+Avaa kuvien katselu
+
+Naton pääsihteeri Jens Stoltenberg. Kuva: Dursun Aydemir / AOP
+
+Naton pääsihteeri Jens Stoltenberg kehottaa Turkkia ratifioimaan Suomen ja Ruotsin Nato-jäsenyydet samanaikaisesti. 
+
+Stoltenberg kertoo, että hän on sanonut Turkille, että Turkin pitää hyväksyä Suomen ja Ruotsin Nato-hakemukset. Stoltenberg sanoo, että Turkki päättää kuitenkin itse, hyväksyykö Turkki hakemukset samaan aikaan vai eri aikaan. Stoltenberg vierailee torstaina Turkissa. 
+
+Naton pääsihteeri Jens Stoltenberg puhui medialle Naton huippukokouksen jälkeen Brysselissä. Stotenberg kertoi, että Nato-maat lähettävät Ukrainalle lisää raskasta aseistusta. Nato-maat lisäävät myös sotilaskoulutusta ukrainalaisille sotilaille. 
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12689019)
+
+Avaa kuvien katselu
+
+Torstaina on pilvistä.
+
+Sää on torstaina pilvinen. Enimmäkseen on poutaa eli ei sada. Paikoin voi tulla vähän lumisadetta tai jäätävää tihkua. Lämpötila on maan etelä- ja keskiosassa 0 ja +3 asteen välillä, maan pohjoisosassa, +1 ja -5 asteen välillä.

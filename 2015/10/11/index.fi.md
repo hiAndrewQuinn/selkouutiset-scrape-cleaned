@@ -1,0 +1,71 @@
+# Sunnuntai 11.10.2015
+
+Turkissa on suruaika pommi-iskun takia. Junaliikenne oli poikki pääkaupunkiseudulla sunnuntaina iltapäivällä. Sunnuntaina vietettiin tyttöjen päivää. Prinssi Nicolas kastettiin Ruotsissa. Sää on syyslomalla melko hyvä.
+
+## Turkissa on suruaika
+
+![Nainen itkee ja halaa toista naista Ankarassa, Turkissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8372102)
+
+Avaa kuvien katselu
+
+Turkkilaiset surevat pommi-iskun uhreja. Kuva: STR / EPA
+
+Turkin pommi-iskun uhrien määrä on noussut. Pommi-iskussa kuoli ainakin 95 ihmistä. Monta sataa ihmistä loukkaantui.
+
+Pommi-isku tapahtui Turkin pääkaupungissa Ankarassa lauantaina. Iskussa kuoli ihmisiä, jotka aikoivat osallistua rauhanmarssiin. He aikoivat näyttää, että he vastustavat Turkin hallituksen politiikkaa.
+
+Sunnuntaina Ankarassa oli suuri mielenosoitus. Mielenosoituksessa oli mukana tuhansia ihmisiä. Osa heistä sanoo, että Turkin hallitus on syyllinen pommi-iskuun.
+
+Turkin hallitus sanoo, että pommi-isku oli terroriteko. Hallitus epäilee, että syyllinen on ääri-islamilainen Isis-järjestö.
+
+Turkissa on 3 päivän suruaika pommi-iskun takia.
+
+## Junaliikenne pysähtyi pääkaupunkiseudulla
+
+![raidenäkymä pasilan asemalta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8372519)
+
+Avaa kuvien katselu
+
+Pasilan asemalla oli hiljaista sunnuntaina iltapäivällä. Kuva: Tiina Jutila / Yle
+
+Täällä Suomessa junaliikenteessä on ollut häiriöitä sunnuntaina. Junaliikenne oli poikki pääkaupunkiseudulla sunnuntaina iltapäivällä.
+
+Syy oli sähköjärjestelmässä. Ajolangoista jouduttiin katkaisemaan sähköt Pasilassa, koska sähköjärjestelmän muuntaja paloi.
+
+Vian takia junat eivät päässeet Pasilaan ja Helsingin keskustaan. Vika korjattiin, mutta monet junat myöhästyivät myös sen jälkeen.
+
+## Sunnuntaina oli tyttöjen päivä
+
+![Somali-tyttö osallistui opetukseen Dagahaleyn pakolaisleirillä Keniassa vuonna 2011.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7335060)
+
+Avaa kuvien katselu
+
+Kaikilla tytöillä on oikeus käydä koulua. Kuva: Dai Kurokawa / EPA
+
+Sunnuntaina on vietetty tyttöjen päivää. Tyttöjen päivä on YK:n eli Yhdistyneiden kansakuntien teemapäivä.
+
+YK sanoo, että tyttöjen elämä on vaikeaa monissa maissa. YK muistuttaa, että myös tytöillä on oikeus käydä koulua ja elää ilman syrjintää. YK toivoo, että kaikki miettivät, miten tyttöjen elämää voidaan parantaa.
+
+## Ruotsin prinssi Nicolas kastettiin
+
+![Prinssi Nicolaksen kastetilaisuus Tukholmassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8372634)
+
+Avaa kuvien katselu
+
+Prinssi Nicolas ätinsä prinsessa Madeleinen sylissä. Kuvassa vasemmalla kuningas Kaarle Kustaa ja oikealla Madeleinen aviomies Christopher O´Neill. Kuva: Jonas Ekstromertt / AFP
+
+Suomen naapurimaassa Ruotsissa on ollut juhlapäivä. Ruotsin kuningasperheen nuorin jäsen kastettiin sunnuntaina Ruotsin pääkaupungissa Tukholmassa. Pikkuprinssi sai kastejuhlassa nimen Nicolas.
+
+Prinssi Nicolas syntyi kesäkuussa. Prinssin äiti on prinsessa Madeleine, joka on kuningas Kaarle Kustaan tytär. Nicolas on prinsessa Madeleinen toinen lapsi.
+
+Myös monet suomalaiset seurasivat kastejuhlaa televisiosta. Ruotsin kuningasperhe on suosittu myös Suomessa, koska Ruotsilla ja Suomella on pitkä yhteinen historia.
+
+## Sää lämpenee
+
+![Kuuraa nurmikolla ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8360754)
+
+Avaa kuvien katselu
+
+Sääennuste lupaa kaunista syyssäätä. Kuva: Hanne Leiwo / Yle
+
+Koulujen syysloma on alkanut suuressa osassa Suomea. Sää on syyslomalla melko hyvä. Sää lämpenee, lämpötila on 5 ja 10 asteen välillä. Lomalaisten ei tarvitse pelätä myöskään sadetta. Sää on melko kuivaa.

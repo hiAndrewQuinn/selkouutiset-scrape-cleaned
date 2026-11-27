@@ -1,0 +1,67 @@
+# Maanantai 24.7.2017 (radio)
+
+Maailman suurin ydinsukellusvene liikkuu nyt Suomenlahdella. Poliisi etsii tällä viikolla liikenteestä rattijuoppoja. Suomessa on aikaisempaa enemmän lapsia, jotka elävät isovanhempien luona. Suomi menestyi hyvin parayleisurheilun MM-kilpailuissa Lontoossa.
+
+## Suuri ydinsukellusvene
+
+![Maailman suurin ydinsukellusvene, venäläinen Dmitri Donskoi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9738306)
+
+Avaa kuvien katselu
+
+Maailman suurin ydinsukellusvene, venäläinen Dmitri Donskoi. Kuva: Merivoimat / Lehtikuva
+
+Suomenlahdella liikkuu nyt harvinainen alus. Se on maailman suurin ydinsukellusvene.
+
+Sukellusvene on venäläinen. Sen nimi on Dmitri Donskoi.
+
+Sukellusvene on 172 metriä pitkä. Sukellusvene kulkee veden alla.
+
+Ydinsukellusvene Dmitri Donskoi on matkalla Pietariin. Pietarissa on juhlat, koska Venäjän laivasto täyttää 100 vuotta.
+
+## Rattijuopot vaarana
+
+![Poliisi puhalluttaa autoilijaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9436193)
+
+Avaa kuvien katselu
+
+Yksi puhallus riittää näyttämään, onko kuljettaja juonut alkoholia. Kuva: Kalle Schönberg / Yle
+
+Poliisi valvoo tällä viikolla liikennettä enemmän kuin tavallisesti. Poliisi etsii liikenteestä rattijuoppoja eli kuljettajia, jotka ovat juoneet alkoholia.
+
+Poliisi valvoo liikennettä erityisesti paikkakunnilla, joissa on paljon kesämökkejä.
+
+Poliisi sanoo, että rattijuoppoja on kesällä enemmän kuin muina aikoina. Liikenteessä kuolee paljon ihmisiä juuri kesällä. Noin 30 prosenttia liikenteen kuolemantapauksista sattuu kesällä.
+
+## Isovanhemmat vanhempina
+
+![Isot ja pienet kädet](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5651160)
+
+Avaa kuvien katselu
+
+Isovanhemmasta voi tulla lapsen holhooja, jos lapsen vanhemmat esimerkiksi käyttävät huumeita. Kuva: YLE / Sini Salmirinne
+
+Suomessa on aikaisempaa enemmän lapsia, jotka elävät isovanhempien luona.
+
+Jos lapsen ei ole hyvä asua omien vanhempien kanssa, viranomaiset etsivät hänelle uuden kodin. Lapsi tarvitsee uuden kodin esimerkiksi silloin, kun vanhemmat käyttävät huumausaineita tai juovat liikaa alkoholia.
+
+Ensimmäiseksi viranomaiset tutkivat, voiko joku läheinen ihminen ottaa lapsen luokseen. Nykyään monet isovanhemmat ovat niin hyvässä kunnossa, että he jaksavat kasvattaa lapsenlapsen.
+
+Isovanhemmasta tulee lapsenlapsen huoltaja tavallisesti noin 60-vuotiaana.
+
+## Parayleisurheilun MM-kilpailut
+
+![Amanda Kotaja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9737583)
+
+Avaa kuvien katselu
+
+Maailmanmestari Amanda Kotaja. Kuva: James Marsh / AOP
+
+Suomi menestyi hyvin parayleisurheilun MM-kilpailuissa Lontoossa. Kilpailuissa oli mukana vammaisurheilijoita.
+
+Ratakelaaja Amanda Kotajasta tuli sunnuntaina maailmanmestari. Hän voitti kultamitalin 100 metrin kilpailussa. Kotaja kilpailee pyörätuolilla.
+
+Keihäänheittäjä Marjaana Heikkinen sai sunnuntaina hopeamitalin. Hän oli kilpailun toiseksi paras heittäjä. Heikkinen heittää keihästä istuma-asennossa.
+
+Suomi sai parayleisurheilun MM-kilpailuista yhteensä 6 mitalia.
+
+Suomen paras urheilija Lontoossa oli ratakelaaja Leo-Pekka Tähti. Hän sai 2 mitalia. Toinen oli kultamitali, eli Tähti oli maailmanmestari pyörätuolien 100 metrin matkalla.

@@ -1,0 +1,81 @@
+# Torstai 27.12.2018 (radio)
+
+Lapin kausityöt houkuttavat ulkomaalaisia työntekijöitä. Ilotulitteiden myynti alkoi. Poliisi vaatii koulupojan murhasta epäiltyä miestä vangittavaksi. Vaalisohva on uudenlainen vaaliohjelma. Melkein kaikissa kotitalouksissa on internet.
+
+## Lappi houkuttaa työntekijöitä ulkomailta
+
+![Talvinen maisema Lapissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8261687)
+
+Avaa kuvien katselu
+
+Kaunis, luminen maisema houkuttaa ulkomaalaisia työntekijöitä Lappiin talvikaudeksi.  Kuva: Pekka Kauranen / Yle
+
+Lapin kausityöt kiinnostavat ulkomaalaisia työntekijöitä.
+
+Yrittäjät ja henkilöstövuokrausyritykset kertovat, että Lappiin tullaan töihin talvikaudeksi ulkomailta asti. Tänä vuonna tulijoita on 10 prosenttia enemmän kuin viime vuonna. Tulijat edustavat useita kymmeniä eri kansallisuuksia.
+
+Suomalaisista kausityöntekijöistä on Lapissa pulaa. Sen takia työntekijöitä pitää palkata ulkomailta enemmän kuin ennen.
+
+Ulkomaalaiset tulevat Lappiin talvikaudeksi töihin, koska heitä houkuttavat revontulet ja kaunis talvinen luonto.
+
+## Ilotulitteiden myynti alkoi
+
+![Ilotulitteita myydään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5693867)
+
+Avaa kuvien katselu
+
+Ilotulitteita saa ampua vasta uudenvuodenaattona, iltakuuden jälkeen. Kuva: Yle
+
+Uudenvuoden ilotulitteiden ja rakettien myynti on alkanut.
+
+Ilotulitteita myydään jo nyt, mutta niitä saa ampua vasta uudenvuodenaattona iltakuudesta kahteen yöllä. Monet kaupungit ovat kuitenkin kieltäneet ilotulitteet kaupungin keskusta-alueella kokonaan.
+
+Uudenvuodenaatto on ensi maanantaina.
+
+Kaikki ihmiset eivät pidä uudenvuoden raketeista. Sen takia vireille on laitettu kansalaisaloite, joka haluaa kieltää ilotulitteiden yksityiskäytön. Rajat räiskeelle -kansalaisaloitteen on allekirjoittanut nyt yli 25 000 ihmistä.
+
+Jos aloitteen allekirjoittaa 50 000 ihmistä, aloite etenee eduskunnan käsittelyyn.
+
+## Murhasta epäilty halutaan vangita
+
+![Kynttilöitä sytytettiin jouluaattoiltana Arabianrannassa henkirikoksen uhrina kuolleelle alakouluikäiselle pojalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10572734)
+
+Avaa kuvien katselu
+
+Arabianrannan asukkaat sytyttivät kynttilöitä jouluaattona murhatulle koulupojalle Kuva: Heikki Saukkomaa / Lehtikuva
+
+Poliisi haluaa vangita miehen, jota epäillään koulupojan murhasta.
+
+Alakouluikäinen poika kuoli Helsingin Arabianrannassa jouluaattoiltana. Poliisi epäilee, että 36-vuotias mies murhasi pojan.
+
+Miehen vangitsemisoikeudenkäynti on huomenna Helsingin käräjäoikeudessa.
+
+## Vaalikeskustelua kotisohvalla
+
+![Kahvikuppeja pöydällä, sohva taustalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10550257)
+
+Avaa kuvien katselu
+
+Ylen uudessa ohjelmassa kansanedustajaehdokkaan voi saada tentattavaksi omalle kotisohvalle. Kuva: Jarno Tahvanainen / Yle
+
+Yle Areenaan tulee keväällä uudenlainen vaaliohjelma. Ohjelmasarjan nimi on Vaalisohva.
+
+Ohjelmassa kansanedustajaehdokkaat vierailevat tavallisten suomalaisten kodeissa. Ihmiset voivat keskustella omassa kodissaan ehdokkaiden kanssa mistä aiheesta haluavat.
+
+Vaalisohva-ohjelmaan valitaan jokaisesta vaalipiiristä yksi perhe tai kaveriporukka.
+
+Ohjelma julkaistaan Yle Areenassa maaliskuussa. Eduskuntavaalit pidetään huhtikuussa.
+
+## Internet on melkein joka taloudessa
+
+![mies istuu läppärin kanssa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10462726)
+
+Avaa kuvien katselu
+
+Yli 90 prosentilla kotitalouksista on internet. Kuva: AOP
+
+Melkein kaikissa suomalaistalouksissa on internet.
+
+Tilastokeskus kertoo, että marraskuussa yli 90 prosentilla kotitalouksista oli käytössä internet.
+
+Tilastokeskus kertoo myös, että 86 prosentilla kotitalouksista oli marraskuussa käytössä ainakin yksi älypuhelin. Henkilöauton omisti 82 prosenttia kotitalouksista.

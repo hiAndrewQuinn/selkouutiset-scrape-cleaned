@@ -1,0 +1,83 @@
+# Selkouutiset | tiistai 17.2.2026
+
+Hoitajalakko. Työuupumus. Jääspeedway. Laskiainen. Keskiviikon sää.
+
+## Hoitajalakko
+
+Aluksi lakkouutinen.
+
+Yksityisellä sosiaalipalvelualla on alkanut työnseisaus eli lyhyt lakko. Lakko kestää 3 päivää.
+
+Lakossa on palvelukotien ja hoivakotien henkilökuntaa Pohjois-Suomessa.
+
+Lakossa on myös nuorisokotien ja turvakotien henkilökuntaa ympäri maata.
+
+Yksityisellä sosiaalipalvelualalla on alkanut lakko, joka kestää 3 päivää.
+
+Hoitajat palaavat töihin perjantaina.
+
+Lakon syy on riita palkoista.
+
+Nyt uutinen työhyvinvoinnista.
+
+## Työuupumus
+
+Työhyvinvointia parannetaan usein väärillä keinoilla. Näin sanovat asiantuntijat.
+
+Työterveyslääkäri **Eira Roos** sanoo, että virkistyspäivät, liikuntaedut ja työsuhdepyörä eivät yksin paranna työhyvinvointia.
+
+Ne eivät estä ihmisen uupumista.
+
+Noin 25 prosenttia ihmisistä on vaarassa uupua työpaikoilla.
+
+Työuupumuksen syy on usein se, että työ on järjestetty huonosti tai johtaminen on huonoa.
+
+Työhyvinvointia parannetaan usein väärillä keinoilla.
+
+Asiantuntijat sanovat, että työhyvinvointia parantaa eniten se, että työpaikalla muutetaan työn rakenteita ja järjestelyjä.
+
+## Jääspeedway
+
+Nyt urheilu-uutinen Varkaudesta.
+
+Tässä valmistellaan jäärataa moottoripyöräkilpailuun.
+
+Suomessa järjestetään ensimmäistä kertaa jääspeedwayn Euroopan mestaruuskisat. Ne pidetään ensi viikonloppuna Varkaudessa.
+
+Jääspeedwayssä ajetaan kilpaa jääradalla tällaisilla moottoripyörillä. Renkaissa on pitkät piikit.
+
+Varkaudessa järjestetään Suomen ensimmäiset jääspeedwayn EM-kisat.
+
+Kisoihin tulee huippukuljettajia yhdeksästä eri maasta.
+
+## Laskiainen
+
+Lopuksi asiaa laskiaisesta.
+
+Tänään vietetään laskiaistiistaita.
+
+Sunnuntaina oli laskiaissunnuntai ja tänään on laskiaistiistai.
+
+Kirkollisessa perinteessä alkaa paaston aika laskiaisen jälkeen.
+
+Paaston aika päättyy pääsiäiseen.
+
+Tänään vietetään laskiaistiistaita.
+
+Laskiaisen perinteisiin kuuluu mäenlasku.
+
+Laskiaisen ruokia ovat hernekeitto ja laskiaispullat.
+
+Vanhaan aikaan laskiaisena ennustettiin myös kesän sato.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona lähes koko maassa on poutaista, eli ei sada.
+
+Aurinko voi paistaa etelässä.
+
+Lämpötila on noin -10 astetta.
+
+Pohjoisessa on kylmempää ja voi sataa vähän lunta.

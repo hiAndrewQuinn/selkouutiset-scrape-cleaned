@@ -1,0 +1,33 @@
+# Sunnuntai 9.11.2008 (radio)
+
+Tässä sunnuntain Selkouutiset, studiossa on Salme Unkuri.
+
+* * *
+
+Venäläisessä sukellusveneessä on tapahtunut onnettomuus. Onnettomuudessa kuoli 20 ihmistä. Lisäksi yli 20 ihmistä loukkaantui.
+
+Venäläinen ydinsukellusvene oli Japaninmerellä, kun onnettomuus tapahtui. Sukellusveneen sammutusjärjestelmä meni vahingossa päälle, ja uhrit tukehtuivat hapen puutteeseen. Järjestelmä meni päälle, koska siinä oli vika. Sammutusjärjestelmää tarvitaan, jos sukellusveneessä syttyy tulipalo.
+
+Venäjän viranomaiset kertovat, että sukellusveneen ydinreaktori ei vahingoittunut onnettomuudessa. Sukellusveneessä oli yhteensä yli 200 ihmistä, kun onnettomuus tapahtui.
+
+Venäjän pahin sukellusveneonnettomuus tapahtui vuonna 2000. Silloin ydinsukellusvene Kursk upposi Barentsinmerellä. Onnettomuudessa kuoli 118 ihmistä.
+
+* * *
+
+Suomalaisilla pörssiyhtiöillä menee nyt selvästi huonommin kuin aikaisemmin. Pörssiyhtiöiden tulokset ovat laskeneet syksyn aikana, koska taloudellinen tilanne on epävarma.
+
+Vain 14 pörssiyhtiön tulos parani heinäkuun ja syyskuun välisenä aikana. Samaan aikaan 26 yrityksen tulos laski. Viisi pörssiyhtiötä teki tappiota heinäkuun ja syyskuun välisenä aikana.
+
+Vielä kesällä suomalaisten pörssiyhtiöiden tilanne näytti hyvältä.
+
+* * *
+
+Maahanmuuttajia halutaan poliiseiksi. Näin sanoo poliisiylijohtaja Mikko Paatero. Maahanmuuttajia yritetään saada poliisin ammattiin kampanjan avulla. Asiasta kertoo sanomalehti Hufvudstadsbladet.
+
+Maahanmuuttajia tarvitaan poliiseiksi, koska monet poliisit jäävät pian eläkkeelle. Lisäksi poliisit tarvitsevat työssään tietoa muista kulttuureista.
+
+Poliisiylijohtaja Mikko Paatero sanoo, että maahanmuuttajia on vaikea palkata poliiseiksi, koska poliiseilta vaaditaan hyvää suomen kielen taitoa. Poliisien täytyy olla myös Suomen kansalaisia. Paateron mielestä maahanmuuttajat voivat kuitenkin tehdä poliisin työtä esimerkiksi rikosten tutkinnassa. Lisäksi maahanmuuttajat voivat tehdä poliisin työtä erilaisissa valvonta- ja sovittelutehtävissä.
+
+* * *
+
+Suomessa on vietetty isänpäivää. Isiä on juhlittu kodeissa ja ympäri Suomea erilaisissa tapahtumissa. Isänpäivää on vietetty myös Ruotsissa, Norjassa ja Virossa.

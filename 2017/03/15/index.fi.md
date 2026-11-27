@@ -1,0 +1,75 @@
+# Keskiviikko 15.3.2017 (radio)
+
+Suomessa on paljon nuoria maahanmuuttajia. Kouvolassa maahanmuuttajat opettelevat suomea uudella tavalla. Suuret Journalistipalkinnot on jaettu. Ranuan eläinpuiston jääkarhut tulivat ulos talvipesästä. Turistit voivat ostaa suomalaista ilmaa pullossa.
+
+## Nuoria maahanmuuttajia
+
+![Anonyymejä ihmisiä ostoskeskuksessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9090961)
+
+Avaa kuvien katselu
+
+Alle 30-vuotiaiden joukossa on paljon maahanmuuttajia. Kuva: Henrietta Hassinen / Yle
+
+Suomessa on paljon nuoria maahanmuuttajia. 8 prosenttia nuorista, joiden ikä on 15 ja 29 vuoden välillä, on maahanmuuttajia. Muissa ikäryhmissä heitä on vähemmän.
+
+Maahanmuuttajanuoria on eniten Uudellamaalla. Helsinki on Uudenmaan keskus.
+
+## Suomen kurssi kotiäideille
+
+![Lasten jalkoja pöydän alla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8063439)
+
+Avaa kuvien katselu
+
+Lapsilla on omaa ohjelmaa, kun äidit opettelevat suomea. Kuva: Titta Puurunen / Yle
+
+Kouvolassa maahanmuuttajat opettelevat suomea uudella tavalla. Idea on, että asioita tehdään yhdessä. Jos opetellaan esimerkiksi, mitä tarkoittaa "autolla ajaminen", pyöritetään leikisti rattia.
+
+Kouvolan kursseilla myös keskustellaan paljon. Tärkeää on, että kurssilaiset uskaltavat puhua.
+
+Kouvolan suomen kielen kursseilla käy kotiäitejä. Siksi kurssipaikassa on myös lastenhoitoa.
+
+Maahanmuuttajaäidit tykkäävät Kouvolan kursseista. Siksi samanlaisia kursseja aiotaan järjestää myös muissa kaupungeissa.
+
+## Palkinto Jani Halmeelle
+
+![Jani Halme.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9512744)
+
+Avaa kuvien katselu
+
+Jani Halme juhli palkintoa yhdessä vaimonsa kanssa. Kuva: Yle
+
+Suuret Journalistipalkinnot on jaettu. Mediafirma Bonnier jakoi palkintoja toimittajille tiistai-iltana.
+
+Palkintoja annettiin 4 eri sarjassa. Jokaiseen sarjaan valittiin 3 kilpailijaa.
+
+Yksi sarja oli Vuoden journalistinen teko. Sarjan voittajaksi valittiin Jani Halme. Hän kerää uutisia lehdistä ja kertoo niistä kaikille Twitterissä. Halme lukee uutisia noin 160 lehdestä eri puolelta Suomea.
+
+Myös selkouutiset pääsi mukaan Vuoden journalistinen teko -sarjaan. Perustelu oli se, että selkouutiset auttaa maahanmuuttajia kotoutumaan ja oppimaan suomea.
+
+Selkouutiset onnittelee sarjan voittajaa Jani Halmetta!
+
+## Kevät jääkarhuille
+
+![Jääkarhut ulkona.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9511366)
+
+Avaa kuvien katselu
+
+Jääkarhuäiti ja poikanen tulivat ulos talvipesästä. Kuva: Ranua Zoo
+
+Kevät on tullut Ranuan eläinpuiston jääkarhuille. Talvipesän luukku aukaistiin keskiviikkona, ja jääkarhuäiti Venus lähti ulos yhdessä pienen poikasen kanssa. Poikanen on syntynyt marraskuussa, ja se lähti pois pesästä ensimmäistä kertaa.
+
+Tuhannet ihmiset seurasivat internetissä, miten jääkarhujen päivä sujui.
+
+## Ilmaa turisteille
+
+![Toimitusjohtaja Jouni Aura nauttii pullotetusta eteläpohjalaisesta ilmasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9511780)
+
+Avaa kuvien katselu
+
+Jouni Aura on johtaja firmassa, joka myy ilmapulloja. Kuva: Olli Koski/Yle
+
+Suomessa on puhdas ilma. Nyt ilmaa myydään turisteille.
+
+Viime vuonna joukko nuoria perusti firman, joka panee suomalaista ilmaa pulloihin. Firman idea syntyi, kun nuoret miettivät, mitä hyvää Suomessa on intialaisen tai kiinalaisen mielestä. Vastaus oli puhdas ilma.
+
+Turistit voivat ostaa matkamuistoksi ilmapullon, joka maksaa noin 17 euroa. Silloin pullossa on ilmaa Pohjanmaalta. Jos ilma on Lapista, pullo on vähän kalliimpi.

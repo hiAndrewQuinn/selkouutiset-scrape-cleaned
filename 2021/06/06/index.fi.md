@@ -1,0 +1,89 @@
+# Sunnuntai 6.6.2021 (radio)
+
+Nuorten juhlinta. Kannustus töihin pienille paikkakunnille. MM-jääkiekko. EM-parayleisurheilu. Sää.
+
+## Nuoret juhlivat innokkaasti
+
+![Poliisi sakotti nuoria ja käski kaataa alkoholijuomat maahan koulujen päättäjäisviikonloppuna Hietaniemessä Helsingissä 5. kesäkuuta 2021.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11967952)
+
+Avaa kuvien katselu
+
+Poliisi nuorten luona Helsingin Hietaniemessä. Kuva: Seppo Samuli / Lehtikuva
+
+Nuoret ovat juhlineet koulun loppumista tänä viikonloppuna. Nuoret ovat kokoontuneet eri puolilla Suomea.
+
+Lauantain ja sunnuntain välisenä yönä poliisilla oli kiire. Poliisi esimerkiksi otti nuorilta pois alkoholia.
+
+Lisäksi poliisi tyhjensi paikkoja, joissa oli isoja nuorisojoukkoja. Esimerkiksi Helsingissä poliisi tyhjensi Hietaniemen uimarannan ja Sinebrychoffin puiston.
+
+## Nuoria halutaan kannustaa syrjäseuduille
+
+![Pelkosenniemen kirkonkylää ilmakuvassa. Horisontissä siintää Pyhätunturi.](https://img.img-cdn.yle.fi/crop_extract,w_3319,h_1867,x_0,y_171/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-802108609152d304791/1620136901)
+
+Avaa kuvien katselu
+
+Suomessa on monia pieniä paikkakuntia, joissa tarvitaan lisää esimerkiksi lääkäreitä. Kuva: Antti Mikkola / Yle
+
+Pääministeri Sanna Marin kannattaa ideaa, että nuoria kannustetaan töihin isojen kaupunkien ulkopuolelle.
+
+Yksi mahdollisuus on esimerkiksi se, että lääkärin ei tarvitse maksaa koko opintolainaa takaisin, jos hän menee töihin alueelle, jossa lääkäreitä on liian vähän.
+
+Esimerkiksi Suomen naapurimaassa Norjassa näin jo tehdään. Pääministeri Marinin mielestä idea voi toimia myös Suomessa.
+
+## Sunnuntain koronatartunnat
+
+![Sairaanhoitaja ottaa näytteen korona-testistä naiseltä. Korona drive-in. Messukeskus. 19.3.2021.](https://img.img-cdn.yle.fi/crop_extract,w_6016,h_3384,x_0,y_470/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7861926054a33408cec/1616159752)
+
+Avaa kuvien katselu
+
+Kuva: Jorge Gonzalez / Yle
+
+Suomen koronatilanne on hyvä. Uusia koronatartuntoja on vähemmän kuin ennen.
+
+Sunnuntaina Terveyden ja hyvinvoinnin laitos kertoi, että Suomessa on 68 uutta koronatartuntaa. Sairaalahoidossa on 67 koronapotilasta.
+
+## Suomi jääkiekon MM-finaalissa
+
+![Jussi Olkinuora yrittää torjua kiekkoa Suomen maalilla. Edessä kamppailevat Markus Eisenschmid ja Ville Pokka.](https://img.img-cdn.yle.fi/crop_extract,w_4904,h_2759,x_0,y_284/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81650060bbad5994299/1622913093)
+
+Avaa kuvien katselu
+
+Suomen maalivahti Jussi Olkinuora torjui Saksan hyökkäykset. Kuva: GINTS IVUSKANS/AFP / Getty Images
+
+Suomi pelaa jääkiekon MM-kilpailujen finaalissa myöhään sunnuntaina. Finaalissa eli loppuottelussa Suomi pelaa Kanadaa vastaan.
+
+Suomi pääsi finaaliin, kun se voitti lauantaina Saksan. Suomi voitti Saksan 2–1.
+
+Suomen joukkueen sankari oli maalivahti Jussi Olkinuora. Olkinuora torjui Saksan hyökkäykset Suomen maalilla.
+
+Suomi voitti edelliset jääkiekon MM-kilpailut. Myös silloin Suomi pelasi finaalissa Kanadaa vastaan. Nyt suomalaiset odottavat, että Suomesta tulee maailmanmestari myös tällä kertaa.
+
+Jääkiekon MM-kilpailut pelataan Latvian pääkaupungissa Riiassa.
+
+## Suomen vammaisurheilijat menestyivät
+
+![Leo-Pekka Tähti kuvassa.](https://img.img-cdn.yle.fi/crop_extract,w_4034,h_2269,x_0,y_208/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-81621060ba46ff8c7ce/1622820642)
+
+Avaa kuvien katselu
+
+Euroopan mestari Leo-Pekka Tähti. Kuva: Jaakko Stenroos/All Over Press
+
+Suomi on menestynyt hyvin parayleisurheilun Euroopan mestaruuskilpailuissa. Vammaisurheilijoiden EM-kilpailut loppuivat lauantaina Puolassa.
+
+Suomi sai kilpailuissa 8 mitalia. Niistä 5 oli kultaa.
+
+EM-kilpailujen paras suomalainen urheilija oli Leo-Pekka Tähti. Tähti sai 2 kultamitalia pyörätuolikelauksessa.
+
+## Lämmin sää jatkuu
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11968216)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Viikko alkaa lämpimässä säässä. Etelä-Suomessa lämpötila on yli 20 astetta.
+
+Sää lämpenee myös pohjoisessa, jossa on noin 20 astetta lämmintä.
+
+Lännessä tulee sadekuuroja ja ukkonen on mahdollista. Idässä on poutaa, eli siellä vettä ei sada.

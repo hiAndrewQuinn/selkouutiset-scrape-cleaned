@@ -1,0 +1,53 @@
+# Keskiviikko 24.1.2007 (radio)
+
+Keskiviikon Selkouutisten aiheita ovat:
+
+VR ottaa töihin noin 1400 uutta työntekijää.
+
+Viranomaiset ovat sitä mieltä, että turvapaikanhakijoita pitää kotouttaa Suomeen.
+
+Amerikan presidentti George Bush toivoo, että amerikkalaiset käyttävät vähemmän öljyä.
+
+Monet yritykset ottavat ensi kesänä töihin alaikäisiä työntekijöitä. Nuoret saavat tutustua yrityksissä työelämään.
+
+Selkouutiset toimittaa Lea Miettinen.
+
+* * *
+
+VR eli Valtion rautatiet ottaa töihin lisää ihmisiä. Viiden vuoden aikana yhtiö ottaa töihin noin 1 400 uutta työntekijää.
+
+Yhtiö tarvitsee veturinkuljettajia, konduktöörejä ja työntekijöitä ratapihoille. Yhtiö tarvitsee uusia työntekijöitä sen takia, että vanhoja työntekijöitä jää eläkkeelle. VR:stä lähtee eläkkeelle noin 1500 ihmistä vuoteen 2010 mennessä.
+
+* * *
+
+Viranomaiset ovat sitä mieltä, että turvapaikanhakijoita pitää kotouttaa Suomeen. Kotoutusohjelman avulla turvapaikanhakija pääsee mukaan suomalaiseen yhteiskuntaan.
+
+Viranomaiset sanovat, että turvapaikanhakija pitää kotouttaa, vaikka oleskelulupa ei ole pysyvä. Oleskelulupa on silloin tilapäinen. Jos turvapaikanhakijalla on tilapäinen oleskelulupa, häntä ei nyt kotouteta suomalaiseen yhteiskuntaan. Suurin osa turvapaikanhakijoista jää kuitenkin myöhemmin asumaan Suomeen.
+
+Viranomaiset pelkäävät, että turvapaikanhakijat syrjäytyvät suomalaisesta yhteiskunnasta, jos heille ei anneta tukea. Sen takia toivotaan, että kaikki turvapaikanhakijat saavat koulutusta, esimerkiksi suomenkielen opetusta.
+
+* * *
+
+Amerikan presidentti George Bush on puhunut maansa energiapolitiikasta. Hän on sitä mieltä, että maassa pitää käyttää vähemmän öljyä. Presidentti Bush sanoo, että maa on liian riippuvainen öljystä, jota tuodaan ulkomailta. Amerikka on helppo kohde terroristeille, jos maa on riippuvainen toisten maiden öljystä. Vieraat maat voivat nostaa öljyn hintaa ja häiritä öljytoimituksia.
+
+(Amerikan presidentti George Bush)
+
+Bush sanoi myös, että amerikkalaisten pitää vähentää bensiinin kuluttamista. Hänen mielestään polttoaineiden kuluttamista pitää vähentää noin 20 prosenttia kymmenen vuoden aikana.
+
+* * *
+
+Keski-Euroopassa on satanut paljon lunta. Talven ensimmäiset kovat lumisateet ovat sekoittaneet liikenteen pahasti eri puolilla Eurooppaa. Esimerkiksi Ranskassa tuhannet autoilijat ovat lumen takia juuttuneet moottoriteille. Viranomaiset ovat auttaneet autoilijoita. Heille on esimerkiksi annettu ruokaa.
+
+Kova lumipyry on myös katkaissut sähköjohtoja. Ranskassa yli 100 000 kotia on ilman sähköä. Sähköjen korjaaminen kestää monta päivää.
+
+* * *
+
+Monet yritykset ottavat ensi kesänä töihin alaikäisiä työntekijöitä. Nuoret saavat tutustua yrityksissä työelämään.
+
+Esimerkiksi Keski-Suomessa kaikki nuoret, jotka lopettavat peruskoulun, pääsevät kesätöihin kahdeksi viikoksi. Kahden viikon työstä peruskoululainen tai lukiolainen saa palkkaa noin 280 euroa. Nuorten pitää itse hakea työpaikkaa.
+
+Usein alaikäisten on vaikea saada töitä, mutta ensi kesänä on paljon työpaikkoja.
+
+(Nuoriso-ohjaaja Mika Joensuu)
+
+Yritykset eivät ota mielellään töihin alaikäisiä, koska laki määrää esimerkiksi alaikäisen nuoren työajan. Suomen laki määrää, kuinka pitkiä päiviä nuoret saavat tehdä. Alaikäiset ovat alle 18-vuotiaita.

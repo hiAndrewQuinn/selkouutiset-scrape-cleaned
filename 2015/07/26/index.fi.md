@@ -1,0 +1,57 @@
+# Sunnuntai 26.7.2015
+
+Kansanedustaja Olli Immonen saa kritiikkiä Facebook-kirjoituksesta monikulttuurisuutta vastaan. Pääministeri Juha Sipilä ei hyväksy Immosen kirjoitusta. Kolme ihmistä kuoli lento-onnettomuudessa Japanissa. Kesällä kannattaa mennä metsään.
+
+## Olli Immosen Facebook-kirjoitusta kritisoidaan
+
+![Kuvakaappaus Olli Immosen kirjoituksesta Facebookissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8182140)
+
+Avaa kuvien katselu
+
+Kansanedustaja Olli Immosen kirjoitus on Facebookissa englanniksi. Kuva: Facebook / Yle Uutisgrafiikka
+
+Kansanedustaja Olli Immonen on saanut paljon kritiikkiä. Kaikki eivät pidä siitä, mitä Immonen kirjoitti lauantaina Facebook-sivulla. Immonen kirjoitti Facebookissa monikulttuurisuutta vastaan.
+
+Osa lukijoista on sitä mieltä, että Immosen kirjoituksessa on kohtia, jotka tuovat mieleen natsit. Heidän mielestään ei ole sopivaa, että kansanedustaja kirjoittaa näin. Immosen puolue, perussuomalaiset, on jopa hallituksessa.
+
+Monet ihmettelevät, miksi perussuomalaisten puoluejohtaja Timo Soini ei ole kertonut, mitä mieltä hän on Immosen kirjoituksesta. Esimerkiksi sosiaalidemokraattien kansanedustaja Erkki Tuomioja ja vihreiden kansanedustaja Ozan Yanar vaativat, että Soini kertoo mielipiteensä. He sanovat, että Soinin täytyy puuttua asiaan.
+
+## Pääministeri ei hyväksy Immosen kirjoitusta
+
+![Ruutukaappaus Juha Sipilän Twitter-tililtä sunnuntaina 26. heinäkuuta. Hän kirjoittaa: &quot;En voi hyväksyä Immosen kirjoituksia. Haluan kehittää Suomea avoimena, kansainvälisenä, kieliltään ja kulttuuriltaan rikkaana maana.&quot;](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8182348)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä kritisoi Twitterissä Immosen kirjoitusta. Kuva: Twitter / Yle Uutisgrafiikka
+
+Pääministeri Juha Sipilä sanoo, että hän ei hyväksy kansanedustaja Olli Immosen kirjoitusta monikulttuurisuutta vastaan. Sipilä haluaa kehittää Suomea, joka on avoin ja kansainvälinen. Pääministeri Sipilä on keskustan puoluejohtaja.
+
+Myös ministeri Alexander Stubb on eri mieltä Immosen kanssa. Stubb sanoo, että monikulttuurisuus on rikkaus. Stubb on kokoomuksen puoluejohtaja.
+
+Keskusta ja kokoomus ovat hallituksessa yhdessä perussuomalaisten kanssa.
+
+## Pieni lentokone putosi asuinalueelle Tokiossa
+
+![Onnettomuuspaikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8182102)
+
+Avaa kuvien katselu
+
+Lentokone tuhosi monta taloa, kun se putosi maahan. Kuva: Reuters TV
+
+Japanissa on tapahtunut lento-onnettomuus. 3 ihmistä kuoli, kun pieni lentokone putosi talojen päälle. Onnettomuus tapahtui Japanin pääkaupungin Tokion alueella.
+
+Lentokoneessa oli 5 ihmistä, joista 2 kuoli. Lisäksi kuoli nainen, joka oli yhdessä onnettomuuspaikan taloista. Lentokone sytytti monta taloa tuleen, kun se putosi maahan.
+
+## Mene metsään ja voi hyvin
+
+![Juoksevat jalat metsäympäristössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8181057)
+
+Avaa kuvien katselu
+
+Metsä tekee ihmiselle hyvää. Kuva: Anu Pöntinen / Yle
+
+Kesällä kannattaa liikkua luonnossa. Monet urheilevat ulkona kesällä, kun liikuntahallit ovat kiinni. Silloin kannattaa mennä metsään.
+
+Green Care Finland -järjestön puheenjohtaja Tuomo Salovuori sanoo, että metsässä liikkuminen parantaa keskittymiskykyä. Metsässä liikkumisesta on paljon hyötyä myös terveydelle. Esimerkiksi verenpaine laskee ja stressi vähenee, Salovuori kertoo.
+
+Salovuori uskoo, että suomalainen metsä voi kiinnostaa myös turisteja. Esimerkiksi mustikoiden poimiminen puhtaasta metsästä voi olla turistille hieno kokemus. Suomalainen metsä myös virkistää turistia, joka tulee isosta ja kuumasta kaupungista, Salovuori sanoo.

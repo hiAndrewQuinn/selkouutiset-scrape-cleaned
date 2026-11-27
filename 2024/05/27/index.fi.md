@@ -1,0 +1,66 @@
+# TV \| Selkouutiset \| maanantai 27.5.2024
+
+Valkeakosken suru. Stubb Virossa. Internet. Sää.
+
+## Valkeakosken suru
+
+Ensin menemme Valkeakoskelle.
+
+Valkeakoskella ihmiset surevat tyttöä, joka kuoli viikonloppuna rikoksen uhrina.
+
+Valkeakoskella on tänään suruliputus, ja kaupungin kouluissa on järjestetty hiljainen hetki.
+
+Koulut tarjoavat nuorille myös keskusteluapua.
+
+Ihmiset surevat tyttöä, joka kuoli viikonloppuna rikoksen uhrina.
+
+Tyttö löydettiin lauantaina kuolleena metsästä. Hän oli 15-vuotias.
+
+Poliisi on ottanut kiinni miehen, joka ehkä raiskasi ja tappoi tytön. Mies on 19-vuotias suomalainen.
+
+Poliisi sanoo, että tapaus on tosi harvinainen. Vakava väkivalta näin nuoria tyttöjä kohtaan ei ole Suomessa tavallista.
+
+## Stubb Virossa
+
+Sitten uutinen presidentti Stubbista.
+
+Presidentti Alexander Stubb on aloittanut valtiovierailun Virossa.
+
+Viron presidentti Alar Karis otti Suomen presidenttiparin vastaan Tallinnassa Vapaudenaukiolla.
+
+Siellä presidentti Stubb myös laski seppeleen Viron vapaussodan muistomerkille.
+
+Presidentti Alexander Stubb aloitti valtiovierailun Virossa tänään.
+
+Vierailun teemoja ovat esimerkiksi turvallisuus ja puolustus.
+
+Suomi ja Viro tekevät paljon puolustusyhteistyötä, nyt kun myös Suomi on puolustusliitto Naton jäsen.
+
+Presidentti Stubbin valtiovierailu Virossa kestää 3 päivää.
+
+## Internet
+
+Sitten aiheena internet.
+
+Internet lisää ihmisten hyvinvointia.
+
+Näin sanoo apulaisprofessori Matti Vuorre. Hän on toinen suuren kyselytutkimuksen tekijöistä.
+
+Vuorre sanoo, että ihmiset voivat paremmin, jos heillä on ainakin mahdollisuus käyttää internetiä.
+
+Internet siis lisää ihmisten hyvinvointia.
+
+Yksi syy on se, että internetissä on helppo hoitaa asioita.
+
+Hyviä esimerkkejä ovat nettipankki ja hoitajien etävastaanotot.
+
+## Sää
+
+Vielä sääennuste.
+
+Maan etelä- ja keskiosassa sää on poutaista ja aurinkoista.
+
+Idässä voi tulla yksittäisiä sadekuuroja. Lapissa ukkostaa.
+
+Lämpötila on maan etelä- ja keskiosassa yli 25 asteen, pohjoisessa 15-25 astetta.
+

@@ -1,0 +1,65 @@
+# Sunnuntai 16.2.2020 (radio)
+
+Dennis-myrsky iski Eurooppaan. Myös Suomessa sataa ja tuulee kovaa. Koronavirukseen on kuollut lisää ihmisiä Kiinassa. Tupakoinnin lopettaminen parantaa keuhkoputkien terveyttä.
+
+## Myrsky Euroopassa
+
+![Ihmiset kävelevät tuulisessa myrskysäässä Bournemouthissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11211418)
+
+Avaa kuvien katselu
+
+Viikonloppu on ollut sateinen ja tuulinen eri puolilla Eurooppaa. Kuva on Britanniasta. Kuva: Neil Hall / EPA
+
+Myrsky on iskenyt Eurooppaan tänä viikonloppuna. Myrsky on saanut nimen Dennis. Se on tuonut kovia tuulia ja sateita.
+
+Britanniassa ainakin 2 ihmistä on kuollut myrskyn aikana. Molemmat olivat miehiä, ja he hukkuivat mereen.
+
+Osassa Britanniaa satoi lauantaina yhtä paljon kuin yleensä yhden kuukauden aikana. Myrskyn takia Britanniassa peruttiin lentoja ja junat olivat myöhässä.
+
+Myös Ruotsissa on satanut paljon. Vettä saadaan ehkä enemmän kuin yleensä koko helmikuun aikana. Junaliikenne on ollut poikki myrskyn takia osassa Etelä-Ruotsia.
+
+## Myrsky Suomessa
+
+![Jalankulkija Merihaassa Helsingissä 10. helmikuuta 2020.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11200960)
+
+Avaa kuvien katselu
+
+Tänä talvena on saatu enemmän tuulta ja sadetta kuin yleensä. Kuva: Hanna Matikainen / Lehtikuva
+
+Dennis-myrsky vaikuttaa myös Suomen säähän. Suomessa myrsky ei kuitenkaan ole niin kova kuin Britanniassa ja Ruotsissa.
+
+Sää on kuitenkin tuulinen ja sateinen. Kovimmat tuulet puhaltavat pohjoisilla merialueilla eli Pohjanlahdella ja Perämerellä. Sinne myrskytuulet saapuvat myöhään sunnuntai-iltana.
+
+Sateet ovat melkein koko Suomessa vettä. Vettä sataa paljon etenkin etelässä meren lähellä. Vain Lapissa sataa lunta.
+
+## Koronaviruksen uhrit
+
+![A subway worker wearing a protective face mask and eyewear disinfects a subway carriage in Beijing, China, 10 February 2020. Major China&#39;s cities began going back to work after the Lunar New Year holiday, which was extended in an attempt to contain the spread of the deadly coronavirus across the country.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11211289)
+
+Avaa kuvien katselu
+
+Koronaviruksen takia Kiinassa puhdistetaan paikkoja koko ajan. Tässä puhdistetaan metroa. Kuva: Roman Pilipey / EPA
+
+Koronavirukseen on kuollut lisää ihmisiä Kiinassa. Kuolleita on yhteensä jo noin 1700. Suurin osa uusista kuolemantapauksista on sattunut Hubein maakunnassa.
+
+Koronavirus alkoi levitä juuri Hubein maakunnasta ja sen pääkaupungista Wuhanista joulukuussa. Melkein 70 000 ihmistä on saanut koronavirustartunnan. Tartuntojen määrän kasvu on kuitenkin viime päivinä vähän hidastunut.
+
+Koronavirus aiheuttaa samanlaisia oireita kuin flunssa, esimerkiksi yskää ja kuumetta. Se on vaarallinen ihmisille, joilla on myös muu sairaus, esimerkiksi astma tai sydänsairaus.
+
+THL kertoo koronaviruksesta selkokielellä
+
+## Tupakoinnin lopettaminen
+
+![Lähikuvassa silhuettina henkilö polttaa tupakkaa.](https://img.img-cdn.yle.fi/crop_extract,w_2202,h_1239,x_0,y_55/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6299095e1882948693d/1578666150)
+
+Avaa kuvien katselu
+
+Tupakointi vahingoittaa keuhkoja. Kuva: Nella Nuora / Yle
+
+Tupakoinnin lopettaminen parantaa keuhkoputkien terveyttä. Näin kertoo uusi tutkimus, joka julkaistiin Nature-tiedelehdessä.
+
+Tupakointi vahingoittaa keuhkoputkien soluja. Tupakansavu aiheuttaa soluihin geenimuutoksia. Seurauksena voi olla syöpä.
+
+Kun ihminen lopettaa tupakoinnin, terveet solut alkavat korvata keuhkoputkien sairaita soluja. Silloin myös syöpäriski pienenee.
+
+Arvioidaan, että maailmalla 1,8 miljoonaa ihmistä kuolee keuhkosyöpään joka vuosi. Suomessa kuolee noin 5000 ihmistä vuodessa sairauksiin, joiden syy on tupakka.

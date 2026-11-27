@@ -1,0 +1,81 @@
+# Torstai 21.4.2022 (radio)
+
+Koronatartunnat vähenevät. Matkustajien maskipakko loppuu. Vanhusten ihosyöpä. Kevättulvien aika.. Sää.
+
+## Koronatartunnat vähenevät
+
+![Oulun Yliopistollisen sairaalan korona teho-osastolla sairaalan henkilökunta valmistavat röntgenlaitetta.](https://img.img-cdn.yle.fi/crop_extract,w_2530,h_1423,x_2,y_452/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-922563621f4c38b1a40/1646650394)
+
+Avaa kuvien katselu
+
+Myös koronapotilaiden tehohoidon tarve vähenee. Kuva: Päivi Köngäs / Yle
+
+Koronatartuntojen määrä vähenee.
+
+Terveyden ja hyvinvoinnin laitos kertoo, että koronatartuntojen määrä on vähentynyt jo 3 viikon ajan. Koronatartunnat ovat vähentyneet koko Suomessa.
+
+Myös koronapotilaiden tehohoidon tarve on vähentynyt. Koronarokotukset antavat hyvän suojan vakavaa koronatautia vastaan.
+
+Koska koronatartuntojen määrä vähenee, yleistä maskipakkoa ei enää ole. Ihmiset voivat käyttää maskia, jos itse haluavat.
+
+## Matkustajien maskipakko loppuu
+
+![Matkustajat maskit kasvoillaan odottavat bussia Ratinan edustalla Tampereella 2. syyskuuta 2021.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_307/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8719096178014c757f1/1635254644)
+
+Avaa kuvien katselu
+
+Matkustajien ei tarvitse enää käyttää maskia. Kuva: Jussi Nukari / Lehtikuva
+
+Maskipakko loppuu myös liikenteessä.
+
+VR sanoo, että matkustajien ei tarvitse enää käyttää maskia junissa. Matkustajat voivat kuitenkin vielä ostaa maskin junassa, jos he haluavat lisäsuojaa.
+
+Myös Finnair luopuu maskipakosta. Ensi viikosta alkaen Finnair ei enää vaadi, että matkustajat käyttävät maskia lentokoneessa. Maskipakko on kuitenkin voimassa, jos lennon lähtömaa tai kohdemaa niin vaatii.
+
+Myös esimerkiksi Helsingin seudun busseissa ja raitiovaunuissa voi jo matkustaa ilman maskia.
+
+## Vanhusten ihosyöpä
+
+![Ihosyövän esiaste miehen päälaessa.](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_238/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4673705a941704046d2/1519654876)
+
+Avaa kuvien katselu
+
+Vanhusten ihosyöpä voi alkaa pienistä ihomuutoksista. Kuva: Henrietta Hassinen / Yle
+
+Vanhusten ihosyöpää ei useinkaan huomata. Näin kertoo Oulun yliopiston tutkimus.
+
+Erityisesti vanhat miehet ovat riskiryhmässä. Heillä on usein ihosyöpä, jota ei huomata.
+
+Tutkija Suvi-Päivikki Sinikumpu sanoo, että lääkärin on hyvä tarkastaa myös vanhuksen iho terveystarkastuksen aikana.
+
+Ihosyövän hoitaminen on tehokkaampaa, jos ihosyöpä löydetään ajoissa.
+
+## Kevättulvat
+
+![Kevättulvan peittämä pelto Hamian Metsäkylässä.](https://img.img-cdn.yle.fi/crop_extract,w_640,h_360,x_0,y_76/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-94423962610a81eed32/1650526927)
+
+Avaa kuvien katselu
+
+Vesi on noussut esimerkiksi pelloille. Kuva: Kiira Ikavalko / Yle
+
+Ilmatieteen laitos varoittaa tulvista Etelä-Suomessa ja Länsi-Suomessa. Tulvavaroitus on voimassa ensi maanantaihin asti.
+
+Jokien vesi on nyt korkealla. Vedenpinta nousee lisää, kun lämmin sää sulattaa lunta.
+
+Vesi on jo tulvinut autoteille ja pelloille eri puolilla Etelä-Suomea. Esimerkiksi Lahden seudulla on suljettu pieniä teitä, jotka ovat jääneet veden alle.
+
+Länsi-Suomessa Pohjanmaalla tulva pahenee vielä viikonloppuna ja ensi viikolla. Teitä ja jopa rakennuksia voi olla vaarassa, kun vesi nousee Pohjanmaan joissa.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12413018)
+
+Avaa kuvien katselu
+
+Etelässä on vielä perjantaina aurinkoista ja lämmintä.
+
+Pohjoisessa sää viilenee ja pilvisyys on runsaampaa.
+
+Maan etelä- ja keskiosassa lämpötila on 11 ja 17 asteen välillä, pohjoisessa 5 ja 10 asteen välillä.
+
+Viikonloppuna sää viilenee. Lämpötila on lauantaina alle 10 astetta melkein koko maassa.

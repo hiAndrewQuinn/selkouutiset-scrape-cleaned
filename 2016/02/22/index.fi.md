@@ -1,0 +1,89 @@
+Raskaus
+
+# Maanantai 22.2.2016 (radio)
+
+Suomessa tehtiin kasvojensiirto. Ministeri haluaa pienentää ulkomaalaisten lapsilisiä. Alkoholi on vaarallista ihan raskauden alussa. Harva mobiilisovellus tuottaa rahaa. Irakilaisesta ruuasta tulee ehkä seuraava suosikki.
+
+![potilas ennen ja jälkeen kasvojensiirron](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8691669)
+
+Avaa kuvien katselu
+
+Kuva: Lehtikuva
+
+- 
+
+  
+
+  Margit Alasalmi
+
+  
+
+  
+
+22.2.2016 18:01•Päivitetty 22.2.2016 18:05
+
+## Ensimmäinen kasvojensiirto
+
+![Havainnekuvia HUS:ssa tehdystä kasvojen siirteestä ennen ja jälkeen leikkauksen. Kuva ei esitä potilasta, vaan on piirtäjän näkemys asiasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8691415)
+
+Avaa kuvien katselu
+
+Piirros kasvojensiirrosta. Kuva: HUS / Heidi Kuivaniemi-Smith, Lydia Carline
+
+Suomessa on tehty kasvojensiirto.
+
+Potilaalle siirrettiin aivokuolleelta ihmiseltä ylä- ja alaleuka, huulet, nenä, kieli, ihoa ja hermoja. Kasvojensiirto tehtiin Helsingissä tämän vuoden alussa. Operaatio kesti 21 tuntia ja siinä oli mukana 11 lääkäriä ja 20 hoitajaa. Potilaalla on ollut pahoja vammoja kasvoissa jo monta vuotta. Nyt potilas pystyy jo puhumaan ja syömään. 
+
+Kasvojensiirto on vaikea ja harvinainen, se on tehty maailmassa vain noin 30 kertaa. Kasvojensiirtoa tarvitsee esimerkiksi potilas, joka on ollut tulipalossa.
+
+## Ministeri: Pienempiä lapsilisiä ulkomaille
+
+![ Hanna Mäntylä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8690840)
+
+Avaa kuvien katselu
+
+Hanna Mäntylä. Kuva: Vesa Moilanen / Lehtikuva
+
+Ministeri Hanna Mäntylä haluaa pienentää lapsilisiä, joita valtio maksaa ulkomailla asuville lapsille.
+
+EU-maat saavat säätää lapsilisiä vuodesta 2020 alkaen. Esimerkiksi jos virolainen on töissä Suomessa, mutta hänen lapsensa asuvat Virossa, lapsille saa maksaa pienempää lapsilisää kuin jos lapset asuvat Suomessa. 
+
+## Alkoholi vaarallista heti raskauden alussa
+
+![Raskaana oleva nainen ravintolassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8690265)
+
+Avaa kuvien katselu
+
+Alkoholi on vaarallista myös raskauden alussa. Kuva: Martti Kainulainen / Lehtikuva
+
+Raskaus alkaa usein vahingossa. Moni nainen juo alkoholia, ennen kuin hän huomaa, että hän on raskaana. 
+
+Raskauden alku on tärkeää aikaa sikiön kehitykselle, ja siksi voi olla vaarallista, jos äiti juo alkoholia. Tutkijat sanovat, että lapsesta tulee ehkä huono keskittymään ja hän kasvaa ehkä tavallista hitaammin.
+
+Tutkijat sanovat, että koe-eläimillä alkoholi muutti sikiön aivojen rakennetta ja geenejä.
+
+## Harva "appi" tuo rahaa
+
+![puhelin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8685166)
+
+Avaa kuvien katselu
+
+Mobiilisovelluksia on tarjolla paljon. Kuva: Yle
+
+Vain harva mobiilisovellus eli kännykän "appi" tuottaa rahaa tekijälleen. Alle 5 prosenttia sovelluksista tuo enemmän rahaa kuin niiden tekemiseen meni.
+
+Suomessa vain muutama pelisovelluksen kehittäjä on ansainnut hyvin. Suomi on pieni maa ja sovelluksia ladataan vähän. Sovellukset maksavat yleensä vain pari euroa, joten niitä täytyy myydä tosi paljon, ennen kuin niistä saa tarpeeksi rahaa.
+
+## Irakin ruuasta seuraava suosikki?
+
+![Tom Yam Goong, thaimaalainen tulinen rapukeitto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8689446)
+
+Avaa kuvien katselu
+
+Suomessa on eniten aasialaisia etnoravintoloita. Kuva: Rungroj Yongrit / EPA
+
+Suomen ravintola-alan seuraava suosikki on ehkä irakilainen ruoka.
+
+Suomessa ei ole irakilaisia ravintoloita, mutta ammattilaiset uskovat, että niitä syntyy pian. Kun pakolainen haluaa perustaa firman, hänen on ehkä helpointa perustaa ravintola.
+
+Suomessa on eniten aasialaisia etnisiä ravintoloita ja varsinkin kiinalaisia on joka puolella Suomea. Myös Välimeren maiden ruoka on Suomessa suosittua.

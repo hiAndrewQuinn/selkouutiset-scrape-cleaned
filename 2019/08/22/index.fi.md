@@ -1,0 +1,77 @@
+# Torstai 22.8.2019 (radio)
+
+Etelä-Amerikassa Brasiliassa on isoja metsäpaloja. EU-kansalaiset voivat pian saada Pietariin ilmaisen sähköisen viisumin. Monet lapset kokevat rasismia Britanniassa. Ruotsalaiset ovat vähentäneet lentämistä. Perjantai on sateinen päivä.
+
+## Brasilian metsäpalot
+
+![Maastopalojen jälkiä Mato Grosson osavaltiossa Brasiliassa 20. elokuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10932640)
+
+Avaa kuvien katselu
+
+Tuli on tuhonnut paljon sademetsää Brasiliassa. Kuva: Rogerio Florentino / EPA
+
+Etelä-Amerikassa Brasiliassa on isoja metsäpaloja. Metsä palaa eri puolilla Amazonin aluetta.
+
+Sanotaan, että Amazonin sademetsät ovat maailman keuhkot. Ilmastonmuutos nopeutuu, jos Amazonin sademetsät tuhoutuvat. Siksi Amazonin metsäpalot huolestuttavat ihmisiä eri puolilla maailmaa.
+
+Brasilialaiset ovat sytyttäneet metsäpaloja myös tahallaan. He haluavat lisää peltoja soijaa varten ja lisää laitumia karjaa varten. Brasilia myy paljon soijaa ja naudanlihaa ulkomaille.
+
+Maailmalla on kritisoitu Brasilian presidenttiä Bolsonaroa. Presidentin mielestä sademetsää saa polttaa maataloutta varten.
+
+## Pietarin viisumit
+
+![Ihmisiä nousemassa Allegro-junaan Helsingin päärautatieasemalla.](https://img.img-cdn.yle.fi/crop_extract,w_4383,h_2465,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5787365d344234ac7be/1563707485)
+
+Avaa kuvien katselu
+
+Suomalaiset tekevät paljon matkoja Pietariin. Kuva: Jari Pussinen / YLE
+
+EU-kansalaisten matkustaminen Pietariin helpottuu. Lokakuun alusta lähtien EU-kansalaiset voivat saada Pietariin sähköisen viisumin, joka on ilmainen.
+
+Asiasta kertoi Venäjän presidentti Vladimir Putin, joka vieraili keskiviikkona Suomessa.
+
+Uudella viisumilla voi matkustaa Pietarin kaupunkiin ja Pietarin ympäristöön. Ilmainen viisumi on voimassa 8 päivää.
+
+## Rasismi Britanniassa
+
+![Lontoolaisia koululaisia koulupuvuissaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10932682)
+
+Avaa kuvien katselu
+
+Koululaiset kokevat rasismia Britanniassa. Kuva: AOP
+
+Monet lapset kokevat rasismia Britanniassa.
+
+Britanniassa kiusataan varsinkin lapsia, jotka ovat kotoisin Itä-Euroopasta. Tieto on brittiläisen yliopiston tutkimuksesta.
+
+Kiusaamista koki melkein 80 prosenttia koululaisista, jotka osallistuivat tutkimukseen. Lapset kertoivat, että heitä kiusataan kansalaisuuden, ulkonäön tai puhetavan takia.
+
+Melkein 50 prosenttia tutkimuksen osallistujista sanoi, että rasismi on lisääntynyt Britanniassa brexit-äänestyksen jälkeen. Äänestys oli 3 vuotta sitten. Silloin yli puolet briteistä äänesti sen puolesta, että Britannia eroaa Euroopan unionista.
+
+## Ruotsalaisten lentomatkailu
+
+![Norwegianin kone nousee Arlandan lentoasemalta, etualalla SAS:n koneita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10730244)
+
+Avaa kuvien katselu
+
+Lentomatkailu vähenee Ruotsissa. Kuva: Johan Nilsson / EPA
+
+Ruotsalaiset ovat vähentäneet lentämistä.
+
+Ruotsalaiset lensivät tämän vuoden heinäkuussa 4 prosenttia vähemmän kuin viime vuoden heinäkuussa. Ruotsin rajojen sisällä lentomatkailu väheni 11 prosenttia.
+
+Monet ruotsalaiset vähentävät lentämistä ilmastonmuutoksen takia. Lentokoneet käyttävät paljon polttoainetta, joka lämmittää ilmastoa.
+
+Samaan aikaan suomalaisten lentomatkailu on kasvanut.
+
+## Sateinen perjantai
+
+![Kajaanin kävelykatu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8870863)
+
+Avaa kuvien katselu
+
+Kuva: Hanne Kinnunen / Yle
+
+Perjantai on sateinen päivä. Sadekuurot ovat yleisiä ja sää on pilvinen. Ukkoskuurojen mukana voi tulla voimakkaita tuulenpuuskia.
+
+Lauantai on poutainen.

@@ -1,0 +1,55 @@
+# Selkouutiset | torstai 23.7.2026
+
+Sähkön hinta. Suomen väkiluku. Suomenhevonen. Perjantain sää.
+
+## Sähkön hinta
+
+Aluksi uutinen sähkön hinnasta.
+
+Sähkö voi olla ensi talvena kallista.
+
+Sähkön hinta voi nousta, koska vesivoiman tuotanto on nyt heikkoa Pohjoismaissa. Myös Iranin sota vaikuttaa sähkön hintaan.
+
+Suomessa joka 4. kotitalous ostaa pörssisähköä, jonka hinta vaihtuu. Yleisempi on määräaikainen sähkösopimus, jossa hinta pysyy samana sopimuksen ajan.
+
+Sähkö voi olla kallista ensi talvena.
+
+Sähkön hinnan ennustaminen on kuitenkin vaikeaa. Tilanne voi muuttua, jos esimerkiksi Ruotsissa ja Norjassa sataa syksyllä paljon.
+
+## Suomen väkiluku
+
+Sitten aiheena on väkiluku.
+
+Suomen väkiluku oli kesäkuun lopussa noin 5,65 miljoonaa.
+
+Tilastokeskus kertoo, että alkuvuonna väkiluku kasvoi hyvin vähän. Määrä kasvoi vain 16 ihmisellä.
+
+Väestökasvu johtuu edelleen maahanmuutosta. Suomeen muutti tammi-kesäkuussa lähes 20 000 ihmistä. Poismuuttoja oli noin 14 000.
+
+Suomen väkiluku oli kesäkuun lopussa noin 5,65 miljoonaa.
+
+Alkuvuonna syntyi lähes 24 000 lasta. Se on enemmän kuin samaan aikaan viime vuonna.
+
+## Suomenhevonen
+
+Lopuksi eläinuutinen.
+
+Suomenhevosia syntyy vähemmän kuin ennen.
+
+Suomenhevosia on syntynyt viime vuosina alle 1 000 vuodessa. Se on kriittinen raja.
+
+Vaarana on, että suomenhevosen geneettinen monipuolisuus vähenee. Se tarkoittaa, että hevoset ovat liian läheistä sukua keskenään, eikä varsoja voida teettää. Myös lajin terveys voi heikentyä.
+
+Suomenhevosia syntyy yhä vähemmän.
+
+Suomenhevosia käytetään paljon ravihevosina.
+
+Suomenhevosia oli mukana myös Suomen sotajoukoissa. Toisessa maailmansodassa palveli yli 100 000 suomenhevosta.
+
+## Perjantain sää
+
+Vielä sääennuste.
+
+Pohjoisessa sataa vettä. Myös muualla voi sataa välillä. Aurinko paistaa Turun seudulla.
+
+Lämpötila on 12 ja 20 asteen välillä.

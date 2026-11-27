@@ -1,0 +1,61 @@
+# Lauantai 3.3.2018 (radio)
+
+Väyrynen erotettiin Kansalaispuolueesta. Arkkipiispa haluaa keskustelua kirkosta. Nordean palveluissa suuri katkos. Kevään seuraaminen alkaa.
+
+## Kansalaispuolue erotti Paavo Väyrysen
+
+![Paavo Väyrynen viittoo käsillään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10100685)
+
+Avaa kuvien katselu
+
+Paavo Väyrynen erotettiin puolueesta, jonka hän on itse perustanut. Kuva: Aleksi Tuomola / Lehtikuva
+
+Kansalaispuolue on erottanut europarlamentaarikko Paavo Väyrysen puolueesta. Kansalaispuolueen mukaan erottamisen syy on esimerkiksi Väyrysen rahankäyttö.
+
+Puolueen mielestä rahaa on käytetty väärin. Kansalaispuolue halusi erottaa Väyrysen myös sen takia, että Väyrynen yrittää päästä toisen puolueen, Keskustan puheenjohtajaksi. Kansalaispuolueen puheenjohtaja Sami Kilpeläinen kertoo, että rahan väärinkäyttö liittyy Väyrysen presidentinvaalikampanjaan.
+
+Paavo Väyrynen sanoo, että erottamispäätös on laiton. Hänen mielestään erottamisen perustelut ovat tekaistuja eli keksittyjä.
+
+Europarlamentaarikko Paavo Väyrynen on itse perustanut Kansalaispuolueen. Puolue perustettiin 2 vuotta sitten.
+
+## Uusi arkkipiispa haluaa keskustella kirkosta
+
+![Tapio Luoma](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10066008)
+
+Avaa kuvien katselu
+
+Arkkipiispa Tapio Luoma haluaa keskustella kirkon roolista. Kuva: Yle
+
+Suomen luterilaisen kirkon uusi johtaja arkkipiispa Tapio Luoma haluaa keskustella kirkon tehtävistä. Kirkko valitsi Luoman arkkipiispaksi torstaina.
+
+Tapio Luoma vieraili Ylen aamu-tv:ssä. Hän sanoi, että keskustelu esimerkiksi homoparien vihkimisestä jatkuu varmasti.
+
+## Nordealla suuria palvelukatkoja
+
+![Mies käyttää Nordean verkkopankkia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10095533)
+
+Avaa kuvien katselu
+
+Nordean verkkopankki on sunnuntaina pois käytöstä monta tuntia. Kuva: Henrietta Hassinen / Yle
+
+Suuri osa Nordea-pankin palveluista ei toimi sunnuntaina. Esimerkiksi nettipankkia ei voi käyttää. Monet Nordean maksukortit eivät toimi kunnolla usean tunnin ajan.
+
+Nordean mukaan häiriöt johtuvat harjoituksesta. Pankki harjoittelee, kuinka se voi toimia, kun jotain yllättävää tapahtuu.
+
+Palveluissa on katkoksia ja häiriöitä sunnuntaina aamuneljän ja kello 16:n välisenä aikana. Nordean palveluissa on häiriöitä myös ulkomailla.
+
+## Taas seurataan kevään tuloa
+
+![Mustikka kukkii.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8873601)
+
+Avaa kuvien katselu
+
+Tänä vuonna Kevätseurannassa tutkitaan tarkasti, milloin mustikka kukkii eri puolilla Suomea. Kuva: Ismo Pekkarinen / AOP
+
+Suomalaisia kutsutaan taas mukaan seuraamaan, kuinka kevät etenee. Luonto-Liiton Kevätseuranta-kampanja on jälleen alkanut.
+
+Kevätseuranta tarkoittaa, että jokainen voi etsiä luonnosta merkkejä keväästä ja ilmoittaa niistä Luonto-Liittoon. Liiton nettisivuilla on paikka, jonne voi ilmoittaa esimerkiksi havaintoja ensimmäisistä muurahaisista.
+
+Tänä vuonna on 5 lajia, joita seurataan tosi tarkkaan. Ne ovat siili, lepakko, mustikan kukinta, rantakäärme ja tervapääsky.
+
+Kevätseuranta jatkuu kesäkuun alkupuolelle asti. Havaintoja voi ilmoittaa osoitteessa kevatseuranta.fi.

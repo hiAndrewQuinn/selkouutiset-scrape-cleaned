@@ -1,0 +1,85 @@
+# Viikon uutinen selkosuomeksi | lauantai 24.1.2026
+
+Rovaniemen taksiliikenteen ongelmat
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Taksiliikenteen ongelmat Rovaniemellä
+
+Tämän viikon aihe on taksiliikenteen ongelmat Rovaniemellä.
+
+Tammikuun alussa monien taksien ikkunat rikottiin yöllä eri puolilla Rovaniemeä.
+
+Monet kuljettajat ovat tulleet Etelä-Suomesta Rovaniemelle ajamaan taksia turistisesongin ajaksi.
+
+Moni kuljettaja on maahanmuuttaja tai maahanmuuttajataustainen.
+
+Osa kuljettajista arvelee, että rikokset liittyvät rasismiin.
+
+Kerromme nyt lisää Rovaniemen taksiliikenteen tilanteesta.
+
+![Rikottu taksin takatuulilasi Rovaniemellä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3072,w_5460,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1767797987/39-1578073695e73a221893)
+
+Avaa kuvien katselu
+
+Takseista rikottiin ikkunoita Rovaniemellä. Kuva: Antti Mikkola / Yle
+
+## Monia ongelmia
+
+Yle tapasi Rovaniemellä useita taksinkuljettajia, jotka työskentelevät siellä talvella.
+
+Moni kuljettaja sanoo, että heitä huolestuttaa turvallisuus ja että he ovat kohdanneet vihamielisyyttä.
+
+Jotkut kuljettajat kertovat, että asiakkaat eivät tule heidän kyytiin. Ihmisille on esimerkiksi sanottu, että heidän pitää mennä vain tuttujen taksien kyytiin.
+
+Osa kuljettajista on jo lähtenyt takaisin Etelä-Suomeen, koska työnteko Rovaniemellä on vaikeaa.
+
+Joidenkin kuljettajien pitää yöpyä autossa tai esimerkiksi kuntosalilla, koska majoitus Rovaniemellä on kallista ja työvuorot ovat pitkiä.
+
+## Taksiliitto
+
+Taksiliiton toimitusjohtaja **Annukka Mickelsson** tuomitsee ilkivallan, jota Rovaniemellä on ollut.
+
+Mickelsson sanoo, että kaikilla, joilla on lupa ajaa taksia, on oikeus tehdä tätä työtä.
+
+Taksiliitto sanoo, että ongelmien syy on heikko sääntely ja taksien kova kilpailu.
+
+Taksiliitto toivoo, että uudet lait parantavat tilannetta ja lisäävät turvallisuutta.
+
+![Taksi pysäköinyt kieltokyltin eteen.](https://images.cdn.yle.fi/image/upload/c_crop,h_2921,w_5194,x_3,y_176/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1768564722/39-1582672696a26ad8c4ee)
+
+Avaa kuvien katselu
+
+Taksi on pysähtynyt Rovaniemellä paikkaan, johon taksi ei saa pysähtyä.  Kuva: Juuso Stoor / Yle
+
+## Taksipaikkojen järjestelyt
+
+Taksikilpailu on kovaa nyt talven turistikaudella Rovaniemellä.
+
+Taksinkuljettajia tulee paljon muualta Suomesta. Osa kuljettajista ajaa perinteisten taksiyhtiöiden kyytejä ja osa kuljettajista ajaa Uberin tai Boltin kyytejä.
+
+Julkisten taksipaikkojen järjestelyt ja kilpailutus aiheuttavat ongelmia. Joidenkin taksien pitää odottaa kaukana rautatieaseman tai lentokentän ulko-ovilta.
+
+Asiakkaat valitsevat usein tutun firman taksin, ja osa kuljettajista kokee, että heidät ohjataan syrjemmälle.
+
+Poliisi kertoo, että myös hintaepäselvyydet ja taksien liikenne aiheuttavat tehtäviä.
+
+Jotkut asiakkaat ovat kertoneet, että taksimatka Rovaniemellä on joskus ollut yllättävän kallis.
+
+![Taksi ja taksikuskeja Rovaniemellä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3072,w_5460,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1767797945/39-1578067695e739b01004)
+
+Avaa kuvien katselu
+
+Talvella Rovaniemen taksimäärä voi jopa kaksinkertaistua. Kun kilpailu on kovaa, tulee myös ongelmia. Kuva: Antti Mikkola / Yle
+
+## Kertaus
+
+Viikon uutinen selkosuomeksi kertoi Rovaniemen taksiliikenteen ongelmista.
+
+Lapin matkailun kasvu on lisännyt taksien tarvetta Rovaniemellä. Talvella Rovaniemen taksimäärä voi jopa kaksinkertaistua.
+
+Rovaniemelle tulee paljon kuljettajia eri puolilta Suomea. Taksien kova kilpailu on aiheuttanut ongelmia.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

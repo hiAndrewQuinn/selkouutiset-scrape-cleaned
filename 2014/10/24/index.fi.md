@@ -1,0 +1,59 @@
+# Perjantai 24.10.2014
+
+EU-maat vähentävät kasvihuonekaasujen pääsyä ilmaan. Oppilas tappoi toisen oppilaan Utsjoen saamelaislukiossa. Ruotsin armeija lopetti tutkinnan Itämerellä. Älypuhelin voi pelastaa ihmishengen.
+
+## EU vähentää kasvihuonekaasujen päästöjä
+
+![VOimalan useista isoista piipuista tupruaa sankkaa savua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6947365)
+
+Avaa kuvien katselu
+
+Kivihiilivoimalasta pääsee ilmaan hiilidioksidia, joka on kasvihuonekaasu. Kuva: Petteri Juuti / Yle
+
+EU-maat aikovat saastuttaa vähemmän. Vuonna 2030 EU-maat päästävät ilmaan 40 prosenttia vähemmän kasvihuonekaasuja kuin vuonna 1990. EU-johtajat sopivat asiasta Brysselissä.
+
+EU-maat haluavat vähentää kasvihuonekaasuja, koska ne lämmittävät ilmaa. Maapallon lämpötila voi nousta vaarallisen paljon kasvihuonekaasujen takia. Esimerkiksi hiilidioksidi on kasvihuonekaasu. Hiilidioksidia pääsee ilmaan, kun sähköä tehdään polttamalla öljyä tai kivihiiltä.
+
+EU-maat päättivät myös, että ne käyttävät enemmän uusiutuvaa energiaa. Uusiutuvaa energiaa saadaan esimerkiksi tuulivoimasta ja aurinkovoimasta, jotka eivät kuluta luontoa. Lisäksi EU-maat päättivät säästää energiaa.
+
+## Oppilas tappoi toisen oppilaan Utsjoella
+
+![Pelastushelikopteri](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7549936)
+
+Avaa kuvien katselu
+
+Norjalainen pelastushelikopteri haki uhrin, joka kuitenkin kuoli. Kuva: Vesa Toppari / Yle
+
+Lukion oppilas on kuollut väkivallan takia Pohjois-Suomessa. Utsjoen saamelaislukion oppilas löi toista oppilasta puukolla perjantaina. Poliisi on pidättänyt tekijän.
+
+Tekijä on noin 30-vuotias mies. Hän on aikuislukion opiskelija. Hän tappoi toisen miesoppilaan kesken koulupäivän.
+
+Utsjoen saamelaislukio on Lapissa. Se on Suomen ja koko Euroopan unionin pohjoisin lukio. Saamelaislukio antaa opetusta myös saamen kielellä.
+
+## Ruotsi ei löytänyt sukellusvenettä
+
+![info](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7549446)
+
+Avaa kuvien katselu
+
+Ruotsin armeija kertoi perjantaina, että se lopettaa tutkinnan Itämerellä. Kuva: SVT
+
+Ruotsin armeija on lopettanut tutkinnan Itämerellä lähellä Tukholmaa. Armeija sanoo, että vieras vedenalainen alus on lähtenyt pois. Armeija etsi alusta viikon.
+
+Ruotsin armeija sanoo, että alus ei ollut suuri sukellusvene. Armeija kertoo, että meressä on liikkunut jokin muu vedenalainen alus. Armeija ei ole varma, mistä maasta alus tuli.
+
+Ruotsin media kertoi tutkinnan aikana, että armeija etsii venäläistä sukellusvenettä, joka on tullut Ruotsin aluevesille ilman lupaa. Armeija sai tietoja myös tavallisilta ruotsalaisilta. Monet ruotsalaiset kertoivat, että he ovat nähneet meressä jotakin epätavallista.
+
+## Älypuhelin voi auttaa sairaustapauksessa
+
+![Kovan terveysteknologian mobiilisovellukset tekevät tuloaan viihteellisten terveysapplikaatioiden rinnalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7548100)
+
+Avaa kuvien katselu
+
+Älypuhelimella voi esimerkiksi ottaa sydänfilmin. Kuva: Timo Heikura / Yle
+
+Älypuhelin voi pelastaa ihmishengen. Tavalliset ihmiset voivat kohta saada älypuhelimiin sovelluksia, joita nyt on vain terveysalan ammattilaisilla. Tähän asti tavallinen asiakas on saanut puhelimeen vain sellaisia sovelluksia, jotka ovat viihdettä.
+
+Kuopiossa kehitetään esimerkiksi sovellusta, joka auttaa, kun potilaan sydän pysähtyy. Hätäpuhelun soittaja voi ottaa potilaalta sydänfilmin puhelimella ja lähettää sen hätäkeskukseen. Tällä tavalla potilas saa oikeanlaista apua nopeammin.
+
+Lääkärit toivovat, että älypuhelimet pelastavat tulevaisuudessa monen ihmisen hengen.

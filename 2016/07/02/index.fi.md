@@ -1,0 +1,59 @@
+# Lauantai 2.7.2016 (radio)
+
+Bangladeshin kahvilaiskussa kuoli yli 20 ihmistä. Tutkija arvioi Putinin vierailua Suomeen. Yli 30 000 ihmistä osallistui Pride-kulkueeseen Helsingissä. Maailman paras eukonkantaja on taas löytynyt.
+
+## Isku Bangladeshissa
+
+![Bangladeshin kartta jossa Dhaka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8999163)
+
+Avaa kuvien katselu
+
+Bangladesh on Intian naapurimaa. Kuva: Yle Uutisgrafiikka
+
+Bangladeshissa on tehty isku kahvilaan. Iskussa kuoli yli 20 ihmistä. Isku tapahtui Bangladeshin pääkaupungissa Dhakassa.
+
+Kahvilaan hyökkäsi perjantai-iltana miehiä, joilla oli aseet. He eivät päästäneet ihmisiä pois kahvilasta koko yönä. Tilanne loppui vasta lauantaiaamuna, kun Bangladeshin sotilaat tunkeutuivat kahvilaan.
+
+Iskussa kuoli 20 kahvilan asiakasta. He olivat italialaisia ja japanilaisia. Myös 2 poliisia ja 6 hyökkääjää kuoli.
+
+Viranomaiset sanovat, että hyökkääjät olivat ehkä bangladeshilaisesta islamistiryhmästä.
+
+## Putinin Suomi-kuvat
+
+![Vladimir Putin ja Sauli Niinistö tiedotustilaisuudessa Kultarannassa perjantaina](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8999171)
+
+Avaa kuvien katselu
+
+Presidentit Vladimir Putin ja Sauli Niinistö vastasivat toimittajien kysymyksiin perjantaina, kun Putin vieraili Suomessa. Kuva: Riku Kaminen / Yle
+
+Venäjän presidentillä Vladimir Putinilla on 2 erilaista kuvaa Suomesta. Näin sanoo tutkija Hanna Smith. Smith seurasi, mitä Putin vastasi toimittajien kysymyksiin, kun hän vieraili Suomessa perjantaina.
+
+Joistakin Putinin vastauksista syntyy kuva Suomesta, joka on Venäjän kumppani. Tässä kuvassa Suomella ja Venäjällä on paljon yhteistä ja ne voivat tehdä yhteistyötä, Smith sanoo.
+
+Toisista Putinin vastauksista tulee kuitenkin kuva Suomesta, joka ei pysty päättämään asioista itse. Tässä kuvassa Suomi tekee, niin kuin Euroopan unioni määrää. Näistä 2 kuvasta Venäjä valitsee sen, joka sille eri tilanteissa paremmin sopii, Hanna Smith sanoo.
+
+## Pride-kulkue
+
+![Senaatintori](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8999619)
+
+Avaa kuvien katselu
+
+Pride-kulkue lähti liikkeelle Helsingin Senaatintorilta. Kuva: Niklas Fagerström / Yle
+
+Helsingissä nähtiin lauantaina värikäs Pride-kulkue. Yli 30 000 ihmistä kulki Helsingin keskustan läpi. He vaativat tasa-arvoa homoseksuaaleille ja muille seksuaalivähemmistöille. Pride-kulkue oli osa Helsinki Pride -tapahtumaa, joka on kestänyt koko viikon.
+
+Tänä vuonna Pride-viikolla järjestettiin myös EuroGamesit. Ne ovat seksuaalivähemmistöjen omat, hauskat urheilukilpailut. Helsinkiin tuli yli 1500 urheilijaa 40 eri maasta. EuroGamesien suojelija oli presidentti Sauli Niinistö.
+
+## Eukonkannon MM-kilpailut
+
+![eukonkantajia vesiesteessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9000016)
+
+Avaa kuvien katselu
+
+Eukonkannon uudet maailmanmestarit ovat Dmitri Sagal ja Anastasia Loginova. Kuva: Sakari Partanen / Yle
+
+Suomessa on taas kilpailtu siitä, kuka on maailman paras eukonkantaja. Eukonkannon MM-kilpailut järjestettiin Sonkajärvellä Savossa.
+
+Tänä vuonna mukana oli kilpailijoita 13 maasta. Voitto meni Venäjälle. Uudet maailmanmestarit ovat Dmitri Sagal ja Anastasia Loginova.
+
+Eukonkannossa mies kantaa eukkoa eli naista noin 250 metriä. Naisen täytyy painaa vähintään 49 kiloa. Jos nainen on sitä kevyempi, hänelle laitetaan painoja reppuun. Kilpailijoiden pitää ylittää 2 aitaa ja vesieste, jossa on metri vettä.

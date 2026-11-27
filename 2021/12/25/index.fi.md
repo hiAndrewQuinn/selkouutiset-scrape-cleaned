@@ -1,0 +1,75 @@
+# Lauantai 25.12.2021 (radio)
+
+Joulunvietto. Lentojen peruutukset. Avaruusteleskooppi. Sauna. Sää.
+
+## Joulunvietto
+
+![Poliisi pukee työvaatteita yllensä Suonenjoen poliisiasemalla.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89589761c40efbd6a3f/1640422689)
+
+Avaa kuvien katselu
+
+Joulu on ollut poliisin kannalta rauhallinen. Kuva: Sami Takkinen / Yle
+
+Suomalaiset ovat viettäneet joulua rauhallisesti. Esimerkiksi Helsingin keskustassa on ollut hiljaista ja rauhallista.
+
+Poliisia on kuitenkin tarvittu kodeissa eri puolilla Suomea, koska ihmiset ovat käyttäytyneet häiritsevästi tai väkivaltaisesti.
+
+Lisäksi poliisia on tarvittu liikenteessä. Liikenteessä ongelmana ovat kuljettajat, jotka ovat humalassa.
+
+## Lentojen peruutukset
+
+![Valotaulu jossa lentoaikatauluja.](https://img.img-cdn.yle.fi/crop_extract,w_8192,h_4608,x_0,y_780/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89631161c6a9981e38b/1721400246)
+
+Avaa kuvien katselu
+
+Kuva: John G. Mabanglo / EPA
+
+Maailmalla on peruttu paljon lentoja joulun aikaan.
+
+Esimerkiksi perjantaina ja lauantaina maailmalla peruttiin yhteensä yli 4500 lentoa. Lisäksi monet lennot ovat olleet myöhässä.
+
+Syynä peruutuksiin on koronaviruksen omikron-muunnos, joka tarttuu helposti. Siksi monet lentäjät ovat sairastuneet koronaan tai ovat koronakaranteenissa eivätkä pääse töihin.
+
+## Avaruusteleskooppi
+
+![James Webb -avaruusteleskooppi laukaistaan Ranskan Guayanasta.](https://img.img-cdn.yle.fi/crop_extract,w_5249,h_2952,x_0,y_759/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89632161c7167a07ce2/1640438744)
+
+Avaa kuvien katselu
+
+Avaruusteleskoopin matka alkoi Etelä-Ameriksta. Kuva: JM Guillon / ESA
+
+Etelä-Amerikasta on laukaistu avaruuteen iso teleskooppi. James Webb -teleskooppi laukaistiin avaruuteen Ranskan Guyanasta lauantaina.
+
+Teleskooppi kulkee 1,5 miljoonan kilometrin päähän Maasta. Sen jälkeen se alkaa tutkia avaruutta.
+
+Eurooppa, USA ja Kanada rakensivat James Webb -teleskoopin yhdessä. Rakentaminen maksoi 9 miljardia euroa.
+
+## Sauna
+
+![Sauna jossa vesikiulu ja -kauha](https://img.img-cdn.yle.fi/crop_extract,w_5312,h_2988,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7537005fd63aae472a0/1607875384)
+
+Avaa kuvien katselu
+
+Kuva: Sirkka Haverinen / Yle
+
+Sauna kuuluu monen suomalaisen jouluun. Tutkijat sanovat, että sauna tekee hyvää myös terveydelle.
+
+Professori Lasse Viinikka sanoo, että sauna on kuumin paikka, jonne ihminen menee vapaaehtoisesti.
+
+Viinikan mukaan on vaikea sanoa, kuinka usein saunaan on hyvä mennä. Tärkeintä on, että saunominen tuntuu mukavalta. Silloin se on todennäköisesti myös terveellistä, professori Viinikka sanoo.
+
+Professori Jari Laukkanen puolestaan kertoo, että saunominen vähentää riskiä kuolla sydän- ja verisuonisairauksiin. Saunominen esimerkiksi laskee verenpainetta. Lisäksi saunominen voi vähentää muistisairauksia, professori Laukkanen kertoo.
+
+Tutkijat kuitenkin muistuttavat, että esimerkiksi sydänsairaan ihmisen pitää keskustella saunomisesta lääkärin kanssa.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12246705)
+
+Avaa kuvien katselu
+
+Joulun sää on talvinen.
+
+Lunta on satanut erityisesti Länsi-Suomessa. Esimerkiksi Vaasassa satoi jouluaattona lunta 40 senttimetriä. Lumisateet kuitenkin heikkenevät vähitellen.
+
+Koko maassa on myös pakkasta. Sunnuntaina ja maanantaina pakkasta on noin 5 ja 15 asteen välillä suuressa osassa maata.

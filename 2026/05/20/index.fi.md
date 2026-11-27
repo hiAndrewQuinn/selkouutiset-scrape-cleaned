@@ -1,0 +1,59 @@
+# Selkouutiset | keskiviikko 20.5.2026
+
+Putin Kiinassa. Näpistykset. Syrjintä. Sää
+
+## Venäjän ja Kiinan johtajat tapaavat Pekingissä
+
+Ensin uutinen Venäjän ja Kiinan tapaamisesta.
+
+Venäjän presidentti Vladimir Putin vierailee Kiinassa. Hän tapasi Kiinan presidentin Xi Jinpingin Pekingissä.
+
+Presidentti Putin piti puheen. Hän sanoi, että Venäjän ja Kiinan suhteet ovat korkealla tasolla.
+
+Presidentti Xi sanoi, että Kiina ja Venäjä ovat parantaneet luottamusta ja yhteistyötä. Hän sanoi, että maiden pitää auttaa toisiaan.
+
+Venäjän presidentti Vladimir Putin vierailee Kiinassa.
+
+Maat neuvottelevat etenkin kaupankäynnistä. Venäjä tarvitsee rahaa Kiinalta, koska Venäjän sota Ukrainassa on vienyt paljon rahaa.
+
+## Pienestä varkaudesta voi joutua oikeuteen
+
+Sitten uutinen näpistyksistä eli pienistä varkauksista.
+
+Helsingin käräjäoikeudessa käsitellään nyt paljon pieniä varkauksia.
+
+Oikeudessa on ruuhkaa, koska Helsingin poliisi alkoi tutkia pieniä varkauksia. Aikaisemmin poliisi ei tutkinut varkauksia, jotka olivat tosi pieniä.
+
+Nyt oikeuteen voi joutua, jos varastaa esimerkiksi suklaapatukan kaupasta.
+
+Helsingin käräjäoikeudessa on ruuhkaa pienten varkauksien takia. Niihin menee paljon tuomareiden aikaa.
+
+Helsingin käräjäoikeuden johtaja sanoo, että tilanne on turhauttava.
+
+Oikeudessa on käsitelty esimerkiksi vesipullon varkautta. Pullo maksoi 50 senttiä.
+
+## Ulkomaalaistaustaiset nuoret kokevat usein syrjintää
+
+Lopuksi uutinen nuorten syrjinnästä.
+
+Ulkomaalaistaustaiset nuoret kertovat kyselyssä, että heitä syrjitään enemmän kuin ennen.
+
+Yläkoululaiset nuoret vastasivat kouluterveyskyselyyn, jonka tekee Terveyden ja hyvinvoinnin laitos THL.
+
+Kyselyssä puolet ulkomaalaistaustaisista nuorista kertoi, että he ovat kokeneet syrjintää koulussa ja vapaa-ajalla.
+
+Ali Ridhwan muutti Helsingistä Lahteen. Hän kertoo, että Helsingissä oli enemmän syrjintää:
+
+\- Mun mielestä mun koulussa on ihan fine. Ei mua ole yhtään kiusattu eikä syrjitty.
+
+\- Lahessa on ollut parempaa kuin vaikka Helsingissä. Olin Helsingissä ja kyllä mua kiusattiin siellä, mutta Lahessa on kyllä parempi.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Huomenna aurinko paistaa, mutta välillä on myös pilvistä.
+
+Itä-Suomessa voi sataa vähän vettä.
+
+Lämpötila on noin 20 astetta.

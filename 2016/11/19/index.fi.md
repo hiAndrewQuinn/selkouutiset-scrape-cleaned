@@ -1,0 +1,59 @@
+# Lauantai 19.11.2016 (radio)
+
+Ruotsi arvioi uudelleen Irakin ihmisoikeustilanteen. Moni turvapaikanhakija on luopunut islaminuskosta. Pessimisti saa helpommin sydänkohtauksen. Anna Järvinen on vuoden ruotsinsuomalainen.
+
+## Ruotsi arvioi uudelleen Irakin ihmisoikeustilanteen
+
+![Irakilaisia Jadaan pakolaisleirillä Mosulin lähellä Irakissa 17. marraskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9304199)
+
+Avaa kuvien katselu
+
+Irakilaisia Jadaan pakolaisleirillä Mosulin lähellä 17.11. Kuva: Ahmed Jalil / EPA
+
+Ruotsin maahanmuuttovirasto arvioi, että Irakin ihmisoikeustilanne on huonontunut.
+
+Viraston mukaan aseellinen konflikti on nyt Irakissa useammalla alueella kuin viime vuonna. Siksi maan sisällä on vaikea siirtyä väkivaltaa pakoon.
+
+Uusi arvio vaikuttaa ehkä Ruotsin turvapaikkapäätöksiin. Esimerkiksi osa kielteisistä päätöksistä ehkä käsitellään uudelleen.
+
+Suomessa viranomaiset päättävät tammikuussa siitä, että pitääkö Irakin turvallisuusarviota muuttaa.
+
+## Moni turvapaikanhakija on luopunut islaminuskosta
+
+![Kaustisen kirkko sisältä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5092907)
+
+Avaa kuvien katselu
+
+Kirkon mukaan moni turvapaikanhakija on luopunut islaminuskosta ja littynyt luterilaiseen kirkkoon. Kuva: Tuula Nyberg / EPA
+
+Suomen luterilainen kirkko arvioi, että satoja turvapaikanhakijoita on luopunut islaminuskosta ja liittynyt luterilaiseen kirkkoon.
+
+Uusien jäsenten pitää käydä rippikoulu ja olla aktiivisia vähintään 3 kuukautta seurakunnassa.
+
+Jotkut voivat kokea uskonnollista vainoa, koska he ovat luopuneet islaminuskosta. Silloin se voi olla peruste turvapaikan saamiselle.
+
+## Pessimisti saa helpommin sydänkohtauksen
+
+![Mies huulet mutrulla. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7119709)
+
+Avaa kuvien katselu
+
+Tyytymätön ja pessimistinen ihminen sairastuu muita useammin sepelvaltimotauteihin. Kuva: Hanna Lumme / Yle
+
+Pessimistinen asenne elämään lisää ehkä riskiä kuolla sydänkohtaukseen.
+
+Tutkijat seurasivat yli 2300 suomalaisen elämää 11 vuoden ajan. Tutkijat huomasivat, että pessimismi oli sepelvaltimotaudin riskitekijä. Pessimistit kuolivat sydänkohtaukseen useammin kuin optimistiset ihmiset.
+
+## Anna Järvinen on vuoden ruotsinsuomalainen
+
+![Laulaja Anna Järvinen musisoi laskevan auringon punertavassa valossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6566038)
+
+Avaa kuvien katselu
+
+Ruotsinsuomalainen laulaja Anna Järvinen on pitänyt suomen kieltä voimakkaasti esillä Ruotsissa. Kuva: Klaffi Productions
+
+Laulaja ja lauluntekijä Anna Järvinen on valittu vuoden ruotsinsuomalaiseksi. Järvinen on nostanut suomen kielen voimakkaasti esille Ruotsissa tänä vuonna.
+
+Anna Järvinen muutti Helsingistä Tukholman pohjoispuolelle 6-vuotiaana.
+
+Valinta perustuu yleisöäänestykseen. Sen järjestivät Ruotsin radion ja television suomenkieliset toimitukset.

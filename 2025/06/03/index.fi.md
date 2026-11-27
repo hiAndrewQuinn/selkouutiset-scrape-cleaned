@@ -1,0 +1,47 @@
+# TV | Selkouutiset | tiistai 3.6.2025
+
+Pankkihuijaukset. Hautalöydöt. Kaarle Kustaa. Sää.
+
+## Pankkihuijaukset
+
+Ensin uutinen rikoksista.
+
+Rikolliset keksivät uusia tapoja saada rahaa ihmisten pankkitileiltä.
+
+Rikolliset esimerkiksi pyytävät ihmisten pankkitunnuksia puhelimessa tai sähköpostilla. Rikollinen ehkä väittää, että ihmisen pankkitilillä on joku ongelma. Rikollinen voi esiintyä pankin työntekijänä tai poliisina.
+
+Viime vuonna rikolliset saivat suomalaisten pankkitileiltä yli 60 miljoonaa euroa.
+
+Rikolliset keksivät uusia tapoja saada rahaa ihmisten pankkitileiltä.
+
+Viranomainen vaatii pankeilta enemmän toimia, jotta rikoksia tapahtuu jatkossa vähemmän kuin nyt.
+
+## Hautalöydöt
+
+Seuraavaksi aiheena on vanha hautausmaa.
+
+Turussa Maarian kirkosta on löytynyt vanhoja hautoja. Kirkossa on ehkä 200 hautaa.
+
+Maarian kirkkoon haudattiin ihmisiä ehkä 1800-luvun alussa. Jotkut haudat ovat paljon vanhempia. Maarian kirkko rakennettiin 1300-luvulla.
+
+Hautalöytö yllätti arkeologit. Haudat antavat uutta tietoa siitä, miten ihmiset elivät kauan aikaa sitten.
+
+Turussa Maarian kirkosta on löytynyt vanhoja hautoja. Haudat löytyivät, kun kirkossa tehtiin remonttia.
+
+## Kaarle Kustaa
+
+Seuraavaksi uutinen Ruotsin kuninkaasta.
+
+Ruotsin kuningas Kaarle Kustaa ja kuningatar Silvia kävivät maanantaina Suomessa.
+
+He osallistuivat ruotsalais-suomalaisen kulttuurikeskuksen juhlatilaisuuteen Espoossa.
+
+Kaarle Kustaa ja Silvia myös tapasivat tasavallan presidentti Alexander Stubbin ja rouva Susanne Innes-Stubbin.
+
+Presidentti Stubb ja kuningas Kaarle Kustaa sanoivat, että Suomella ja Ruotsilla on läheinen suhde.
+
+## Sää
+
+Vielä sääennuste.
+
+Keskiviikkona päivä on poutainen ja suuressa osassa maata aurinkoinen. Lämpötila nousee etelässä noin 20 asteeseen. Myös pohjoisessa lämpötila on yli 15 astetta.

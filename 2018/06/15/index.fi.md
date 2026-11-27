@@ -1,0 +1,69 @@
+# Perjantai 15.6.2018 (radio)
+
+Turun puukotus. Ramadan. Lemmikit. Häirintä. Sää.
+
+## Turun puukottajalle tuomio
+
+![Kynttilä- ja kukkameri muistuttaa Turun puukotuksen uhreista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9790533)
+
+Avaa kuvien katselu
+
+Kynttilä- ja kukkameri muistutti Turun puukotuksen uhreista viime elokuussa. Kuva: Lassi Lähteenmäki / Yle
+
+Oikeus on tuominnut marokkolaisen miehen kahdesta terroristisessa tarkoituksessa tehdystä murhasta ja kahdeksasta murhan yrityksestä.
+
+Mies puukotti ihmisiä viime elokuussa Turun keskustassa. Kaksi ihmistä kuoli ja kahdeksan haavoittui.
+
+Tuomio tarkoittaa, että oikeuden mielestä puukotukset olivat terroritekoja. Tuomittu viedään istumaan tuomiotaan Turun vankilaan.
+
+## Ramadan päättyi
+
+![Saudi-Arabian Riadissa nainen oli pukenut tyttärensä uusiin juhlavaatteisiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10256837)
+
+Avaa kuvien katselu
+
+Saudi-Arabian Riadissa nainen oli pukenut tyttärensä uusiin juhlavaatteisiin. Kuva: Ahmed Yosri / EPA
+
+Muslimit ovat juhlineet eilen ja tänään paastokuukauden eli Ramadanin päättymistä.
+
+Menneen kuukauden aikana suuri osa muslimeista paastosi ja joi sekä söi vain auringonlaskun ja auringonnousun välisenä aikana. Myös rukoilu ja hiljentyminen ovat osa paastoa.
+
+Paaston viimeisinä päivinä muslimit valmistautuvat juhlimaan Id-al Fitriä. Juhlinta voi kestää useita päiviä.
+
+## Eläimiä kohdellaan huonosti
+
+![Koira nojaa omistajansa jalkoihin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10256243)
+
+Avaa kuvien katselu
+
+Viranomaiset joutuvat entistä useammin puuttumaan eläinten kohteluun. Kuva: Marton Monus / EPA
+
+Ihmisten pahoinvointi on lisääntynyt ja sen takia myös lemmikkieläimet kärsivät. Jotkut ihmiset kohtelevat eläimiä huonosti. Viranomaiset näkevät tapauksia, joissa kohtelu on jo tosi rajua.
+
+Eläinten huono kohtelu johtuu esimerkiksi sosiaalisista ongelmista ja piittaamattomuudesta.Viranomaiset tekivät paljon valvontakäyntejä viime vuonna. Käynneilllä tarkastetaan lemmikkieläinten vointi.
+
+Lemmikin voi ostaa tosi helposti esimerkiksi netistä. Jos eläimen kanssa tulee ongelmia, kannattaa hakea apua ajoissa.
+
+## Nuoria naisia häiritään
+
+![naista häiritään](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9933489)
+
+Avaa kuvien katselu
+
+Seksuaalinen häirintä on yleistä. Kuva: AOP
+
+Naisista 38 prosenttia ja miehistä 17 prosenttia on kokenut seksuaalista häirintää kahden viime vuoden aikana. Etenkin nuoria naisia häiritään seksuaalisesti.
+
+Yli 50 prosenttia alle 35-vuotiaista naisista on kokenut häirintää kahden viime vuoden aikana.Yleisimpiä häirinnän muotoja ovat härskit puheet ja asiattomat vartaloon ja seksuaalisuuteen kohdistuvat huomautukset.
+
+Uusi tutkimus kertoo, että naiset kohtaavat häirintää lähinnä miehiltä, mutta miehet kohtaavat häirintää sekä naisilta että miehiltä.
+
+## Lämmintä luvassa
+
+![Lämpötilakarttoja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10257639)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Viikonlopuksi sää lämpenee monin paikoin. Viikonlopun sää on kesäisen lämmin. Lauantaina sää lämpenee entisestään, paikoin jopa hellelukemiin. Viikonlopun jälkeen sää muuttuu kylmemmäksi ja sateisemmaksi.

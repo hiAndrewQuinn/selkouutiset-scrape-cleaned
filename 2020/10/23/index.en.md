@@ -1,0 +1,75 @@
+# Friday 23.10.2020 (radio)
+
+The government is using more money for coronavirus measures. There are 219 new coronavirus infections in Finland. The coronavirus is spreading faster in the rest of Europe than in Finland. The last debate of the presidential candidates was held in the USA. Rain decreases at the weekend.
+
+## Money for coronavirus measures
+
+![Finance minister Matti Vanhanen on the steps of the Säätytalo building.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11611015)
+
+Open image viewer
+
+Minister Matti Vanhanen told journalists about the government's decisions. Photo: Petteri Bülow / Yle
+
+The government has decided to use more money for coronavirus measures. The government is supporting, for example, municipalities and hospital districts whose finances are in poor shape because of the coronavirus.
+
+In addition, companies will receive 400 million euros more in coronavirus support. Public transport, i.e. for example bus services, will receive 50 million euros more in support.
+
+Coronavirus measures are the main reason why the Finnish state has to borrow more money. The state is borrowing almost 20 billion euros this year.
+
+## Finland's coronavirus infections
+
+![Motorists queue for a coronavirus test at a new drive-in coronavirus sampling point at Malmi airport in Helsinki on 8 October.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11596530)
+
+Open image viewer
+
+A lot of coronavirus tests are being done now. Photo: Heikki Saukkomaa / Lehtikuva
+
+On Friday it was reported that there are 219 new coronavirus infections in Finland. A total of more than 14,000 coronavirus infections have been found in Finland.
+
+353 people have died in Finland because of the coronavirus. On Wednesday it was reported that there were 355 deaths, but the figure was corrected on Friday.
+
+## Coronavirus infections in Belgium
+
+![People on a street.](https://img.img-cdn.yle.fi/crop_extract,w_5015,h_2821,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7050965f29692b677bd/1596550006)
+
+Open image viewer
+
+Belgians have had to wear face masks for some time now. Photo: EPA / Olivier Hoslet
+
+The coronavirus is spreading faster in the rest of Europe than in Finland.
+
+The situation is especially bad in Belgium. On Friday it was reported in Belgium that there are almost 17,000 new coronavirus infections.
+
+Belgium's population is only 2 times bigger than Finland's, but Belgium has found more coronavirus infections in 1 day than Finland has found during the whole coronavirus crisis.
+
+## The USA's election debate
+
+![Presidential candidates Donald Trump and Joe Biden met in their last debate on the stage of Belmont University in Nashville, Tennessee.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11609166)
+
+Open image viewer
+
+Joe Biden and Donald Trump in the election debate. Photo: Jim Bourg / EPA
+
+The USA has held the last election debate of the presidential candidates.
+
+The debate included the Democratic candidate Joe Biden and President Donald Trump, who is the Republican candidate.
+
+In the debate Biden once again said that Trump has handled the coronavirus crisis badly. Biden also raised racism in the USA.
+
+President Trump replied that Biden did not sort things out himself when he had the chance. Biden was Obama's vice president for 8 years.
+
+The US presidential election is on 3 November.
+
+## Weather
+
+![Nordic walking.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10758507)
+
+Open image viewer
+
+Saturday is a good day for outdoor activities. Photo: Ari Welling / Yle
+
+The rain decreases at the weekend.
+
+On Saturday morning it is frosty in most of the country. During the day it will still snow in the north. In the southern and central parts of the country Saturday is mostly dry, i.e. the rain ends.
+
+On Sunday milder, i.e. a little warmer, air comes to Finland from the south. In the south the temperature may be as high as 10 degrees.

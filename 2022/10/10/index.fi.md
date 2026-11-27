@@ -1,0 +1,87 @@
+# Maanantai 10.10.2022 (radio)
+
+Venäjän iskut Ukrainassa. Koronaviruskausi. Vuoden selväsanainen. Aleksis Kiven päivä. Lentoasemalle ruuhkaa. Sää.
+
+## Venäjän iskut Ukrainassa
+
+![Pelomiehet sammuttavat palavia autoja Kiovassa](https://img.img-cdn.yle.fi/crop_extract,w_2048,h_1152,x_0,y_92/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10189026343e2ed140f2/1665393477)
+
+Avaa kuvien katselu
+
+Pelastustyö käynnissä Kiovassa Ukrainan iskun jälkeen. Kuva: Ukrainan valtion hätäpalvelu / EPA
+
+Venäjä on tehnyt iskuja Ukrainan kaupunkeja vastaan. Iskuissa on kuollut ihmisiä.
+
+Venäjä on ampunut ohjuksia myös Ukrainan pääkaupunkiin Kiovaan. Räjähdyksiä on ollut aivan Kiovan keskustassa.
+
+Venäjän presidentti Vladimir Putin sanoo, että iskut ovat vastaus Kertšinsalmen sillan räjähdykseen. Venäjä syyttää räjähdyksestä Ukrainaa.
+
+Kertšinsalmen silta yhdistää Venäjän ja Krimin niemimaan, jonka Venäjä on vallannut Ukrainalta. Sillan räjähdys oli tappio Venäjälle.
+
+## Syksyn koronaviruskausi
+
+![Infektiosairauksien ylilääkäri Asko Järvinen Ylen Ykkösaamussa.](https://img.img-cdn.yle.fi/crop_extract,w_5984,h_3366,x_0,y_244/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88502561a1ea6b402b3/1638001470)
+
+Avaa kuvien katselu
+
+Infekstioylilääkäri Asko Järvinen. Kuva: Benjamin Suomela / Yle
+
+Täällä Suomessa syksyn koronaviruskausi on alkanut.
+
+Infektioylilääkäri Asko Järvinen sanoo, että koronatartuntojen määrä on kasvanut Etelä-Suomessa jo 3 viikon ajan.
+
+Vakavia koronatapauksia on kuitenkin vähän, koska suurin osa suomalaisista on ottanut koronarokotukset.
+
+## Vuoden selväsanainen
+
+![Kolme naista salin etuosassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12655237)
+
+Avaa kuvien katselu
+
+Kotimaisten kielten keskuksen johtaja Leena Nissilä (keskellä) antaa palkinnon Suomi.fi-toimituksen Minna Mäkiselle (oikealla). Kuva: Henna Kara / Selkokeskus
+
+Vuoden selväsanainen -kilpailun voittaja on valittu. Vuoden selväsanainen on Digi- ja väestötietoviraston verkkotoimitus.
+
+Digi- ja vestötietoviraston Suomi.fi-verkkotoimitus on tehnyt oppaita eri elämäntilanteita varten. Suomi.fi-palvelussa on tietoa esimerkiksi avioliitosta ja avioerosta.
+
+Asiakkaat saavat oppaista tietoa helposti ja helpolla kielellä. Se on tärkeää vaikeissa elämäntilanteissa.
+
+Näin sanoo Kuntaliiton toimitusjohtaja Minna Karhunen. Hän valitsi tänä vuonna voittajan Vuoden selväsanainen -kilpailussa.
+
+Kilpailun järjestäjä oli Kotimaisten kielten keskus.
+
+## Aleksis Kiven päivä
+
+![Aleksis kiven -patsas Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7838881)
+
+Avaa kuvien katselu
+
+Kuva: Seppo Sarkkinen / Yle
+
+Maanantaina on ollut Aleksis Kiven ja suomalaisen kirjallisuuden päivä.
+
+Aleksis Kivi eli 1800-luvulla. Hän kirjoitti esimerkiksi kirjan Seitsemän veljestä. Seitsemän veljestä ilmestyi noin 150 vuotta sitten, vuonna 1870.
+
+Monien mielestä suomalainen kirjallisuus alkaa Seitsemästä veljeksestä. Siksi Aleksis Kivi on Suomen kansalliskirjailija, ja Aleksis Kiven päivä on liputuspäivä.
+
+## Lentoasemalle ruuhkaa
+
+![Matkalaukkujen jättöpiste Helsinki-Vantaan lentoasemalla.](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_0,y_255/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97319162b1c4bd34c88/1655817464)
+
+Avaa kuvien katselu
+
+Matkustajien on hyvä varata tarpeeksi aikaa Helsingin lentoasemalla viikonloppuna. Kuva: Saara Hirvonen / Yle
+
+Helsingin lentoasemalla voi olla jonoja ensi viikonloppuna. Siksi matkustajia pyydetään varaamaan tarpeeksi aikaa.
+
+Lentoaseman ruuhkien syynä on koulujen lomaviikko. Koulujen syysloma alkaa viikonloppuna monessa kaupungissa.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12655243)
+
+Avaa kuvien katselu
+
+Sää on tuulista. Tiistaina vettä sataa koko maassa. Illan aikana sateet väistyvät ja sää poutaantuu.
+
+Keskiviikko on poutapäivä, vettä ei sada. Aurinko paistaa lännessä.

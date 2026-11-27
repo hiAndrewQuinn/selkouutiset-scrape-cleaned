@@ -1,0 +1,91 @@
+# Radio Selkouutiset 9.8.2023
+
+Koulut. Myrskytuhot. Lämpöennätys. Tähdenlennot. Tove Janssonin päivä. Sää.
+
+## Koulut alkavat
+
+![Viktor Uotinen koulun pihalla Rovaniemen kristillisellä koululla. ](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_150/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115405164d3518432db4/1691572194)
+
+Avaa kuvien katselu
+
+Viktor Uotinen aloitti peruskoulun ensimmäisen luokan Rovaniemellä. Kuva: Sarita Piipponen / Yle
+
+Koulujen syyslukukausi on alkamassa.
+
+Isoissa kaupungeissa koulut alkavat tänään tai huomenna. Tänään koulut ovat alkaneet esimerkiksi Tampereella, Lahdessa, Jyväskylässä ja Kokkolassa.
+
+Peruskoulun ensimmäisen luokan aloittaa tänä vuonna noin 55 000 oppilasta.
+
+Poliisi kertoo, että se valvoo liikennettä koulujen lähellä ensimmäisten kouluviikkojen ajan. Poliisi seuraa erityisesti autojen nopeuksia ja pysähtymistä suojatien edessä.
+
+## Myrskytuhot
+
+![Koivu on kaatunut sinisen henkilöauton konepellille Sylvia-myrskyssä.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_1043/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115392564d2757a2c289/1691514371)
+
+Avaa kuvien katselu
+
+Sylvia-myrsky kaatoi puita. Tämä kuva on Tervosta Pohjois-Savosta. Kuva: Matti Puranen
+
+Sylvia-myrskyn tuhot jäivät pienemmiksi kuin etukäteen pelättiin.
+
+Eilinen myrsky kaatoi yksittäisiä puita, mutta laajoja metsätuhoja ei ole vielä tullut tietoon, kerrotaan Metsäkeskuksesta.
+
+Kova tuuli aiheutti kuitenkin satoja tehtäviä pelastuslaitoksille. Esimerkiksi Helsingin seudulla pelastulaitoksilla oli eilen noin 400 tehtävää, jotka johtuivat myrskystä.
+
+## Kuuma heinäkuu
+
+![Lentokone suihkuttaa vettä maastopalon yläpuolella, savua valaisee oransssi valo.](https://img.img-cdn.yle.fi/crop_extract,w_4851,h_2728,x_0,y_1111/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114878964c388f272b5f/1691495711)
+
+Avaa kuvien katselu
+
+Lentokone sammutti maastopaloa Rodoksella heinäkuun lopussa.  Kuva: Mirrorpix / MEGA
+
+Heinäkuu oli maailman mittaushistorian kuumin kuukausi. Keskilämpötila oli 0,33 astetta korkeampi kuin edellinen ennätys, joka oli vuoden 2019 heinäkuu.
+
+Asiasta kertoo EU:n Copernicus-palvelu, joka seuraa ilmastonmuutosta.
+
+Heinäkuussa koettiin helleaaltoja esimerkiksi Välimeren alueella, Yhdysvalloissa ja Kiinassa.
+
+Myös merten lämpötiloissa mitattiin heinäkuussa uusi ennätys.
+
+## Tähdenlennot
+
+![Meteoriparvi yötaivaalla.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_570/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115195264cccc01a8e03/1691143237)
+
+Avaa kuvien katselu
+
+Tähdenlento yötaivaalla. Kuva: Zoonar GmbH / AOP
+
+Yötaivaalla voi tällä viikolla nähdä tähdenlentoja. Tähdenlennot ovat peräisin Perseidien meteoriparvesta, kertoo tähtitieteellinen yhdistys Ursa.
+
+Ursa sanoo, että eniten tähdenlentoja voi nähdä sunnuntaina aamuyöllä. Silloin voi nähdä jopa noin 60 tähdenlentoa tunnissa.
+
+Ursa kertoo, että Perseidien tähdenlennot ovat joskus hyvin kirkkaita. Niistä voi jäädä taivaalle hetkeksi vana, ja joidenkin väri voi näyttää punertavalta.
+
+Tähdenlentoja voi nähdä paljain silmin, kiikareita ei tarvita.
+
+## Tove Janssonin päivä
+
+![Tove Jansson suomenlipun edessä](https://img.img-cdn.yle.fi/crop_extract,w_1940,h_1091,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8378086107c3e905ec5/1627898988)
+
+Avaa kuvien katselu
+
+Tove Janssonin ja suomalaisen taiteen päivänä suositellaan liputtamista.
+
+Tänään vietetään Tove Janssonin ja suomalaisen taiteen päivää.
+
+Tämä päivä on Tove Janssonin syntymäpäivä. Jansson on kuvataitelija ja kirjailija, joka tunnetaan parhaiten Muumi-hahmoista. Jansson kuoli vuonna 2001.
+
+Tove Janssonin ja suomalaisen taiteen päivää on vietetty vuodesta 2020 lähtien. Sisäministeriö suosittaa päivän kunniaksi liputtamista.
+
+## Torstain sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115432564d3934a3b399/1691587457)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Pohjoisessa ja maan länsiosassa saadaan huomenna sade- ja ukkoskuuroja. Muualla on pääosin poutaa.
+
+Lämpötila on päivällä 18-25 astetta.

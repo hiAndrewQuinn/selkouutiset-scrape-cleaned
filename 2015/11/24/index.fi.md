@@ -1,0 +1,67 @@
+# Tiistai 24.11.2015
+
+Turkki ampui alas Venäjän lentokoneen. Yhdysvallat pyytää amerikkalaisia olemaan varovaisia ulkomailla. Kempeleessä on tehty raiskaus, joka on saanut monet huolestumaan. Postin lakko jatkuu. Uusi 20 euron seteli tulee käyttöön keskiviikkona.
+
+## Turkki ampui alas Venäjän sotilaskoneen
+
+![lentokone tulessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8479259)
+
+Avaa kuvien katselu
+
+Turkki ampui alas venäläisen koneen.  Kuva: EPA
+
+Turkki on ampunut alas lentokoneen. Lentokone oli Venäjän sotilaskone. Turkki sanoo, että venäläinen kone lensi Turkin ilmatilaan ja siksi Turkki ampui sen alas.
+
+Lentäjät hyppäsivät koneesta ulos laskuvarjoilla. 
+
+Venäläiset lentokoneet ovat lentäneet syksyllä monta kertaa Turkin puolelle. Koneet lentävät Turkin rajan lähellä, kun ne tekevät pommituslentoja Syyriassa. Venäjä pommittaa Syyrian kapinallisia ja Isis-terroristeja, koska Venäjä haluaa auttaa Syyrian presidenttiä Bashar al-Assadia.
+
+## Amerikkalaisten täytyy olla varovaisia ulkomailla
+
+![lentokone](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6855114)
+
+Avaa kuvien katselu
+
+Amerikkalaisten täytyy olla varovaisia ulkomailla.
+
+Yhdysvallat pyytää amerikkalaisia olemaan varovaisia, kun he matkustavat ulkomaille. Yhdysvallat varoittaa ihmisiä siksi, että terrorismin vaara on kasvanut.
+
+Yhdysvaltojen viranomaiset sanovat, että ihmisten on hyvä olla varovaisia esimerkiksi kaduilla, kaupoissa, junissa ja lentokentillä. Amerikkalaisten on hyvä olla varovaisia koko maailmassa ainakin 3 kuukautta.
+
+## Nuori tyttö raiskattu Kempeleessä
+
+![Suomen kartta jossa Kempele ja Oulu](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8477667)
+
+Avaa kuvien katselu
+
+Kempele on Pohjois-Suomessa Oulun lähellä. Kuva: Yle Uutisgrafiikka
+
+Oulun lähellä Kempeleessä on tehty raiskaus, joka on saanut monet ihmiset huolestumaan.
+
+Kempeleessä raiskattiin 14-vuotias tyttö maanantaina. Poliisi epäilee, että kaksi ulkomaalaista nuorta miestä raiskasi tytön. Poliisi löysi pojat koiran avulla ja otti heidät kiinni. Poliisi ei ole vielä puhunut poikien kanssa, koska ei ole löytynyt tulkkia.
+
+Pääministeri Juha Sipilä on järkyttynyt Kempeleen raiskauksesta. Pääministeri pitää rikoksen takia kriisikokouksen kahden muun ministerin kanssa.
+
+## Postin lakko jatkuu
+
+![postinjakaja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8478876)
+
+Avaa kuvien katselu
+
+Postinjakaja. Kuva: Vesa Moilanen / Lehtikuva
+
+Postin lakko jatkuu. Postin työntekijät ovat vielä pois töistä. Heillä on tänään 5. lakkopäivä. Lakon takia esimerkiksi lehtiä ja kirjeitä ei kanneta kotiin Helsingissä ja muualla Uudellamaalla.
+
+Postin lakko voi laajeta muualle Suomeen ja myös muille aloille, jos Postin ja sen työntekijöiden riita ei lopu. Postissa on riitaa esimerkiksi palkasta.
+
+## Uusi 20 euron seteli
+
+![Uusi kahdenkymmenen euron seteli esittelytilaisuudessa Suomen Pankin rahamuseossa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8478014)
+
+Avaa kuvien katselu
+
+Uusi seteli on vähän erilainen kuin vanha.  Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+20 euron seteli muuttuu vähän erinäköiseksi. Uusi seteli on vaikeampi väärentää kuin vanha seteli.
+
+Uusi seteli tulee käyttöön keskiviikkona. Myös vanhoja 20 euron seteleitä voi kuitenkin käyttää edelleen.

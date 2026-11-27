@@ -1,0 +1,71 @@
+# Lauantai 10.11.2018 (radio)
+
+Hallitus haluaa muuttaa lakia mielenosoituksista. 17% vauvoista syntyy keisarileikkauksella. Isoja tulipaloja Kaliforniassa. Saksalaisista 10% ei tykkää juutalaisista. Tv-sarja Babylon Berlin kertoo 1920-luvun Berliinistä.
+
+## Laki mielenosoituksista muuttuu ehkä
+
+![Ihmiset osoittivat mieltään Helsingin Senaatintorilla Trumpin ja Putinin tapaamisen aikaan 16. heinäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10307362)
+
+Avaa kuvien katselu
+
+Mielenosoitus Helsingissä kesällä. Kuva: Marja Väänänen / Yle
+
+Hallitus haluaa muuttaa lakia mielenosoituksista. 
+
+Nykyään mielenosoituksesta täytyy ilmoittaa poliisille 6 tuntia ennen. Hallitus haluaa, että mielenosoituksesta ilmoitetaan 3 päivää ennen. Silloin poliisi ehtii kutsua lisää poliiseja töihin. Hallitus sanoo, että mielenosoitukset ovat turvallisempia kaikille, jos paikalla on tarpeeksi poliiseja. 
+
+Asiantuntijat sanovat, että mielenosoitukset ovat Suomessa melkein aina rauhallisia. Siksi lakia ei ehkä tarvitse muuttaa, asiantuntijat sanovat. 
+
+## Moni vauva syntyy leikkauksella
+
+![Ursula Änäkkälän tytär syntyi 5.11.2018.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10496289)
+
+Avaa kuvien katselu
+
+Vauva syntyi 5.11.2018. Kuva: Laura Railamaa
+
+Vauvoja syntyy keisarileikkauksella enemmän kuin ennen. 
+
+Viime vuonna 17 prosenttia vauvoista syntyi niin, että äidille tehtiin leikkaus, jonka nimi on keisarileikkaus. Keisarileikkaus tehdään yleensä silloin, kun tavallinen synnytys on vaarallinen vauvalle tai äidille. Nykyisin keisarileikkaus tehdään usein myös siksi, että äiti pelkää synnytystä. 
+
+## Isoja tulipaloja Kaliforniassa
+
+![Kuvassa tulimeri taustalla. Etualalla palomiessuihkuttaa vettä liekkeihin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10502254)
+
+Avaa kuvien katselu
+
+Kaliforniassa palaa. Kuva: Peter DaSilva / EPA
+
+USA:ssa Kaliforniassa on isoja metsäpaloja. 
+
+Pohjois-Kaliforniassa Paradisen kaupungissa 9 ihmistä on kuollut, kun koti tai auto on jäänyt tulipalon keskelle. Kaikki Paradisen asukkaat lähtivät tulipaloa pakoon. Tuli levisi nopeasti, koska oli kova tuuli ja maa oli kuivaa. Paradisen kaupungissa on palanut 7 000 taloa. 
+
+Etelä-Kaliforniassa tulipalo leviää Malibun kaupunkiin päin, jossa asuu paljon Hollywood-tähtiä. 
+
+## Juutalaisvihaa Saksassa
+
+![Margot Friedlander](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10496406)
+
+Avaa kuvien katselu
+
+Margot Friedländer. Kuva: Uwe Tautenhahn / Yle
+
+Saksassa 10 prosenttia ihmisistä ei tykkää juutalaisista. Näin kertoo uusi kysely. Saksassa on nykyään myös paljon vihapuhetta ja rikoksia juutalaisia vastaan. 
+
+97-vuotias Margot Friedländer sanoo, että juutalaisten kansanmurha alkoi samalla tavalla 30-luvulla Saksassa. Se alkoi vihapuheella. Friedländer sanoo, että poliitikkojen täytyy estää juutalaisviha. 
+
+Fiedländer on juutalainen. Hän selvisi hengissä, kun Saksassa murhattiin miljoonia juutalaisia 1930- ja 40-luvulla. 
+
+## Tv-sarja 1920-luvun Berliinistä
+
+![kaksi miestä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10501673)
+
+Avaa kuvien katselu
+
+Babylon Berlin on saksalainen tv-sarja. Kuva: Beta Film GmbH
+
+Televisiossa alkaa tänään lauantaina iso ja kallis saksalainen tv-sarja. 
+
+Sarjan nimi on Babylon Berlin. Se kertoo elämästä Berliinin kaupungissa 1920-luvulla. Ensimmäinen maailmansota oli loppunut, ja natsit eivät olleet vielä vallassa. 
+
+Babylon Berlin alkaa TV1:ssä lauantai-iltana kello 22. Sen voi katsoa myös netistä Yle Areenasta.

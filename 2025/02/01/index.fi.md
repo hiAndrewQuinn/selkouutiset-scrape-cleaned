@@ -1,0 +1,72 @@
+# Radio \| Uutisviikko selkosuomeksi \| lauantai 1.2.2025
+
+USA:n lento-onnettomuus
+
+USA:ssa tapahtui keskiviikkona paha lento-onnettomuus.
+
+Onnettomuudessa kuoli 67 ihmistä. Edellinen yhtä paha lento-onnettomuus USA:ssa oli yli 20 vuotta sitten.
+
+Nyt kerromme lisää USA:n lento-onnettomuudesta.
+
+## Lentokone ja helikopteri törmäsivät
+
+![Lentokone ja helikopteri putosivat jokeen. Kuva: Andrew Harnik / Getty Images](https://images.cdn.yle.fi/image/upload/c_crop,h_2946,w_5238,x_0,y_396/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1738228329/39-1414050679b40d4139e5)
+
+Matkustajalentokone ja sotilashelikopteri törmäsivät USA:n pääkaupungissa Washingtonissa.
+
+Onnettomuus tapahtui keskiviikkona illalla USA:n aikaa Ronald Reagan -lentoaseman lähellä.
+
+Lentokone tuli Kansasin osavaltion Wichitan kaupungista.
+
+Lentokoneessa oli 64 ihmistä. Helikopterissa oli 3 ihmistä. Kaikki kuolivat.
+
+Törmäyksen jälkeen lentokone ja helikopteri putosivat Washingtonin Potomac-jokeen.
+
+## Ei suomalaisia kyydissä
+
+![Jevgenia Siskova ja Vadim Naumov kuolivat onnettomuudessa. Kuva: IMAGO/Camera 4/ All Over Press](https://images.cdn.yle.fi/image/upload/c_crop,h_1052,w_1871,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1738242655/39-1414395679b7a3869c69)
+
+USA:n lento-onnettomuudessa lentokoneen kyydissä oli paljon taitoluistelijoita. He tulivat taitoluisteluleiriltä.
+
+Lentokoneessa oli myös kaksi kuuluisaa venäläistä taitoluistelijaa, **Jevgenia Siskova** ja **Vadim Naumov**.
+
+He voittivat taitoluistelun maailmanmestaruuden vuonna 1994. Nykyään he olivat taitoluistelun valmentajia.
+
+Lentokoneessa ei ollut suomalaisia, kertoo Suomen ulkoministeriö.
+
+## Trump syytti
+
+![Donald Trump puhui onnettomuudesta. Kuva: EPA-EFE](https://images.cdn.yle.fi/image/upload/c_crop,h_2248,w_4005,x_0,y_250/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1738259572/39-1414612679bbc64610fa)
+
+USA:n presidentti Donald Trumpilla puhui lento-onnettomuudesta televisiossa.
+
+Hän piti hiljaisen hetken uhrien muistolle.
+
+Trump syytti onnettomuudesta lennonjohtajia.
+
+Trumpin mielestä onnettomuus oli myös USA:n entisten presidenttien **Joe Bidenin** ja **Barack Obaman** syy.
+
+Trump sanoi, että Bidenin ja Obaman aikana töihin otettiin huonoja lennonjohtajia.
+
+## Lentoasema tutkitaan
+
+USA:n lento-onnettomuus tapahtui Ronald Reagan -lentoasemalla.
+
+Se on melkein Washingtonin keskustassa. Siellä on tosi paljon liikennettä.
+
+Edellinen kerta, kun onnettomuus oli lähellä samalla lentokentällä, oli viime keväänä.
+
+Nyt viranomaiset tutkivat, onko lentokentän turvallisuus tarpeeksi hyvä.
+
+## Kertaus
+
+Tällä kertaa uutisviikon aihe oli USA:n lento-onnettomuus. Kerrataan vielä tärkeimmät asiat.
+
+USA:ssa oli keskiviikkona paha lento-onnettomuus.
+
+Lentokone ja helikopteri törmäsivät. 67 ihmistä kuoli.
+
+Viranomaiset tutkivat nyt, mikä oli onnettomuuden syy.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
+

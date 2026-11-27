@@ -1,0 +1,73 @@
+# Torstai 15.9.2016 (radio)
+
+Suomen talous kasvaa, mutta hitaasti. Monet eurooppalaiset eivät luota rokotteisiin. Suomesta viedään nyt Kiinaan kukkia, joita voi syödä. Vanhat ihmiset ovat onnellisia. Revontulet ovat kirkkaita tänä syksynä.
+
+## Heikko talous
+
+![Kahden euron kolikoita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9169849)
+
+Avaa kuvien katselu
+
+Suomen taloustilanne on heikko. Kuva: Jyrki Lyytikkä / Yle
+
+Suomen talous kasvaa, mutta hitaasti. Näin ennustaa valtiovarainministeriö, joka hoitaa valtion talouspolitiikkaa.
+
+Vaikka talous vähän kasvaa, myös Suomen valtionvelka kasvaa. Suomella on velkaa ensi vuoden lopussa jo 111 miljardia euroa.
+
+Suomen taloustilanne pysyy lähivuosina heikkona, valtiovarainministeriö arvioi. Se kuitenkin uskoo, että työttömyys vähenee.
+
+## Tärkeät rokotteet
+
+![rokote](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8849443)
+
+Avaa kuvien katselu
+
+Rokoteilla voidaan estää monia sairauksia. Kuva: Yle
+
+Monet eurooppalaiset eivät luota rokotteisiin. Monet miettivät, ovatko rokotteet turvallisia. Uusi tutkimus kertoo, että ranskalaiset epäilevät rokotteiden turvallisuutta eniten.
+
+Lääkäri Hanna Nohynek sanoo, että rikkaassa Euroopassa ihmiset eivät näe sairauksia. Siksi he miettivät, ovatko rokotteet turvallisia ja kannattaako lapsia rokottaa.
+
+Köyhissä maissa ihmiset näkevät, että lapsia kuolee sairauksiin, jotka voidaan estää rokotteilla. Siksi Aasiassa ja Afrikassa rokotteisiin luotetaan enemmän kuin Euroopassa.
+
+## Maukkaat kukat
+
+![Rautayrtti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9169935)
+
+Avaa kuvien katselu
+
+Rautayrtti on kaunis kukka, joka myös maistuu hyvältä. Kuva: Minna Rosvall / Yle
+
+Suomesta viedään nyt Kiinaan kukkia, joita voi syödä. Ensimmäiset kukat lähtivät Kiinaan noin 2 viikkoa sitten. Ne menivät hongkongilaisille kokeille.
+
+Kokit olivat tyytyväisiä. Kukat selvisivät hyvin pitkästä lentomatkasta. Ne olivat kauniita ja maistuivat hyviltä.
+
+Suomalainen Kotipellon puutarha kasvattaa puhtaita ja hyvänmakuisia kukkia. Tavallisia kukkakaupan kukkia ei voi syödä, koska niissä on erilaisia kemikaaleja.
+
+## Onnelliset vanhukset
+
+![Vanhuksia nauramassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9147386)
+
+Avaa kuvien katselu
+
+Ikä tuo onnellisuutta. Kuva: AOP
+
+Vanhat ihmiset ovat onnellisia, kertoo amerikkalaistutkimus. Ihminen on sitä onnellisempi, mitä vanhempi hän on.
+
+Alle 40-vuotiaat aikuiset tuntevat eniten stressiä ja masennusta, ja yli 90-vuotiaat tuntevat eniten onnea.
+
+Tutkijat sanovat, että ikä tuo viisautta ja onnea. Se voi johtua aivojen fysiologiasta. Vanhusten aivot eivät ehkä reagoi negatiivisiin asioihin niin paljon kuin nuorten aivot.
+
+## Kirkkaat revontulet
+
+![Revontulet leimuavat Olkkajärvellä.Revontulet leimuavat Rovaniemen Olkkajärvellä syksyllä 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9166792)
+
+Avaa kuvien katselu
+
+Pimeänä iltana revontulet näkyvät hyvin. Kuva: Vesa Vaarama / Yle
+
+Revontulet ovat kirkkaita tänä syksynä. Revontulet syntyvät, kun auringosta tulee pieniä hiukkasia kohti maata.
+
+Revontulia näkyy nyt Pohjois-Suomessa melkein joka yö, jos taivaalla ei ole pilviä. Revontulet näkyvät tosi hyvin syksyllä, kun muuten on pimeää ja maa on yöllä musta.
+
+Lappiin tulee myös paljon turisteja katsomaan revontulia. Turisteja tulee ympäri maailmaa, Amerikasta ja Australiasta asti.

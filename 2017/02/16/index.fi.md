@@ -1,0 +1,7 @@
+# Torstai 16.2.2017 (tv)
+
+Maahanmuuttajat ovat tällä viikolla lukeneet kirjoja ääneen vanhuksille ja kehitysvammaisille. Abit juhlivat koulun loppumista. Monet perheet lähtevät matkalle, kun kouluissa alkaa talviloma. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Maahanmuuttajat ovat tällä viikolla lukeneet kirjoja ääneen vanhuksille ja kehitysvammaisille. Abit juhlivat koulun loppumista. Monet perheet lähtevät matkalle, kun kouluissa alkaa talviloma. Säätiedot.

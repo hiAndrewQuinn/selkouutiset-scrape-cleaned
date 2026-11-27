@@ -1,0 +1,67 @@
+# Lauantai 16.4.2016 (radio)
+
+Maanjäristykset ovat jatkuneet Japanissa. Paavi Franciscus on vieraillut turvapaikanhakijoiden luona Lesboksen saarella Kreikassa. Kissa on hyvä apu muistisairaiden hoidossa. Mene lääkäriin, jos pyörryt saunassa. Pohjois-Suomessa voi vielä hiihtää.
+
+## Japanissa oli lisää maanjäristyksiä
+
+Ainakin 41 ihmistä on saanut surmansa Etelä-Japanissa Mashikin kaupungissa sattuneissa kahdessa maanjäristyksessä. Kuva: Reuters
+
+Maanjäristykset ovat jatkuneet Japanissa. Myöhään perjantaina maa järisi uudelleen alueella, jossa oli maanjäristys torstaina. Alue on Etelä-Japanissa, Kyushun saarella.
+
+Noin 40 ihmistä on kuollut maanjäristyksissä, ja yli 1000 ihmistä on loukkaantunut. Kuolleita ja loukkaantuneita voi löytyä vielä lisää.
+
+Maanjäristykset ovat tehneet suuria vahinkoja. Taloja on sortunut, ja monet tiet ovat poikki. Junaliikenne ja lentoliikenne eivät toimi normaalisti.
+
+## Paavi vieraili turvapaikanhakijoiden luona
+
+Paavi vieraili sunnuntaina Morian pakolaisleirillä Lesboksen saarella
+
+Katolisen kirkon johtaja, paavi Franciscus on vieraillut Lesboksen saarella Kreikassa. Lesboksen saarella on paljon turvapaikanhakijoita.
+
+Paavi kävi Morian pakolaisleirissä. Hän kätteli monia turvapaikanhakijoita. Leirissä asuu 3000 ihmistä. Leirin olot ovat huonot.
+
+Yhteensä 12 syyrialaista turvapaikanhakijaa pääsi paavin mukana Vatikaaniin. He ovat 3 muslimiperheestä.
+
+Vatikaani on paavin oma valtio Roomassa, Italiassa. Vatikaani on tosi pieni valtio.
+
+## Kissat auttavat hoitoalalla
+
+![Vanhus silittää kissaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8815639)
+
+Avaa kuvien katselu
+
+Hanna-kissa tuo iloa Aune Räsäselle Mäntyrinteen palvelukeskuksessa. Kuva: Ville Välimäki / Yle
+
+Kissa on hyvä apu muistisairaiden hoidossa. Muistisairaudet ovat tavallisia vanhuksilla.
+
+Hanna-kissa tekee työtä Humppilan Mäntyrinteen palvelukeskuksessa. Hanna-kissa lohduttaa ja rauhoittaa palvelukeskuksen vanhuksia.
+
+Lähihoitaja Sari Ahlman sanoo, että myös muistisairaat vanhukset muistavat kissan lapsuudesta. Kissa on tuttu ja turvallinen.
+
+Kissa on hyvää seuraa myös vanhuksille, joille puhuminen ihmisten kanssa on jo vaikeaa.
+
+## Sairas ihminen voi pyörtyä saunassa
+
+![Pihasauna sisältä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8760266)
+
+Avaa kuvien katselu
+
+Sauna on suomalaisille rakas paikka. Kuva: Esa Huuhko / Yle
+
+Suomalaiset tykkäävät käydä saunassa viikonloppuna. Monet viihtyvät saunassa kauan.
+
+Mutta mitä pitää tehdä, jos pyörtyy saunassa? Eija Vaula Satakunnan keskussairaalasta sanoo, että silloin täytyy käydä lääkärillä. Terveys on hyvä tarkastaa, vaikka ihminen pyörtyy vain lyhyeksi aikaa.
+
+Pyörtymisen syy voi olla esimerkiksi matala verenpaine. Vaula sanoo, että ihmisen ei kannata olla kauan kuumassa saunassa, jos hänellä on matala verenpaine. Myös sydänsairaus voi olla syy saunassa pyörtymiseen.
+
+Tärkeää on myös muistaa, että saunapäivänä syö ja juo tarpeeksi. Alkoholista on haittaa, koska se voi laskea verenpainetta.
+
+## Lapissa on vielä paljon lunta
+
+![Kasvapohjasukset](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8721096)
+
+Avaa kuvien katselu
+
+Talvi jatkuu vielä Lapissa. Kuva: Jukka Töyli / Yle
+
+Pohjois-Suomessa pääsee vielä hiihtämään. Lapissa lunta on vielä paljon. Lunta on jopa 90 senttimetriä. Etelä-Suomessa lunta ei enää ole.

@@ -1,0 +1,101 @@
+Lakot
+
+# Keskiviikko 18.4.2018 (radio)
+
+Rakennusalalla alkaa torstaina lakko. Turkissa järjestetään vaalit kesäkuussa. Helsingin kotihoidon asiakas kuoli kotona, mutta kukaan ei löytänyt häntä moneen viikkoon. Seri-tukikeskus auttaa raiskauksen uhreja.
+
+![Rakenteilla olevat kerrostalot.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10143151)
+
+Avaa kuvien katselu
+
+Kuva: Kari Kosonen / Yle
+
+- 
+
+  
+
+  Pertti Seppä
+
+  
+
+  
+
+18.4.2018 20:30•Päivitetty 18.4.2018 20:48
+
+Rakennusalalla alkaa torstaina lakko. Turkissa järjestetään vaalit kesäkuussa. Helsingin kotihoidon asiakas kuoli kotona, mutta kukaan ei löytänyt häntä moneen viikkoon. Seri-tukikeskus auttaa raiskauksen uhreja.
+
+## Rakennusalan lakko
+
+![Rakenteilla olevat kerrostalot.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10143151)
+
+Avaa kuvien katselu
+
+Lakko voi hidastaa rakennustöitä. Kuva: Kari Kosonen / Yle
+
+Rakennusalalla alkaa torstaina sarja lakkoja. Lakot kestävät 2 päivää, ja lakkoja on 4 viikon aikana.
+
+Lakot pysäyttävät työt 7 rakennusteollisuuden firmassa. Työntekijät aikovat lopettaa työt esimerkiksi Ruduksessa, Betonimestareilla ja Parmassa.
+
+Lakot vaikuttavat betonin ja betonielementtien valmistukseen. Siksi työt rakennustyömailla voivat myöhästyä.
+
+Rakennusalalla on riitaa palkoista. Työnantajien ja työntekijöiden järjestöt kuitenkin jatkavat neuvotteluja.
+
+## Turkin vaalit
+
+![Presidentti Recep Tayyip Erdoğan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10166194)
+
+Avaa kuvien katselu
+
+Turkin presidentti Recep Tayyip Erdoğan. Kuva: Turkin presidentin kanslia / EPA
+
+Turkissa järjestetään vaalit kesäkuussa. Turkkilaiset valitsevat samana päivänä parlamentin ja presidentin. Vaalipäivä on kesäkuun 24. päivä.
+
+Presidentti Recep Tayyip Erdoğan ilmoitti asiasta keskiviikkona.
+
+Vaalien jälkeen presidentin valta kasvaa. Turkissa oli viime vuonna kansanäänestys presidentin vallasta. Äänestyksessä turkkilaiset halusivat presidentille enemmän valtaa. Muutos tulee voimaan sitten, kun Turkissa on järjestetty vaalit.
+
+## Naisen kuolema
+
+![Vanha nainen pyörätuolissa lähellä sänkyä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9907936)
+
+Avaa kuvien katselu
+
+Monet vanhukset saavat hoitoa kotona. Kuva: Pixabay
+
+Poliisi tutkii Helsingissä surullista tapausta. Todennäköisesti vanha nainen kuoli kotona, mutta kukaan ei löytänyt häntä moneen viikkoon.
+
+Nainen oli kaupungin kotihoidon asiakas. Lopulta kotihoidon työntekijä meni naisen kotiin, koska kotihoito ei saanut naiseen yhteyttä.
+
+Kaupungin kotihoito tutkii nyt, miksi kukaan ei käynyt naisen luona pitkään aikaan. Myös poliisi tutkii asiaa.
+
+## Seri-tukikeskus
+
+![Seri-tukikeskuksen ovi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10165350)
+
+Avaa kuvien katselu
+
+Seri-tukikeskus auttaa raiskauksen uhreja. Kuva: Yle
+
+Helsingin Naistenklinikalla toimii Seri-tukikeskus. Se auttaa seksuaalirikosten uhreja.
+
+Tukikeskuksessa raiskauksen uhri saa apua lääkäriltä, psykologilta ja sosiaalityöntekijältä. Palvelu on ilmaista.
+
+Seri-tukikeskus on palvellut Helsingin seudun asukkaita 10 kuukautta. Asiakkaita on ollut noin 280.
+
+Toukokuusta alkaen Seri-tukikeskus palvelee koko Uudenmaan aluetta.
+
+## Esittelyssä kiinteistönhoitoala
+
+![Mies korjaa vesihanaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10166409)
+
+Avaa kuvien katselu
+
+Yakov Kuzi opiskelee kiinteistönhoitoalaa. Kuva: Yle
+
+Selkouutisten nettisivulla jatkuu videosarja, jonka selkouutiset on tehnyt yhdessä Luksian ammatillisen koulutuksen opiskelijoiden kanssa.
+
+Sarja esittelee eri koulutusaloja. Nyt on julkaistu video, joka kertoo kiinteistönhoitoalasta.
+
+Videon voi katsoa selkouutisten Facebook-sivulla ja nettisivulla osoitteessa yle.fi/selkouutiset.
+
+**Kiinteistönhoitoala**

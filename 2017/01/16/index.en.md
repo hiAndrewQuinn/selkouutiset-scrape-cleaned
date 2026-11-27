@@ -1,0 +1,69 @@
+# Monday 16.1.2017 (radio)
+
+Forced returns. A sentence for Facebook posts. A cargo plane accident. The polar night ended.
+
+## Forced return of asylum seekers is not acceptable to Iraq
+
+![An asylum seeker by a window.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9398980)
+
+Open image viewer
+
+Finland and Iraq are discussing forced returns. Iraq now says that it will not agree to the forced return of those who get a negative asylum decision.  Photo: Vesa Moilanen / Lehtikuva
+
+Iraq does not agree to asylum seekers being forcibly returned to Iraq. Iraq's Minister of Migration Jasim Mohammed Al-Jaf writes about this on the ministry's website. In Finland, Helsingin Sanomat reported it first.
+
+Finland has negotiated with Iraq about forced returns if Finland gives a negative asylum decision. According to the minister, Finland's plan breaks human rights and international law. The minister writes that Iraq will not agree to a deal on forced returns.
+
+## Finland brings a return agreement to the negotiations
+
+![Päivi Nerg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8632995)
+
+Open image viewer
+
+Päivi Nerg.  Photo: Yle
+
+Iraq's opinion on forced returns is not a surprise to Finnish officials. Päivi Nerg, the permanent secretary of the Ministry of the Interior, says that Finland already knew in December what Iraqi officials think about forced returns.
+
+Finland will negotiate with Iraq in February. Then they will negotiate a big agreement, and the return agreement is part of it.
+
+Nerg says that forced return is difficult for everyone. However, Finland has made an agreement on it with, for example, Afghanistan.
+
+About 8000 Iraqi asylum seekers are getting or have got a negative asylum decision.
+
+## Tynkkynen's Facebook writing led to a sentence
+
+![Sebastian Tynkkynen at Oulu District Court on 11 January 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9406723)
+
+Open image viewer
+
+Tynkkynen was sentenced in Oulu.  Photo: Eeva Riihelä / Lehtikuva
+
+Sebastian Tynkkynen, a Finns Party politician from Oulu, has been sentenced for Facebook posts. The court ordered Tynkkynen to pay a fine of 300 euros.
+
+On Facebook, Tynkkynen wrote, for example, that Islam must be removed from Finland. He also wrote that Muslims must be removed from the country with large transfers.  According to the court, the posts were insulting. Tynkkynen was previously the chairman of the Finns Party Youth.
+
+## A cargo plane crashed in Kyrgyzstan
+
+![Rescue workers examine the accident site in Bishkek.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9405788)
+
+Open image viewer
+
+The cargo plane fell onto houses.  Photo: Vyacheslav Oseledko / AFP
+
+There has been a bad plane accident in Kyrgyzstan in Central Asia.  A big cargo plane of the airline Turkish Airlines fell onto a residential area as it was approaching the airport. At least 32 people have died in the accident.  Many of the dead are residents of the area.
+
+## The polar night disappeared from Utsjoki
+
+![Beazet 17.1.2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8603267)
+
+Open image viewer
+
+The end of the polar night tells of spring, which is getting closer.  Photo: Vesa Toppari / Yle Sápmi
+
+The polar night has ended in Finland's northernmost municipality, Utsjoki. The polar night is the time when the sun cannot be seen in the sky. In Utsjoki, the polar night has lasted almost two months. But today the sun rose into the sky at about 12 o'clock. In Utsjoki it was light for just under an hour.  The end of the polar night is one sign that spring is coming.
+
+![Day length map.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9405648)
+
+Open image viewer
+
+Photo: Yle

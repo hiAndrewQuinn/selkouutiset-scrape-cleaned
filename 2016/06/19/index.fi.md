@@ -1,0 +1,65 @@
+# Sunnuntai 19.6.2016 (radio)
+
+Monta lasta kuoli onnettomuudessa Venäjällä. Homoseksuaaliset turvapaikanhakijat pelkäävät syrjintää vastaanottokeskuksissa. Tampereen Lenin-museo on avattu remontin jälkeen. Tamperelainen joukkue Koovee on voittanut Jukolan viestin.
+
+## Säämäjärven onnettomuus Venäjällä
+
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8969516)
+
+Avaa kuvien katselu
+
+Onnettomuuspaikka ei ole kaukana Suomesta. Kuva: Yle Uutisgrafiikka 
+
+Venäjällä on tapahtunut paha veneonnettomuus. Onnettomuudessa kuoli yli 10 ihmistä. Suurin osa heistä oli lapsia.
+
+Onnettomuus tapahtui Venäjän Karjalassa, lähellä Suomea.
+
+Noin 50 ihmistä oli veneretkellä Säämäjärvellä, kun he joutuivat keskelle myrskyä. Myrskyn takia monet hukkuivat järveen. Suurin osa heistä oli moskovalaisia lapsia. Lasten ikä oli 12 ja 15 vuoden välillä. He olivat Säämäjärvellä kesäleirillä.
+
+## Homoseksuaaliset turvapaikanhakijat
+
+![Keskustelijat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8940968)
+
+Avaa kuvien katselu
+
+Aaro Horsma vetää tukiryhmää homoseksuaalisille turvapaikanhakijoille Helsingissä.  Kuva: Jyrki Lyytikkä/Yle
+
+Suomen vastaanottokeskuksissa asuu turvapaikanhakijoita, jotka eivät halua kertoa omasta homoseksuaalisuudesta. He pelkäävät, että muut turvapaikanhakijat eivät hyväksy heitä.
+
+Vastaanottokeskusten on vaikea auttaa homoseksuaalisia turvapaikanhakijoita, jos heistä ei ole tietoa. Jos tietoa on, homoseksuaaleja myös autetaan. Homoseksuaalinen turvapaikanhakija voi esimerkiksi saada oman huoneen, jossa hän voi asua rauhassa.
+
+Vastaanottokeskukset myös kertovat asukkaille, että homoseksuaalien syrjintä on Suomessa laitonta. Suomessa jokainen saa rakastaa, ketä haluaa.
+
+Tiedot ovat Ylen kyselystä vastaanottokeskuksille.
+
+**Lue Alin ja Risan tarinat Yle Uutisten sivuilta**
+
+## Tampereen Lenin-museo
+
+![Leninin patsas ja julisteita Lenin museossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8960312)
+
+Avaa kuvien katselu
+
+Leninin patsas Tampereen Lenin-museossa. Kuva: Marko Melto / Yle
+
+Sitten Tampereelle. Tampereen Lenin-museo on taas auki remontin jälkeen. 70-vuotias museo on korjattu hienoon kuntoon.
+
+Museossa voi tutustua Leniniin. Lenin perusti Neuvostoliiton, sen jälkeen kun vanha Venäjän valtio kaatui vuonna 1917.
+
+Tampereen Lenin-museo kertoo myös Neuvostoliiton huonoista puolista, esimerkiksi vankileireistä. Neuvostoliitossa oli paljon poliittisia vankeja Leninin seuraajan Stalinin aikana.
+
+Lenin-museon johtaja Kalle Kallio kertoo, että Lenin ja Stalin tapasivat toisensa ensimmäistä kertaa vuonna 1905 Tampereella. Siksi Tampereella on ainoa Lenin-museo, joka on Venäjän ulkopuolella.
+
+## Jukolan viesti
+
+![Lappee-Jukola Jukolan viesti alku](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8969065)
+
+Avaa kuvien katselu
+
+Näin alkoi Jukolan viesti. Suunnistajilla on lamppu kypärässä, koska kilpailu on yöllä. Kuva: Tomi Hänninen
+
+Lopuksi urheilua. Tamperelainen joukkue Koovee on voittanut Jukolan viestin. Jukolan viesti on iso suunnistuskilpailu.
+
+Jukolan viesti oli tänä vuonna Lappeenrannassa. Lappeenrannan metsissä juoksi tuhansia suunnistajia, jotka etsivät rasteja. Rastit on merkitty suunnistajien karttoihin, mutta niiden löytäminen metsästä ei ole Jukolan viestissä helppoa, koska kilpailu on yöllä.
+
+Jukolan viestissä kilpailevat miesten joukkueet. Naisten Venlojen viesti oli jo lauantaina päivällä.

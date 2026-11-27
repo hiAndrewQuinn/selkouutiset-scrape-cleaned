@@ -1,0 +1,81 @@
+# Sunnuntai 9.4.2023 (radio)
+
+Pääsiäispäivä. Pullovesi. Iranin poliisi. Mikael Agricola. Sää.
+
+## Pääsiäispäivä
+
+![Pääsiäinen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10148167)
+
+Avaa kuvien katselu
+
+Kristityille pääsiäismuna on Kristuksen ylösnousemuksen symboli. Kuva: Juha-Petri Koponen / Yle
+
+Sunnuntaina on vietetty pääsiäispäivää. 
+
+Pääsiäinen on kristittyjen tärkein juhla. Juhlan aihe on Kristuksen ylösnousemus.
+
+Pääsiäisen vietto jatkuu maanantaina. Silloin on toinen pääsiäispäivä eli pääsiäismaanantai. Esimerkiksi virastot ja pankit ovat kiinni myös pääsiäismaanantaina.
+
+## Pullovesi
+
+![nainen juo vesipullosta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10933402)
+
+Avaa kuvien katselu
+
+Kuva: Pavel Rodimov / AOP
+
+Pulloveden myynti kasvaa maailmalla.
+
+Arvioidaan, että vuonna 2030 pullovettä myydään maailmalla 2 kertaa niin paljon kuin nyt.
+
+Pullovesi tuo myös ongelmia. Se esimerkiksi kasvattaa jätemäärää, koska pullonpalautusjärjestelmää ei ole kaikissa maissa.
+
+Suomalaisten ei ole pakko ostaa pullovettä, koska suomalainen hanavesi on puhdasta ja hyvää.
+
+Maailmassa on kuitenkin noin 2 miljardia ihmistä, joilla ei ole hyvää hanavettä. Näin arvioi YK eli Yhdistyneet kansakunnat.
+
+**Suomalainen juttu: Vesi**
+
+## Iranin poliisi
+
+![Naisia kadulla hiukset peitossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690356)
+
+Avaa kuvien katselu
+
+Iranissa hijab on pakollinen naisille. Kuva: Fatemeh Bahrami / AOP
+
+Iranin poliisi alkaa valvoa naisten pukeutumista entistä tarkemmin. Iranissa naisten on pakko käyttää hijabia eli päähuivia julkisilla paikoilla.
+
+Iranin poliisi aikoo käyttää älyteknologiaa, kun se valvoo naisia. Julkisille paikoille tulee kameroita. Kameroiden avulla poliisi esimerkiksi huomaa, jos auton kyydissä on nainen ilman hijabia.
+
+Monet iranilaiset naiset rikkovat pukeutumissääntöjä. Viime vuonna Iranissa oli isoja mielenosoituksia, sen jälkeen kun Mahsa Amini kuoli poliisin käsissä. Poliisi otti Aminin kiinni, koska hänellä ei ollut hijab oikein päässä.
+
+## Mikael Agricola
+
+![Piirroskuva Mikael Agricolasta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690357)
+
+Avaa kuvien katselu
+
+Mikael Agricola eli 1500-luvulla. Kuva: Otava
+
+Sunnuntaina eli 9. huhtikuuta on vietetty Mikael Agricolan päivää. Päivä on myös suomen kielen päivä.
+
+Mikael Agricola eli noin 500 vuotta sitten. Sanotaan, että hän on suomen kirjakielen isä.
+
+Agricolan Abc-kirja julkaistiin vuonna 1543. Se oli ensimmäinen suomenkielinen kirja.
+
+Abc-kirjassa opetetaan esimerkiksi aakkoset ja annetaan ohjeita suomen kielen kirjoittamiseen. Lisäksi kirjassa opetetaan kristinuskon perusteet.
+
+Nykyään Mikael Agricolan päivä on liputuspäivä.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690360)
+
+Avaa kuvien katselu
+
+Aurinkoinen sää jatkuu pääsiäismaanantaina. Lämpötila on maanantaina noin 10 astetta koko maassa.
+
+Tiistaina etelään tulee lämmintä ja kosteaa ilmaa. Taivaalla voi olla pilviä, mutta lämpötila voi nousta jopa 14 asteeseen.
+
+Pohjoisessa on tiistaina vähän kylmempää. Lämpötila on alle 10 astetta, mutta tiistai on pohjoisessa aurinkoinen.

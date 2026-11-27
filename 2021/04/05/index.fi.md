@@ -1,0 +1,87 @@
+# Maanantai 5.4.2021 (radio)
+
+Koronarokotukset. Auto-onnettomuus. Maanjäristys. Sää.
+
+## Koronarokotteet
+
+![Sairaanhoitaja antamassa koronarokotetta.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_600/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-77159160215f7b805b1/1612802577)
+
+Avaa kuvien katselu
+
+Sairaanhoitaja antamassa koronarokotetta. Kuva: Petteri Bülow / Yle
+
+Yli 970 000 ihmistä on saanut Suomessa koronarokotteen 1. annoksen. Myöhemmin tällä viikolla rokote on annettu jo miljoonalle ihmiselle.
+
+THL kertoo, että Suomessa rokotteen saa yhteensä 4,5 miljoonaa ihmistä. Koronarokotus annetaan yli 16-vuotiaille.
+
+Suomeen tulee nyt ehkä noin 200 000 rokotetta viikossa.
+
+## Korona Intiassa
+
+![Koronatestausta Intian pääkaupungissa Delhissä. Alueen viranomaiset kehottavat kaupunkilaisia käyttämään kasvomaskeja, pitämään turvavälejä ja välttämään tarpeetonta matkustamista nousseiden tartuntalukujen takia. ](https://img.img-cdn.yle.fi/crop_extract,w_5248,h_2952,x_0,y_254/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-788955605de3e872fdd/1616766068)
+
+Avaa kuvien katselu
+
+Koronatestausta Intian pääkaupungissa Delhissä. Alueen viranomaiset kehottavat kaupunkilaisia käyttämään kasvomaskeja, pitämään turvavälejä ja välttämään tarpeetonta matkustamista nousseiden tartuntalukujen takia.  Kuva: EPA
+
+Intiassa on paljon koronatartuntoja. Intiassa on yli 100 000 koronatartuntaa 1 päivän aikana. Vain USA:ssa ja Brasiliassa on ollut näin paljon koronatartuntoja päivässä.
+
+Intiassa on ollut yhteensä lähes 13 miljoonaa koronatartuntaa. Intiassa asuu 1,3 miljardia ihmistä.
+
+## Indonesian maanvyöryt
+
+![Mudan peittämää naapurustoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11870193)
+
+Avaa kuvien katselu
+
+Syöksytulvan aiheuttamaa tuhoa Floresin saaren itäosissa. Kuva: BNPB / AOP
+
+Vesi tulvii Indonesiassa ja Itä-Timorissa.
+
+Ainakin 90 ihmistä on kuollut ja paljon ihmisiä on kateissa. Vesi ja maa ovat peittäneet maanteitä ja ihmisten koteja. Veden alle on jäänyt kokonaisia kyliä.
+
+Indonesiassa sataa paljon tähän aikaan vuodesta. Sade aiheuttaa paljon tulvia ja maanvyöryjä.
+
+## Auto-onnettomuus Suomussalmella
+
+![Kolariauto ojassa noin kymmenen kilometriä Suomussalmen pohjoispuolella, välillä Pesiönlahti - Alajärvi, jossa tapahtui kahden auton nokkakolari pääsiäismaanantaina 5. huhtikuuta 2021.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11870484)
+
+Avaa kuvien katselu
+
+Kolariauto ojassa noin kymmenen kilometriä Suomussalmen pohjoispuolella, välillä Pesiönlahti - Alajärvi, jossa tapahtui kahden auton nokkakolari pääsiäismaanantaina 5. huhtikuuta 2021. Kuva: Vesa Moilanen / Lehtikuva
+
+Kainuussa on ollut paha autokolari. Kolarissa loukkaantui 8 ihmistä. Ainakin 3 ihmistä loukkaantui vakavasti.
+
+Onnettomuus sattui Suomussalmella. Kolarissa oli 2 autoa. Molemmissa autoissa oli 4 ihmistä.
+
+Onnettomuus oli nokkakolari, eli eri suuntiin ajaneet autot törmäsivät.
+
+Ajokeli oli huono.
+
+## Etelä-Pohjanmaan maanjäristys
+
+![Pyöröpaaleja pellolla koivikon takana.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_337/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6077885dbfd47cd2c89/1572853491)
+
+Avaa kuvien katselu
+
+Pamahdukset kuuluivat ympäri Etelä-Pohjanmaata. Kuvituskuva Lappajärveltä. Kuva: Anne Elhaimer / Yle
+
+Etelä-Pohjanmaalla oli sunnuntaina pieni maanjäristys.
+
+Iltalehti kertoo, että Alajärvellä, Lappajärvellä, Soinissa ja Vimpelissä kuului illalla kovia ääniä. Nyt on selvinnyt, että maanjäristys aiheutti äänet.
+
+## Sää
+
+![Koiranulkoiluttaja keväisessä Kaivopuistossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11869403)
+
+Avaa kuvien katselu
+
+Koiranulkoiluttaja keväisessä Kaivopuistossa. Kuva: Jussi Nukari / Lehtikuva
+
+Sää on tällä viikolla melko sateinen.
+
+Tiistaina ja keskiviikkona sataa monin paikoin vähän vettä, räntää tai lunta. Etelä-Suomessakin sataa ehkä räntää.
+
+Loppuviikon aikana sataa enemmän kuin viikon alussa.
+
+Koko maassa on yöllä pakkasta ja tie voi olla liukas. Siksi autoon ei kannata vielä vaihtaa kesärenkaita.

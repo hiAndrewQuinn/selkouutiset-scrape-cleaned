@@ -1,0 +1,89 @@
+# Viikon uutinen selkosuomeksi | lauantai 2.5.2026
+
+Kotihoidon tuen ehtojen tiukennus
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Viikon aihe
+
+Aiheena on tällä kertaa kotihoidon tuen ehtojen tiukennus.
+
+Hallitus tekee uusia sääntöjä siihen, kuka voi saada tukea lapsen hoitamiseen kotona.
+
+Suunnitelma on herättänyt keskustelua siitä, miten perheitä kohdellaan Suomessa.
+
+Kerromme nyt lisää kotihoidon tuesta ja hallituksen uusista suunnitelmista.
+
+![2-vuotias lapsi leikkii hiekkalaatikolla.](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_284/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6835685ed4f3f4cc125/1666122508)
+
+Avaa kuvien katselu
+
+Perhe voi saada kotihoidon tukea jos perhe hoitaa lasta kotona. Silloin lapsi ei käytä kunnan päivähoitopaikkaa. Kuva: Antti Laakso / Yle
+
+## Kotihoidon tuki
+
+Kotihoidon tuki on rahaa, jota Kela maksaa lapsen vanhemmille.
+
+Perhe voi saada kotihoidon tukea, jos alle 3-vuotiasta lasta hoidetaan kotona.
+
+Tukea voidaan maksaa perheelle, joka ei käytä kunnan päivähoitopaikkaa.
+
+Tällä hetkellä kotihoidontuki on vähän alle 380 euroa kuukaudessa.
+
+Tuen saajien määrä vähenee koko ajan, koska lapsia syntyy vähemmän kuin ennen.
+
+Viime vuonna tuen määrä väheni 12 prosenttia eli noin 10 000 perhettä.
+
+## Kolmen vuoden sääntö
+
+Nyt hallitus haluaa tiukentaa kotihoidon tuen ehtoja.
+
+Hallitus aikoo tiukentaa ehtoja niin, että molempien vanhempien pitää asua Suomessa tai Euroopassa kolme vuotta ennen kuin he voivat saada tukea.
+
+Tarkoitus on, että maahanmuuttajat oppivat kieltä ja löytävät töitä nopeammin, kun vanhemmat menevät töihin nopeasti.
+
+Tarkoitus on myös, että lapset oppivat nopeasti kieltä, kun he ovat päiväkodissa muiden lasten kanssa.
+
+Asiantuntijat varoittavat, että muutos voi tulla kalliiksi valtiolle.
+
+Jos kotihoito loppuu monelta perheeltä, päiväkoteihin tarvitaan nopeasti lisää paikkoja. Päivähoito maksaa kunnalle enemmän kuin kotihoidon tuki.
+
+![Kuvassa on ryhmä lapsia leikkimässä huoneessa, jossa on värikkäitä kuvia seinällä ja lattialla galaksikuviollinen matto.](https://img.img-cdn.yle.fi/crop_extract,w_4969,h_2795,x_1,y_369/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-156062569283f768cb09/1764245904)
+
+Avaa kuvien katselu
+
+Lapsia päiväkoti Säteessä Helsingin Kontulassa. (Tämän yksityisen päiväkodin on perustanut Rahmo Hassan, joka ohjaa lapsia kuvassa.) Kuva: Jussi Koivunoro / Yle
+
+## Tiukentamisen ongelmat
+
+Maahanmuuttajaperheiden järjestö Familia ry arvostelee hallituksen suunnitelmaa.
+
+Familia auttaa perheitä, joissa toinen vanhempi on kotoisin ulkomailta.
+
+Järjestö sanoo, että uusi sääntö on huono myös Suomen kansalaisille.
+
+Jos suomalainen perustaa perheen sellaisen ihmisen kanssa, joka tulee Euroopan ulkopuolelta, perhe voi jäädä ilman tukea.
+
+Järjestö sanoo, että on pelottavaa, jos valtio kieltää tuen sen takia, kenen kanssa ihminen asuu.
+
+Familia sanoo, että pelkkä tuen poistaminen ei auta ihmisiä löytämään töitä, jos työpaikkoja ei ole tarjolla.
+
+![Kaksi lasta kuvattuna ylhäältäpäin täyttämässä tehtäviä päiväkodissa. ](https://img.img-cdn.yle.fi/crop_extract,w_5467,h_3075,x_4,y_572/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-932509623c3308c8d4d/1648116522)
+
+Avaa kuvien katselu
+
+Hallitus uskoo, että maahanmuuttajien lapset oppivat nopeammin kieltä, kun he ovat päiväkodissa muiden lasten kanssa. Kuva: Sakari Piippo / Yle
+
+## Kertaus
+
+Viikon uutisen aihe oli kotihoidon tuen muutos.
+
+Hallitus aikoo tiukentaa kotihoidon tukea.
+
+Tarkoitus on, että tukea saa jatkossa vain, jos molemmat vanhemmat ovat asuneet Suomessa kolme vuotta.
+
+Järjestö Familia ry sanoo, että uusi sääntö asettaa perheet eriarvoiseen asemaan.
+
+Tämä oli Viikon uutinen selkosuomeksi. Tavataan taas, kuulemiin!

@@ -1,0 +1,11 @@
+# Tiistai 27.2.2018 (tv)
+
+Alaikäiset turvapaikanhakijat ovat saaneet hyvin kuntapaikkoja. Verkostoyliopisto kouluttaa diplomi-insinöörejä. Kouluruoka voi olla joskus älypuhelimen sovelluksessa. Ranska kiristää maahanmuuttopolitiikkaa. Sää. Valitettavasti lähetyksessä oli ongelmia tekstityksen kanssa!
+
+Yle Uutiset selkosuomeksi
+
+Alaikäiset turvapaikanhakijat ovat saaneet hyvin kuntapaikkoja. Verkostoyliopisto kouluttaa diplomi-insinöörejä. Kouluruoka voi olla joskus älypuhelimen sovelluksessa. Ranska kiristää maahanmuuttopolitiikkaa. Sää.
+
+Valitettavasti lähetyksessä oli ongelmia tekstityksen kanssa!
+
+Keskiviikkona ei ole televisiossa selkouutisia, koska tv näyttää tärkeää keskustelua eduskunnasta.

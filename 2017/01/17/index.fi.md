@@ -1,0 +1,83 @@
+# Tiistai 17.1.2017 (radio)
+
+Turvapaikkaratkaisut. Brexit. Sarjahukuttaja. Yökerhoampuja. Amsterdamin sähkökatko. Terveystiedon keräys.
+
+## Turvapaikkaratkaisut eivät muutu
+
+![Maahanmuuttoviraston sisäänkäynti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9097101)
+
+Avaa kuvien katselu
+
+Maahanmuuttovirasto ei ala tehdä turvapaikkapäätöksiä uudella tavalla.  Kuva: Petteri Sopanen / Yle
+
+Turvapaikka-asioiden ratkaisemiseen ei tule Suomessa muutoksia. Maahanmuuttovirasto on tutkinut, täytyykö turvapaikkaratkaisut tehdä uudella tavalla. Virasto tutki Afganistanin, Irakin ja Somalian turvallisuuden.
+
+Viraston mielestä turvallisuus ei ole muuttunut paljon. Virasto sanoo nyt, että turvapaikkaratkaisuissa ei tarvitse tehdä muutoksia. Jotkut muutokset esimerkiksi Irakin turvallisuudessa otetaan jo huomioon.
+
+## Britannia aikoo jättää EU:n vapaan kaupan
+
+![Britannian pääministeri Theresa May](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9408741)
+
+Avaa kuvien katselu
+
+Britannian pääministeri Theresa May on kertonut, miten Britannia aikoo erota EU:sta.  Kuva: FACUNDO ARRIZABALAGA / EPA
+
+Britannia eroaa EU:n sisämarkkinoilta. Sisämarkkinat tarkoittaa, että EU-maat voivat käydä kauppaa vapaasti toisten EU-maiden kanssa.
+
+Britannian pääministeri Theresa May kertoi asiasta, kun hän puhui Britannian EU-erosta. May haluaa kuitenkin pitää hyvät kauppasuhteet EU:n kanssa. 
+
+## Suomessa tuomittiin sarjahukuttaja
+
+![Pekka Seppänen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9408702)
+
+Avaa kuvien katselu
+
+Poliisi on etsintäkuuluttanut sarjahukuttajan. Jos näet tämän miehen, soita hätäkeskukseen.  Kuva: Itä-Suomen poliisi
+
+Suomalainen mies joutuu pitkäksi aikaa vankilaan harvinaisesta rikoksesta. Mies sai melkein 15 vuoden pituisen vankilatuomion.
+
+Oikeusjuttu on saanut nimen sarjahukuttajajuttu. Mies tappoi kavereita hukuttamalla. Lisäksi hän yritti hukuttaa toisia kavereita.
+
+Oikeusjuttua ihmetellään myös, koska mies katosi tuomion jälkeen. Poliisi etsintäkuulutti miehen.
+
+## Turkki pidätti yökerhoampujan
+
+![Valvontakameran kuvaa hyökkääjästä yökerhon edustalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9382857)
+
+Avaa kuvien katselu
+
+Turkin yökerhoampuja surasi 39 ihmistä.  Kuva: DHA / EPA
+
+Turkki sanoo, että se on ottanut kiinni Istanbulin yökerhoampujan. Ampuja otettiin kiinni Istanbulissa myöhään eilen.
+
+Viranomaisten mukaan mies on tunnustanut teon.  Mies on kotoisin Uzbekistanista.
+
+Hyökkäys Istanbulin Reina-yökerhoon tehtiin uudenvuodenyönä. Ampuja tappoi 39 ihmistä.
+
+## Amsterdamissa suuri sähkökatko
+
+![Aamuliikennettä Amsterdamissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9408020)
+
+Avaa kuvien katselu
+
+Sähkökatko sekoitti Amsterdamin liikenteen.  Kuva: Marcel Antonisse / EPA
+
+Amsterdamissa oli aamulla suuri sähkökatko. Satoja tuhansia koteja oli Ilman sähköä.
+
+Sähkökatkon syytä ei tiedetä. Iso osa sähköstä tuli takaisin aamupäivän aikana.
+
+Sähkökatko pysäytti Amsterdamin joukkoliikenteen. Sähkökatkon syyksi epäillään kylmää säätä. Kylmällä säällä sähköä kuluu paljon.
+
+## Terveydestä kerätään tietovarastoa
+
+![Terveydenhoitaja katsoo potilaan korvaan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9407356)
+
+Avaa kuvien katselu
+
+Hoito paranee, jos potilailta saadaan paljon tietoa.  Kuva: Jussi Nukari / Lehtikuva
+
+Suomalaisten terveydestä halutaan kerätä nyt paljon tietoa. Tietoa halutaan, jotta terveydenhoito voi parantua.
+
+Ihmisten terveystieto kootaan tietokannoiksi eli tietovarastoiksi. Nyt tietoa kerätään sairaaloissa. Tulevaisuudessa ihmiset voivat myös itse lähettää tietoa esimerkiksi omasta verenpaineesta.
+
+Suuret tietokannat auttavat antamaan jokaiselle juuri oikeaa hoitoa. Nykyään suuret tietokannat auttavat esimerkiksi sydäntautien hoidossa.

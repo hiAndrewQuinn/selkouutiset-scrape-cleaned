@@ -1,0 +1,79 @@
+# Torstai 11.5.2017 (radio)
+
+Kokoomus yhä suosituin puolue. Jää vähenee Pohjoisnavalla. Suomi Arktisen neuvoston puheenjohtajaksi. Yhdysvalloissa kohua FBI-johtajan erottamisesta. Venäläiset matkustavat taas Suomeen.
+
+## Kokoomus yhä suosituin
+
+![Grafiikka puoluekannatuksesta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9605532)
+
+Avaa kuvien katselu
+
+Ylen puoluekannatuskysely tehtiin huhtikuussa tuhannelle suomalaiselle.  Kuva: Yle Uutisgrafiikka
+
+Kokoomus on yhä Suomen suosituin puolue, selviää Ylen uudesta kyselystä.
+
+Toiseksi suosituimmat puolueet ovat nyt SDP ja keskusta. Eniten suosiota on lisännyt vihreät.
+
+Myös perussuomalaisten suosio on lisääntynyt. Sen sijaan vasemmistoliiton suosio on vähentynyt.
+
+Kokoomus oli suosituin puolue myös kuntavaaleissa, jotka pidettiin huhtikuussa.
+
+## Pohjoisen napajäät vaarassa
+
+![Ilmaston lämpenemisen myötä ikiroudan alueet ovat alkaneet sulaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7802422)
+
+Avaa kuvien katselu
+
+Ikirouta on alkanut sulaa Grönlannissa, koska ilmasto lämpenee. Kuva: Nick Cobbing / EPA
+
+Jää vähenee Pohjoisnavalla. Pohjoisnavalla oli tänä talvena vähemmän jäätä kuin koskaan aikaisemmin, kertoo Yhdysvaltain lumi- ja jääkeskus.
+
+Ilmasto lämpenee Pohjoisnavalla jopa kaksi kertaa nopeammin kuin muualla maailmassa.
+
+Kalastajat ovat huomanneet, että Jäämerelle on tullut uusia kalalajeja etelästä, esimerkiksi makrillia.
+
+Arktisen neuvoston 90 tutkijaa sanoo, että  Pohjoisnavan jää voi sulaa kesällä lähes kokonaan jo vuonna 2030.
+
+## Suomi aloitti Arktisen neuvoston puheenjohtajana
+
+![arktinen neuvosto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9344411)
+
+Avaa kuvien katselu
+
+Arktisessa neuvostossa keskustellaan Jäämeren alueen yhteistyöstä. Kuva: Yle
+
+Suomi on aloittanut tänään Arktisen neuvoston puheenjohtajana.
+
+Arktiseen neuvostoon kuuluvat maapallon pohjoiset maat eli Pohjoismaat, Kanada, Yhdysvallat ja Venäjä.
+
+Maat keskustelevat Arktisessa neuvostossa muun muassa Jäämeren ja sen ympäristön suojelemisesta. Ne keskustelevat myös taloudellisesta yhteistyöstä.
+
+## Yhdysvalloissa kohu BFBI:n johtajan erottamisesta
+
+![James Comey ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9604756)
+
+Avaa kuvien katselu
+
+Preisdnetti Donald Trump erotti FBI:n johtajan James Comeyn. Comey johti tutkintaa Trumpin hallinnon mahdollisista kytköksistä Venäjään. Kuva: Shawn Thew / EPA
+
+Yhdysvalloissa on noussut iso kohu siitä, että presidentti Donald Trump erotti liittovaltion poliisin FBI:n johtajan.
+
+FBI on yrittänyt selvittää, onko presidentti Donald Trumpin hallinnossa ihmisiä, joilla on kiellettyjä yhteyksiä Venäjään. Trump kuitenkin sanoo, että se ei ollut syy erottaa FBI:n johtajaa James Comeya.
+
+Myös Yhdysvaltain senaatti tutkii, onko Venäjä sekaantunut Yhdysvaltojen presidentinvaaleihin, jotka Trump voitti viime marraskuussa. Senaatti on kuulustellut esimerkiksi Trumpin entistä avustajaa Michael Flynniä.
+
+## Venäläisiä turisteja tulee taas Suomeen
+
+![Suomen konsulaatti Pietarissa, virkailija liimaa viisumia passiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7348351)
+
+Avaa kuvien katselu
+
+Venäläismatkailijoiden viisumihakemukset ovat ruuhkauttaneet Suomen Pietarin konsulaatin. Kuva: YLE
+
+Venäläisten turistien määrä Suomessa kasvaa tänä kesänä. Pietarissa jopa yli 50 000 venäläistä odottaa viisumia Suomeen.
+
+Venäläiset hakevat viisumia Suomen konsulaatista. Konsulaattiin on tullut nyt niin paljon viisumihakemuksia, että viisumia voi joutua odottamaan jopa kuukauden.
+
+Vaarana on, että venäläiset peruvat matkan Suomeen, jos viisumia ei saa ajoissa.
+
+Moni venäläinen haluaa matkustaa kesällä Suomeen, koska matkustaminen esimerkiksi Välimeren maihin on nyt liian kallista.

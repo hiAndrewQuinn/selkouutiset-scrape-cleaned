@@ -1,0 +1,75 @@
+# Sunnuntai 18.8.2019 (radio)
+
+Lapsiperheiden köyhyys kasvaa. Marjafirmat tarvitsevat lisää marjanpoimijoita. Uusien autojen kauppa on hidastunut. Turussa marssittiin terrori-iskun vuosipäivänä. Jalkapalloilija Teemu Pukki teki hattutempun.
+
+## Lapsiperheiden köyhyys
+
+![Nuori poika istuu lattialla kädet kasvoilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10426567)
+
+Avaa kuvien katselu
+
+Moni lapsi elää pienituloisessa perheessä. Kuva: Jurgita Vaicikeviciene / AOP
+
+Lapsiperheiden köyhyys kasvaa Suomessa.
+
+Tilastot kertovat, että lapsiperheiden köyhyys on kasvanut tasaisesti vuodesta 2012 lähtien. Pienituloisissa perheissä elää nyt noin 150 000 lasta.
+
+Valtiovarainministeriö julkisti perjantaina budjettiesityksen, jossa lapsiperheiden asemaa aiotaan parantaa. Esimerkiksi perusturvaa ja yksinhuoltajien lapsilisää aiotaan korottaa vähän.
+
+## Marjanpoimijapula
+
+![thaipoimija polarica marjastus Samai Lekan thaimaalainen marjanpoimija](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10895722)
+
+Avaa kuvien katselu
+
+Suomeen tuli tänä vuonna noin 2400 marjanpoimijaa Thaimaasta. Kuva: Pia Tuukkanen / Yle
+
+Marjafirmat sanovat, että ne tarvitsevat lisää marjanpoimijoita. Poimijoita tarvitaan poimimaan luonnonmarjoja Suomen metsistä ja soilta.
+
+Suomeen tuli tänä vuonna noin 2400 marjanpoimijaa Thaimaasta. Määrä on sama kuin vuosi sitten.
+
+Marjafirmat sanovat, että poimijoita pitää tuoda myös muista maista kuin Thaimaasta. Esimerkiksi suomussalmelainen Kiantama Oy miettii poimijoiden palkkaamista Vietnamista.
+
+## Autokauppa takkuaa
+
+![auto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10921533)
+
+Avaa kuvien katselu
+
+Autokauppiaat sanovat, että uusia autoja myydään tänä vuonna noin 10 prosenttia vähemmän kuin viime vuonna. Kuva: Marko Väänänen / Yle
+
+Uusien autojen myynti on vähentynyt.
+
+Autokauppiaat sanovat, että tänä vuonna myydään ehkä vähän yli 100 000 uutta autoa. Se on noin 10 prosenttia vähemmän kuin viime vuonna.
+
+Uusien autojen myynti on vähentynyt esimerkiksi sen takia, että Ruotsista on tuotu Suomeen ennätysmäärä käytettyjä autoja. Moni ostaa siis käytetyn auton eikä uutta autoa.
+
+Myös keskustelu liikenteen päästöistä on saanut ostajat epäröimään, kannattaako uutta polttomoottoriautoa eli bensiini- tai dieselautoa enää ostaa.
+
+## Turun puukkoiskun vuosipäivä
+
+![Kukkavirta 188 -kulkue](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10927339)
+
+Avaa kuvien katselu
+
+Kukkavirta-kulkue laski kukkia Aurajokeen. Kuva: Andy Ödman / Yle
+
+Turussa on marssittu Turun terrori-iskun vuosipäivänä.
+
+Kansallismielisten Kukkavirta-kulkue marssi Aurajoen rantaan. Lisäksi keskustan kaduilla marssi Turku ilman natseja -vastamielenosoitus.
+
+Turun puukkoiskusta on tänään kulunut 2 vuotta. Elokuussa 2017 marokkolainen Abderrahman Bouanane puukotti 2 ihmistä kuoliaaksi. Lisäksi 8 ihmistä haavoittui.
+
+## Teemu Pukki teki hatutempun
+
+![Teemu Pukki kuvassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10927009)
+
+Avaa kuvien katselu
+
+Teemu Pukki pelaa ensimmäistä kautta Englannin Valioliigassa. Kuva: AOP
+
+Suomalainen jalkapalloilija Teemu Pukki on nousemassa Englannin Valioliigan supertähdeksi. Pukki pelaa jalkapalloa Valioliigassa Norwichin joukkueessa.
+
+Lauantai-iltana Norwichilla oli ottelu Newcastlea vastaan. Norwich voitti ottelun maalein 3-1. Teemu Pukki teki kaikki Norwichin maalit eli hän teki hattutempun. Samalla Pukki nousi Valioliigan maalipörssin ykköseksi.
+
+Viime kaudella Norwich pelasi vielä Englannin Mestaruussarjassa. Teemu Pukki oli Mestaruussarjan maalikuningas 29 maalilla.

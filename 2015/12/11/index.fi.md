@@ -1,0 +1,79 @@
+Maahanmuuttajat
+
+# Keskiviikko 9.12.2015
+
+YK:n pääsihteeri Ban Ki-moon vierailee Suomessa. Sauli Niinistö on yhä suomalaisten suosikki presidentiksi. Volkswagen: vain 36 000 auton pakokaasuista on valehdeltu. Helsinki haluaa maahanmuuttajia ja naisia palomiehiksi.
+
+![palomiehiä harjoituksissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8509373)
+
+Avaa kuvien katselu
+
+Helsingin pelastuskoulun syksyllä opiskelut aloittanut pelastajakurssi harjoitteli jälkiraivausta Vantaalla. Kouluun hakeneista maahanmuuttajista ei toistaiseksi yksikään ole selvinnyt koulutukseen.  Kuva: Yle
+
+- 
+
+  
+
+  Margit Alasalmi
+
+  
+
+  
+
+9.12.2015 18:16
+
+## YK:n pääsihteeri Suomessa
+
+![YK:n pääsihteerin Ban Ki-moon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8515211)
+
+Avaa kuvien katselu
+
+Ban Ki-moon. Kuva: Yle
+
+Yhdistyneiden kansakuntien eli YK:n pääsihteeri Ban Ki-moon oli keskiviikkona Suomessa.
+
+Ban sanoi Helsingissä, että Euroopan maiden ei kannata vähentää köyhien maiden kehitysapua. Monet Euroopan maat ovat vähentäneet kehitysapua ja käyttäneet rahat pakolaisten auttamiseen Euroopassa. Ban sanoi, että jos köyhille maille ei anneta kehitysapua, yhä enemmän ihmisiä lähtee etsimään hyvää elämää muualta, esimerkiksi Euroopasta.
+
+YK:n pääsihteeri Ban Ki-moon kävi Suomessa siksi, että Suomi on ollut YK:n jäsen tasan 60 vuotta.
+
+## Niinistö on suosikki
+
+![Niinistö ja Haavisto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8514531)
+
+Avaa kuvien katselu
+
+Pekka Haavisto (vas.) ja Sauli Niinistö. Kuva: Ilkka Kemppinen / Yle
+
+Monet suomalaiset haluavat, että Sauli Niinistö valitaan uudelleen presidentiksi.
+
+Ylen kyselyssä 45 prosenttia vastaajista halusi, että Niinistö voittaa myös vuoden 2018 presidentinvaalit. Niinistö ei ole vielä sanonut, onko hän ehdokkaana silloin.  Kansanedustaja Pekka Haavistoa kannatti kyselyssä 9 prosenttia vastaajista ja pääministeri Juha Sipilää 3 prosenttia. 
+
+Epäsuosittuja olivat ministeri Timo Soini, europarlamentaarikot Paavo Väyrynen ja Jussi Halla-aho sekä kansanedustaja Päivi Räsänen. 
+
+## Maahanmuuttajia palomiehiksi
+
+![palomiehiä harjoituksissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8509373)
+
+Avaa kuvien katselu
+
+Helsingin pelastuskoulun oppilaita. Kuva: Yle
+
+Helsingin pelastuslaitos eli palokunta haluaa maahanmuuttajia töihin. 
+
+Helsingin pelastuslaitos haluaa maahanmuuttajia palomiehiksi, koska kaupungin asukkaista yli 10 prosenttia on maahanmuuttajia. Palomiesten ja ambulanssin kuljettajien työtä helpottaa, jos he tuntevat erilaisia tapoja ja kulttuureita. Helsingin pelastuslaitos haluaa palomiehiksi myös naisia. Koko Suomen palokunnissa on töissä vain 3 naista.
+
+Helsingissä alkaa ensi syksynä palomiesten ja ambulanssin kuljettajien kurssi, jonka opiskelijaksi voi hakea tammikuussa.  
+
+## Volkswagen: 36 000 eikä 800 000
+
+![Volkswagen Golf 2,0 TDI dieselauton päästöjä mitataan Saksassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8515298)
+
+Avaa kuvien katselu
+
+Volkswagen Golf 2,0 TDI dieselauton päästöjä mitataan Saksassa.  Kuva: Patrick Pleul / AFP
+
+Saksalainen Volkswagen sanoo nyt, että se on valehdellut vain 36 000 auton pakokaasuista.
+
+Volkswagen jäi syksyllä kiinni siitä, että joidenkin dieselautojen pakokaasuissa on saasteita paljon enemmän kuin Volkswagen on sanonut. Marraskuussa Volkswagen arvioi, että se on antanut väärää tietoa jopa 800 000 autosta.
+
+Volkswagen arvioi marraskuussa, että valhe maksaa firmalle ainakin 2 miljardia euroa. Rahaa kuluu esimerkiksi korvauksiin, joita firma maksaa autojen omistajille.

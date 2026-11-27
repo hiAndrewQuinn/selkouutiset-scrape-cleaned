@@ -1,0 +1,105 @@
+# Uutisviikko selkosuomeksi | sunnuntai 4.10.2026
+
+Kansanedustajien kotirauha. Polttoaineen hinta. STT. Nuoret kuljettajat ja vuokralaiset. Hiihtokausi. Kesän salamat.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Kansanedustajien kotirauha
+
+![Kaksi ihmistä seisoo puhujakorokkeen äärellä mikrofonien edessä, taustalla portaikkoa ja heijastavia pintoja.](https://img.img-cdn.yle.fi/crop_extract,w_6144,h_3456,x_0,y_195/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17158826abe3cbc7b54b/1790852419)
+
+Avaa kuvien katselu
+
+Eduskunnan varapuhemies Paula Risikko ja puhemies Jussi Halla-aho kertoivat torstaina, että joku on ehkä käynyt kansanedustajien kotona ilman lupaa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Ensin uutinen kansanedustajien kotirauhasta.
+
+Poliisi tutkii, onko kansanedustajien kotirauhaa rikottu.
+
+Tällä viikolla kerrottiin epäilyistä, että joku on käynyt kansanedustajien kotona ilman lupaa.
+
+Ylen tiedot ovat, että näitä epäilyjä on useita, mutta alle 20.
+
+Asunnoissa ei ole murtojälkiä eikä mitään ole varastettu tai rikottu.
+
+Asuntoihin on kuitenkin jätetty pieniä merkkejä siitä, että joku on käynyt siellä.
+
+## Polttoaineen hinta
+
+![Henkilö tankkaa autoa vihreällä polttoainepistoolilla huoltoasemalla.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_472/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17133446ab672f89685e/1790342386)
+
+Avaa kuvien katselu
+
+Auton tankkaaminen on nyt kallista. Kuva: Ville Maali / Yle
+
+Polttoaineen hinnasta on puhuttu paljon jo monta viikkoa.
+
+Polttoaineet ovat nyt harvinaisen kalliita. Raakaöljyn hinta on noussut esimerkiksi Iranin sodan jatkumisen takia.
+
+Tällä viikolla kerrottiin, että Suomen hallitus miettii keinoja alentaa bensan ja dieselin hintaa.
+
+Pääministeri Petteri Orpo sanoi eilen, että hallitus on pääsemässä asiasta sopuun ehkä jo lähipäivinä.
+
+## STT
+
+![-](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_356/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17161806abe769613789/1790867769)
+
+Avaa kuvien katselu
+
+Suomen tietotoimisto on toiminut melkein 140 vuotta. Kuva: Mikko Koski / Yle
+
+Sitten uutinen mediasta.
+
+Suomen tietotoimiston STT:n uutistoiminta saattaa loppua.
+
+STT suunnittelee uutistoiminnan lopettamista maaliskuussa.
+
+Uutistoimiston talous on ollut huono jo monta vuotta.
+
+## Nuoret kuljettajat ja vuokralaiset
+
+![Vanha käsi pitää palavaa savuketta valkoisen takin hihassa, taustalla vaalea seinä.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_551/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17027666a9ac0a686cf8/1788527495)
+
+Avaa kuvien katselu
+
+Uusi laki kieltää tupakoinnin vuokra-asunnossa. Kuva: Pyry Sarkiola / Yle
+
+Lokakuun alussa tuli voimaan kaksi lakimuutosta, jotka vaikuttavat moniin ihmisiin.
+
+Ajokorttilaki vaatii nyt, että 17-vuotiaan kuljettajan pitää merkitä auto, jota hän ajaa. Auton takaosaan pitää kiinittää vihreäkeltainen merkki.
+
+Myös huoneenvuokralaki uudistui. Laki kieltää nyt vuokralaista tupakoimasta vuokra-asunnossa ja sen omalla pihalla tai parvekkeella.
+
+Tupakointi on sallittu vain, jos siihen on saanut luvan vuokranantajalta.
+
+## Hiihtokausi alkaa
+
+![Lumetettu laskettelurinne kulkee metsän keskellä sumuisessa säässä, rinne rajattu punaisella aidalla.](https://img.img-cdn.yle.fi/crop_extract,w_8056,h_4531,x_0,y_886/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-17163876abf6433f1a40/1790928113)
+
+Avaa kuvien katselu
+
+Rukalla avattiin laskettelurinne säilölumen avulla. Kuva: Paulus Markkula / Yle
+
+Hiihtokausi on alkamassa.
+
+Ensimmäiset laskettelurinteet on avattu Rukalla Kuusamossa ja Levillä Kittilässä. Levillä avatiin myös ensimmäinen latu murtomaahiihtoa varten.
+
+Lumi on viime talven lunta. Se on ollut säilössä kesän ajan.
+
+## Vaisu ukkoskesä
+
+![Salama iskee pilvisen taivaan alta maaseutumaisemaan.](https://img.img-cdn.yle.fi/crop_extract,w_5999,h_3374,x_0,y_194/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16926846a8317692daf3/1786976333)
+
+Avaa kuvien katselu
+
+Viime kesänä ukkosti ja salamoi vähemmän kuin tavallisesti. Kuva: AOP
+
+Ukkosia on ollut tänä vuonna vähemmän kuin tavallisesti, kertoo Ilmatieteen laitos.
+
+Kesän aikana havaittiin vähän yli 30 000 maasalamaa. Tavallisesti kesällä havaitaan keskimäärin yli 80 000 salamaa.
+
+Eniten salamoi länsirannikolla Pohjanmaan maakunnissa ja Turun seudulla Varsinais-Suomessa.
+
+Tässä oli Uutisviikko selkosuomeksi. Kuulemiin ensi viikkoon.

@@ -1,0 +1,83 @@
+# Tiistai 30.11.2021 (radio)
+
+Hallituksen koronaneuvottelut. Pääministerin etätyö. Euroalueen inflaatio. Suksivoidetehtaan tulipalo. Luottokorttivarkaat. Sääennuste.
+
+## Hallituksen koronaneuvottelut
+
+![Krista Kiuru.](https://img.img-cdn.yle.fi/crop_extract,w_5808,h_3267,x_0,y_325/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88631161a63289dd52c/1638281918)
+
+Avaa kuvien katselu
+
+Perhe- ja peruspalveluministeri Krista Kiuru. Kuva: Benjamin Suomela / Yle
+
+Hallitus on neuvotellut tiistaina koronatilanteesta. Hallitus on keskustellut siitä, mitä Suomessa pitää tehdä, että koronatilanne paranee. Hallitusta huolettaa erityisesti uusi koronaviruksen omikronmuunnos.
+
+Perhe- ja peruspalveluministeri Krista Kiuru sanoi iltapäivällä, että hallitus haluaa toimia nopeasti. Hallitus on keskustellut myös koronapassin käytön lisäämisestä.
+
+Tiistaina on raportoitu 900 uutta koronatartuntaa.
+
+## Sanna Marin jäi etätöihin
+
+![Pääministeri Sanna Marin Ylen televisiouutisten haastateltavana Eduskunnan Valtiosalissa.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_282/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-869612617019875530f/1634736595)
+
+Avaa kuvien katselu
+
+Pääministeri Sanna Marin. Kuva: Toni Määttä / Yle
+
+Pääministeri Sanna Marin on jäänyt etätöihin. Syy on se, että Marinilla on lieviä flunssaoireita.
+
+Hän työskentelee toistaiseksi virka-asunnossa Kesärannassa. Marin käy myös koronatestissä.
+
+Pääministeri Marin on osallistunut hallituksen neuvotteluihin tiistaina etäyhteydellä.
+
+## Inflaatio
+
+![Teboilin pihassa olevassa hintataulussa on polttoaineiden hintoja. 98-oktaanisen bensan litrahinta on sentin yli kaksi euroa.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_650/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-881132619632a738f43/1637234052)
+
+Avaa kuvien katselu
+
+Esimerkiksi bensiinin hinta on noussut paljon.  Kuva: Pyry Sarkiola / Yle
+
+Inflaatio eli hintojen nousu on nopeutunut paljon Euroalueella.
+
+EU:n tilastovirasto kertoo, että kuluttajahinnat nousivat marraskuussa melkein 5 prosenttia Euroalueella. Kuluttajahinnat ovat nousseet enemmän kuin 20 vuoteen.
+
+Merkittävä syy on energian hinta. Energia on kallistunut paljon monissa maissa.
+
+## Suksitehtaan tulipalo
+
+![Pelastajia sammuttamassa tulipaloa lumisella pihalla. ](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2268,x_0,y_661/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88627961a6281e62185/1638279341)
+
+Avaa kuvien katselu
+
+Suksitehdas kärsi isot vahingot. Kuva: Ari Tauslahti / Yle
+
+Joensuussa syttyi tiistaina päivällä iso tulipalo suksivoidetehtaassa. Ainakin 1 ihminen sai tulipalossa vakavia vammoja. Lisäksi 2 ihmistä sai lieviä vammoja.
+
+Kaikki suksivoidetehtaan työntekijät pääsivät ulos palavasta tehtaasta. Tehtaaseen tuli tulipalossa isot vahingot.
+
+Vielä ei tiedetä, mistä suksivoidetehtaan palo Joensuussa syttyi.
+
+## Tunnuslukujen urkkijat
+
+![Henkilö maksaa ostoksia maksupäätteellä.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7892686060491621bf5/1616924014)
+
+Avaa kuvien katselu
+
+Varkaat ovat urkkineet ihmisten tunnuslukuja kassalla. Kuva: Henrietta Hassinen / Yle
+
+Poliisi varoittaa varkaista, jotka urkkivat maksukorttien tunnuslukuja.
+
+Varkaat ovat katsoneet kaupan kassalla ihmisten tunnuslukuja, kun ihminen näppäilee tunnusluvun. Sen jälkeen ihmiseltä on varastettu luottokortti, jonka tunnusluvun rikollinen on nähnyt.
+
+Poliisi sanoo, että tällaisia tapauksia on ollut eri puolilla Suomea. Poliisi sanoo, että maksukortin tunnusluku pitää näppäillä niin, että muut ihmiset eivät näe tunnuslukua.
+
+## Sää
+
+![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12210927)
+
+Avaa kuvien katselu
+
+Koko Suomessa on pakkasta.
+
+Etelässä ja lännessä on keskiviikkona poutaista eli ei sada. Myös aurinko paistaa monin paikoin. Idässä ja pohjoisessa sataa lunta. Lämpötila on -5 ja -15 asteen välillä, Pohjois-Lapissa on kylmempää.

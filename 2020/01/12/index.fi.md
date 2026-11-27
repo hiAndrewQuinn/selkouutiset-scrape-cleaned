@@ -1,0 +1,57 @@
+# Sunnuntai 12.1.2020 (radio)
+
+Ammattiliitot valmiita lakkoihin. Terveydenhoito eriarvoistuu. Moni ei halua johtajaksi. Britannia on vihainen Iranille suurlähettilään kohtelusta.
+
+## Ammattiliitot valmiita lakkoihin
+
+![Paperiliitto Helsingin Hakaniemessä](https://img.img-cdn.yle.fi/crop_extract,w_4305,h_2423,x_0,y_404/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-404983592d83e1dfcd1/1496155249)
+
+Avaa kuvien katselu
+
+Paperiliitto Helsingin Hakaniemessä. Kuva: Henrietta Hassinen / Yle
+
+Kolme isoa ammattiliittoa on valmiina työtaistelutoimiin.
+
+Paperiliitto, Teollisuusliitto ja Ammattiliitto Pro sanovat, että ne voivat aloittaa ison lakon, jos työehtosopimuksista ei synny sopua. Lakot alkavat 27. tammikuuta ja kestävät kaksi viikkoa, jos sopua ei synny. Jos lakot alkavat, ne koskevat yli 30 000 työntekijää.
+
+Neuvotteluissa on isoin riita kiky-tunneista. Kiky-tunnit ovat lisätunteja, joista ei makseta lisää palkkaa. Työntekijöiden ammattiliitot haluavat poistaa kiky-tunnit työehtosopimuksista.
+
+## Terveydehoito eriarvoistuu
+
+![Juha Koponen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11153366)
+
+Avaa kuvien katselu
+
+Juha Koponen. Kuva: Yle
+
+Tavallinen terveydenhoito ei riitä kaikkien suomalaisten hoitamiseen, koska erikoissairaanhoito vie paljon rahaa ja työntekijöitä. Yle on haastatellut suuren vakuutusyhtiön Lähi-Tapiolan uutta johtajaa **Juha Koposta.**
+
+Koponen sanoo, että julkista terveydenhoitoa pitää kehittää paljon, että se palvelee kaikkia ihmisiä. Erikoissairaanhoito toimii Suomessa hyvin, mutta se vie paljon rahaa ja työvoimaa, Koponen sanoo.
+
+Vakuutusyhtiössä tilanne näkyy niin, että Ihmiset ostavat terveyskuluvakuutuksia enemmän kuin ennen, että he voivat mennä yksityislääkärille.
+
+## Johtajan työ ei houkuta
+
+![Kolme ihmistä puhuu toimistossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10744875)
+
+Avaa kuvien katselu
+
+Johtajan työtä pelätää liian vaativana. Kuva: AOP
+
+Monet ihmiset eivät halua työpaikalla johtajaksi. Tutkimuksen mukaan moni korkeasti koulutettu pelkää, että epäonnistuu, jos joutuu johtajaksi. Monet pitävät johtajien työtä myös liian raskaana tai vaativana.
+
+Moni korkeasti koulutettu välttelee johtotehtäviä. Tutkimuksen mukaan johtajaksi haluaa vain noin 10 % korkeasti koulutetuista.
+
+## Britannian suurlähettiläs pidätettiin Iranissa
+
+![Näkymä ukrainalaiskoneen onnettomuuspaikalta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11151613)
+
+Avaa kuvien katselu
+
+Ukrainalaiskoneen putoamispaikka Iranissa. Kuva: Abedin Taherkenareh / EPA
+
+Britannian ja Iranin välille on syntynyt riita diplomaattisuhteista. Riita syntyi, koska Iranin poliisi pidätti Britannian suurlähettilään Teheranissa vähäksi aikaa lauantaina.
+
+Britannian suurlähettiläs **Rob Macaire** osallistui muistotilaisuuteen, joka järjestettiin ukrainalaisen lentokoneen putoamisen uhreille.
+
+Britannia on vihainen, että sen suurlähettiläs pidätettiin. Mitkään maat eivät yleensä pidätä toisten maiden suurlähettiläitä.

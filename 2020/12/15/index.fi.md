@@ -1,0 +1,73 @@
+# Tiistai 15.12.2020 (radio)
+
+Suomessa on 5 uutta koronakuolemaa. Pirkanmaan koronasuositukset jatkuvat. Vanhuksille suositellaan D-vitamiinia. Ulkoministeri Haavisto sai eduskunnan luottamuksen. Keskiviikko on sateinen päivä.
+
+## Suomen koronaluvut
+
+![Laboratotiotekniikan opiskelija Sanni Ouni tutkii koronanäytteitä Fimlabin laboratoriossa Tampereella.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_28/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7543235fd8a02185f74/1608032684)
+
+Avaa kuvien katselu
+
+Koronatesteissä löytyy uusia koronatartuntoja. Kuva: Antti Eintola / Yle
+
+Suomessa on raportoitu 5 uutta koronakuolemaa. Suomessa on kuollut koronan takia yhteensä 466 ihmistä.
+
+Suomessa raportoitiin tiistaina myös 349 uutta koronatartuntaa.
+
+## Pirkanmaan koronasuositukset
+
+![TAYSin sairaalarakennus Tampereella joulukuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7505745fca3f3660f51/1607091072)
+
+Avaa kuvien katselu
+
+Kuva: Miikka Varila / Yle
+
+Pirkanmaan eli Tampereen seudun koronasuositukset jatkuvat tammikuun 10. päivään asti. Asiasta päätettiin tiistaina.
+
+Tämä tarkoittaa sitä, että esimerkiksi sisäliikuntatilat on syytä pitää kiinni eikä yli 10 hengen tilaisuuksia ole hyvä järjestää.
+
+## D-vitamiini
+
+![D-vitamiini kapseleita purkista pöydälle.](https://img.img-cdn.yle.fi/crop_extract,w_1800,h_1013,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-1929954de0d5c3877d/1423838603)
+
+Avaa kuvien katselu
+
+D-vitamiinitabletit ovat Suomessa tarpeen pimeän talven aikana. Kuva: Yle, Tero Kyllönen
+
+Helsingin ja Uudenmaan sairaanhoitopiiri eli HUS suosittelee vanhoille ihmisille D-vitamiinia.
+
+HUS sanoo, että kaikkien yli 70-vuotiaiden on hyvä ottaa D-vitamiinia 20 milligrammaa joka päivä.
+
+D-vitamiini voi pienentää hengitystieinfektion riskiä, ja se on korona-aikana tärkeää. Koronavirustartunnasta voi tulla tosi paha, jos potilaan hengitysteissä on myös muita bakteeri- tai virusinfektioita.
+
+Luonnon D-vitamiinia saa auringonvalosta ja joistakin ruuista, esimerkiksi rasvaisista kaloista ja kananmunista. Suomessa monet tarvitsevat lisäksi D-vitamiinitabletteja. Esimerkiksi tummaihoiset ja vanhat ihmiset kärsivät usein D-vitamiinin puutteesta.
+
+## Ulkoministerin luottamus
+
+![Ulkoministeri Pekka Haavisto poistui hetkeksi eduskunnan täysistunnosta Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11696950)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Ulkoministeri Pekka Haavisto on saanut eduskunnan luottamuksen. Se tarkoittaa, että Haavisto voi jatkaa ulkoministerin työtä.
+
+Eduskunnan äänestyksessä hallituspuolueet äänestivät Haaviston puolesta. Oppositiopuolueet äänestivät Haavistoa vastaan.
+
+Kysymys oli siitä, toimiko ulkoministeri Haavisto väärin al-Holin asiassa. Haavisto halusi saada suomalaiset lapset pois syyrialaiselta al-Holin leiriltä, jossa asuu Isis-terroristien perheenjäseniä. Haavisto yritti myös siirtää toiseen tehtävään virkamiehen, joka oli asiassa eri mieltä Haaviston kanssa.
+
+Viime viikolla Haavisto sai moitteet eduskunnan perustuslakivaliokunnalta al-Holin tapauksen takia. Nyt oppositiopuolue perussuomalaiset halusi, että koko eduskunta äänestää Haaviston luottamuksesta.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11699077)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Keskiviikko on sateinen päivä. Idässä ja pohjoisessa sataa lunta, muualla sataa vettä.
+
+Keskiviikon lämpötila on 0 ja +5 asteen välillä, vain Lapissa on pakkasta.
+
+Torstain sää on kuiva. Etelässä lämpötila on torstaina nollan tienoilla, mutta pohjoisessa on kova pakkanen.

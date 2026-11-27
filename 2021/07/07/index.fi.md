@@ -1,0 +1,72 @@
+# Keskiviikko 7.7.2021
+
+Rakentaminen. Maria Ohisalo. Ruotsin pääministeri. Mustikat. Sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Rakentaminen
+
+![Rakenteilla oleva betonielementtikerrostalo Tampereen Santalahdessa](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6652745e987f50cff1a/1587052424)
+
+Avaa kuvien katselu
+
+Esimerkiksi betonielementtien toimitusajat ovat pidentyneet, koska kysyntää on paljon. Kuva: Kirsi Matson-Mäkelä / Yle 
+
+Monissa maissa rakennetaan nyt paljon. Siksi rakennusmateriaalien hinnat nousevat. Esimerkiksi puutavaran ja teräksen hinnat nousevat.
+
+Rakennusmateriaalien, esimerkiksi betonielementtien, toimitusajat ovat pidentyneet. Myös työvoimasta on pulaa rakennusalalla, koska nyt rakennetaan paljon.
+
+Suomalaiset rakennusfirmat sanovat, että tilanne haittaa uusien asuntojen rakentamista. Uusien asuntojen rakentaminen voi vähentyä.
+
+## Vihreiden Maria Ohisalo
+
+![ Vihreiden puheenjohtaja Maria Ohisalo kertoo puheenjohtajakautensa jatkon suunnitelmista puolueen tiedotustilaisuudessa kertoi raskaudestaan liikuttuneena.](https://img.img-cdn.yle.fi/crop_extract,w_1938,h_1090,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82921860e54ec502df3/1625640790)
+
+Avaa kuvien katselu
+
+Maria Ohisalo kertoi keskiviikkona, että hän odottaa vauvaa. Kuva: Emmi Korhonen / Lehtikuva
+
+Vihreät-puolueen puheenjohtaja, sisäministeri **Maria Ohisalo** haluaa jatkaa puolueen puheenjohtajana. Ohisalo sanoo, että hän on ehdolla puheenjohtajaksi myös seuraavalle kaudelle.
+
+Vihreät valitsee puheenjohtajan puoluekokouksessa syyskuussa. Vihreät voi silloin valita Maria Ohisalon uudelleen puheenjohtajaksi.
+
+Ohisalo kertoi keskiviikkona myös, että hän odottaa vauvaa. Vauva syntyy joulukuussa. Vihreät päättää myöhemmin, kenestä tulee Ohisalon sijainen sisäministeriksi ja kenestä tulee sijainen puolueen puheenjohtajaksi.
+
+## Ruotsin pääministeri
+
+![Stefan Löven](https://img.img-cdn.yle.fi/crop_extract,w_4888,h_2750,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82251460cb63c93129c/1624261621)
+
+Avaa kuvien katselu
+
+Stefan Löfven. Kuva: Olivier Hoslet / AFP
+
+Ruotsin parlamentti on valinnut **Stefan Löfvenin** uudestaan pääministeriksi.
+
+Löfven joutui eroamaan kesäkuussa, koska parlamentti päätti äänestyksellä, että Ruotsiin pitää muodostaa uusi hallitus.
+
+Maltillinen kokoomus -puolue ei onnistunut muodostamaan Ruotsiin uutta hallitusta. Siksi Ruotsin parlamentti päätti keskiviikkona, että sosiaalidemokraattien Löfvenistä tulee myös uuden hallituksen pääministeri.
+
+## Mustikkasato
+
+![Mustikoita.](https://img.img-cdn.yle.fi/crop_extract,w_1710,h_962,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5985715d9ef80b23ae6/1570699321)
+
+Avaa kuvien katselu
+
+Kuivuus vaikuttaa helposti mustikoihin.  Kuva: Julia Sieppi / Yle
+
+Kuivuus haittaa mustikoiden kasvua. Mustikat voivat jäädä tänä kesänä pieniksi.
+
+Alkukesä oli hyvä mustikoille. Helle ja kuivuus ovat kuitenkin jatkuneet nyt pitkään. Mustikka on herkkä kuivuudelle.
+
+Mustikat tarvitsevat nyt sateita, mutta sateita ei ole paljon tulossa. Viileillä kasvupaikoilla, joissa puut varjostavat, mustikat voivat kasvaa paremmin.
+
+## Sää
+
+![Torstain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12012559)
+
+Avaa kuvien katselu
+
+Torstaina tulee ukkoskuuroja osassa Suomea.
+
+Torstaina tulee ukkoskuuroja maan etelä- ja itäosassa ja Lapissa. Lännessä sää on poutaista. Lämpötila on torstaina 24 ja 30 asteen välillä. Lämpimintä on itärajan alueella.

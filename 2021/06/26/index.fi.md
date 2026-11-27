@@ -1,0 +1,84 @@
+# Lauantai 26.6.2021
+
+Juhannuksenvietto. Savonlinnan tulipalo. Suomalaisturistien koronatartunnat. Venäjän koronatilanne. Sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Juhannuksenvietto
+
+![juhannus](https://img.img-cdn.yle.fi/crop_extract,w_4312,h_2426,x_0,y_222/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82561260d65457906ea/1624660366)
+
+Avaa kuvien katselu
+
+Juhannus on ollut melko rauhallinen. Kuva: Mikko Ahmajärvi / Yle
+
+Suomessa on vietetty juhannusta rauhallisesti.
+
+Poliisilla ja pelastusviranomaisilla on kuitenkin ollut paljon työtä.
+
+Ihmisiä on hukkunut myös tänä juhannuksena. Ainakin 6 ihmistä on hukkunut juhannuksen aikana.
+
+Poliisilla on ollut paljon työtä esimerkiksi tappelujen takia. Poliisia on tarvittu myös rauhoittamaan kovaa meteliä.
+
+## Savonlinnan tulipalo
+
+![Kerrostalo liekeissä Savonlinnassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11998467)
+
+Avaa kuvien katselu
+
+Tulipalo alkoi ehkä salamaniskusta. Kuva: Nikke Kaartinen
+
+Savonlinnassa, Itä-Suomessa, on ollut iso tulipalo. Tulipalo syttyi kerrostalossa juhannusyönä.
+
+Tulipalon syy oli ehkä salamanisku. Savonlinnassa oli juhannusyönä kova ukkonen.
+
+Tulipalossa ei kuollut kukaan. Kukaan ei myöskään loukkaantunut vakavasti. 5 ihmistä vietiin kuitenkin sairaalahoitoon.
+
+Kaikki talon asukkaat siirrettiin turvaan. Talossa ei ollut tulipalon aikaan paljon ihmisiä, koska monet olivat muualla viettämässä juhannusta.
+
+Talossa on 6 kerrosta. Tuli tuhosi yläkerrokset kokonaan. Myös alempiin kerroksiin tuli vahinkoja.
+
+Savonlinnan tapaus on harvinainen. Ei ole tavallista, että salama iskee kerrostaloon.
+
+## Suomalaisturistien koronatartunnat
+
+![Autojono Vaalimaan raja-asemalla.](https://img.img-cdn.yle.fi/crop_extract,w_1600,h_900,x_0,y_245/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82464960d310ed360fd/1624536182)
+
+Avaa kuvien katselu
+
+Venäjältä on palannut tällä viikolla paljon suomalaisia jalkapallofaneja. Kuva: Niklas Joki / Yle
+
+Monet suomalaiset ovat saaneet koronatartunnan Pietarissa, Venäjällä. Suomessa on löydetty jo yli 120 koronatartuntaa turisteilta, jotka ovat käyneet Pietarissa.
+
+Monet suomalaiset kävivät Pietarissa katsomassa jalkapalloa. Suomella oli Pietarissa jalkapallon EM-kilpailujen pelejä.
+
+Terveyden ja hyvinvoinnin laitos toivoo, että koronatestiin menevät kaikki, jotka ovat käyneet Pietarissa. Heidän on hyvä mennä koronatestiin jo tämän viikonlopun aikana.
+
+## Venäjän koronatilanne
+
+![Hoitaja rokottaa maskiin pukeutunutta miestä](https://img.img-cdn.yle.fi/crop_extract,w_5320,h_2993,x_0,y_291/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82492260d357ac4956a/1624463404)
+
+Avaa kuvien katselu
+
+Koronarokotukset ovat edenneet Venäjällä hitaasti. Kuva: Alexander Shcherbak / Tass / All Over Press
+
+Korona leviää Venäjällä nopeasti.
+
+Venäjällä oli yhdessä päivässä melkein 22 000 uutta koronatartuntaa. Yli 600 ihmistä kuoli koronan takia yhden päivän aikana.
+
+Venäjä oli ensimmäinen maa maailmassa, joka hyväksyi koronarokotteen käyttöön. Suurin osa venäläisistä ei kuitenkaan ole ottanut koronarokotetta.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11998539)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on vielä sunnuntaina epävakaista, eli sadekuuroja ja ukkoskuuroja tulee eri puolilla maata.
+
+Ensi viikolla sää on poutaista, sateet loppuvat vähitellen. Sää on ensi viikolla myös aurinkoista.
+
+Sää on lähipäivinä lämmin. Lämpötila on 20 ja 25 asteen välillä suuressa osassa maata.

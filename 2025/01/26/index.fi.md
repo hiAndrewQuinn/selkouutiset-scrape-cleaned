@@ -1,0 +1,54 @@
+# Radio \| Selkouutiset \| sunnuntai 26.1.2025
+
+Unescon maailmanperintöluettelo
+
+Uutisviikossa kerromme tällä kertaa Unescon maailmanperintöluettelosta.
+
+Suomi ehdottaa, että Alvar Aallon arkkitehtuuri otetaan mukaan luetteloon uudeksi maailmanperintökohteeksi.
+
+Nyt kerromme asiasta lisää.
+
+## Alvar Aallon arkkitehtuuri
+
+![Alvar Aallon arkkitehtuuria: Finlandia-talo, Paimion parantola ja Villa Mairea. Kuva: AOP, Maija Holma / Alvar Aalto -säätiö](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1737630664/39-1410762679222cd1b419)
+
+Suomi esittää, että Alvar Aallon arkkitehtuuri lisätään Unescon maailmanperintöluetteloon.
+
+Suomen esityksessä on mukana 13 eri rakennusta tai aluetta, jotka arkkitehti Alvar Aalto on suunnitellut. Mukana ovat esimerkiksi Finlandia-talo ja Kulttuuritalo Helsingissä, Jyväskylän yliopiston Aalto-kampus, Paimion parantola, Sunilan asuinalue Kotkassa ja Villa Mairea Porissa.
+
+Alvar Aalto on Suomen kuuluisin arkkitehti. Hän kuoli vuonna 1976.
+
+## Kulttuuria ja luontoa
+
+![Maailmanperintökohteita on eniten Italiassa. Tässä niistä yksi: Etna-tulivuori Sisilian saarella. Kuva: IPA / Backgrid ](https://images.cdn.yle.fi/image/upload/c_crop,h_1125,w_2000,x_0,y_207/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1691999494/39-115619964d9dc94d5c98)
+
+YK:n tiede- ja kulttuurijärjestö Unesco on pitänyt luetteloa maailmanperintökohteista noin 50 vuoden ajan.
+
+Luetteloon hyväksytään vain ainutlaatuisia kulttuuri- ja luontokohteita. Näitä arvokkaita kohteita halutaan suojella, jotta ne jäävät perinnöksi myös tuleville sukupolville.
+
+Tällä hetkellä maailmanperintöluettelossa on yhteensä noin 1200 kohdetta. Niistä suurin osa on kulttuurikohteita.
+
+Kohteita on yhteensä noin 170 maassa. Eniten maailmanperintöä on Italiassa, noin 60 eri kohdetta.
+
+## Maailmanperintöä Suomesta
+
+![Petäjäveden vanha kirkko pääsi Unescon maailmanperintöluetteloon vuonna 1994. Kuva: Petteri Bülow / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_4185,w_7440,x_0,y_313/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1724918453/39-134044566d028d36a06b)
+
+Unescon luettelossa on myös suomalaiskohteita. Suomessa on tällä hetkellä 7 maailmanperintökohdetta.
+
+Luettelossa ovat esimerkiksi Suomenlinna, Vanha Rauma ja Petäjäveden vanha kirkko. Merenkurkun saaristo on Suomen ainoa luontokohde Unescon listalla.
+
+Museovirasto uskoo, että myös Alvar Aallon arkkitehtuuri hyväksytään maailmanperintöluetteloon. Ratkaisu asiasta tulee ehkä ensi vuonna.
+
+## Kertaus
+
+Uutisviikon aiheena olivat Unescon maailmanperintökohteet. Kerrataan vähän.
+
+Suomi esittää, että Alvar Aallon arkkitehtuuri lisätään Unescon maailmanperintöluetteloon.
+
+Luetteloon hyväksytään ainutlaatuisia kulttuuri- ja luontokohteita, joita halutaan suojella tulevia sukupolvia varten.
+
+Listalla on jo entuudestaan 7 suomalaiskohdetta.
+
+Tämä oli Uutisviikko selkosuomeksi. Tavataan taas ensi viikolla.
+

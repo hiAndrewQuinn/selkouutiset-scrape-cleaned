@@ -1,0 +1,85 @@
+# Uutisviikko selkosuomeksi | sunnuntai 8.3.2026
+
+Iranin sota. Suomen ydinaselaki. Puoluekannatus. Naistenpäivä.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Iranin sota
+
+Tällä viikolla uutisissa on seurattu joka päivä Iranin sotaa.
+
+Iranin sota on jatkunut nyt yli viikon.
+
+USA kertoo, että se on iskenyt tuhansiin kohteisiin Iranissa. USA on iskenyt esimerkiksi sotilaskohteisiin ja öljylaitoksiin.
+
+Iran on tehnyt vastaiskuja naapurimaihin, joissa on USA:n tukikohtia. Iskuja on ollut jo 12 maassa Lähi-idässä.
+
+Lähi-idän maissa on noin 3000 suomalaista. Monet heistä haluavat tulla sodan takia Suomeen.
+
+Lähi-idästä on kuitenkin vaikea päästä matkustamaan pois, koska lentoliikenne ei toimi.
+
+Ulkoministeriö järjesti lentokoneen hakemaan suomalaisia, mutta lennolle mahtui vain noin 160 ihmistä.
+
+![Kartta, joka esittää Iranin ja sen ympärillä olevien alueiden jännitteitä. ](https://images.cdn.yle.fi/image/upload/c_crop,h_607,w_1080,x_0,y_206/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1772893972/39-160842269ac368017900)
+
+Avaa kuvien katselu
+
+Iranin sota on laajentununut moniin maihin Lähi-idässä. Kuva: Maiju Hakalahti / Yle, Mapcreator, OpenStreetMap
+
+## Suomen ydinaselaki
+
+Hallitus kertoi tällä viikolla, että Suomi muuttaa lakia ydinaseista.
+
+Puolustusministeri **Antti Häkkänen** kertoi, että jatkossa Suomen alueelle voidaan kuljettaa ydinase, jos sitä tarvitaan Suomen puolustamiseen.
+
+Häkkänen sanoo, että lakimuutos tarvitaan, koska Suomi on nyt Naton jäsen. Natomaissa ei yleensä ole täyttä kieltoa ydinaseille.
+
+Oppositiopuolueet ovat yllättyneet hallituksen ilmoituksesta, että ydinaseen tuonti sallitaan Suomeen. Asiaa on valmisteltu hallituksessa hiljaa.
+
+![Puolustusministeri Antti Häkkänen tiedotustilaisuudessa.](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_222/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1772728283/39-160753969a9afa830cc3)
+
+Avaa kuvien katselu
+
+Puolustusministeri Antti Häkkänen kertoi, että Suomi aikoo antaa luvan tuoda ydinaseen Suomeen, jos sitä tarvitaan Suomen puolustamiseen. Kuva: Berislav Jurišić / Yle
+
+## Puoluekannatus
+
+Yle julkaisi tällä viikolla taas puolueiden kannatuskyselyn. Yle kysyy noin kuukauden välein suomalaisilta, mitä puoluetta he kannattavat.
+
+Suosituin puolue on edelleen SDP. SDP:tä kannattaa noin 25 prosenttia suomalaisista. SDP ei ole hallituksessa.
+
+Toiseksi suosituin puolue on kokoomus. Sen kannatus on noin 18 prosenttia. Kokoomuksen kannatus on laskenut hieman helmikuusta.
+
+Kokoomus on hallituspuolue ja myös pääministeri Petteri Orpo on kokoomuksesta.
+
+Kolmanneksi suosituin puolue on hallituspuolue perussuomalaiset.
+
+Ja neljänneksi suosituin puolue on oppositiopuolue keskusta.
+
+![Ylen uusimmassa puoluekannatusmittauksessa SDP edelleen kärjessä 25,0 prosentilla ja kokoomus toisena 17,9 prosentilla. PS palasi kolmanneksi 14,9 prosentilla.](https://images.cdn.yle.fi/image/upload/c_crop,h_1080,w_1919,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1772626926/39-160659069a821c183e7d)
+
+Avaa kuvien katselu
+
+SDP on edelleen suosituin puolue. Kuva: eduskunta, Petteri Sopanen / Yle ja Silja Viitala / Yle, grafiikka: Nanna Särkkä / Yle
+
+## Kansainvälinen naistenpäivä
+
+Viikon päätteeksi on vietetty kansainvälistä naistenpäivää tänään sunnuntaina.
+
+Helsingissä järjestettiin naistenpäivän marssi. Marssille osallistui noin 20 000 ihmistä.
+
+Marssilla vaadittiin, että tasa-arvoa pitää lisätä ja että naisten, tyttöjen ja vähemmistöjen oikeuksia pitää edistää.
+
+Naistenpäivän marssin tapahtumaan osallistui myös pääministeri Petteri Orpo.
+
+Naistenpäivää on vietetty ympäri maailmaa 1900-luvun alusta lähtien. Suomessa naistenpäivä tuli kalenteriin vuonna 1990.
+
+Tämä oli uutisviikko selkosuomeksi. Tavataan taas, kuulemiin!
+
+![Suuri joukko ihmisiä marssii kadulla pidellen plakaatteja.](https://images.cdn.yle.fi/image/upload/c_crop,h_3374,w_5999,x_0,y_563/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1772977412/39-160860769ad7c91a5db8)
+
+Avaa kuvien katselu
+
+Sunnuntaina vietettiin Kansainvälistä naistenpäivää.  Kuva: Seppo Samuli / Lehtikuva

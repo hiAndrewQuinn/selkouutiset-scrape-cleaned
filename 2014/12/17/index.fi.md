@@ -1,0 +1,57 @@
+# Keskiviikko 17.12.2014
+
+Halpa rupla vetää suomalaisia Venäjälle ostoksille. Suomen taloudella menee ensi vuonna vähän paremmin kuin nyt, ministeriö ennustaa. Jopa Afganistanin Taliban-liike tuomitsee Pakistanin lasten joukkomurhan. Melkein koko Suomeen valkoinen joulu.
+
+## Halpa rupla vetää suomalaisia ostoksille
+
+![Osotoskeskus Moskovan ulkopuolella.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7694415)
+
+Avaa kuvien katselu
+
+Ruplan arvo on laskenut nopeasti. Kuva: Maxim Shipenkov / EPA
+
+Paljon suomalaisia käy nyt ostoksilla Venäjällä. Syy siihen on Venäjän rahan ruplan arvon lasku.
+
+Esimerkiksi bensa ja elektroniikka ovat Venäjällä nyt halpoja suomalaisille. Imatran raja-asemalla suomalaiset odottavat autojonossa monta tuntia, että pääsevät käymään Venäjällä.
+
+Myös venäläiset itse ostavat nyt paljon tavaroita. He uskovat, että hinnat nousevat kohta. Eurolla sai keskiviikkona noin 90 ruplaa. Viime kesänä eurolla sai 40 ruplaa.
+
+## Suomen talous kasvaa hitaasti ensi vuonna
+
+![Valtioneuvoston linna](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7302160)
+
+Avaa kuvien katselu
+
+Valtiovarainministeriö ennustaa, että talous jatkaa hidasta kasvua. Kuva: Jyki Lyytikkä / Yle
+
+Valtiovarainministeriö ennustaa, että Suomen talous kasvaa ensi vuonna hyvin hitaasti, vain vähän alle yhden prosentin. Ensi vuodesta tulee kuitenkin vähän parempi kuin tämä vuosi oli, sillä tänä vuonna Suomen talous ei kasvanut ollenkaan.
+
+Ongelmien syy on se, että myös Euroopassa ja Venäjällä menee huonosti. Siksi Euroopan maat ja Venäjä ostavat Suomesta vähemmän tuotteita kuin tavallisesti. Myös suomalaiset itse kuluttavat rahaa varovasti, koska moni pelkää, että hän jää työttömäksi.
+
+Ministeriö ennustaa, että työttömiä on ensi vuonna 8,8 prosenttia suomalaisista, eli vähän enemmän kuin nyt.
+
+## Maailma tuomitsee lasten joukkomurhan
+
+![Koulusurman surijoita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7693471)
+
+Avaa kuvien katselu
+
+Talibanin hyökkäyksessä kuoli 132 lasta ja 16 aikuista. Kuva: Shahzaib Akber / EPA
+
+Maailma tuomitsee lasten joukkomurhan, jonka Pakistanin Taliban teki tiistaina. Jopa naapurimaan Afganistanin Taliban-liike tuomitsee joukkomurhan.    
+
+Terroristit hyökkäsivät kouluun Peshawarissa Pakistanissa ja tappoivat 148 ihmistä, joista 132 oli lapsia.
+
+Afganistanin presidentti Ashraf Ghani sanoi, että lasten tappaminen on vastoin islaminuskoa. Nobelin rauhanpalkinnon saanut pakistanilainen Malala Yousafzai sanoi, että terroristit olivat järjettömiä pelkureita. Saksan liittokansleri Angela Merkel sanoi, että lasten murhaajat ovat barbaareja.    
+
+## Jouluna pakkasta ja lunta
+
+![Joulupukki aloittaa matkansa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6999831)
+
+Avaa kuvien katselu
+
+Joulupukin reki tarvitsee lunta maahan. Kuva: Yle
+
+Melkein koko Suomeen tulee valkoinen joulu, sääennuste kertoo.
+
+Tämä viikko on vielä lämmin, mutta ensi viikon alussa ilma kylmenee. Lappiin sataa viisi senttiä lunta ja Suomen etelä- ja keskiosaan kymmenen senttiä lunta juuri ennen joulua. Vain etelärannikko jää ehkä ilman lumisadetta. Lapissa on jouluna jopa 20 astetta pakkasta.

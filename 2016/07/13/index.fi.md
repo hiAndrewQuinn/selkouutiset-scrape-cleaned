@@ -1,0 +1,65 @@
+# Keskiviikko 13.7.2016 (radio)
+
+Surlähettilään ahdisteluepäily. Perussuomalaisten kansanäänestyspuheet. Theresa Maystä pääministeri. Bussisäännöt. Vanha vuoristorata.
+
+## Tukholman suurlähetystössä ahdisteluepäily
+
+![Suomen suurlähetystö Tukholmassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9021542)
+
+Avaa kuvien katselu
+
+Suomen Tukholman suurlähetystö Kuva: Wikimedia
+
+Suomen Ruotsin-suurlähettilästä epäillään seksuaalisesta häirinnästä.
+
+Epäillään että suurlähettiläs Jarmo Viinanen on ahdistellut suurlähetystön työntekijöitä ja lähetystön vieraita. Epäilystä kertoi Iltalehti. Ulkoministeri Timo Soini on vahvistanut epäilyt. Hän sanoo, että ulkoministeriö on alkanut tutkia epäilyjä.
+
+Suurlähettiläs Jarmo Viinanen aloitti tehtävässään Tukholmassa kaksi vuotta sitten. 
+
+## Kansanäänestyspuheet ärsyttävät hallituksessa
+
+![Timo Soini ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9022178)
+
+Avaa kuvien katselu
+
+Timo Soinin mukaan Perussuomalaisten keskustelu EU-kansanäänestyksestä jatkuu.  Kuva: Jaani Lampinen / Yle
+
+Hallituspuolueiden poliitikot keskustelevat Suomessa vilkkaasti siitä, onko EU-kansanäänestys Suomessa mahdollinen. Perussuomalaisten puheenjohtaja Timo Soini sanoi Porissa, että puolue jatkaa keskustelua EU-kansanäänestyksestä niin kauan kuin se haluaa. Muut hallituspuolueet ja oppositio ovat sitä mieltä, että kansanäänestyspuheet eivät ole Suomelle hyvä asia. Esimerkiksi elinkeinoministeri Olli Rehn toivoo, että keskustelu Suomen EU-erosta ei suurene.
+
+## Theresa May on Britannian uusi pääministeri
+
+![Yhdistelmäkuvassa Theresa May ja David Cameron.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9023550)
+
+Avaa kuvien katselu
+
+David Cameron jätti pääministerin tehtävän ja Theresa May otti tehtävän vastaan.  Kuva: Will Oliver ja Andy Rain / EPA
+
+Britannia saa tänään uuden pääministerin. Uusi pääministeri on 59-vuotias Theresa May. Theresa May on ollut Britannian sisäministeri jo 6 vuoden ajan.
+
+Theresa May on Britannian historian toinen nainen, josta tulee pääministeri. Ensimmäinen oli Margaret Thatcher. Thatcher oli pääministeri 11 vuoden ajan.
+
+## Linja-auton kuljettajan säännöt muuttuvat
+
+![FC Espoon C14-juniorijalkapalloilijat pelimatkalla Tampereelle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9021579)
+
+Avaa kuvien katselu
+
+Viranomaiset ovat huolissaan, huonontaako lakimuutos nuorten bussimatkojen turvallisuutta.  Kuva: Kari Ahotupa / Yle
+
+Viranomaiset varoittavat, että lasten ja nuorten turvallisuus luokkaretkillä ja urheilumatkoilla voi huonontua. Suomessa  aiotaan
+
+muuttaa lakia siitä, kuka saa ajaa bussia esimerkiksi koulun luokkaretkellä. Uuden lain mukaan lasten ja nuorten bussia saa ajaa myös henkilö, jolla ei ole bussinkuljettajan ammattikoulutusta. Kuljettajalla pitää olla vain linja-autokortti.
+
+## Linnanmäen vuoristorata on huudattanut meitä jo 65 vuotta
+
+![Linnanmäen vuoristorata](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5351224)
+
+Avaa kuvien katselu
+
+Linnanmäen vuoristo rataka on nähnyt jo monet kesät ja talvet. Siitä on tullut klassikko. Kuva: YLE
+
+Suomen tunnetuin huvipuistolaite, Linnanmäen vuoristorata täyttää tänään 65 vuotta. Kun Linnanmäen vuoristorata valmistui, se oli Pohjoismaiden suurin. Silloin se oli niin hurja, että vuoristoradan vaunujen jarrumiehiksi palkattiin armeijan lentäjiä. Jarrumies säätelee vauhtia jarrukahvasta.
+
+Linnanmäen vuoristorata on rakennettu puusta. Se tuoksuu tervalle ja natisee.
+
+Yhdysvaltalainen vuoristoratakerho on julistanut Linnanmäen vuoristoradan klassikoksi. Klassikon vaatimukset täyttää vain 40 vuoristorataa koko maailmassa.

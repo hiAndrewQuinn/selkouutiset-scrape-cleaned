@@ -1,0 +1,71 @@
+# TV | Selkouutiset | perjantai 21.11.2025
+
+Ukraina-rauhansuunnitelma. Hanasaari. Helene Schjerfbeck. Lauantain sää.
+
+## Ukraina-rauhansuunnitelma
+
+Aluksi uutinen Ukraina-rauhansuunnitelmasta.
+
+USA:n ja Venäjän Ukraina-yhteistyö on huono asia Euroopalle.  
+Näin sanovat asiantuntijat.
+
+USA ja Venäjä ovat tehneet suunnitelman, että Venäjä pääsee takaisin maailmantalouteen.
+
+Suunnitelmasta on tullut lisää tietoa julkisuuteen.
+
+Venäjän pakotteet poistetaan. Osa Ukrainan alueista jää Venäjälle. Ukraina ei saa liittyä Natoon. Sotarikokset annetaan anteeksi.
+
+USA:n ja Venäjän yhteistyö on huono asia, koska USA ohittaa Euroopan liittolaiset. Näin sanoo kansainvälisen politiikan professori **Tuomas Forsberg.**
+
+*”No täähän on ihan katastrofi. Kyllä tämä on ihan selvää, että liittolaiset jätetään maksumiehiksi tai heidän kantoja ei kuunnella ollenkaan.”*
+
+## Helsingin Hanasaari
+
+Nyt uutinen Helsingistä.
+
+Helsingin Hanasaareen tulee uutta tilaa kaupunkilaisille.
+
+Tämä on entinen voimalaitoksen alue Hanasaaressa.
+
+Alueelle rakennetaan asuntoja ja vanhaan voimalaan avataan julkisia tiloja.
+
+Yle kävi katsomassa, miltä voimalassa nyt näyttää.
+
+Tämä on vanha turbiinihalli. Tänne voidaan rakentaa esimerkiksi kulttuuritiloja ja liikuntatiloja. Päätöstä ei vielä ole.
+
+Helsingin Hanasaareen tulee uutta tilaa kaupunkilaisille.
+
+Pormestari **Daniel Sazonov** toivoo, että alueesta tulee kiinnostava kaikille ihmisille.
+
+Hanasaaren rakentaminen kestää monia vuosia.
+
+Kaupunkilaiset pääsevät alueelle ensimmäisen kerran jo ensi kesänä.
+
+## Helene Schjerfbeck
+
+Lopuksi kulttuuriuutinen.
+
+Kuuluisa suomalaistaiteilija **Helene Schjerfbeck** saa näyttelyn New Yorkiin USA:han.
+
+Tässä pakataan sinne taulua, jonka nimi on *Lehtimajanjuhla*.
+
+Schjerfbeck on ensimmäinen suomalainen taiteilija, joka saa näyttelyn The Met-taidemuseoon New Yorkissa.
+
+Siksi näyttely on merkittävä asia suomalaiselle taiteelle.
+
+Taulut kuvataan ensin ja pakataan sitten huolellisesti.
+
+Näyttelyyn lähtee noin 60 Schjerfbeckin tauluja eri museoista.
+
+Helene Schjerfbeck syntyi vuonna 1862 ja kuoli vuonna 1946.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lännestä saapuu sadealue, joka kulkee maan keskiosien yli itään.
+
+Lunta sataa Pohjois-Pohjanmaalla, Kainuussa ja Etelä-Lapissa.  
+Lauantaina päivällä etelässä ja idässä on vielä aurinkoista.
+
+Myös Pohjois-Lapissa jatkuu poutainen pakkassää.

@@ -1,0 +1,53 @@
+# TV | Selkouutiset | keskiviikko 17.12.2025
+
+Itäisen EU:n puolustus ja Suomen uudet hävittäjät. Seksuaalirikostutkinta. Susilaki. Sää.
+
+## Itäisen EU:n puolustus ja Suomen hävittäjät
+
+Aluksi Euroopan puolustuksesta.
+
+Itäiset unionin maat haluavat tiivistää yhteistyötä Venäjän uhkaa vastaan. Suomen pääministeri Petteri Orpo kutsui maiden johtajat Helsinkiin.
+
+Orpo sanoi, että Suomi ja Puola koordinoivat EU:n itäisten maiden puolustushankkeita.
+
+Samaan aikaan Suomi saa uusia hävittäjiä. Suomen ensimmäinen F-35-hävittäjä on esitelty USA:ssa Texasissa. Koneet saapuvat Suomeen vuoden kuluttua.
+
+Suomi päätti jo vuonna 2021 ostaa 64 monitoimihävittäjää USA:sta. Hankkeen kokonaisarvo on noin 10 miljardia euroa.
+
+Texasissa oli myös puolustusministeri Antti Häkkänen. Hän sanoi, että hävittäjäratkaisu on onnistunut.
+
+## Seksuaalirikoksessa jopa 900 uhria
+
+Nyt rikosuutinen.
+
+Poliisi tutkii Suomessa seksuaalirikosta, jollaista ei ole ennen nähty. Ylen tiedot kertovat, että poliisi epäilee suomalaismiestä satojen poikien hyväksikäytöstä.
+
+Poliisi kertoo, että epäilty 27-vuotias mies toimi viestisovellus Snapchatissa ja esitti siellä naista.
+
+Mies on pyytänyt lapsia tekemään erilaisia seksuaalisia tekoja ja lähettämään videot miehelle.
+
+Yksittäisiä videoita on monta kymmentä tuhatta ja uhreja yhteensä lähes 900.
+
+Ylen tiedot, kertovat, että kaikki ovat poikalapsia tai nuoria poikia. Poliisi ei kommentoi uhrien sukupuolta.
+
+Rikoskomisario, tutkinnanjohtaja Hannu Kallioniemi neuvoo lapsia ja nuoria: Älä luota kehenkään tuntemattomaan sosiaalisessa mediassa, älä lähetä kuvia.
+
+## Susilaki
+
+Lopuksi uutinen metsästyslaista.
+
+Uusi laki sallii suden metsästämisen. Eduskunta on hyväksynyt niin sanotun susilain äänin 135–35.
+
+Susi ei ole enää täysin rauhoitettu ympäri vuoden.
+
+Maa- ja metsätalousministeriö määrää nyt, kunka paljon susia saa metsästää eri alueilla.
+
+## Sää
+
+Vielä sääennuste.
+
+Huomenna sää on pilvinen. Osassa maata on sumua.
+
+Etelässä lämpötila on 0... +5 astetta.
+
+Pohjoisessa on pakkasta.

@@ -1,0 +1,73 @@
+# Perjantai 26.5.2017 (radio)
+
+Suomessa noin kuudesosa ihmisistä elää köyhyysuhan tai syrjäytymisuhan alla. Turvapaikanhakijoita käytetään ilmaisena työvoimana. Asuntojen hinnat nousevat maltillisesti. Britanniassa on pidätetty lisää ihmisiä terrori-iskun takia. Metsäpalovaroitus on voimassa suurimmassa osassa maata.
+
+## 17 prosenttia Suomessa asuvista on köyhyysuhan alla
+
+![Leipäjono.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8545878)
+
+Avaa kuvien katselu
+
+Köyhyys näkyy esimerkiksi ruokajonoissa. Kuva: Jussi Laine / Yle
+
+Suomessa noin kuudesosa ihmisistä elää köyhyysuhan tai syrjäytymisuhan alla. EU:n tilasto kertoo, että vuonna 2014 uhan alla oli Suomessa noin 900 000 ihmistä eli 17 prosenttia väestöstä.
+
+Suomessa osuus on alempi kuin Euroopan Unionin keskiarvo.
+
+Koko Euroopassa köyhyys- tai syrjäytymisriski oli suurin Makedoniassa, Serbiassa, Romaniassa ja Bulgariassa.
+
+## Turvapaikanhakijoita on töissä ilman palkkaa
+
+![Työkokeilu määritellään sopimuksessa vastaanottokeskuksen &quot;palkattomaksi vastaanottokeskuksen alaiseksi työ- ja opintotoimintaan rinnastettavaksi toiminnaksi&quot;.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9630544)
+
+Avaa kuvien katselu
+
+Eetelä-Suomen aluehallintovirasto löysi turvapaikanhakijolita sopimuksia, joissa kerrottiin palkattomasta työkokeilusta.
+
+Turvapaikanhakijoita on alettu käyttää hyväksi ilmaisena työvoimana.
+
+Aluehallintovirasto on tehnyt tarkastuksia ja löytänyt työpaikkoja, joissa turvapaikanhakijat ovat töissä ilman palkkaa. Työ on voinut kestää monta kuukautta. Viranomaiset sanovat, että tapaukset ehkä kertovat laajasta hyväksikäytöstä.
+
+Tarkastaja Katja-Pia Jenu huomasi ravintolassa Lahdessa, että kaikki työntekijät olivat vastaanottokeskuksen turvapaikanhakijoita. He olivat syksystä lähtien tehneet ravintolassa töitä ilman palkkaa.
+
+## Asuntojen hinnat nousevat maltillisesti
+
+![Asunnon pohjapiirros asuntonäytössä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9578839)
+
+Avaa kuvien katselu
+
+Asuntojen hintojen nousu on nyt maltillista. Kuva: Tiina Jutila / Yle
+
+Asuntojen hinnat nousevat tänä ja ensi vuonna keskimäärin 1,5 prosenttia. Pääkaupungissa nousua on noin 3 prosenttia.
+
+Hypoteekkiyhdistys kertoo, että hinnat nousevat maltillisesti, koska uusia asuntoja tulee lisää.
+
+Kova kysyntä näkyy kuitenkin siinä, että kasvukeskuksissa hinnoista ei enää voi tinkiä yhtä paljon kuin ennen.
+
+## Terroritutkimukset jatkuvat Britanniassa
+
+![Poliisi on jatkanut Manchesterin iskuun liittyviä etsintöjä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9632270)
+
+Avaa kuvien katselu
+
+Poliisi on jatkanut Manchesterin iskuun liittyviä etsintöjä. Kuva: Dave Warren / AOP
+
+Britanniassa poliisi on tehnyt Manchesterissa uuden pidätyksen maanantaisen terrori-iskun takia. Poliisi on pidättänyt tutkinnassa nyt yhteensä 10 ihmistä.
+
+Poliisin pommiryhmä on tutkinut rakennusta Manchesterin lähellä Wiganin kaupungissa. Läheiset asuinrakennukset evakuoitiin, mutta myöhemmin asukkaat saivat palata kotiin.
+
+Britannia on vahvistanut turvatoimia junissa terroriuhkan takia.
+
+## Nyt on hyvin kuivaa
+
+![Varoituskartta 26. toukokuuta. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9633134)
+
+Avaa kuvien katselu
+
+Vain maan koilliskulmalla ei ole metsäpalovaroitusta. Kuva: Yle
+
+Lähes koko maassa on nyt hyvin kuivaa. Ilmatieteen laitos kertoo, että varoitus metsäpaloista ja ruohikkopaloista on voimassa lähes koko maassa.
+
+Metsäpalovaroituksen aikana avotulen teko on kielletty. Pelastuslaitos sanoo, että risuja ja roskia ei saa polttaa, ennen kuin kuivuus loppuu. Esimerkiksi Pirkanmaalla on palanut metsää tai maastoa joka päivä.
+
+Maan etelä- ja keskiosissa sekä Lapissa on satanut tässä kuussa poikkeuksellisen vähän. Lapissa lumi on jo sulanut aurinkoisilta paikoilta. Lumen alta on paljastunut kuivaa ruohikkoa, joka syttyy herkästi.

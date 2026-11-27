@@ -1,0 +1,66 @@
+# TV \| Selkouutiset \| torstai 6.6.2024
+
+Eurovaalikannatus. Alkoholilaki. Naton pääsihteeri.
+
+## Puolueiden eurovaalikannatus
+
+Aluksi uutinen politiikasta.
+
+Yle on kysynyt suomalaisilta, mitä puoluetta he kannattavat eurovaaleissa.
+
+Suosituin puolue on Kokoomus, jota kannattaa yli 20 prosenttia suomalaisista.
+
+Toiseksi suosituin puolue on SDP, jota kannattaa yli 19 prosenttia suomalaisista.
+
+Kolmanneksi suosituin puolue on perussuomalaiset, jota kannattaa yli 16 prosenttia suomalaisista.
+
+Yle on kysynyt suomalaisilta, mitä puoluetta he kannattavat eurovaaleissa.
+
+Vastauksista voidaan päätellä, että kokoomus, SDP ja perussuomalaiset saavat europarlamenttiin 1 edustajan lisää. Myös vasemmistoliitto saa ehkä 1 paikan lisää.
+
+Vastauksista voidaan päätellä, että vihreät menettää 2 paikkaa ja RKP menettää paikan eli RKP jää ilman euroedustajaa.
+
+Eurovaalien vaalipäivä on Suomessa ensi sunnuntaina.
+
+## Alkoholilaki
+
+Nyt uutinen alkoholilaista.
+
+Eduskunta on hyväksynyt alkoholilain muutoksen.
+
+Muutosta kannatti 102 kansanedustajaa ja sitä vastusti 80 kansanedustajaa.
+
+Uusi laki tuo kauppoihin vahvempia oluita ja siidereitä kuin aiemmin.
+
+Hallituspuolue kristillisdemokraatit äänesti uutta lakia vastaan. Kristillisdemokraatit ei tykkää, että alkoholin myyntiä helpotetaan.
+
+Eduskunta on hyväksynyt alkoholilain muutoksen.
+
+Jatkossa kaupoissa saa myydä juomia, joiden alkoholipitoisuus on jopa 8 prosenttia. Vanha raja on on 5,5 prosenttia.
+
+Muutos koskee oluita, siidereitä ja viinejä. Muutos ei koske juomasekoituksia kuten esimerkiksi lonkeroa.
+
+Laki tulee voimaan ehkä jo lähipäivinä.
+
+## Naton pääsihteerin vierailu
+
+Lopuksi uutinen Naton pääsihteerin vierailusta Suomessa.
+
+Naton pääsihteeri **Jens Stoltenberg** saapui vierailulle Suomeen keskiviikkona.
+
+Presidentti **Alexader Stubb** otti Stoltenbergin vastaan presidentin virka-asunnolla Helsingissä.
+
+Stoltenberg vierailu on ensimmäinen Suomen Nato-jäsenyyden aikana.
+
+Naton pääsihteeri Jens Stoltenberg on vieraillut Suomessa.
+
+Tänään torstaina Stoltenberg on tavannut Suomen sotilasjohtoa. Stoltenberg ja presidentti Stubb pitivät myös yhteisen lehdistötilaisuuden.
+
+## Sää
+
+Vielä sääennuste.
+
+Helteet päättyvät. Sadekuuroja tulee eri puolilla Suomea, etelässä voi myös ukkostaa.
+
+Paikoin on myös aurinkoista.
+

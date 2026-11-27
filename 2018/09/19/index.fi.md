@@ -1,0 +1,63 @@
+# Keskiviikko 19.9.2018 (radio)
+
+Danske Bank sotkeutui rahanpesuskandaaliin. Vaihdevuosilla on iso vaikutus naisten hyvinvointiin. Suomen metsissä voi piilotella paljon tuntemattomia sienilajeja. Suomalaisten suosimiin urheilulajeihin voi nyt tutustua selkokielellä.
+
+## Danske Bank
+
+![Thomas Borgen tiedotustilaisuudessa Kööpenhaminassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10412373)
+
+Avaa kuvien katselu
+
+Danske Bankin pääjohtaja Thomas Borgen. Kuva: Liselotte Sabroe / EPA
+
+Suomen kolmanneksi suurin pankki Danske Bank on joutunut keskelle vakavaa kriisiä. Danske Bankin pääjohtaja Thomas Borgen eroaa virastaan rahanpesuskandaalin takia.
+
+Danske Bankin Viron-yksikköä epäillään rahanpesusta eli laittomista rahansiirroista. Epäilyttävän rahaliikenteen kokonaismäärä on 200 miljardia euroa.
+
+Epäillään, että rahanpesu tapahtui vuosien 2007 ja 2015 välillä.
+
+## Vaihdevuodet
+
+![keski-ikäinen nainen juoksee](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9671799)
+
+Avaa kuvien katselu
+
+Vaihdevuosina kannattaa lisätä liikunnan määrää. Kuva: AOP
+
+Vaihdevuosilla on isompi vaikutus naisten hyvinvointiin kuin aikaisemmin on tiedetty.
+
+Naisen vaihdevuodet eli menopaussi voi alkaa noin 50-vuotiaana. Vaihdevuodet alkavat, kun naisen kuukautiskierto loppuu ja estrogeeni-hormonin tuotanto vähenee.
+
+Aiemmin on jo tiedetty, että vaihdevuodet nopeuttavat luuston haurastumista eli osteoporoosia. 
+
+Nyt uusi tutkimus osoittaa, että vaihdevuosien aikana naisten lihakset muuttuvat pienemmiksi ja heikommiksi. Samalla rasvan määrä kehossa lisääntyy, jos ei aloiteta vastatoimia eli lisätä liikunnan määrää. Monet naiset kuitenkin vähentävät liikuntaa, kun vaihdevuodet alkavat.
+
+Jyväskylän yliopiston tutkimuksessa oli mukana noin 1000 vaihdevuosi-ikäistä naista.
+
+## Sienet
+
+![Yksinäinen haaparousku metsässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8246682)
+
+Avaa kuvien katselu
+
+Haaparousku Kuva: Marja Roiha / Yle
+
+Metsissä saattaa olla paljon sienilajia, joita ei ole vielä lainkaan löydetty. Tällaisia tuntemattomia sienilajeja voi olla jopa tuhat, sanoo Luonnontieteellisen keskusmuseon suunnittelija Tea von Bonsdorff.
+
+Tutkijat ovat tähän mennessä tunnistaneet Suomesta noin 2000 sienilajia, jotka kaikki voi nähdä paljain silmin. Lisäksi tiede tuntee tuhansia suomalaisia sieniä, jotka ovat hyvin pieniä tai jopa mikroskooppisen pieniä.
+
+Parhaillaan kerätään sieniharrastajien avulla verkossa uutta tietoa sienistä. Sieniatlakseen on tullut jo yli 18 000 havaintoa melkein 2000 lajista.
+
+## Suomi urheilee
+
+![Pelajaat suossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7361714)
+
+Avaa kuvien katselu
+
+Suomessa pelataan suopotkupalloa. Kuva: Kaisu Jansson / Yle
+
+Oletko kiinnostunut urheilusta? Urheilumuseo on tehnyt selkokielisiä nettivideoita, jotka esittelevät urheilulajeja. Videoiden teema on Suomi urheilee.
+
+Videot kertovat esimerkiksi pesäpallosta ja jääkiekosta, eukonkannosta ja suopotkupallosta. Videoissa kerrotaan myös olympiakisoista, jotka järjestettiin Helsingissä vuonna 1952.
+
+Urheilumuseon videot löytyvät osoitteesta tarinasoitin.fi/suomiurheilee.

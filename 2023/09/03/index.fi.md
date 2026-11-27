@@ -1,0 +1,81 @@
+# Radio. Selkouutiset. Sunnuntai 3.9.2023
+
+Mielenosoitus rasismia vastaan. Rakennusalan ongelmat. Mikkelin piispa. Jänisten sairaus. Sää.
+
+## Mielenosoitus rasismia vastaan
+
+![Mielenosoittajia Töölönlahden tapahtumapuistossa kuuntelemassa puheita ja musiikkia.](https://img.img-cdn.yle.fi/crop_extract,w_5496,h_3091,x_0,y_272/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116690064f49c4e400d1/1693752451)
+
+Avaa kuvien katselu
+
+Mielenosoitus oli rauhallinen, vaikka mukana oli paljon ihmisiä. Kuva: Jaani Lampinen / Yle
+
+Helsingissä on ollut iso mielenosoitus rasismia vastaan. Mielenosoitukseen osallistui noin 10 000 ihmistä.
+
+Mielenosoitus sujui rauhallisesti. Ohjelmassa oli puheita ja musiikkia.
+
+Monet mielenosoittajat olivat vihaisia Suomen uudelle hallitukselle. Suomessa on puhuttu paljon joidenkin perussuomalaisten ministerien vanhoista rasistisista kirjoituksista.
+
+Mielenosoittajat sanoivat, että hallituksen pitää turvata kaikkien tasa-arvo. He muistuttivat, että ihmisoikeudet kuuluvat kaikille.
+
+## Rakennusalan ongelmat
+
+![Kaksi rakennusalan työntekijää pitävät taukoa työmaalla.](https://img.img-cdn.yle.fi/crop_extract,w_5987,h_3361,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1100831643ead140e6b5/1733984110)
+
+Avaa kuvien katselu
+
+Uusia rakennustyömaita avataan nyt vähän. Kuva: Henrietta Hassinen / Yle
+
+Rakennusalalla menee huonosti. Uusien asuntojen rakentaminen on vähentynyt.
+
+Asuntoja rakennetaan vähemmän, koska myös asunnon ostajia on vähemmän kuin ennen.
+
+Ihmisillä ei ole rahaa ostaa uutta asuntoa, koska monet hinnat ovat nousseet ja elämä on kallista. Myös asuntolaina tulee kalliiksi, koska korot ovat nousseet.
+
+Rakennusala arvioi, että konkurssit lisääntyvät ja monien rakennusfirmojen pitää lopettaa toiminta. Jos rakennusala hiljenee, koko Suomen talous kärsii.
+
+## Mikkelin uusi piispa
+
+![Piispa, entinen kirkkoherra Mari Parkkinen hymyilee Imatran kirkon edustalla. Taivas on pilvinen, taustalla puut vielä vihertää kesän lopulla..](https://img.img-cdn.yle.fi/crop_extract,w_4028,h_2265,x_4,y_595/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116422664edf5c8f09af/1693316839)
+
+Avaa kuvien katselu
+
+Mikkelin piispa Mari Parkkinen. Kuva: Henni Jokinen / Yle
+
+Mari Parkkinen on vihitty piispan tehtävään Mikkelin tuomiokirkossa. Parkkinen on Mikkelin hiippakunnan uusi piispa.
+
+Piispa johtaa kirkon työtä hiippakunnan alueella. Suomen luterilaisella kirkolla on 9 piispaa, joista 3 on nyt naisia.
+
+Lisäksi Suomen luterilaisella kirkolla on arkkipiispa, joka johtaa koko kirkon toimintaa.
+
+## Vakava sairaus jäniksillä
+
+![Kuollut jäniksen poikanen makaa maassa portaiden vieressä.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98460962d90637e22d8/1658390151)
+
+Avaa kuvien katselu
+
+Kuollut jäniksen poikanen. Kuva: Risto Koskinen / Yle
+
+Suomessa on kuollut jäniksiä kokkidioosi-sairauteen. Kokkidioosi ei tartu ihmisiin.
+
+Sairaus tarttuu eläimiin ulosteen kautta. Kokkidioosi tappaa aina jäniksen, joka saa tartunnan.
+
+Kokkidioosi on tappanut jäniksiä tänä kesänä erityisesti Kuopion seudulla.
+
+Ennen kuin jänis kuolee, se huutaa, makaa maassa ja heiluttaa jalkoja. Monet ihmiset ovat järkyttyneet, kun he ovat nähneet jäniksen kuoleman.
+
+Soitto hätäkeskukseen on paras ratkaisu, jos ihminen näkee sairaan jäniksen, joka kärsii. Kuolleen jäniksen voi panna kahteen muovipussiin ja sitten sekajätteeseen.
+
+## Sää
+
+![Alkuviikon sääkartat 4.9. - 6.9. Viikon edetessä sää poutaantuu koko maassa. ](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-116687664f483b43be7f/1693746143)
+
+Avaa kuvien katselu
+
+Kuva: Matti Huutonen / Yle
+
+Uusi viikko alkaa Etelä-Suomessa poutaisena, eli vesisateet loppuvat.
+
+Pohjois-Suomessa saadaan sateita vielä maanantaina, ja tiistaina sateita tulee maan keskiosissa. Sen jälkeen koko maassa on poutaa, ja myös aurinko paistaa suuressa osassa maata.
+
+Lämpötila on alkuviikon aikana 15 ja 20 asteen välillä. Lapissa on vähän kylmempää.

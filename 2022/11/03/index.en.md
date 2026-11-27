@@ -1,0 +1,73 @@
+# Thursday 3.11.2022 (radio)
+
+The government has presented the effects of Finland's NATO membership. Hungary's government takes Finland's NATO membership to parliament. SDP support has fallen. Forests are being protected more than before. The weather is cloudy.
+
+## The government's NATO proposal
+
+![Pekka Haavisto.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_228/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1028538636268a15dabc/1667394072)
+
+Open image viewer
+
+Foreign Minister Pekka Haavisto. Photo: Sakari Piippo / Yle
+
+The government has given a proposal that explains in what different ways membership of the NATO defence alliance affects Finland.
+
+The government's proposal says that Finland's NATO membership will increase security in the Baltic Sea region. NATO membership will cost Finland about 27 million euros a year at first. Later, NATO membership will cost more.
+
+The government's proposal does not say whether nuclear weapons will come to Finland. However, Foreign Minister Pekka Haavisto says that Finland is not seeking nuclear weapons.
+
+Parliament will later deal with the government's proposal on Finland's NATO membership.
+
+Turkey and Hungary have not yet approved Finland's NATO membership.
+
+## Finland's NATO membership in the Hungarian parliament
+
+![NATO flag at the NATO calculator 28/30.](https://img.img-cdn.yle.fi/crop_extract,w_1917,h_1076,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-97277162b16bd0056f0/1665037785)
+
+Open image viewer
+
+Photo: Eetu-Mikko Pietarinen / Yle
+
+The Hungarian Foreign Minister says that the Hungarian government has given parliament a proposal on Finland's and Sweden's NATO membership. The Hungarian parliament decides when it will discuss Finland's and Sweden's NATO membership.
+
+President Sauli Niinistö believes that Hungary will approve Finland's membership. Niinistö said on Wednesday that Finland can trust Hungary on the NATO matter.
+
+## Party support
+
+![Party support in October](https://img.img-cdn.yle.fi/crop_extract,w_1917,h_1078,x_2,y_152/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1028463636257ff05f4d/1667393016)
+
+Open image viewer
+
+Party support in October. Photo: Eetu Pietarinen
+
+Yle has published a new survey of party support.
+
+The support of the SDP has fallen by more than one percentage point. The SDP is the party of Prime Minister Sanna Marin. The support of the Greens, the Centre and the RKP has risen.
+
+The National Coalition Party is clearly the most popular party. The support of the opposition National Coalition Party, however, fell a little. The SDP is in second place in support.
+
+In third place is the opposition party, the Finns Party. The support of the Finns Party also fell a little.
+
+## Protecting forests
+
+![Autumn colours in Nuuksio National Park.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_152/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1010737632acf09d6b80/1700158732)
+
+Open image viewer
+
+Photo from Nuuksio National Park. Photo: Mårten Lampén / Yle
+
+Forests are being protected in Finland more than before. The Natural Resources Institute says that protected forests make up 13 percent of all Finland's forests. However, part of the protected forest is such that no large trees grow in it.
+
+About 75 percent of protected forests are in Lapland, North Ostrobothnia and Kainuu.
+
+Once a forest is protected, trees may not be felled there.
+
+## Weather
+
+![Autumn evening photo of the Aura river, with the lights of a restaurant reflected in it.](https://img.img-cdn.yle.fi/crop_extract,w_4071,h_2289,x_0,y_957/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-101941963454c7ba6c18/1665547818)
+
+Open image viewer
+
+Photo: Linus Hoffman / Yle
+
+On Friday the weather is mostly cloudy. In northern Finland it may rain a little. The temperature is mostly between +5 and +10 degrees. In the east and north the weather is cooler in places.

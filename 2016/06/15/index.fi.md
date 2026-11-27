@@ -1,0 +1,73 @@
+# Keskiviikko 15.6.2016 (radio)
+
+Alexander Stubb ei jatka ministerinä. Wärtsilä vähentää työntekijöitä. Zikavirus ei estä Rion olympiakisoja. Helsingin Kumpulassa on kesällä viljelyleiri lapsille. Kahvi ei aiheuta syöpää.
+
+## Stubb lopettaa ministerin työt
+
+![Alexander Stubb](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8958641)
+
+Avaa kuvien katselu
+
+Stubb kertoi suunnitelmistaan toimittajille Helsingissä. Kuva: Jaani Lampinen / Yle
+
+Kokoomuksen entinen puoluejohtaja Alexander Stubb on kertonut suunnitelmistaan. Stubb ei jatka ministerinä.
+
+Stubb on nyt valtiovarainministeri eli rahaministeri, mutta se työ hänen täytyy lopettaa ensi viikolla. Uusi rahaministeri on Petteri Orpo. Orpo voitti viime viikonloppuna Stubbin kokoomuksen puoluejohtajanvaalissa. Orpo tarjosi Stubbille toista ministerinpaikkaa, mutta Stubb ei sitä halunnut.
+
+Stubb aikoo jatkaa kansanedustajana eduskunnassa eli Suomen parlamentissa.
+
+## Wärtsilä lopettaa työpaikkoja
+
+![logo talon katolla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8724942)
+
+Avaa kuvien katselu
+
+Wärtsilä on suuri suomalainen firma. Kuva: Markku Ojala / AOP
+
+Suomalainen firma Wärtsilä vähentää työntekijöitä. Suomesta loppuu yli 180 työpaikkaa. Se on kuitenkin vähemmän kuin pelättiin.
+
+Wärtsilä valmistaa esimerkiksi suurten laivojen moottoreita. Wärtsilä sanoo, että laivojen moottoreita ostetaan vähemmän kuin ennen, koska uusia laivoja rakennetaan maailmalla nyt vähän. Siksi Wärtsilä haluaa vähentää työpaikkoja.
+
+Uutinen on huono Wärtsilän työntekijöille Vaasassa. Siellä on suurin osa työpaikoista, jotka Wärtsilä lopettaa.
+
+## Zikavirus ei estä olympiakisoja
+
+![Moskiitto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8643881)
+
+Avaa kuvien katselu
+
+Ihminen voi saada zikaviruksen hyttysen pistosta. Kuva: Esteban Biba / EPA
+
+Maailman terveysjärjestö eli WHO sanoo, että zikavirus ei estä Rion olympiakisoja. Olympiakisat voidaan järjestää Brasilian Riossa elokuussa.
+
+Brasiliassa yli 1000 lasta on syntynyt sairaana, koska äiti on saanut odotusaikana zikaviruksen. Vauvoilla on zikaviruksen takia pieni pää.
+
+Ihminen saa zikaviruksen hyttysestä. Maailman terveysjärjestö sanoo, että zikavirus ei nyt leviä kovin helposti. Riossa kuivataan vesiä, joissa hyttyset kasvavat. Hyttysiä on vähemmän myös siksi, että Brasiliassa ei ole nyt kovin kuuma vuodenaika.
+
+## Viljelyleiri lapsille
+
+![Valentin Kreps, Taika Vasama, Elsa Schröder ja Maya Peltola Kumpulan koulukasvitarhan viljelyleirillä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8948534)
+
+Avaa kuvien katselu
+
+Valentin Kreps, Taika Vasama, Elsa Schröder ja Maya Peltola osallistuivat Kumpulan viljelyleirille. Kuva: Jyrki Lyytikkä / Yle
+
+Helsingin Kumpulassa on kesällä viljelyleiri lapsille. Leirillä lapset viljelevät ruokaa. He kasvattavat esimerkiksi salaattia.
+
+Leiriläinen Elsa Schröder sanoo, että on kiva syödä ruokaa, jonka on itse kasvattanut.
+
+Leiri on tärkeä lapsille, jotka asuvat kaupungissa. Monet viettävät kaupungissa paljon aikaa sisällä, eivätkä tunne luontoa.
+
+## Kahvi ei aiheuta syöpää
+
+![Kirja ja kahvikuppi pöydällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7333655)
+
+Avaa kuvien katselu
+
+Vaaraton kesäilo. Kuva: Augustina Jämsä / Yle
+
+Vielä hyvä uutinen kahvin ystäville. Kahvi ei aiheuta syöpää.
+
+Maailman terveysjärjestö WHO on ottanut kahvin pois listalta, jolla on aineita, jotka ehkä aiheuttavat syöpää. WHO sanoo, että ei ole todisteita siitä, että kahvi voi olla syy syöpäsairauteen.
+
+On kuitenkin mahdollista, että tosi kuuma juoma voi olla epäterveellistä. Jos joku juoma polttaa kurkkua, se ehkä aiheuttaa syöpää.

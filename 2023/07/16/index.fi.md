@@ -1,0 +1,73 @@
+# Radio Selkouutiset sunnuntai 16.7.2023
+
+Maastopalo. Kuumuus. Lento-onnettomuus. Häiriökäytös reittilennoilla. Sää.
+
+## La Palman maastopalo
+
+![Metsäpalo](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_625/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114335864b3e073b1b61/1707369628)
+
+Avaa kuvien katselu
+
+Kanariansaarilla La Palman saarella on iso maastopalo. Kuva: Fernando Astasio / AOP
+
+Espanjan Kanariansaarilla La Palman saarella on iso maastopalo. Ainakin 4 000 ihmistä on lähtenyt pois kotoa maastopalon tieltä. Maastopalo syttyi aikaisin lauantaina La Palman saaren pohjoisosassa.
+
+Tulipalo on tuhonnut yli 4500 hehtaaria maata. Viranomaiset kertovat, että maastopalo leviää uusille alueille.
+
+Kanariansaarilla on ollut tällä viikolla tosi kuuma. Puntagornan alueella mitattiin tällä viikolla jopa 40,6 astetta.
+
+## Helteet USA:ssa ja Euroopassa
+
+![Nainen viuhka kädessään kaupan edustalla esillä olevien hattujen luona.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1992,x_0,y_224/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114237564b01b8af2cf6/1689263135)
+
+Avaa kuvien katselu
+
+Nainen vilvoitteli viuhkan avulla Ateenassa 13.7.2023. Kuva: Orestis Panagiotou / EPA
+
+Myös USA:ssa sää on kuuma.
+
+Kalifornian Kuolemanlaaksossa lämpötila on sunnuntaina ehkä jopa 54 astetta. Koko maapallon mittaushistorian ennätys on 56,7 astetta. Lämpötila mitattiin Kuolemanlaaksossa vuonna 1913.
+
+Euroopassa korkeita lämpötiloja ennustetaan alkuviikolla Italiaan, Espanjaan ja Kreikkaan.
+
+Sardinian saarella lämmintä voi olla ensi viikolla jopa 48 astetta. Italian viranomainen varoitti viikonloppuna kuumasta säästä 16 kaupunkia. Hellevaroitus annettiin esimerkiksi Roomaan, Bolognaan ja Firenzeen.
+
+## Kouvolan lento-onnettomuus
+
+![Lentokone syöksyy kierteellä kohti maata. Alhalla pienkoneita ja ihmisiä katsomassa taivaalle.](https://img.img-cdn.yle.fi/crop_extract,w_950,h_534,x_0,y_29/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114336764b3e447c0465/1689512284)
+
+Avaa kuvien katselu
+
+Lentäjä kuoli taitolentonäytöksessä Kouvolassa 16.7.23. Kuva: Sara Ylönen / yleisökuva Kuva: Sara Ylönen / yleisökuva
+
+Kouvolassa tapahtui lento-onnettomuus, jossa 1 ihminen kuoli. Taitolentokoneen lentäjä kuoli, kun kone putosi sunnuntaina iltapäivällä metsään lentokentän lähellä.
+
+Lentokentällä oli taitolentotapahtuma. Poliisi tutkii onnettomuuden syytä.
+
+## Häiriökäytös reittilennoilla
+
+![Lentokone pimeässä illassa, taustalla Rovaniemi-kyltti.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_740/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107340463ed41af0d8ac/1676493695)
+
+Avaa kuvien katselu
+
+Ihmiset käyttäytyvät lentokoneessa huonommin kuin aikaisemmin. Kuvituskuva. Kuva: Vesa-Pekka Hiltunen / Yle
+
+Ihmiset käyttäytyvät lentokoneessa huonommin kuin aikaisemmin.
+
+Viime vuonna reittilennoilla oli erilaista huonoa käytöstä 37 prosenttia enemmän kuin vuotta aikaisemmin. Tilastojen mukaan noin joka 600. lennolla oli joku välikohtaus.
+
+Ihmiset eivät noudattaneet sääntöjä. Lisäksi matkustajat käyttivät sanallista väkivaltaa ja olivat liian humalassa.
+
+## Sää
+
+![Kuoppainen soratie, vettä sataa.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_80/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6952385efc60e31b4ed/1593598774)
+
+Avaa kuvien katselu
+
+Sää on paikoin sateinen. Kuvituskuva. Kuva: Petri Aaltonen / Yle
+
+Sää on maanantaina paikoin sateinen. Maanantaina aamulla vettä sataa paikoin itärajan lähellä. Lapissa ja Pohjois-Pohjanmaalla tulee sadekuuroja.
+
+Lämpötila on yöllä 9 ja 15 asteen välillä. Maanantaina päivällä lämpötila on enimmäkseen 20 ja 26 asteen välillä.
+
+Myöhemmin ensi viikolla sää on viileämpää kuin nyt. Monin paikoin sataa myös vettä.

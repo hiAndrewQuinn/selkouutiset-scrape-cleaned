@@ -1,0 +1,89 @@
+# Keskiviikko 24.5.2017 (radio)
+
+Irakilaisveljesten joukkomurhasyytteet hylättiin. Manchesterin pommi-iskusta pidätyksiä. Ulkomaille muuttanut paljon suomalaisia. Suklaa maistuu suomalaisille. Presidentti Koiviston hautajaiset pidetään helatorstaina.
+
+## Irakilaisveljekset vapautettiin joukkomurhasyytteistä
+
+![Terroristiepäillyn vangitsemisoikeudenkäynti Tampereella](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8521822)
+
+Avaa kuvien katselu
+
+Irakilaismiehen vangitsemisoikeudenkäynti oli Tampereella joulukuussa 2015. Nyt mies ja hänen vejensä on vapautettu.  Kuva: Leena Peltokangas / Yle
+
+Pirkanmaan käräjäoikeus ei tuominnut irakilaisia veljeksiä, joita syytettiin joukkomurhasta. Miehet on vapautettu.
+
+Syyttäjä vaati oikeudessa, että veljekset pitää tuomita elinkautiseen vankeuteen joukkomurhasta, joka tehtiin Irakissa vuonna 2014.
+
+Syyttäjän mukaan veljekset osallistuivat joukkomurhaan. Veljekset tulivat Suomeen syyskuussa 2015, ja poliisi pidätti heidät joulukuussa. 
+
+## Manchesterin iskun takia tehty pidätyksiä
+
+![Kaksi poliisia kävelee kadulla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9628954)
+
+Avaa kuvien katselu
+
+Manchesterin kaduilla on paljon aseistettuja poliiseja pommi-iskun jälkeen. Kuva: Andy Rain / EPA
+
+Britannian poliisi on pidättänyt joitakin ihmisiä Manchesterin pommi-iskun takia. Poliisi epäilee, että he liittyvät pommi-iskuun. Pommi-iskun tekijä kuoli iskussa.
+
+Britannia on nostanut terrorismin uhkatasoa Manchesterin iskun jälkeen. Se on nyt korkein mahdollinen eli uusi terrori-isku voi tapahtua milloin tahansa.
+
+Myös Suomen ulkoministeriö sanoo, että Britanniassa pitää olla varovainen, vaikka Britannia on yhä melko turvallinen maa matkailijoille.
+
+Pommi-isku tehtiin maanantai-iltana Manchester Arenassa, jossa oli konsertti. Konsertissa oli paljon lapsia ja nuoria. Iskussa kuoli yli 20 ihmistä ja kymmeniä loukkaantui. Osa ihmisistä loukkaantui vakavasti.
+
+## Monissa ulkomaan kaupungeissa on tuhansia suomalaisia
+
+![Suomi-imperiumi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9627774)
+
+Avaa kuvien katselu
+
+Suomalaiset ovat muuttaneet ulkomaille mm. työn, lämmön ja rakkauden perässä. Kuva: Henna Ryynänen
+
+Ulkomailla on paljon kaupunkeja, joissa asuu tuhansia suomalaisia.
+
+Eniten suomalaisia asuu Ruotsissa. Tukholmassa asuu 46 000 suomalaista ja Göteborgissa 18 000 suomalaista.
+
+1900-luvulla monet suomalaiset muuttivat ulkomaille, koska heidän piti saada työtä.
+
+Nykyään moni suomalainen muuttaa ulkomaille myös auringon ja lämmön takia. Esimerkiksi Espanjan aurinkorannikolla asuu yli 20 000 suomalaista.
+
+## Suklaa maistuu suomalaisille
+
+![Kuvassa kaupan karkkihylly, jossa näkyy suklaata ja karkkipusseja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8790037)
+
+Avaa kuvien katselu
+
+Kaupan karkkihyllyn suosikkituote on suklaa. Kuva: Jarmo Nuotio / Yle
+
+Suomalaiset syövät aiempaa enemmän karkkia.
+
+Kaupat kertovat, että karkin myynti on lisääntynyt alkuvuonna.
+
+Karkit ovat nyt halpoja, koska niistä ei makseta enää veroa. 
+
+Suomalaisten suosikkikarkki on suklaa, kertovat kaupat.
+
+Kaikki viisi suosituinta karkkia ovat suklaata.
+
+## Presidentti Koivisto haudataan helatorstaina
+
+![Presidentti Mauno Koivisto hymyilee.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9630935)
+
+Avaa kuvien katselu
+
+Presidentti Mauno Koivisto vuonna 2003. Kuva: Mauri Ratilainen / AOP
+
+Presidentti Mauno Koiviston hautajaiset ovat torstaina Helsingissä.
+
+Presidentin hautajaiset ovat suuri tapahtuma. Helsingissä on torstaina paljon poliiseja, ja katuja on suljettu.
+
+Hautajaissaattuetta voi seurata jopa 100 000 ihmistä.
+
+Saattue kuljettaa presidentin arkkua. Saattue lähtee liikkeelle Helsingin Tuomiokirkosta.
+
+Presidentti Mauno Koivisto haudataan Hietaniemen hautausmaalle.
+
+Hautajaisia voi seurata TV1:stä ja Ylen nettisivuilta.
+
+Mauno Koivisto oli Suomen tasavallan presidentti vuodesta 1982 vuoteen 1994. Hän kuoli 93-vuotiaana.

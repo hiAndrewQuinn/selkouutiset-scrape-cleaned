@@ -1,0 +1,79 @@
+# Maanantai 20.12.2021 (radio)
+
+Koronatartunnat. Koronatoimet. Korkeakoulujen aloituspaikat. Folkhälsanin ruotsin kurssi. Sääennuste.
+
+## Koronatartunnat
+
+![Turun yliopistollisen keskussairaalan tehohoito-osaston valvontanäyttö.](https://img.img-cdn.yle.fi/crop_extract,w_4927,h_2771,x_0,y_402/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89224661b9a74dd13f2/1639732039)
+
+Avaa kuvien katselu
+
+Tehohoidossa on nyt paljon koronapotilaita. Kuva: Arash Matin / Yle
+
+Koronatartunnat lisääntyvät nyt nopeasti. Viikonlopun aikana uusia koronatartuntoja on tullut melkein 6000.
+
+Myös koronapotilaiden määrä tehohoidossa kasvaa. Tehohoidossa on noin 60 koronapotilasta.
+
+Tehohoito vaatii paljon hoitajia ja laitteita. Tehohoitolääkärit ovat huolissaan siitä, kuinka kauan tehohoitopaikat vielä riittävät.
+
+Myös koronakuolemien määrä kasvaa. Viikonlopun aikana noin 40 ihmistä on kuollut koronan takia.
+
+## Koronatoimet
+
+![Joukko nuoria antaa toisillee yläfemmoja bingoiilllassa Ravintola Oivassa.](https://img.img-cdn.yle.fi/crop_extract,w_4488,h_2524,x_0,y_231/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4905865b16547794f70/1528190815)
+
+Avaa kuvien katselu
+
+Tutkijat pelkäävät, että koronaviruksen omikron-muunnos leviää ravintoloissa. Kuva: Ilkka Klemola / Yle
+
+Joukko tutkijoita vaatii hallitukselta voimakkaampia koronatoimia. Tutkijat toivovat esimerkiksi, että ravintolat suljetaan joksikin aikaa.
+
+Tutkijoita huolestuttaa koronaviruksen omikron-muunnos. Omikron-muunnoksen takia korona leviää taas nopeasti monissa maissa. Tutkijat haluavat hidastaa omikronin leviämistä Suomessa.
+
+## Korkeakoulujen aloituspaikat
+
+![antti kurvinen tulossa tiedotustilaisuuteen, maski kasvoilla](https://img.img-cdn.yle.fi/crop_extract,w_1918,h_1076,x_0,y_36/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89430861c04c57d686a/1641818146)
+
+Avaa kuvien katselu
+
+Ministeri Antti Kurvinen kertoi korkeakoulujen uusista aloituspaikoista maanantaina. Kuva: Jussi Nukari / Lehtikuva
+
+Korkeakouluihin tulee uusia aloituspaikkoja. Uusia aloituspaikkoja on ensi vuonna noin 2300.
+
+Opiskelijoita otetaan lisää aloille, joilla tarvitaan lisää työntekijöitä.
+
+Ministeri Antti Kurvinen kertoi manantaina, että uusia aloituspaikkoja tulee erityisesti sosiaali- ja terveysalan opintoihin. Myös tekniikan ja tietoliikenteen opintojen aloituspaikkoja lisätään.
+
+Yksi syy uusiin aloituspaikkoihin on se, että hallitus haluaa parantaa suomalaisten osaamista. Siksi koulutustasoa pitää nostaa.
+
+## Folkhälsanin kurssi
+
+![Ihmisiä kielikurssilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12240398)
+
+Avaa kuvien katselu
+
+Tässä harjoitellaan työtä terveyskeskuksessa ruotsin kielellä. Kuva: Yle
+
+Folkhälsan järjestää ruotsin kielen opetusta venäjänkielisille maahanmuuttajille.
+
+Folkhälsanilla on nyt ruotsin kurssi Helsingissä. Jos kurssi onnistuu hyvin, kursseja voi tulla lisää.
+
+Folkhälsan on ruotsinkielinen terveysalan järjestö. Se toivoo, että kurssilaiset oppivat ruotsia niin paljon, että he voivat opiskella tai työskennellä terveysalalla.
+
+Folkhälsan järjestää ruotsin opetusta juuri venäjänkielisille, koska venäjänkieliset ovat suurin vieraskielinen ryhmä Suomessa.
+
+Folkhälsan toivoo, että osa venäjänkielisistä haluaa tehdä työtä terveysalalla ruotsin kielellä.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12241162)
+
+Avaa kuvien katselu
+
+Tiistaina sää jatkuu kylmänä ja enimmäkseen poutaisena koko maassa.
+
+Monin paikoin on myös selkeää. Idässä voi sataa vähän lunta.
+
+Pakkanen vaihtelee etelän 10 ja Lapin jopa 30 asteen välillä.
+
+Loppuviikolla saadaan lunta. Lunta sataa joulun aikana etenkin Etelä- ja Keski-Suomessa.

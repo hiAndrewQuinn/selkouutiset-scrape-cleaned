@@ -1,0 +1,61 @@
+# Sunnuntai 12.3.2017 (radio)
+
+Turkki ja Eurooppa riitelevät. Vuoden pakolaiset 2017 on valittu. Suomi voi tarjota turisteille hiljaisuutta. Kirja-Matin syntymästä on kulunut 200 vuotta.
+
+## Turkki
+
+![Ihmiset heiluttavat Turkin lippuja Turkin konsulaatin edessä Rotterdamissa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9505195)
+
+Avaa kuvien katselu
+
+Turkkilaiset osoittavat mieltä Hollannissa. Kuva: Bas Czerwinski / EPA
+
+Turkin ja Euroopan suhde on nyt huono.
+
+Turkki on vihainen, koska Turkin ministerien puhetilaisuuksia on kielletty Euroopassa. Turkki on suuttunut varsinkin Hollannille, joka ei päästänyt edes Turkin ulkoministeriä Hollantiin. Turkki vaatii, että Hollanti pyytää anteeksi.
+
+Euroopan maissa ei pidetä siitä, että Turkin ministereillä on poliittisia tilaisuuksia Euroopassa. Monet Turkin ministerit ovat matkustaneet Eurooppaan, koska he toivovat Euroopan turkkilaisilta tukea presidentti Recep Tayyip Erdoganille. Turkkilaiset äänestävät huhtikuussa siitä, annetaanko presidentille lisää valtaa.
+
+## Vuoden pakolaiset
+
+![Vuoden pakolaisnainen Bahar Mozaffari (vas.) Espoosta ja vuoden pakolaismies Ramin Akhi Oulusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9505034)
+
+Avaa kuvien katselu
+
+Vuoden pakolaisnainen Bahar Mozaffari ja vuoden pakolaismies Ramin Akhi. Kuva: Irene Stachon / Lehtikuva
+
+Suomen Pakolaisapu valitsi lauantaina vuoden pakolaiset 2017. Vuoden pakolaisnainen on Bahar Mozaffari, ja vuoden pakolaismies on Ramin Akhi.
+
+Voit kuunnella ja lukea lisää Mozaffarista ja Akhista selkouutisten nettisivuilla. Osoite on yle.fi/selkouutiset.
+
+**Vuoden pakolaiset 2017**
+
+## Hiljaisuus
+
+![Metsää.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9250315)
+
+Avaa kuvien katselu
+
+Stressi vähenee metsässä. Kuva: Derrick Frilund / Yle
+
+Suomi voi tarjota turisteille hiljaisuutta. Hiljaisuus on matkailun uusi trendi. Siksi luonto, rauha ja hiljaisuus ovat asioita, joilla Suomea mainostetaan ulkomailla.
+
+Esimerkiksi Elina Miettusen ja Pauliina Myllylän firma tarjoaa turisteille luonnon rauhaa. Naiset eivät järjestä aktiviteetteja, vaan passiviteetteja. Ainoa toiminta on metsään meneminen ja ruuan laittaminen nuotiolla.
+
+Hiljaisuus on terveellinen trendi. Tutkimukset kertovat, että metsässä stressi vähenee ja verenpaine laskee.
+
+## Kirja-Matti
+
+![Matti Pohdon muistokiven paljastustilaisuus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9505265)
+
+Avaa kuvien katselu
+
+Kirja-Matin muistokivi on Helsingissä. Kuva: Kansalliskirjasto
+
+Kirja-Matin syntymästä on kulunut 200 vuotta. Hän syntyi maaliskuussa vuonna 1817.
+
+Mutta kuka oli Kirja-Matti? Matin oikea nimi oli Matti Pohto. Häntä sanotaan Kirja-Matiksi, koska hän pelasti suomenkielisen kirjallisuuden. Se tapahtui Turun suuren tulipalon jälkeen.
+
+Turun kaupunki paloi melkein kokonaan vuonna 1827. Myös Turun akatemian kirjasto paloi, ja tuli tuhosi suomenkieliset kirjat, joita kirjastossa säilytettiin.
+
+Suomenkielistä kirjallisuutta jäi kuitenkin talteen, koska Matti Pohto keräsi suomenkielisiä kirjoja ympäri Suomea. Pohto keräsi melkein 5000 kirjaa, jotka ovat nyt Kansalliskirjastossa.

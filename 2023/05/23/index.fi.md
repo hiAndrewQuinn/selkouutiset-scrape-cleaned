@@ -1,0 +1,73 @@
+# Radio Selkouutiset tiistai 23.5.2023
+
+Hallitusneuvottelut. Liikenneonnettomuudet. Vantaalle raitiovaunu. Ranskan lennot. Sää.
+
+## Hallitusneuvottelut
+
+![Hallitusneuvottelijoita puheenjohtajapöydän ääressä Säätytalossa.](https://img.img-cdn.yle.fi/crop_extract,w_5147,h_2895,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1117519646b58c62c373/1684757211)
+
+Avaa kuvien katselu
+
+Hallitusneuvotteluja käydään Säätytalossa Helsingissä. Kuva: Tiina Jutila / Yle
+
+Hallitusneuvottelijat keskustelevat tulevina päivinä maahanmuutosta ja ilmastoasioista. Hallituksen muodostaja, kokoomuksen Petteri Orpo sanoo, että perussuomalaiset haluavat keskustella näistä asioista.
+
+Neuvottelut muista asioista keskeytetään. Maahanmuutto ja ilmastoasiat ovat hallitusneuvottelujen vaikeimpia asioita. Esimerkiksi perussuomalaiset ja RKP ovat hyvin eri mieltä maahanmuutosta.
+
+Petteri Orpon tavoite on, että hallitusohjelma on valmis viimeistään juhannuksena.
+
+## Liikenneonnettomuudet
+
+![Valkoisen henkilöauton keula on mennyt onnettomuudessa ruttuun.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_409/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1112328645d022c8b77a/1683817069)
+
+Avaa kuvien katselu
+
+Suomen maanteillä kuoli huhtikuussa 8 ihmistä. Kuvituskuva. Kuva: Matias Väänänen / Yle
+
+Suomen maanteillä kuoli huhtikuussa 8 ihmistä. Heistä 3 oli henkilöautossa ja 5 pakettiautossa, kun onnettomuus sattui.
+
+Liikenteessä tapahtui huhtikuussa melkein 170 sellaista onnettomuutta, jossa joku ihminen loukkaantui. Tilastokeskus kertoo, että onnettomuuksissa loukkaantui yhteensä yli 200 ihmistä.
+
+## Vantaalle raitiovaunu
+
+![Vantaalle suunniteltu raitiovaunulinja havainnekuvassa Kielotiellä Tikkurilassa.](https://img.img-cdn.yle.fi/crop_extract,w_1280,h_720,x_0,y_59/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-108776464188a33aa491/1684850299)
+
+Avaa kuvien katselu
+
+Vantaalle suunniteltu raitiovaunulinja havainnekuvassa Kielotiellä Tikkurilassa. Kuva: Vantaan kaupunki
+
+Vantaan kaupunkiin tulee raitiovaunu. Vantaan kaupunginvaltuusto päätti myöhään maanantaina, että kaupunkiin rakennetaan raitiotie.
+
+Raitiotien rakentaminen maksaa noin 600 miljoonaa euroa.
+
+Reitti kulkee Helsinki-Vantaan lentoasemalta Mellunmäen metroasemalle.
+
+Raitiotien rakentaminen alkaa suunnitelmien mukaan syksyllä 2024. Raitiovaunun on tarkoitus kulkea Vantaalla vuonna 2029.
+
+## Ranskan lennot
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/14-svyle-42317531972b8c1dea/1394194877"
+
+Avaa kuvien katselu
+
+Ranska kieltää lyhyet kotimaan lennot. Kuvituskuva. Kuva: Reuters TV
+
+Ranska kieltää ihmisiltä lyhyet kotimaan lennot.
+
+Ranska kieltää sellaiset lentoreitit, jotka voi matkustaa junalla alle 2,5 tunnissa. Kielto on osa Ranskan ilmastolakia.
+
+Ranska kielto lopettaa lennot Pariisin ja esimerkiksi Nantesin, Lyonin ja Bordeaux'n välillä. Laki sanoo, että junien pitää kulkea näiden kaupunkien välillä tarpeeksi usein. Juniin pitää myös mahtua enemmän ihmisiä kuin aikaisemmin.
+
+## Sää
+
+![Ihmisiä nauttimassa kesäisestä säästä Väinämöisen puistossa Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_4581,h_2576,x_0,y_477/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1117566646b65058344b/1684759963)
+
+Avaa kuvien katselu
+
+Sää on aurinkoinen. Kuva: Benjamin Suomela / Yle
+
+Sää on suuressa osassa maata poutainen ja aurinkoinen. Illalla Lapissa sataa vettä.
+
+Lämmintä on keskiviikkona yli 20 astetta. Etelässä on ehkä helle, eli lämpötila voi olla yli 25 astetta. Pohjoisessa lämmintä on paikoin noin 15 astetta.
+
+Torstaina sää on koko maassa kylmempää kuin nyt.

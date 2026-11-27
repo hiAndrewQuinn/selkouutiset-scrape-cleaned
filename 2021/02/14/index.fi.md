@@ -1,0 +1,73 @@
+# Sunnuntai 14.2.2021 (radio)
+
+Trump. Hiihtolomat. Isovanhemmat. Laskiainen. Ystävänpäivä.
+
+## Donald Trump
+
+![Yhdysvaltain ent. presidentti Donald Trump.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11789597)
+
+Avaa kuvien katselu
+
+USA:n entinen presidentti Donald Trump vapautui syytteistä senaatissa. Kuva: Tasos Katopodis / AFP
+
+USA:n entinen presidentti **Donald Trump** on vapautunut virkarikossyytteistä. Syytteet oli nostettu siitä, että Trump kehotti ihmisiä menemään USA:n kongressitaloon loppiaisena. Kongressitalon valtauksessa kuoli 5 ihmistä.
+
+USA:n senaatti äänesti virkarikossyytteestä. Syytteen puolesta äänesti 57 senaattoria. Syytettä vastaan äänesti 43 senaattoria.
+
+Koska senaatti äänesti, että Trump ei ole tehnyt virkarikosta, Trump voi esimerkiksi asettua ehdokkaaksi USA:n politiikassa.
+
+## Kotimaanmatkailu
+
+![Laskettelijoita rinteessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10650536)
+
+Avaa kuvien katselu
+
+Hiihtokeskuksissa pitää pitää turvavälit, että koronavirus ei leviä.  Kuva: Petri Aaltonen / Yle
+
+Suomessa alkaa talvilomakausi viikon kuluttua. Kotimaanmatkailusta tulee tosi vilkasta, koska ulkomaille ei voi matkustaa.
+
+Suurin osa vuokramökeistä on jo varattu. VR on lisännyt junavuoroja Lappiin, koska lippuja on myyty paljon.
+
+Asiantuntijat ovat huolissaan vilkkaasta matkailusta. Koronatilanne on huono ja uusi virusmuunnos voi levitä. Asiantuntijat suosittelevat, että hiihtolomaa on hyvä viettää kotipaikkakunnalla.
+
+## Isovanhemmat
+
+![isovanhemmat ja kaksi lasta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9907893)
+
+Avaa kuvien katselu
+
+Suuri osa isovanhemmista pitää yhteyttä lapsenlapsiin melkein joka viikko. Kuva: Pixabay
+
+Isovanhemmat osallistuvat Suomessa paljon lastenlasten elämään.
+
+Uusi tutkimus kertoo, että suuri osa isovanhemmista pitää yhteyttä lapsenlapsiin melkein joka viikko. 80 prosenttia isovanhemmista osallistuu lastenlasten hoitoon ainakin välillä.
+
+Nykyään isovanhemmilta odotetaan ehkä hieman enemmän apua, kuin aiemmin.
+
+## Laskiainen
+
+![Ihmisiä pulkkamäessä, nauttimassa kauniista talvisunnuntaista Kaivopuistossa Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11789611)
+
+Avaa kuvien katselu
+
+Laskiaisena lasketaan mäkeä. Koko Suomessa on nyt paljon lunta ja laskeminen onnistuu hyvin. Kuva: Vesa Moilanen / Lehtikuva
+
+Tänään sunnuntaina on vietetty laskiaista.
+
+Laskiainen on kristillinen perinne, jota vietetään ympäri maailmaa. Perinteen mukaan laskiaisena valmistaudutaan paastoon. Suomessa lasketaan laskiaisen mäkeä ja syödään hernekeittoa ja laskiaispullia.
+
+Laskiaista vietetään sunnuntain lisäksi myös tiistaina.
+
+## Ystävänpäivä
+
+![Suklaasydän](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5463084)
+
+Avaa kuvien katselu
+
+Ystävälle voi antaa esimerkiksi suklaasydämen. Kuva: YLE / Arja Lento.
+
+Tänään sunnuntaina vietetään myös ystävänpäivää.
+
+Monissa muissa maissa on vietetty Pyhän Valentinuksen päivää eli rakkauden juhlaa. Suomessa päivän teema on ystävyys. Monet muistavat ystävää esimerkiksi viestillä tai postikortilla.
+
+Ystävänpäivä on Suomessa melko uusi juhlapäivä. Se pääsi kalenteriin vuonna 1987.

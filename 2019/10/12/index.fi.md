@@ -1,0 +1,61 @@
+# Lauantai 12.10.2019 (radio)
+
+Siviilit ovat ahdingossa Syyriassa. Japaniin on iskenyt voimakas taifuuni. Työministeri Timo Harakka lupaa toimia yli 50-vuotiaiden työllistymiseen. Hirvenmetsästys on alkanut.
+
+## Siviilien tuska Syyriassa
+
+![Savua nousee Syyrian pohjoisosassa sijaitsevasta Ras al-Ainin kaupungista 11. lokakuuta 2019.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_419/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5994585da1a8c8e54aa/1570875737)
+
+Avaa kuvien katselu
+
+Turkki kertoi vallanneensa Syyrian Ras Al-Ainin kaupungin, jossa on käyty viime päivinä merkittäviä taisteluita. Kuva perjantailta 11. lokakuuta. Kuva: Ozan Kose / AFP
+
+Koillis-Syyriassa siviilit ovat vielä pahemmassa pulassa kuin aiemmin. Alueen kurdihallinto sanoo, että lähes 200 000 ihmistä on paennut kodeistaan. Syynä on sotilasoperaatio, jonka Turkki aloitti keskiviikkona.
+
+Pohjois-Syyriassa on kuollut ainakin 20 siviiliä. Turkin puolella viranomaiset sanovat, että 17 ihmistä on kuollut Syyriasta tulleiden kranaattien takia.
+
+Turkkilainen media kertoo, että Turkin joukot ovat edenneet entistä syvemmälle Koillis-Syyrian kurdialueella. Uutistoimisto Reuters sanoo, että Turkin johtamat joukot ovat päässeet Ras al Ainin kaupunkiin, Syyrian puolelle rajaa. Kurditaistelijat kuitenkin kiistävät tämän.
+
+## Taifuuni iski Japaniin
+
+![Yhdistelmäkuvassa näkyy Tokion suositun Harajuku-ostosalueen katunäkymä perjantai-iltana 11. lokakuuta (ylempi kuva) ja lauantaiaamuna 12. lokakuuta (alempi kuva).](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11017651)
+
+Avaa kuvien katselu
+
+Yhdistelmäkuvassa näkyy Tokion Harajuku-ostosalueen katu perjantai-iltana 11. lokakuuta (ylempi kuva) ja lauantaiaamuna 12. lokakuuta (alempi kuva). Kuva: Odd Andersen / AFP
+
+Japaniin on iskenyt voimakas taifuuni. Miljoonia ihmisiä on kehotettu menemään pois hirmumyrskyn reitiltä.
+
+Taifuuni on aiheuttanut kovia tuulia ja rankkasateita. Sateiden takia on ollut tulvia, maanvyöryjä ja sähkökatkoja.
+
+Ainakin 1 ihminen kuoli Ichiharan kaupungissa, kun kova tuuli tuhosi auton.
+
+Pääkaupungin Tokion kaupunginosia on evakuoitu. Tokiossa on satanut rankasti ja tuuli on kovaa. Juna-asemia ja kauppoja on suljettu sekä lentoja peruttu.
+
+Taifuuni on voimakkain hirmumyrsky Tokiossa yli 60 vuoteen. Tokiossa sataa vuorokauden aikana ehkä jopa puoli metriä vettä.
+
+## Työministeri Harakka yli 50-vuotiaiden työllistymisestä
+
+![Timo Harakka Ylen Ykkösaamussa lauantaiaamuna 12. lokakuuta 2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11017628)
+
+Avaa kuvien katselu
+
+Työministeri Timo Harakka. Kuva: Ykkösaamu / Yle
+
+Työministeri Timo Harakka lupaa toimenpiteitä, joilla yli 50-vuotiaille ihmisille saadaan työpaikkoja. Hän esittää isompaa palkkatukea yli 50-vuotiaille. Palkkatukea voidaan maksaa firmalle, joka palkkaa työttömän töihin.
+
+Yli 55-vuotiaiden ihmisten työllisyysaste on selvästi alempi kuin muilla. Työministeri Timo Harakka sanoo, että iäkkäämpiä ihmisiä kohdellaan työmarkkinoilla selvästi huonommin kuin nuorempia.
+
+## Hirvenmetsästys alkoi
+
+![Hirvi tapettuna maassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10455600)
+
+Avaa kuvien katselu
+
+Hirvenmetsästys alkaa lauantaina. Kuva: Jussi Nukari / Lehtikuva
+
+Hirvenmetsästys on alkanut.
+
+Hirviä saa ampua Suomessa noin 50 000. Se on 8 prosenttia vähemmän kuin viime vuonna. Valkohäntäpeuroja saa ampua yhteensä noin 60 000.
+
+Hirviä saa metsästää vuoden loppuun saakka. Tämän jälkeen hirviä saa vielä metsästää 2 viikkoa, mutta koira ei saa enää olla apuna.

@@ -1,0 +1,61 @@
+# Perjantai 31.8.2018 (radio)
+
+Aurinkovoiman määrä kaksinkertaistuu tänä vuonna Suomessa. Kierrätyslannoitteet voivat vähentää Itämeren ravinnekuormaa. Erillisestä kesäajasta ja talviajasta ehkä luovutaan. Ensi viikon sää on tavanomaista lämpimämpi.
+
+## Aurinkosähkö yleistyy hyvää vauhtia
+
+![Aurinkopaneeleja omakotiatlossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9832392)
+
+Avaa kuvien katselu
+
+Suomalaiset hankkivat yhä enemmän aurinkopaneeleita. Niillä voi pienentää sähkölaskua. Kuva: Kalevi Rytkölä / Yle
+
+Aurinkovoiman määrä kaksinkertaistuu tänä vuonna Suomessa. Paneeleita tulee yhä enemmän omakotitalojen, mökkien ja yritysten katoille.
+
+Omakotitalossa aurinkosähkö voi korvata ehkä noin 20 prosenttia vuoden sähkönkulutuksesta. Omakotitalossa oma aurinkosähkö vähentää myös siirtomaksuja ja veroja.
+
+Kerrostaloissa ja rivitaloissa aurinkosähköä voi käyttää vain taloyhtiön yhteiseen sähkönkulutukseen. Tarvitaan lakimuutos ja mittarien vaihtaminen, ennen kuin sähköä voidaan jakaa asuntoihin.
+
+Kerros- ja rivitaloissa asuu noin 2,6 miljoonaa suomalaista.
+
+## Kierrätyslannoite vähentää Itämeren kuormaa
+
+![Viljapeltoa Forssan Jokioisissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10378545)
+
+Avaa kuvien katselu
+
+Pelkkä kierrätyslannoite ei pelasta Itämerta, mutta se auttaa vähentämään kuormitusta. Kuva: Elise Tykkyläinen / Yle
+
+Kierrätyslannoitteet voivat auttaa Itämeren suojelemisessa. Tavalliset lannoitteet ovat haitaksi Itämerelle. Meri on rehevöitynyt, eli siihen on valunut paljon esimerkiksi typpeä ja fosforia.
+
+Kierrätyslannoitteissa ravinteet otetaan esimerkiksi teollisuudesta ja maataloudesta. Silloin uusiutumatonta luonnonvaraa ei tarvitse erikseen louhia. Samalla säästyy energiaa.
+
+Luonnonvarakeskus on testannut kierrätyslannoitetta, joka tulee esimerkiksi sellutehtaasta. Siinä käytetään paperiteollisuuden orgaanista eli eloperäistä sivutuotetta.
+
+Kierrätyslannoitteet vähentävät maatalouden kuormitusta mereen. Itämeren pelastamiseen tarvitaan kuitenkin paljon muita toimia.
+
+## EU ehkä luopuu kellojen siirtelystä
+
+![Herätyskello sängyn vieressä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10043722)
+
+Avaa kuvien katselu
+
+Viisarien siirtely keväällä ja syksyllä jää ehkä historiaan. Suurin osa suomalaisista kannattaa sitä, että Suomessa siirrytään jatkuvaan kesäaikaan. Kuva: AOP
+
+Euroopan komissio ehdottaa, että erillisestä kesäajasta ja talviajasta luovutaan.
+
+EU:n kyselyssä 84 prosenttia ihmisistä vastusti kellojen siirtämistä keväällä ja syksyllä. 4,6 miljoonaa ihmistä vastasi komission verkkokyselyyn. Suomi on halunnut, että siirtelystä luovutaan.
+
+Asia vaatii EU-tason päätöksen. Kukin jäsenmaa voi kuitenkin itse päättää, minkä aikavyöhykkeen se valitsee. Suomen hallituksella ei ole vielä kantaa aikavyöhykkeestä. Vielä ei tiedetä, miten nopeasti varsinainen esitys muutoksesta annetaan.
+
+## Sää jatkuu lämpimänä
+
+![keltaisia lehtiä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10380549)
+
+Avaa kuvien katselu
+
+Kesäinen sää jatkuu, ja syksystä voi tulla lämmin. Kuva: AOP
+
+Ensi viikko alkaa lämpimässä säässä. Sää on tavanomaista lämpimämpi. Lämpötila on lähes koko maassa yli 20 astetta. Maan keskiosassa ja pohjoisosassa on noin 5 astetta lämpimämpää kuin tavallisesti tähän aikaan.
+
+Ylen meteorologi Toni Hellinen kertoo, että lämmin sää voi jatkua syyskuun ensimmäisen viikon ja ehkä myös toisen viikon. Lauantaina maan eteläosassa ja keskiosassa sekä Kainuussa tulee sadekuuroja. Sunnuntai on koko maassa aurinkoisempi.

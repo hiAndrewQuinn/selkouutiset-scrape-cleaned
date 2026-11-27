@@ -1,0 +1,71 @@
+# Perjantai 15.12.2017 (radio)
+
+Alkoholilaki. Afrikkalaistaustaisia verenluovuttajia kaivataan. Raaseporilaiset auttavat turvapaikanhakijoita. Britannian ero EU:sta etenee. Viikonloppuna sää kylmenee.
+
+## Eduskunta hyväksyi alkoholilain
+
+![Asiakas oluthyllyn edustalla ruokakaupassa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9979175)
+
+Avaa kuvien katselu
+
+Ruokakauppoihin tulee uusia alkoholijuomia. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Eduskunta on päättänyt, että ruokakaupoissa voidaan myydä nykyistä vahvempia alkoholijuomia.
+
+Se tarkoittaa, että ruokakaupasta voi ostaa vahvempaa nelosolutta. Myös valmiita alkoholin ja virvoitusjuoman sekoituksia voi ostaa ruokakaupasta. Sekoituksia sanotaan limuviinaksi.
+
+Päätös liittyy uuteen alkoholilakiin. Se tulee voimaan ensi vuoden maaliskuussa.
+
+## Afrikkalaistaustaisia halutaan verenluovuttajiksi
+
+![Janne Hietala luovuttamassa verta Jyväskylän Veripalvelutoimistossa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9967940)
+
+Avaa kuvien katselu
+
+Suomen Punainen Risti toivoo, että moni menee nyt luovuttamaan verta. Kuva: Eveliina Matikainen / Yle
+
+Verenluovuttajista on nyt pula. Suomen Punainen Risti toivoo, että moni luovuttaa verta ennen joulunpyhiä.
+
+Verenluovuttajiksi toivotaan erityisesti Suomessa syntyneitä afrikkalaistaustaisia ihmisiä. Heillä on sellaisia harvinaisia veriryhmiä, joita suomalaisilla ei ole.
+
+Sairaaloissa hoidetaan yhä enemmän myös afrikkalaistaustaisia potilaita. He tarvitsevat myös verta ja verivalmisteita.
+
+SPR toivoo verenluovuttajia myös muista etnisistä ryhmistä.
+
+## Raaseporilaiset auttavat turvapaikanhakijoita
+
+![Pian 6-vuotias Rimas leikkii kotona omia leikkejään sillä aikaa, kun kaksi isosiskoa on koulussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9978806)
+
+Avaa kuvien katselu
+
+Irakilainen Rimas asuu Raaseporissa. Kuva: Paula Tiainen / Yle
+
+Raaseporissa Länsi-Uudellamaalla kaupunkilaiset auttavat paljon turvapaikanhakijoita. Monet turvapaikanhakijat asuvat kaupunkilaisten luona kodeissa.
+
+Jotkut asukkaat ovat myös yhdessä hankkineet asuntoja, joita turvapaikkaa hakevat perheet voivat käyttää. Kaupunkilaiset maksavat osan asuntojen vuokrasta.
+
+Länsi-Uudenmaan kunnissa on ollut pakolaisia ja turvapaikanhakijoita jo kauan.
+
+## Britannian ero EU:sta etenee
+
+![Big Ben ja liput.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9817381)
+
+Avaa kuvien katselu
+
+Brexit eli Britannian ero EU:sta etenee. Kuva: EPA / Will Oliver
+
+Euroopan unionin maiden johtajat ovat päättäneet, että Britannian eroneuvotteluja voidaan jatkaa. EU-maat ovat sitä mieltä, että neuvotteluissa on tähän mennessä päästy hyvin eteenpäin.
+
+Seuraavaksi EU ja Britannia neuvottelevat esimerkiksi siirtymäajasta. Se tarkoittaa aikaa, jolloin Britannia vielä noudattaa EU-lakeja mutta se ei enää ole mukana päättämässä asioista.
+
+Britannia eroaa Euroopan unionista maaliskuussa vuonna 2019.
+
+## Viikonloppuna sää kylmenee
+
+![Lumisade loi satumaisen maiseman Helsingin Pitäjänmäessä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9940864)
+
+Avaa kuvien katselu
+
+Viikonloppuna sää kylmenee. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Tänään perjantaina on satanut lunta tai räntää maan etelä- ja keskiosissa. Lumisade voi jatkua huomisaamuun asti. Viikonloppuna sää kylmenee koko maassa.

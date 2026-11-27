@@ -1,0 +1,55 @@
+# Lauantai 29.11.2014
+
+Presidentti Sauli Niinistö puhui avioliittolaista. Helsingin ja Pekingin yliopistot tekevät yhteistyötä. Kirjailija Asko Sahlberg on vuoden ruotsinsuomalainen. Marraskuu on ollut Etelä-Suomessa pimeämpi kuin tavallisesti.
+
+## Presidentti Niinistö puhui avioliittolaista
+
+![Sauli Niinistö](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7659865)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistöä haastateltiin lauantaina radiossa. Kuva: Jussi Nukari / Lehtikuva
+
+Presidentti Sauli Niinistön mielestä on selvää, että avioliittolakia nyt muutetaan. Eduskunta teki presidentin mielestä selvän päätöksen asiasta. Eduskunta päätti perjantaina muuttaa avioliittolakia niin, että myös homoparit pääsevät naimisiin.
+
+Presidentti Niinistö kertoo, että hän oli sitä mieltä, että pariliitto voi olla lakitekstissä parempi sana kuin avioliitto. Presidentti ajatteli, että riidat avioliittolaista vähenevät, jos kaikki parit solmivat pariliiton. Eduskunta kuitenkin päätti, että myös homoparit solmivat tulevaisuudessa avioliiton. Presidentin mielestä nyt eletään eduskunnan päätöksen mukaan.
+
+## Helsingin ja Pekingin yliopistot tekevät yhteistyötä
+
+![rikosoikeuden professori Kimmo Nuotio.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7657237)
+
+Avaa kuvien katselu
+
+Professori Kimmo Nuotio (vasemmalla) puhumassa kiinalaiselle yleisölle. Kuva: Sari Taussi / Yle
+
+Helsingin yliopisto tekee yhteistyötä kiinalaisen Pekingin yliopiston kanssa. Yliopistot suunnittelevat yhteisiä tutkimusprojekteja monella eri alalla.
+
+Professori Kimmo Nuotion mielestä yhteistyö Pekingin yliopiston kanssa on tärkeää. Nuotio sanoo, että Pekingin yliopiston opiskelijat ovat hyviä. He ovat tulevaisuuden tärkeitä ihmisiä maailmassa, professori Nuotio sanoo.
+
+Professori Nuotion alaa on oikeustiede. Nuotio uskoo, että suomalaiset voivat kertoa kiinalaisille esimerkiksi siitä, miten oikeuslaitos voi tehdä työtä itsenäisesti ja vapaasti. Kiinassa oikeus antaa usein sellaisia rangaistuksia, joita kommunistinen puolue haluaa.
+
+## Asko Sahlberg on vuoden ruotsinsuomalainen
+
+![Asko Sahlberg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7204342)
+
+Avaa kuvien katselu
+
+Kirjailija Asko Sahlberg on kirjoittanut ruotsinsuomalaisten elämästä. Kuva: Yle
+
+Kirjailija Asko Sahlberg on valittu vuoden ruotsinsuomalaiseksi. Ruotsinsuomalaiset asuvat Ruotsissa, mutta he tai heidän perheensä tulevat Suomesta. Asko Sahlberg asuu Ruotsin Göteborgissa.
+
+Sahlberg valittiin vuoden ruotsinsuomalaiseksi, koska hän on kirjoittanut hyvän kirjan ruotsinsuomalaisten elämästä. Kirjan nimi on Yö nielee päivät. Kirja kertoo Jakobssonista, joka muuttaa Suomesta Ruotsiin 1970-luvulla.
+
+Ruotsissa asuu noin 700 000 ihmistä, joiden perhetausta on Suomessa. Noin 450 000 heistä puhuu tai ainakin ymmärtää suomea.
+
+## Aurinkoa ei ole paljon näkynyt
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7659680)
+
+Avaa kuvien katselu
+
+Tämän vuoden marraskuussa aurinko on paistanut Lapissa enemmän kuin Etelä-Suomessa. Kuva: Yle uutisgrafiikka
+
+Marraskuu on pimeä kuukausi Suomessa. Tänä vuonna marraskuu on ollut Etelä-Suomessa jopa pimeämpi kuin tavallisesti. Aurinko paistoi Etelä-Suomessa vain 12 tuntia marraskuun 1. ja 26. päivän välillä.
+
+Yleensä aurinko paistaa marraskuussa enemmän Etelä-Suomessa kuin Lapissa. Tänä vuonna on päinvastoin. Aurinko on paistanut Lapissa melkein kaksi kertaa niin paljon kuin Etelä-Suomessa.

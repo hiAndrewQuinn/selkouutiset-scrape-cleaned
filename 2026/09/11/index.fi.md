@@ -1,0 +1,80 @@
+# Selkouutiset | perjantai 11.09.2026
+
+Lainakorot. Nuorten taloustaidot. Kaivossotkut. Sääennuste.
+
+## Asuntolainojen korot
+
+Aluksi uutinen taloudesta.
+
+Euroopan keskuspankki EKP on nostanut ohjauskorkoa.
+
+EKP haluaa pysäyttää hintojen nousun. Hintojen nousu kiihtyy Iranin sodan takia.
+
+Euroopan keskuspankki EKP on nostanut ohjauskorkoa.
+
+Koronnostot vaikuttavat suomalaisten asuntolainoihin.
+
+Ekonomisti **Kaisa Kivipelto** kertoo, että pankit osasivat odottaa EKP:n päätöstä.
+
+Asuntolainojen korot ovat jo nousseet yli kolmeen prosenttiin.
+
+Siksi EKP:n korkopäätös ei nyt nosta asuntolainojen korkoja lisää.
+
+EKP voi kuitenkin nostaa korkoa lisää vielä tänä vuonna.
+
+## Nuorten taloustaidot
+
+Nyt uutinen nuorten raha-asioista.
+
+Nuorten taloustaidoissa on isoja eroja. Näin kertoo uusi tutkimus.
+
+Lukiolaiset osaavat raha-asiat paremmin kuin ammattikoululaiset. Pojat osaavat raha-asiat paremmin kuin tytöt.
+
+17-vuotias **Anni Ryti** suorittaa kuljetusalan tutkintoa ammattiopistossa. Hän käy myös iltalukiota.
+
+Ryti säästää rahaa.
+
+Hän oppi tärkeät taloustaidot kotona, koska vanhemmat puhuivat rahasta.
+
+*”Miten haluu hoitaa raha-asioita. Millaisissa tilanteissa haluaa olla.  
+Haluaa ehkä kerryttää puskuria ja välttää kauheaa määrää velkaa. ”*
+
+Nuorten taloustaidoissa on isoja eroja.
+
+Professori **Terhi-Anna Wilska** sanoo, että huonot taloustaidot voivat johtaa myöhemmin velkoihin ja köyhyyteen.
+
+Siksi talousopetusta pitää lisätä erityisesti ammattikouluissa.
+
+## Vanhojen kaivosten siivoaminen
+
+Lopuksi ympäristöuutinen.
+
+Kunnat voivat joutua maksamaan vanhojen kaivosten siivoamisen.
+
+Tämä on Särkiniemen vanha kaivos Leppävirralla.
+
+Leppävirran kunta joutuu maksamaan kaivoksen siivoamisen.
+
+Kaivosfirma meni konkurssiin, eikä valtiolla ole rahaa apuun.
+
+Valtion rahat menivät toisen kaivoksen siivoamiseen.
+
+Kunnanjohtaja **Matti Raatikainen** sanoo, että lasku on pois koulujen rahoista.
+
+Kunnat voivat joutua maksamaan vanhojen kaivosten siivoamisen, koska ympäristötuhon tekijää ei saada vastuuseen.
+
+Kuntaliitto haluaa, että valtio maksaa jatkossa kaivosten siivoamisen.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina lännessä paistaa aurinko.
+
+Idässä on pilvistä.
+
+Etelässä voi välillä sataa vähän vettä.
+
+Lämpötila on 10–18 astetta.
+
+Lämpimintä on länsirannikolla.

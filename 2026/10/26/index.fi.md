@@ -1,0 +1,67 @@
+# Selkouutiset | maanantai 26.10.2026
+
+Serbian vaalit. Pääsykokeissa huijaaminen. Punkkarit. Sää
+
+## Valta on vaihtumassa Serbiassa
+
+Ensin uutinen Serbian vaaleista.
+
+Serbiassa opiskelijoiden puolue on voittanut parlamenttivaalit.
+
+Entisen presidentin Aleksandar Vučićin puolue hävisi vaalit. Puolue hallitsi Serbiaa 14 vuotta.
+
+Moni serbialainen syytti Vučićin hallintoa korruptiosta. Opiskelijat järjestivät Serbiassa paljon mielenosoituksia hallintoa vastaan.
+
+Venäjä kertoi ennen vaaleja, että se tukee Vučićin puoluetta.
+
+Yöllä moni serbialainen juhli vaalitulosta pääkaupungin Belgradin kaduilla.
+
+Opiskelijoiden puolue voitti Serbian parlamenttivaalit.
+
+Serbialaiset äänestivät vaaleissa vilkkaasti. Äänestyspaikoilla oli pitkiä jonoja.
+
+## Pääsykokeissa vaikea huijata
+
+Seuraavaksi uutinen pääsykokeessa huijaamisesta.
+
+Korkeakoulujen pääsykokeissa on vaikea huijata tekoälyn avulla.
+
+Ylen toimittaja kokeili huijaamista Metropolia-ammattikorkeakoulussa. Toimittaja piilotti tietokoneeseen tekoälymallin ja meni pääsykokeeseen. Kyseessä ei ollut oikea pääsykoe vaan testi.
+
+Testissä selvisi, että kokeen valvojat voivat estää tehokkaasti huijausyritykset.
+
+Toimittaja ei pystynyt käyttämään tekoälyä pääsykokeessa. Tietokone meni lukkoon, kun se havaitsi epäilyttävää toimintaa.
+
+Korkeakoulujen pääsykokeissa on vaikea huijata tekoälyn avulla.
+
+Pääsykokeet tehdään korkeakoulujen omassa Vallu-järjestelmässä. Järjestelmä havaitsee huijaukset ja voi estää ne.
+
+## Punkkarit tulivat 50 vuotta sitten
+
+Lopuksi uutinen punk-liikkeestä.
+
+Punk-liike tuli Suomeen 50 vuotta sitten.
+
+Punk oli uutta nuorisokulttuuria. Moni vanhempi ihminen paheksui sitä.
+
+Punkin kannattajat eli punkkarit kannattivat anarkiaa ja tottelemattomuutta. Se näkyi musiikissa, vaatteissa ja esimerkiksi hiuksissa.
+
+Punk-liike tuli Suomeen 50 vuotta sitten.
+
+Punkin historiasta on näyttely Helsingissä Hakasalmen huvilassa. Näyttelyssä on musiikkia ja videoita.
+
+Siinä kerrotaan myös uudesta punk-sukupolvesta Suomessa.
+
+## Tiistain sää
+
+Vielä sääennuste.
+
+Sää on tiistaina pilvistä.
+
+Vettä sataa vähän Lapissa ja idässä.
+
+Sää on tuulista.
+
+Lämpötila on noin 10 astetta.
+
+Lapissa on vähän viileämpää.

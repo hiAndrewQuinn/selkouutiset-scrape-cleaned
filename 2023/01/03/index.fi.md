@@ -1,0 +1,75 @@
+# Tiistai 3.1.2023 (radio)
+
+Ylen presidenttikysely. Uusi tehdas. Asuntokauppa. Astma ja kosteusvauriot. Sääennuste.
+
+## Ylen presidenttikysely
+
+![kuvakollaasi, missä Olli Rehn, Pekka Haavisto sekä Mika Aaltola](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-105446563af055008c07/1672746552)
+
+Avaa kuvien katselu
+
+Kukaan kyselyn ehdokasnimistä ei vielä ole asettunut ehdolle presidentiksi. Kuva: Henna Tyrväinen / Yle
+
+Ulkoministeri Pekka Haavisto on Ylen kyselyssä suosituin presidenttiehdokas. Vihreiden Pekka Haavisto sai 25 prosentin kannatuksen. 
+
+Suomen Pankin pääjohtaja, keskustalainen Olli Rehn sai 14 prosentin kannatuksen. Kolmas oli Ulkopoliittisen instituutin johtaja Mika Aaltola. Häntä kannatti 11 prosenttia vastaajista.
+
+Pääministeri, SDP:n Sanna Marin ja perussuomalaisten Jussi Halla-aho saivat molemmat 7 prosentin kannatuksen.
+
+Haavistoa kannattavat kyselyssä eniten naiset ja nuoremmat ikäryhmät. Rehniä kannattavat etenkin suurituloiset ja maaseudun asukkaat. Nopein nousija oli Mika Aaltola.
+
+Presidentinvaalien ensimmäinen kierros on 28. tammikuuta ensi vuonna. Kisaan ei ole ilmoittautunut vielä kukaan.
+
+## Uusi tehdas
+
+![Teräsrullia pinottuna.](https://img.img-cdn.yle.fi/crop_extract,w_5759,h_3239,x_0,y_245/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-949736627125ac57a73/1672749021)
+
+Avaa kuvien katselu
+
+Tehdasta suunnitellaan Inkoon Joddbölen teollisuusalueelle. Kuvituskuva. Kuva: EPA Kuva: SSAB
+
+Uudellemaalle tulee ehkä uusi tehdas. Norjalainen teräsfirma Blastr Green Steel suunnittelee terästehdasta ja integroidun vedyn tuotantolaitosta Inkooseen. 
+
+Yhtiö on tehnyt aiesopimuksen energiafirma Fortumin kanssa teollisuusalueesta Inkoossa.
+
+Investoinnin arvo on noin 4 miljardia euroa. Tehdas voi työllistää noin 1 200 henkilöä. Jos tehdas toteutuu, se on yksi Suomen suurimpia teollisuusinvestointeja. 
+
+Suurhanke on vasta aivan alussa. Varsinainen investointipäätös terästehtaasta tehdään vuonna 2025.
+
+## Asuntokauppa
+
+![Asunnot ja asuntokauppa suomessa 2019.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_487/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5603685ccc28e50ef30/1556883721)
+
+Avaa kuvien katselu
+
+Asuntokauppa käy nyt huonosti. Kuva: Markku Rantala / Yle
+
+Asuntokauppa on Suomessa laskenut vuoden 2008 finanssikriisin lukemiin.
+
+Suomessa nostettiin marraskuussa uusia asuntolainoja 1,2 miljardin euron edestä. Määrä on 750 miljoonaa euroa vähemmän kuin toissa marraskuussa.
+
+Asuntokauppa alkoi laskea sen jälkeen, kun Venäjä hyökkäsi Ukrainaan helmikuussa.
+
+## Kosteusvauriot
+
+![Hometta seinällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10143893)
+
+Avaa kuvien katselu
+
+Hometta seinällä. Kuva: Andriy Popov / AOP
+
+Kosteusvaurio varhaislapsuuden kodissa on yhteydessä lapsen pysyvään astmaan. Asiasta kertoo Terveyden ja hyvinvoinnin laitoksen tutkimus.
+
+Tutkijat kuitenkin korostavat, että astman riskitekijöitä on kymmeniä. Kosteusvauriot eivät ole erityisen voimakas riski.
+
+Tutkimuksessa seurattiin yli 300 suomalaislapsen kasvua ja kehitystä 6 vuotta. Lapset asuivat alle 1-vuotiaina kodeissa, joissa oli kosteusvaurio tai näkyvää hometta.
+
+## Sää
+
+![Suomen sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12687289)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Keskiviikon sää on poutainen. Aurinko paistaa paikoin maan keskivaiheilla. Pakkasta on maan keski- ja pohjoisosassa jopa 15 - 20 astetta. Etelämpänä pakkasta on noin 5 astetta.

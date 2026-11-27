@@ -1,0 +1,75 @@
+# Tiistai 22.11.2022 (radio)
+
+Olkiluodon uusi ydinvoimalaitos. Suomen asukasluku. Ukrainan sähkökatkot. Sotaharjoitus merellä. Sää.
+
+## Olkiluodon uusi ydinvoimalaitos
+
+![Olkiluoto 3 -voimalan sisätilat.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_166/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10150006336c05cd2854/1664532654)
+
+Avaa kuvien katselu
+
+Uuden ydinvoimalaitoksen sisätiloja. Kuva: Roni Lehti / Lehtikuva
+
+Olkiluodon uusi ydinvoimalaitos viivästyy lisää. Ydinvoimalaitosta ei saada käyttöön vielä joulukuussa. 
+
+Aikaisemmin syksyllä kerrottiin, että Olkiluodon uusi ydinvoimalaitos alkaa tuottaa sähköä vielä tämän vuoden aikana.
+
+Myöhemmin ydinvoimalaitoksessa huomattiin vikoja, joita vielä korjataan. Siksi ydinvoimalaitos alkaa tuottaa sähköä vasta tammikuun lopussa tai myöhemmin.
+
+Suomalaisten pitää ehkä säästää sähköä, jos Olkiluodon uutta ydinvoimalaitosta ei saada pian käyttöön. Uusi ydinvoimalaitos on Suomelle tärkeä, koska Euroopassa on energiakriisi.
+
+Olkiluodon uusi ydinvoimalaitos tuottaa yli 10 prosenttia Suomen sähköstä, kun se alkaa toimia säännöllisesti.
+
+## Suomen asukasluku
+
+![Ihmisiä kävelee kaudulla.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2813,x_0,y_23/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-850498613623b525556/1630939211)
+
+Avaa kuvien katselu
+
+Suomessa on yli 5,5, miljoonaa asukasta. Kuva: Henrietta Hassinen / Yle
+
+Suomen asukasluku kasvaa. Tilastokeskus kertoo, että Suomen asukasluku on kasvanut tänä vuonna yli 13 000 asukkaalla. 
+
+Suomalaisia on kuollut enemmän kuin syntynyt, mutta asukasluku kasvaa maahanmuuton ansiosta. Ulkomailta muutti Suomeen noin 36 000 ihmistä, mutta Suomesta muutti ulkomaille vain noin 11 000 ihmistä.
+
+Suomessa oli lokakuun lopussa yli 5,5 miljoonaa asukasta.
+
+## Ukrainan sähkökatkot
+
+![Ihmisiä pimeällä kadulla Kiovassa.](https://img.img-cdn.yle.fi/crop_extract,w_7360,h_4140,x_0,y_415/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-10241596355224ebb60d/1666523838)
+
+Avaa kuvien katselu
+
+Sähköt ovat usein poikki Ukrainan pääkaupungissa Kiovassa. Kuva: Oleg Petrasyuk / EPA
+
+Ukrainassa on paljon sähkökatkoja. Syynä ovat Venäjän iskut. 
+
+Venäjä on tuhonnut Ukrainan sähkölaitoksia ja sähkölinjoja. Ukrainan on vaikea korjata vahinkoja, koska Venäjä tekee iskuja koko ajan.
+
+Sähkökatkoja on erityisesti Ukrainan pääkaupungissa Kiovassa. Ukrainan presidentti pyytää, että ukrainalaiset säästävät sähköä.
+
+## Sotaharjoitus merellä
+
+![Sotalaiva Turun satamassa.](https://img.img-cdn.yle.fi/crop_extract,w_4031,h_2268,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-94586162665efddb137/1650876278)
+
+Avaa kuvien katselu
+
+Yksi Suomen sotalaivasta. Kuva: Pontus Nyqvist / Yle
+
+Suomessa on alkanut iso sotaharjoitus. Suomen armeijan merivoimat harjoittelevat merellä, esimerkiksi Suomenlahdella. 
+
+Harjoitukseen osallistuu sotilaita myös muista maista, esimerkiksi Ruotsista, Saksasta, Ranskasta ja USA:sta. Harjoituksessa on mukana noin 5000 ihmistä ja 50 laivaa.
+
+Harjoitukseen osallistuu myös sotilaslentokoneita. Siksi sotilaslentokoneita lentää Etelä-Suomen taivaalla.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12680178)
+
+Avaa kuvien katselu
+
+Keskiviikkona sää on poutaista ja talvisen kylmää. Pilvisyys on runsasta ja paikoin voi sataa vähän lunta. 
+
+Lämpötila on keskiviikkona -1 ja -6 asteen välillä, Lapissa on noin 15 astetta pakkasta.
+
+Torstaina pakkanen heikkenee vähän. Rannikolla lämpötila on nollan tienoilla, muuten on vähän pakkasta. Lapissa on torstaina noin 10 pakkasastetta.

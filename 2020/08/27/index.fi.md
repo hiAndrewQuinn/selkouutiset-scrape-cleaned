@@ -1,0 +1,77 @@
+# Torstai 27.8.2020 (radio)
+
+Skopjen-lennot keskeytetään. Yle teki kyselyn kasvomaskien käytöstä. Koronakoirien koulutukselle on järjestynyt yksityinen rahoitus. Tänään on vietetty Itämeripäivää.
+
+## Lennot Skopjesta keskeytetään
+
+![Turun ja Pohjois-Makedonian Skopjen välillä lentävä Wizz Airin matkustajakone.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11500878)
+
+Avaa kuvien katselu
+
+Suomeen on tullut Skopjen-lennoilla paljon koronatartuntoja. Kuva: Jussi Nukari / Lehtikuva
+
+Liikennevirasto Traficom keskeyttää lennot Pohjois-Makedoniasta. Lentoliikenne Skopjen ja Turun välillä keskeytyy huomenna 2 viikoksi.
+
+Terveyden ja hyvinvoinnin laitos sanoo, että Skopjen-lennoilla on ollut paljon ihmisiä, jotka voivat levittää koronaa.
+
+Lentoja on ollut 1 viikossa. Päätös ei koske muita lentoyhteyksiä.
+
+## Alle puolet suomalaisista käyttää maskeja
+
+![Ihmisiä kiirehtii junalta kasvomaskeihin suojautuneena Helsingin rautatieasemalla.](https://img.img-cdn.yle.fi/crop_extract,w_4989,h_2806,x_0,y_39/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7098125f3d2fad7b293/1597848408)
+
+Avaa kuvien katselu
+
+Noin puolet suomalaisista ei pidä maskia tarpeellisena muun muassa siksi, että Suomessa asutaan väljästi. Myös hinta jarruttaa maskin käyttöä Kuva: Henrietta Hassinen / Yle
+
+42 prosenttia suomalaisista sanoo, että he käyttävät kasvomaskia suositusten mukaisesti tai enemmän.
+
+55 prosenttia kuitenkin sanoo, ettei käytä maskia ollenkaan tai käyttää sitä harvemmin kuin suositellaan.
+
+Monet ajattelevat, että maski ei ole tarpeellinen, koska Suomessa asutaan väljästi. Myös hinta voi vähentää maskin käyttöä
+
+Tiedot käyvät ilmi Ylen kyselystä. Taloustutkimus teki kyselyn tässä kuussa.
+
+Eniten kasvomaskia käytetään pääkaupunkiseudun kehyskunnissa. Siellä 47 prosenttia vastaajista käyttää kasvomaskia suositusten mukaisesti. 11 prosenttia käyttää maskeja enemmän kuin suositellaan.
+
+Pääkaupunkiseudulla 40 prosenttia käyttää maskia suositusten mukaisesti ja 8 prosenttia useammin.
+
+THL suosittelee maskien käyttöä suuressa osassa Suomea. Maskeja suositellaan joukkoliikenteessä sekä matkoilla koronatesteihin.
+
+Lisäksi maskeja suositellaan karanteeniaikana ja silloin, kun tullaan riskialueilta.
+
+## Koronakoirien koulutus sai rahoituksen
+
+![Hajukoira Iines haistelee näytteitä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10165185)
+
+Avaa kuvien katselu
+
+Koiria koulutetaan Vantaalla. Tässä opiskelee hajukoira Iines. Kuva: Jaani Lampinen / Yle
+
+Koronakoirien työskentely Helsinki–Vantaan lentoasemalla on varmistunut. Koronakoirien koulutukselle on järjestynyt yksityinen rahoitus.
+
+Evidensia Eläinlääkäripalvelut Oy maksaa opetuksen. Lentoasemalle koulutetaan 16 koiraa korona haisteluun.
+
+Vapaaehtoiset ovat järjestäneet koirakoulusta parin viikon ajan. 16 koirasta jo 7 on oppinut haistamaan koronahajun.
+
+Näyte otetaan matkustajan ihosta pyyhkimällä ihoa.
+
+Koirat pääsevät töihin aikaisintaan parin viikon päästä. Ennen varsinaista haistelutyötä koiria pitää totuttaa lentoaseman ääniin.
+
+Uusia koiria ei oteta vielä koulutukseen.
+
+## Itämeripäivä
+
+![Virpiniemen merivartioaseman vartioupseeri Markku Häggman tarkistaa pyydyksien kalastusmerkintöjä Perämerellä 18.6.2019.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10838829)
+
+Avaa kuvien katselu
+
+Kalastusta valvotaan Perämerellä. Kuva: Risto Degerman / Yle
+
+Tänään on vietetty Itämeripäivää.
+
+Ilmastonmuutos vaikuttaa paljon Pohjanlahteen ja varsinkin Perämereen. Kalastus ja kalanviljely ovat Perämeren tärkeimpiä elinkeinoja.
+
+Meren lämpeneminen ja rehevöityminen ovat uhka kalankasvatukselle.
+
+Myös luontomatkailu ja harrastukset kärsivät ilmaston lämpenemisestä.

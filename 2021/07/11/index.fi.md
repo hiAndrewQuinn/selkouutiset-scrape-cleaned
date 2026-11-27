@@ -1,0 +1,70 @@
+# Sunnuntai 11.7.2021
+
+Koronakriisi ja tasa-arvo. Koronarokotus raskauden aikana. Jalkapallon EM-loppuottelu. Alkuviikon sää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Koronakriisi ja tasa-arvo
+
+![Sairaanhoitaja käytävällä, Uusi lastensairaala, Helsinki, 8.7.2019.](https://img.img-cdn.yle.fi/crop_extract,w_4974,h_2798,x_468,y_417/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5868905d68c5ca6c94f/1613564915)
+
+Avaa kuvien katselu
+
+Monilla naisilla on ollut raskasta korona-aikana. Kuva: Jari Kovalainen / Yle
+
+Koronakriisi on vaikuttanut enemmän naisiin kuin miehiin. Näin kertovat tutkijat.
+
+Monet naiset ovat menettäneet työpaikan koronakriisin takia. Työpaikkoja on loppunut esimerkiksi matkailualalta ja ravintoloista, joissa on paljon naistyöntekijöitä.
+
+Tilanne on erilainen terveydenhuollossa. Siellä työntekijöillä on ollut korona-aikana kova kiire ja stressi. Myös terveydenhuollossa työskentelee paljon naisia.
+
+Lisäksi monilla naisilla on ollut paljon työtä kotona, kun he ovat tehneet etätöitä ja hoitaneet lapsia yhtä aikaa. Äidit hoitivat lapsia enemmän kuin isät, kun koulut olivat kiinni koronan takia.
+
+Suomessa on käynnissä projekti, joka tutkii koronakriisiin vaikutuksia miesten ja naisten tasa-arvoon. Terveyden ja hyvinvoinnin laitos johtaa projektia.
+
+## Koronarokotus raskauden aikana
+
+![Mies pitää kättään odottavan naisen paljaalla vatsalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11308088)
+
+Avaa kuvien katselu
+
+Koronarokotus on turvallinen myös raskauden aikana. Kuva: Henrietta Hassinen / Yle 
+
+Naisten on hyvä ottaa koronarokotus myös raskauden aikana. Näin sanoo Terveyden ja hyvinvoinnin laitoksen ylilääkäri Hanna Nohynek.
+
+Nainen saa vakavan koronataudin helpommin, kun hän odottaa vauvaa. Siksi koronarokotuksesta on hyötyä, Nohynek sanoo.
+
+Maailmalla on annettu paljon koronarokotuksia naisille, jotka ovat raskaana. Niin ovat tehneet esimerkiksi USA ja Britannia.
+
+Tutkimukset kertovat, että koronarokotus ei vahingoita sikiötä. Vauva kehittyy normaalisti, vaikka äiti saa koronarokotuksen.
+
+Suomessa esimerkiksi sisäministeri Maria Ohisalo on kertonut, että hän on ottanut koronarokotuksen. Ohisalo on raskaana.
+
+## Jalkapallon EM-loppuottelu
+
+![Wembley](https://img.img-cdn.yle.fi/crop_extract,w_5844,h_3287,x_0,y_301/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-83072960e9f272d50b8/1625944712)
+
+Avaa kuvien katselu
+
+Jalkapallon EM-loppuottelu tuo Wembleyn stadionille paljon katsojia.  Kuva: PA Wire/PA Images
+
+Korona huolestuttaa jalkapallon EM-kilpailuissa. Tänään sunnuntaina Englanti ja Italia pelaavat EM-loppuottelun, jonka voittaja on Euroopan mestari.
+
+Loppuottelu on Wembleyn stadionilla Lontoossa. Stadionille pääsee yli 60 000 katsojaa. Se on Britannian suurin katsojamäärä jalkapallo-ottelussa korona-aikana.
+
+Asiantuntijat pelkäävät, että korona leviää yleisön joukossa stadionilla ja kaduilla.
+
+Jalkapallon EM-kilpailut ovat vuoden suurin urheilutapahtuma Euroopassa.
+
+## Alkuviikon sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12017129)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Lämmin kesäsää jatkuu. Lämpötila on alkuviikon aikana melkein 30 astetta.
+
+Maanantaina tulee ukkoskuuroja Lapissa. Muuten alkuviikon sää on poutainen eli vettä ei sada.

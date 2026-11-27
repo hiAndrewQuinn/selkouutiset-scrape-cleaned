@@ -1,0 +1,67 @@
+# Sunnuntai 30.10.2022 (radio)
+
+Ihmiskauppa. Kotitalouksien velka. Etelä-Korea. Kellonaika. Sää.
+
+## Rikosepäily ihmiskaupasta
+
+![Työ- ja elinkeinoministeriön hallitusneuvos Olli Sorainen](https://img.img-cdn.yle.fi/crop_extract,w_5176,h_2912,x_0,y_267/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6500535e60b2265b10b/1666964981)
+
+Avaa kuvien katselu
+
+Hallitusneuvos Olli Sorainen. Kuva: Antti Kolppo / Yle
+
+Helsingin käräjäoikeus on vanginnut korkean virkamiehen. Käräjäoikeus on vanginnut työ- ja elinkeinoministeriön hallitusneuvoksen **Olli Soraisen**. Poliisi epäilee, että Sorainen on ottanut ehkä lahjuksia ja käyttänyt väärin virkamiehen asemaa työ- ja elinkeinoministeriössä. 
+
+Poliisi epäilee, että thaimaalaisia marjanpoimijoita on joutunut ihmiskaupan uhriksi. Hallitusneuvos Sorainen vangittiin, koska poliisi epäilee, että Sorainen on syyllistynyt rikokseen. 
+
+Poliisi sanoo, että lahjusten avulla marjanpoimintafirma on saanut paljon hyötyä viranomaisasioissa.
+
+## Kotitalouksien velka
+
+![Seteleitä](https://img.img-cdn.yle.fi/crop_extract,w_5052,h_2841,x_0,y_55/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-6322657ebb3b8731d5/1475064799)
+
+Avaa kuvien katselu
+
+Korot ja kustannukset nousevat. Iso velka voi olla riski.
+
+Suomalaisten kotitalouksien velka on kasvanut. Eniten velkaa on lapsiperheillä, jotka ovat ostaneet asunnon kasvukeskuksesta esimerkiksi isosta kaupungista. 
+
+Kotitalouksilla on enemmän velkaa kuin koskaan aikaisemmin. Talousasiantuntija **Hanna Putkuri** sanoo, että iso velka on riski, koska korot ja muut kustannukset nousevat. Hanna Putkuri on neuvonantaja Suomen Pankissa. Putkuri sanoo, että kotitalouksien pitää varautua korkojen ja muiden menojen kasvuun. 
+
+Monissa pankeissa varaudutaan siihen, että lyhennysvapaiden pyynnöt lisääntyvät. Lyhennysvapaa tarkoittaa, että lainaerän maksuun saa lykkäystä. 
+
+## Onnettomuus tungoksessa Etelä-Koreassa
+
+![Katumaisemassa näkyy ambulansseja ja pelastushenkilöitä.](https://img.img-cdn.yle.fi/crop_extract,w_5107,h_2867,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1027026635e137731fe5/1667109974)
+
+Avaa kuvien katselu
+
+Yli 150 ihmistä kuoli tungoksessa Soulissa Etelä-Korean pääkaupungissa. Kuva: Jung Yeon-Je / AFP
+
+Etelä-Koreassa on sattunut paha onnettomuus. Yli 150 ihmistä kuoli tungoksessa ulkoilmajuhlissa pääkaupungissa Soulissa eilen. Suositun baarialueen kaduille kokoontui noin 100 000 ihmistä juhlimaan halloweenia. 
+
+Onnettomuus tapahtui niin, että ihmiset kaatuivat toisten ihmisten päälle kapealla kadulla, joka on mäessä. Kadulla oli tosi paljon ihmisiä, jotka alkoivat kaatua toisten ihmisten päälle alamäkeen päin. Ihmiset jäivät toisten ihmisten alle. Monet kuolleista olivat teini-ikäisiä tai nuoria aikuisia. 
+
+Etelä-Korean presidentti on määrännyt, että muut halloween-juhlapaikat pitää tarkastaa, että uusia onnettomuuksia ei satu.
+
+## Kesäaika päättyi
+
+![Raitiovaunupysäkin kellotaulu on viittä vaille yksi.](https://img.img-cdn.yle.fi/crop_extract,w_5535,h_3113,x_0,y_424/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-98039862cbe1f5c648f/1657529314)
+
+Avaa kuvien katselu
+
+Pimeä tulee nyt illalla aikaisemmin, koska kellonaikaa siirrettiin taaksepäin. Kuva: Sampo Saikkonen / Yle
+
+Vielä muistutus kellonajasta. Kesäaika päättyi viime yönä. Kellonaikaa siirrettiin tunti taaksepäin aikaisin sunnuntaina aamulla.
+
+Kesäaika päättyi samaan aikaan myös muissa EU-maissa. Takaisin kesäaikaan siirrytään taas maaliskuun lopussa. 
+
+## Sää
+
+![Maanantain sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12670345)
+
+Avaa kuvien katselu
+
+Maanantaina on melko viileää, mutta aurinko paistaa monin paikoin.
+
+Sää on maanantaina aluksi selkeää, eli aurinko paistaa. Iltapäivällä pilvisyys lisääntyy maan länsiosassa ja rannikolle saapuu vesisateita. Lämpötila on 0 ja +8 asteen välillä, Keski- ja Pohjois-Lapissa 0 ja -5 asteen välillä.

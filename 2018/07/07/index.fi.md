@@ -1,0 +1,59 @@
+# Lauantai 7.7.2018 (radio)
+
+USA:n ja Venäjän presidenttien tapaaminen Helsingissä merkitsee suuria järjestelyjä turvallisuuteen. Rippikoulu on Suomessa suositumpi kuin muualla. Porissa on Suomen ensimmäinen ruokapuisto. Uusi palvelu kertoo mustikan kypsyyden.
+
+## Presidenttien tapaamisen kyberturvallisuus
+
+![Sormi osoittaa kannettavan tietokoneen ruutua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9096347)
+
+Avaa kuvien katselu
+
+Donald Trumpin ja Vladimir Putinin tapaaminen Helsingissä vaatii paljon turvajärjestelyjä. Kuva: Ralf Hirschberger / EPA
+
+USA:n ja Venäjän presidenttien tapaaminen Helsingissä merkitsee suuria järjestelyjä turvallisuuteen. Tärkeää on myös kyberturvallisuus. Sillä tarkoitetaan tietojen suojaamista ja tietoturvaa. Se tarkoittaa myös informaatiovaikuttamista ja viestintää.
+
+Ennen kokousta pitää varmistaa keskustelujen suojaaminen. Lähtökohta on tila, josta ei saa näkyä tai kuulua mitään ulos. Silloin pitää myös tietää, keitä liikkuu missäkin. Turvallisuuspalvelut estävät esimerkiksi salakuuntelua.
+
+USA ja Venäjä puolestaan yrittävät hallita sitä, miten muut viestivät presidenttien tapaamisesta.
+
+## Rippileirit ovat Suomessa suositumpia kuin muissa maissa
+
+![Rippileiriläiset laulavat](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6589604)
+
+Avaa kuvien katselu
+
+Rippileirien suosio on ei ole laantunut. Kuva: Mika Moksu / Yle
+
+80 prosenttia nuorista käy Suomessa rippikoulun tai rippileirin. Määrä on suurempi kuin missään muualla. Myös monet nuoret, jotka eivät kuulu kirkkoon, liittyvät rippikoulussa kirkkoon.
+
+Rippileirille halutaan tulla ulkomailta asti. Jotkut käyvät sekä rippileirin että Prometheus-leirin, joka toimii kirkon ulkopuolella. Nuorisokulttuuri ja ystävien seura selittävät rippikoulun suosiota. Edelleen leirillä kysytään, mitä usko nuorelle tarkoittaa.
+
+Evankelis-luterilaisen kirkon jäsenmäärä on laskenut 10 prosenttia yhden sukupolven aikana. Kirkkoon kuuluu 71 prosenttia suomalaisista eli 3,9 miljoonaa ihmistä.
+
+## Tässä on uusi ruokapuisto Porissa
+
+![Ruokapuisto.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10290606)
+
+Avaa kuvien katselu
+
+Ruokapuistoon on istutettu toistaiseksi satakunta kasvia. Kuva: Carolus Manninen / Yle
+
+Porin Hevosluotoon Satakunnassa on perustettu Suomen ensimmäinen ruokapuisto.
+
+Asuntomessualueen lähellä on puisto, jossa kuka tahansa voi poimia hedelmiä, marjoja ja yrttejä. Idean taustalla on kansalaisaloite.
+
+Puistossa kuitenkin toivotaan, että kaupunkilaiset osallistuvat puiston hoitamiseen. Satoa saa poimia vain omaan käyttöön ja vasta, kun sato on kypsä.
+
+## Mustikan kypsyyden voi tarkistaa uudesta palvelusta
+
+![Mustikoita poimiva mies.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7342614)
+
+Avaa kuvien katselu
+
+Mustikkaan?-palvelu internetissä kertoo, missä mustikat ovat kypsiä. Kuva: Roni Rekomaa / Lehtikuva
+
+Uusi palvelu kertoo marjastajille mustikan kypsymisestä. Palvelu nimeltä "Mustikkaan?" seuraa lämpötiloja 5 päivän ja 100 neliökilometrin tarkkuudella.
+
+Mallissa käytetään hyväksi Ilmatieteen laitoksen säätilastoja 50 vuoden ajalta. Nettisivulla voi seurata sadon kehittymistä koko maassa. Mallin tekijät kertovat, että malli perustuu vain laskemiin. Esimerkiksi Luonnonvarakeskuksen kartat perustuvat havaintoihin.
+
+Palvelu voi olla hyvä apu esimerkiksi mökkiläisille. Sen avulla voi innostua lähtemään marjaan. Tällä hetkellä palvelu on vain internetissä. Siitä ei ole mobiiliversiota.

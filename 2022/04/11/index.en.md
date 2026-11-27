@@ -1,0 +1,79 @@
+# Monday 11.4.2022 (radio)
+
+Municipal sector strikes. Shortage of steel. Children's war games. Genealogy day. Weather.
+
+## New strikes
+
+![A school desk at Leppälä school.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1688,x_0,y_94/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6721575eb3e10936f6c/1644405020)
+
+Open image viewer
+
+Schools in Tampere and Kuopio are closed on Tuesday and Wednesday. Photo: Miikka Varila / Yle
+
+The municipal sector strikes continue. On Tuesday and Wednesday of this week there are strikes in Tampere and Kuopio.
+
+Schools in Tampere and Kuopio will be closed on Tuesday and Wednesday, because the teachers are then also on strike, that is, they are not working.
+
+Next week there will be strikes in the Helsinki region, if agreement on municipal sector pay cannot be reached before then.
+
+New employees will also join the nurses' strike next week. The nurses' strike was supposed to grow already this week, but the nursing organisations wanted to give time for negotiations. The most important issue in the negotiations is nurses' pay.
+
+## Shortage of steel
+
+![Construction site](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8613986156ff32f3c60/1633091435)
+
+Open image viewer
+
+Steel is needed, for example, in piling. Photo: Kaje Komulainen / Yle
+
+The construction sector has problems because of the war in Ukraine. It is now difficult to get materials for construction sites.
+
+Steel in particular is in short supply. Before the war, about 25 percent of the steel on construction sites was imported from Russia, Ukraine and Belarus.
+
+Steel is needed already at the start of construction, when a building is piled. If steel cannot be obtained, construction may stop.
+
+## Children's war games
+
+![Two boys play with swords built from blocks.](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_49/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-938037624c0d0216bc4/1649151624)
+
+Open image viewer
+
+Children process difficult things through play. Photo: Ari Haimakainen / Yle
+
+The Ukrainian war may also show in children's play.
+
+Professor Nina Sajaniemi says that children cannot understand war. That is why they have to process the matter through play.
+
+When children play war and killing, they process anxiety and fear.
+
+Sometimes, however, adults have to step in to children's violent play, Professor Sajaniemi says.
+
+Adults must step in to the play if children, for example, mention a country whose inhabitants they want to kill.
+
+## Genealogy
+
+![Digitised page from a parish register on a computer screen.](https://img.img-cdn.yle.fi/crop_extract,w_4027,h_2265,x_4,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8754926183ca0e7d003/1636027871)
+
+Open image viewer
+
+Church registers can now be read from your own computer. Photo: Jarkko Heikkinen / Yle
+
+Today, Monday, Genealogy Day has been celebrated. At the day's events, people were told about genealogy.
+
+Many Finns pursue genealogy. They want to know the history of their own family. Finding new relatives from the past is a fun experience for many.
+
+Digitisation has made genealogy easier. Genealogists no longer have to travel around Finland, because, for example, church registers can be found online.
+
+In Finland, genealogists have good sources of information, because births and deaths, for example, have been recorded in church registers for hundreds of years.
+
+## The weather
+
+![Weather map](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12400358)
+
+Open image viewer
+
+On Tuesday there will be sleet showers in places in Lapland. Elsewhere in the country it is dry.
+
+In the southern and central parts of the country it is sunny.
+
+On Tuesday the temperature in the south is between 5 and 10 degrees, and in the north between 1 and 5 degrees.

@@ -1,0 +1,73 @@
+# TV | Selkouutiset | keskiviikko 19.11.2025
+
+Asunnottomuus. Asuntolainat. Muistopäivä-näytelmä. Torstain sää.
+
+## Asunnottomuus
+
+Aluksi uutinen asunnottomuudesta.
+
+Yhä useampi lapsiperhe voi jäädä ilman kotia.
+
+Turkulainen Leena pakkaa tavaroita, koska hän muuttaa.
+
+Syy on talousvaikeudet.
+
+Leenan työnantaja meni konkurssiin. Uudessa työssä palkka on pienempi kuin ennen.
+
+Leena ei pysty enää maksamaan vuokraa. Siksi hän muuttaa ystävän luokse.
+
+Leenan 17-vuotias poika menettää samalla toisen kodin. Poika asuu nyt kokonaan isän luona.
+
+Yhä useampi lapsiperhe voi jäädä ilman kotia.
+
+Syitä ovat huono taloustilanne ja sosiaaliturvan leikkaukset.
+
+Tilanne on vaikein yksinhuoltajilla ja nuorilla vanhemmilla.
+
+## Asuntolainat
+
+Nyt uutinen asuntolainoista.
+
+Asuntolainojen määrä vaihtelee paljon eri puolilla Suomea.
+
+Suurimpia asuntolainat ovat Uudellamaalla, jossa ne ovat keskimäärin noin 250 000 euroa.
+
+Pienimpiä asuntolainat ovat Etelä-Savossa ja Kainuussa. Näissä asuntolainat ovat keskimäärin alle 100 000 euroa.
+
+Näin kertoo OP-Pohjola pankin tutkimus.
+
+Asuntolainan määrä vaikuttaa paljon asumiskuluihin.
+
+Isoimpia lainanlyhennyksiä maksetaan Espoossa. Keskimääräinen lyhennys on perheillä Espoossa 1300 euroa kuukaudessa.
+
+Asuntolainojen määrä vaihtelee paljon eri puolilla Suomea.
+
+Siksi myös asumiskulut vaihtelevat paljon.
+
+## Muistopäivä-näytelmä
+
+Lopuksi kulttuuriuutinen.
+
+Tässä harjoitellaan Muistopäivä-näytelmää Suomen Kansallisteatterissa.
+
+Näytelmä kertoo suomalaisista, jotka lähtivät Neuvostoliittoon 1930-luvulla.
+
+Suomesta lähti Neuvostoliittoon ainakin 15 000 ihmistä. He ihailivat Neuvostoliiton sosialismia tai olivat kyllästyneet oloihin Suomessa.
+
+Tuhannet heistä katosivat Stalinin vainoissa.
+
+Näytelmän tarina on kuvitteellinen, mutta se perustuu oikeisiin tietoihin.
+
+Tietoja on kerätty arkistoista, kirjeistä, päiväkirjoista ja haastatteluista.
+
+Muistopäivä-näytelmän ensi-ilta on tänään keskiviikkona Suomen Kansallisteatterissa.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Torstaina pohjoisessa paistaa aurinko.
+
+Maan etelä- ja keskiosassa sataa lunta ja räntää.
+
+Melkein koko maassa on pakkasta.

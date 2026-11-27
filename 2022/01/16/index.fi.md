@@ -1,0 +1,75 @@
+# Sunnuntai 16.1.2022 (radio)
+
+Omikron. Ilmastonmuutos. Novak Djokovic. Kuntosalit. Sää.
+
+## Omikron näkyy työpaikoilla
+
+![Postinajakaja jakomatkalla polkupyörällä.](https://img.img-cdn.yle.fi/crop_extract,w_5359,h_3014,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-77814160365e334c337/1640636122)
+
+Avaa kuvien katselu
+
+Postissa sairauspoissaolojen määrä on kasvanut. Kuva: Henrietta Hassinen / Yle
+
+Koronaviruksen omikron-muunnos jyllää työpaikoilla.
+
+Ylen soittokierros suurille työnantajille kertoo, että työntekijöitä on sairaana tavallista enemmän. Moni on myös joutunut karanteeniin altistumisen takia.
+
+Työtehtävät saadaan vielä hoidettua. Koronavirus kuitenkin viivästyttää esimerkiksi postinjakelua ja uhkaa sulkea rakennustyömaita.
+
+Terveyden ja hyvinvoinnin laitos sanoo, että koronatartuntojen suurin huippu on muutaman viikon päästä.
+
+## Ilmastonmuutos uhkaa talviolympialaisia
+
+![Hiihtokilpailu.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10126698)
+
+Avaa kuvien katselu
+
+Vuonna 2014 talviolympialaiset pidettiin Sotshissa Venäjällä. Kuva: Valery Sharifulin / AOP
+
+Talviurheilukilpailujen järjestäminen voi tulevaisuudessa olla vaikeaa ilmastonmuutoksen takia.
+
+Yle on selvittänyt lämpötilojen nousua 21 kaupungissa, joissa on aiemmin järjestetty talviolympialaiset. Selvitys kertoo, että moni vanha olympiakaupunki ei enää pysty isännöimään talvikisoja 30 vuoden kuluttua. Joka 3. vanha olympiakaupunki on tuolloin liian lämmin talvikisojen järjestämiseen.
+
+Lämpötilojen nousu aiheuttaa lumipulaa. Sen takia etenkin hiihtolajeja on vaikea järjestää. Esimerkiksi Venäjän Sotšissa, Bosnia-Herzegovinan Sarajevossa ja Norjan Oslossa ei ehkä enää pystytä hiihtämään kilpaa olympiatasolla.
+
+Ylen selvitys perustuu Waterloon yliopiston tutkimukseen.
+
+## Novak Djokovic ei päässyt Australiaan
+
+![Novak Djokovic spelar tennis.](https://img.img-cdn.yle.fi/crop_extract,w_3509,h_1973,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90084861dea4e45ba11/1641981191)
+
+Avaa kuvien katselu
+
+Novak Djokovic ei pelaa Australian avoimessa tennisturnauksessa tänä vuonna. Kuva: EPA-EFE/All Over Press
+
+Miesten tenniksen ykköspelaaja Novak Djokovic karkotetaan Australiasta. Djokovic hävisi oikeustaistelun Australian viisumista ja joutuu lähtemään maasta.
+
+Serbialainen Novak Djokovic tuli Australiaan vajaat 2 viikkoa sitten. Hänen oli määrä osallistua Australian avoimeen tennisturnaukseen. Viranomaiset kuitenkin peruivat Djokovicin viisumin, koska hänellä ei ole koronarokotuksia.
+
+Australian avoin tennisturnaus alkaa Melbournessa huomenna. Viime vuonna Djokovic voitti turnauksen.
+
+## Kuntosaleista paljon valituksia
+
+![Nainen kyykkää kuntosalilla painot niskansa takana. Kuvassa on liike-epäterävyyttä.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_232/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90019361dc305aa5e41/1641820436)
+
+Avaa kuvien katselu
+
+Kuluttajaneuvonta on saanut paljon valituksia kuntosaleista. Kuva: Jaana Polamo / Yle
+
+Kuntosalien toiminnasta on korona-aikana valitettu enemmän kuin ennen.
+
+Kuluttajaneuvontaan tulee tavallisesti noin 300 valitusta vuodessa kuntosalien toiminnasta. Vuonna 2020 valituksia tuli noin 450.
+
+Asiakkaat ovat kokeneet esimerkiksi painostusta liittyä kuntosalin jäseneksi.
+
+## Maanantain sää
+
+![Suomen sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12272929)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Maanantaina sää on enimmäkseen poutaista ja aurinkoista.
+
+Lämpötila on -1 ja -10 asteen välillä.

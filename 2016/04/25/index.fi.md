@@ -1,0 +1,87 @@
+# Maanantai 25.4.2016 (radio)
+
+Suomi voitti MM-kultaa alle 18-vuotiaiden jääkiekossa. USA aikoo lähettää lisää sotilaita Syyriaan. Nepalin maanjäristyksestä on kulunut vuosi, mutta vahinkojen korjaaminen on vielä pahasti kesken. Monet suomalaiset huomaavat armeija-ajan jälkeen, että he haluavat mieluummin siviilipalvelukseen. Tiistaina on kulunut tasan 30 vuotta Tšernobylin ydinonnettomuudesta. Suomen Lapissa on kuvattu kiinalaista tv-sarjaa.
+
+## Pikkuleijonille MM-kultaa
+
+![Kuvassa Otto Somppi, Aapeli Räsänen ja Eetu Tuulola. 30.7. 2015](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8780414)
+
+Avaa kuvien katselu
+
+Suomen jääkiekolla on hieno tulevaisuus. Kuva: Leijonat.fi
+
+Suomi on maailmanmestari alle 18-vuotiaiden jääkiekossa. Suomi voitti loppuottelussa eli finaalissa Ruotsin. Suomi teki 6 maalia. Ruotsi teki vain 1 maalin.
+
+Paras pelaaja oli Jesse Puljujärvi. Puljujärvi teki finaalissa 3 maalia, vaikka hänellä oli kipeä vatsa.
+
+## Amerikkalaisia sotilaita Syyriaan
+
+![Yhdysvaltain presidentti Barack Obama puhumassa Hannoverissa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8834571)
+
+Avaa kuvien katselu
+
+Obama kertoi USA:n suunnitelmista Saksassa. Kuva: EPA / Sebastian Gollnow
+
+USA aikoo lähettää lisää sotilaita Syyriaan. Presidentti Barack Obama sanoo, että USA lähettää Syyriaan 250 uutta sotilasta.
+
+Amerikkalaiset sotilaat kouluttavat syyrialaisia, jotka taistelevat terroristijärjestö Isisiä vastaan. Amerikkalaiset eivät itse osallistu taisteluihin.
+
+## Nepalin maanjäristysalueella vaikeaa
+
+![Nepalilainen tyttö kantaa aaltopeltiä päänsä yläpuolella. Tytöllä on kirkkaanpunainen takki ja pipo. Taustalla näkyy vuoristoista maisemaa ja väliaikaiselta näyttäviä rakennelmia. Kauempana pieni joukko ihmisiä on aaltopeltikasan luona.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8831102)
+
+Avaa kuvien katselu
+
+Nepalilaiset yrittävät korjata koteja maanjäristysalueella. Kuva: Narendra Shrestra / EPA
+
+Nepalin maanjäristyksestä on kulunut vuosi, mutta vahinkojen korjaaminen on vielä pahasti kesken. Jopa 3 miljoonaa nepalilaista on vielä ilman kunnollista kotia.
+
+Nepalin hallitus on luvannut ihmisille apua, mutta maa on köyhä ja siellä on paljon poliittisia riitoja.
+
+Nepalin maanjäristyksessä kuoli 9000 ihmistä.
+
+## Siviilipalvelukseen suosio kasvaa
+
+![Siviilipalveluksessa olevia nuoria miehiä Lapinjärven koulutuskeskuksen luokkahuoneessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5640646)
+
+Avaa kuvien katselu
+
+Siviilipalveluksessa opetetaan esimerkiksi pelastustaitoja. Kuva: YLE
+
+Monet suomalaiset huomaavat armeija-ajan jälkeen, että he haluavat mieluummin siviilipalvelukseen. He eivät halua ottaa asetta, jos tulee sota.
+
+Siviilipalvelus tarkoittaa esimerkiksi pelastustehtäviä.
+
+Viime vuonna siviilipalvelukseen siirtyi melkein 1000 suomalaista. He saivat lisäkoulutusta viikon ajan.
+
+Kaikkien suomalaisten miesten täytyy suorittaa sotilaskoulutus tai siviilipalvelus. Jos tulee sota, heidät kutsutaan puolustamaan Suomea.
+
+## Tšernobylin onnettomuudesta 30 vuotta
+
+![Hylätty huvipuisto Pripyatissa, lähellä Tshernobyliä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8835523)
+
+Avaa kuvien katselu
+
+Ydinonnettomuusalueella ei asunut ihmisiä 30 vuoteen. Kuva: Sergey Dolzhenko / EPA
+
+Tiistaina on kulunut tasan 30 vuotta Tšernobylin ydinonnettomuudesta.
+
+Ukrainassa Tšernobylin ydinvoimalassa eli atomivoimalassa räjähti reaktori, ja ilmaan levisi vaarallista säteilyä.
+
+Onnettomuuden jälkeen alueella ei ole asunut ketään. Nyt alueella voi jo käydä, ja Tšernobylistä on tullut turistikohde. Tuhannet ihmiset eri puolilta maailmaa haluavat nähdä onnettomuuspaikan.
+
+Tšernobylissä on edelleen vaarallista säteilyä. Siksi turistien täytyy pestä vaatteet ja kengät vierailun jälkeen.
+
+## Suomen Lappi Kiinan televisiossa
+
+![we are in love sarja ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8833827)
+
+Avaa kuvien katselu
+
+Aasialaiset tähdet tapasivat Lapissa Joulupukin. Kuva: House of Lapland
+
+Suomen Lapissa on kuvattu kiinalaista tv-sarjaa. Sarjan nimi on "Olemme rakastuneita". Siinä aasialaiset julkkisparit seikkailevat eri puolilla maailmaa.
+
+Lapissa kuvattiin jaksoja, joiden parina ovat taiwanilainen miesnäyttelijä ja eteläkorealainen naisnäyttelijä. He esimerkiksi tapaavat Joulupukin ja uivat avannossa.
+
+Ensimmäinen Lappi-jakso esitettiin kiinalaisella tv-kanavalla sunnuntaina.

@@ -1,0 +1,63 @@
+# Tiistai 23.12.2014
+
+Työttömien määrä kasvaa. Turku julistaa joulurauhan jouluaattona. Joulupukki on lähtenyt pitkälle matkalleen. Kilpisjärvellä oli tiistaiaamuna 31,5 astetta pakkasta.
+
+## Monet ovat ilman työtä
+
+![Työnhakua.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7705287)
+
+Avaa kuvien katselu
+
+Työpaikkailmoitusten lukeminen on monille tuttua. Kuva: Laura Valta / Yle
+
+Työttömien määrä kasvaa. Tilastokeskus kertoo, että marraskuussa työttömiä oli 215 000. Se on 6000 enemmän kuin vuosi sitten.
+
+Tilastokeskus kertoo, että myös piilotyöttömien määrä on kasvanut. Piilotyötön on ihminen, joka on lopettanut työn etsimisen, vaikka haluaa työpaikan. Ihminen voi lopettaa työn hakemisen esimerkiksi opiskelun tai lastenhoidon takia.
+
+Monet työttömät ovat kauan ilman työtä. Heidän määränsä on kasvanut paljon. Nyt on jo yli 90 000 työtöntä, jotka ovat olleet ilman työtä yli vuoden.
+
+## Turku julistaa joulurauhan
+
+![Joulurauhan julistus luetaan pergamentilta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5472572)
+
+Avaa kuvien katselu
+
+Joulurauhan julistuksen teksti on vanha. Kuva: YLE
+
+Turku julistaa joulurauhan myös tänä jouluna. Joulurauhan julistus luetaan Turun Vanhalla Suurtorilla jouluaattona kello 12. Myös muualla Suomessa ihmiset seuraavat joulurauhan julistusta radiosta ja televisiosta.
+
+Joulurauha on satoja vuosia vanha perinne. Toivottiin, että ihmiset viettävät joulua rauhallisesti. Jos ihminen teki rikoksen joulurauhan aikana, hän sai kovemman rangaistuksen kuin tavallisesti. Nykyään joulurauha ei vaikuta rangaistuksiin.
+
+Joulurauhan julistus luetaan suomeksi ja ruotsiksi. Joulurauhan julistusta voi seurata myös viittomakielellä internetistä. Viittomakieltä tarvitsevat ihmiset, jotka eivät kuule, mutta myös monet muut haluavat nähdä, kun joulurauha viitotaan käsillä.
+
+Internetissä joulurauhan julistusta voi kuunnella ja katsoa Yle Areenasta.
+
+Tutustu Yle Areenaan
+
+## Joulupukki on lähtenyt lasten luokse
+
+Joulupukilla on jouluna kova kiire. Miljoonat lapset eri puolilla maailmaa odottavat, että joulupukki tulee käymään. Joulupukki lähti pitkälle matkalleen aatonaattona tiistaina.
+
+Joulupukin matka alkoi Korvatunturilta. Korvatunturi on Suomen Lapissa. Joulupukki asuu Korvatunturilla yhdessä joulumuorin, tonttujen ja porojen kanssa.
+
+## Lapissa on kova pakkanen
+
+![Kuurankukkia ikkunassa ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7706668)
+
+Avaa kuvien katselu
+
+Pakkanen tekee kuvioita myös ikkunaan. Kuva: Kalevi Rytkölä / Yle
+
+Tiistaiaamuna mitattiin tämän talven uusi pakkasennätys. Kilpisjärvellä oli 31,5 astetta pakkasta. Myös muualla Lapissa on tosi kylmää.
+
+Jouluna on monenlaista talvisäätä. Jouluaattona Etelä-Suomessa sataa lunta ja tuulee kovaa, Pohjois-Suomessa jatkuu kova pakkanen. Jouluaaton jälkeen sää kylmenee myös etelässä, ja joulu on kylmä koko maassa.
+
+## Hyvää joulua!
+
+![Kuvassa olkinen joulukoriste joulukuusessa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7362520)
+
+Avaa kuvien katselu
+
+Kuva: Anssi Leppänen / Yle
+
+Selkouutisilla on jouluna lyhyt joulutauko. Seuraavan kerran uutisia selkosuomeksi tulee lauantaina, joulukuun 27. päivä. Nyt selkouutiset toivottaa kuuntelijoille hyvää joulua.

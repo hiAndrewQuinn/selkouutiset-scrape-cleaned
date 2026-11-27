@@ -1,0 +1,81 @@
+# Sunnuntai 21.8.2022 (radio)
+
+Hoitoalan työriitaa soviteltiin. Ukrainasta lähti uusia viljalaivoja. Somaliassa oli tuhoisa hyökkäys hotelliin. Poliisi valvoo suojateitä. Sää on idässä sateinen, lännessä paistaa aurinko.
+
+## Hoitajien työriita
+
+![Millariikka Rytkönen](https://img.img-cdn.yle.fi/crop_extract,w_2575,h_1448,x_214,y_181/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99185462f1273d7a738/1659971806)
+
+Avaa kuvien katselu
+
+Hoitajien järjestön Tehyn puheenjohtaja Millariikka Rytkönen. Kuva: Mikko Ahmajärvi / Yle
+
+Hoitajien työriitaan etsittiin sunnuntaina ratkaisua.
+
+Hoitajien järjestöt varoittivat tällä viikolla, että hoitajat menevät ehkä lakkoon 2 sairaalassa syyskuun alussa. Hoitajat menevät lakkoon, jos riitaa ei sovita. Hoitajat haluavat lisää palkkaa.
+
+Valtakunnansovittelija sanoo, että hoitajien työriitaan on tosi vaikea löytää sopu. Sovittelu jatkuu tiistaina.
+
+## Viljalaivat Ukrainasta
+
+![sadonkorjuuta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12571901)
+
+Avaa kuvien katselu
+
+Harkovassa puitiin viljaa heinäkuun lopussa. Kuva: AOP
+
+Ukrainasta lähti sunnuntaina 4 laivaa, jotka ovat täynnä ruokaa. Asiasta kertoo Turkki.
+
+Ukrainasta on lähtenyt yhteensä jo 31 laivaa, joissa on viljaa. Laivat ovat lähteneet sen jälkeen, kun Venäjä ja Ukraina sopivat viljan kuljetuksista heinäkuussa.
+
+Ukraina tuottaa paljon viljaa. Ukrainalainen vilja on tärkeää monelle maailman maalle.
+
+## Somaliassa hyökkäys hotelliin
+
+![Somalia turvallisuusjoukkoja hotellialueella, jossa islamistien hyökkäys alkoi perjantaina.](https://img.img-cdn.yle.fi/crop_extract,w_5184,h_2916,x_0,y_413/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99729563015bc57408f/1661033575)
+
+Avaa kuvien katselu
+
+Somalia turvallisuusjoukkoja hotellialueella, jossa islamistien hyökkäys alkoi perjantaina. Kuva: Said Yusuf Warsame / EPA
+
+Somalian pääkaupungissa Mogadishussa terroristit hyökkäsivät perjantaina hotelliin. Hyökkäys loppui sunnuntaina. Somalian turvajoukot kamppailivat terroristeja vastaan noin 30 tuntia.
+
+Viranomainen kertoo, että hyökkäyksessä kuoli ainakin 21 ihmistä ja loukkaantui melkein 120 ihmistä.
+
+## Suojatiet
+
+![Poliisi seuraa liikenteen kulkua suojatien tuntumassa](https://img.img-cdn.yle.fi/crop_extract,w_1893,h_1065,x_13,y_230/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8455706124dcda43608/1629806991)
+
+Avaa kuvien katselu
+
+Poliisi seuraa liikenteen kulkua suojatien tuntumassa. Kuva: Johanna Manu / Yle
+
+Poliisi valvoo maanantaista lähtien koko maassa, että ihmisten on turvallista ylittää suojatie. Poliisin valvonta kestää 2 viikkoa.
+
+Poliisi tarkkailee, mitä autot ja raitiovaunut tekevät suojatiellä. Autoilijan pitää antaa tilaa, kun ihminen kävelee suojatien yli.
+
+Keskimäärin 20 jalankulkijaa kuolee liikenteessä joka vuosi. Kaikista liikenteen kuolonuhreista noin 10 prosenttia on jalankulkijoita. Usein onnettomuus sattuu, kun jalankulkija ylittää suojatietä.
+
+## Jääkiekon nuorten MM-kisat
+
+![Jääkiekko-ottelu.](https://img.img-cdn.yle.fi/crop_extract,w_4428,h_2490,x_0,y_266/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9972996301aff37c34c/1661055036)
+
+Avaa kuvien katselu
+
+Maalivahti Juha Jatkola torjui Kanadan Elliot Desnoyersin laukauksen ottelun ensimmäisessä erässä. Kuva: Perry Nelson / AOP
+
+Suomen nuorten jääkiekkojoukkue sai hopeaa alle 20-vuotiaiden MM-kisoissa Kanadassa. Suomi hävisi finaalin Kanadalle. Peli päättyi jatkoajan jälkeen maalein 3-2.
+
+## Sää
+
+![Yleisöä North of Hell -festivaalilla. ](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_44/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-99420062f9103c272ab/1660492128)
+
+Avaa kuvien katselu
+
+Sää on idässä sateinen. Kuvituskuva. Kuva: Jussi Mankkinen / Yle
+
+Maanantaina sataa vettä Itä-Suomessa, Kainuussa ja paikoin Lapissa. Länsi-Suomessa paistaa monessa paikassa aurinko.
+
+Lämmintä on maanantaina päivällä 20...25, Lapissa 15...20 astetta.
+
+Suuressa osassa Suomea tuulee melko kovaa.

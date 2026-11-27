@@ -1,0 +1,69 @@
+# Sunnuntai 24.9.2017 (radio)
+
+Saksassa on ollut parlamenttivaalit. Osa kansanedustajista haluaa kieltää seksin ostamisen kokonaan. Jalkapallofanit tappelivat Helsingissä. Taiwanilainen pyöräilijä on matkalla Suomessa.
+
+## Saksan vaalit
+
+![Henkilö äänestää Saksan liittopäivävaaleissa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9849030)
+
+Avaa kuvien katselu
+
+Saksalaiset äänestivät parlamenttivaaleissa sunnuntaina. Kuva: Philipp Guelland / EPA 
+
+Saksassa on ollut parlamenttivaalit. Vaaleissa eniten ääniä saivat kristillisdemokraatit.
+
+Kristillisdemokraattien johtaja on Angela Merkel. Merkel on myös Saksan liittokansleri eli hän johtaa Saksan hallitusta.
+
+Kristillisdemokraattien menestys vaaleissa tarkoittaa, että Merkel voi jatkaa liittokanslerina.
+
+Vaaleissa menestyi hyvin myös AfD-puolue. Se on melko uusi puolue. Se saa edustajia Saksan parlamenttiin nyt ensimmäistä kertaa.
+
+AfD eli Vaihtoehto Saksalle on äärioikeistolainen puolue. Se ei esimerkiksi halua maahanmuuttajia Saksaan.
+
+AfD ei pääse hallitukseen, vaikka se menestyi vaaleissa hyvin. Muut Saksan puolueet eivät halua tehdä yhteistyötä sen kanssa.
+
+## Seksin ostaminen
+
+![nainen nojaa aitaan verkkosukkahousuissaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9848872)
+
+Avaa kuvien katselu
+
+Poliitikot keskustelevat siitä, pitääkö seksin ostaminen kieltää kokonaan. Kuva: AOP
+
+Suomen parlamentissa eli eduskunnassa keskustellaan seksibisneksestä.
+
+Osa keskustapuolueen kansanedustajista haluaa, että seksin ostaminen kielletään kokonaan. He sanovat, että kieltoa tarvitaan, koska seksibisneksessä ihmisiä käytetään hyväksi.
+
+Nyt Suomen laki sanoo, että seksin ostaminen on väärin, jos seksin myyjä on alle 18-vuotias. Seksiä ei saa myöskään ostaa ihmiskaupan uhrilta, joka on pakotettu myymään seksiä.
+
+## Jalkapallofanien tappelu
+
+![Jalkapallo treenit](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9503652)
+
+Avaa kuvien katselu
+
+Jalkapallo on joskus myös riidan aihe. Kuva: Ari Lahti / AOP
+
+Helsingin keskustassa oli lauantain ja sunnuntain välisenä yönä iso tappelu. Tappelussa oli mukana vähän yli 10 ihmistä.
+
+Poliisi kertoo, että tappelu alkoi kahden jalkapallojoukkueen kannattajien riidasta. HJK:n ja Ilveksen fanit suuttuivat toisilleen.
+
+Paikalla tarvittiin paljon poliiseja, että tilanne rauhoittui.
+
+## Taiwanilainen pyöräilijä
+
+![ Taiwanilainen maailmanmatkaaja Reo Jui-Ti Wang on kiitollinen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9848177)
+
+Avaa kuvien katselu
+
+Taiwanilainen pyöräilijä Ryo Jui-Ti Wang sai uusia varusteita suomalaisilta, kun entiset varastettiin. Kuva: Jaakko Matikainen.
+
+Lopuksi vielä uutinen taiwanilaisesta pyöräilijästä, joka on matkalla Suomessa.
+
+30-vuotias Ryo Jui-Ti Wang pyöräili Taiwanista Suomeen Kiinan ja Venäjän läpi. Matka kesti vuoden.
+
+Suomessa Wang halusi nähdä joulupukin. Matka joulupukin luo Rovaniemelle katkesi Kemissä, koska joku varasti Wangin pyörän ja tavarat. Poliisi löysi pyörän, mutta ei Wangin tavaroita.
+
+Kun suomalaiset kuulivat Wangin tarinan, monet halusivat auttaa häntä. Wang on saanut suomalaisilta vaatteita ja varusteita. Nyt hän voi pyöräillä joulupukin luo.
+
+Joulupukin tapaamisen jälkeen Wangin pyörämatka jatkuu. Hän aikoo kiertää maailmaa 10 vuotta.

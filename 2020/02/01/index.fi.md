@@ -1,0 +1,79 @@
+# Lauantai 1.2.2020 (radio)
+
+Britannia on eronnut Euroopan unionista. Monet skotlantilaiset toivovat itsenäisyyttä. Taksimatkan hinnan pitää näkyä selvästi. Tammikuu oli lämpimämpi kuin yleensä.
+
+## Britannia erosi EU:sta
+
+![Kuvassa kyltti, jossa lukee &quot;Brexit Celebration&quot;. Sen edessä on Britannian lippuja. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11187813)
+
+Avaa kuvien katselu
+
+Monet britit juhlivat EU-eroa. Kuva: Stephen Chung / AOP
+
+Britannia on eronnut Euroopan unionista. Britannian EU-ero tuli voimaan lauantaiyönä.
+
+Eron hetkellä britit kokoontuivat Lontoossa. Monet juhlivat, mutta monet olivat myös surullisia.
+
+Britannian EU-ero eli brexit on ollut riidanaihe Britanniassa jo kauan. Enemmistö briteistä kuitenkin kannatti eroa, kun asiasta äänestettiin vuonna 2016.
+
+Britannia oli mukana Euroopan unionissa melkein 50 vuotta. Britannian pääministeri Boris Johnson sanoo, että eron jälkeen Britannia muuttuu ja menestyy.
+
+Aluksi isoja muutoksia ei tapahdu. Britannia noudattaa EU:n sääntöjä vielä tämän vuoden loppuun asti.
+
+## Skotlanti toivoo itsenäisyyttä
+
+![Itsenäisyysmieleisten mielentosoitus Glasgowssa Skotlannissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11187835)
+
+Avaa kuvien katselu
+
+Mielenosoittajat toivovat Skotlannille itsenäisyyttä. Kuva: Robert Perry / EPA
+
+Britannian EU-ero on Skotlannille surullinen päivä. Skotlanti on osa Britanniaa.
+
+Enemmistö skotlantilaisista kannattaa Euroopan unionia. Skotlannin pitää kuitenkin lähteä pois EU:sta muun Britannian mukana.
+
+Monet skotlantilaiset toivovat nyt, että Skotlannista tulee itsenäinen maa. Itsenäinen Skotlanti voi olla EU:n jäsen, monet ajattelevat.
+
+Britannian pääministeri Boris Johnson ei hyväksy Skotlannin itsenäisyyttä. Pääministeri muistuttaa, että skotlantilaiset eivät halunneet itsenäisyyttä, kun asiasta äänestettiin vuonna 2014.
+
+Skotlantilaisten mielestä tilanne on muuttunut Britannian EU-eron takia. Nyt itsenäisyys kiinnostaa monia skotlantilaisia.
+
+## Taksimatkan hinnan pitää näkyä
+
+![Taksit taksitolpalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8461260)
+
+Avaa kuvien katselu
+
+Asiakkaan pitää nähdä taksimatkan hinta jo ennen matkaa. Kuva: Henrietta Lehtinen / Yle
+
+Suomessa on annettu uusi määräys taksimatkojen hinnoista. Määräys sanoo, että hinnan pitää näkyä selvästi.
+
+Taksiauton kyljessä pitää olla hintaluettelo, josta asiakas näkee hinnan jo ennen matkaa.
+
+Määräys koskee takseja, jotka odottavat asiakkaita esimerkiksi taksitolpalla. Määräys ei koske takseja, jotka tilataan ennen matkaa.
+
+## Etelä-Suomen tammikuu oli lämmin
+
+![Golfinpelaaja Vuosaari Golf golfkentällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11187139)
+
+Avaa kuvien katselu
+
+Helsingin Vuosaaressa pelattiin golfia tammikuussa. Kuva: Markku Ulander / Lehtikuva
+
+Tammikuu oli lämmin. Etelä-Suomessa tammikuu oli melkein 10 astetta lämpimämpi kuin tavallisesti.
+
+Vain pohjoisessa tammikuu oli kylmä ja luminen.
+
+## Ensi viikon alussa kylmenee
+
+![Mies seisoo räntäsateessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11020755)
+
+Avaa kuvien katselu
+
+Viikonloppuna sataa vettä ja räntää. Kuva: AOP
+
+Myös tämän viikonlopun sää on lämmin. Etelässä on plusasteita, sateet ovat vettä tai räntää.
+
+Ensi viikon alussa sää kylmenee. Myös etelässä on vähän pakkasta.
+
+Ensi viikon lopulla sää kuitenkin lämpenee uudestaan. Plusasteet ja vesisateet tulevat takaisin Etelä-Suomeen.

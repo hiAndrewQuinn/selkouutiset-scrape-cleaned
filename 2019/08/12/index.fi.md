@@ -1,0 +1,77 @@
+# Maanantai 12.8.2019 (radio)
+
+Etla arvioi, että kilpailukykysopimus tuo Suomeen lisää työpaikkoja. Ohjelmistovirhe oli syy siihen, että Verottajan kirjeissä oli vääriä tietoja. 70 vuotta sitten solmittiin Geneven sopimus, joka toi sodalle säännöt. Helsingin Naistenklinikalla oli tulipalo. Vadelmat ovat kypsyneet hitaasti.
+
+## Kiky-sopimus
+
+![Henkilö allekirjoittaa työsopimusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10389659)
+
+Avaa kuvien katselu
+
+Kilpailukykysopimus eli kiky-sopimus pidensi työaikaa. Kuva: Pixabay
+
+Kilpailukykysopimus on tuonut Suomeen lisää työpaikkoja. Niin arvioi Elinkeinoelämän tutkimuslaitos eli Etla.
+
+Kilpailukykysopimus eli kiky-sopimus tuli voimaan vuonna 2016. Sopimus esimerkiksi pidensi työaikaa 24 tuntia vuodessa. Se tuo Suomeen tuhansia työpaikkoja, Etla sanoo.
+
+Kilpailukykysopimuksesta voi tulla riitaa syksyn palkkaneuvotteluissa. Työnantajat haluavat jatkaa työajan pidennystä. Työntekijät haluavat, että pidennys loppuu.
+
+## Verottajan virhe
+
+![Vero logo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10915970)
+
+Avaa kuvien katselu
+
+Ohjelmistovirhe sotki Verottajan kirjeet viime viikolla. Kuva: Vesa Moilanen / Lehtikuva
+
+Verottaja on kertonut, miksi sen kirjeissä oli virheitä. Syy oli tulostusohjelmassa.
+
+Verottaja lähetti viime viikolla asiakkaille kirjeitä, joissa oli vääriä tietoja. Asiakas sai esimerkiksi toisen ihmisen verotietoja.
+
+Virheitä sattui kuitenkin vähemmän kuin pelättiin. Vääriä tietoja oli alle 3000 kirjeessä.
+
+Verottaja on kertonut, että asiakas voi tuhota kirjeen, jossa on vääriä tietoja.
+
+## Geneven sopimus
+
+![Kalle Löövi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7780539)
+
+Avaa kuvien katselu
+
+Kalle Löövi sanoo, että nykyaikainen sota rikkoo usein Geneven sopimusta. Kuva: Eljas Niskanen / Yle
+
+Nyt on kulunut 70 vuotta siitä, kun Geneven sopimus solmittiin. Sopimuksessa on säännöt sodalle.
+
+Sopimus kertoo esimerkiksi, miten sotilaiden pitää suojella ja auttaa ihmisiä, jotka eivät osallistu taisteluun.
+
+Kalle Löövi Suomen Punaisesta Rististä sanoo, että nykyaikainen sota rikkoo Geneven sääntöjä jatkuvasti.
+
+Ongelma on esimerkiksi se, että taisteluja käydään usein kaupungissa ihmisten keskellä. Myös avustustyöntekijät joutuvat keskelle taisteluja.
+
+## Naistenklinikan tulipalo
+
+![Palomiehiä ja paloauto naistenklinikan edustalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10918117)
+
+Avaa kuvien katselu
+
+Naistenklinikalla syttyi tulipalo sunnuntaina. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Helsingin Naistenklinikalla on ollut tulipalo. Tulipalo syttyi sunnuntaina roskakuilussa. Savua pääsi myös rakennuksen sisälle.
+
+Tulipalon takia Naistenklinikalta siirrettiin pois noin 70 perhettä.
+
+Tulipalo on vaikuttanut Naistenklinikan toimintaan myös maanantaina. Synnyttäjät on ohjattu muihin sairaaloihin.
+
+## Vadelmien kypsyminen
+
+![Tarhavadelmia Sotkamossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10902109)
+
+Avaa kuvien katselu
+
+Vadelma on suosittu marja. Kuva: Timo Sihvonen / Yle
+
+Vadelmat ovat kypsyneet hitaasti, koska kesä on ollut melko kylmä.
+
+Vadelmia kasvatetaan myös kasvutunneleissa. Myös kasvutunneleissa marjat ovat kypsyneet hitaasti pilvisen sään ja kylmien öiden takia. Vadelmat ovat kypsyneet ulkona avomaalla jopa nopeammin kuin kasvutunneleissa.
+
+Vadelmia kypsyy vielä pitkään. Marjoja poimitaan vielä myös syyskuussa.

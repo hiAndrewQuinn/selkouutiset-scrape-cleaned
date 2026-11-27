@@ -1,0 +1,61 @@
+# Lauantai 18.4.2015
+
+Irakissa ja Afganistanissa on kuollut ihmisiä pommi-iskuissa. Alkuvuosi oli ennätyslämmin. Suomalainen turisti sai lompakkonsa takaisin ystävällisten venäläisten avulla.
+
+## Irakissa ja Afganistanissa tapahtui pommi-iskuja
+
+![Savu nousee autopommin räjähdettyä kurdialueen pääkaupungissa Erbilissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7936717)
+
+Avaa kuvien katselu
+
+Erbilin kaupungissa Pohjois-Irakissa räjähti pommi. Kuva: Asger Ladefoge / EPA
+
+Maailmalla on tapahtunut pahoja pommi-iskuja.
+
+Irakissa pommit ovat tappaneet monta ihmistä. Pääkaupungissa Bagdadissa pommi-iskussa kuoli ainakin 40 ihmistä. Pohjois-Irakissa, kurdialueen pääkaupungissa Erbilissä pommi-iskussa kuoli kolme (3) ihmistä. Ääri-islamilainen Isis-järjestö sanoo, että se teki molemmat iskut.
+
+Myös Afganistanissa on tapahtunut pommi-isku. Isku tapahtui Jalalabadin kaupungissa, ja siinä kuoli yli 30 ihmistä. Isis-järjestö sanoo, että se teki myös Afganistanin pommi-iskun. Tämä oli ehkä Isis-järjestön ensimmäinen suuri isku Afganistanissa.
+
+## Alkuvuosi oli ennätyslämmin
+
+![infografiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7936822)
+
+Avaa kuvien katselu
+
+Kartan punainen väri kertoo, että nyt on ollut harvinaisen lämmintä melkein joka paikassa. Kuva: NOAA
+
+Alkuvuosi on ollut lämmin koko maailmassa. Koskaan ennen ei ole mitattu yhtä lämmintä alkuvuotta kuin tänä vuonna. Mittaukset aloitettiin vuonna 1880.
+
+Yhdysvaltalainen tutkimuslaitos arvioi, että tänä vuonna mitataan myös uusi koko vuoden lämpöennätys. Tähän asti lämpimin vuosi on ollut 2014.
+
+Mittaukset kertovat, että maapallon ilmasto lämpenee. Yksi syy siihen on ilmastonmuutos. Ilmasto lämpenee esimerkiksi teollisuuden ja liikenteen saasteiden takia.
+
+Toinen syy siihen, että lämpötila nousee juuri nyt, löytyy ehkä Tyyneltämereltä. Siellä on todennäköisesti alkamassa meteorologinen ilmiö, jonka nimi on El Niño. Se nostaa meriveden lämpötilaa.
+
+## Lompakko tuli Venäjältä takaisin Suomeen
+
+![Kuvassa lompakko, joka pursuaa luottokortteja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7734726)
+
+Avaa kuvien katselu
+
+ Lomamatka menee pilalle, jos lompakko varastetaan. Kuva: Anssi Leppänen / Yle
+
+Vielä hyvä uutinen suomalaisen naisen matkasta Venäjälle. Suomalainen Katriina Mikkola matkusti ystäviensä kanssa Pietariin pääsiäisenä. Mikkolan lompakko varastettiin, kun hän oli ostoksilla.
+
+Hyvä uutinen on se, että Mikkola sai lompakon takaisin ystävällisten venäläisten avulla. Kun Mikkola oli takaisin Suomessa, hän sai pietarilaisen kauppakeskuksen työntekijältä viestin. Lompakko oli löytynyt.
+
+Kauppakeskuksen työntekijä antoi lompakon venäläiselle perheelle, joka matkusti Suomeen. Imatralla perhe antoi lompakon poliisille. Posti kuljetti lompakon Imatralta Mikkolalle Helsinkiin.
+
+Katriina Mikkola on yllättynyt kaikesta avusta. Kauppakeskuksen työntekijä ei halunnut edes palkkiota, Mikkola kertoo.
+
+## Sunnuntaina on vaalit
+
+![Äänestäjä äänestyskopissa Helsingin pääpostitalolla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7937594)
+
+Avaa kuvien katselu
+
+Äänestäjät valitsevat sunnuntaina uuden eduskunnan eli parlamentin. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Suomessa on eduskuntavaalit sunnuntaina. Selkouutiset kertoo vaalien tuloksista sunnuntai-iltana.
+
+Selkouutiset lähetetään vaali-iltana myöhemmin kuin tavallisesti. Selkouutisten lähetysaika Radio Suomessa on sunnuntaina kello 23.03.

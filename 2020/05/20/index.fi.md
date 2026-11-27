@@ -1,0 +1,79 @@
+# Keskiviikko 20.5.2020 (radio)
+
+Hallitus on kertonut uusista koronaohjeista yli 70-vuotiaille. Posti aikoo lomauttaa työntekijöitä. Vieraskielisten asukkaiden määrä kasvaa Suomessa. Monet suomalaiset asuvat yksin.
+
+## Ikäihmisten koronaohjeet
+
+![Vanhus kävelyllä kaupungilla](https://img.img-cdn.yle.fi/crop_extract,w_4346,h_2445,x_0,y_68/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/17-7891858dd40fa8cb06/1548937485)
+
+Avaa kuvien katselu
+
+Ikäihmiset voivat ulkoilla myös korona-aikana. Kuva: Henrietta Hassinen / Yle
+
+Hallitus on kertonut tarkemmin uusista koronaohjeista ikäihmisille eli yli 70-vuotiaille.
+
+Ikäihmiset voivat jo tavata sukulaisia ja ystäviä, jos he ovat varovaisia. Paras paikka tapaamiselle on ulkona, ja 2 metrin turvaväliä on hyvä noudattaa.
+
+Ikäihmiset eivät saa kuitenkaan tavata ihmisiä, joilla on hengitystieoireita. Turhia tapaamisia on muutenkin hyvä vielä välttää.
+
+Hallitus muistuttaa, että ikäihmisten pitää liikkua ja huolehtia terveydestä. Esimerkiksi lääkäriaikoja ei kannata perua.
+
+## Postin lomautukset
+
+![Postinkantaja Iso Roobertinkadulla pub Black Doorin ulkopuolella.](https://img.img-cdn.yle.fi/crop_extract,w_4980,h_2801,x_0,y_459/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6745505ebaba773fe97/1589295946)
+
+Avaa kuvien katselu
+
+Kirjepostin määrä on vähentynyt. Kuva: Susanne Salin / Yle
+
+Posti aikoo lomauttaa työntekijöitä. Posti aloittaa neuvottelut lomautuksista työntekijöiden kanssa.
+
+Lomautuksen aikana työntekijöillä ei ole töitä, eivätkä he saa palkkaa. Postin lomautukset koskevat työntekijöitä, joilla on hallinnollisia tehtäviä. Posti ei aio lomauttaa työntekijöitä paketti- ja verkkokaupan tehtävistä.
+
+Posti sanoo, että koronakriisi on vähentänyt kirjeiden määrää. Esimerkiksi firmat lähettävät nyt laskuja ja mainoksia vähemmän kuin ennen. Siksi Posti suunnittelee, että se ei jaa kirjepostia kesällä perjantaipäivinä.
+
+## Koronatartuntojen määrä
+
+![Koronavirustestinäyte](https://img.img-cdn.yle.fi/crop_extract,w_3830,h_2154,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6787675ec4e50be7dfb/1589962087)
+
+Avaa kuvien katselu
+
+Korovirustartuntoja on löydetty lisää. Kuva: Perttu Ruokangas / Yle
+
+Koronavirustartuntojen määrä on vähän noussut.
+
+Suomessa on nyt noin 6450 ihmistä, jotka ovat saaneet koronavirustartunnan.
+
+304 ihmistä on kuollut Suomessa koronaviruksen takia.
+
+Tiedot ovat Terveyden ja hyvinvoinnin laitokselta.
+
+## Suomen vieraskieliset
+
+![Vieraskieliset ohjeet uimahallissa kävijälle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8382882)
+
+Avaa kuvien katselu
+
+Suomessa on jo paljon vieraskielisiä asukkaita. Kuva: Jarmo Nuotio / Yle
+
+Vieraskielisten asukkaiden määrä kasvaa Suomessa. Vieraskielisillä tarkoitetaan ihmisiä, joiden äidinkieli ei ole suomi, ruotsi tai saamen kieli.
+
+Vuonna 2040 vieraskielisiä on yli 2 kertaa niin paljon kuin nyt. Se tarkoittaa, että vieraskielisten määrä kasvaa yli 500 000 ihmisellä.
+
+Suomi saa lisää vieraskielisiä asukkaita erityisesti maahanmuuton takia. Vieraskielisten asukkaiden määrä kasvaa eniten isoissa kaupungeissa.
+
+Tiedot ovat Kuntaliiton selvityksestä.
+
+## Yhden hengen kodit
+
+![K-Kaupassa Seinäjoella. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11087177)
+
+Avaa kuvien katselu
+
+Yhden hengen talouksia on paljon. Kuva: Ismo Pekkarinen / AOP
+
+Monet suomalaiset asuvat yksin. Yli 1,2 miljoonaa suomalaista asui yksin viime vuonna. Määrä on 30 000 suurempi kuin vuotta aikaisemmin.
+
+Yksin asuminen on yleistynyt erityisesti nuorten ja vanhojen joukossa. Yksin asuminen on vähentynyt vain noin 50-vuotiaiden joukossa.
+
+Tiedot ovat Tilastokeskukselta.

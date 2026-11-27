@@ -1,0 +1,77 @@
+# Lauantai 17.9.2022 (radio)
+
+Laki potilasturvallisuudesta. Jonotus Elisabetin arkulle. Hajuaisti koronan jälkeen. Turun kauppatori. Sää
+
+## Laki potilasturvallisuudesta
+
+![Aki Lindén.](https://img.img-cdn.yle.fi/crop_extract,w_5567,h_3131,x_0,y_317/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-100923363257aea25e72/1663401086)
+
+Avaa kuvien katselu
+
+Perhe- ja peruspalveluministeri Aki Lindén oli vieraana TV1:ssä lauantaina.  Kuva: Tiina Jutila / Yle
+
+Hoitajien lakot ehkä peruuntuvat.
+
+Hoitajat aikoivat mennä lakkoon eli lopettaa työt Helsingin vanhusten kotihoidossa ensi viikolla. Ministeri Aki Lindén kuitenkin sanoo, että lakkoa ei ehkä tule.
+
+Eduskunta päättää maanantaina, tuleeko uusi laki potilasturvallisuudesta voimaan. Jos laki tulee voimaan, se määrää hoitajia töihin myös lakon aikana. Siksi lakot ehkä peruuntuvat.
+
+Hoitajat eivät halua uutta lakia. He eivät pidä siitä, että heidät voidaan määrätä töihin lain avulla. Hoitajat suunnittelevat lakkoja, koska he vaativat parempaa palkkaa.
+
+## Jonotus Elisabetin arkulle
+
+![Kuningatar Elisabetin arkku makaa Lontoon Westminster Hallissa.](https://img.img-cdn.yle.fi/crop_extract,w_3500,h_1968,x_0,y_364/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-100887463244fbf75841/1663506339)
+
+Avaa kuvien katselu
+
+Lauantaina jono kuningattaren arkulle oli 8 kilometriä pitkä. Kuva: Lorena Sopena / AOP
+
+Monet britit haluavat tervehtiä viimeisen kerran kuningatar Elisabetia. Kuningatar kuoli viime viikolla.
+
+Britannian pääkaupungissa Lontoossa on pitkä jono kuningattaren arkulle. Lauantaina jono oli 8 kilometriä pitkä. Ihmiset ovat olleet jonossa jopa yli 20 tuntia.
+
+Yöt ovat Lontoossa jo kylmiä. Viranomaiset sanovat, että jonottajien on hyvä ottaa mukaan lämpimiä vaatteita. Palomiehet ovat myös jakaneet jonottajille peittoja ja kuumaa juotavaa.
+
+Kuningatar Elisabetin hautajaiset ovat maanantaina.
+
+## Hajuaisti koronan jälkeen
+
+![Miehen kasvot rajattuna nenästä alaspäin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10043978)
+
+Avaa kuvien katselu
+
+Korona voi vaikuttaa hajuaistiin. Kuva: AOP
+
+Hajuaisti tulee takaisin koronan jälkeen. Näin kertoo uusi tutkimus.
+
+Koronatauti voi vaikuttaa hajuaistiin. Monet koronapotilaat menettävät hajuaistin. He eivät pysty koronan jälkeen haistamaan mitään.
+
+Hajuaistin saa kuitenkin takaisin 90 prosenttia ihmisistä, joilla on ollut lievä koronatauti. Hajuaisti tulee usein takaisin 2 viikossa.
+
+Osa koronapotilaista menettää hajuaistin pitkäksi aikaa. Hajuaisti voi parantua esimerkiksi vasta 2 vuotta koronataudin jälkeen.
+
+## Turun kauppatori
+
+![Kauppatori kuvattuna Wiklundin ikkunasta 2019 ja 2022. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12626480)
+
+Avaa kuvien katselu
+
+Turun kauppatori remontin aikana ja nyt. Kuva: Rosa Huuska / Yle, Minna Rosvall / Yle
+
+Turun kauppatorin remontti on valmis. Kauppatori avattiin virallisesti lauantaina.
+
+Kauppatorin remontti kesti 4 vuotta. Remontti maksoi yli 30 miljoonaa euroa.
+
+Remontissa torin alle rakennettiin parkkiluola ja torille istutettiin puita. Vielä syksyllä torilla tehdään joitakin pieniä töitä.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12628733)
+
+Avaa kuvien katselu
+
+Sunnuntaina sateet vähenevät. Etelä- ja Keski-Suomessa taivaalla voi näkyä jopa aurinko.
+
+Lämpötila on sunnuntaina 10 ja 15 asteen välillä. Lapissa on viileämpää.
+
+Ensi viikon alussa sää poutaantuu eli vesisade alkaa loppua. Ensi viikolla sää myös viilenee.

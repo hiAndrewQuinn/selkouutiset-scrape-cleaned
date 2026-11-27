@@ -1,0 +1,81 @@
+# Tiistai 8.2.2022 (radio)
+
+Ukrainan kriisi. Katujengit. Muistisairaudet. Roosa nauha -keräys. Sääennuste.
+
+## Ukrainan kriisi
+
+![Ranskan presidentti Emmanuel Macron (vas.) ja Venäjän presidentti Vladimir Putin neuvottelivat Moskovassa Ukrainan kriisistä 7.2.2022.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_40/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9117236201ca60790ef/1644293785)
+
+Avaa kuvien katselu
+
+Ranskan presidentti Emmanuel Macron (vasemmalla) ja Venäjän presidentti Vladimir Putin. Kuva: EPA/THIBAULT CAMUS / POOL MAXPPP OUT
+
+Ranskan presidentti Emmanuel Macron etsii ratkaisua Ukrainan kriisiin.
+
+Macron tapasi tiistaina Ukrainan presidentin Volodymyr Zelenskyin. Maanantaina hän tapasi jo Venäjän presidentin Vladimir Putinin.
+
+Ukrainan tilanne on vaikea. Venäjä on vienyt sotilaita lähelle Ukrainan rajaa. Pelätään, että Venäjä hyökkää Ukrainaan.
+
+Venäjä ei halua, että Ukraina liittyy sotilasliitto Natoon. Venäjä on vaatinut, että sotilasliitto Nato ei ota uusia jäsenmaita.
+
+Macron sanoo, että Naton ovet pysyvät auki. Se on Macronin mielestä tärkeää myös Ruotsille ja Suomelle, jos ne haluavat liittyä Natoon.
+
+## Katujengit
+
+![Ihmisten jalkoja auton valojen edessä.](https://img.img-cdn.yle.fi/crop_extract,w_3615,h_2033,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7420695fafdcb2bd267/1605360915)
+
+Avaa kuvien katselu
+
+Kuva: Henrietta Hassinen / Yle
+
+Poliisi on saanut valmiiksi esitutkinnan, joka liittyy Helsingin seudun katujengeihin.
+
+Poliisi epäilee helsinkiläisiä ja espoolaisia katujengien jäseniä monista rikoksista. Epäillään, että katujengien jäsenet ovat tehneet paljon väkivaltarikoksia.
+
+Gangsta rap -musiikki on vaikuttanut katujengien syntymiseen. Gansta rap -musiikissa ihaillaan rikollista elämäntapaa ja katujengien taistelua.
+
+Katujengien jäsenet ovat usein nuoria miehiä, joilla on maahanmuuttajatausta.
+
+## Muistisairaudet
+
+![Toiminnanohjaajat työntävät vanhuksia pyörätuolissa Myyrmäen vanhustenkeskuksessa.](https://img.img-cdn.yle.fi/crop_extract,w_5539,h_3116,x_0,y_363/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6490285e5d269b2de84/1583163455)
+
+Avaa kuvien katselu
+
+Muistisairairauksia tulee lisää, kun vanhusten määrä kasvaa. Kuva: Eleni Paspatis / Yle
+
+Muistisairauksista on saatu uutta tietoa.
+
+Tutkija Elisa Neuvonen sanoo, että persoonallisuuden piirteet voivat vaikuttaa muistisairauden syntyyn. Vanhuksella on 2 tai 3 kertaa suurempi riski sairastua muistisairauteen, jos hän on kyyninen ja vihainen.
+
+Myös masennusoireet voivat liittyä muistisairauksiin. Siksi on tärkeää, että masennusoireet huomataan ja niitä hoidetaan, tutkija Neuvonen sanoo.
+
+## Roosa nauha
+
+![roosa nauha](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10497115)
+
+Avaa kuvien katselu
+
+Roosa nauha vuodelta 2018. Kuva: Niko Mannonen / Yle
+
+Roosa nauha -kampanja on onnistunut hyvin. Roosa nauha -kampanja kerää rahaa syöpätutkimusta varten.
+
+Viime syksyn aikana Roosa nauha -kampanja keräsi syöpätutkimukselle melkein 5 miljoonaa euroa. Se on yli puoli miljoonaa euroa enemmän kuin edellisellä kerralla.
+
+Monet tuntevat Roosa nauha -kampanjan rintanauhoista. Rintanauhojen myynnillä kerätään rahaa kampanjalle.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12308159)
+
+Avaa kuvien katselu
+
+Keskiviikkona sää on koko maassa poutaista.
+
+Maan eteläosassa paistaa aurinko. Muualla pilvisyys on runsasta.
+
+Pakkasta on 1-10 astetta. Vain etelä- ja länsirannikolla lämpötila on asteen verran plussan puolella.
+
+Loppuviikolla sää on poutaista ja melko aurinkoista.
+
+Etelässä lämpötila on vielä torstaina vähän plussan puolella, mutta sen jälkeen myös etelässä on pakkasta.

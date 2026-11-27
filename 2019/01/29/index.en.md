@@ -1,0 +1,63 @@
+# Tuesday 29.1.2019 (radio)
+
+More and more shortcomings are being found in the care of the elderly. Posti is starting co-operation negotiations. The birth rate continues to fall. Darude is Finland's Eurovision representative.
+
+## Many care companies have neglected their duties
+
+![An Attendo practical nurse walks a resident of Hopehelmi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10404374)
+
+Open image viewer
+
+An Attendo practical nurse takes a resident for a walk. Photo: Mikko Savolainen / Yle
+
+A Yle investigation says that the care company Attendo has problems all over Finland. Attendo is Finland's biggest care company. For example, in Laaksolahti in Espoo, residents were not given enough food. In addition, medicines were given without a doctor's prescription.
+
+The Regional State Administrative Agency has made several decisions about Attendo's care homes. The decisions have required corrections to the operations of the care homes. In some care homes the problems have continued for many years.
+
+A Yle investigation says that there have also been neglect cases at Mehiläinen's care homes. For example, in Kouvola a resident was without nutrition for 18 hours while being fed through a tube.
+
+Yesterday, problems at Esperi Care's care homes in different parts of Finland were reported. Esperi's chief executive, Marja Aarnio-Isohanni, resigned from her job. The company announced the resignation on Tuesday morning.
+
+All the opposition parties are going to take part in a possible motion of no confidence. The SDP has proposed a motion of no confidence on the care of the elderly. A motion of no confidence measures whether the government has the confidence of Parliament.
+
+## Posti is firing employees
+
+![Postman](https://img.img-cdn.yle.fi/crop_extract,w_4214,h_2370,x_0,y_270/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-413991595e03bf6df55/1571807253)
+
+Open image viewer
+
+Photo: Henrietta Hassinen / Yle
+
+Posti is starting co-operation negotiations. They concern administration and postal services. Posti says that the reason is the sharp decline in the number of letters.
+
+Perhaps up to 236 permanent employees will lose their jobs. In addition, there will be layoffs, and part-time work will also be increased. Posti is seeking growth from online shopping and logistics services.
+
+Employees say that because of the dismissals, the quality of the postal service will get even worse.
+
+## The birth rate continues to fall
+
+![A baby yawns.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10618673)
+
+Open image viewer
+
+Finland's population is growing only through immigration. Photo: AOP
+
+The birth rate continued to fall last year. Statistics Finland says that a total of about 47,300 children were born last year. That is over 3,000 fewer than in 2017.
+
+Women living in Finland have on average 1.4 children in their lifetime. That is the lowest figure in the history of measurements.
+
+Finland's population was a little over 5,521,000 at the end of the year. The population growth last year was a little over 8,600. The growth was due to immigration.
+
+## Darude goes to Eurovision
+
+![Sebastian Rejman and Darude](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5393395c502456cbbd4/1549012170)
+
+Open image viewer
+
+Sebastian Rejman (left) and Darude, that is Ville Virtanen. Photo: Yle / Anton Sucksdorff
+
+Finland's representative in this spring's Eurovision is Darude. The entry will be chosen in the New Music Contest on 2 March.
+
+Darude, that is the musician Ville Virtanen, is an internationally known artist. Darude's worldwide hit was the single Sandstorm.
+
+Darude will perform in the contest together with the guest soloist Sebastian Rejman. The Eurovision contest will be held in Tel Aviv, Israel, in May.

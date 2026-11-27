@@ -1,0 +1,81 @@
+# Keskiviikko 28.8.2019 (radio)
+
+Porvoon ampumistapaus. Kevytautot eivät ehkä tule liikenteeseen. Ilmastoaktivisti Greta Thunberg. Selkokirjailija Seija Niinistö-Samela. Torstai on lämmin päivä.
+
+## Porvoon ampumistapaus
+
+![Poliisin autoja Eestinmäen päiväkodin pihalla aikaisin sunnuntaina aamulla 25. elokuuta](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_264/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5857805d63904fa9b04/1566806170)
+
+Avaa kuvien katselu
+
+2 miestä ampui poliiseja kohti viikonloppuna Porvoossa. Kuva: Lehtikuva
+
+Poliisi vaatii, että käräjäoikeus vangitsee 2 miestä, jotka liittyvät ampumiseen Porvoossa. Poliisi sanoo, että miehet ehkä yrittivät murhata poliiseja. Miehet ampuivat poliiseja kohti ensin Porvoossa ja sitten takaa-ajossa.
+
+Poliisi sanoo, että miehet ampuivat ehkä useita kymmeniä laukauksia poliiseja kohti.
+
+Käräjäoikeus pitää huomenna oikeudenkäynnin. Oikeudenkäynnissä käräjäoikeus päättää vangitsemisesta.
+
+Tapauksessa loukkaantui 2 poliisia.
+
+## Kevytautot eivät ehkä tule liikenteeseen
+
+![Kevytautoja koeajettavana Auto 2018 -tapahtumassa Helsingissä 9. marraskuuta 2018. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10942463)
+
+Avaa kuvien katselu
+
+Kevytautot näyttävät tavallisilta autoilta. Niiden ajonopeutta rajoitetaan. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Suomi joutuu ehkä muuttamaan lakia, joka koskee kevytautoja. Euroopan unioni ei hyväksy kevytautoja.
+
+Kevytauto on tavallisen auton näköinen auto, jolla ajetaan hitaammin kuin tavallisella autolla. Kevytautolla voi ajaa nopeutta 60 kilometriä tunnissa.
+
+Kevytautoa voi ajaa 15-vuotias, jolla ei vielä ole oikeaa ajokorttia.
+
+Mutta nyt käy todennäköisesti niin, että kevytautot eivät tule liikenteeseen.
+
+EU:n mielestä on liian vaarallista, että 15-vuotiaat voivat ajaa kevytautoa.
+
+## Greta Thunberg New Yorkissa
+
+![Greta Thunberg postaama kuva Twitterissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10941026)
+
+Avaa kuvien katselu
+
+Greta Thunberg purjehti Atlantin yli. Kuva: Greta Thunberg
+
+Ruotsalainen ilmastoaktivisti Greta Thunberg on tullut perille Yhdysvaltoihin, New Yorkiin.
+
+Hän matkusti 2 viikkoa Atlantin yli purjeveneellä, koska hän vastustaa lentämistä.
+
+16-vuotias Greta osallistuu Yhdysvalloissa ja Chilessä isoihin ilmastokokouksiin.
+
+## Selkokirjailija Seija Niinistö-Samela sai Tietopöllön
+
+![nainen kirjahyllyn edessä selaamassa kirjaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10941857)
+
+Avaa kuvien katselu
+
+Seija Niinistö-Samela kirjoittaa tietokirjoja selkokielellä. Kuva: Merja Windia / YLE
+
+Selkokirjailija Seija Niinistö-Samela on saanut tämän vuoden Tietopöllö-palkinnon.
+
+Tietopöllö-palkinto annetaan kirjailijalle, joka kirjoittaa hyviä tietokirjoja lapsille ja nuorille.
+
+Seija Niinistö-Samela on julkaissut selkokielellä 7 tietokirjaa. Hän on kirjoittanut esimerkiksi koirista, roboteista, fysiikasta, energiasta ja Suomen luonnosta.
+
+## Torstaina on poutasää
+
+![Sääkuva: Poro](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10942990)
+
+Avaa kuvien katselu
+
+Katsojat lähettävät Yleen paljon sääkuvia. Tämän kuvan porosta on lähettänyt Marjatta Tolonen. Poroilla on ollut lämmin Pohjois-Suomessa. Kuva: Marjatta Tolonen
+
+Tänään oli lämmin päivä. Pohjois-Suomessa Lapissa oli 25 astetta lämmintä.
+
+Lapissa ei yleensä ole niin lämmin tähän aikaan kesästä.
+
+Huomenna torstaina on vielä lämmintä.
+
+Sitten perjantaina tulee sateita ja sää vilenee.

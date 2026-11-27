@@ -1,0 +1,83 @@
+# Maanantai 13.6.2016 (radio)
+
+Yhdysvalloissa surraan Orlandon ampumistapauksen uhreja. Suomessa on yhä enemmän lyhyitä työsuhteita. Stockmann vähentää 400. Viranomaiset eivät tunnista kunniaväkivaltaa. Jalkapallofaneja joutuu oikeuteen Ranskassa.
+
+## 
+
+## Yhdysvallat suree Orlandon uhreja
+
+![Pariskunta suremassa joukkosurman uhreja San Franciscossa 12. kesäkuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8952694)
+
+Avaa kuvien katselu
+
+Yhdysvalloissa surraan Orlandon uhreja. Kuva: John G. Mabanglo / EPA
+
+Yhdysvalloissa ihmiset surevat Orlandon ampumistapauksen uhreja. Esimerkiksi Valkoisen talon edessä on ollut iso muistotilaisuus.
+
+Asemies hyökkäsi eilen homoseksuaalien suosimaan yökerhoon Floridan Orlandossa ja ampui ainakin 50 ihmistä kuoliaaksi.
+
+Poliisi surmasi asemiehen, jonka nimi oli Omar Mateen. Mateen oli vannonut uskollisuutta terroristijärjestö Isisille ennen iskuja.
+
+Liittovaltion poliisi FBI oli kuulustellut Mateenia jo aikaisemmin terroriepäilyjen takia.
+
+## Lyhytaikainen työ lisääntyy
+
+![Siivousta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6471905)
+
+Avaa kuvien katselu
+
+Työtä ei aina ole riittävästi Kuva: Yle
+
+Suomessa työttömyys on vähenemässä, mutta lyhytaikainen ja osa-aikainen työ lisääntyy, kertoo Suomen suurin työttömyyskassa YTK.
+
+Työttömyyskassaan voi liittyä jäseneksi, jos maksaa kassaan pienen osan palkasta. Työttömyyskassan jäsen saa kassasta rahaa, jos hän jää työttömäksi.
+
+Moni suomalainen kuuluu johonkin työttömyyskassaan.
+
+## Stockmann vähentää työntekijöitä
+
+![Helsingin Stockmann.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8832922)
+
+Avaa kuvien katselu
+
+Tavaratalo ei houkuttele asiakkaita entiseen malliin. Kuva: Jyrki Lyytikkä / Yle
+
+Stockmann-tavarataloketju aikoo vähentää lähes 400 työntekijää. Stockmann ei kuitenkaan vähennä myyjiä.
+
+Stockmann sanoo, että etenkin muodin myynti on vähentynyt. Tavarataloissa ei käy asiakkaita yhtä paljon kuin ennen, vaan ihmiset ostavat tuotteita verkkokaupasta eli internetistä.
+
+## Kunniaväkivaltaan ei osata puuttua
+
+![Naisen silhuetti ikkunaa vasten](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5384728)
+
+Avaa kuvien katselu
+
+Kunniaväkivalta on yhteisön tekemää väkivaltaa, jota yhteisö ei tuomitse. Kuva: Yle
+
+Suomen viranomaiset eivät osaa puuttua kunniaväkivaltaan, sanoo Ihmisoikeusliitto.
+
+Kunniaväkivalta on esimerkiksi uhkailua tai fyysistä väkivaltaa, jonka avulla yritetään suojella perheen tai suvun kunniaa.
+
+Kunniaväkivalta kohdistuu yleensä naisiin. Perhe voi sulkea naisen kotiin, ja naisia voidaan pahoinpidellä ja uhkailla. Se ei ole Suomessa sallittua.
+
+Yksi kunniaväkivallan muoto ovat pakkoavioliitot. Tyttöjä voidaan esimerkiksi pakottaa naimisiin sellaisen sukulaisen kanssa, joka asuu toisessa maassa.
+
+Ihmisoikeusliitto vaatii pakkoavioliittojen kriminalisointia eli rangaistusta niille, jotka järjestävät pakkoavioliittoja.
+
+## Jalkapallofaneja oikeuteen
+
+![Englantilaiset jalkapallofanaatikot Euro 2016](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8951081)
+
+Avaa kuvien katselu
+
+Jalkapallofaneja joutui oikeuteen. Kuva: EPA
+
+Joukko jalkapallofaneja joutuu Ranskassa oikeuteen.
+
+Kuusi brittiä, yksi itävaltalainen ja kolme ranskalaista joutuvat oikeuteen, koska he ovat mellakoineet jalkapallon Euroopan-mestaruuskisoissa eli EM-kisoissa.
+
+Syyttäjä vaatii heille vankeustuomiota ja maahantulokieltoa.
+
+Myös 150 venäläistä jalkapallofania epäillään mellakoinnista. Poliisi ei onnistunut pidättämään heitä. 
+
+Marseillen kaupungissa jalkapallofanit tappelivat rajusti lauantaina Venäjän ja Englannin jalkapallo-ottelun jälkeen.

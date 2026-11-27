@@ -1,0 +1,41 @@
+# Selkouutiset | maanantai 2.11.2026
+
+Työttömyys. Venäjä. Kauppojen tiedonkeruu. Sää.
+
+## Työttömyys
+
+Ensin aiheena on työttömyys.
+
+Suomessa on työttömiä ihmisiä eniten Euroopassa. Seuraavaksi eniten työttömiä on Espanjassa ja Ruotsissa. Suomen työttömyysprosentti on 11. Koko EU:ssa luku on 6,2.
+
+Yritykset eivät palkkaa ihmisiä töihin, koska maailman taloudessa on epävarmuutta. Teollisuudessa on vain vähän uusia työpaikkoja.
+
+Suomessa on työttömiä ihmisiä eniten Euroopassa. Asiantuntijat uskovat, että työttömyys helpottaa Suomessa vähän ensi vuonna.
+
+## Venäjä jääkiekon MM-kisoihin
+
+Nyt uutinen jääkiekosta ja Venäjästä.
+
+Venäjä pääsee mukaan jääkiekon MM-kisoihin ensi vuonna. Näin päätti kansainvälinen urheiluoikeus. Venäjä on suljettu pois monista urheilukisoista, koska Venäjä hyökkäsi Ukrainaan.
+
+Suomen jääkiekkoliitto sanoo, että urheiluoikeuden päätös on huono. Myös presidentti **Alexander Stubb** arvostelee päätöstä.
+
+Venäjä pääsee mukaan jääkiekon MM-kisoihin ensi vuonna. Urheiluministeri **Mika Poutala** ihmettelee päätöstä:
+
+-Kyllä tämä kieltämättä oli yllättävä veto. Vetää kyllä hieman surulliseksi.
+
+## Kauppojen tiedonkeruu
+
+Seuraavaksi uutinen ruokakaupoista.
+
+Ruokakaupat keräävät pajon tietoja asiakkaista. Kauppa saa tietoa, kun asiakas käyttää kaupassa etukorttia. Ruokakauppa päättelee asiakkaan ostoksista, millainen elämäntilanne hänellä on.
+
+Kauppa käyttää tietoja, kun se tekee mainoksia. Tietoja käytetään myös esimerksi siihen, kun ihmisille lähetetään erilaisia tarjouksia.
+
+Ruokakaupat keräävät pajon tietoja asiakkaista. S-ryhmä ja Kesko säilyttävät asiakkaan ostohistoriaa noin 10 vuoden ajan.
+
+## Sää
+
+Vielä sääennuste.
+
+Tiistaina on aurinkoista. Idässä on pilvistä ja voi sataa vähän vettä. Pohjoisessa on pakkasta. Etelässä lämpötila on melkein 10 astetta. Iltapäivä on myös tuulinen.

@@ -1,0 +1,73 @@
+# Maanantai 25.4.2022 (radio)
+
+Ranskan presidentinvaalit. USA:n ministereitä Ukrainassa. Maailman vanhin ihminen. Helsingin lentoaseman harjoitus. Sää.
+
+## Macron voitti vaalit
+
+![Emmanuel Macronin voitonjuhlassa Eiffel-tornin juurella Champ de Mars -puistoaukiolla.](https://img.img-cdn.yle.fi/crop_extract,w_4993,h_2809,x_0,y_325/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9457186265b08aa7728/1650831717)
+
+Avaa kuvien katselu
+
+Presidentti Emmanuel Macron. Kuva: Guillaume Horgajuelo / EPA
+
+Emmanuel Macron on voittanut Ranskan presidentinvaalit. Macron jatkaa Ranskan presidenttinä seuraavat 5 vuotta.
+
+Ranskalaiset äänestivät presidentinvaaleissa sunnuntaina. Nykyinen presidentti Macron voitti vaalien toisella kierroksella Marine Le Penin.
+
+Macron sai noin 58 prosenttia äänistä. Äärioikeiston ehdokas Marine Le Pen sai noin 41 prosenttia äänistä.
+
+Ranskan vaalit kiinnostivat koko Eurooppaa. Macron kannattaa vahvaa Euroopan unionia, mutta Marine Le Pen suhtautuu Euroopan unioniin kriittisesti.
+
+Suomen ulkoministeri Pekka Haavisto uskoo, että myös Suomen ja Ranskan hyvä yhteistyö jatkuu Macronin voiton jälkeen.
+
+Haavisto arvioi, että Macronin Ranska esimerkiksi tukee Suomea, jos Suomi päättää hakea jäsenyyttä puolustusliitto Natossa.
+
+## USA:n ministereitä Kiovassa
+
+![Lloyd Austin, Volodymyr Zelenskyi ja Antony Blinken poseeraavat amerikan ja ukrainan lippujen välissä](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_167/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-94577362663a69b6864/1650866968)
+
+Avaa kuvien katselu
+
+USA:n puolustusministeri Lloyd Austin, Ukrainan presidentti Volodymyr Zelenskyi ja USA:n ulkoministeri Antony Blinken Kiovassa. Kuva: Ukrainan presidentinkanslia / Reuters
+
+USA:n ministereitä on vieraillut Ukrainan pääkaupungissa Kiovassa.
+
+USA:n ulkoministeri Anthony Blinken ja puolustusministeri Lloyd Austin tapasivat Kiovassa Ukrainan presidentin Volodymyr Zelenskyin.
+
+Ministerit lupasivat lisää tukea Ukrainalle. USA antaa Ukrainalle sotilaallista tukea, jonka arvo on 700 miljoonaa dollaria.
+
+Ukrainan sota on jatkunut jo 2 kuukautta. Venäjä hyökkäsi Ukrainaan helmikuun lopussa.
+
+## Maailman vanhin kuoli
+
+Maailman tämän hetken vanhin ihminen on kuollut. Hän oli japanilainen Kane Tanaka. Tanaka oli 119-vuotias.
+
+Tanaka oli kuolemaan asti melko hyväkuntoinen. Hän asui hoitokodissa.
+
+Tanakalla oli paljon harrastuksia. Hän pelasi lautapelejä ja harjoitteli kalligrafiaa eli kirjoitustaidetta. Kane Tanakan lempiherkku oli suklaa.
+
+## Lentoasemalla harjoitellaan
+
+![Helsinki-Vantaan lentoasema, uusi terminaali, matkustajia Finnairin lähtöselvityksessä.](https://img.img-cdn.yle.fi/crop_extract,w_3773,h_2122,x_0,y_362/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9314686239bc17787f3/1647951149)
+
+Avaa kuvien katselu
+
+Helsinki-Vantaan lentoasema. Kuva: Terhi Liimu / Yle
+
+Helsinki-Vantaan lentoasemalla harjoitellaan toimintaa onnettomuustilanteessa. Harjoitus järjestetään keskiviikkona.
+
+Harjoitus on iso. Pelastuslaitos kertoo, että mukana on noin 450 ihmistä ja monia hälytysajoneuvoja, esimerkiksi ambulansseja ja paloautoja.
+
+Harjoituksen aikana Helsinki-Vantaan lentoaseman ympäristössä on savua. Savu ei ole varallista.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12417230)
+
+Avaa kuvien katselu
+
+Tiistaina tuulee koko maassa ja sää tuntuu kylmältä. Lapissa ja Kainuussa voi sataa vähän lunta, muualla paistaa enimmäkseen aurinko.
+
+Lämpötila on tiistaina etelässä alle 10 astetta, Lapissa on vähän pakkasta.
+
+Keskiviikkona sää kylmenee myös etelässä. Lämpötila on -4 ja +6 asteen välillä koko maassa.

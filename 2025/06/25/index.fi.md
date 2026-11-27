@@ -1,0 +1,45 @@
+# TV | Selkouutiset | keskiviikko 25.6.2025
+
+Lähi-idän tulitauko. Pyörämatkailu. Purkutaide. Sää.
+
+## Iranin ja Israelin tulitauko
+
+Ensin uutinen ulkomailta.
+
+Israel ja Iran ovat tehneet tulitauon. Maat ovat siis lopettaneet sotatoimet. USA sanoo, että seuraavaksi Israelin ja Iranin pitää tehdä rauhansopimus.
+
+Israel aloitti sotatoimet Irania vastaan kesäkuun puolivälissä. Iran kertoo, että yli 600 ihmistä kuoli Israelin hyökkäyksissä. Israel kertoo, että Iranin hyökkäyksissä kuoli noin 30 ihmistä.
+
+Juhannuksena myös USA:n sotakoneet pommittivat Irania. USA iski Iranin ydinlaitoksia vastaan.
+
+Israel ja Iran ovat tehneet tulitauon. Maat eivät ole rikkoneet tulitaukoa.
+
+## Pyörämatkailu
+
+Nyt aiheena on matkailu.
+
+Pyörämatkailu on suositumpaa kuin aikaisemmin. Moni ihminen haluaa ajaa polkupyörällä myös lomamatkalla.
+
+Tässä kuvassa ajetaan maastopyörällä Rovaniemellä.
+
+Lapin matkailufirmat haluavat, että Lappiin tulee turisteja ajamaan polkupyörällä. Siksi Lappiin kannattaa rakentaa uusia reittejä, joilla voi ajaa maastopyörällä.
+
+Pyörämatkailu on suositumpaa kuin aikaisemmin. Matkailufirmat arvioivat, että tulevaisuudessa pyöräturisteja on vielä paljon enemmän kuin nyt.
+
+## Purkutaide
+
+Seuraavan uutisen aiheena on taide.
+
+Helsingissä on tänä kesänä uusi taidenäyttely. Purkutaide-näyttely on kerrostalossa.
+
+Purkutaide-näyttely rakennetaan taloon, joka puretaan pian tai on huonossa kunnossa.
+
+Helsingin Purkutaide-näyttelyssä on esimerkiksi maalauksia, veistoksia ja sarjakuvia. Näyttelyssä on paljon tavaroita, joita kukaan ei enää käytä.
+
+Helsingissä on tänä kesänä uusi taidenäyttely. Purkutaide-näyttelyyn osallistuu yli 70 taiteilijaa.
+
+## Sää
+
+Vielä sääennuste.
+
+Torstaina isossa osassa Suomea on poutaa. Paikoin voi sataa vähän vettä. Lännessä paistaa aurinko. Lämpötila on noin 10-20 astetta.

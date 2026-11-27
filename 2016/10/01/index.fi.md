@@ -1,0 +1,63 @@
+# Lauantai 1.10.2016 (radio)
+
+Rikesakon saa nyt helpommin kuin ennen. Yksinäisyys on monien ongelmien juurisyy. Kirkko haluaa auttaa turvapaikanhakijoita. Autiomaasta on löytynyt jättimäinen jalanjälki.
+
+## Uudet rikesakon rajat tulivat voimaan
+
+![Poliisin valvontakemera.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9204106)
+
+Avaa kuvien katselu
+
+Poliisi valvoo nopeuksia myös teknisesti. Tolppakameroita eli "peltipoliiseja" on monilla teillä. Kuva: Ismo Pekkarinen / AOP
+
+Rikesakko annetaan nyt helpommin kuin ennen. Uudet ohjeet tulivat voimaan lauantaina.
+
+Poliisi antaa rikesakon, jos ylinopeutta on seitsemän (7) kilometriä tunnissa. Aiemmin rikesakon sai, jos ylinopeutta oli kahdeksan (8) kilometriä tunnissa.
+
+Poliisi alkaa valvoa nopeuksia tehokkaammin riskipaikoissa. Riskipaikkoja on esimerkiksi päiväkotien ja koulujen lähellä.
+
+Rikesakon määrä on kiinteä eli kaikille sama.
+
+## Yksinäisyys on monen ongelman juurisyy
+
+![Juho Saari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9185513)
+
+Avaa kuvien katselu
+
+Professori Juho Saari Tampereen yliopistosta tietää, millainen on suomalaisen elämän nurja puoli. Kuva: Tiina Jutila / Yle
+
+Yksinäisyys on monien ongelmien syy Suomessa. Professori Juho Saari sanoo, että melkein joka viides suomalainen tuntee olevansa yksinäinen. Se on melkein 20 prosenttia suomalaisista.
+
+Yksinäisyys on myös iso yhteiskunnallinen ongelma. Yksinäisyys voi olla esimerkiksi päihdeongelman, ylipainon tai masennuksen syy. Professori sanoo, että yksinäisyys on niin sanottu juurisyy.
+
+Monilla yksinäisyys alkaa jo lapsuudessa. Aikuisena esimerkiksi työn saaminen voi olla vaikeaa yksinäisyyden takia.
+
+Tutkija sanoo, että yhteiskunnan pitää huolehtia myös yksinäisistä. Professorin huolena ovat erityisesti yksinäiset aikuiset miehet, jotka eivät ole töissä, koulutuksessa tai parisuhteessa.
+
+## Piispat haluavat auttaa turvapaikanhakijoita
+
+![Kuvassa eri hiippakuntien piispoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9196433)
+
+Avaa kuvien katselu
+
+Piispat pohtivat, mikä rooli kirkolla on turvapaikanhakijoiden auttamisessa. Kuva: Kalle Mäkelä / Yle
+
+Piispat sanovat, että kirkko ei voi sulkea ovea niiltä turvapaikanhakijoilta, jotka ovat saaneet kielteisen turvapaikkapäätöksen.
+
+Yle Uutiset kysyi asiaa Suomen evankelis-luterilaisen kirkon piispoilta.
+
+Enemmistö piispoista sanoo, että kirkko haluaa auttaa ihmisiä. Kirkko ei silti voi tarjota ihmisille varsinaista turvapaikkaa, koska se on yhteiskunnan tehtävä. Piispat sanovat, että kirkko voi auttaa turvapaikanhakijoita esimerkiksi yhdessä viranomaisten kanssa.
+
+## Gobin autiomaasta löytyi jättiläisen jalanjälki
+
+![Hymyilevä tutkija makaa koholle kivettyneen jalanjäljen vieressä. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9204199)
+
+Avaa kuvien katselu
+
+Professori Shinobu Ishigaki Japanista näyttää, kuinka suuri dinosauruksen jalanjälki on. Kuva: Okayaman yliopisto 
+
+Gobin autiomaasta Mongoliasta on löytynyt iso kivettynyt jalanjälki. Dinosauruksen jalanjälki on yksi kaikkien aikojen suurimmista jalanjäljistä. Jälki on yli metrin pitkä ja melkein 80 senttimetriä leveä.
+
+Jälki löytyi maakerroksesta, joka on noin 70 miljoonaa vuotta vanha. Silloin Gobi ei ollut vielä autiomaa vaan mutatasanko. Jalkapohja jätti mutaan jäljen, joka oli kuin muotti.
+
+Tutkijat uskovat, että jättimäinen eläin oli lajiltaan titanosaurus. Eläin oli ehkä isompi kuin iso lentokone eli jumbojetti ja painoi yli 70 tonnia.

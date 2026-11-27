@@ -1,0 +1,7 @@
+# Torstai 27.7.2017 (tv)
+
+Venäjän presidentti on vierailulla Suomessa. Voin hinta on noussut maailmalla. Mansikanpoimijat ansaitsevat tunnissa enemmän kuin metsämarjojen poimijat. Perthin Suomi-koulu lähettää terveisiä 100-vuotiaalle Suomelle. Lämmin sää jatkuu vielä perjantaina.
+
+Yle Uutiset selkosuomeksi
+
+Venäjän presidentti on vierailulla Suomessa. Voin hinta on noussut maailmalla. Mansikanpoimijat ansaitsevat tunnissa enemmän kuin metsämarjojen poimijat. Perthin Suomi-koulu lähettää terveisiä 100-vuotiaalle Suomelle. Lämmin sää jatkuu vielä perjantaina.

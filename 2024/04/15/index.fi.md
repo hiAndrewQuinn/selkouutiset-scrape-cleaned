@@ -1,0 +1,68 @@
+# TV \| Selkouutiset \| maanantai 15.4.2024
+
+Iranin hyökkäys Israeliin. Kehysriihi. Naislejonien MM-pronssi. Sää.
+
+## Iranin hyökkäys Israeliin
+
+Aluksi uutinen ulkomailta.
+
+Iranin hyökkäys Israeliin lisää jännitettä Lähi-idässä.
+
+Iran ampui Israeliin satoja ohjuksia ja drooneja lauantaina illalla.
+
+Israelin ilmapuolustus kuitenkin torjui melkein kaikki ohjukset ja droonit. Siksi tuhoja tuli vain vähän Israelissa.
+
+Iranin ilmahyökkäys Israeliin on kosto.
+
+Pääsiäisenä Israel iski Iranin konsulaattiin Syyriassa. Israel surmasi silloin 7 Iranin vallankumouskaartin jäsentä.
+
+Siksi Iran iski nyt Israeliin.
+
+Iranin hyökkäys Israeliin kiristää jännitettä Lähi-idässä. Israel voi esimerkiksi vastata Iranin hyökkäykseen.
+
+## Kehysriihi
+
+Nyt uutinen politiikasta.
+
+Hallitus on aloittanut kehysriihi-kokouksen. Kehysriihessä hallitus suunnittelee, kuinka paljon Suomi käyttää rahaa eri asioihin tulevina vuosina.
+
+Hallituspuolueet ovat valmistelleet kehysriihen päätöksiä jo monta viikkoa.
+
+Hallituksen tavoite on leikata menoja 2 miljardia euroa ja kiristää veroja miljardi euroa. Näin valtion talouteen saadaan rahaa 3 miljardia euroa.
+
+Jo aiemmin hallitus sopi 6 miljardin euron toimista. Taloustilanne on kuitenkin vaikeutunut lisää.
+
+Pääministeri **Petteri Orpo** (Kok.) sanoo, että kehysriihestä tulee vaikea.
+
+*- Jokainen varmasti ymmärtää, että kun taustalla on jo keväällä hallitusneuvotteluissa tehty 6 miljardin* *sopeutuspaketti, tämä on äärettömän vaikeaa.*
+
+Hallitus on aloittanut kehysriihikokouksen. Kehysriihi kestää 2 päivää.
+
+## Naisten jääkiekon MM-pronssi
+
+Lopuksi urheilu-uutinen.
+
+Suomen naisten jääkiekkojoukkue on voittanut pronssia MM-kisoissa. Suomi voitti sunnuntaina pronssiottelussa Tshekin.
+
+Suomi meni toisessa erässä 2-1 johtoon, kun **Viivi Vainikka** teki Suomelle maalin.
+
+Lopuksi ottelu oli tasan 2-2 ja pelattiin rangaistuslaukauskilpailu. Suomen **Michelle Karvinen** ja **Petra Nieminen** onnistuivat maalinteossa.
+
+Suomen maalivahti **Sanni Ahola** torjui Tshekin viimeisen yrityksen.
+
+Näin Suomen naisten jääkiekkojoukkue voitti pronssia MM-kisoissa. Joukkueen edellinen MM-mitali oli vuodelta 2021.
+
+## Sää
+
+Vielä sääennuste.
+
+Sää on pilvistä koko maassa.
+
+Monin paikoin tulee heikkoja sateita.
+
+Lapissa sataa lunta, muualla vettä.
+
+Sää kylmenee.
+
+Lämpötila on enimmäkseen -2 ja +7 asteen välillä.
+

@@ -1,0 +1,83 @@
+# Lauantai 18.8.2018 (radio)
+
+Terrorismivinkkehin tartutaan nyt nopeammin kuin ennen. Turussa marssittiin puukkoiskun vuosipäivänä. Kansalaisaloite tyttöjen silpomisesta etenee eduskuntaan. Italiassa on kansallinen surupäivä. YK:n entinen pääsihteeri Kofi Annan on kuollut.
+
+## Poliisi ja terrorismivinkit
+
+![Kynttilä- ja kukkameri muistuttaa Turun puukotuksen uhreista.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9790535)
+
+Avaa kuvien katselu
+
+Kukkia ja kynttilöitä Turun kauppatorilla viime elokuun puukkoiskun jälkeen. Kuva: Lassi Lähteenmäki / Yle
+
+Poliisi on muuttanut terrorismivinkkien käsittelyä Turun puukkoiskun jälkeen.
+
+Puukkoiskusta on tänään kulunut vuosi. Marokkolainen mies hyökkäsi viime vuoden elokuussa puukon kanssa ihmisten kimppuun Turun torilla. Kaksi ihmistä kuoli ja 8 haavoittui.
+
+Puukottajasta oli annettu vinkki poliisille jo ennen iskua. Vinkissä epäiltiin, että mies on radikalisoitunut. Hän esimerkiksi puhui paljon Isis-terroristijärjestöstä.
+
+Paikallispoliisi lähetti vinkin suojelupoliisille. Suojelupoliisi kirjasi tiedot, mutta asia jäi sitten siihen.
+
+Nyt poliisin toimintatapaa on muutettu. Myös paikallispoliisi tutkii vinkkejä. Vinkkeihin myös tartutaan nopeammin kuin ennen.
+
+## Turun mielenosoitukset
+
+![Turku ilman natseja -mielenosoitus.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10359349)
+
+Avaa kuvien katselu
+
+Yli tuhat ihmistä marssi mielenosoituksessa, joka vastusti uusnatseja. Kuva: Pasi Peiponen / Yle
+
+Turussa on ollut mielenosoituksia puukkoiskun vuosipäivänä.
+
+Uusnatsijärjestö Pohjoismaisen Vastarintaliikkeen mielenosoitukseen osallistui yli 300 ihmistä.
+
+Turku ilman natseja -vastamielenosoitukseen osallistui yli tuhat ihmistä.
+
+Isoja kahakoita ei ollut, mutta poliisi otti kiinni 10 ihmistä.
+
+## Kansalaisaloite tyttöjen silpomisesta
+
+![terä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9845673)
+
+Avaa kuvien katselu
+
+Kansalaisaloite haluaa, että tyttöjen silpominen kielletään omalla lailla. Kuva: AOP
+
+50 000 ihmistä on allekirjoittanut kansalaisaloitteen, joka haluaa kieltää tyttöjen sukuelinten silpomisen. Allekirjoituksia on nyt niin paljon, että kansalaisaloite etenee eduskuntaa.
+
+Tyttöjen silpominen eli ympärileikkaus on jo nyt vastoin Suomen rikoslakia.
+
+Kansalaisaloitteen tekijät kuitenkin haluavat, että silpominen kielletään omalla lailla, joka kattaa myös ulkomailla tehdyt silpomiset.
+
+## Italiassa surupäivä
+
+![Näkymä Morandi-sillalle romahduksen jälkeen.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10354888)
+
+Avaa kuvien katselu
+
+Morandin silta Genovassa päivä romahduksen jälkeen. Kuva: Luca Zennaro / EPA
+
+Italiassa pelastustyöntekijät ovat löytäneet lisää kuolonuhreja Genovan siltaromahduksen jäljiltä.
+
+Italian media kertoo, että sillan raunioista löydettin auto, jossa oli kolmihenkinen perhe. Viranomaiset eivät ole vielä vahvistaneet tietoa.
+
+Jos tieto pitää paikkansa, siltaromahduksessa kuoli ainakin 41 ihmistä.
+
+Italiassa on vietetty tänään kansallista surupäivää ja haudattu kuolonuhreja. .
+
+## Kofi Annan on kuollut
+
+![Kofi Annan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10359498)
+
+Avaa kuvien katselu
+
+Kofi Annan vieraili Helsingissä toukokuussa 2017. Kuva: Henrietta Hassinen / Yle
+
+YK:n entinen pääsihteeri Kofi Annan on kuollut. Hän oli 80-vuotias.
+
+Kofi Annan oli kotoisin Ghanasta Länsi-Afrikasta.
+
+Hän oli YK:n pääsihteeri vuodesta 1997 vuoteen 2006.
+
+Annan palkittiin Nobelin rauhanpalkinnolla vuonna 2001.

@@ -1,0 +1,75 @@
+# Lauantai 16.9.2017 (radio)
+
+Britannian poliisi on ottanut kiinni nuoren miehen perjantain pommi-iskun takia. Ministeri Paula Risikko sanoo, että poliisi on estänyt monta iskua Suomessa viime vuosina. Suurin osa suomalaisista haluaa, että presidentti Sauli Niinistö jatkaa presidenttinä. Ruotsin kruununprinsessa Victoria vierailee Suomessa. Maailman vanhin ihminen, jamaikalainen Violet Moss-Brown, on kuollut.
+
+## Britannian poliisi tutkii pommi-iskua
+
+![Poliiseja ja pelastushenkilökuntaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9836259)
+
+Avaa kuvien katselu
+
+Poliisi tutkii Lontoon pommi-iskua. Kuva: Daniel Leal-Olivais / AFP
+
+Britannian poliisi on ottanut kiinni miehen perjantain pommi-iskun takia. Mies on 18-vuotias.
+
+Lontoon metrossa räjähti pommi perjantaina. Räjähdyksessä loukkaantui 30 ihmistä.
+
+Britannian poliisi jatkaa iskun tutkimista.
+
+## Suomen poliisi on estänyt iskuja
+
+![Paula Risikko.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9836187)
+
+Avaa kuvien katselu
+
+Sisäministeri Paula Risikko. Kuva: Yle
+
+Ministeri Paula Risikko sanoo, että poliisi on estänyt monta iskua Suomessa viime vuosina. Risikko on Suomen sisäministeri. Sisäministerin vastuulla ovat esimerkiksi poliisiasiat.
+
+Risikko kertoi Ylen tv-haastattelussa, että poliisi esti myös iskun poliitikkoja vastaan. Joku aikoi hyökätä poliittisia päättäjiä vastaan noin 5 vuotta sitten, Risikko sanoi. Poliisi on estänyt myös esimerkiksi kouluampumisia.
+
+Ministeri Risikon mielestä poliisi on onnistunut estämään iskuja hyvällä yhteistyöllä. Suomessa eri viranomaisten yhteistyö toimii hyvin, Risikko sanoo.
+
+## Niinistö on suosituin presidenttiehdokas
+
+![Presidentti Sauli Niinistö Ylen Ykkösaamussa lauantaina 2. syyskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9812565)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Yle
+
+Suurin osa suomalaisista haluaa, että presidentti Sauli Niinistö jatkaa presidenttinä.
+
+Suomessa on presidentinvaalit tammikuussa. Helsingin Sanomat kysyi melkein 1000 ihmiseltä, kenet he haluavat presidentiksi. 68 prosenttia vastaajista kannatti Sauli Niinistöä.
+
+Muilla presidenttiehdokkailla oli paljon vähemmän kannattajia. Kyselyssä toiseksi tuli Pekka Haavisto. 13 prosenttia vastaajista kannatti Haavistoa.
+
+Presidentinvaalit järjestetään tammikuun 28. päivä.
+
+## Victoria vierailee Suomessa
+
+![Prinsessa victoria perheensä kanssa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9723737)
+
+Avaa kuvien katselu
+
+Kruununprinsessa Victoria perheensä kanssa Tukholmassa. Kuva: AOP
+
+Suomi on saanut tärkeän vieraan naapurimaa Ruotsista. Ruotsin kruununprinsessa Victoria tuli lauantaina Suomeen.
+
+Victoria käy Helsingissä Oopperassa. Hän näkee lauantai-iltana oopperan, jonka nimi on Syyssonaatti. Oopperan teksti perustuu kuuluisan ruotsalaisen ohjaajan Ingmar Bergmanin elokuvaan. Oopperan pääroolin laulaja on ruotsalainen Anne Sofie von Otter. Von Otter tunnetaan ympäri maailmaa.
+
+Kruununprinsessa Victoria vierailee Helsingissä, koska itsenäinen Suomi täyttää tänä vuonna 100 vuotta.
+
+## Maailman vanhin ihminen kuoli
+
+![trooppisia Hedelmiä kulhossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9476448)
+
+Avaa kuvien katselu
+
+Hyvä ruoka auttaa elämään pitkään, sanoi maailman vanhin ihminen. Kuva: AOP
+
+Maailman vanhin ihminen on kuollut. Hän oli jamaikalainen Violet Moss-Brown. Hän oli 117-vuotias.
+
+Moss-Brown ehti olla maailman vanhin ihminen melkein vuoden ajan.
+
+Moss-Brown kertoi pitkään ikään 2 syytä. Ne olivat puhdas elämä ja hyvä ruoka.

@@ -1,0 +1,86 @@
+# Perjantai 25.6.2021
+
+Juhannus. Juhannustapahtumat. Juhannuskokot. Juhannustaika. Juhannussää.
+
+TV:n selkouutisilla on kesätauko.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Juhannus
+
+![Kuvassa liehuu Suomen lippu.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_150/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6732375eb7aa5b00565/1607238475)
+
+Avaa kuvien katselu
+
+Suomen lippu liehuu lipputangossa koko juhannuksen. Kuva: Silja Viitala / Yle
+
+Suomessa vietetään nyt juhannusta. Perjantai on juhannusaatto ja lauantai on juhannuspäivä.
+
+Monet ovat matkustaneet kaupungista kesämökille. Autoteillä oli paljon liikennettä, mutta juhannusaattona ei tapahtunut pahoja onnettomuuksia.
+
+Juhannuksen paluuliikennettä vähentää se, että monet aloittavat kesäloman juhannuksena. Siksi he jäävät kesämökille pitemmäksi aikaa.
+
+Juhannus on myös Suomen lipun päivä. Lippu nostetaan ylös lipputankoon juhannusaattona kello 18 ja lasketaan alas vasta juhannuspäivänä kello 21. Juhannusyö on ainoa yö, jolloin liputetaan.
+
+## Juhannustapahtumat
+
+![Arppa, Espan lava](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11997609)
+
+Avaa kuvien katselu
+
+Muusikot ovat taas päässeet esiintymään. Tässä Arppa Helsingissä pari päivää ennen juhannusta. Kuva: Jussi Mankkinen / Yle 
+
+Tänä juhannuksena järjestetään jo joitakin juhannustapahtumia.
+
+Tapahtumia voidaan järjestää, koska koronatilanne on parempi kuin aikaisemmin ja koronarajoituksia on helpotettu.
+
+Esimerkiksi Himos Juhannus -tapahtumaan tulee noin 5000 kävijää joka päivä. Tapahtuma on Jämsässä, Jyväskylän lähellä.
+
+Myös muissa kaupungeissa järjestetään juhannuksena esimerkiksi konsertteja.
+
+## Juhannuskokot
+
+![Juhannuskokko palaa merenrannassa.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-4524075a3bb8a074989/1686904366)
+
+Avaa kuvien katselu
+
+Juhannuskokko. Kuva: Rinna Härkönen / Yle
+
+Eri puolilla Suomea poltetaan juhannuskokkoja.
+
+Juhannuskokkojen kanssa pitää kuitenkin olla varovainen.
+
+Kuiva metsä voi syttyä helposti tuleen, ja tuli leviää tuulisella säällä helposti.
+
+## Juhannustaika
+
+![Sananjalan lehti kämmenellä](https://img.img-cdn.yle.fi/crop_extract,w_4032,h_2268,x_0,y_378/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-82523660d45d6ad98c0/1624530350)
+
+Avaa kuvien katselu
+
+Tuleeko sananjalkaan kukkia juhannusyönä? Kuva: Tuija Veirto/ Yle
+
+Juhannus on taikojen aikaa. Juhannustaikoja tehdään kasveilla.
+
+Vanhaan aikaan suomalaiset uskoivat, että kasveilla on vahva taikavoima juuri juhannuksena. Kasvien taikavoima toi ihmisille rakkautta ja terveyttä.
+
+Suomalaiset uskoivat esimerkiksi, että sananjalka kukkii vain juhannusyönä. Siksi sen taikavoima oli tosi vahva.
+
+Jos ihminen löysi sananjalan kukan, hän oppi esimerkiksi ymmärtämään eläinten kieltä ja olemaan näkymätön. Tehtävä oli kuitenkin vaikea, koska sananjalka ei oikeasti kuki, ei edes juhannusyönä.
+
+Nykyään juhannustaika on monille hauska leikki. Juhannustaikoja tehdään esimerkiksi somessa.
+
+Katso video juhannustaioista
+
+## Juhannussää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11998253)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää on juhannuksena lämmin. Lämpötila on 20 ja 25 asteen välillä. Lapissa on kylmempää.
+
+Sää on kuitenkin epävakaista, eli sadekuuroja tulee eri puolilla Suomea. Sadekuuroja ja myös ukkoskuuroja tulee erityisesti etelässä ja idässä.
+
+Selkouutiset toivottaa hyvää juhannusta!

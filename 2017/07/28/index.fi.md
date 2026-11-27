@@ -1,0 +1,7 @@
+# Perjantai 28.7.2017 (tv)
+
+Venäjän presidentin vierailu Suomessa oli kiireinen. Presidentit Putin ja Niinistö keskustelivat ympäristöasioista. Monet turvapaikanhakijat ovat kääntyneet kristinuskoon. Pienet dronet ovat hauska harrastus, koska ne lentävät ja kääntyvät nopeasti. Säätiedot.
+
+Yle Uutiset selkosuomeksi
+
+Venäjän presidentin vierailu Suomessa oli kiireinen. Presidentit Putin ja Niinistö keskustelivat ympäristöasioista. Monet turvapaikanhakijat ovat kääntyneet kristinuskoon. Pienet dronet ovat hauska harrastus, koska ne lentävät ja kääntyvät nopeasti. Säätiedot.

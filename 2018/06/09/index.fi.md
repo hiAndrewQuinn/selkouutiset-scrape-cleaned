@@ -1,0 +1,73 @@
+# Lauantai 9.6.2018 (radio)
+
+Keskustan ja kokoomuksen puheenjohtajat jatkavat tehtävissä. Itärajalla tarjotaan hiv-testejä. Presidentti siirtyi kesäksi Kultarantaan. Lauantaina on vietetty suomalaisen saunan päivää. Mansikka kypsyy juhannukseksi.
+
+## Orpo ja Sipilä jatkavat puheejohtajina
+
+![Petteri Orpo ja Juha Sipilä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10243756)
+
+Avaa kuvien katselu
+
+Kokoomuksen puheenjohtaja Petteri Orpo ja keskustan puheenjohtaja Juha Sipilä saivat jatkokauden. Kuva: AOP
+
+Keskustan ja kokoomuksen puoluekokoukset ovat jatkuneet lauantaina. Molempien puolueiden puheenjohtajat saivat jatkokauden.
+
+Juha Sipilä on johtanut keskustaa 6 vuotta. Petteri Orpo valittiin kokoomuksen johtoon 2 vuotta sitten.
+
+Keskustan puoluekokous on Sotkamossa ja kokoomuksen kokous Turussa.
+
+## Itärajalla on tarjolla hiv-testejä
+
+![kondomeja tehtaalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10238662)
+
+Avaa kuvien katselu
+
+Kondomi suojaa sukupuolitaudeilta. Kuva: EPA
+
+Suomen 3 itäisellä raja-asemalla on tarjolla hiv-testausta. Suomen Punainen Risti ja Hivpoint päivystävät Imatran, Vartiuksen ja Niiralan raja-asemilla lauantaina ja sunnuntaina.
+
+Itärajan sairaanhoitopiireissä on todettu suuri määrä hiv-tartuntoja muuhun Suomeen verrattuna. Suurin osa on yli 60-vuotiaita miehiä, jotka ovat saaneet tartunnan Venäjän puolelta.
+
+Hiv-testi on ilmainen, ja tuloksen saa 1 minuutissa. Lisäksi järjestöt jakavat kondomeja ja tietoa turvaseksistä.
+
+## Presidentin perhe siirtyy Kultaranntaan
+
+![Presidentin kesäasunto Kultaranta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5457835)
+
+Avaa kuvien katselu
+
+Presidentin kasäasunto Kultaranta sijaitsee Naantalissa. Kuva: Jyrki Valkama / YLE
+
+Tasavallan presidentti Sauli Niinistön perhe on siirtynyt kesäasuntoon Kultarantaan.
+
+Naantalin kaupunki järjesti vastaanoton satamassa. Samalla presidentti Niinistö ja rouva Jenni Haukio tapasivat yleisöä.
+
+Naantalin Kultaranta on ollut presidentin kesäasunto vuodesta 1922. Yleisö pääsee tutustumaan Kultarannan puistoalueeseen perjantai-iltaisin. Alueella järjestetään myös opastettuja kierroksia.
+
+## Suomalaisen saunan päivä
+
+![nainen saunoo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10010940)
+
+Avaa kuvien katselu
+
+Saunominen Suomessa voi päästä Unescon aineettoman kulttuuriperinnön luetteloon. Kuva: Ismo Pekkarinen / AOP
+
+Lauantaina on vietetty suomalaisen saunan päivää. Helsingin rautatientorilla oli Suomi saunoo -tapahtuma. Torille tuotiin 9 saunaa.
+
+Paikalla oli myös Sauna Unescoon -hankkeen edustajia eri puolilta Suomea. Opetus- ja kulttuuriministeriö ehdottaa saunomista Unescon aineettoman kulttuuriperinnön luetteloon. Unesco on Yhdistyneiden kansakuntien eli YK:n kulttuurijärjestö.
+
+Syksyllä julistetaan Suomi saunoo -päivä. Silloin toivotaan, että mahdollisimman monet saunovat Suomessa samaan aikaan.
+
+## Mansikkaa saadaan juhannuksena
+
+![Mansikka kypsyy Mattilan luomutilalla Nurmijärvellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9746670)
+
+Avaa kuvien katselu
+
+Mansikka ehtii juhlistamaan juhannusta. Kuva: Tuomo Björksten/Yle
+
+Mansikat kypsyvät juhannukseen mennessä. Sato kypsyy aikaisemmin kuin viime vuonna, jolloin pääsato kypsyi vasta heinäkuun alkupuolella.Pääsadon onnistuminen vaatii vielä sadetta ja noin 20 asteen lämpöä. Etelä-Suomen ja länsirannikon mansikkapellot tarvitsevat sadetta eniten.
+
+Halla eli pakkanen maan pinnassa ei ole vielä haitannut mansikkaa. Mansikkaa voi suojella harsolla. Ongelmia voi kuitenkin tulla, jos yöpakkaset jatkuvat pitkään.
+
+Mansikan satokausi on tänä vuonna hyvin lyhyt.

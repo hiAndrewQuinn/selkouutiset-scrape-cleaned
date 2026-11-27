@@ -1,0 +1,55 @@
+# Lauantai 21.2.2015
+
+Kreikka saa lisää aikaa lainaohjelmalle. Dubailaisessa pilvenpiirtäjässä oli tulipalo. Lämmin sää häiritsi Kuopion jäämaratonia. Sää jatkuu harmaana.
+
+## Kreikka saa lisää aikaa lainaohjelmalle
+
+![ Yanis Varoufakis.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7820607)
+
+Avaa kuvien katselu
+
+Kreikan rahaministeri Giánis Varoufákis kiinnosti toimittajia Brysselin kokouksessa. Kuva: Stephanie Lecocq / EPA
+
+Neuvottelut Kreikan lainoista ovat menneet eteenpäin. Kreikka ja euromaat ovat sopineet, että Kreikka saa lisää aikaa lainaohjelmalle. Kreikka tarvitsee lisää aikaa, koska muuten lainaohjelma loppuu helmikuun lopussa ja Kreikalta loppuvat rahat.
+
+Kreikka saa neljä (4) kuukautta lisää aikaa lainaohjelmalle, mutta ei ilman ehtoja. Kreikan täytyy viimeistään maanantaina kertoa, miten se haluaa muuttaa lainasopimusta. Euromaat arvioivat Kreikan toiveita tiistaina. Kreikka saa lisää aikaa lainaohjelmalle vain, jos euromaat ovat varmoja, että Kreikan talousuudistukset jatkuvat.
+
+Kreikan velat ovat niin suuret, että se ei tule toimeen ilman muiden euromaiden apua. Kreikan uusi hallitus on kuitenkin sitä mieltä, että Kreikan lainaohjelman ehdot ovat liian kovat. Kreikan hallituksen mielestä euromaat ovat vaatineet Kreikkaa säästämään niin paljon, että tavallisten kreikkalaisten elämä on hankalaa.
+
+## Pilvenpiirtäjässä oli tulipalo
+
+![Pelastustyöntekijä Marina Torch -pilvenpiirtäjän edustalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7820743)
+
+Avaa kuvien katselu
+
+Tulipalo syttyi Marina Torch -pilvenpiirtäjässä Dubaissa. Kuva: Ali Haider / EPA
+
+Dubaissa, Lähi-idässä, on ollut erikoinen tulipalo. Tulipalo syttyi rakennuksessa, joka on 340 metriä korkea. Kukaan ei kuollut tulipalossa.
+
+Tulipalo syttyi kerroksen numero 50 kohdalla. Rakennuksessa on 79 kerrosta, joista 20 kärsi vahinkoa tulipalossa. Vielä ei tiedetä, mikä oli tulipalon syy.
+
+## Sää häiritsi Kuopion jäämaratonia
+
+![Luistelijat tulossa maaliin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7821028)
+
+Avaa kuvien katselu
+
+Jäämaratonilla oli mukana paljon hollantilaisia. Kuva: Anu Pöntinen / Yle
+
+Kuopiossa on järjestetty jäämaraton. Luistelijat luistelivat pitkiä matkoja Kallaveden jäällä. Kallavesi on Pohjois-Savon suurin järvi.
+
+Tänä vuonna Kallaveden jää oli pehmeää lämpimän sään takia, ja monet luistelijat kaatuivat. Kilpailumatkoja lyhennettiin. Esimerkiksi pisin matka oli vain noin 120 kilometriä, vaikka sen piti olla 200 kilometriä.
+
+Järjestäjät tekivät paljon työtä, että kilpailurata saatiin kuntoon. Kilpailun johtaja Timo Oinonen kertoo, että järjestäjät ovat tottuneet vaikeisiin sääoloihin. Tapahtuma on jo yli 30 vuotta vanha, mutta se on peruttu kokonaan vain kerran.
+
+Kuopion jäämaratonille osallistui tänä vuonna noin 600 ihmistä. Mukana oli myös paljon ulkomaalaisia, esimerkiksi hollantilaisia. Jotkut osallistujat eivät käyttäneet luistimia, vaan potkukelkkaa tai polkupyörää.
+
+## Sää pysyy harmaana
+
+![Maitoauto jäisellä tiellä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7821169)
+
+Avaa kuvien katselu
+
+Lämmin sää tekee tiet liukkaiksi. Kuva: Riina Kasurinen/Yle
+
+Sää jatkuu melko lämpimänä, harmaana ja sateisena. Sunnuntaina lunta ja räntää sataa suuressa osassa maata. Etelässä sataa vettä. Kaunein sää löytyy Lapista.

@@ -1,0 +1,71 @@
+# Tiistai 11.4.2023 (radio)
+
+Vihreiden puheenjohtaja Maria Ohisalo lopettaa puheenjohtajan työn. Uuden eduskunnan kausi alkoi. Suomalaisten työkyky ja toimintakyky huononevat. Katupölyä on nyt paljon. Sääennuste.
+
+## Vihreiden puheenjohtaja Maria Ohisalo
+
+![Maria Ohisalo tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_extract,w_5000,h_2812,x_0,y_219/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1097475643513b821c13/1681200217)
+
+Avaa kuvien katselu
+
+Maria Ohisalo puhui toimittajille eduskunnassa. Kuva: Silja Viitala / Yle
+
+Vihreiden puheenjohtaja Maria Ohisalo lopettaa puheenjohtajan työn. Ohisalo ei asetu ehdolle enää uudelle puheenjohtajakaudelle kesäkuun puoluekokouksessa. 
+
+Vihreille tuli eduskuntavaaleissa vaalitappio. Puolue menetti 7 paikkaa. Ohisalo sanoo, että hänellä on vastuu tappiosta. 
+
+Ohisalo sanoo, että vihreiden on hyvä valita nyt uusi johto. Uusi puheenjohtaja valitaan vihreiden puoluekokouksessa kesäkuussa.
+
+## Uusi eduskunta aloittaa
+
+![Sanna Marin ojentaa valtakirjaansa.](https://img.img-cdn.yle.fi/crop_extract,w_4999,h_2811,x_0,y_272/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-109769864355cbdb4969/1681219788)
+
+Avaa kuvien katselu
+
+Sanna Marin esitti kansanedustajan valtakirjan. Kuva: Silja Viitala / Yle
+
+Uuden eduskunnan kausi on alkanut. Kansanedustajat esittivät tiistaina eduskunnassa valtakirjan, että heidät on valittu tehtävään.
+
+Puolueiden eduskuntaryhmät pitivät kokouksia, joissa päätettiin eduskuntaryhmien puheenjohtajat. Monet eduskuntaryhmät valitsivat entisen puheeheenjohtajan jatkamaan myös tällä vaalikaudella.
+
+Kokoomuksen eduskuntaryhmän puheenjohtajana jatkaa Kai Mykkänen, keskustan eduskuntaryhmän puheenjohtaja jatkaa Eeva Kalli ja Vasemmistoliiton eduskuntaryhmän puheenjohtaja jatkaa Jussi Saramo. 
+
+Kristillisdemokraattien eduskuntaryhmän puheenjohtajana jatkaa Peter Östman ja SDP:n eduskuntaryhmän puheenjohtajana jatkaa Antti Lindtman. Perussuomalaisten ryhmän puheenjohtajaksi tulee Lulu Ranne.
+
+## Suomalaisten työkyky
+
+![Person som stavgår i ett vintrigt, soligt landskap. ](https://img.img-cdn.yle.fi/crop_extract,w_4866,h_2737,x_728,y_656/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-107602663f5cd5263a19/1677053623)
+
+Avaa kuvien katselu
+
+Liikunta auttaa usein työkykyä ja toimintakykyä. Kuva: Milena Hackman / Yle
+
+Suomalaisten työkyky ja toimintakyky huononevat. Terveyden ja hyvinvoinninlaitos eli THL ja Kela ovat tutkineet suomalaisten hyvinvointia. 
+
+Suomalaisten työkyky ja toimintakyky alkoivat huonontua noin 10 vuotta sitten. Mielenterveysongelmat, lihavuus ja huono ravitsemus ovat lisääntyneet. Työ- ja toimintakykyä huonontavat myös vähäinen liikunta, tupakointi ja päihteet. 
+
+THL:n ja Kelan raportti sanoo, että uuden hallituksen pitää vahvistaa suomalaisten työ- ja toimintakykyä. Yksi keino voi olla vero elintarvikkeille, joissa on paljon sokeria, suolaa tai rasvaa.
+
+## Katupöly
+
+![Nekalassa Vihiojantiellä katua puhdistettiin isolla koneella.](https://img.img-cdn.yle.fi/crop_extract,w_3718,h_2091,x_0,y_186/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-94480962626645dfee1/1650616209)
+
+Avaa kuvien katselu
+
+Kaupungit harjaavat hiekan pois kaduilta. Kuva: Miikka Varila / Yle
+
+Katupölyä on nyt paljon monissa kaupungeissa. Sää on kuivaa ja aurinkoista. Sadetta ei tule. Siksi katupölytilanne jatkuu vaikeana.
+
+Katupölyn takia ilmanlaatu on ollut huono monissa kaupungeissa. Katupölyä on paljon, koska kaduilla on paljon hiekoitushiekkaa. 
+
+Kaupungit ovat alkaneet kerätä hiekkaa pois kaduilta. Työtä on paljon. Siksi voi kestää monta viikkoa, että kaikki hiekka ehditään harjata pois. 
+
+## Sää
+
+![Keskiviikon sääkartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12690379)
+
+Avaa kuvien katselu
+
+Sää on enimmäkseen poutaista eli ei sada.
+
+Keskiviikkona sää on laajalti poutaista ja melko aurinkoista. Lounaassa voi tulla sade- tai ukkoskuuroja. Lämpötila on 10 ja 15 asteen välillä, pohjoisessa on viileämpää.

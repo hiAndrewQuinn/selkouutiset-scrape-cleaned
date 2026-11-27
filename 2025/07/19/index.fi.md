@@ -1,0 +1,81 @@
+# Radio | Uutisviikko selkosuomeksi | lauantai 19.7.2025
+
+Uimarantojen vaarat ja uimavalvojan työ.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Poliisi tutkii vaaratilanteita rannoilla
+
+![Poliisin tekninen tutkija uimarannalla, taustalla ihmisiä nauttimassa aurinkoisesta päivästä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3240,w_5761,x_15,y_21/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1752671421/39-14944796877a2b68f3bb)
+
+Avaa kuvien katselu
+
+Jos aikuinen ei huolehdi lapsesta uimarannalla, kyseessä voi olla heitteillepano. Se on rikos. Kuva: Petteri Bülow / Yle
+
+Tällä viikolla uimarannoilla on ollut monta vaaratilannetta. Monet lapset ovat melkein hukkuneet veteen.
+
+Tapauksia on ollut ainakin Espoossa, Turussa, Tampereella ja Helsingissä.
+
+Lapset olivat vedessä, mutta vanhemmat eivät olleet lasten lähellä. Muut aikuiset ja uimavalvojat pelastivat lapset vedestä.
+
+Esimerkiksi Helsingin Aurinkolahdessa on ollut tällä viikolla ainakin 4 vaaratilannetta.
+
+Espoossa kaksi nuorta pelasti lapsen, joka oli jo vajonnut veden alle.
+
+Poliisi tutkii, onko kyse rikoksesta, kun vanhempi ei ole valvonut lasta.
+
+## Rantavalvojan päätehtävä on valvoa
+
+![Rantavalvoja tarkkailee uimareita aurinkoisena kesäpäivänä.](https://images.cdn.yle.fi/image/upload/c_crop,h_3130,w_5566,x_0,y_1/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1752671401/39-14944756877a2b30d9a9)
+
+Avaa kuvien katselu
+
+Kuva: Petteri Bülow / Yle
+
+Uimavalvojalla on vaativa työ.
+
+Tänä kesänä Helsingin kaupunki sai 240 hakemusta uimavalvojan tehtävään. 40 valittiin.
+
+Joissakin kaupungeissa päteviä uimavalvojia ei ole tarpeeksi.
+
+Uimavalvojan pitää esimerkiksi osata soittaa hätänumeroon, kutsua apua paikalle sekä antaa ensiapua.
+
+Uimavalvojat sanovat, että hukkuvaa ihmistä on vaikea tunnistaa ilman koulutusta.
+
+Espoon kaupungin liikuntajohtaja Martti Merra sanoo, että uimavalvojan tehtävä on valvoa rantaa ja sen turvallisuutta.
+
+Päätehtävä ei ole olla hengenpelastaja.
+
+Poliisi sanoo, että aikuinen on aina vastuussa lapsen turvallisuudesta. Lasta voi valvoa kunnolla vain, jos on itse vedessä ja aivan lapsen vieressä.
+
+## Yhä useampi lapsi ei osaa uida
+
+![Uimakoululaisia uimastadionin altaassa, mukana opettaja Tanja Kautiainen.](https://images.cdn.yle.fi/image/upload/c_crop,h_3078,w_5472,x_0,y_12/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1654860315/39-96830862a323cd21a1c)
+
+Avaa kuvien katselu
+
+Helsingin kaupungin järjestämä uimakoulu Uimastadionilla.  Kuva: Mårten Lampén
+
+Yhä useampi lapsi ei osaa uida.
+
+Suomessa uimataito on perinteisesti ollut kansalaistaito. Pohjoismaissa on määritelty, mitä uimataito tarkoittaa.
+
+Uimataitoinen pystyy nousemaan syvältä veden alta pinnalle ja uimaan yhtäjaksoisesti 200 metriä. Siitä 50 metriä pitää uida selällään.
+
+6.-luokkalaisista koululaisista enää vain puolet osaa uida. Korona-aikana kaikki lapset eivät päässeet uimakouluun.
+
+Myös maahanmuuttajien uimataito on usein heikko. Joskus maahanmuuttajaperheessä kukaan ei osaa uida.
+
+Maahanmuuttajille on monessa kaupungissa omia uimakouluja.
+
+## Kertaus
+
+Uutisviikon aihe olivat uimarantojen vaarat.
+
+Yhä useampi lapsi ei osaa uida. Aikuiset eivät vahdi lapsia tarpeeksi.
+
+Poliisi tutkii tämän viikon vaaratilanteita rannoilla.
+
+Tässä oli Uutisviikko selkosuomeksi - kuulemiin huomiseen!

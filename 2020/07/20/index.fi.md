@@ -1,0 +1,82 @@
+# Maanantai 20.7.2020 (radio)
+
+Suomen koronatilanne on edelleen rauhallinen. Koirat osaavat haistaa koronaviruksen. Ranskassa ihmisten pitää käyttää kasvomaskia julkisissa sisätiloissa. Arabivaltioiden ensimmäinen avaruusluotain on lähtenyt matkaan. Sää on sateista.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Suomen koronatilanne
+
+![Koronan aikaan tiloja on jaettu muun muassa liikuteltavan sermin avulla Kainuun keskussairaalassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11455251)
+
+Avaa kuvien katselu
+
+Suomen sairaalat ovat selvinneet hyvin koronakriisistä. Kuva: Emmi Korhonen / Lehtikuva
+
+Suomen koronatilanne on edelleen rauhallinen.
+
+Suomesta on löydetty 5 uutta koronatartuntaa. Terveyden ja hyvinvoinnin laitos eli THL kertoi maanantaina, että Suomessa on nyt yhteensä 7340 koronatartuntaa.
+
+THL kertoi myös, että uusia koronakuolemia ei ole yhtään. Suomessa on kuollut 328 ihmistä koronan takia.
+
+## Koronakoiria koulutetaan
+
+![Kössi-koira haistelutehtävissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11358834)
+
+Avaa kuvien katselu
+
+Kössi-koira on oppinut löytämään koronaviruksen. Kuva: Susanna Paavilainen
+
+Koirat osaavat haistaa koronaviruksen. Koirat löytävät koronaviruksen ehkä jopa paremmin kuin laboratoriotestit.
+
+Helsingin yliopiston tutkimuksessa koirat ovat oppineet haistamaan, onko potilaan virtsassa koronaa. Koira on haistanut koronan jopa ennen, kuin laboratoriotestit ovat paljastaneet koronaviruksen.
+
+Helsingin yliopiston tutkimus kiinnostaa monia maita. Jos tutkijat onnistuvat kouluttamaan koronakoiria, niistä voi olla paljon apua.
+
+Koronakoirat voivat ehkä löytää esimerkiksi lentokentillä ihmiset, joilla on koronavirus. Silloin koronavirus ei pääse leviämään matkustajien mukana.
+
+## Ranskassa maskipakko
+
+![Kasvomaskiin pukeutunut asiakas tavaratalossa Pariisissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11456145)
+
+Avaa kuvien katselu
+
+Ranskalaisten pitää käyttää kasvomaskia esimerkiksi kauppakeskuksissa. Kuva: Alain Jocard / AFP
+
+Ranska taistelee koronaviruksen leviämistä vastaan.
+
+Maanantaina Ranskassa tuli voimaan uusi määräys. Nyt ihmisten on pakko käyttää kasvomaskia kaikissa julkisissa sisätiloissa, esimerkiksi kaupoissa ja pankeissa. Jos ihmisellä ei ole kasvomaskia, hän voi saada sakot.
+
+Aikaisemmin ranskalaisten on ollut pakko käyttää kasvomaskia julkisessa liikenteessä, esimerkiksi junissa.
+
+## Arabiemiraattien avaruusluotain
+
+![Putkilomainen raketti, jonka päässä mutterin muotoinen luotain. Ala näkyy Maan pilvinen pinta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11416511)
+
+Avaa kuvien katselu
+
+Avaruusluotain. Kuva: Arabiemiraattien avaruushallinto
+
+Arabivaltioiden ensimmäinen avaruusluotain on lähtenyt matkaan.
+
+Arabiemiraattien avaruusluotain sai nimen al-Amal eli Toivo. Avaruusluotain laukaistiin kohti avaruutta Japanista maanantaina.
+
+Avaruusluotain on matkalla kohti Mars-planeettaa. Se alkaa kiertää Marsia ensi vuoden helmikuussa.
+
+Avaruusluotaimen avulla tutkijat haluavat saada tietoa Marsin kaasukehästä.
+
+Arabiemiraatit haluaa myös, että avaruusprojekti innostaa arabinuoria. Projektissa on mukana paljon nuoria tutkijoita, ja monet heistä ovat naisia.
+
+## Sateinen sää
+
+![kesäsadetta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10265046)
+
+Avaa kuvien katselu
+
+Tällä viikolla on märkää. Kuva: AOP
+
+Sää muuttuu sateiseksi.
+
+Tiistaina sataa ja ukkostaa Länsi-Suomessa. Itä-Suomessa on vielä tiistaina aurinkoista ja lämmintä.
+
+Keskiviikkona eniten sataa Keski-Suomessa. Lämpötila on keskiviikkona jo alle 20 astetta melkein koko Suomessa.

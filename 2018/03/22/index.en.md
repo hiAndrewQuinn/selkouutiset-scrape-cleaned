@@ -1,0 +1,54 @@
+# Thursday 22.3.2018 (radio)
+
+Ways are being sought to stop inequality. It is harder than before to get asylum in Finland. Pekka Perä has received a new sentence. The popularity of shared flats has collapsed. Fish in the Baltic Sea are cleaner than before.
+
+## Working group: benefits should be combined
+
+![A person fills in a Kela form](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9840105)
+
+Open image viewer
+
+Different benefits should be combined, says a working group. Photo: Antti Kolppo / Yle
+
+Ways are being sought to stop inequality. The working group proposes that housing benefit, social assistance and basic daily allowance should be combined into the same law. Then applying for support would be easier. It would also be easier to take a short job without losing support. Debt counselling must be increased, so that people do not take expensive quick loans. The working group also says that the integration of immigrants must be increased.
+
+## It is harder to get asylum
+
+![Immigrants at a Finnish language lesson in Jyväskylä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9085001)
+
+Open image viewer
+
+The Immigration Service's line has tightened. Photo: Matti Myller / Yle
+
+It is harder than before to get asylum in Finland. Researchers have noticed that the Immigration Service has tightened its line on asylum matters. The Immigration Service rarely believes an asylum seeker's account of torture or violence. The agency's line has tightened since many asylum seekers came to Finland three years ago. The research group compared asylum decisions for young Iraqi adults from 2015 and 2017.
+
+## The popularity of shared flats has collapsed
+
+![New student housing in Joensuu, Kalevankatu, which will be completed in August.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8171451)
+
+Open image viewer
+
+New student flats in Joensuu. Photo: Lotta Jokinen / YLE
+
+Students no longer want to live in a shared flat, that is, together with other students.
+In many cities shared flats are being demolished. In their place, one-room flats are being built, because students now want to live in their own peace and not with someone else. The popularity of shared flats collapsed last autumn, when students started to receive general housing benefit. Students can now choose a flat more freely, because it does not have to be a shared flat.
+
+## A new sentence for Talvivaara's former director
+
+![Pekka Perä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10104784)
+
+Open image viewer
+
+Pekka Perä in the Court of Appeal. Photo: Sauli Antikainen / Yle
+
+Pekka Perä, the former managing director of the mining company Talvivaara, has received a new, harsher sentence. The Court of Appeal has sentenced Perä to 6 months' conditional imprisonment. The district court had earlier only imposed fines. Perä does not accept the new sentence. He wants to appeal against it to the Supreme Court. Pekka Perä was the director of the Talvivaara mine. He was sentenced because poisonous substances got into nature from the mine in Sotkamo. Two other directors of the Talvivaara mining company were fined.
+
+## Poisons in fish have decreased in the Baltic Sea
+
+![Herring caught off the coast of Kotka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7225770)
+
+Open image viewer
+
+Fish are healthy food. There is only a little poison in fish. Photo: Antti Kolppo / Yle
+
+Fish in the Baltic Sea are cleaner than before. The fish in the Gulf of Finland and the Bothnian Sea contain fewer environmental poisons than before. The fish contain less dioxin and PCB, because releasing poisons into nature has been restricted by law for many years. However, the amount of mercury in herring has not decreased in the 2000s. Researchers say that fish are healthy food. There is only a little poison in fish.

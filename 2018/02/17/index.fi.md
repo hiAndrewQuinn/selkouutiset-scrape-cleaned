@@ -1,0 +1,107 @@
+# Lauantai 17.2.2018
+
+Hiihtolomat alkavat. Pandat ulkoilevat. Eläinsuojelulakia protestoidaan. Venäjä USA:n vaaleissa. Etiopiaan hätätila. Kosovo 10 vuotta.
+
+## Hiihtolomat alkoivat Etelä-Suomessa
+
+![Junamatkailijoita Helsingin rautatieasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10079884)
+
+Avaa kuvien katselu
+
+Hiihtolomien aikaan junaliput pitää varata ajoissa, koska junat ovat usein täynnä. Kuva: Martti Kainulainen / Lehtikuva
+
+Moni perhe on lähtenyt hiihtolomalle viikonloppuna.
+
+Hiihtoloma on ensi viikolla Etelä-Suomen kouluissa.
+
+Hiihtolomalla matkustetaan usein Pohjois-Suomeen hiihtämään ja laskettelemaan. Moni matkustaa pohjoiseen junalla.
+
+Tänään Ouluun lähti juna, josta puuttui yksi vaunu.
+
+Juna oli täynnä, ja noin sata ihmistä joutui matkustamaan Ouluun ilman istumapaikkaa. Matka kesti yli viisi tuntia.
+
+Junayhtiö VR sanoo, että yksi vaunu oli jäänyt pois vahingossa. VR maksaa korvauksia matkustajille.
+
+## Pandat pääsivät ulkoilemaan
+
+![Pyry panda Ähtärissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10080528)
+
+Avaa kuvien katselu
+
+Pandat viihtyvät Suomen luonnossa. Kuva: Tarmo Niemi/Yle
+
+Ähtärin eläinpuiston kaksi pandaa on päässyt ensimmäistä kertaa ulos.
+
+Pandat tulivat Kiinasta Suomeen kuukausi sitten.
+
+Myös yleisö näki pandat tänään ensimmäistä kertaa. Paikalla oli satoja ihmisiä.
+
+Pandat leikkivät innoissaan lumessa.
+
+Pandojen nimet ovat Lumi ja Pyry.
+
+## Helsingissä marssittiin eläinsuojelulakia vastaan
+
+![parsinavetta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6901427)
+
+Avaa kuvien katselu
+
+Eläintensuojelijat vastustavat muun muassa parsinavettoja, joissa lehmiä pidetään kytkettyinä. Kuva: Yle
+
+Helsingin keskustassa oli tänään mielenosoitus uutta eläinsuojelulakia vastaan.
+
+Mielenosoittajat sanovat, että laissa on paljon puutteita. Laki ei kiellä turkistarhausta eikä lehmien ja sikojen ahtaita tiloja.
+
+Laista poistettiin myös kohta, jonka mukaan eläimillä pitää olla koko ajan vettä.
+
+Eläinsuojeluyhdistysten mielenosoituksessa oli noin tuhat henkeä. Laki ei ole vielä voimassa.
+
+## USA:ssa syytteitä venäläisille
+
+![Entinen FBI-johtaja Robert Mueller johtaa tutkimusta presidentti Trumpin vaalikampanjan yhteyksistä Venäjään.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10042018)
+
+Avaa kuvien katselu
+
+Robert Mueller on tutkinut, miten Venäjä on sekaantunut USA:n presidentinvaaleihin. Kuva: Michael Reynolds / EPA
+
+Yhdysvalloissa useita venäläisiä syytetään siitä, että he ovat sekaantuneet Yhdysvaltojen vuoden 2016 presidentinvaaleihin.
+
+Erikoissyyttäjä Robert Mueller on nostanut syytteet 13 venäläistä henkilöä vastaan.
+
+Myös kolmea venäläistä järjestöä syytetään.
+
+Mueller kertoo syytteissä tarkasti, miten Venäjä sekaantui vaaleihin esimerkiksi internetissä.
+
+Presidentti Donald Trump on aikaisemmin pitänyt Muellerin tutkimuksia turhina.
+
+Venäjä taas sanoo, että syytteet eivät pidä paikkaansa.
+
+## Etiopiaan julistettin hätätila
+
+![Siraj Fegessa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10080616)
+
+Avaa kuvien katselu
+
+Puolustusministeri Siraj Fegessa kertoi, että hätätila kestää puoli vuotta. Kuva: AOP
+
+Etiopiaan on määrätty kansallinen hätätila.
+
+Hätätila kestää kuusi kuukautta, ja sen aikana ei saa järjestää protesteja.
+
+Etiopian hallitus julisti hätätilan, koska maassa on paljon väkivaltaa.
+
+## Kosovo juhlii itsenäisyyttä
+
+![Karttagrafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9407038)
+
+Avaa kuvien katselu
+
+Kosovon albaaniväestö halusi itsenäisyyttä. He sotivat serbejä vastaan vuosina 1996-1999. Kuva: Yle
+
+Kosovo viettää tänään itsenäisyyspäivää.
+
+Kosovo itsenäistyi Serbiasta 10 vuotta sitten.
+
+Kosovon itsenäisyyden on nyt tunnustanut 115 maata. Myös Suomi on tunnustanut Kosovon itsenäisyyden.
+
+Sen sijaan esimerkiksi Serbia ja Venäjä eivät ole tunnustaneet Kosovoa.

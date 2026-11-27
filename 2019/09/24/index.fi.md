@@ -1,0 +1,65 @@
+# Tiistai 24.9.2019 (radio)
+
+Britannian pääministeri Boris Johnson rikkoi lakia. Matkatoimisto Tjäreborg jatkaa toimintaansa. Li Andersson haluaa jatkaa vasemmistoliiton puheenjohtajana. Suomalaiset eivät ole tyytyväisiä vartaloonsa.
+
+## Korkein oikeus: Boris Johnson rikkoi lakia
+
+![Boris Johnson](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10954482)
+
+Avaa kuvien katselu
+
+Britannian pääministeri Boris Johnson. Kuva: Neil Hall / EPA
+
+Britannian korkein oikeus on tehnyt tärkeän päätöksen.
+
+Päätöksessä sanotaan, että pääministeri Boris Johnson on rikkonut lakia. Johnson rikkoi lakia, kun hän määräsi, että Britannian parlamentin pitää ottaa pitkä tauko.
+
+Boris Johnson määräsi, että parlamentin pitää jäädä tauolle 9. syyskuuta alkaen. Tauon oli tarkoitus loppua 14. lokakuuta. Vastustajien mielestä Johnson määräsi tauon siksi, että parlamentti ei voi puhua Britannian EU-erosta eli brexitistä.
+
+Pääministeri Johnson ei aio erota korkeimman oikeuden päätöksen takia. Parlamentin puhemies on kutsunut parlamentin koolle jo keskiviikkona.
+
+Britannian aikoo jättää Euroopan unionin lokakuun lopussa.
+
+## Tjäreborg jatkaa toimintaa
+
+![Matkatoimisto Tjäreborgin logo Kampin kauppakeskuksen seinässä Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10985237)
+
+Avaa kuvien katselu
+
+Matkatoimisto Tjäreborgin logo Kampin kauppakeskuksen seinässä Helsingissä. Kuva: Markku Ulander / Lehtikuva
+
+Matkatoimisto Tjäreborg jatkaa toimintaa.
+
+Iso brittiläinen matkafirma Thomas Cook kertoi maanantaiaamuna, että se on mennyt konkurssiin. Thomas Cook omistaa Tjäreborgin.
+
+Tjäreborgin lentoliikenne palautuu normaaliksi tänään tiistaina. Tjäreborg kertoo, että sen järjestämillä matkoilla on edelleen noin 2000 suomalaista eri maissa. Tjäreborg yrittää saada matkalla olevat ihmiset kotiin pian.
+
+Samaan aikaan Tjäreborgille etsitään uutta omistajaa.
+
+## Li Andersson haluaa jatkaa vasemmistoliiton puheenjohtajana
+
+![Li Andersson](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10964109)
+
+Avaa kuvien katselu
+
+Opetusministeri Li Andersson. Kuva: Pekka Tynell / Yle
+
+Opetusministeri Li Andersson haluaa jatkaa vasemmistoliiton puheenjohtajana. Vasemmistoliitto valitsee puheenjohtajan Kuopiossa marraskuun puolivälissä. Li Andersson on tällä hetkellä ainoa ehdokas vasemmistoliiton puheenjohtajaksi.
+
+Li Andersson on ollut vasemmistoliiton puheenjohtaja vuodesta 2016 lähtien.
+
+## Suomalaiset haluavat paremman vartalon
+
+![Kuntosali harjoitus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10984766)
+
+Avaa kuvien katselu
+
+Kuntoilijoita step aerobic -tunnilla Saksan Essenissä. Kuva: Ralph Lueger / AOP
+
+Vain joka 3. suomalainen on tyytyväinen omaan vartaloonsa.
+
+Kysely kertoo, että muut eurooppalaiset ovat tyytyväisempiä omaan kehoonsa kuin suomalaiset. Esimerkiksi Saksassa ja Italiassa paljon useamman ihmisen mielestä oma keho on ihan hyvä.
+
+Suomalaiset miehet tykkäävät omasta kehostaan enemmän kuin suomalaiset naiset. Nuorten mielestä oma keho on parempi kuin vanhempien ihmisten mielestä.
+
+Moni haluaa muuttaa jotain asiaa omassa kehossaan. Suuri osa suomalaisista haluaa laihtua eli painaa vähemmän.

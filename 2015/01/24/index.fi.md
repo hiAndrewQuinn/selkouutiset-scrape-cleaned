@@ -1,0 +1,49 @@
+# Lauantai 24.1.2015
+
+Kreikassa on sunnuntaina parlamenttivaalit. Ulkomaalaiset työntekijät viihtyvät Suomessa. Juukaan on rakennettu maailman korkein jäärakennus.
+
+## Kreikkalaiset valitsevat uuden parlamentin
+
+![Syriza-puolueen puheenjohtaja Alexis Tsipras puoluekokouksessa Ateenassa 3. tammikuussa 2015. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7719230)
+
+Avaa kuvien katselu
+
+Mielipidekyselyt ennustavat, että Kreikan seuraava pääministeri on Alexis Tsipras. Kuva: Angelos Tzortzinis / AFP / Lehtikuva
+
+Kreikassa on sunnuntaina parlamenttivaalit. Kreikan vaalit kiinnostavat koko Eurooppaa, koska Kreikan huono taloustilanne on ollut koko Euroopan ongelma. Muut Euroopan maat ovat antaneet Kreikalle lainaa, mutta ne ovat samalla vaatineet, että Kreikan täytyy tehdä suuria säästöjä.
+
+Mielipidekyselyt kertovat, että vaalit voittaa ehkä puolue, jonka nimi on Syriza. Syriza ei halua jatkaa kovia säästöjä. Puolueen mielestä säästöt ovat tehneet tavallisten kreikkalaisten elämästä vaikeaa. Syriza haluaa neuvotella säästöistä uudelleen muiden Euroopan maiden kanssa.
+
+Jos Syriza voittaa vaalit, Syrizan johtaja Alexis Tsipras on Kreikan seuraava pääministeri. Nyt Kreikan pääministeri on Antonis Samaras. Mielipidekyselyissä Samarasin puolue Uusi demokratia on kuitenkin saanut vähemmän kannatusta kuin Syriza.
+
+## Ulkomaalaiset työntekijät viihtyvät Suomessa
+
+![Työpaikka.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7758132)
+
+Avaa kuvien katselu
+
+Ulkomaalaiset työntekijät kehuvat Suomea ja suomalaisia. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Monet ulkomaalaiset työntekijät ovat tyytyväisiä elämäänsä Suomessa. He kehuvat, että Suomi on turvallinen ja puhdas maa. Näin kertoo uusi tutkimus, jota varten tutkijat haastattelivat kansainvälisten firmojen hyvin koulutettuja työntekijöitä ja johtajia.
+
+Tutkimus kertoo, että ulkomaalaisten mielestä suomalaiset hyväksyvät ulkomaalaiset ihmiset. Suomalaiset ovat ystävällisiä ja auttavat toisia. Suomessa on helppo asioida myös virkamiesten kanssa.
+
+Tutkimus kertoo myös, että ulkomaalaisten työntekijöiden mielestä Suomi on kallis maa. Suomessa esimerkiksi ruoka maksaa paljon. Lisäksi palkasta menee paljon veroa.
+
+Ulkomaalaiset eivät pidä siitä, että suomalaiset haluavat puhua englantia heidän kanssaan. Se hidastaa suomen oppimista. Tutkimus kertoo, että ulkomaalaisten mielestä myös suomen kielen kursseja on liian vähän.
+
+## Juuan jäärakennus on maailman korkein
+
+![Juuan jääkatedraali.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7758543)
+
+Avaa kuvien katselu
+
+Juuan jääkatedraalissa on viisi (5) tornia. Oikealla päätorni, joka ei ole vielä valmis. Kuva: Pekka Sivukari / Yle
+
+Juukaan on rakennettu maailman korkein jäärakennus. Juuka on Itä-Suomessa.
+
+Juuan jäärakennus on jääkatedraali, jossa on viisi (5) tornia. Jääkatedraalissa on jo valmiina torni, joka on yli 20 metriä korkea. Päätornista tulee noin 30 metriä korkea.
+
+Juuan jääkatedraali on rakennettu pykriitistä. Pykriitti on veden ja sahanpurun eli pienten puuhiukkasten sekoitusta. Se on paljon kestävämpää kuin tavallinen jää.
+
+Juuan jääkatedraalin rakentajat ovat tulleet monesta maasta. Tärkein ja suurin joukko on tullut Eindhovenin teknillisestä yliopistosta Hollannista.

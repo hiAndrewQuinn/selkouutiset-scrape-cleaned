@@ -1,0 +1,67 @@
+# Selkouutiset | tiistai 27.10.2026
+
+Valtion säästöt. Luodin oikeudenkäynti. Eläinlääkärit. Sää
+
+## Rahaministeriö ehdottaa isoja säästöjä
+
+Ensin uutinen valtion säästöistä.
+
+Rahaministeriö esitteli eilen listan, jossa se ehdottaa säästöjä seuraavalle hallitukselle.
+
+Ministeriö ehdottaa esimerkiksi lapsilisien ja opintorahan lopettamista. Se ehdottaa myös verojen kiristämistä.
+
+Säästöehdotuksia on noin 400. Ministeriö sanoo, että kaikkia säästöjä ei tarvitse toteuttaa. Säästöjen pitää olla kuitenkin riittävän isoja.
+
+Rahaministeriö ehdottaa isoja säästöjä, koska Suomen valtiolla on liikaa velkaa.
+
+Myös eduskunnassa puolueet sopivat, että Suomi tavoittelee ainakin 8 miljardin euron säästöjä seuraavalla vaalikaudella. Sopimusta kutsutaan velkajarruksi.
+
+Suomessa on eduskuntavaalit ensi keväänä, ja Suomi saa uuden hallituksen. Rahaministeriö ehdotti säästöjä seuraavalle hallitukselle.
+
+## Laulaja Mira Luodin oikeudenkäynti alkoi
+
+Seuraavaksi uutinen oikeudenkäynnistä.
+
+Tunnettu laulaja **Mira Luoti** sanoo, että hänet pakotettiin seksuaaliseen tekoon tv-ohjelman kuvauksissa.
+
+Luoti syyttää pakottamisesta vapaaottelija **Makwan Amirkhania**, joka oli mukana ohjelmassa.
+
+Oikeudenkäynti Amirkhania vastaan alkoi eilen.
+
+Luoti sanoo, että Amirkhan makasi hänen päällään ja masturboi, kun he nukkuivat samassa teltassa ohjelman kuvauksissa.
+
+Amirkhan sanoi oikeudessa, että se ei ole totta.
+
+Julkkisselviytyjät-ohjelmaa kuvattiin vuonna 2016.
+
+## Maaseudun eläinlääkäreistä pian pulaa
+
+Lopuksi uutinen eläinlääkäreistä.
+
+Maatiloilla voi olla pian pulaa eläinlääkäreistä.
+
+Eläinlääkäreitä on vaikea saada maaseudulle, koska matkat ovat pitkiä. Työ maatiloilla on myös raskasta.
+
+Pohjois-Savossa on hanke, jossa eläinlääkäriopiskelijat pääsevät tutustumaan tuotantoeläimiin. He tutustuvat esimerkiksi nautoihin.
+
+Opiskelijat kertovat, että tuotantoeläinten hoitaminen kiinnostaa:
+
+– Toistaiseksi ainakin on sellainen fiilis, et kiinnostais.
+
+– Joo, muakin kiinnostaa ja varmaan aika vaihtelevaa.
+
+Maatiloilla voi olla pian pulaa eläinlääkäreistä, koska työ on raskasta ja matkat ovat pitkiä.
+
+Pohjois-Savon hankkeessa mietitään, miten työtä voidaan helpottaa.
+
+## Keskiviikon sää
+
+Vielä sääennuste.
+
+Keskiviikkona on pilvistä.
+
+Suuressa osassa maata on sateista.
+
+Lämpötila on noin 10 astetta.
+
+Pohjoisessa on vähän kylmempää.

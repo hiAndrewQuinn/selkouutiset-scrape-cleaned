@@ -1,0 +1,67 @@
+# Selkouutiset | perjantai 30.10.2026
+
+Google. STT. Riisipiirakat. Pyhäinpäivä. Sää.
+
+## Poliisi tutkii Googlea
+
+Aluksi uutinen poliisitutkinnasta.
+
+Poliisi tutkii, onko Googlen datakeskustyömaalla Muhoksella vahingoitettu ympäristöä.
+
+Poliisitutkinnan rikosnimike on ympäristön turmeleminen.
+
+Poliisi on saanut useita tutkintapyyntöjä Googlen toimista Muhoksella.
+
+Google hakkasi satoja hehtaareja metsää alueella, jonne se aikoo rakentaa datakeskuksen.
+
+Laki kuitenkin sanoo, että metsää ei saa hakata, ennen kuin alueella on tehty ympäristövaikutusten arviointi.
+
+Arviointi on Muhoksella vielä kesken.
+
+## STT
+
+Sitten uutinen media-alalta.
+
+Suomen Tietotoimiston eli STT:n uutistoiminta loppuu.
+
+STT:n toiminta loppuu maaliskuussa. Ilman työtä jää melkein 90 ihmistä.
+
+STT:n talous on ollut huono jo pitkään.
+
+Kun STT:n toiminta loppuu, Suomi jää ilman omaa kansallista uutistoimistoa. Se on länsimaissa harvinaista.
+
+## Riisipiirakat
+
+Sitten puhumme ruoasta.
+
+Suomalaiset syövät riisipiirakoita enemmän kuin ennen.
+
+Riisipiirakat ovat suosittuja, koska niitä on helppo ostaa kaupasta välipalaksi tai lounaaksi.
+
+Riisipiirakoiden suosion kasvu näkyy myös leipomoissa.
+
+Esimerkiksi Fazerin leipomossa Lappeenrannassa valmistettiin viime vuonna yhteensä 152 miljoonaa piirakkaa.
+
+Leipomo kertoo, että riisipiirakoiden myynti on kasvanut jo pari vuotta, sillä suomalaiset syövät välipaloja enemmän kuin ennen.
+
+Riisipiirakka oli alun perin juhlaruoka, joka kehitettiin Itä-Suomessa 1600-1700-luvuilla.
+
+## Pyhäinpäivä
+
+Vielä uutinen huomisesta pyhäpäivästä.
+
+Suomessa vietetään huomenna lauantaina pyhäinpäivää.
+
+Pyhäinpäivänä muistetaan läheisiä, jotka ovat jo kuolleet.
+
+Perinteisiin kuuluu viedä kynttilöitä haudoille.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina sää on enimmäkseen poutaista, eli ei sada. Päivä on pilvinen.
+
+Lämpötilat vaihtelevat 2-9 asteen välillä.
+
+Tuuli on heikkoa.

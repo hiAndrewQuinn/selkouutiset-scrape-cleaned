@@ -1,0 +1,81 @@
+# Tiistai 19.4.2022 (radio)
+
+Hoitoalan tilanne. Venäjän hyökkäys Itä-Ukrainaan. Presidentti Niinistön koronatartunta. Pulaa autonrenkaista. Sää.
+
+## Hoitoalan tilanne
+
+![Tehyn puheenjohtaja Millariikka Rytkönen (vas.) ja SuPerin puheenjohtaja Silja Paavola huutavat iskulauseita mielenosoituksessa](https://img.img-cdn.yle.fi/crop_extract,w_4478,h_2518,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9407706254217adbcc8/1649680929)
+
+Avaa kuvien katselu
+
+Hoitajat ovat suuttuneet huonon palkan takia. Kuva: Jussi Nukari / Lehtikuva
+
+Hoitajalakko peruuntuu.
+
+Tarkoitus oli, että 35 000 hoitajaa menee lakkoon eli lopettaa työt keskiviikkona. Nyt hoitajien järjestöt kertovat, että lakko ei ala.
+
+Hoitajat suunnittelevat vielä kovempia toimia kuin lakko. Hoitajien järjestöt suunnittelevat, että iso joukko hoitajia lopettaa työt kokonaan eli irtisanoo itsensä.
+
+Syynä on potilasturvallisuuslaki. Jos uusi potilasturvallisuuslaki tulee voimaan, hoitajia voidaan pakottaa työhön lakon aikana helpommin kuin nyt.
+
+Monet hoitajat olivat lakossa jo ennen pääsiäistä.
+
+Hoitoalan riitojen syynä on raha. Hoitajat vaativat lisää palkkaa. He sanovat myös, että hoitoalalle tarvitaan lisää työntekijöitä.
+
+## Venäjän hyökkäys Itä-Ukrainaan
+
+![Ukrainalaisia sotilaita panssaroidun kuljetusvaunun päällä. Tankin edessä tykki.](https://img.img-cdn.yle.fi/crop_extract,w_5771,h_3246,x_0,y_287/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-943545625ec459532f1/1650377873)
+
+Avaa kuvien katselu
+
+Ukrainalaiset ovat päättäneet puolustaa omaa maata. Kuva: EPA
+
+Ukrainan sodassa on alkanut uusi vaihe. Venäjän ulkoministeri Sergei Lavrovin mielestä uusi vaihe on sodassa tärkeä.
+
+Ukrainan presidentti Volodymyr Zelenskyi arvioi, että Venäjä on aloittanut suuren hyökkäyksen Itä-Ukrainaan.
+
+Venäjän hallussa on jo osa Itä-Ukrainasta. Nyt Venäjä haluaa ottaa Itä-Ukrainan Donbasin alueen kokonaan, presidentti Zelenskyi sanoo.
+
+Zelenskyi sanoo myös, että Ukraina puolustautuu hyökkäystä vastaan.
+
+Venäjän suurhyökkäystä on odotettu jo jonkin aikaa. Sotilasasiantuntijat eivät kuitenkaan ole vielä varmoja, kuinka suuri hyökkäys maanantaina alkoi.
+
+## Presidentin koronatartunta
+
+![Tasavallan presidentti Sauli Niinistö Mäntyniemessä.](https://img.img-cdn.yle.fi/crop_extract,w_3936,h_2214,x_0,y_99/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9420146256c806a0cc8/1649854551)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Joni Tammela / Yle
+
+Presidentti Sauli Niinistöllä on koronatartunta. Presidentti voi kuitenkin hyvin. Hän tekee nyt etätöitä.
+
+Koronatartunnan takia presidentti Niinistön vierailu Norjaan siirtyy myöhempään aikaan. Tarkoitus oli, että Niinistö vierailee Norjassa tämän viikon loppupuoella.
+
+## Pulaa autonrenkaista
+
+![Iisalmen Euromasterin rengasasentaja Niko Jokinen vaihtaa talvirengasta pakettiautoon.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10763771)
+
+Avaa kuvien katselu
+
+Ensi talvena voi olla vaikea saada uusia talvirenkaita. Kuva: Antti Karhunen / Yle
+
+Autojen talvirenkaista voi tulla pulaa ensi syksynä. Silloin autoilijan voi olla vaikea saada uusia talvirenkaita.
+
+Suomen rengasliikkeisiin tulee talvirenkaita vähemmän kuin tavallisesti, koska renkaita ei enää tuoda Venäjältä.
+
+Venäjältä ei enää osteta autonrenkaita Ukrainan sodan takia. Aikaisemmin yli puolet autonrenkaista on tullut Venäjältä.
+
+Ensi syksynä erityisesti hyviä merkkirenkaita on vaikea saada. Tilanne näkyy myös hinnoissa. Autonrenkaat kallistuvat.
+
+## Sää
+
+![Pyöräilijöitä Kuopion Lehtoniementiellä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10803681)
+
+Avaa kuvien katselu
+
+Lähipäivät ovat aurinkoisia. Kuva: Keijo Salokangas / Yle
+
+Keskiviikkona aurinko paistaa koko maassa ja sää on lämmintä. Lämpötila on +10 ja +17 asteen välillä.
+
+Torstaina aurinkoinen ja lämmin sää jatkuu suuressa osassa maata. Vain Pohjois-Lapissa on pilvistä, ja siellä voi sataa myös vähän vettä.

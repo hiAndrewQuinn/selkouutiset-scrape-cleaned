@@ -1,0 +1,48 @@
+# TV \| Selkouutiset \| perjantai 24.1.2025
+
+ETYJ. Suomen mineraalit. Kolehdit. Sää.
+
+## Suomi on ETYJin puheenjohtaja
+
+Suomen puheenjohtajakausi Euroopan turvallisuus- ja yhteistyöjärjestö Etyjissä on alkanut. Kausi kestää tämän vuoden.
+
+Suomen tehtävä ei ole helppo. Tärkein syy siihen on Venäjän hyökkäyssota Ukrainassa.
+
+Ulkoministeri Elina Valtonen uskoo silti, että Etyjillä on mahdollisuuksia. Lisäksi, jos Ukrainaan tulee rauha, Etyjillä saattaa olla rooli sen tarkkailussa.
+
+Suomen puheenjohtajakausi Etyjissä on alkanut.
+
+Etyjin juuretkin ovat Suomessa. Vuonna 1975 järjestettiin Helsingissä Euroopan turvallisuus- ja yhteistyökonferenssi. Sen avasi tasavallan presidentti Urho Kekkonen.
+
+## Suomessa on paljon tärkeitä mineraaleja
+
+Nyt uutinen mineraaleista Suomessa.
+
+USA:n kiinnostus Suomen mineraaleihin voi kasvaa, kun Donald Trump valittiin uudelleen presidentiksi.
+
+Suomen maaperässä on paljon kriittisiä mineraaleja. USA tarvitsee niitä puolustusteollisuuteen.
+
+Siksi kilpailu pohjoisten alueiden mineraalivaroista on kiihtymässä.
+
+USA:n kiinnostus Suomen mineraaleihin voi kasvaa.
+
+Varsinkin Itä- ja Pohjois-Suomesta löytyy paljon raaka-aineita, joita Trump haluaa.
+
+Puolustusteollisuus ja vihreä siirtymä tarvitsevat esimerkiksi kobolttia, nikkeliä, fosfaatteja, platinaa ja palladiumia. Suomi on EU:n suurin koboltin tuottaja.
+
+Suomi on myös aloittamassa litiumin tuotantoa.
+
+## Kolehdin suosio on kasvanut
+
+Sitten kirkosta ja kolehtirahoista.
+
+Suomalaiset antoivat viime vuonna rahaa kolehtiin enemmän kuin aikoihin. Kolehti on vanha kristillinen tapa, jonka suosio on kasvussa.
+
+Kolehdit kerätään kirkossa ja annetaan hyväntekeväisyyteen.
+
+Suomen evankelisluterilaiset seurakunnat keräsivät viime vuonna kolehtituottoja vajaat 9 miljoonaa euroa.
+
+Summa on 2020-luvun korkein.
+
+Yleensä kolehtiin pannaan käteistä rahaa. Monessa kirkossa kolehdin voi maksaa myös kännykällä.
+

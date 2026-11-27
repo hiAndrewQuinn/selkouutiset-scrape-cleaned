@@ -1,0 +1,69 @@
+# Lauantai 13.01.2018 (radio)
+
+Influenssaa on nyt melkein koko Suomessa. Monet siivoojat ovat maahanmuuttajia. Saudi-Arabiassa naiset ovat päässeet ensimmäistä kertaa stadionille katsomaan jalkapalloa. Lapissa pelätään hirvikolareita. Viime vuoden parhaat tv-ohjelmat on palkittu.
+
+## Influenssa
+
+![Mies niistää nenäänsä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9995828)
+
+Avaa kuvien katselu
+
+Influenssan oireet ovat pahemmat kuin tavallisen flunssan oireet. Kuva: Henrietta Hassinen / Yle
+
+Influenssaa on nyt melkein koko Suomessa. Influenssa on pahempi sairaus kuin tavallinen flunssa. Influenssaan kuuluu usein esimerkiksi korkea kuume.
+
+Lääkäri Hanna Nohynek sanoo, että influenssaa on tänä talvena eniten ehkä tammikuun lopussa ja helmikuun alussa. Nohynek on Terveyden ja hyvinvoinnin laitoksen ylilääkäri.
+
+Monet suomalaiset ottavat joka vuosi rokotteen influenssaa vastaan. Tavallisesti rokote antaa hyvän suojan, mutta ei ehkä tänä talvena. Monet ovat saaneet rokotteen, jossa ei ole mukana sitä influenssavirusta, joka nyt on yleinen.
+
+## Siivoojat
+
+![Siivooja moppaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9497703)
+
+Avaa kuvien katselu
+
+Kuva: Elisa Kinnunen / Yle
+
+Monet siivoojat ovat maahanmuuttajia. Jo 20 prosentilla siivoojista on maahanmuuttajatausta. Asiasta kirjoittaa sanomalehti Karjalainen.
+
+Maahanmuuttajien määrä kasvaa myös muissa palvelualan töissä. Myös rakennusalalla ja kuljetusalalla on paljon maahanmuuttajia. Näillä aloilla palkat ovat usein pieniä.
+
+## Saudi-Arabian naiset
+
+![Jalkapallokatsomossa hurrataan ja heilutetaan joukkueen värejä. Miesten joukossa on naisia mustissa abaya-kaavuissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10021224)
+
+Avaa kuvien katselu
+
+Jalkapallostadionin katsomossa on nyt myös naisia Saudi-Arabiassa. Kuva: STR / EPA
+
+Naisten asema muuttuu Saudi-Arabiassa. Nyt naiset ovat päässeet ensimmäistä kertaa stadionille katsomaan jalkapalloa.
+
+Naisten asema muuttuu, koska kruununprinssi Mohammed bin Salman uudistaa Saudi-Arabiaa. Kruununprinssi on huolissaan siitä, mitä muut maat ajattelevat Saudi-Arabiasta. Hän haluaa näyttää, että Saudi-Arabia on moderni maa. Miehet kuitenkin vielä määräävät naisten asioista.
+
+## Hirvikolarien vaara
+
+![Kolarissa kuollut hirvi.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5006761)
+
+Avaa kuvien katselu
+
+Tämä hirvi törmäsi autoon. Kuva: Yle
+
+Lapissa pelätään hirvikolareita. Hirvikolarissa auto törmää hirveen. Se on vaarallista, koska hirvi on iso eläin.
+
+Lapissa on tänä talvena paljon hirviä. Ne etsivät ruokaa teiden läheltä, koska maassa on nyt paksusti lunta. Usein hirviä on iso ryhmä.
+
+Hiihtolomakausi alkaa helmikuussa. Silloin Lapin autoteillä liikkuu paljon turisteja. Kaikki turistit eivät ole tottuneet hirviin, ja siksi hirvikolareiden vaara kasvaa.
+
+## Venla-palkinnot
+
+![Leea Klemola sai Myrskyn jälkeen ohjelmasta kolme Venlaa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10021225)
+
+Avaa kuvien katselu
+
+Myrskyn jälkeen -sarjan ohjaaja on Leea Klemola. Kuva: Martti Kainulainen / Lehtikuva
+
+Televisio-ohjelmille on annettu palkintoja. Vuoden parhaat ohjelmat ja esiintyjät saivat Venla-palkintoja perjantai-iltana.
+
+Tv-sarja "Myrskyn jälkeen" sai eniten palkintoja. Se sai yhteensä 3 Venla-palkintoa. Se oli esimerkiksi viime vuoden paras suomalainen draamasarja.
+
+"Myrskyn jälkeen" kertoo lähitulevaisuuden Helsingistä. Sarjassa myrsky on sekoittanut helsinkiläisten elämän. "Myrskyn jälkeen" esitettiin kanavalla Yle TV1.

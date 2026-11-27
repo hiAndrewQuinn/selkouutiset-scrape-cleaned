@@ -1,0 +1,69 @@
+# Tiistai 16.4.2019 (radio)
+
+Keskustan puheenjohtaja Juha Sipilä jättää puheenjohtajan tehtävän. Harmaan talouden torjunta on ollut tehokasta. 30 suomalaista sotavainajaa haudataan Lappeenrannassa toukokuussa. Ulkosuomalaiset tekivät äänestyshistoriaa.
+
+## Juha Sipilä eroaa keskustan johdosta
+
+![Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10742561)
+
+Avaa kuvien katselu
+
+Keskustalle valitaan syyskuussa uusi puheenjohtaja Juha Sipilän tilalle. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Juha Sipilä eroaa keskustan johdosta.
+
+Sipilä sanoo, että huono vaalitulos ei jättänyt hänelle muita mahdollisuuksia. Keskusta menetti 18 paikkaa eduskunnassa.
+
+Ylimääräinen puoluekokous valitsee keskustan uuden puheenjohtajan syyskuussa. Sipilä hoitaa puheenjohtajan tehtäviä siihen saakka.
+
+Puoluehallitus sanoo, että keskustan suunta on oppositio ja kynnys hallitukseen korkea. Keskusta aikoo silti vastata hallitustunnustelijan kysymyksiin.
+
+## Harmaan talouden torjuminen etenee
+
+![Kirjanpitomappi, rahaa ja laskin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10494042)
+
+Avaa kuvien katselu
+
+Kuva: Ismo Pekkarinen / AOP
+
+Harmaan talouden torjunta on ollut tehokasta. Harmaassa taloudessa vältellään muun muassa veroja.
+
+Verohallinto kertoo, että pimeitä palkkoja löytyi viime vuonna 42 miljoonan euron arvosta. Poliisi keräsi puolestaan rikoshyötyä yli 27 miljoonaa euroa. Se on 10 miljoonaa enemmän kuin vuonna 2017.
+
+Verohallinto kertoo, että viranomaisten välinen yhteistyö on parantunut. Esimerkiksi ulkomaalaisvalvonta ja poliisi tekivät viime vuonna 220 yhteistarkastusta.
+
+Nykyinen harmaan talouden torjuntaohjelma päättyy ensi vuonna. Jatkosta päättää tuleva hallitus.
+
+## Sotavainajia haudataan Lappeenrannassa
+
+![Tuntemattomien suomalaissotilaiden arkut lasketaan maahan.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9625291)
+
+Avaa kuvien katselu
+
+Kadetit laskivat tuntemattomien sotilaiden pienet arkut maan lepoon keväällä 2017 Lappeenrannan sankarihautausmaalla. Kuva: Ulla Ylönen/Yle
+
+30 suomalaista sotavainajaa haudataan Lappeenrannassa toukokuussa. Heidät haudataan kaatuneitten muistopäivänä 19. toukokuuta.
+
+Vainajat ovat odottaneet hautaamista yli 70 vuotta. Vainajien jäännökset on löydetty parin viime kesän aikana Venäjällä.
+
+Suomalaissotilaiden henkilöllisyyttä ei ole voitu varmistaa. Heistä tiedetään vain, että kyseessä on suomalainen sotilas. Lappeenrannan sankarihautausmaalle haudataan kaikki suomalaissotilaat, joita ei voida tunnistaa.
+
+Talvi- ja jatkosodissa sota-alueille jäi noin 13 000 suomalaissotilasta. Tähän asti on löydetty 1 300 sotilasta.
+
+Suomalaiset vapaaehtoiset ovat etsineet suomalaissotilaita yli 20 vuoden ajan. Myös venäläiset ovat löytäneet suomalaisten sotilaiden jäännöksiä.
+
+## Ulkosuomalaiset äänestivät vilkkaasti
+
+![Ääntenlaskentaa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10736731)
+
+Avaa kuvien katselu
+
+Ääntenlaskua. Kuva: Mikko Stig / Lehtikuva
+
+Ulkosuomalaiset ovat tehneet äänestyshistoriaa.
+
+Ulkosuomalaisten äänestysprosentti oli eduskuntavaaleissa 12,7 prosenttia. Äänestysprosentti nousi 2,6 prosenttiyksikköä. Suomessa äänestysaktiivisuus nousi 2 prosenttiyksikköä.
+
+Ulkomailla asuu melkein 255 000 suomalaista, joilla on äänioikeus. Heistä eduskuntavaaleissa äänesti yli 41 000 ihmistä 86 maassa.
+
+Sunnuntain vaalit olivat myös Suomen historian ensimmäiset kirjeäänestysvaalit: suomalaiset maailmalla saivat äänestää kirjeellä. Kirjeellä äänesti yli 6000 ulkosuomalaista.

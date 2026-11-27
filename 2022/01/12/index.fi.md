@@ -1,0 +1,77 @@
+# Keskiviikko 12.1.2022 (radio)
+
+Aluevaalien ennakkoäänestys alkoi. THL esittää baarien sulkemista. Korona leviää armeijassa. Uuden Musiikin Kilpailun esiintyjät kerrottiin.
+
+## Ennakkoäänestys
+
+![Jonossa ihmisiä ennakkoäänestyspisteelle Mikkelissä kauppakeskus Stellassa.](https://img.img-cdn.yle.fi/crop_extract,w_5911,h_3324,x_0,y_447/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-90076961de81937e7a4/1641972380)
+
+Avaa kuvien katselu
+
+Jonossa ihmisiä ennakkoäänestyspisteelle Mikkelissä kauppakeskus Stellassa. Kuva: Juho Liukkonen / Yle
+
+Aluevaalien ennakkoäänestys on alkanut.
+
+Ihmiset voivat äänestää ennakkoon ensi viikon tiistaihin asti. Ennakkoäänestyksessä äänestyspaikan saa valita itse.
+
+Aluevaalien vaalipäivä on 23. päivä tätä kuuta eli ensi viikon sunnuntaina.
+
+## Baarit
+
+![baarin tyhjä lattia baaripöytineen, taustalla esiintymislava](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_627/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89719561cc46dacb099/1640778071)
+
+Avaa kuvien katselu
+
+THL suosittaa anniskeluravintoloiden sulkua mahdollisimman pian. Näihin kuuluvat baarit, pubit ja yökerhot.  Kuva: Pyry Sarkiola / Yle
+
+Terveyden ja hyvinvoinnin laitos THL esittää, että baarit pannaan kokonaan kiinni. THL sanoo, että baarit pitää panna kiinni ainakin 3 viikon ajaksi mahdollisimman pian.
+
+THL sanoo, että baarit pitää sulkea, koska koronavirus leviää tosi nopeasti. Ruokaravintoloita ei THL:n mielestä tarvitse sulkea.
+
+Ministerit keskustelevat baarien sulkemisesta torstaina. Lakia pitää muuttaa, jotta baarit voi sulkea.
+
+Tällä hetkellä baarien ja ravintoloiden pitää sulkea ovet kello 18. Alkoholin myynti pitää lopettaa kello 17.
+
+## Korona armeijassa
+
+![varusteiden tarkastusta parolannummella vaunuhallissa](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-77136760211effea435/1612794228)
+
+Avaa kuvien katselu
+
+Kasvomaskeja käytetään muun muassa Panssariprikaatissa sisätilojen lisäksi myös ulkona, mikäli turvaväli ei toteudu. Kuva: Ville Välimäki / Yle
+
+Armeijassa on enemmän koronatartuntoja kuin aikaisemmin.
+
+Varusmiehillä ja sotilailla on todettu tänä vuonna yhteensä lähes 1200 uutta koronatartuntaa. Eniten uusia koronatartuntoja on Karjalan prikaatissa, Panssariprikaatissa ja Porin prikaatissa. Porin Prikaatissa on alkuviikon aikana on todettu kymmeniä uusia tartuntoja.
+
+Koko viime vuoden aikana armeijassa todettiin noin 1700 koronatartuntaa.
+
+## Uuden Musiikin Kilpailu
+
+![UMK22](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12267509)
+
+Avaa kuvien katselu
+
+UMK22. Kuva: Yle
+
+Suomen edustaja laulukilpailu Euroviisuihin valitaan taas Uuden Musiikin Kilpailussa. Kilpailussa on mukana 7 kappaletta.
+
+Kappaleiden esittäjinä on 3 yhtyettä. Yhtyeet ovat The Rasmus, Cyan Kicks ja Younghearted.
+
+Voittoa tavoittelee myös 4 artistia. Artistit ovat Bess, Olivera, Tommi Läntinen ja Isaac Sene.
+
+Uuden Musiikin Kilpailu on Turun Logomossa helmikuun lopussa. Kilpailun voittaja edustaa Suomea Torinon Euroviisuissa Italiassa toukokuussa.
+
+## Sää
+
+![Luminen ajokeli Kajaanin kontiomäellä](https://img.img-cdn.yle.fi/crop_extract,w_3983,h_2241,x_0,y_128/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88603661a5f06d7bac5/1670502198)
+
+Avaa kuvien katselu
+
+Ajokeli muuttuu huonoksi. Kuva: Joni Takalo / Yle
+
+Säässä tapahtuu iso muutos. Lämpötila nousee torstaina plussan puolelle melkein koko maassa.
+
+Etelä-Suomessa ja Keski-Suomessa sataa torstaina monin paikoin vähän vettä.
+
+Maanteillä ajokeli on huono koko maassa.

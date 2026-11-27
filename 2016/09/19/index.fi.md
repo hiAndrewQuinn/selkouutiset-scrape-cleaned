@@ -1,0 +1,71 @@
+# Maanantai 19.9.2016 (radio)
+
+Poliisi tutkii pahoinpitelyä, joka tehtiin uusnatsien mielenosoituksessa viikko sitten. Kehitysvammaisten mielestä VR syrjii heitä, koska kehitysvammaisen pitää ostaa junassa avustajalle oma lippu. Iso osa venäläisistä ei äänestänyt parlamenttivaaleissa. Maahanmuuttovirasto on saanut paljon hakemuksia perheenyhdistämisestä. Oppilaat vastasivat maanantaina ylioppilaskokeeseen ensimmäisen kerran tietokoneella.
+
+## Pahoinpitely mielenosoituksessa
+
+![Helsingin Asema-aukio muistotilaisuus 18. syyskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9176387)
+
+Avaa kuvien katselu
+
+Ihmiset ovat tuoneet kukkia ja kynttilöitä paikalle, jossa pahoinpitely tapahtui. Kuva: Berislav Jurišić / Yle
+
+Poliisi tutkii pahoinpitelyä, joka tehtiin uusnatsien mielenosoituksessa viikko sitten lauantaina.
+
+Mielenosoituksessa pahoinpideltiin 28-vuotias suomalainen mies niin pahasti, että hän kuoli myöhemmin sairaalassa. Mies ei itse osallistunut mielenosoitukseen, vaan oli paikalla sattumalta.
+
+Mielenosoituksen järjesti Suomen Vastarintaliike. Poliisi epäilee, että pahoinpitelyn tekijä on yksi liikkeen jäsenistä. Suomen Vastarintaliike vastustaa esimerkiksi maahanmuuttoa.
+
+Suomessa puhutaan nyt siitä, pitääkö väkivaltaiset järjestöt kieltää.
+
+## VR ja kehitysvammaiset
+
+![Me Itse ry:n puheenjohtaja Sakari Lehto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9176916)
+
+Avaa kuvien katselu
+
+Me Itse ry:n puheenjohtaja Sakari Lehto. Kuva: Petri Aaltonen
+
+Kehitysvammaiset ovat suuttuneet VR:lle. Kehitysvammaisten mielestä VR syrjii heitä, koska kehitysvammaisen pitää ostaa junassa avustajalle oma lippu. Se tarkoittaa, että kehitysvammaisen pitää ostaa 2 lippua junamatkaa varten.
+
+Esimerkiksi liikuntavammaisen avustaja saa matkustaa junassa ilmaiseksi, ja näkövammainen saa ottaa opaskoiran junaan ilmaiseksi. Me Itse ry:n puheenjohtaja Sakari Lehto ei ymmärrä, miksi VR kohtelee kehitysvammaisia eri tavalla. Me Itse ry on kehitysvammaisten oma yhdistys.
+
+## Venäjän vaalit
+
+![Koiraa taluttava nainen laittaa vaalilipuketta uurnaan. Takana näkyy äänestyskoppeja ja seinällä Putinin kuva.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9176468)
+
+Avaa kuvien katselu
+
+Venäläiset äänestivät sunnuntaina. Kuva: Maxim Shipenkov / EPA
+
+Venäjällä on ollut parlamenttivaalit. Vaalien voittaja on puolue, jonka nimi on Yhtenäinen Venäjä. Puolue tukee presidentti Vladimir Putinin politiikkaa.
+
+Putin sanoo, että kansa luottaa Yhtenäinen Venäjä -puolueeseen. Siksi puolue Putinin mielestä voitti vaalit.
+
+Suurin osa venäläisistä ei äänestänyt vaaleissa. Vain 48 prosenttia aikuisista kävi äänestämässä. Monet venäläiset eivät viitsi äänestää, koska Putinin puolueelle ei ole todellista vaihtoehtoa.
+
+## Maahanmuutoviraston ruuhka
+
+![Maahanmuuttoviraston kyltti.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9097100)
+
+Avaa kuvien katselu
+
+Maahanmuuttovirastossa on kiire. Kuva: Petteri Sopanen / Yle
+
+Maahanmuuttovirasto on saanut paljon hakemuksia perheenyhdistämisestä. Siksi hakemusten käsittely kestää kauan.
+
+Hakemuksia on tullut paljon, koska monet turvapaikanhakijat ovat saaneet luvan jäädä Suomeen. Nyt heidän perheenjäsenensä voivat hakea oleskelulupaa.
+
+Maahanmuuttovirasto ei ole saanut lisää työntekijöitä käsittelemään hakemuksia perheenyhdistämisestä.
+
+## Sähköinen ylioppilaskoe
+
+![Sähköiset ylioppilas kirjoitukset](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8791088)
+
+Avaa kuvien katselu
+
+Sähköiseen ylioppilaskokeen vastataan tietokoneella. Kuva: Markus Heikkilä / Yle
+
+Ylioppilaskokeissa on alkanut uusi aika. Oppilaat vastasivat maanantaina maantiedon kokeeseen sähköisesti. Oppilaat kirjoittivat vastaukset tietokoneella.
+
+Tämä oli ensimmäinen sähköinen ylioppilaskoe. Keväällä 2019 kaikki ylioppilaskokeet tehdään jo tietokoneella.

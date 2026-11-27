@@ -1,0 +1,73 @@
+# Sunnuntai 5.4.2020 (radio)
+
+Koronavirustilanne Suomessa. Etätyö lisääntyy. Monet eivät tarvitse nyt autoa. Kunnat hyvittävät päivähoitomaksuja. Pentti Linkola on kuollut.
+
+## Koronatilanne Suomessa
+
+![Piirroskuva virusjoukosta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11281227)
+
+Avaa kuvien katselu
+
+Taiteilijan piirros koronaviruksesta. Kuva: Lubos Paukeje / AOP
+
+Koronaviruskuolemien määrä Suomessa on noussut kolmella.
+
+Tautiin, jonka koronavirus aiheuttaa, on kuollut Suomessa nyt 28 ihmistä. Sairaalahoidossa on 209 potilasta. Heistä tehohoidossa on 76 potilasta.
+
+Todettuja koronavirustartuntoja on Suomessa vähän yli 1900.
+
+## Etätyö lisääntyy
+
+![Nainen kirjoittaa kannettavalla tietokoneella. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11196395)
+
+Avaa kuvien katselu
+
+Etätöitä voi tehdä esimerkiksi tietokoneella. Kuva: Tuija Veirto / Yle
+
+Koronatilanteen takia tosi moni suomalainen tekee työtä kotona eli on etätöissä.
+
+Etätöitä tekee yli miljoona suomalaista. Moni heistä haluaa jatkaa etätöitä myös koronatilanteen jälkeen.
+
+Tutkimusfirma Taloustutkimus kysyi suomalaisilta, pitävätkö he etätöistä. Yli 300 000 suomalaista sanoi, että haluaa tehdä enemmän etätöitä myös koronatilanteen jälkeen.
+
+## Moni ei käytä nyt autoa
+
+![Autoja omakotitalon pihassa Vehmaalla.](https://img.img-cdn.yle.fi/crop_extract,w_5402,h_3039,x_0,y_279/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6398095e3c20d8af2fb/1581147111)
+
+Avaa kuvien katselu
+
+Jos poistaa auton liikennekäytöstä, säästää rahaa. Silloin autolla ei saa ajaa. Kuva: Minna Rosvall / Yle
+
+Monet suomalaiset ovat poistaneet auton liikennekäytöstä. Jos ei käytä autoa, sen voi poistaa liikennekäytöstä. Silloin ei tarvitse maksaa auton vakuutusmaksua eikä ajoneuvoveroa.
+
+Noin 100 000 suomalaista on poistanut maaliskuussa auton liikennekäytöstä.
+
+Moni ei tarvitse nyt autoa, koska liikkumista on rajoitettu koronatilanteen takia.
+
+## Päivähoitomaksuista voi saada vapautuksen
+
+![Kuvassa on päiväkotilapsi ja päiväkodin työntekijä. ](https://img.img-cdn.yle.fi/crop_extract,w_4608,h_2592,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6521335e68bdfddb5f5/1586062551)
+
+Avaa kuvien katselu
+
+Jos hoitaa lasta kotona pitkään, voi saada päivähoitomaksun takaisin. Kuva: Meri Remes / Yle
+
+Kunnat eivät peri perheiltä päivähoitomaksuja, jos lapsi ei käy päiväkodissa koronatilanteen takia.
+
+Suomen kuntien yhdistys Kuntaliitto kertoo, että monet kunnat ovat kysyneet Kuntaliitosta neuvoa, miten päivähoitomaksut palautetaan perheille. Kunnat haluavat palauttaa maksun.
+
+Eri kunnissa voi olla erilainen tapa palauttaa päivähoitomaksu. Yleensä päivähoitomaksusta saa vapautuksen, jos lapsi on pitkään poissa päivähoidosta.
+
+## Pentti Linkola on kuollut
+
+![Pentti Linkola.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11293174)
+
+Avaa kuvien katselu
+
+Pentti Linkola 1932-2020 Kuva: Juha Metso / AOP
+
+Luonnonsuojelija ja lintuharrastaja Pentti Linkola on kuollut.
+
+Pentti Linkola oli myös kalastaja ja kirjailija. Pentti Linkola muistetaan siitä, että hän halusi suojella luontoa. Pentti Linkola perusti esimerkiksi Luonnonperintösäätiön, joka ostaa vanhoja metsiä ja suojelee niitä.
+
+Pentti Linkola sanoi usein, että ihmisen pitää suojella kaikkia kasveja ja eläimiä maapallolla, ja että ihminen ei saa olla luontoa tärkeämpi. Pentti Linkola oli 87-vuotias.

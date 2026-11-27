@@ -1,0 +1,49 @@
+# Torstai 31.5.2007 (radio)
+
+Torstain selkouutisten aiheita ovat
+
+Venäjä haluaa ostaa Suomesta sähköä. Venäjällä pelätään, että sähköstä tulee pula.
+
+Tänään torstaina on viimeinen päivä, kun ravintoloissa saa polttaa tupakkaa.
+
+Maailman toiseksi suurin matkapuhelinyhtiö Motorola vähentää taas 4000 työpaikkaa.
+
+Suomen väkiluku kasvaa nopeasti seuraavan 20 vuoden aikana.
+
+Selkouutiset toimittaa Lea Miettinen
+
+* * *
+
+Venäjä haluaa ostaa Suomesta sähköä. Venäjällä pelätään, että sähköstä tulee pula. Venäläiset haluavat, että Suomen ja Venäjän välinen sähkölinja muutetaan kaksisuuntaiseksi. Se tarkoittaa sitä, että Suomi voi ostaa sähköä Venäjältä ja Venäjä voi ostaa sähköä Suomesta.
+
+Tällä hetkellä osa Suomen sähköstä ostetaan Venäjältä. Suomessa asiantuntijat epäilevät, että sähköntuonti Venäjältä vähenee lähivuosina.
+
+Venäjä on ehdottanut Suomelle, että se voisi ostaa sähköä Suomesta silloin, kun Venäjällä on vähän sähköä. Venäjä voisi ostaa uutta sähkölinjaa pitkin sähköä myös muualta Euroopasta. Venäjä ei pysty nyt ostamaan sähköä Suomesta.
+
+Suomessa sähköä saadaan lisää muutaman vuoden kuluttua, kun Olkiluotoon, Länsi-Suomeen valmistuu uusi ydinvoimala.
+
+* * *
+
+Tänään torstaina on viimeinen päivä, kun ravintoloissa saa polttaa tupakkaa.
+
+Kesäkuun ensimmäisenä päivänä perjantaina tulee voimaan uusi tupakkalaki, joka määrää, että ravintoloissa ei saa polttaa tupakkaa. Ravintolan sisällä saa polttaa tupakkaa vain tupakkakopissa. Jos tupakkakoppia ei ole, pitää mennä ulos tupakalle.
+
+Monet maat ovat kieltäneet tupakoinnin julkisilla paikoilla.
+
+* * *
+
+Maailman toiseksi suurin matkapuhelinyhtiö Motorola vähentää taas 4000 työpaikkaa. Jo alkuvuodesta Motorola ilmoitti, että se vähentää 3500 työpaikkaa. Motorolassa oli viime vuoden lopussa 66 000 ihmistä töissä. Yhtiö irtisanoo työntekijöitä sen takia, että sen pitää säästää. Motorolalla on rahapula. Yhtiö tuotti tämän vuoden alussa tappiota.
+
+* * *
+
+Suomessa VR:llä eli valtion rautateillä on myös rahapula. VR joutuu lomauttamaan työntekijöitä. Asiasta kertoo sanomalehti Kaleva. VR aloittaa yt-neuvottelut ensi viikolla. Neuvotteluissa työnantaja ja työntekijät sopivat, kuinka monta ihmistä jää pakkolomalle.
+
+VR on sopinut, että se tekee paljon korjauksia Suomen rautateille. Monet rautatiet ovat huonossa kunnossa. Hallitus ei kuitenkaan antanut VR:lle tarpeeksi rahaa korjauksiin.
+
+VR:n pitää nyt säästää rahaa. Osa työntekijöistä voi joutua pitkälle pakkolomalle. Pakkoloma voi olla jopa neljä kuukautta.
+
+* * *
+
+Suomen väkiluku kasvaa nopeasti seuraavan 20 vuoden aikana. Vuonna 2030 Suomessa on noin 5,7 miljoonaa asukasta. Asiantuntijat sanovat, että maahanmuutto lisää Suomeen ihmisiä noin 10 000 ihmistä vuodessa. Sosiaalipolitiikan professori Jorma Sipilä, Tampereen yliopistosta uskoo, että Suomeen tulee enemmän maahanmuuttajia.
+
+Eläkeikäisten ihmisten määrä on tulevaisuudessa suurempi, kuin työssäkäyvien ihmisten määrä. Asiantuntijat pelkäävät, että Suomessa on pian pula työntekijöistä. Rahat eivät riitä terveydenhuoltoon ja vanhusten huolehtimiseen. Maahanmuuttajia tarvitaan esimerkiksi vanhusten hoitamiseen.

@@ -1,0 +1,69 @@
+# Sunday 22.9.2019 (radio)
+
+Labour Minister Timo Harakka says that Finland does not need a minimum wage in law. Attempts are being made to save the travel company Thomas Cook from bankruptcy. In Turku, a new housing company banned short-term renting of flats in its articles of association. Some MPs want to make snus use legal.
+
+## Labour Minister: A minimum wage is not needed in law
+
+![Timo Harakka after the SDP press conference on 4 June 2019.](https://img.img-cdn.yle.fi/crop_extract,w_3785,h_2129,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5681985cf696e3969ce/1559664391)
+
+Open image viewer
+
+Labour Minister Timo Harakka (SDP) stresses that the Nordic model also suits the EU. Photo: Lehtikuva
+
+Labour Minister Timo Harakka says that Finland does not need a minimum wage in law.
+
+Mikael Pentikäinen, managing director of Suomen Yrittäjät, the Federation of Finnish Enterprises, has proposed that writing minimum wages into law be looked into.
+
+In Harakka's view, the Nordic model works better. In it, wages are based on collective agreements. Harakka says that there is no need to change the Nordic model.
+
+A minimum wage is written into law in many European Union countries.
+
+## Thomas Cook is being saved from bankruptcy
+
+![Counter of the Thomas Cook travel agency at Frankfurt airport in June.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10983166)
+
+Open image viewer
+
+Photo: Armando Babani / EPA
+
+The British travel company Thomas Cook is being rescued. The company is threatened with bankruptcy. In bankruptcy, all the assets of an indebted company are handed over to its creditors.
+
+A meeting of Thomas Cook's main owners and creditors has been held in London. An attempt is being made to agree on about 220 million euros in extra funding for the company.
+
+The company currently has about 600,000 customers on its trips.
+
+The travel agency Tjäreborg, which operates in Finland, is part of the Thomas Cook group. About 3,400 Finns are currently on Tjäreborg trips.
+
+## In Turku, a housing company banned short-term renting
+
+![Air B&#39;n&#39;B search page on a laptop screen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10982099)
+
+Open image viewer
+
+Photo: AOP
+
+In Finland, many people rent out their own flat through Airbnb. It is a website where you can advertise a room or flat for rent. Airbnb takes 10 to 13 percent for the arrangement.
+
+Short-term renting can cause problems. Tourists can damage the property of the housing company. They can also cause noise, which bothers the residents of the building.
+
+In Turku, a new housing company wanted to avoid the problems. It had already written a clause into its articles of association that bans short-term renting. Afterwards, it is difficult to ban short-term renting. A ban needs the consent of all shareholders.
+
+The Finnish Real Estate Federation says that such a ban is rare in Finnish housing companies.
+
+## Yle asked about making snus legal
+
+![snus in a hand](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10731244)
+
+Open image viewer
+
+Photo: AOP
+
+Some MPs want to make the use of snus legal in Finland. Snus may not be sold in Finland, but young people in particular use snus more and more.
+
+Yle sent a survey to MPs. For example, Green MP Atte Harjanne says that a ban is not the most effective way to reduce harm. Regulated sales and taxation could work better.
+
+Left Alliance MP Merja Kyllönen says that the snus problem is no longer under control. Kyllönen says that legalisation is better than operating in secret.
+
+Legalising snus requires an exemption from the EU. Sweden has an exemption.
+
+You can look on Yle's website to see which MPs support making snus legal.

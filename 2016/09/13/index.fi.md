@@ -1,0 +1,89 @@
+Sanomalehdet
+
+# Tiistai 13.9.2016 (radio)
+
+Sanomalehtien jakelu. Robottihoitajat. Clintonin kampanja. Tulvat Pohjois-Koreassa. Kahden teatterimiehen kuolema.
+
+![Jumppaava robotti viihdyttää hoivakodin asukkaita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8368890)
+
+Avaa kuvien katselu
+
+Jumppaava robotti viihdyttää hoivakodin asukkaita Kuva: Yle
+
+- 
+
+  
+
+  Petteri Löppönen
+
+  
+
+  
+
+13.9.2016 18:09
+
+## Sanomalehtien jakelu maaseudulla puhuttaa
+
+![Sanomalehtiä pöydällä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8803475)
+
+Avaa kuvien katselu
+
+Lehtijakelua maaseudulla halutaan jatkaa viitenä päivänä viikossa.  Kuva: Mikko Savolainen / Yle
+
+Suomessa pohditaan, miten maaseudun asukkaat saavat tulevaisuudessa sanomalehtiä. Paperisanomalehtien jakelua halutaan jatkaa maaseudulla viitenä päivänä viikossa.
+
+Jakelun jatkuminen on vaarassa, koska postilla menee huonosti. Se haluaa vähentää jakelua. Sanomalehtien liitto ehdottaa, että postin jakaminen päivällä ja sanomalehtien
+
+jakaminen aamulla yhdistetään ja siitä tehdään vain yksi jakelu. Silloin sanomalehdet voidaan saada maaseudulla myös tulevaisuudessa viitenä päivänä viikossa, sanoo Sanomalehtien liitto.
+
+Posti tykkää ehdotuksesta.
+
+## Robotteja ehdotetaan hoitajien avuksi
+
+![Hoitaja työntää vanhusta pyörätuolissa käytävällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6087962)
+
+Avaa kuvien katselu
+
+Robotteja ehdotetaan mukaan hoitotyöhön.  Kuva: Sari Gustafsson / Lehtikuva
+
+Hoitajille ehdotetaan robottiapulaisia. Elinkeinoelämän valtuuskunta Eva on tutkinut, voidaanko robotteja käyttää hoitajien apuna. Eva on sitä mieltä, että robotit voivat korvata 20 prosenttia hoitajien työstä.
+
+Eva ajattelee, että robottihoitajat voivat olla totta lähivuosina. Evan mielestä robotit tuovat hoitotyöhön tehoa. Lisäksi hoitajat voivat tehdä vaativaa potilastyötä, kun robotit tekevät muita hoitajien tehtäviä. 
+
+## Hillary Clinton jatkaa pian kampanjaa
+
+![Hillary Clinton seisoo väkijoukossa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9159681)
+
+Avaa kuvien katselu
+
+Hillary Clinton joutui pitämään taukoa presidenttikampanjasta keuhkokuumeen takia.  Kuva: CBS
+
+Yhdysvalloissa demokraattien presidenttiehdokas Hillary Clinton aikoo jatkaa presidentinvaalikampanjaa lähipäivinä. Clinton joutui pitämään kampanjassa taukoa, koska hänellä todettiin keuhkokuume. Nyt Clinton on kertonut, että hän voi paremmin.
+
+## Tulva teki laajoja tuhoja Pohjois-Koreassa
+
+![Kuvaa Hoeryongin kaupungista, Pohjois-Koreasta, 11. syyskuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9162589)
+
+Avaa kuvien katselu
+
+Pohjois-Korean tulva on vienyt kodin 140 000 ihmiseltä.  Kuva: Reuters
+
+Pohjois-Koreassa on ollut paha tulva. Avustusjärjestö Punainen Risti kertoo, että tulviminen on aiheuttanut paljon tuhoa. Ainakin 130 ihmistä on kuollut. Arvioidaan, että 140 000 ihmistä on menettänyt kotinsa. Vesi on tulvinut, koska Pohjois-Koreassa on ollut rankkasateita. Tulvat ovat tuhonneet kokonaisia kyliä.
+
+## Kaksi teatterimiestä on kuollut
+
+![Kalle Holmberg](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9163251)
+
+Avaa kuvien katselu
+
+Kalle Holmberg. Kuva: AOP
+
+Suomen teatterimaailmasta on tullut suru-uutisia. Ohjaaja ja teatterineuvos Kalle Holmberg on kuollut. Hän oli 77-vuotias. Holmberg oli näyttelijä ja ohjaaja teatterissa, oopperassa, elokuvissa ja televisiossa.  Holmberg kuoli sairauteen, joka kesti pitkän ajan.
+
+![Pekka Valkeejärvi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9163768)
+
+Avaa kuvien katselu
+
+Pekka Valkeejärvi.  Kuva: Heidi Korsman-Hirvonen / AOP
+
+Myös näyttelijä Pekka Valkeejärvi on kuollut. Hän näytteli teatterissa, monessa suomalaisessa elokuvassa ja esimerkiksi TV2:n Karjalan kunnailla -sarjassa. Valkeejärvi kuoli pahaan sairauteen. Hän oli 58-vuotias.

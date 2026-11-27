@@ -1,0 +1,61 @@
+# Selkouutiset | keskiviikko 15.4.2026
+
+Lapin työntekijät. Inflaatio. Stubb Kanadassa. Sää
+
+## Lapissa ulkomaalaisia työntekijöitä kohdeltu huonosti
+
+Ensin uutinen ulkomaalaisten työntekijöiden kohtelusta.
+
+Pohjois-Suomessa, Lapissa monilla ulkomaalaisilla työntekijöillä on huonot oltavat.
+
+Ulkomaalaisia tulee töihin Lappiin etenkin talvella, kun Lapissa on paljon turisteja.
+
+Monet ulkomaalaiset työntekijät asuvat Lapissa ahtaasti ja tekevät liian pitkiä työpäiviä.
+
+Työntekijöiden järjestö PAM teki työoloista kyselyn. Kyselyssä 40 prosenttia ulkomaalaisista kertoi, että heitä kohdeltiin huonosti töissä.
+
+Lapissa monilla ulkomaalaisilla työntekijöillä on huonot oltavat.
+
+Espanjalainen Sergi Alos on pettynyt. Hän työskenteli matkailuyhtiössä Lapissa, Rovaniemellä. Alos joutui vaatimaan yhtiöltä riittävää palkkaa.
+
+Hänestä tuntui, ettei yhtiössä ollut ihmisoikeuksia.
+
+Alos sanoo, että jopa vangit asuvat paremmin kuin monet ulkomaalaiset työntekijät Lapissa.
+
+## Hinnat nousevat sodan takia
+
+Sitten uutinen hintojen noususta eli inflaatiosta.
+
+Suomessa hinnat nousivat maaliskuussa. Hinnat nousivat viime vuoden maaliskuusta 1,3 prosenttia.
+
+Tilastokeskus kertoo, että eniten nousivat polttoaineiden ja sähkön hinnat. Syynä on Lähi-idän sota.
+
+Sodan takia myös ruuan hinta nousee pian, sanovat asiantuntijat.
+
+Kansainvälinen valuuttarahasto IMF varoittaa, että koko maailmantaloudella menee huonosti Lähi-idän sodan takia.
+
+## Presidentti Stubb vierailee Kanadassa
+
+Lopuksi uutinen presidentin vierailusta Kanadassa.
+
+Suomen presidentti Alexander Stubb vierailee Kanadassa.
+
+Stubb tapasi eilen Kanadan pääministerin Mark Carneyn.
+
+Stubb keskusteli Carneyn kanssa muun muassa kauppasuhteista ja Natosta. Stubbin mukaan vierailu Kanadassa on tärkeä.
+
+Stubb kertoi myös, että Suomi osallistuu kokoukseen Hormuzinsalmesta. Kokouksessa mietitään, miten laivaliikenne turvataan Hormuzinsalmessa, kun sotatoimet Iranissa päättyvät.
+
+Presidentti Stubbin vierailu Kanadassa jatkuu tänään.
+
+## Torstain sää
+
+Vielä sääennuste.
+
+Torstaina etelässä on pilvistä. Myös vettä voi sataa heikosti.
+
+Muualla maassa on aurinkoista.
+
+Lämpötila on 10...16 astetta. Etelässä on viileämpää.
+
+(Pahoittelemme tekstityksen puuttumista tv-lähetyksen säästä)

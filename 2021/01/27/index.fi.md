@@ -1,0 +1,81 @@
+# Keskiviikko 27.1.2021 (radio)
+
+Suomi on tiukentanut matkustajien rajoituksia. Finnair vaatii todistusta koronatestistä ulkomaanlennoilla Suomeen. Koronatartuntojen määrä kasvaa Suomessa. Koko maailmassa on löydetty jo yli 100 miljoonaa koronatartuntaa. Sää kylmenee, ja lunta sataa.
+
+## Tiukat rajoitukset matkustajille
+
+![Kyltti kertoo Turun satamassa, minne koronatestiin voi mennä](https://img.img-cdn.yle.fi/crop_extract,w_5760,h_3240,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-766167600fd04c2f245/1611822559)
+
+Avaa kuvien katselu
+
+Suomeen pääsee vain vähän matkustajia, ja heidät ohjataan koronatestiin. Kuva: Linus Hoffman/Yle
+
+Suomi on tiukentanut matkustajien rajoituksia. Uudet rajoitukset tulivat voimaan tänään keskiviikkona.
+
+Rajoitukset koskevat ulkomaalaisten tuloa Suomeen. Esimerkiksi työmatkaliikenne Suomeen loppuu melkein kokonaan.
+
+Suomeen saavat tulla vain työntekijät, joiden työ on välttämätöntä, esimerkiksi terveydenhuollon työntekijät. Sen sijaan rakennusalan työntekijät eivät nyt pääse rajan yli Suomeen.
+
+Koronatesti halutaan tehdä kaikille, jotka vielä pääsevät Suomeen. Koronatestipiste löytyy esimerkiksi kaikista Helsingin matkustajasatamista.
+
+Suomi tiukentaa matkustajien rajoituksia koronan virusmuunnoksen takia. Suomi ei halua, että virusmuunnosta tulee matkustajien mukana Suomeen. Virusmuunnos tarttuu ihmisiin helposti.
+
+Rajoitukset kestävät kuukauden eli 25. helmikuuta asti.
+
+## Finnair vaatii koronatestiä
+
+![Kuvassa lentoemäntä työskentelee Finnairin lennolla AY 435 Helsingistä Ouluun syyskuussa 2020.](https://img.img-cdn.yle.fi/crop_extract,w_4000,h_2250,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7187735f5f8d5138960/1600172549)
+
+Avaa kuvien katselu
+
+Matkustaja pääsee Finnairin lennolle Suomeen vain, jos hänellä on todistus koronatestistä. Kuva: Silja Viitala / Yle
+
+Määräyksiä tiukennetaan myös lentoliikenteessä.
+
+Torstaista alkaen matkustajalla pitää olla todistus koronatestistä, jos hän matkustaa Finnairilla ulkomailta Suomeen.
+
+Finnair vaatii negatiivista koronatestitulosta kaikilta matkustajilta, myös Suomen kansalaisilta. Ilman todistusta matkustaja ei pääse Finnairin koneeseen.
+
+Uudet määräykset koskevat vain Finnairin lentoja ulkomailta Suomeen. Finnairin kotimaanlennoilla todistusta ei tarvita.
+
+## Suomen koronaluvut
+
+![THL:s skylt](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-7123125f4757135f21c/1598510926)
+
+Avaa kuvien katselu
+
+THL eli Terveyden ja hyvinvoinnin laitos seuraa Suomen koronatartuntojen määrää.
+
+Koronatartuntojen määrä kasvaa Suomessa.
+
+Keskiviikkona raportoitiin melkein 500 uutta koronatartuntaa.
+
+Viimeisten 2 viikon aikana on raportoitu noin 800 koronatartuntaa enemmän kuin edellisten 2 viikon aikana.
+
+Keskiviikkona raportoiin myös 5 uutta koronakuolemaa. Suomessa on nyt kuollut 660 ihmistä koronan takia.
+
+## Maailman koronaluvut
+
+![Koronaviruspotilasta hoidetaan tsekkiläisessä sairaalassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11749567)
+
+Avaa kuvien katselu
+
+Tässä hoidetaan koronapotilasta Tšekissä. Kuva: Martin Divisek / EPA
+
+Koko maailmassa on löydetty jo yli 100 miljoonaa koronatartuntaa. Koronatartuntojen määrää seuraa Johns Hopkins -yliopisto.
+
+Koronaviruksen takia maailmassa on kuollut yli 2 miljoonaa ihmistä.
+
+## Lähipäivien sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11758765)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sää kylmenee, ja lunta sataa suuressa osassa Suomea.
+
+Torstaina lunta tulee eniten Lapissa, myös idässä sataa päivällä lunta. Lämpötila on pakkasella, eli nollan alapuolella koko maassa.
+
+Perjantaina lumisade heikkenee ja sää kylmenee lisää.

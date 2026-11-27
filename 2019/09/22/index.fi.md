@@ -1,0 +1,69 @@
+# Sunnuntai 22.9.2019 (radio)
+
+Työministeri Timo Harakka sanoo, että Suomessa ei tarvita minimipalkkaa lakiin. Matkakonserni Thomas Cook yritetään pelastaa konkurssilta. Turussa uusi taloyhtiö kielsi yhtiöjärjestyksessä asuntojen lyhytaikaisen vuokraamisen. Osa kansanedustajista haluaa nuuskan käytöstä laillista.
+
+## Työministeri: Minimipalkkaa ei tarvita lakiin
+
+![Timo Harakka efter SDP:s presskonferens 4.6.2019.](https://img.img-cdn.yle.fi/crop_extract,w_3785,h_2129,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-5681985cf696e3969ce/1559664391)
+
+Avaa kuvien katselu
+
+Työministeri Timo Harakka (sd.) korostaa, että pohjoismainen malli sopii myös EU:lle. Kuva: Lehtikuva
+
+Työministeri Timo Harakka sanoo, että Suomessa ei tarvita minimipalkkaa lakiin.
+
+Suomen Yrittäjien toimitusjohtaja Mikael Pentikäinen on esittänyt, että minimipalkkojen kirjaaminen lakiin selvitetään.
+
+Harakan mielestä pohjoismainen malli on toimivampi. Siinä palkat perustuvat työehtosopimuksiin. Harakka sanoo, että pohjoismaista mallia ei ole tarvetta muuttaa.
+
+Minimipalkka on kirjattu lakiin monissa Euroopan unionin maissa.
+
+## Thomas Cook yritetään pelastaa konkurssilta
+
+![Thomas Cook -matkatoimiston tiski Frankfurtin lentokentällä kesäkuussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10983166)
+
+Avaa kuvien katselu
+
+Kuva: Armando Babani / EPA
+
+Brittiläinen matkafirma Thomas Cook yritetään pelastaa. Firmaa uhkaa konkurssi. Konkurssissa velkaisen firman kaikki omaisuus siirretään velkojien valtaan.
+
+Lontoossa on pidetty Thomas Cookin pääomistajien ja velkojien tapaaminen. Firmalle yritetään sopia noin 220 miljoonan euron lisärahoitus.
+
+Firman matkoilla on tällä hetkellä noin 600 000 asiakasta.
+
+Suomessa toimiva matkatoimisto Tjäreborg on osa Thomas Cook -konsernia. Tjäreborgin matkoilla on tällä hetkellä noin 3 400 suomalaista.
+
+## Turussa taloyhtiö kielsi lyhytaikaisen vuokraamisen
+
+![Air B&#39;n&#39;B hakusivu läppärin näytöllä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10982099)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+Suomessa monet vuokraavat omaa asuntoa Airbnb-vuokrauksessa. Se on nettisivusto, jossa voi ilmoittaa huoneen tai asunnon vuokrattavaksi. Airbnb ottaa välittämisestä 10 - 13 prosenttia.
+
+Lyhytaikainen vuokraaminen voi aiheuttaa haittoja. Turistit voivat rikkoa taloyhtiön omaisuutta. He voivat aiheuttaa myös melua, joka haittaa talon asukkaita.
+
+Turussa uusi taloyhtiö halusi välttää ongelmat. Se teki yhtiöjärjestykseen jo etukäteen pykälän, joka kieltää lyhytaikaisen vuokraamisen. Jälkeenpäin lyhytaikainen vuokraaminen on vaikeaa kieltää. Kielto vaatii kaikkien osakkaiden suostumuksen.
+
+Kiinteistöliitto kertoo, että kielto on suomalaisissa taloyhtiöissä harvinainen.
+
+## Yle kysyi nuuskan laillistamisesta
+
+![nuuskaa kädessä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10731244)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+Osa kansanedustajista haluaa laillistaa nuuskan käytön Suomessa. Nuuskaa ei saa myydä Suomessa, mutta varsinkin nuoret käyttävät nuuskaa yhä enemmän.
+
+Ylen lähetti kansanedustajille kyselyn. Esimerkiksi vihreiden kansanedustaja Atte Harjanne sanoo, että kielto ei ole tehokkain tapa vähentää haittoja. Säännelty myynti ja verotus voivat toimia paremmin.
+
+Vasemmistoliiton kansanedustaja Merja Kyllönen sanoo, että nuuskaongelmaa ei enää hallita. Kyllönen sanoo, että laillistaminen on parempi kuin salassa toimiminen.
+
+Nuuskan laillistaminen vaatii EU:sta poikkeusluvan. Ruotsilla on poikkeuslupa.
+
+Ylen nettisivuilta voi katsoa, ketkä kansanedustajat kannattavat nuuskan laillistamista.

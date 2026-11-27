@@ -1,0 +1,79 @@
+# Sunnuntai 5.12.2021 (radio)
+
+Ulkoministerin koronatartunta. Suhtautuminen koronarokotuksiin. Indonesian tulivuorenpurkaus. Itsenäisyyspäivä. Sää.
+
+## Ulkoministerin koronatartunta
+
+![Pekka Haavisto](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_97/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88828361ac4fde9fc1e/1638682656)
+
+Avaa kuvien katselu
+
+Ulkoministeri Pekka Haavisto. Kuva: Gints Ivuskans / AFP
+
+Ulkoministeri Pekka Haavistolla on koronatartunta.
+
+Haavistolla ei ole oireita, mutta hän kävi koronatestissä, koska hän aikoi lähteä työmatkalle. Nyt työmatka peruuntuu koronatartunnan takia, ja Haavisto tekee etätöitä kotona.
+
+Myös hallituksen muut ministerit ovat saaneet ohjeen käydä koronatestissä ulkoministerin koronatartunnan takia.
+
+Pääministeri Sanna Marin kävi koronatestissä jo sunnuntaina. Tulos oli negatiivinen, eli koronatartuntaa ei löytynyt. Marin käy koronatestissä uudelleen maanantaina.
+
+## Suhtautuminen koronarokotuksiin
+
+![Pfizerin koronarokotuskia](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_309/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8373466104e6574674d/1627711184)
+
+Avaa kuvien katselu
+
+Koronarokotuksia vastustavat eniten perussuomalaisten kannattajat. Kuva: Minna Rosvall / Yle
+
+Eri puolueiden kannattajat suhtautuvat koronarokotuksiin eri tavalla. Näin kertoo uusi tutkimus.
+
+Perussuomalaisten kannattajat vastustavat koronarokotuksia enemmän kuin muut. 12 prosenttia perussuomalaisten kannattajista ei aio ottaa koronarokotusta.
+
+Muiden isojen puolueiden kannattajat suhtautuvat koronarokotuksiin myönteisesti. Suurin osa heistä on jo saanut koronarokotukset.
+
+## Indonesian tulivuorenpurkaus
+
+![Henkilö katsoo tulivuoresta purkautuvaa tuhkapilveä.](https://img.img-cdn.yle.fi/crop_extract,w_4647,h_2613,x_0,y_100/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-88817561ab6b40e390d/1638624186)
+
+Avaa kuvien katselu
+
+Semuru-tulivuori purkautuu Indonesiassa. Kuva: Agung Supriyanto / AFP
+
+Aasiassa Indonesiassa on iso tulivuorenpurkaus. Tulivuoresta purkautuu kuumaa laavaa ja taivaalle nousee savua ja tuhkapilviä.
+
+Tulivuorenpurkauksessa on kuollut yli 10 ihmistä. Lisäksi noin 40 ihmistä on saanut palovammoja. Tuhannet ihmiset ovat lähteneet tulivuorenpurkausta pakoon.
+
+Indonesia on alueella, jossa on usein tulivuorenpurkauksia. Indonesiassa on melkein 130 aktiivista tulivuorta. Nyt purkautuu Semeru-tulivuori.
+
+## Itsenäisyyspäivä
+
+![Sauli Niinistö.](https://img.img-cdn.yle.fi/crop_extract,w_5802,h_3264,x_2,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-8807526194f38aaf0f5/1641030877)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö nähdään TV1:ssä itsenäisyyspäivän iltana. Kuva: Benjamin Suomela / Yle
+
+Maanantaina vietetään Suomen itsenäisyyspäivää. Joulukuun 6. päivä on Suomen itsenäisyyspäivä.
+
+Koronatilanne vaikuttaa itsenäisyyspäivän viettoon. Esimerkiksi Presidentinlinnan vastaanotto on peruttu koronatilanteen takia. Tänä vuonna ei siis nähdä, kuinka presidenttipari kättelee vieraita.
+
+Yle kuitenkin lähettää ohjelmaa Presidentinlinnasta itsenäisyyspäivän iltana. Ohjelmassa keskustellaan myös presidentti Sauli Niinistön ja rouva Jenni Haukion kanssa.
+
+Ylen itsenäisyyspäivän ohjelmia voi seurata televisiosta, radiosta ja Yle Areenasta.
+
+## Pakkassää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12218284)
+
+Avaa kuvien katselu
+
+Pakkassää jatkuu maanantaina.
+
+Sunnuntai on ollut kylmä päivä. Koko Suomessa on pakkasvaroitus.
+
+Sunnuntaiaamuna Pohjois-Lapissa Utsjoella oli 34 astetta pakkasta.
+
+Myös Itä-Suomessa oli paikoin pakkasta yli 30 astetta. Etelä-Suomessa pakkasta oli 15 ja 20 asteen välillä.
+
+Myös itsenäisyyspäivää vietetään kylmässä pakkassäässä.

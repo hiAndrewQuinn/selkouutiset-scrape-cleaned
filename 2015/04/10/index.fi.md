@@ -1,0 +1,59 @@
+# Perjantai 10.4.2015
+
+Pohjoismaat lisäävät puolustusyhteistyötä. Suomi on yksi maailman parhaista hyvinvointimaista. Inkerinsuomalaisia muuttaa Venäjältä Suomeen enää vähän. Spede Pasasen syntymästä on kulunut 85 vuotta.
+
+## Pohjoismaiden puolustusyhteistyö kasvaa
+
+![Carl Haglund](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7920501)
+
+Avaa kuvien katselu
+
+Suomen puolustusministeri Carl Haglund. Kuva: Jussi Nukari / Lehtikuva
+
+Pohjoismaat lisäävät puolustusyhteistyötä. Pohjoismaiden puolustusministerien mielestä yhteistyötä tarvitaan lisää, koska Venäjän aggressiivisuus on kasvanut. Pohjoismaat aikovat esimerkiksi lisätä yhteisiä sotaharjoituksia.
+
+Kaikkien Pohjoismaiden eli Suomen, Ruotsin, Norjan, Tanskan ja Islannin puolustusministerit kirjoittivat puolustusyhteistyöstä norjalaisessa lehdessä perjantaina. Yksi kirjoittajista on Suomen puolustusministeri Carl Haglund. Puolustusministerit kirjoittavat, että Pohjoismaat aikovat lisätä yhteistyötä myös Baltian maiden kanssa.
+
+## Suomi on hyvinvointimaa
+
+![Ihmisiä sairaalan käytävällä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6447008)
+
+Avaa kuvien katselu
+
+Suomessa on hyvä terveydenhuolto. Kuva: Yle
+
+Suomi on yksi maailman parhaista hyvinvointimaista. Suomi on maailman seitsemänneksi (7.) paras hyvinvointimaa. Tieto on uudesta hyvinvointimaiden vertailusta.
+
+Vertailussa tutkittiin esimerkiksi ihmisten terveyttä ja koulutusta. Suomi menestyi hyvin esimerkiksi terveydenhuollossa ja aikuisten lukutaidossa. Suomella on myös ongelmia, Suomessa tehdään esimerkiksi paljon itsemurhia.
+
+Maailman paras hyvinvointimaa on Norja. Ruotsi on toiseksi paras hyvinvointimaa. Listan huonoin maa on afrikkalainen Tšad.
+
+## Inkerinsuomalaisten paluumuutto vähenee
+
+![Nainen pitelee käsissään Suomen ja Venäjän passeja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7918034)
+
+Avaa kuvien katselu
+
+Monet inkerinsuomalaiset ovat palanneet Venäjältä Suomeen. Kuva: Anna Mattila / Yle
+
+Inkerinsuomalaisia muuttaa Venäjältä Suomeen enää vähän. Inkerinsuomalaiset asuvat Venäjällä, mutta heillä on suomalainen sukutausta. Esimerkiksi Pietarissa osa inkerinsuomalaisten suomen kursseista on tänä talvena peruttu, koska kursseilla ei ole ollut tarpeeksi osallistujia.
+
+Monet inkerinsuomalaiset ovat päättäneet jäädä Pietariin työn takia. Pietarissa on pulaa työntekijöistä, jotka osaavat suomea. Esimerkiksi suomen kielen tulkit saavat hyvin työtä.
+
+Inkerinsuomalaisilla on ollut oikeus muuttaa takaisin Suomeen jo 25 vuoden ajan. Paluumuutto-oikeus loppuu ensi vuonna. Paluumuuton aikana noin 30 000 inkerinsuomalaista on muuttanut Venäjältä Suomeen.
+
+Inkerinsuomalaisten suvut muuttivat Inkeriin Venäjälle noin 400 vuotta sitten. Inkeri eli Inkerinmaa on nykyisen Pietarin kaupungin ympärillä.
+
+Yle Uutisten internet-sivuilla on iso tietopaketti inkeriläisistä myös venäjäksi. Osoite on yle.fi/uutiset/novosti.
+
+## Spede Pasanen oli huumorin osaaja
+
+![Spede kiillottaa Ford Mustangia](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7892280)
+
+Avaa kuvien katselu
+
+Spede Pasanen. Kuva: Pertti Huotari / Yle
+
+Suomalaisen viihdetaiteilijan Pertti eli Spede Pasasen syntymästä on kulunut 85 vuotta. Pasanen syntyi vuonna 1930. Hän kuoli vuonna 2001.
+
+Spede Pasanen teki paljon hauskoja tv-ohjelmia ja elokuvia. Kaikki suomalaiset tuntevat Spede Pasasen, joka keksi esimerkiksi Uuno Turhapuron.

@@ -1,0 +1,87 @@
+# Uutisviikko selkosuomeksi | sunnuntai 17.5.2026
+
+Droonivaroitukset. Ukrainan iskut. Talous piristyy. Uudet ylioppilaat. Euroviisut.
+
+Kuuntele
+
+Voit lukea uutiset samanaikaisesti alta.
+
+## Droonivaroitukset
+
+![Uudenmaan alue kartalla.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16435076a06d665754fa/1778833083)
+
+Avaa kuvien katselu
+
+Etelä-Suomeen annettiin perjantaina droonivaroitus. Kuva: Nanna Särkkä / Yle, Mapcreator, Openstreetmap
+
+Ensin aiheena ovat droonivaroitukset.
+
+Viranomaisten droonivaroitus on herättänyt paljon arvostelua.
+
+Viranomaiset antoivat perjantaina varhain aamulla droonivaroituksen Uudellemaalle Etelä-Suomeen.
+
+Suomen armeija varautui siihen, että Etelä-Suomeen voi eksyä Ukrainan sotilasdrooneja, joissa on räjähde. Sen takia lentoliikenne keskeytettiin ja ihmisten käskettiin pysyä sisällä. Lopulta Suomeen ei kuitenkaan tullut drooneja.
+
+Droonivaroitusta on arvosteltu, sillä se ei tavoittanut kaikkia ihmisiä. Suomesta puuttuu hälytysjärjestelmä, joka tavoittaa kaikki kansalaiset.
+
+## Ukrainan iskut
+
+![Tulipalo roihuaa rakennuksessa puuaidan takana varhain illalla.](https://img.img-cdn.yle.fi/crop_extract,w_3000,h_1687,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16442986a096d936c8a0/1779002845)
+
+Avaa kuvien katselu
+
+Ukraina iski yön ja aamun aikana Moskovaan ja sen lähialueille. Kuva: Lehtikuva
+
+Ukraina on tehnyt viikon aikana useita droonihyökkäyksiä eri puolille Venäjää.
+
+Tänään sunnuntaina Ukraina on tehnyt ison droonihyökkäyksen Moskovaan ja sen lähialueille. Ainakin 6 ihmistä kuoli iskuissa.
+
+Venäjä kertoo, että se on tänään ampunut alas yli 500 ukrainalaisdroonia.
+
+## Talous piristyy
+
+![50 ja 20 euron seteleitä jonkun kädessä.](https://img.img-cdn.yle.fi/crop_extract,w_3543,h_1992,x_0,y_121/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-160415469a1706acb724/1772187938)
+
+Avaa kuvien katselu
+
+Kotitalouksien kulutus piristyi huhtikuussa. Kuva: Ismo Pekkarinen / AOP
+
+Tällä viikolla kuultiin hyviä uutisia taloudesta.
+
+Nordea-pankki kertoi, että Suomen talous on kääntynyt kasvuun. Nordea sanoi, että talouden käännös näkyy esimerkiksi yksityisessä kulutuksessa. Nordea odottaa, että myös työttömyys alkaa vähitellen helpottaa.
+
+Sota Lähi-idässä voi kuitenkin hidastaa talouskasvua. Sodan takia esimerkiksi korot ovat nousseet ja polttoaine on kallistunut.
+
+Myös pankkien maksukorttitiedot kertovat, että yksityinen kulutus piristyi huhtikuussa. Tämä on ensimmäinen kerta yli 3 vuoteen, kun kotitalouksien kulutus on kasvanut.
+
+## Uudet ylioppilaat
+
+![14 laudaturin ylioppilas Aleksi Laitinen.](https://img.img-cdn.yle.fi/crop_extract,w_1920,h_1080,x_0,y_45/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16418116a0306ee3eea6/1778583426)
+
+Avaa kuvien katselu
+
+Aleksi Laitinen kirjoitti ylioppilaskokeissa 14 laudaturia. Kuva: Jussi Mankkinen / Yle
+
+Kevään uusien ylioppilaiden nimet on julkistettu. Uusia ylioppilaita on tänä keväänä noin 26500.
+
+Helsinkiläinen abiturientti **Aleksi Laitinen** kirjoitti ylioppilaskokeissa 14 laudaturia. Se on uusi Suomen ennätys.
+
+Tämän kevään vanhin uusi ylioppilas on 80-vuotias **Seppo Tuuha**. Hän kirjoitti ylioppilaaksi Porin aikuislukiosta.
+
+## Euroviisut
+
+![Dara esiintyy lavalla.](https://img.img-cdn.yle.fi/crop_extract,w_2350,h_1321,x_6,y_47/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-16442356a08f06fd68bc/1778970819)
+
+Avaa kuvien katselu
+
+Bulgarian Dara voitti Euroviisut. Kuva: Jens Büttner / AOP
+
+Vielä uutinen Euroviisuista.
+
+Bulgaria on voittanut Eurovision laulukilpailut eli Euroviisut.
+
+Bulgarian edustaja **Dara** sai yllätysvoiton kappaleella Bangaranga. Suomi oli 6.
+
+Euroviisujen finaali pidettiin illalla Wienissä Itävallassa. Finaalissa kilpaili 25 maata.
+
+Tässä oli Uutisiviikko selkosuomeksi. Tavataan taas ensi viikolla.

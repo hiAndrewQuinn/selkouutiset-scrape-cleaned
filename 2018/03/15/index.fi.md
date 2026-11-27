@@ -1,0 +1,107 @@
+# Torstai 15.3. 2018 (radio)
+
+Jäänmurtajien lakko peruuntuu. Pullovesissä on mikromuoveja. Äitiyspakkaukset uudistuvat. Katoilla on paljon lunta Itä-Suomessa. VR teki ennätystuloksen. Ford jatkaa autojen testaamista Suomessa. Vaasassa liikkui yöllä susi.
+
+## Jäänmurtajien lakkoa ei tule
+
+![Jäänmurtaja Urho satamassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10100693)
+
+Avaa kuvien katselu
+
+Kuva: Risto Koskinen / Yle
+
+Jäänmurtajien lakko peruuntuu.
+
+Jäätä veden pinnalta särkevät laivat eli jäänmurtajat ja monitoimimurtajat eivät mene lakkoon, koska työtä koskeva kiista on sovittu.
+
+Työriidan osapuolet ovat hyväksyneet valtakunnansovittelijan Minna Helteen antaman sovintoehdotuksen.
+
+Muovin hiukkasia tutkitaan
+
+![vesipulloja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9958684)
+
+Avaa kuvien katselu
+
+Pullovesistä on löytynyt pieniä muovin hiukkasia. Asiasta kertoo kansainvälinen tutkimus. Kuva: Mikko Koski / Yle
+
+Maailman terveysjärjestö tutkii pienien muovin hiukkasten eli mikromuovien vaikutuksia terveyteen.
+
+Mikromuovit ovat hyvin pieniä muovin hiukkasia, joita ei näe paljaalla silmällä. Maailman terveysjärjestö tutkii mikromuoveja, koska niitä on löytynyt pullovesistä.
+
+Vielä ei tiedetä, vaikuttavatko mikromuovit ihmiseen. Siksi asiaa tutkitaan.
+
+Uusi äitiyspakkaus
+
+![Äitiyspakkauksen uusia tavaroita.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10116741)
+
+Avaa kuvien katselu
+
+Äitiyspakkauksessa on nyt vauvalle myös lautanen, lusikat, huopatossut ja lapasen pidikkeet. Kuva: Petra Ristola / Yle
+
+Äitiyspakkaukset uudistuvat.
+
+Äitiyspakkauksissa on nyt enemmän tavaraa kuin ennen. Uusia vauvan tavaroita ovat esimerkiksi huopatossut, lautanen ja lusikat.
+
+Kela alkaa jakaa uusia pakkauksia toukokuussa. Äiti voi valita, ottaako hän pakkauksen vai raha-avustuksen.
+
+Äitiyspakkauksia on jaettu äideille ja vauvoille jo 80 vuotta.
+
+Katoilla paljon lunta
+
+![Tavanomaista suurempi lumimäärä Lapissa voi näkyä myös katoilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10012053)
+
+Avaa kuvien katselu
+
+Talojen katoilla on paljon lunta. Kuva: Raimo Torikka / Yle
+
+Suomen itäosassa talojen katoilla on paljon lunta.
+
+Pohjois-Karjalan alueella katoilla on normaalia enemmän lunta. Isojen hallirakennusten katot eivät ehkä kestä, jos lunta on liikaa. Isojen hallien omistajien kannattaa ottaa lunta pois katoilta.
+
+Ainakin yksi katto on sortunut jo painavan lumen takia.
+
+Omakotitalojen katot kestävät lumen painon paremmin.
+
+VR paransi tulostaan
+
+![juna asemalla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9531250)
+
+Avaa kuvien katselu
+
+VR kertoo, että junalla matkustaminen on lisääntynyt. Kuva: Varpu Helpinen / Yle
+
+Junayhtiö VR on tehnyt paremman tuloksen, kuin koskaan ennen.
+
+Yhtiön liikevoitto kasvoi yli kaksinkertaiseksi edellisvuodesta ja oli nyt yli 110 miljoonaa euroa.
+
+Junalla matkustaminen lisääntyi 8 prosenttia. Ihmiset tekivät viime vuonna noin 127 miljoonaa matkaa.
+
+Ford testaa autoja Suomessa
+
+![Kuvassa autovalmistaja Fordin logo. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9542776)
+
+Avaa kuvien katselu
+
+Ford testaa autoja Rovaniemellä, Songan kylässä. Kuva: Cj Gunther / EPA
+
+Autoja valmistava Ford jatkaa autojen testaamista Suomessa.
+
+Autoja testataan Rovaniemellä, Songan kylässä.
+
+Tänä talvena testataan melkein 200 autoa. Myös erilaisia autojen polttoaineita tutkitaan.
+
+Vaasassa nähty susi
+
+![Susi](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8913022)
+
+Avaa kuvien katselu
+
+Kuvan susi asuu Ranuan eläinpuistossa. Kuva: Ismo Pekkarinen / AOP
+
+Vaasan keskustassa liikkui yöllä susi.
+
+Poliisi kertoo, että susi kulki Vaasan kaupungin keskustassa viime yönä kello kahdelta.
+
+Useat ihmiset näkivät suden.
+
+Poliisipartio kävi häätämässä suden kauemmaksi keskustasta.

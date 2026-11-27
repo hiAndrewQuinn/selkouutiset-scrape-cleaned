@@ -1,0 +1,54 @@
+# Radio \| Uutisviikko selkosuomeksi \| sunnuntai 28.4.2024
+
+Suomen kansalliseepos Kalevala
+
+Uutisviikon aiheena on Suomen kansalliseepos Kalevala. Kalevalalle on annettu Euroopan kulttuuriperintötunnus. Nyt kerromme lisää Kalevalasta.
+
+## Suomen kansalliseepos Kalevala
+
+![Kalevalasta otetaan uusia painoksia. Kuva: Arja Lento / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_1152,w_2048,x_0,y_136/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1712831871/14-svyle-815905319738e1cf95)
+
+Kalevala on Suomen kansalliseepos. Kansalliseepos tarkoittaa runoelmaa eli laajaa runoa, jolla on erityinen merkitys kansakunnalle.
+
+Kansalliseepokset kuvaavat jonkin kansan luonnetta ja historiaa. Esimerkiksi Islannin kansalliseepos on Edda ja Kreikan Ilias ja Odysseia.
+
+Kalevala sai huhtikuussa Euroopan kulttuuriperintötunnuksen. Euroopan komissio sanoo, että Kalevala on osa yleiseurooppalaisia aatevirtauksia ja eeposperinnettä.
+
+Monet kansalliseepokset sisältävät runoja, joita on kerrottu ja laulettu monta sataa vuotta. Kalevalan kokosi Elias Lönnrot.
+
+## Elias Lönnrot
+
+![Elias Lönnrot (1802 - 1884) oli suomalainen monitietäjä. Hän oli esimerkiksi kielentutkija, lääkäri ja suomen kielen uudistaja. Runonkeruumatkat olivat hankalia, koska aina ei ollut teitä ja vesien ylittäminen oli vaarallista.](https://images.cdn.yle.fi/image/upload/c_crop,h_763,w_1357,x_0,y_503/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1560172452/39-5696105cfe57679899a)
+
+Lääkäri Elias Lönnrot alkoi koota noin 200 vuotta sitten runoelmaa kansanrunoista. Kalevala on Lönnrotin runoelma, vaikka sen perusta on kansanrunoissa.
+
+Lönnrot loi eepoksen yhdistelemällä eriaikaisia ja erilaisia kansanrunoja. Osan runoista Lönnrot loi itse.
+
+Varsinaisen Kalevalan ensimmäinen painos eli Vanha Kalevala ilmestyi vuonna 1835. Uusi Kalevala ilmestyi vuonna 1849.
+
+Lönnrot teki 20 vuoden aikana pitkiä matkoja, kun hän kiersi keräämässä runoja. On laskettu, että Lönnrot kulki joka vuosi matkan, joka vastaa matkaa Suomen päästä päähän.
+
+## Maailman synty ja kansat Kalevalassa
+
+![Kalevalan runomitta on kalevalamitta eli nelipolvinen trokee. Siinä on paljon alkusointuja eli sanan ensimmäiset tavut ovat muistuttavat toisiaan. Suomen kielessä on helppoa muodostaa alkusointuja. Kuva: Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_900,w_1600,x_0,y_0/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1677755586/14-svyle-27318356c32f6c7e9e6)
+
+Kalevalan alussa kerrotaan, että maailma syntyi sotkalinnun munasta.
+
+Kalevalassa on kaksi kansaa, Kalevala ja Pohjola. Runoelma kuvaa esimerkiksi näiden kansojen kiistoja ja matkoja. Tapahtumat päättyvät kristinuskon tuloon.
+
+Kalevala antaa edelleen vaikutteita esimerkiksi taiteisiin ja käsityöhön. Myös fantasiakirjallisuus ja vaikkapa metallimusiikki ottavat vaikutteita Kalevalasta.
+
+Kalevala on käännetty yli 60 kielelle - myös selkosuomeksi.
+
+![Lemminkäisen äiti on Akseli Gallen-Kallelan maalaus vuodelta 1897. Lemminkäinen on suomalaisen kansanperinteen sankari. Lönnrot loi Kalevalan Lemminkäis-hahmon yhdistelemällä monia kansanrunouden hahmoja. Kuva: Mårten Lampén / Yle](https://images.cdn.yle.fi/image/upload/c_crop,h_3375,w_6000,x_0,y_241/ar_1.7777777777777777,c_fill,g_faces,h_431,w_767/dpr_1.0/q_auto:eco/f_auto/fl_lossy/v1684329872/39-11154756464d46556418)
+
+Uutisviikon aihe oli Kalevala. Kerrataan vielä tärkeimmät asiat.
+
+Kalevala on Suomen kansalliseepos.
+
+Elias Lönnrot kokosi Kalevalan noin 200 vuotta sitten.
+
+Kalevala sai huhtikuussa Euroopan kulttuuriperintötunnuksen.
+
+Tämä oli Uutisviikko selkosuomeksi, tavataan taas. Kuulemiin!
+

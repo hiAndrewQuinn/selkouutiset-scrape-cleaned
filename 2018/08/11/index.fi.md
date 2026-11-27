@@ -1,0 +1,81 @@
+# Lauantai 11.8.2018 (radio)
+
+Iso korvaus sairastuneelle. Indonesian tilanne. Lentokonevarkaus. Budjettikone. Sateinen sää.
+
+## Iso korvaus syöpään sairastuneelle
+
+![Roundup-kasvimyrkkypulloja](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10348212)
+
+Avaa kuvien katselu
+
+Roundup on rikkakasvien torjunta-aine. Siinä on glyfosaattia. Kuva: Stephanie Lecocq / EPA-EFE
+
+Yhdysvalloissa oikeus on päättänyt, että syöpäsairas mies saa ison korvauksen.
+
+Oikeus on sitä mieltä, että mies sai syövän, koska oli käyttänyt Roundup-nimistä rikkakasvien torjunta-ainetta.
+
+Roundupia tekee Monsanto-yhtiö. Yhtiön pitää maksaa miehelle yli 250 miljoonaa euroa korvausta.
+
+Roundup on torjunta-aine, jossa on glyfosaattia. Glyfosaatti aiheuttaa melko varmasti syöpää, sanoo Kansainvälinen syöpätutkimusjärjestö.
+
+Euroopassa Roundupia saa käyttää. Suomalainen asiantuntija sanoo, että sitä pitää käyttää vain vähän.
+
+## Maanjäristyksessä on kuollut paljon ihmisiä
+
+![Pelastajia raunioissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10344247)
+
+Avaa kuvien katselu
+
+Pelastustyöntekijät etsivät romahtaneista taloista ihmisiä. Kuva: AOP
+
+Indonesiassa on vieläkin paha tilanne maanjäristyksen jälkeen.
+
+Lombokin saarella oli paha maanjäristys viikko sitten. Sen jälkeen on löydetty jo yli 380 kuollutta ihmistä.
+
+Kuolleita löytyy varmasti vielä lisää.
+
+Saarella on paljon ihmisiä ilman puhdasta vettä, ruokaa ja lääkkeitä.
+
+## Erikoinen lentokoneonnettomuus
+
+![Ilmakuva Seattlen kansainvälisen lentokentän Sea-Tacin pääterminaalista](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10348268)
+
+Avaa kuvien katselu
+
+Mies, joka varasti lentokoneen, oli lentokentällä töissä. Kuva: Peter Carey / AOP
+
+Yhdysvalloissa on sattunut erikoinen lentokoneonnettomuus.
+
+Mies lähti ilman lupaa lentoon tyhjällä matkustajakoneella, kaarteli sillä jonkin aikaa ja syöksyi lopulta maahan. Mies kuoli.
+
+Paikallinen seriffi sanoi, että mies oli itsetuhoinen.
+
+## Katso miten budjetti vaikuttaa
+
+![Vanhemman ihmisen käsi pitelee pankkikorttia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10348122)
+
+Avaa kuvien katselu
+
+Valtion budjetti vaikuttaa kaikkien arkeen. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Ylen verkkosivulla on budjettikone.
+
+Valtiovarainministeriö on tehnyt ehdotuksen siitä, miten Suomen valtion pitää ensi vuonna käyttää rahaa. Budjettikone kertoo, mitä Suomen valtion budjetti voi tarkoittaa.
+
+Budjettikoneen löydät verkkosivulta yle.fi.
+
+Voit valita ensin, mihin ryhmään kuulut. Sitten budjettikone kertoo, miten valtion budjetti voi näkyä sinun tuloissa ja menoissa.
+
+## Huomenna on sateista
+
+![Taistelu Nevalla, Pietari, keskiaika, sade, sateenvarjo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10325642)
+
+Avaa kuvien katselu
+
+Hellepäivät jäävät nyt kesämuistoiksi. Kuva: Jussi Mankkinen / Yle
+
+Sää viilenee.
+
+Huomenna sunnuntaina sateita voi tulla koko maassa.
+
+Lämpötila on päivällä 10 ja 22 asteen välillä.

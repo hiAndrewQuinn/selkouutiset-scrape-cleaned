@@ -1,0 +1,61 @@
+# Sunnuntai 29.3.2015
+
+Venäjältä muutetaan nyt paljon ulkomaille. Arabiliitto perustaa yhteiset sotilasjoukot. Germanwingsin perämiehestä kirjoitetaan paljon mediassa. Lapset ovat virponeet palmusunnuntaina.
+
+## Venäjältä muutetaan nyt paljon ulkomaille
+
+![Viime vuonna muuttoliike Venäjältä nousi jo 1990-luvun lopun tasolle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7897411)
+
+Avaa kuvien katselu
+
+Yhä enemmän ihmisiä päättää muuttaa pois Venäjältä.
+
+Venäläiset muuttavat yhä enemmän pois kotimaasta. Venäjän tilastokeskus Rosstat on laskenut, että viime vuonna maastamuutto oli yhtä suurta kuin 1990 luvun lopussa. Noin 200 000 ihmistä muutti Venäjältä ulkomaille yhdeksässä kuukaudessa.
+
+Suuri osa muutti entisiin neuvostotasavaltoihin. Mutta osa ihmisistä on muuttanut myös Yhdysvaltoihin ja EU-maihin.
+
+Pietarin Eurooppalaisen yliopiston professori Dmitri Travin on huolissaan, koska moni venäläinen asiantuntija on muuttanut ulkomaille. Travin sanoo, että asiantuntijoiden muutto ulkomaille, eli aivovuoto on Venäjällä paha ongelma. 
+
+## Arabiliitto perustaa yhteiset sotilasjoukot
+
+![Arabijohtajia ryhmäkuvassa](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6555485)
+
+Avaa kuvien katselu
+
+Arabiliitto haluaa taistella yhteisillä sotilasjoukoilla ääri-islamisteja vastaan. Kuva: STR / EPA
+
+Egyptiin Sharm-el-Sheikhiin kokoontuneet Arabiliiton valtiot ovat päättäneet, että ne perustavat yhteiset sotilasjoukot. Arabiliitto sanoo, että uusilla joukoilla taistellaan ääri-islamisteja vastaan Syyriassa, Irakissa ja Libyassa. Joukkoja voidaan käyttää silloin, kun jokin uhkaa alueen valtioita.
+
+Arabiliiton kokouksessa on puhuttu paljon siitä, miten Jemenin kriisi pitää hoitaa. Jemenin pommittaminen on jatkunut. Ilmaiskuja on tehty esimerkiksi pääkaupungin Sanaan lentokentälle ja huthi-kapinallisten tukikohtaan, joka on lähellä Sanaata.
+
+Arabimaat pelkäävät, että Iranin vaikutusvalta kasvaa Arabian niemimaalla, jos shiialaiset huthit valtaavat koko Jemenin.  Arabimaissa on eniten sunnimuslimeja.
+
+## Germanwingsin perämiehestä kirjoitetaan paljon mediassa
+
+![Andreas Lubitz osallistumassa juoksukilpailuun.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7896235)
+
+Avaa kuvien katselu
+
+Perämies Andreas Lubitz osallistui juoksukilpailuun Hampurissa vuonna 2009.  Kuva: Foto Team Mueller / AFP
+
+Saksalaisen lentoyhtiö Germanwingsin onnettomuudesta kirjoitetaan taas paljon mediassa. Saksalainen Bild-lehti kertoo, että ohjaamon ääninauhalla kuuluu selvästi, miten kapteeni vaati perämiestä avaamaan ohjaamon oven. Bild-lehden mukaan kapteeni huutaa nauhalla: avaa se pahuksen ovi.
+
+Sanomalehti New York Times kirjoittaa, että koneen vuorta päin ohjannut perämies on hakenut hoitoa näköongelmiin. Näköongelmat voivat johtaa siihen, ettei lentäjä saa enää lentää.
+
+Saksalainen Welt am Sonntag -lehti taas kirjoittaa, että poliisi on löytänyt perämiehen kodista mielialalääkkeitä.
+
+Nämä tiedot ovat lehtitietoja. Viranomaiset eivät ole sanoneet, ovatko ne totta vai eivät.
+
+## Lapset ovat virponeet palmusunnuntaina
+
+![Virpojia.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7897407)
+
+Avaa kuvien katselu
+
+Virpojat saavat palkaksi paljon makeisia. Kuva: Yle
+
+Pienet pääsiäisnoidat ovat soittaneet ovikelloja, koska tänään on ollut palmusunnuntai. Lapsilla on ollut pajupensaan oksia, jotka on koristeltu.
+
+Kun ovi on aukaistu, he ovat kysyneet, saako virpoa. Jos heille antaa luvan, pääsiäisnoidat lausuvat lorun, joka kuuluu: "Virvon varvon, tuoreeks terveeks, tulevaks vuodeks, vitsa sulle, palkka mulle!". Tarkoituksena on toivottaa onnea ja terveyttä.
+
+Perinteen mukaan pääsiäisnoidalle pitää antaa palkka, joka on esimerkiksi makeisia. Noita antaa koristeellisen pajunvitsan.

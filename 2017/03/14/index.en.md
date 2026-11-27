@@ -1,0 +1,43 @@
+# Tuesday 14.3.2017 (radio)
+
+The Supreme Court is hearing a case about planning an honour killing. The EU court decided that an employer may ban religious symbols at the workplace. The British parliament has given permission to announce leaving the EU. People want more culture in hospitals. Adoption organisations want to show that adoptive families live a normal life.
+
+## The Supreme Court
+
+The Supreme Court is hearing a case in which an Iraqi man is accused of planning an honour killing. This is the first time that planning an honour killing is being heard in court in Finland.
+
+The prosecutor demands that the young Iraqi man living in Helsinki be sentenced to over two years in prison. The prosecutor says that the man planned to kill his sister because she did not follow the Muslim family's religion and culture.
+
+The man says that he has not planned a killing. The sister also says that the man did not intend to kill her.
+
+## The EU court
+
+Employers have the right to ban employees' visible religious symbols at workplaces. The EU court decided this today, Tuesday.
+
+A Belgian woman and a French woman had complained to the court. They had been dismissed from their jobs because they had refused to take off their headscarves at work.
+
+The court's decision means that a company  can ban political and religious symbols if it gives a general instruction about it. If the ban concerned only one group, it would be discrimination.
+
+## Britain
+
+The British parliament has approved a law that makes it possible for Britain to leave the EU.
+
+The British government is expected to give the EU notice by the end of this month that it is leaving the EU.
+
+After the notice, Britain and the EU will start negotiations about leaving, which will last two years.
+
+## Culture
+
+The Ministry of Education and Culture wants more art and culture in hospitals and care institutions.
+
+They want more, for example, theatre and music performances, works of art and hospital clowns who visit sick children in hospitals In addition to hospitals, culture would be offered, for example, in child welfare institutions and in care homes for the elderly.
+
+The Ministry of Education and Culture wants hospitals and institutions to pay for the culture services themselves.
+
+## Adoption
+
+An adoption campaign is under way in Finland.
+
+With their campaign the adoption organisations want to show that adoptive families live ordinary Finnish family life. According to the adoption organisations, the problems of adoption are emphasised too much in the media.
+
+In about 30 years, about 5000 children have been adopted to Finland from abroad. About 50 Finnish children are adopted every year.

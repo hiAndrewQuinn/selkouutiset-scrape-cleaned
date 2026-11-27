@@ -1,0 +1,81 @@
+# Sunnuntai 3.7.2016 (radio)
+
+Alle 18-vuotiaille turvapaikahakijoille tarvitaan sijoituspaikkoja. Bagdadissa on kuollut ihmisiä pommi-iskuissa. Suomalaiset ovat tyytyväisiä presidentti Niinistöön. Pihapelit ovat kesällä suosittuja. Nyt on ukkosia eri puolilla Suomea.
+
+## Alaikäiset turvapaikanhakijat
+
+![Opetusta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8910941)
+
+Avaa kuvien katselu
+
+Alaikäisiä turvapaikanhakijoita opiskelemassa. Kuva: Suvi Vesalainen / Yle
+
+Alle 18-vuotiaille turvapaikanhakijoille tarvitaan sijoituspaikkoja.
+
+Kunnat ovat jo luvanneet noin 300 paikkaa alaikäisille turvapaikanhakijoille, mutta paikkoja tarvitaan noin 1000.
+
+Ylitarkastaja Paula Karjalainen uskoo, että paikkoja saadaan lisää. Kunnat haluavat auttaa nuoria turvapaikanhakijoita. Kunnille on myös hyötyä siitä, että ne saavat nuoria asukkaita.
+
+Alaikäiset turvapaikanhakijat pääsevät kunnissa tavallisesti perheryhmäkoteihin.
+
+## Bagdadin pommi-iskut
+
+![Pommin tuhoja Bagdadissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9000353)
+
+Avaa kuvien katselu
+
+Pommit tekivät Bagdadissa paljon tuhoa. Kuva: Reuters-TV
+
+Irakin pääkaupungissa Bagdadissa on tapahtunut 2 pommi-iskua.
+
+Ensimmäinen pommi räjähti ostoskadulla Bagdadin keskustassa. Pommi tappoi yli 80 ihmistä. Terroristijärjestö Isis sanoo, että se teki iskun.
+
+Toinen pommi räjähti Bagdadin itäosassa. Se tappoi 5 ihmistä. Vielä ei tiedetä, kuka tuon iskun teki.
+
+## Suosittu presidentti
+
+![Presidentti Sauli Niinistö Imatralla](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8991431)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö. Kuva: Pyry Sarkiola / Yle
+
+Suomalaiset ovat tyytyväisiä presidentti Sauli Niinistöön. Suurin osa suomalaisista on sitä mieltä, että Niinistö hoitaa presidentin tehtäviä hyvin.
+
+Helsingin Sanomat kysyi noin 1000 suomalaisen mielipidettä Niinistöstä. Noin 90 prosenttia vastaajista sanoi, että Niinistö on onnistunut hyvin. Vain 1 prosentti vastaajista antoi Niinistölle huonon arvosanan.
+
+## Pihapelit
+
+![Tikan heittoa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8974296)
+
+Avaa kuvien katselu
+
+Kesällä heitetään tikkaa. Kuva: Yle
+
+Monet suomalaiset pelaavat kesällä pihapelejä.
+
+src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5409166"
+
+Avaa kuvien katselu
+
+Mies pelaa mölkkyä. Kuva: YLE Lahti/ Tuija Veirto
+
+Suomalainen mölkky on monen lempipeli. Mölkkypelissä pelaajat kaatavat puupalikoita heittämällä niitä mölkyllä, joka myös on puuta. Mölkkypelejä myydään nykyään paljon myös ulkomaille, esimerkiksi Ranskaan.
+
+Ihmiset tykkäävät pelata vanhoja pihapelejä, koska ne ovat tuttuja ja niissä on helpot säännöt. Siksi myös tikanheitto on suosittu peli joka kesä.
+
+## Ukkosohjeet
+
+![Salama välähtää maaseudulla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9000500)
+
+Avaa kuvien katselu
+
+Salamat kuuluvat ukkoseen. Kuva: Joni Rinta-Möykky / Myrskybongarit.fi
+
+Suomessa on nyt kovia ukkosia. Ukkosen aikana vettä voi sataa tosi paljon ja tuuli voi olla kovaa. Ukkonen voi kaataa puita ja katkaista sähköjä.
+
+Ilmatieteen laitos on antanut ohjeita ukkosen varalle. Ohjeet sanovat, että ennen ukkosta kannattaa ladata puhelin ja sammuttaa sähkölaitteet. Ovet ja ikkunat on hyvä panna kiinni ja auto kannattaa ajaa pois puiden läheltä.
+
+Ohjeet sanovat myös, että ukkosen aikana on parasta pysyä sisällä. Kerrostalossa ei kannata käyttää hissiä. Jos ukkonen katkaisee sähköt, hissistä ei ehkä pääse pois.
+
+Ukkosen jälkeen pitää autolla ajaa varovasti, koska ukkonen on voinut kaataa tielle puita.

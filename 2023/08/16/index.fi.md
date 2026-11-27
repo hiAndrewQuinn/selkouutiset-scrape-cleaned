@@ -1,0 +1,83 @@
+# Radio Selkouutiset keskiviikko 16.8.2023
+
+Alexander Stubb lähtee kokoomuksen presidenttiehdokkaaksi. SDP pyysi Jutta Urpilaista ehdokkaaksi. Lähijunien liput kallistuvat. Löytötavaratoimistoille toimintakielto. Sääennuste.
+
+## Stubb lähtee kokoomuksen presidenttiehdokkaaksi
+
+![Alexander Stubb puhuu mikkiin.](https://img.img-cdn.yle.fi/crop_extract,w_3984,h_2241,x_0,y_415/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115718864dc76a854042/1692169979)
+
+Avaa kuvien katselu
+
+Alexander Stubbista on tulossa kokoomuksen presidenttiehdokas. Kuva: Silja Viitala / Yle
+
+Alexander Stubb lähtee kokoomuksen presidentiehdokkaaksi.
+
+Stubb on ollut kokoomuksen puheenjohtaja ja esimerkiksi pääministeri ja ulkoministeri. Tällä hetkellä hän on EU-yliopiston professori Firenzessä.
+
+Stubb sanoi tiedotustilaisuudessa, että Venäjän hyökkäys Ukrainaan vaikutti päätökseen ehdokkuudesta merkittävästi.
+
+Stubb on huolissaan Suomen sisäisestä tilanteesta. Hän korosti lehdistönvapauden ja kunnioittavan keskustelukulttuurin tärkeyttä.
+
+Stubb aikoo toimia läheisessä yhteistyössä hallituksen ja eduskunnan kanssa, jos hänestä tulee presidentti.
+
+Kokoomuksen puoluekokous vahvistaa myöhemmin puolueen presidenttiehdokkaan valinnan.
+
+## Urpilaista on pyydetty SDP:n presidenttiehdokkaaksi
+
+![Jutta Urpilainen ja Sanna Marin taputtavat.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115747064dcaabb1f94b/1692189936)
+
+Avaa kuvien katselu
+
+EU-komissaari Jutta Urpilainen (vas. ) ja SDP:n puheenjohtaja Sanna Marin. Kuva: Silja Viitala / Yle
+
+SDP:n puheenjohtaja Sanna Marin on pyytänyt EU-komissaari Jutta Urpilaista presidenttiehdokkaaksi. Sosiaalidemokraatit olivat koolla eduskuntaryhmän kesäkokouksessa.
+
+Urpilainen sanoo, että hän harkitsee ehdokkuutta. Urpilainen päättää asiasta marraskuuhun mennessä.
+
+SDP:n presidenttiehdokkaan valitsee puoluevaltuusto loppuvuoden aikana.
+
+## Lähijunien lipunhinnat
+
+![Lähijunan vaunu ja penkkejä.](https://img.img-cdn.yle.fi/crop_extract,w_6240,h_3510,x_0,y_498/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-89868161d45ce774bc4/1641308312)
+
+Avaa kuvien katselu
+
+Lähiliikenteen junaliput kallistuvat noin 5 prosenttia. Kuva: Antro Valo / Yle
+
+Junafirma VR korottaa lähiliikenteen kertalippujen ja sarjalippujen hintoja 28. elokuuta.
+
+Lähiliikenteen kerta- ja sarjalippujen hinnat nousevat keskimäärin vajaat 5 prosenttia eli 50 senttiä.
+
+Hinnat Helsingistä Hyvinkäälle, Järvenpäähän ja Mäntsälään kuitenkin säilyvät ennallaan.
+
+VR sanoo, että hinnankorotuksen syy ovat inflaatio eli yleinen hintojen nousu ja energian hinnan nousu.
+
+## Löytötavaratoimistot
+
+![Suomen Löytötavarapalvelu](https://img.img-cdn.yle.fi/crop_extract,w_5472,h_3078,x_0,y_128/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6097735dc549714224b/1573491985)
+
+Avaa kuvien katselu
+
+Löytötavaratoimistot ovat kiinni kuukauden 12. syyskuuta alkaen. Kuva: Rehnman Kaj / Yle
+
+Suomen Löytötavarapalvelun toiminta on kielletty kuukaudeksi.
+
+Länsi- ja Sisä-Suomen aluehallintovirasto sanoo, että löytötavaratoimisto on rikkonut toistuvasti ja vakavasti löytötavaralakia.
+
+Toimisto on esimerkiksi lisännyt löytötavaroiden säilytykseen arvonlisäveron. Lisäksi toimisto on perinyt löytötavaroiden käsittelystä erityislisää vastoin lakia.
+
+Löytötavaratoimiston toimintakielto alkaa 12. syyskuuta ja kestää kuukauden. Kaikki toimipisteet ovat tämän ajan kiinni.
+
+## Sää
+
+![Totstain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115779464dce08b74f13/1692197043)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Torstaina sää poutaantuu ja muuttuu aurinkoisemmaksi lännestä alkaen.
+
+Pohjois-Suomessa ja maan keskiosissa tulee vielä sadekuuroja
+
+Lämpötila on maan etelä- ja keskiosissa 20 - 25 astetta. Muualla maassa lämpötila on 14 -19 , Pohjois- Lapissa 10 - 12 astetta.

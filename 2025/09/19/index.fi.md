@@ -1,0 +1,57 @@
+# TV | Selkouutiset | perjantai 19.9.2025
+
+Puolustusteollisuuden työpaikat. Kaupunkien turvallisuus. Kullankaivuu. Sää.
+
+## Puolustusteollisuuden työpaikat
+
+Aluksi uutinen puolustusteollisuuden työpaikoista.
+
+Suomeen on tullut noin 4 000 uutta työpaikkaa puolustusteollisuuteen.
+
+Työpaikkojen määrä on kasvanut sen jälkeen, kun Venäjä hyökkäsi Ukrainaan. Moni maa haluaa nyt ostaa puolustustarvikkeita.
+
+Suomessa valmistetaan esimerkiksi erilaisia varusteita, aseita ja ammuksia. Suomessa tehdään myös ajoneuvoja ja tietokoneohjelmistoja.
+
+Tässä valmistetaan suojaliivejä Forssassa. Tehtaassa on 150 työntekijää.
+
+Suomeen on tullut noin 4 000 uutta työpaikkaa puolustusteollisuuteen.
+
+## Kaupunkien turvallisuus
+
+Sitten aiheena on kaupunkien turvallisuus.
+
+Vantaan turvallisuustilanne on huonoin Suomen suurista kaupungeista.
+
+Tämä selviää poliisin tilastosta. Tilastoon lasketaan esimerkiksi hälytystehtävät ja vakavat rikokset julkisella paikalla.
+
+Poliisi sanoo, että Vantaalla voi olla levotonta, koska siellä asuu paljon nuoria ja työttömiä.
+
+Vantaan turvallisuustilanne on huonoin Suomen suurista kaupungeista.
+
+Seuraavaksi huonoin turvallisuustilanne on Jyväskylässä ja Tampereella.
+
+## Kullankaivuu
+
+Lopuksi aiheena on kulta.
+
+Kullan kaivaminen koneella saattaa levitä Lapissa uusille alueille.
+
+Kulta on nyt kallista. Siksi sitä halutaan etsiä uusista paikoista.
+
+Inarin Sotajoella on tänä kesänä kaivanut kultaa noin 60 porukkaa.
+
+**Maija** ja **Risto Vehviläinen** ovat kaivaneet kultaa lähes 50 vuotta. He löysivät kesäkuussa kultahipun, joka painaa yli 30 grammaa.
+
+Kullan kaivaminen koneella saattaa levitä Lapissa uusille alueille.
+
+Koneella kaivaminen vaatii kuitenkin luvan.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Huomenna aamulla sataa vettä.
+
+Iltapäivällä sataa idässä ja pohjoisessa. Lännessä paistaa jo aurinko.
+
+Lämpötila on 10-15 astetta.

@@ -1,0 +1,65 @@
+# Lauantai 13.7.2019 (radio)
+
+Parituksen valvominen on Suomessa hankalaa. Mansikkatiloilla ei ole montaa suomalaista poimijaa. Keskuskauppakamari varoittaa firmoja sähköpostin huijausviesteistä. Uuden-Seelannin asukkaat ovat alkaneet luopua omista aseista.
+
+## Paritusta on vaikea valvoa
+
+![Mies ojentaa rahaa naiselle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10876527)
+
+Avaa kuvien katselu
+
+Seksin myyjä voi vaikuttaa itsenäiseltä toimijalta. Silti taustalla voi olla parittaja. Kuva: AOP
+
+Parituksen valvominen on Suomessa hankalaa. Näin sanovat asiantuntijat, joita Yle haastatteli. Paritus tarkoittaa rahallista hyötymistä toisen prostituutiosta.
+
+Joka päivä ainakin sadat ihmiset Suomessa myyvät seksiä. Seksin myyminen ei ole Suomessa laitonta mutta paritus on. Esimerkiksi Ruotsissa on ollut vuodesta 1999 täydellinen seksin ostamiskielto.
+
+Paritukseen liittyy usein ihmiskauppaa. Tällä viikolla uutisoitiin rikosvyyhdistä, jossa oli seksipalvelusivusto netissä. 3:a suomalaismiestä epäillään jutussa, johon liittyy ihmiskauppaa.
+
+Parittajat voivat ohjailla seksityöläisiä myös vaikka ulkomailta.
+
+Seksikaupassa liikkuu Suomessa yli 100 miljoonaa euroa vuodessa.
+
+## Mansikkatilat eivät pärjää ilman ulkomaista työvoimaa
+
+![Mansikkaa kylpymässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10873341)
+
+Avaa kuvien katselu
+
+Kuva: Kati Ala-Renko / Yle
+
+Mansikkatiloilla ei ole montaa suomalaista poimijaa. Tilojen täytyy käyttää ulkomaista työvoimaa. Suurin osa poimijoista tulee tällä hetkellä Ukrainasta, Venäjältä ja Valko-Venäjältä.
+
+Esimerkiksi Ukrainassa keskipalkka on noin 200 - 300 euroa. Marjatilalla Suomessa voi tienata 2 vuoden palkan kesän aikana. Parhaana päivänä poimija kerää 100 - 200 kiloa mansikoita.
+
+Maatalouden kausitöihin tarvitaan Suomessa 10 000 - 15 000 työntekijää joka vuosi. Suurin osa on töissä marjatiloilla.
+
+## Huijauksia on taas liikkeellä sähköpostissa
+
+![Mies ja tietokone.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10865446)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+Keskuskauppakamari varoittaa firmoja sähköpostin huijausviesteistä. Viesteissä pyydetään tekemään maksusuorituksia tai niillä kalastellaan kirjautumistunnuksia.
+
+Viestejä on tullut varsinkin firmojen talousosastoille.
+
+Viestien uskottavuutta lisää se, että lähettäjäksi on merkitty tuttu henkilö. Viestejä voi tulla esimerkiksi ylemmän johdon nimissä.
+
+Huijarit ovat liikkeellä erityisesti kesällä, koska firmoissa voi olla uusia työntekijöitä.
+
+## Uusi-Seelanti vähentää aseita
+
+![Christchurchin iskujen muistotilaisuus Al Noor-moskeijassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10704269)
+
+Avaa kuvien katselu
+
+Christchurchin uhrien muistotilaisuus Al Noorin moskeijassa. Kuva: Mick Tsikas / EPA
+
+Uuden-Seelannin asukkaat ovat alkaneet luopua omista aseista. Kyseessä on takaisinosto-ohjelma. Sen tarkoituksena on hävittää puoliautomaattiset ampuma-aseet koko maasta.
+
+Aseista luopuminen on seurausta Christchurchin moskeija-ampumisista maaliskuussa. Silloin kuoli 51 muslimia. Iskujen jälkeen Uusi-Seelanti alkoi kiristää aselakeja pikavauhtia.
+
+Aseiden ostotilaisuuksia on yli 200 ympäri maata. Tilaisuuksista ensimmäinen järjestettiin lauantaina Christchurchissa ampumisen tapahtumapaikalla.

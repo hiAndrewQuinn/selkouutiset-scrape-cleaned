@@ -1,0 +1,69 @@
+# Keskiviikko 23.3.2022 (radio)
+
+Ukrainan Mariupol. Helsinki-Vantaan lentoasema. Koronatutkimus. Viikonloppuna myrsky.
+
+## Mariupol
+
+![Venäjän hyökkäyksessä tuhottuja rakennuksia Mariupolin kaupungista kuvatussa satelliittikuvassa 22. maaliskuuta.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_214/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-931711623a7c919dde9/1648007229)
+
+Avaa kuvien katselu
+
+Mariupol on kärsinyt isoja vahinkoja sodan aikana. Kuva: Maxar Technologies / AFP
+
+Ukrainassa jatkuvat taistelut satamakaupunki Mariupolista.
+
+Venäjä ei ole kuitenkaan tulittanut Mariupolin satamaa. Satama on tärkeä koko alueen kuljetuksille.
+
+Venäjä on sen sijaan tulittanut Mariupolin asuintaloja, sairaaloita ja kouluja.
+
+Mariupolissa on vielä noin 100 000 ihmistä, jotka eivät ole päässeet kaupungista pois. Kaupungin ympärillä on Venäjän sotilaita.
+
+Tiistaina Mariupolista onnistuttiin viemään turvaan yli 7000 ihmistä.
+
+Mariupolin kaupunki on kärsinyt isoja vahinkoja sodan aikana. Venäjä hyökkäsi Ukrainaan kuukausi sitten.
+
+## Helsinki-Vantaan lentoasema
+
+![Helsinki-Vantaan lentoasema, uuden terminaalin turvatarkastus, laukkujen läpivalaisulaite.](https://img.img-cdn.yle.fi/crop_extract,w_3835,h_2157,x_0,y_129/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-9314546239b954d2d75/1647950699)
+
+Avaa kuvien katselu
+
+Helsinki-Vantaan turvatarkastuksessa on uutta tekniikkaa. Kuva: Terhi Liimu / Yle
+
+Täällä Suomessa Helsinki-Vantaan lentoaseman uudistus jatkuu. Nyt lentoaseman turvatarkastus nopeutuu.
+
+Turvatarkastus on saanut uusia laitteita. Nyt käsimatkatavara voidaan tarkastaa, ilman että matkustajan pitää ottaa nesteitä tai elektroniikkaa pois laukusta.
+
+Viimeistään kesällä kaikki lennot ja turvatarkastukset löytyvät samasta terminaalista. Terminaaliin pääsee nopeasti ja helposti junalla, bussilla tai autolla.
+
+## Koronatutkimus
+
+![Suojavarusteisiin pukeutunut nainen ruiskuttaa näytettä koeputkeen labroratoriossa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12363222)
+
+Avaa kuvien katselu
+
+Koronaa tutkitaan maailmalla paljon. Kuva: Ullstein Bild / AOP
+
+Koronataudista on julkaistu uusia tutkimuksia.
+
+Uusi brittiläinen tutkimus kertoo, että koronatauti vaikuttaa aivoihin. Koronatauti vahingoittaa aivoissa esimerkiksi aluetta, joka liittyy haistamiseen.
+
+Koronapotilaiden aivot myös kutistuvat. Aivot pienenevät koronataudin takia jopa 2 prosenttia.
+
+Koronatauti vaikuttaa myös ajatteluun. Koronataudin jälkeen ihmiset selviävät aikaisempaa huonommin tehtävistä, joissa tarvitaan monimutkaista ajattelua. Näin kertoo siis brittiläinen tutkimus.
+
+Uusi saksalainen tutkimus puolestaan kertoo, että koronataudin vaikutukset aivoissa todennäköisesti korjaantuvat ajan mukana.
+
+Koronataudin jälkeen ihminen ei ehkä jaksa keskittyä asioihin, hänellä voi olla päänsärkyä ja hän on väsynyt. Vähitellen ongelmat kuitenkin poistuvat. Myös hajuaisti tulee takaisin, saksalaiset tutkijat sanovat.
+
+## Sää
+
+![sääkartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-12372779)
+
+Avaa kuvien katselu
+
+Sää on torstaina enimmäkseen poutainen ja myös aurinkoinen. Lämpötila on etelässä +10 astetta ja pohjoisessa noin nolla astetta.
+
+Perjantaina Suomeen tulee sateita ja tuuli alkaa voimistua. Viikonloppuna Suomessa on myrsky ja tuuli on kovaa erityisesti lauantaina.
+
+Myös lämpötila alkaa laskea lauantaina, ja sunnuntaina voi olla pakkasta jo koko maassa. Sunnuntaina sade on lunta myös etelässä.

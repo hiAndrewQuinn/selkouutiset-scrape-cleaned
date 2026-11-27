@@ -1,0 +1,67 @@
+# Torstai 4.4.2019 (radio)
+
+Jihadistinen toiminta on vilkastunut. Työttömyyseläkkeelle yhä useampi. Maksuhäiriöt lisääntyivät. Etiopian turmakoneessa ei havaittua vikaa. Kesänopeusrajoitukset tulevat voimaan. Yle järjesti selkokielisen vaalikeskustelun.
+
+## Jihadistinen toiminta vilkastunut
+
+![Syyrian kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10650819)
+
+Avaa kuvien katselu
+
+Suomesta on lähtenyt Syyriaan ja Irakiin noin 80 jihadistia. Kuva: Yle Uutisgrafiikka
+
+Jihadistinen toiminta on vilkastunut Suomessa. Suomesta on esimerkiksi lähtenyt Syyriaan ja Irakiin noin 80 jihadistia. Heistä 20 on naisia. Syyriaan lähteneistä naisista suurin osa on somaleja tai suomalaisia, jotka ovat kääntyneet muslimeiksi. Jihadismilla tarkoitetaan islamistista liikettä, joka vastustaa yhteiskuntajärjestystä ja tekee terrori-iskuja. Suomessa jihadismia on sisäministeriön mukaan tosi vähän.
+
+## Työkyvyttömyyseläkkeelle jäi yhä useampi
+
+![yksinäinen mies penkillä, taustalla luistelijoita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10627627)
+
+Avaa kuvien katselu
+
+Mielenterveysongelmien kasvu näkyy myös työttömyyseläkkeelle jäämisissä. Kuva: AOP
+
+Työkyvyttömyyseläkkeelle jääminen lisääntyy. Työkyvyttömyyseläkkeelle jäi viime vuonna 7 prosenttia enemmän ihmisiä, kuin edellisenä vuonna. Työttömyyseläkkeelle jäätiin aiempaa enemmän mielenterveysongelmien takia. Myös sairauspoissaolot ovat lisääntyneet mielenterveysongelmien takia.
+
+## Maksuhäiriöt lisääntyivät
+
+![luottokorttia leikataan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10011120)
+
+Avaa kuvien katselu
+
+Maksuhäiriömerkintä voi estää saamasta luottokorttia tai lainaa. Kuva: AOP
+
+Maksuhäiriöiden määrä kasvaa. Maksuhäiriö on yli 8 prosentilla suomalaisista. Määrä on kasvanut viime vuodesta. Suomessa on yli 380 000 ihmistä, joilla on maksuhäiriömerkintä. Maksuhäiriömerkintä tulee, jos ei maksa laskuja.
+
+## Onnettomuuskoneen lentäjät noudattivat ohjeita
+
+![Pelastustyöntekijöitä Ethiopia Airlinesin koneen maahansyöksypaikalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10712646)
+
+Avaa kuvien katselu
+
+Boeing 737 MAX lentokone putosi Etiopiassa maaliskuussa. Kuva: EPA
+
+Etiopian lento-onnettomuuden tutkimukset jatkuvat. Etiopian viranomaiset sanovat, että onnettomuuskoneen ohjaajat toimivat ohjeiden mukaan, mutta he eivät saaneet konetta hallintaan.
+
+Viranomaiset sanovat, että koneesta ei ole löydetty teknisiä vikoja. 157 ihmistä kuoli, kun Boeing 737 MAX lentokone putosi Etiopiassa maaliskuussa.
+
+## Kesänopeusrajoitukset teille
+
+![Tielaitoksen työntekijä vaihtoi talvinopeusrajoituksen kesänopeusrajoitukseksi Lahdentiellä. Arkistokuva.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9549607)
+
+Avaa kuvien katselu
+
+Monilla moottoriteillä saa kesällä ajaa 120 km/h. Maanteillä korkein nopeusrajoitus on kesällä 100 km/h. Kuva: Jussi Nukari / Lehtikuva
+
+Kesänopeusrajoitukset tulevat käyttöön maanteillä ja moottoriteillä ensi viikolla. Kesällä monilla teillä saa ajaa kovempaa, kuin talvella. Joillakin teillä voi olla kuoppia tai asfaltti voi olla rikki talven jälkeen. Jos tie on huonossa kunnossa, kesänopeusrajoitusta ei vaihdeta tielle.
+
+## Vaalikeskustelua selkokielellä
+
+![Puolueiden edustajia vaalikeskustelussa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10723117)
+
+Avaa kuvien katselu
+
+Studioyleisö näyttää, jos keskustelu on vaikeaa ymmärtää. Kuva: Kaisa-Maaria Hilden / Yle
+
+Tänään on julkaistu Ylen ensimmäinen selkokielinen vaalikeskustelu. Siinä poliitikot yrittävät puhua niin, että kaikki ymmärtävät. Mukana on poliitikkoja 9 puolueesta.
+
+Keskustelussa puhutaan asioista, jotka kiinnostavat selkokielen käyttäjiä. Studioyleisö näyttää poliitikoille, onko puhe helppoa vai vaikeaa. Selkokielisen vaalikeskustelun voi katsoa Yle Areenassa.

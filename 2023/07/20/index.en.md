@@ -1,0 +1,83 @@
+# Radio Clear News Thursday 20.7.2023
+
+The Swedish embassy in Baghdad. Shooting in Auckland. Films. Strawberries. Hannu Hautala. Weather.
+
+## The Swedish embassy in Baghdad
+
+![Map of the Swedish embassy in Baghdad, Iraq.](https://img.img-cdn.yle.fi/crop_extract,w_1400,h_782,x_0,y_43/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114504064b8d9265ed81/1689835895)
+
+Open image viewer
+
+Map of the Swedish embassy in Baghdad, Iraq. Photo: Harri Vähäkangas / Yle, MapCreator, OpenStreetMap
+
+In the night, hundreds of people went to the Swedish embassy in Baghdad, the capital of Iraq. Protesters set the building on fire. No employee of the embassy was injured.
+
+Earlier, the Swedish police decided that a protester may burn the Quran in Stockholm. In Iraq people became angry about this decision. In the end the protester did not burn the Quran in Stockholm.
+
+Later Iraq announced that it will expel the Swedish ambassador from Baghdad.
+
+## Shooting in Auckland
+
+![Police stand guard on a street in Auckland. ](https://img.img-cdn.yle.fi/crop_extract,w_5218,h_2921,x_0,y_108/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114500564b89e3d95556/1689820820)
+
+Open image viewer
+
+A man shot 2 people dead in Auckland near a football stadium. Photo: EPA-EFE
+
+There was a serious incident in New Zealand before the start of the football World Cup.
+
+A man shot 2 people dead in Auckland near a football stadium. The shooter also died. At least 6 people were injured.
+
+The women's football World Cup started on Thursday in New Zealand and Australia. The tournament lasts a month. 32 countries are taking part. Finland is not playing in the football World Cup.
+
+## Films
+
+![In Inari, the Constellation TV series, starring well-known international actors, is currently being filmed.](https://img.img-cdn.yle.fi/crop_extract,w_1995,h_1122,x_0,y_168/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-106756263db9d65e0a70/1694855094)
+
+Open image viewer
+
+Apple's Constellation series is the biggest production whose parts have been filmed in Finland. Photo: Theresa Clamann / Turbine Studios
+
+More foreign films and TV series are being filmed in Finland than before.
+
+Last year, 3 foreign films or TV series were filmed in different parts of Finland. This year at least 5 foreign productions will be filmed in Finland.
+
+Foreign companies want to film, for example, in Lapland, Tampere and in the Finnish archipelago. However, by far the most films and series are filmed in Helsinki.
+
+## Strawberries
+
+![Three strawberries waiting to be picked. ](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114443664b6c6bb4defd/1689701750)
+
+Open image viewer
+
+Strawberries from the Syrjälä strawberry farm. Photo: Dani Branthin / Yle
+
+The strawberry harvest is poor at some strawberry farms. Strawberry growers say that especially in Southern Finland there are only few strawberries.
+
+The weather has been bad for strawberries. During early summer it was often cold at night. In addition, at times it has rained too much, and in some places it has rained too little.
+
+## Hannu Hautala
+
+![Hannu Hautala.](https://img.img-cdn.yle.fi/crop_extract,w_4817,h_2709,x_0,y_1667/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114507164b8e349a4c2c/1689838557)
+
+Open image viewer
+
+Hannu Hautala. Photo: Juha Metso / AOP
+
+The Finnish photographer Hannu Hautala has died. He was 82 years old.
+
+Hannu Hautala photographed nature a lot. He is known especially for photos with birds in them.
+
+Hannu Hautala published more than 60 books.
+
+## Weather
+
+![Raindrops form rings on the surface of a puddle.](https://img.img-cdn.yle.fi/crop_extract,w_3208,h_1803,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-114059464ac4f6694bbd/1689015119)
+
+Open image viewer
+
+The weather is rainy. Illustrative image. Photo: Joel Peltonen / Yle
+
+The weather on Friday is rainy. It rains over large areas in Lapland and in Eastern Finland. Also in the southern and middle parts of the country there are showers.
+
+On Friday in the daytime the temperature is mostly between 16 and 22 degrees.

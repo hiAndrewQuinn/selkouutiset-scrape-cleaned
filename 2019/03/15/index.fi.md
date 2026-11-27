@@ -1,0 +1,69 @@
+# Perjantai 15.3.2019 (radio)
+
+Uudessa-Seelannissa on tehty terrori-isku moskeijoita vastaan. Koululaiset ovat osoittaneet mieltä ilmastonmuutosta vastaan. Alle 18-vuotiaat eivät saa mennä naimisiin enää edes poikkeusluvalla. Sää on etelässä kostea, Pohjois-Lapissa aurinkoinen.
+
+## Terrori-isku Uudessa-Seelannissa
+
+![Kartta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10690037)
+
+Avaa kuvien katselu
+
+Kuva: Yle Uutisgrafiikka
+
+Uudessa-Seelannissa on tehty terrori-isku. Iskussa kuoli 49 ihmistä. Heidät ammuttiin.
+
+Iskun kohteena oli 2 moskeijaa. Moskeijat ovat Christchurchin kaupungissa.
+
+Iskun päätekijä on 28-vuotias australialainen mies. Australia on Uuden-Seelannin naapurimaa.
+
+Mies kirjoitti asiasta internetin keskustelupalstalla ennen iskua. Mies kirjoitti, että hän on valkoinen ja rasisti. Hän halusi kostaa terrori-iskut, joita islamistit ovat tehneet Euroopassa.
+
+Uuden-Seelannin pääministeri sanoo, että perjantai oli paha päivä Uuden-Seelannin historiassa.
+
+## Koululaiset ilmastonmuutosta vastaan
+
+![Tampereen mielenilmaus ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10690514)
+
+Avaa kuvien katselu
+
+Koululaiset osoittivat mieltä myös Tampereella. Kuva: Marko Melto / Yle 
+
+Koululaiset ovat osoittaneet mieltä ilmastonmuutosta vastaan.
+
+Koululaiset olivat poissa koulusta ja marssivat ilmastonmuutosta vastaan eri puolilla Suomea. Esimerkiksi Helsingin mielenosoituksessa oli mukana yli 3000 koululaista.
+
+Koululaisten mielenosoituksia on ollut monissa maissa. Nuoret ovat sitä mieltä, että aikuiset pilaavat nuorten tulevaisuuden. Aikuiset eivät tee mitään, vaikka ilmasto lämpenee niin paljon, että ihmisten elämästä tulee vaikeaa.
+
+Koululaisten sankari on 16-vuotias ruotsalainen Greta Thunberg. Hän aloitti mielenosoitukset Ruotsin parlamenttitalon edessä viime vuonna. Nyt Thunbergille ehdotetaan Nobelin rauhanpalkintoa.
+
+## Avioliittolaki
+
+![hääpari](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10507593)
+
+Avaa kuvien katselu
+
+Alle 18-vuotiaiden avioliitot kielletään. Kuva: AOP
+
+Avioliittolaki muuttuu.
+
+Alle 18-vuotiaiden avioliitot kielletään kokonaan. Alle 18-vuotiaat eivät saa mennä naimisiin edes poikkeusluvalla.
+
+Tähän asti alle 18-vuotias on voinut saada poikkeusluvan avioliitolle. Poikkeusluvan on antanut oikeusministeriö.
+
+Poikkeuslupia on annettu viime vuosina vähän. Esimerkiksi vuonna 2017 oikeusministeriö antoi luvan 7:lle alaikäisten avioliitolle. Tavallisesti hakijat ovat olleet 17-vuotiaita tyttöjä.
+
+Avioliittolain muutos tulee voimaan kesäkuun alussa.
+
+## Sää
+
+![Autoja maantiellä lumisateessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10566944)
+
+Avaa kuvien katselu
+
+Räntäsade voi häiritä liikennettä viikonloppuna. Kuva: Esko Jämsä / AOP
+
+Säätietoja:
+
+Etelästä tulee Suomeen kosteaa ilmaa. Lauantaina voi sataa vettä, räntää tai lunta. Pohjois-Lapissa on aurinkoista.
+
+Lämpötila on päivällä 0 - 3 astetta, Pohjois-Lapissa on heikkoa pakkasta. Ajokeli on lumi- ja räntäsateiden takia paikoin huono.

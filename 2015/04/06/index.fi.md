@@ -1,0 +1,63 @@
+# Maanantai 6.4.2015
+
+Kreikka maksaa velkansa Kansainväliselle valuuttarahastolle. Kenia on pommittanut al-Sabaabin leirejä. Leipomossa Lappeenrannassa oli vaarallinen ammoniakkivuoto. Maahanmuuttajat sanovat, että heiltä kysytään politiikasta vain vaalien alla.
+
+## Kreikka aikoo maksaa velkansa valuuttarahastolle
+
+![Christine Lagarde.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7216725)
+
+Avaa kuvien katselu
+
+Kansaninvälisen valuuttarahaston IMF:N pääjohtaja Christine Lagarde. Kuva: Michael Reynolds / EPA
+
+Kreikka on luvannut, että se maksaa velkansa Kansainväliselle valuuttarahastolle IMF:lle. Kreikka maksaa velan torstaihin mennessä.
+
+Valuuttarahaston johtaja Christine Lagarde vahvisti asian. Lagarde tapasi Kreikan valtiovarainministerin Washingtonissa.
+
+Summa, joka erääntyy, on ehkä 460 miljoonaa euroa. Se on vain pieni osa Kreikan ulkomaista lainoista. Kreikka on ollut pahoissa talousvaikeuksissa monta vuotta. Se tarvitsee vielä lisää rahaa, ennen kuin se saa taloutensa kuntoon.
+
+## Kenia on pommittanut al-Sabaabin leirejä Somaliassa
+
+![Luodinreikiä Garissan yliopiston seinässä. Kenia 3. huhtikuuta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7910381)
+
+Avaa kuvien katselu
+
+Luodinreikiä al-Shabaabin hyökkäyksen jälkeen Garissan yliopiston seinässä. Kuva: Daniel Irungu / EPA
+
+Kenian ilmavoimat on pommittanut terroristiryhmä al-Shabaabin leirejä Somaliassa. Iskujen kuolonuhreista ei maanantai-iltana ollut tietoa.
+
+Leireillä on ehkä ollut Kenian yliopistoiskun tekijöitä.
+
+Garissan yliopiston iskussa viime viikolla kuoli 148 ihmistä. Suurin osa oli kristittyjä opiskelijoita. Ääri-islamilainen Al-Shabaab sanoo, että se teki iskun.
+
+Al-Shabaab on surmannut huhtikuun 2013 jälkeen noin 400 ihmistä.
+
+## Leipomossa Lappeenrannassa oli vaarallinen ammoniakkivuoto
+
+![Kartta.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7911306)
+
+Avaa kuvien katselu
+
+Lappeenrannassa sijaitsevan Fazerin leipomon ympäristöön ei päässyt paljon ammoniakkia. Ympäristö kuitenkin eristettiin, eikä vaaraa ollut.  Kuva: Yle Uutisgrafiikka
+
+Leipomossa Lappeenrannassa Itä-Suomessa sattui myöhään sunnuntai-iltana ammoniakkivuoto.
+
+Kymmenen (10) Fazerin leipomon työntekijää vietiin sairaalaan hengitysoireiden takia. He saivat oireita ammoniakin höyrystä mutta eivät loukkaantuneet.
+
+Vuodon syytä tutkitaan. Ammoniakkia käytetään teollisuudessa kylmälaitteissa kuten jääkaapeissa ja pakastimissa.
+
+## Maahanmuuttajilta kysytään  kysytään politiikasta vain vaalien alla
+
+![Venäjänkielisen Spektr-lehden päätoimittaja Eilina Gusatinsky.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7908902)
+
+Avaa kuvien katselu
+
+Venäjänkielisen Spektr-lehden päätoimittaja Eilina Gusatinsky toivoo, että maahanmuuttajat jaksavat uskoa siihen, että myös he voivat vaikuttaa Suomen yhteiskuntaan. Kuva: Yle
+
+Maahanmuuttajat sanovat, että heiltä kysytään harvoin mielipidettä Suomen politiikasta. He sanovat, että media kysyy asiasta vain vaalien alla.
+
+Yle haastatteli joitakin maahanmuuttajia. He sanovat, että he haluavat vaikuttaa yhteiskuntaan aivan samalla tavoin kuin kantasuomalaiset.
+
+Esimerkiksi venäjänkielisen Spektr-lehden päätoimittaja Eilina Gusatinsky sanoo, että maahanmuuttajia pidetään ulkopuolisina. Gusatinsky sanoo, että ehkä siksi eduskuntavaalien ehdokkaina on vähemmän maahanmuuttajia kuin ennen.
+
+Uudet Suomen kansalaiset ovat suuri äänestäjäkunta. Vuoden 2011 eduskuntavaalien jälkeen Suomen kansalaisuuden on saanut ehkä 21 000 ihmistä.

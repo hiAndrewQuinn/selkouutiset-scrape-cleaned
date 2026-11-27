@@ -1,0 +1,69 @@
+# Lauantai 28.1.2017 (radio)
+
+Monen muslimimaan kansalaiset eivät saa matkustaa USA:han. Suomalainen tenniksen pelaaja Henri Kontinen on voittanut tärkeän pelin Australiassa. Pohjois-Amerikan jääkiekkoliigan NHL:n historian 100 parhaimman pelaajan joukossa on myös 2 suomalaista. Muumit eivät muuta Naantalista Helsinkiin.
+
+## 
+
+## Trump sulkee USA:n muslimeilta
+
+![Donald Trump.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9429886)
+
+Avaa kuvien katselu
+
+Presidentti Donald Trump. Kuva: Olivier Douliery / EPA
+
+USA:n presidentti Donald Trump ei halua, että muslimimaista tulee ihmisiä USA:han.
+
+Presidentti on määrännyt, että USA ei toistaiseksi ota vastaan syyrialaisia pakolaisia.
+
+Myöskään 6 muun muslimimaan kansalaiset eivät saa matkustaa USA:han. Maat ovat Iran, Irak, Libya, Somalia, Sudan ja Jemen. Kielto kestää 3 kuukautta.
+
+Jo lauantaina oli paljon matkustajia, jotka eivät päässeet USA:han kiellon takia.
+
+Presidentti Trump sanoo, että kielto on tärkeä USA:n turvallisuudelle. Trump ei halua islamistiterroristeja USA:han.
+
+## Tennispelaaja Kontinen menestyy
+
+![Peers, Kontinen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9429740)
+
+Avaa kuvien katselu
+
+Henri Kontinen ja John Peers tenniskentällä Australiassa. Kuva: EPA
+
+Suomalainen tenniksen pelaaja Henri Kontinen on voittanut tärkeän pelin.
+
+Kontinen voitti yhdessä australialaisen John Peersin kanssa Australian tenniskilpailujen nelinpelin. Nelinpelissä 2 paria pelaa toisiaan vastaan.
+
+Kontinen ja Peers kilpailivat amerikkalaisia Bob ja Mike Bryania vastaan. Bryanit ovat veljeksiä. He ovat aikaisemmin voittaneet monia tenniskilpailuja.
+
+Henri Kontinen on ensimmäinen suomalainen, joka voittaa Grand Slam -turnauksen nelinpelin. Grand Slam -turnauksia ovat maailman 4 tärkeintä tenniskilpailua. Yksi niistä on Australian avoin tennisturnaus.
+
+## Kurri ja Selänne saivat kunniaa
+
+![Jari Kurri Teemu Selänne](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9429365)
+
+Avaa kuvien katselu
+
+Jari Kurri ja Teemu Selänne. Kuva: AOP
+
+Pohjois-Amerikan jääkiekkoliiga NHL täyttää 100 vuotta. NHL perustettiin vuonna 1917.
+
+Juhlavuoden takia NHL on julkaissut listan parhaista pelaajista. Listalla on NHL:n 100 parasta pelaajaa viimeisen 100 vuoden ajalta.
+
+Listalla on myös 2 suomalaista jääkiekon pelaajaa. He ovat Jari Kurri ja Teemu Selänne. Kurri pelasi NHL:ssä vuoteen 1998 asti. Selänteen NHL-pelit jatkuivat vuoteen 2014 asti.
+
+## Muumit pysyvät Naantalissa
+
+![Muumimaailmassa 2015](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8320994)
+
+Avaa kuvien katselu
+
+Naantalin Muumimaailma. Kuva: Minna Rosvall / Yle
+
+Vielä uutinen muumeista. Muumit eivät muuta Naantalista Helsinkiin.
+
+Helsingissä on toivottu muumeja pääkaupunkiin. Muumimaailman johtaja Tomi Lohikoski kuitenkin sanoo, että Muumimaailma pysyy Naantalissa.
+
+Naantalissa muumipuisto on keskellä kaunista luontoa, niin kuin Tove Jansson halusi. Jansson kirjoitti muumikirjat.
+
+Johtaja Lohikoski sanoo myös, että Suomessa ei tarvita toista muumipuistoa. Naantali on vain 180 kilometrin päässä Helsingistä. Se on lyhyt matka esimerkiksi japanilaisille turisteille, jotka tykkäävät käydä Muumimaailmassa.

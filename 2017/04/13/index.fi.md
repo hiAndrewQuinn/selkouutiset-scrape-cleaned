@@ -1,0 +1,73 @@
+# Torstai 13.4.2017 (radio)
+
+Pohjois-Korean ydinkoe. Saksan terrori-iskun tutkinta. Kerrostalojen remonttilainat. Niinistön suosio. Tupakan myyntipaikat.
+
+## Pohjois-Korean ydinkoetta jännitetään
+
+![Pohjois-Korean johtaja Kim Jong-un osallistui pilvenpiirtäjärykelmän avajaisjuhlaan Pjongjanissa. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9565434)
+
+Avaa kuvien katselu
+
+Pohjois-Korean johtaja Kim Jong-un vihki torstaina uusia pilvenpiirtäjiä Pjongyangissa.  Kuva: Mika Mäkeläinen / Yle 
+
+Maailmalla jännitetään, tekeekö Pohjois-Korea lauantaina ydinkokeen. Epäillään, että Pohjois-Korea voi tehdä ydinkokeen, kun se juhlii maan perustajan Kim Il-Sungin syntymäpäivää.
+
+USA on lähettänyt lähelle Pohjois-Koreaa sotalaivoja. Maiden suhteet ovat erittäin kireät.
+
+Ylen kirjeenvaihtaja on Pohjois-Koreassa. Ihmiset ovat sanoneet hänelle, että he uskovat USA:n aikomukseen hyökätä. He eivät ole kuitenkaan huolestuneita, koska Pohjois-Korealla on ydinaseita.
+
+## Saksassa jatkuvat terrori-iskun tutkimukset
+
+![Borussia Dortmundin joukkuetta kuljettaneen bussin lähellä räjähti tiistai-iltana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9562442)
+
+Avaa kuvien katselu
+
+Jalkapallojoukkueen bussi vahingoittui pommeista.  Kuva: AOP
+
+Saksan poliisi selvittää edelleen Dortmundin pommi-iskua. Iskussa räjähti kolme pommia jalkapallojoukkue Borussia Dortmundin linja-auton lähellä tiistaina.
+
+Iskussa loukkaantui yksi joukkueen pelaaja ja yksi poliisi. Poliisi ei vielä tiedä, kuka pommit asetti.
+
+Pommien paikalta löytyi 3 kirjettä, joissa kirjoitetaan islamistien vaatimuksista. Ei ole kuitenkaan varmaa, onko iskun tekijä esimerkiksi Isis-järjestö.
+
+## Vanhoilla kerrostaloilla lainavaikeuksia
+
+![Putkiremonttia odottava kerrostalo Lahdessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9563220)
+
+Avaa kuvien katselu
+
+Suomessa moni kerrostalo voi jäädä ilman remonttilainaa, koska pankin mielestä talo ei ole tarpeeksi arvokas.  Kuva: Yle
+
+Moni vanha kerrostalo voi joutua lainavaikeuksiin, kun taloon täytyy tehdä suuri remontti eli korjaus. Pankki voi sanoa, että se ei anna talolle remonttilainaa, koska kerrostalo ei ole tarpeeksi arvokas.
+
+Vanhoissa taloissa esimerkiksi vesijohtoputkien korjaus tai vaihto on tosi kallista. Arvioidaan, että Suomessa on jopa 200 000 asuntoa, joille voi tulla lainavaikeuksia remontin kanssa.
+
+Tällaisia kerrostaloja on joka puolella Suomea. Jos talo on rakennettu esimerkiksi 1970-luvulla, se voi tarvita kohta suuren remontin.
+
+## Niinistöllä kova suosio presidenttigallupissa
+
+![Presidentti Niinistö puhui torstaina tiedotustilaisuudessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9550027)
+
+Avaa kuvien katselu
+
+Presidentti Sauli Niinistö on erittäin suosittu.  Kuva: Yle
+
+Presidentti Sauli Niinistö on selvä suosikki uudessa presidenttigallupissa. Kokoomuksen Verkkouutiset on tehnyt kyselyn presidenttiehdokkaista.
+
+Kyselyssä Sauli Niinistö saa niin vahvan kannatuksen, että hän voi päästä toiselle kaudelle jo presidentinvaalin ensimmäisellä äänestyskierroksella.
+
+Niinistön kannatus oli kyselyssä 66 prosenttia. Pekka Haavisto oli toinen. Hänen kannatuksensa oli 19 prosenttia.
+
+## Tupakan myynti ei enää aina kannata
+
+![Tupakka-automaatti kaupan kassalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9562160)
+
+Avaa kuvien katselu
+
+Tupakkaa ei voi ostaa enää yhtä helposti kuin viime vuonna.  Kuva: Kimmo Hiltunen / Yle 
+
+Tupakan myyntipaikat vähentyvät Suomessa. Myyntipaikat vähentyvät, koska tupakan myyjän täytyy maksaa kunnalle monen sadan euron maksu.
+
+Esimerkiksi moni ravintola sanoo, että maksun takia tupakan myynti ei enää kannata. Maksu nousi, kun uusi tupakkalaki tuli voimaan.
+
+Uuden lain tavoite on, että tupakointi loppuu Suomessa ensi vuosikymmenen lopussa.

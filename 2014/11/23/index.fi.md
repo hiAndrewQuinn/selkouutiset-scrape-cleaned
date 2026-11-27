@@ -1,0 +1,59 @@
+# Sunnuntai 23.11.2014
+
+Kuopiossa tapahtui perhesurma. Sisäministeri Päivi Räsänen on järkyttynyt perhesurman vuoksi. Vladimir Putin pyrkii ehkä Venäjän presidentiksi neljännen kerran. Joulupukki avasi joulukadun Helsingissä.
+
+## Kuopiossa tapahtui perhesurma
+
+![Kuopion Maljalahdessa sijaitsevan kerrostalon asunnosta löytyi kaksi lasta kuolleena lauantai-iltana.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7646234)
+
+Avaa kuvien katselu
+
+Kuopiolaiset toivat kynttilöitä sen talon eteen, jossa perhesurma tapahtui. Kuva: Toni Pitkänen / Yle
+
+Itä-Suomessa Kuopiossa on tapahtunut perhesurma. Poliisi epäilee, että äiti on tappanut kaksi (2) lasta. Toinen lapsi oli kaksi (2) vuotta vanha ja toinen yksi (1) kuukautta vanha.
+
+Poliisi sai hälytyksen lauantaina illalla. Perheen äiti teki hälytyksen itse. Lapset löytyivät, kun poliisi meni kotiin, josta hälytys tuli.
+
+Lastensuojelun työntekijät yrittivät aiemmin auttaa perhettä, jossa surma tapahtui. Lastensuojelun työntekijät auttavat sellaisia perheitä, joissa on ongelmia.
+
+Surma on järkyttänyt suomalaisia, koska Suomessa tapahtui perhesurma viimeksi kuukausi sitten. Kuopiossa kirkko on ollut surman vuoksi auki iltaan asti. 
+
+## Sisäministeri Päivi Räsänen on järkyttynyt perhesurman vuoksi
+
+![Päivi Räsänen](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7421236)
+
+Avaa kuvien katselu
+
+Sisäministeri Päivi Räsänen Kuva: Jussi Nukari / Lehtikuva
+
+Sisäministeri Päivi Räsänen on järkyttynyt Kuopion perhesurman takia. Räsänen sanoo, että Suomen lastensuojelussa ei ehkä ole tarpeeksi työntekijöitä. Lastensuojelun työ on siksi tosi vaikeaa.
+
+Ministeri Räsänen sanoo kuitenkin, että lasten elämä on Suomessa nykyään turvallisempaa kuin ennen. Esimerkiksi 1960-luvulla perhesurmia oli kaksi kertaa enemmän kuin nykyään.
+
+## Vladimir Putin pyrkii ehkä Venäjän presidentiksi neljännen kerran
+
+![Vladimir Putin](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7523638)
+
+Avaa kuvien katselu
+
+Vladimir Putin sanoo, että hän ei ole Venäjän presidentti ikuisesti. Kuva: Alexey Nikolsky / Ria Novosti / Kremlin / EPA
+
+Venäjän presidentti Vladimir Putin pyrkii ehkä presidentiksi vuonna 2018. Jos Putin valitaan, hän on presidentti vuoteen 2024 saakka.
+
+Putin sanoo, että hän ehkä pyrkii presidentiksi, mutta se ei ole vielä varmaa. Hän katsoo esimerkiksi maailman tilannetta ja omia tunteitaan. Putin sanoo kuitenkin, että hän ei aio olla presidentti ikuisesti.
+
+Venäjän laki sanoo, että Putin voi olla presidentti vielä yhden kerran. 
+
+## Joulupukki avasi joulukadun Helsingissä
+
+![Joulupukki vilkuttaa Helsingin Senaatintorilla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7646577)
+
+Avaa kuvien katselu
+
+Joulupukki avasi sunnuntaina Helsingin joulukadun. Kuvassa pukki on Senaatintorilla, jossa juhlittiin joulukadun avaamista. Joulupukki asuu Suomen Lapissa Korvatunturilla. Kuva: Antti Aimo-Koivisto / Lehtikuva 
+
+Helsingissä avattiin sunnuntaina joulukatu. Joulukadun avasivat Helsingin ylipormestari Jussi Pajunen ja joulupukki.
+
+Jouluvaloja on ripustettu Aleksanterinkadulle yli viikon ajan. Jouluvalot ovat muutaman vuoden ajan olleet led-valoja, koska ne säästävät energiaa.
+
+Ensimmäisen kerran joulukatu tehtiin Helsingin Aleksanterinkadulle vuonna 1949. Helsingin historiassa Aleksanterinkatu on ollut Helsingin tärkein katu.

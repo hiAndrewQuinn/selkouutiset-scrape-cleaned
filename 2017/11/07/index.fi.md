@@ -1,0 +1,81 @@
+# Tiistai 7.11.2017 (radio)
+
+Suomi on kutsunut USA:n sotaharjoitukseen Suomeen. Lappeenrannassa kehitetään nyt uudenlaista betonia, jossa ei ole sementtiä. Dopingaineet voivat vaikuttaa myös ihmisen mieleen. Saara Aalto edustaa Suomea Euroviisuissa.
+
+## Suomi suunnittelee sotaharjoitusta
+
+![Puolustusministeri Jussi Niinistö puhuu lehdistölle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9920453)
+
+Avaa kuvien katselu
+
+Suomen puolustusministeri Jussi Niinistö. Kuva: Markku Ulander / Lehtikuva
+
+Suomi on kutsunut USA:n sotaharjoitukseen Suomeen.
+
+Suomen puolustusministeri Jussi Niinistö esitti kutsun USA:n puolustusministerille James Mattisille. Mattis on ollut vierailulla Suomessa.
+
+Ministeri Niinistö on kertonut sotaharjoituksesta myös monelle muulle maalle. Suomessa on ollut Pohjois-Euroopan puolustusministerien tapaaminen.
+
+Suomi aikoo järjestää ison sotaharjoituksen vuonna 2020 tai 2021.
+
+## Sementille etsitään vaihtoehtoja
+
+![Valu käynnissä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7684019)
+
+Avaa kuvien katselu
+
+Sementti on tärkeä osa betonia. Kuva: Tommi Parkkinen/Yle
+
+Rakennustyömailla käytetään paljon sementtiä. Sementti on osa betonia.
+
+Sementti on kuitenkin ympäristölle huono asia. Kun sementtiä valmistetaan, ilmaan pääsee hiilidioksidia, ja hiilidioksidi lämmittää ilmastoa.
+
+Lappeenrannassa kehitetään nyt uudenlaista betonia, jossa ei ole sementtiä. Uudenlainen betoni on tehty teollisuuden jäteaineista.
+
+Betoni voidaan korvata rakentamisessa myös puulla. Puukerrostaloja on kuitenkin rakennettu vasta vähän.
+
+## Dopingaineet vaikuttavat mieleen
+
+![Bodari nostelee käsipainoja.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7040056)
+
+Avaa kuvien katselu
+
+Dopingaineet kasvattavat lihaksia ja sekoittavat pään. Kuva: Bilawal Arbab / EPA
+
+Monet kuntoilijat käyttävät dopingaineita, kun he haluavat isommat lihakset. Dopingaineet voivat kuitenkin vaikuttaa myös ihmisen mieleen.
+
+Nuoria miehiä on joutunut jopa psykiatriseen sairaalaan dopingaineiden takia. Usein he ovat käyttäneet dopingaineita yhtä aikaa päihdeaineiden kanssa. Joskus potilaat eivät parane kokonaan edes sairaalassa.
+
+Vahvat ja aggressiiviset potilaat ovat hankalia hoitajille. Joskus hoitajat tarvitsevat jopa poliisin apua.
+
+## Saara Aalto lähtee Euroviisuihin
+
+![Saara Aalto](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9919881)
+
+Avaa kuvien katselu
+
+Saara Aalto on suosittu laulaja. Kuva: Yle
+
+Saara Aalto on kutsuttu edustamaan Suomea Euroviisujen laulukilpailussa. Suomen edustaja valittiin nyt ensimmäistä kertaa ilman kilpailua.
+
+Saara Aallolle tehdään Euroviisuja varten 3 uutta laulua. Saara Aalto esittää ne Espoon areenassa maaliskuussa, ja yksi lauluista valitaan Euroviisuihin.
+
+Euroviisut järjestetään toukokuussa Portugalissa. Portugali on kilpailun järjestäjä, koska se voitti edelliset Euroviisut.
+
+Saara Aalto tunnetaan Britannian X Factor -laulukilpailusta. Aalto tuli kilpailussa viime vuonna toiseksi.
+
+## Terveisiä Wroclawista
+
+![SUOMIKOULUT Puola Wroclav.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9919608)
+
+Avaa kuvien katselu
+
+Wroclawin Suomi-koulun oppilaita. Kuva: Yle
+
+Suomi-koulujen tervehdykset Suomelle jatkuvat.
+
+Uusimmat terveiset ja onnittelut 100-vuotiaalle Suomelle tulevat Puolasta, Wroclawin Suomi-koulusta.
+
+Wroclawin Suomi-koulun video löytyy osoitteesta yle.fi/selkouutiset, sivulta Suomi 100.
+
+**Wroclawin Suomi-koulun terveiset**

@@ -1,0 +1,83 @@
+# Radio Selkouutiset lauantai 1.7.2023
+
+Opposition kritiikki. Pride-kulkue. Kenian liikenneonnettomuus. Ranskan mielenosoitukset. Suviseurat. Sää.
+
+## Opposition kritiikki
+
+![Vilhelm Junnila puhuu puhujan korokkeella. Toisella puolella jokea Junnilan taustalla on mustiin vaatteisiin pukeutuneiden ihmisten rivi.](https://img.img-cdn.yle.fi/crop_extract,w_5119,h_2879,x_1,y_323/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1135364649bc4ef459b4/1688028318)
+
+Avaa kuvien katselu
+
+Vilhelm Junnilan puheissa on ollut sanoja, joita myös natsit käyttävät. Kuva: Roni Lehti / Lehtikuva
+
+Oppositiopuolueet kritisoivat hallitusta ministeri Vilhelm Junnilan tapauksessa. Oppositiopuolueet eivät ole mukana hallituksessa.
+
+Hallitus ei vaatinut Junnilaa eroamaan, vaikka Junnilan puheissa on ollut natsien sanoja. Siksi hallitus toimi opposition mielestä väärin.
+
+Perussuomalaisten Junnila päätti itse erota elinkeinoministerin tehtävästä perjantaina.
+
+## Pride-kulkue
+
+![Helsinki Pride -kulkue Senaatintorilla.](https://img.img-cdn.yle.fi/crop_extract,w_3464,h_1948,x_0,y_360/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113718264a024363860a/1719193489)
+
+Avaa kuvien katselu
+
+Pride-kulkueessa oli noin 100 000 ihmistä. Kuva: Benjamin Suomela / Yle
+
+Helsingissä on järjestetty Pride-kulkue. Ihmiset kulkivat Senaatintorilta Kaivopuistoon, jossa järjestettiin puistojuhla.
+
+Pride-kulkue on Helsinki Pride -viikon päätapahtuma. Tänä vuonna tapahtumaan osallistui jopa 100 000 ihmistä.
+
+Helsinki Pride on suuri ihmisoikeustapahtuma. Sen teemana ovat seksuaalivähemmistöjen ja sukupuolivähemmistöjen oikeudet.
+
+Pride-kulkue muistuttaa, että kaikilla on oikeus olla oma itsensä. Vielä noin 50 vuotta sitten homoseksuaaliset teot olivat Suomessa rikos.
+
+## Kenian onnettomuus
+
+Afrikan Keniassa on tapahtunut paha liikenneonnettomuus. Yli 50 ihmistä kuoli ja yli 30 ihmistä loukkaantui onnettomuudessa.
+
+Onnettomuus tapahtui Länsi-Keniassa. Kuorma-auto ajoi ulos tieltä ja törmäsi autoihin ja jalankulkijoihin.
+
+## Ranskan mielenosoitukset
+
+![Mielenosoittajia kadulla Ranskan Marseillessa 30. kesäkuuta 2023.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_485/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136871649f183d61936/1688148115)
+
+Avaa kuvien katselu
+
+Mielenosoitukset ovat jatkuneet jo monta yötä. Kuva: Christophe Simon / AFP
+
+Mielenosoitukset ovat jatkuneet Ranskassa. Perjantain ja lauantain välisenä yönä poliisi otti kiinni yli 1300 mielenosoittajaa.
+
+Monet ranskalaiset ovat suuttuneet poliisin väkivallan takia. 17-vuotias poika kuoli tiistaina, kun poliisi ampui hänet liikennevalvonnan aikana.
+
+Poika oli algerialaistaustainen arabi. Hänet haudattiin lauantaina.
+
+## Suviseurat
+
+![Suviseurat Kauhavalla 2023, kuvassa seurakenttää torstai-iltana 29.6.2023.](https://img.img-cdn.yle.fi/crop_extract,w_5565,h_3130,x_0,y_579/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1136800649ed1cc8e61b/1688130051)
+
+Avaa kuvien katselu
+
+Suviseuroihin on tullut 75 000 ihmistä. Kuva: Suviseurat, kuvapalvelu
+
+Kauhavalla järjestetään tänä viikonloppuna Suviseurat. Suviseurat on lestadiolaisten kesäjuhla.
+
+Lestadiolaiset ovat yksi Suomen kirkon herätysliikkeistä. Lestadiolainen herätysliike on vahva erityisesti Pohjois-Suomessa.
+
+Lestadiolaisten mielestä raskauden ehkäisy on väärin. Siksi perheet ovat isoja.
+
+Myös Suviseurat on iso tapahtuma. Tapahtumaan osallistuu noin 75 000 ihmistä.
+
+## Sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-113720064a03cab81d72/1688222932)
+
+Avaa kuvien katselu
+
+Heinäkuu on alkanut sateisessa säässä.
+
+Esimerkiksi Helsingin seudulla satoi lauantaina enemmän kuin koko kesäkuun aikana.
+
+Ylen meteorologi Anne Borgström kertoo, että kesäkuu oli epätavallisen kuiva.
+
+Sateet jatkuvat myös sunnuntaina. Lämpötila on etelässä noin 20 astetta, pohjoisessa on viileämpää.

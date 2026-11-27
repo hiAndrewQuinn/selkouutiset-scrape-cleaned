@@ -1,0 +1,71 @@
+# Keskiviikko 22.11.2017 (radio)
+
+Museovirasto listasi suomalaista kulttuuriperintöä. Stressi painaa lukiolaisia. Lapin meteoriittia etsitään ensi kesänä. Talven pakkasennätys syntyi Utsjoella. Torstaina pyryttää lunta ja tuulee kovaa.
+
+## Museovirasto listasi elävää kulttuuriperintöä
+
+![Kuikan lavalla tanssijoita. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9745698)
+
+Avaa kuvien katselu
+
+Lavatanssit kuluvat suomalaiseen kulttuuriperintöön. Kuva: Matti Myller / Yle
+
+Suomalaisille tärkeää kulttuuriperintöä on nyt listattu. Museovirasto on valinnut listalle 52 asiaa tai tapaa, jotka ovat elävää suomalaista kulttuuriperintöä.
+
+Listalla ovat esimerkiksi lavatanssit ja pesäpallo, suomenpystykorva ja kalakukko, lasten lumileikit ja kynttilän vieminen haudoille jouluaattona. Tietysti listalla ovat mukana myös sauna ja joulupukki.
+
+Luettelon avulla halutaan suojella suomalaista kulttuuriperintöä ja tehdä sitä tutuksi.
+
+Museoviraston luettelo menee vielä kulttuuriministeri Sampo Terhon hyväksyttäväksi.
+
+## Stressi vaivaa lukiolaisia
+
+![Opiskelijat selaavat opintomateriaalia pöydän ääressä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9830861)
+
+Avaa kuvien katselu
+
+Lukiossa opiskelu on kovaa työtä. Kuva: Niko Mannonen / Yle
+
+Lukiolaiset ovat uupuneempia kuin ennen. Opetusministeriön tutkimuksen mukaan lukiolaisten koulu-uupumus on lisääntynyt.
+
+Stressi vaivaa etenkin tyttöjä. Tytöistä 18 prosenttia on voimakkaasti uupuneita.
+
+Pojista voimakkaasti uupuneita on 8 prosenttia. Pojat myös suhtautuvat kielteisesti lukio-opiskeluun.
+
+Tutkimus kertoo, että nykyiset lukiolaiset ovat ensimmäinen sukupolvi, jossa lapsilla on isompi stressi kuin vanhemmilla.
+
+## Lapin meteoriitti putosi erämaahan
+
+![Ursan mallinnos tulipallon reitistä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9942726)
+
+Avaa kuvien katselu
+
+Meteoriitti putosi Koillis-Lappiin lähelle Norjan ja Venäjän rajaa. Kuva: Ursa 
+
+Tähtitieteellinen yhdistys Ursa on selvittänyt Lapin meteoriitin putoamispaikkaa. Ursa sanoo, että meteoriitti putosi todennäköisesti  Vätsärin erämaa-alueelle, lähelle Venäjän ja Norjan rajaa.
+
+Lapin taivaalla nähtiin viime torstaina kirkas valo, joka oli kuin tulipallo. Tulipallon lento kesti noin 10 sekuntia. Lennon aikana nähtiin myös kirkkaita välähdyksiä. Ursa sanoo, että välähdykset johtuivat siitä, kun meteoriitti lohkesi palasiksi.
+
+Ursa uskoo, että maahan päätyi kymmeniä kiloja meteoriitin kappaleita.
+
+Ursa aikoo etsiä pudonneita kappaleita ensi kesänä.
+
+## Talven pakkasennätys meni rikki
+
+Tämän talven pakkasennätys mitattiin viime yönä Utsjoella. Ilmatieteenlaitos mittasi Utsjoen Kevojärvellä 26,5 astetta pakkasta.
+
+## Lumimyräkkä pyyhkii Suomen yli
+
+![Tammikuinen lumipyry Vantaalla 2017.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9400987)
+
+Avaa kuvien katselu
+
+Torstaina ajokeli on huono tai tosi huono melkein koko maassa. Kuva: Markku Ojala / EPA
+
+Myrsky ja lumimyräkkä lähestyvät Suomea.  Lunta sataa torstaina aamusta alkaen.
+
+Ylen meteorologi Marjo Hoikkanen kertoo, että maan etelä- ja keskiosissa voi tulla lunta yli 10 senttimetriä ja pohjoisessa jopa 20 senttimetriä.
+
+Autoilijoiden pitää olla varovaisia, koska ajokeli voi huomenna olla tosi huono melkein koko maassa.
+
+Sää on myös tuulista. Merellä myrskyää ja myös maalla voi olla kovia tuulenpuuskia.

@@ -1,0 +1,81 @@
+# Radio | Selkouutiset | lauantai 21.10.2023
+
+Apua Gazaan. Pikaratikka. Turistikaupunki Helsinki. Euroopan myrsky. Suomen sää.
+
+## Apua Gazaan
+
+![Ensimmäinen avustuskuljetus Gazaan pääsi tänään Rafahin raja-aseman kautta.](https://img.img-cdn.yle.fi/crop_extract,w_6025,h_3389,x_0,y_512/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11895066533b979eeb7b/1697888755)
+
+Avaa kuvien katselu
+
+Avustuskuljetukset Gazaan alkoivat. Kuva: EPA-EFE
+
+Gazaan on viety apua. Noin 20 rekka-autoa vei Gazaan ruokaa, vettä ja lääkkeitä.
+
+Avustusjärjestöt muistuttavat, että apua tarvitaan vielä paljon lisää. Ensimmäisessä avustuskuljetuksessa ei ollut mukana polttoainetta.
+
+Sota on aiheuttanut paljon kärsimystä Gazan asukkaille. Asukkailla on pulaa kaikesta, koska Israel on sulkenut Gazan rajat. Gaza sijaitsee Välimeren rannikolla Israelin ja Egyptin rajalla.
+
+Sota alkoi, kun palestiinalaisten terroristijärjestö Hamas hyökkäsi Gazasta Israeliin 2 viikkoa sitten. Sodassa on kuollut monta tuhatta ihmistä.
+
+## Pikaratikka
+
+![Pikaratikka seisoo Keilaniemen pysäkillä.](https://img.img-cdn.yle.fi/crop_extract,w_2556,h_1437,x_0,y_260/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-117417765099c417cf2a/1695128716)
+
+Avaa kuvien katselu
+
+Pikaratikka aloitti liikenteen lauantaina. Kuva: Ronnie Holmberg / Yle
+
+Uusi pikaratikka on aloittanut liikenteen Helsingin seudulla. Ratikan numero on 15.
+
+Uusi raitiotielinja kulkee Helsingin Itäkeskuksen ja Espoon Keilaniemen välillä. Reitti on 25 kilometriä pitkä.
+
+Pikaratikan nopeus on jopa 70 kilometriä tunnissa. Pikaratikasta on hyvät yhteydet metroon, lähijuniin ja busseihin.
+
+Espoo on Suomen 3. ratikkakaupunki. Ratikkaliikennettä on jo Helsingissä ja Tampereella.
+
+## Turistikaupunki Helsinki
+
+![Ilmakuva jossa Senaatintori ja Valtioneuvoston linna.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1187896652f9293365b4/1716224077)
+
+Avaa kuvien katselu
+
+Helsinkiläiset ovat turisteille ystävällisiä. Kuva: Retu Liikanen / Yle
+
+Helsinki on turistien mielestä ystävällinen kaupunki.
+
+Kansainvälisen matkailualan verkkolehden lukijaäänestyksessä Helsinki oli 4. ystävällisin kaupunki.
+
+Verkkolehden lukijoiden mielestä Helsinkiä ystävällisempiä ovat vain Dublin ja Cork Irlanissa ja Sienna Italiassa.
+
+Helsingin kaupungin matkailupäällikkö Nina Vesterinen sanoo, että turistit tykkäävät tavallisten helsinkiläisten ystävällisyydestä.
+
+Turistit voivat myös luottaa siihen, että Helsingissä on turvallista käyttää palveluja. Myös suomalaisten rehellisyys on yksi osa ystävällisyyttä, Vesterinen sanoo.
+
+Lisäksi monilla helsinkiläisillä on hyvä kielitaito. Usein turisti saa palvelua jopa omalla äidinkielellä.
+
+## Euroopan myrsky
+
+![Myrsky Skotlannissa.](https://img.img-cdn.yle.fi/crop_extract,w_5330,h_2992,x_0,y_213/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-118922865326eefae74b/1697902039)
+
+Avaa kuvien katselu
+
+Myrsky on iskenyt esimerkiksi Britanniaan. Kuva: ANDY BUCHANAN / Lehtikuva
+
+Euroopassa on ollut myrsky. Myrsky on aiheuttanut kovia sateita ja tulvia.
+
+Ihmisiä on kuollut myrskyssä ainakin Britanniassa ja Saksassa.
+
+Tanskassa monet kaupungit ovat olleet ilman sähköä myrskyn takia. Tanskalaisia on myös siirretty turvaan pois myrskyn tieltä.
+
+## Suomen sää
+
+![Sunnuntain sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-11895466533ee2c0886a/1697902155)
+
+Avaa kuvien katselu
+
+Täällä Suomessa sunnuntai on etelässä pilvinen päivä. Paikoin voi sataa vähän vettä.
+
+Aurinkoinen sää jatkuu sunnuntaina vielä pohjoisessa.
+
+Lämpötila on sunnuntaina etelässä noin 5 astetta ja maan keskiosassa 1 tai 2 astetta. Lapissa lämpötila on nollassa tai vähän pakkasen puolella.

@@ -1,0 +1,53 @@
+# Lauantai 1.11.2014
+
+## Suomalaiset pojat ovat maahanmuuttovastaisia
+
+![Väkivalta](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6810503)
+
+Avaa kuvien katselu
+
+Nuorten maahanmuuttovastaisuus voi muuttua väkivallaksi. Kuva: Yle
+
+Suomalaiset pojat eivät pidä maahanmuuttajista. Suomalaiset pojat ovat kärjessä, kun tutkitaan poikien maahanmuuttovastaisuutta eri maiden välillä. Tutkimuksessa vertailtiin 38 maata.
+
+Tutkija on huolestunut nuorten poikien asenteista, koska asenteet voivat muuttua nopeasti rasismiksi tai laittomaksi toiminnaksi. Nuorista pojista kymmenen (10) prosenttia on valmis käyttämään laittomia keinoja, esimerkiksi väkivaltaa. Tutkija varoittaa, että nuorten laiton toiminta voi lisääntyä nopeasti, jos esimerkiksi pienellä paikkakunnalla nuorten ja maahanmuuttajien välit kiristyvät.
+
+## Miesten palkat suurempia kuin naisten
+
+![Espoo pani ulkoistukset jäihin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7508726)
+
+Avaa kuvien katselu
+
+Tavalliset naistyöntekijät saavat palkkaa alle 2 000 euroa. Kuva: Sanna Kähkönen / Yle
+
+Miehet saavat paremmin palkkaa kuin naiset. Tavalliset naistyöntekijät saavat palkkaa usein alle 2 000 euroa kuukaudessa. Suomen Ammattiliittojen Keskusjärjestön SAK:n tasa-arvoraportti kertoo, että miehistä yhtä huonosti tienaa vain 16 prosenttia.
+
+Erot miesten ja naisten välillä ovat suuria. Miehistä 34 prosenttia sai palkkaa yli 3000 euroa kuukaudessa. Naisista vain hyvin harvat tienasivat yhtä paljon. Erot syntyvät siitä, että miehet tekevät paljon yötöitä ja naiset osa-aikatöitä.
+
+## Avaruuslentokone räjähti Yhdysvalloissa
+
+![Virgin Galactic -yhtiön avaruuslentolaitteen jäännökset maassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7592345)
+
+Avaa kuvien katselu
+
+Avaruuslentokone hajosi onnettomuudessa. Kuva: Michael Nelson / EPA
+
+Avaruuslentokone on tuhoutunut koelennolla Yhdysvalloissa. Virgin Galactic -yhtiön lentokone Space Ship Two räjähti ja syöksyi maahan Kaliforniassa. Koneessa oli kaksi (2) lentäjää, joista toinen kuoli ja toinen loukkaantui vakavasti.
+
+Avaruuslentokone on hyvin erilainen kuin tavallinen matkustajakone, koska sillä on tarkoitus lentää avaruuteen noin sadan (100) kilometrin korkeuteen. Kone nousee aluksi ilmaan kuten tavallinen lentokone. Kun kone on 15 kilometrin korkeudessa, tehokkaat rakettimoottorit vievät lentokoneen avaruuden reunalle.
+
+Avaruuslentoja on jo myyty 800 ihmiselle. Yhden avaruusmatkan hinta on 250 000 dollaria. Matkan ovat varanneet ainakin amerikkalaiset näyttelijät Angelina Jolie, Tom Hanks ja Ashton Kutcher.
+
+## Talvirenkaat saa laittaa virallisesti auton alle
+
+![Mies pinoaa talvirenkaita kerrostalon pihalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6858576)
+
+Avaa kuvien katselu
+
+Nastarenkaat toimivat jäällä paremmin kuin kitkarenkaat. Kuva: Tuula Nyberg / Yle
+
+Talvirenkaat saa nyt vaihtaa autoon. Laki sanoo, että talvi- eli nastarenkaita saa käyttää marraskuun alusta ensi vuoden huhtikuun puoliväliin saakka. Talvirenkaat pitää vaihtaa viimeistään joulukuun alussa.
+
+Liikennevirasto Trafi muistuttaa, että talvirenkaita saa käyttää aina, kun sää on huono. Renkaat kannattaa vaihtaa mieluummin sään kuin kalenterin mukaan.
+
+Suomessa saa ajaa kitkarenkailla eli nastattomilla talvirenkailla aina. Kitkarengas on kuitenkin sateella huonompi kuin oikea kesärengas.

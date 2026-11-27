@@ -1,0 +1,69 @@
+# Radio Selkouutiset lauantai 12.8.2023
+
+Perussuomalaiset. Sähkön hinta. Havaijin maastopalo. Sää.
+
+## Perussuomalaiset
+
+![Riikka Purra pitää puhetta.](https://img.img-cdn.yle.fi/crop_extract,w_6000,h_3375,x_0,y_32/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115555364d7322667f7d/1691824979)
+
+Avaa kuvien katselu
+
+Perussuomalaisten puheenjohtaja Riikka Purra piti puoluekokouksessa puheen. Kuva: Silja Viitala / Yle
+
+Perussuomalaisilla on lauantaina ja sunnuntaina puoluekokous Tampereella. Lauantaina puoluekokous päätti, että nykyinen puheenjohtaja **Riikka Purra** jatkaa tehtävässä. Purra oli ainoa ehdokas.
+
+Purra piti puoluekokouksessa puheen. Puheessa hän arvosteli mediaa. Media on käsitellyt kesällä esimerkiksi Purran vanhoja rasistisia kirjoituksia.
+
+Purra sanoi, että kyseessä on ajojahti.
+
+Purran mukaan median keskustelu rasismista ja perussuomalaisista on ollut epärehellistä ja röyhkeää. Purra sanoi, että media yrittää tuhota perussuomalaisten maineen.
+
+Myös muut perussuomalaiset arvostelivat puoluekokouksessa mediaa. Puoluetoimiston työntekijä **Matti Putkonen** sanoi, että rasismikeskustelu on ollut tyhjänpäiväistä.
+
+## Sähkön hinta
+
+![Sähkölinjoja ja korkeita sähkötolppia taivasta vasten. Kuvituskuva.](https://img.img-cdn.yle.fi/crop_extract,w_5005,h_2815,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-1034317637381dbc12fa/1731993782)
+
+Avaa kuvien katselu
+
+Kallis sähkö aiheutti viime talvena monille talousongelmia. Kuva: Matias Väänänen / Yle
+
+Sähkö on ensi talvena luultavasti paljon halvempaa kuin viime talvena.
+
+Viime talvena sähkö oli tosi kallista, mutta viranomaiset sanovat, että tilanne on nyt parempi.
+
+Olkiluodossa on uusi ydinvoimalan reaktori, joka tuottaa paljon sähköä. Myös uudet tuulivoimalat tuottavat paljon sähköä.
+
+Kun sähköä tuotetaan lisää, sähkön hinta laskee.
+
+Monet sähköyhtiöiden asiakkaat haluavat silti määräaikaisen sähkösopimuksen, jossa sähkön hinta ei muutu. He pelkäävät, että sähkön hinta nousee taas, kun talvi tulee.
+
+## Havaijin maastopalo
+
+![Rannan tuntumassa oleva asuinalue on palanut pahasti. Kuva on otettu ilmasta.](https://img.img-cdn.yle.fi/crop_extract,w_5120,h_2880,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115525464d611b91121e/1691753639)
+
+Avaa kuvien katselu
+
+Talot tuhoituivat tulipaloissa Lahainan kaupungissa Havaijilla. Kuva: Patrick T. Fallon / AFP
+
+USA:ssa Havaijilla on ollut paha maastopalo. Se on tehnyt paljon tuhoa Mauin saarella. Maastopaloissa on kuollut ainakin 80 ihmistä. Havaijin kuvernööri sanoo, että kuolleita voi olla enemmän.
+
+Monta tuhatta taloa on tuhoutunut tai saanut vahinkoja.
+
+Maastopalot alkoivat tiistaina. Ne levisivät tosi nopeasti kuivan maan ja kovan tuulen takia.
+
+Saaren asukkaita ei ehkä varoitettu tarpeeksi. Mauin saarella on 80 varoitussireeniä hätätilanteita varten, mutta varoitussireenit pysyivät hiljaa.
+
+Pahimmat tuhot ovat Lahainan kaupungissa.
+
+## Sää
+
+![Sääkartta.](https://img.img-cdn.yle.fi/crop_extract,w_1919,h_1080,x_0,y_0/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-115585364d797ce4578c/1691850743)
+
+Avaa kuvien katselu
+
+Kuva: Yle
+
+Sunnuntaina Lapissa ja länsirannikolla tulee sadekuuroja, muualla maassa on poutaa.
+
+Lämpötila on 16 ja 24 asteen välillä.

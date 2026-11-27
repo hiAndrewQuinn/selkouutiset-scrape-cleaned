@@ -1,0 +1,79 @@
+# Keskiviikko 26.2.2020 (radio)
+
+Helsingistä on löydetty koronatapaus. Suomessa tutkitaan myös kahta tapausta, joissa epäillään koronatartuntaa. Poliisit kokevat, että poliisien työturvallisuus on huonontunut. Torstai ja perjantai ovat aurinkoisia pakkaspäiviä.
+
+## Koronatapaus Helsingissä
+
+![Huslab Tullinpuomin kyltti Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11182299)
+
+Avaa kuvien katselu
+
+Koronatartuntua todettiin Helsingin ja Uudenmaan sairaanhoitopiirissä Husissa. Kuva: Heikki Saukkomaa / Lehtikuva
+
+Koronavirus jatkaa leviämistä.
+
+Nyt myös Suomesta on löydetty koronatapaus. Koronatapaus on Helsingissä.
+
+Potilas on suomalainen, työikäinen nainen. Potilas on hyvässä kunnossa, mutta hänellä on kuumetta.
+
+Suomalaisnainen sai koronatartunnan Milanosta, Pohjois-Italiasta. Italiassa koronatapaukset ovat lisääntyneet nopeasti.
+
+Suomessa on ollut tätä ennen vain yksi koronapotilas. Hän oli kiinalainen turisti, joka oli matkalla Lapissa. Potilas parani jo helmikuun alussa.
+
+## Koronaepäilyjä muualla Suomessa
+
+![Matkustajia helmikuussa Helsingin rautatieasemalla.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11228294)
+
+Avaa kuvien katselu
+
+Jyväskylän-junassa oli matkustaja, jolla ehkä on koronavirus. Kuva: Hanna Matikainen / Lehtikuva
+
+Suomessa on tutkittu myös kahta tapausta, joissa on epäilty koronatartuntaa.
+
+Jyväskylässä junamatkustajalla epäiltiin koronatartuntaa. Hän matkusti tiistaina Helsingin lentoasemalta Jyväskylään junalla. VR otti junan pois liikenteestä puhdistusta varten. Keskiviikkoiltana kerrottiin, että junamatkustajalla ei ollut koronavirusta.
+
+Myös Itä-Suomessa epäillään koronatartuntaa. Etelä-Savon sairaanhoitopiiri kertoo, että potilaalla on flunssaoireita. On pieni mahdollisuus, että kysymys on koronaviruksesta. Asia selviää torstaina.
+
+## Koronaviruksen oireet
+
+![Nainen yskii.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11212209)
+
+Avaa kuvien katselu
+
+Yskä ja kuume ovat koronaviruksen oireita. Kuva: Sami Takkinen / Yle
+
+Koronavirus ei tartu kovin helposti.
+
+Koronavirus voi tarttua toiseen ihmiseen, kun koronapotilas yskii tai aivastaa niin, että koronavirusta pääsee ilmaan. Tartunnan jälkeen voi mennä monta päivää, ennen kuin potilas saa oireita.
+
+Koronavirus aiheuttaa samanlaisia oireita kuin influenssa. Oireita ovat esimerkiksi yskä ja kuume.
+
+Terveyden ja hyvinvoinnin laitoksen eli THL:n nettisivuilta löytyy tietoa koronaviruksesta selkokielellä.
+
+Tietoa koronaviruksesta selkokielellä
+
+## Poliisien työturvallisuus
+
+![Lahtelainen poliisi kuvituskuvassa poliisiaseman pihassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10082284)
+
+Avaa kuvien katselu
+
+Poliisin työ ei aina ole turvallista. Kuva: Emilia Malin / Yle
+
+Poliisit sanovat, että poliisien työturvallisuus on huonontunut erityisesti Helsingissä. Poliisijärjestöjen liitto kysyi asiaa poliiseilta.
+
+Helsingissä yli 40 prosenttia poliiseista sanoi, että työturvallisuus on huonompi kuin ennen. Väkivalta poliisia kohtaan on lisääntynyt.
+
+Erot eri alueiden välillä ovat isoja. Pohjois-Suomessa vain 20 prosenttia poliiseista sanoi, että työturvallisuus on huonontunut ja väkivalta poliisia kohtaan on lisääntynyt.
+
+## Aurinkoisia pakkaspäiviä
+
+![Poika hyppää talvisessa metsässä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10045445)
+
+Avaa kuvien katselu
+
+Kuva: Esko Jämsä / AOP
+
+Sää on kaunista ja melko kylmää. Torstai ja perjantai ovat aurinkoisia pakkaspäiviä.
+
+Lauantaina taivaalle tulee pilviä, ja sunnuntaina saadaan sateita. Sade on aluksi lunta, mutta muuttuu etelässä räntä- ja vesisateeksi.

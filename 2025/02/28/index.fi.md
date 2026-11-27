@@ -1,0 +1,74 @@
+# TV \| Selkouutiset \| perjantai 28.2.2025
+
+Ukraina. Suomen somalit. Lauri Vuorisen MM-Pronssi. Lauantain sää.
+
+## Ukraina ja USA
+
+Aluksi uutinen ulkomailta.
+
+Ukrainan presidentti **Volodymyr Zelenskyi** tapaa tänään USA:n presidentin **Donald Trumpin**. Tapaaminen on Washingtonissa USA:n presidentin virka-asunnossa.
+
+Presidentit allekirjoittavat sopimuksen Ukrainan mineraaleista.
+
+Tarkoitus on, että USA:laiset firmat tulevat mukaan Ukrainan kaivostoimintaan.
+
+Osa kaivoksien tuotosta sijoitetaan rahastoon. Rahasto antaa rahaa Ukrainan jälleenrakentamiseen.
+
+Sopimuksesta ei ole vielä kerrottu tarkkoja tietoja.
+
+Ukrainan presidentti Volodymyr Zelenskyi tapaa tänään USA:n presidentin Donald Trumpin. Tapaamisen on illalla Suomen aikaa.
+
+Trump sanoo, että Ukrainan turvallisuus lisääntyy, kun maahan tulee USA:laisia firmoja.
+
+## Suomen somalit
+
+Nyt uutinen Suomen somaleista.
+
+Somalitaustaiset naiset synnyttävät eniten lapsia Suomessa.
+
+Keskimäärin naiset synnyttävät Suomessa 1,25 lasta.
+
+Somalitaustaiset naiset synnyttävät melkein 3 lasta.
+
+Syntyvyys on laskenut Suomessa. Naiset saavat lapsia vähemmän kuin ennen.
+
+Vantaalainen **Saiida Mohamud** on 4 lapsen äiti. Hän on 38-vuotias.
+
+Mohamudin ammatti on tulkki.
+
+Mohamud sanoo, että hänellä on hyvä tilanne. Hän pystyy hoitamaan työt ja perheen, koska mies auttaa häntä.
+
+Somalitaustaiset naiset synnyttävät eniten lapsia Suomessa.
+
+Saiida Mohamudilla on painava viesti miehille.
+
+Hän sanoo, että lapsia ei pidä tehdä, jos ei ota vastuuta.
+
+"Haluaisin sanoa heille, älkää tehkö lapsia, jos ette ota vastuuta. Jos ette kasvata äitien kanssa niitä lapsia, niin älkää tehkö, ei tarvitse tehdä."
+
+## Lauri Vuorisen MM-pronssi
+
+Lopuksi urheilu-uutinen.
+
+Hiihdon MM-kisat ovat alkaneet Norjan Trondheimissa.
+
+Kisojen avauspäivä oli hieno Suomelle.
+
+**Lauri Vuorinen** voitti pronssia vapaan hiihtotavan sprintissä.
+
+Suoritus on historiallinen. Koskaan aiemmin Suomen mieshiihtäjä ei ole voittanut MM-mitalia sprinttihiihdossa.
+
+Vuorisen mitali oli iloinen yllätys hänelle ja muille suomalaisille.
+
+Suomen Lauri Vuorinen voitti pronssia vapaan hiihtotavan sprintissä hiihdon MM-kisoissa.
+
+## Lauantain sää
+
+Vielä sääennuste.
+
+Lauantaina maan keskivaiheilla sataa vähän lunta.
+
+Muualla on poutaista. Pilvisyys on melko runsasta.
+
+Lämpötila on laajalti plussan puolella.
+

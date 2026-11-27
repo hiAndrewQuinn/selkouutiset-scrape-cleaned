@@ -1,0 +1,59 @@
+# Sunnuntai 2.6.2019 (radio)
+
+Puoluejohtajat ovat neuvotelleet ministerinpaikoista. Nuoret ovat juhlineet koulujen loppumista rauhallisesti. Suomalaiset tykkäävät salmiakista.
+
+## Ministerinpaikat
+
+![Antti Rinne](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10812266)
+
+Avaa kuvien katselu
+
+Antti Rinne on seuraava pääministeri. Pian selviää, keitä muita uuteen hallitukseen tulee. Kuva: Valtioneuvoston kanslia
+
+Puoluejohtajat ovat neuvotelleet ministerinpaikoista. Puolueiden pitää sopia, mitä ministerintehtäviä eri puolueet saavat uudessa hallituksessa.
+
+Suomen hallitus vaihtuu, koska Suomessa oli eduskuntavaalit huhtikuussa. Puoluejohtajat ovat neuvotelleet uudesta hallituksesta hallitusneuvotteluissa.
+
+Hallitusneuvotteluissa on mukana 5 puoluetta. Ne ovat jo sopineet hallitusohjelmasta. Hallitusohjelma kertoo, mitä uusi hallitus aikoo tehdä.
+
+Puoluejohtajat kertovat hallitusohjelmasta maanantaina. Pian odotetaan myös tietoja siitä, miten puolueet jakavat hallituksen ministerinpaikat.
+
+Nyt jo tiedetään, että pääministerin paikka menee SDP:lle. SDP on eduskunnan suurin puolue.
+
+Seuraava pääministeri on Antti Rinne. Rinne on SDP:n puoluejohtaja.
+
+## Nuorten juhlinta
+
+![Nuoret juhlivat koulun päättäjäisiä Hietaniemen rannalla Helsingissä.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10811656)
+
+Avaa kuvien katselu
+
+Nuoret juhlivat rauhallisesti. Kuva: Vesa Moilanen / Lehtikuva
+
+Nuoret ovat juhlineet koulujen loppumista rauhallisesti. Myös sateinen sää rauhoitti juhlia ulkona.
+
+Poliisi kertoo, että esimerkiksi Helsingin keskustassa oli lauantai-iltana rauhallista. Helsingin poliisi oli tyytyväinen ja kehui Twitterissä nuoria.
+
+Myös muissa kaupungeissa oli melko rauhallista. Esimerkiksi Tampereella nuoret juhlivat Pyynikillä, mutta mitään vakavaa ei tapahtunut.
+
+## Salmiakki
+
+![Turkinpippureita](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10714200)
+
+Avaa kuvien katselu
+
+Salmiakkia on valmistettu myös tehtaissa jo noin 90 vuotta. Kuva: Petri Kivimäki/Yle
+
+Suomalaisten lempikarkki on salmiakki.
+
+Salmiakkikarkki on yhtä aikaa makea ja suolainen. Ja koska suomalaiset tykkäävät salmiakista, Suomessa tehdään myös esimerkiksi salmiakkijäätelöä ja salmiakkijogurttia.
+
+Aikaisemmin salmiakkia käytettiin lääkkeissä. Sitten apteekit alkoivat myydä salmiakkia myös herkkuna. Karkkitehtaat ovat valmistaneet salmiakkeja jo noin 90 vuotta.
+
+Monien mielestä salmiakki tekee hyvää terveydelle. Se auttaa esimerkiksi silloin, kun kurkku on kipeä.
+
+Salmiakilla on kuitenkin myös huonoja vaikutuksia. Salmiakki esimerkiksi nostaa verenpainetta.
+
+Lääkärit sanovat myös, että naisten ei ole hyvä syödä salmiakkia raskausaikana. Lapsilla on esimerkiksi enemmän psykiatrisia ongelmia, jos lasten äidit ovat syöneet raskausaikana paljon salmiakkia.
+
+Suomalaiset myyvät salmiakkia myös ulkomaille. Hollanti, Tanska, Ruotsi, Norja, Islanti ja Saksa ovat maita, joissa salmiakkia syödään. Muualla salmiakkia ei tunneta.

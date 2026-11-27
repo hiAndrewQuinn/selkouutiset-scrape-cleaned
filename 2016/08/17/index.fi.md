@@ -1,0 +1,97 @@
+# Keskiviikko 17.8.2016 (radio)
+
+Pääministeriltä ei tukea koulutuksen lisäsäästöille. Suomen ulkoministeri vierailee Ruotsissa. Avoimia työpaikkoja aiempaa enemmän. Helsingin synnytyssairaaloissa on ruuhkaa. YK varoittaa katastrofista Syyrian Aleppossa. Moni lintu on aloittanut syysmuuton Suomesta etelään.
+
+## 
+
+## Pääministeri: Ei lisäsäästöjä koulutukseen
+
+![Juha Sipilä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9101484)
+
+Avaa kuvien katselu
+
+Pääministeri Juha Sipilä osallistui keskustan ministeriryhmän kesäkokoukseen Raumalla.  Kuva: Yle
+
+Pääministeri Juha Sipilä sanoo, että hallitus ei aio tehdä uusia säästöjä koulutukseen.
+
+Elinkeinoelämän keskusliitto sanoi eilen, että valtiovarainministeriö esittää uusia säästöjä koulutukseen, ja sitä ei saa hyväksyä.
+
+Liitto sanoo, että yliopistot voivat menettää jopa 14 miljoonaa euroa ja ammattikorkeakoulut 7 miljoonaa euroa.
+
+Sipilä aikoo selvittää, mistä laskelmat johtuvat.
+
+## Ulkoministeri vierailee Ruotsissa
+
+![Ruotsin ulkoministeri Margot Wallström ja Suomen ulkoministeri Timo Soini (ps.) Tukholman Arlandan lentoasemalla 2. kesäkuuta 2015.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8478061)
+
+Avaa kuvien katselu
+
+Soini ja Wallström neuvottelivat mm. Itämeren turvallisuudesta ja Venäjän esittämästä kutsusta. Kuva: Janerik Henriksson / EPA
+
+Ulkoministeri Timo Soini vierailee Ruotsissa. Hän on keskustellut Ruotsin ulkoministerin Margot Wallströmin kanssa.
+
+Ulkoministerit puhuivat Itämeren turvallisuudesta.
+
+He ovat samaa mieltä siitä, että Suomi ei neuvottele Itämeren turvallisuudesta kahden kesken Venäjän kanssa.
+
+Venäjä on esittänyt Suomelle kutsun neuvotteluihin Itämeren turvallisuudesta.
+
+## Synnytyssairaaloissa ruuhkaa
+
+![Reija Kemppainen ja Antti Karhunen juhlivat esikoispoikansa syntymää lasillisella Kätilöopiston tarjoamaa omenamehua. Kolme tuntia vanha poika pääsi kenguruhoitoon äitinsä rinnoille ja vatsalle.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9098172)
+
+Avaa kuvien katselu
+
+Kätilöopiston sairaalassa on nyt ruuhkaa. Kuva: Yle
+
+Helsingin synnytyssairaaloissa on nyt tosi kova ruuhka, koska lapsia syntyy eniten tähän aikaan vuodesta.
+
+Suomen suurimmassa synnytyssairaalassa, Kätilöopiston sairaalassa, on ollut niin täyttä, että osa synnyttäjistä on joutunut matkustamaan Helsingistä esimerkiksi Hyvinkäälle.
+
+Helsingin alueella syntyy eniten lapsia heinäkuun ja syyskuun välisenä aikana.
+
+## Töitä tarjolla aiempaa enemmän
+
+![TE-toimiston avoinnaoloajat ilmoittava kyltti](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-8919368)
+
+Avaa kuvien katselu
+
+Työvoimatoimistossa on yhä enemmän töitä tarjolla. Kuva: Heikki Rönty / Yle 
+
+Avoimia työpaikkoja on tarjolla aiempaa enemmän.
+
+Avoimia työpaikkoja oli kesäkuun alussa 30 600, eli lähes 2 000 enemmän kuin vuosi sitten.
+
+Paljon työpaikkoja on vapaana, koska niihin ei löydy sopivaa työntekijää. Sellaisia työpaikkoja on noin puolet kaikista työpaikoista, jotka ovat tarjolla.
+
+## YK huolissaan Aleppon lapsista
+
+![Syyrian hallituksen sotilaat partioivat al-Layramounin ja Bani Zeinin alueilla Aleppon pohjoisosissa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9062536)
+
+Avaa kuvien katselu
+
+Syyrian joukkoja partioi Aleppossa heinäkuussa. Kuva: SANA / EPA
+
+YK:n pääsihteeri Ban Ki-Moon varoittaa, että Syyrian Aleppoa uhkaa suuri katastrofi, jos taistelut jatkuvat.
+
+YK on tosi huolissaan lapsista, jotka kärsivät kovista taisteluista. Aleppossa asuu 100 000 lasta.
+
+YK sanoo, että taisteluihin pitää saada tauko eli aselepo. Silloin ihmisille voidaan viedä ruokaa ja muuta apua.
+
+Ban Ki-Moon vaatii, että Yhdysvallat ja Venäjä sopivat aselevosta.
+
+## Linnut aloittaneet muuttopuuhat
+
+![Kurkiaura taivaalla 9.9.2014](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-7477454)
+
+Avaa kuvien katselu
+
+Kurki lentää etelään suuressa muodostelmassa. Muodostelmalla on nimi: kurkiaura.  Kuva: Jaana Mäkelä, Ullava
+
+Monet linnut ovat aloittaneet syysmuuton eli ne ovat lähteneet talven ajaksi etelään.
+
+Muuttolinnut lähtevät syksyllä ja palaavat keväällä.
+
+Lintujen syysmuutto on nyt kaksi viikkoa etuajassa.
+
+Suomesta on jo lähtenyt pikkulintuja, jotka lentävät öisin. Myös muita lintuja on lähtenyt etelään.

@@ -1,0 +1,69 @@
+# Keskiviikko 17.10.2018 (radio)
+
+Lakko taas tulossa. Hallitukselle luottamus. Kellojen siirtäminen. Kannabis Kanadassa.
+
+## Lakko tulossa ensi viikolla
+
+![JHL:n logo talon seinässä](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10461048)
+
+Avaa kuvien katselu
+
+Julkisten ja hyvinvointialojen liitto edustaa työntekijöitä. Kuva: Mesut Turan / Lehtikuva
+
+Julkisen alan työntekijät menevät uudestaan lakkoon.
+
+Se tarkoittaa, että kouluissa, päiväkodeissa ja vanhainkodeissa on tosi vaikea saada ruokaa. Myös siivoaminen loppuu ja osa kirjastoista on kiinni.
+
+Lakko alkaa ensi viikon maanantaina ja jatkuu kaksi päivää. Lakkoon menee yli 10 000 työntekijää.
+
+Lakko liittyy kiistelyyn työntekijöiden irtisanomisesta eli potkujen antamisesta. Hallitus haluaa lakimuutoksen, joka helpottaa pienen firman mahdollisuuksia antaa työntekijälle potkut.
+
+Työntekijöiden liitot vastustavat hallituksen lakiehdotusta. Hallitus vei kiistan eduskuntaan, joka keskusteli siitä eilen ja äänesti tänään.
+
+## Luottamus hallitukselle
+
+![Eduskunnan istuntosali.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10402684)
+
+Avaa kuvien katselu
+
+Eduskunnan istuntosali. Kuva: Vivi Lehtonen / Yle
+
+Tämän päivän äänestyksessä hallitus on saanut odotetusti eduskunnan luottamuksen. Päätös syntyi äänin 101 puolesta ja 73 vastaan.
+
+Äänestyksen tulos tarkoittaa, että hallitus vie nyt kiisteltyä lakia eteenpäin.
+
+Äänestys liittyi isoon kiistaan työntekijöiden irtisanomisesta eli potkujen antamisesta.
+
+## Kohta alkaa talviaika
+
+![Kaksi herätyskelloa, toinen kesä- ja toinen talviajassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10400756)
+
+Avaa kuvien katselu
+
+Suomessa on kesäaika ja talviaika. Kuva: Antti Aimo-Koivisto / Lehtikuva
+
+Suuri osa suomalaisista haluaa lopettaa kellojen siirtämisen.
+
+Suomessa on kesäaika ja talviaika. Kesällä kelloja siirretään tunti eteenpäin ja talvella tunti taaksepäin. Suuri osa suomalaisista haluaa elää pysyvästi talviajassa.
+
+Oikeusministeriö on tehnyt asiasta ison kyselyn. Kyselyyn tuli melkein 700 000 vastausta. Vastaajista noin 52 prosenttia kannatti talviaikaan siirtymistä.
+
+Suomi ei voi itse päättää siitä, että kelloja ei enää siirrellä. Asiasta pitää päättää Euroopan unionissa.
+
+Suomessa siirretään kelloja seuraavan kerran ensi viikon sunnuntaina. Silloin alkaa talviaika ja kello pitää siirtää tunti taaksepäin.
+
+## Kanada laillisti kannabiksen
+
+![Kanadassa esimerkiksi Markhamissa lähellä Torontoa kasvatetaan kannabista lääketarkoituksiin.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10460629)
+
+Avaa kuvien katselu
+
+Kanadassa esimerkiksi Markhamissa lähellä Torontoa kasvatetaan kannabista lääkkeeksi. Kuva: Warren Toda / EPA
+
+Kanada on laillistanut kannabiksen kaiken käytön. Ensimmäiset kannabiskaupat ovat avautuneet maassa.
+
+Kannabis on päihdyttävä aine. Se on Suomessa kielletty.
+
+Kanada on koko maailmassa toinen maa, joka on laillistanut kannabiksen. Kanadaa ennen vain Uruguay on laillistanut kannabiksen käytön kaikkiin tarkoituksiin.
+
+Kannabiksen käytön ikäraja on vähintäänkin 18 vuotta. Kanadassa käytetään tosi paljon kannabista.

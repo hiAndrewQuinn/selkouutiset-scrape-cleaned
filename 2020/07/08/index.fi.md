@@ -1,0 +1,78 @@
+# Keskiviikko 8.7.2020 (radio)
+
+Hallitus helpottaa matkustusrajoituksia. Suomesta on löydetty 3 uutta koronatartuntaa. Suomalaisten mielestä tieteen merkitys kasvaa koronakriisin jälkeen. Yhdessä nukkuminen parantaa unen laatua. Saimaalta on löydetty katiskoja, jotka ovat vaarallisia saimaannorpille.
+
+TV:n selkouutisilla on kesätauko ja ne jatkuvat 17.8.
+Radion selkouutiset tehdään joka päivä myös kesällä.
+
+## Matkustusrajoitukset muuttuvat
+
+![Pekka Haavisto ja Mari Ohisalo](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11439866)
+
+Avaa kuvien katselu
+
+Ministerit Pekka Haavisto ja Maria Ohisalo kertoivat matkustusrajoituksista keskiviikkona. Kuva: Yle
+
+Hallitus helpottaa korona-ajan matkustusrajoituksia. Ensi maanantaista alkaen suomalaiset pääsevät matkustamaan moniin maihin ilman karanteenia.
+
+Tällaisia maita ovat monet Euroopan maat, esimerkiksi Saksa, Kreikka ja Italia. Suomalaisten ei siis tarvitse enää olla kotona karanteenissa sen jälkeen, kun he tulevat näistä maista takaisin kotiin.
+
+Lisäksi työmatkaliikenne voi alkaa joihinkin maihin Euroopan ulkopuolella. Työmatkaliikenne on sallittua esimerkiksi Japaniin ja Kiinaan. Myös tämä muutos tulee voimaan maanantaina, heinäkuun 13. päivä.
+
+Suomi helpottaa matkustusrajoituksia vain maihin, joissa koronatilanne on hyvä. Esimerkiksi Ruotsissa koronatapauksia on paljon enemmän kuin Suomessa. Siksi ihmisten on edelleen hyvä jäädä kotiin karanteeniin, kun he tulevat Ruotsista Suomeen.
+
+## Vähän uusia koronatapauksia
+
+![THL:n kyltti Mannerheimintiellä Helsingissä.](https://img.img-cdn.yle.fi/crop_extract,w_5172,h_2909,x_0,y_259/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6782355ec3516e816dd/1616069887)
+
+Avaa kuvien katselu
+
+Terveyden ja hyvinvoinnin laitos kertoi uusista koronatapauksista keskiviikkoan. Kuva: Tiina Jutila / Yle
+
+Suomesta on löydetty 3 uutta koronatartuntaa.
+
+Koronakuolemia ei ole tullut lisää. Suomessa on kuollut koronaviruksen takia 329 ihmistä.
+
+## Suomalaiset luottavat asiantuntijoihin
+
+![Terveyden- ja hyvinvoinnin laitoksen tiedotustilaisuudessa johtava asiantuntija Jussi Sane ja ylilääkäri Taneli Puumalainen.](https://img.img-cdn.yle.fi/crop_extract,w_5776,h_3249,x_0,y_605/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6390065e3ab1d42d4c0/1580906723)
+
+Avaa kuvien katselu
+
+Terveyden ja hyvinvoinnin laitoksen asiantuntijoita. Kuva: Eleni Paspatis / Yle
+
+Suurin osa suomalaisista uskoo, että tieteen merkitys kasvaa koronakriisin jälkeen. Näin kertoo uusi kysely.
+
+Noin 60 prosenttia kyselyn vastaajista on sitä mieltä, että tieteen merkitys on suurempi kuin ennen. Suomalaiset luottavat nyt asiantuntijoihin.
+
+## Yhdessä on hyvä nukkua
+
+![man och kvinna sover med ryggarna mot varandra, både belåtet leende](https://img.img-cdn.yle.fi/crop_extract,w_8688,h_4887,x_0,y_719/crop_fill,w_767,h_431,ar_16:9,dpr_1/f_auto/39-6193655de8ab96cdd3b/1575529534)
+
+Avaa kuvien katselu
+
+Kuva: Copyright (C) Andrey Popov
+
+Yhdessä nukkuminen parantaa unen laatua.
+
+Pari saa enemmän REM-unta, jos pari nukkuu yhdessä. Näin kertoo uusi tutkimus.
+
+REM-unen aikana ihminen näkee unia. REM-uni on tärkeää terveydelle.
+
+Yhdessä nukkuminen lisää REM-unen määrää. Syy on ehkä se, että ihmisen stressi vähenee, kun hän nukkuu kumppanin vieressä.
+
+## Katiska voi olla saimaannorpalle vaarallinen
+
+![Kuvassa on saimaannorppa Savonlinnassa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-11438210)
+
+Avaa kuvien katselu
+
+Saimaannorppia elää vain Saimaan alueella. Kuva: Juha Metso / AOP
+
+Saimaalta on tänä kesänä löydetty katiskoja, jotka ovat vaarallisia saimaannorpille. Asiasta kertoo Luonnonsuojeluliitto.
+
+Katiskalla pyydetään kaloja. Myös saimaannorppa voi joutua katiskaan, jos katiska on vääränlainen. Silloin saimaannorppa hukkuu ja kuolee. Siksi osa katiskoista on kielletty Saimaa-järvellä.
+
+Saimaannorppa on harvinainen eläin. Saimaannorppia elää vain Suomessa Saimaan alueella.
+
+Luonnonsuojeluliitto pyytää, että ihmiset käyttävät Saimaalla vain sellaisia katiskoja, jotka eivät ole vaarallisia saimaannorpille.

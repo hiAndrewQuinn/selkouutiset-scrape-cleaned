@@ -1,0 +1,65 @@
+# Sunnuntai 27.8.2017 (radio)
+
+Säännöllinen liikunta on hyväksi aivoille. Myös variksenmarjat kelpaavat nyt suomalaisille. Poliisi on selvittänyt Turun puukottajan oikean nimen ja iän. Rankkasateet piiskaavat Texasia.
+
+## Liikunta parantaa aivojen toimintaa
+
+![Grafiikka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9796595)
+
+Avaa kuvien katselu
+
+Kun ihminen juoksee, veren määrä aivoissa kasvaa noin 20 prosenttia istumiseen verrattuna. Kuva: Johanna Aulén / Yle
+
+Liikunnalla on iso merkitys aivojen hyvinvoinnille. Säännöllinen kuntoliikunta parantaa keskittymistä, muistia ja lasten oppimiskykyä, kertoo uusi ruotsalaistutkimus.
+
+Kun ihminen liikkuu, verenkierto paranee lihaksissa ja aivoissa. Kun ihminen kävelee tai juoksee, veren määrä aivoissa kasvaa noin 20 prosenttia istumiseen verrattuna. Veren mukana aivoihin tulee happea ja ravintoaineita eli aivot toimivat paremmin.
+
+Karoliinisen instituutin ylilääkäri Anders Hansen sanoo, että kuntoliikunta tai kuntoliikunnan ja voimaharjoittelun yhdistelmä helpottaa stressiä ja muistiongelmia ja parantaa keskittymiskykyä ja hidastaa vanhenemista.
+
+Hansen sanoo, että sopiva määrä liikuntaa on 45 minuuttia 3 kertaa viikossa. Tutkimuksissa näyttää siltä, että sitä suuremmasta määrästä ei enää ole aivoille lisähyötyä.
+
+## Varisenmarjat ja juolukat kelpaavat jo poimijoille
+
+![Juolukka](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6764653)
+
+Avaa kuvien katselu
+
+Juolukka näyttää vähän samalta kuin mustikka. Kuva: Eelis Pulkkinen
+
+Suomalaiset ovat oppineet poimimaan ja käyttämään myös erikoisempia luonnonmarjoja. Esimerkiksi pihlajanmarjan ja variksenmarjan, lillukan ja juolukan suosio on kasvanut.
+
+Se johtuu ehkä siitä, että ihmiset ovat nyt innostuneita villiruuasta ja niin sanotusta superruuasta, sanoo erikoisasiantuntija Rainer Peltola Luonnonvarakeskuksesta. 
+
+Esimerkiksi pihlajanmarjassa on enemmän C-vitamiinia ja kuitua kuin monissa muissa marjoissa. Variksenmarjassa ja juolukassa taas on paljon polyfenoleja, jotka pienentävät riskiä sairastua esimerkiksi sydän- ja verisuonitauteihin, kakkostyypin diabetekseen ja muistisairauksiin.
+
+Myös teollisuus on alkanut käyttää esimerkiksi variksenmarjaa. Siitä tehdään mehua ja sitä käytetään muiden marjojen lisänä hilloissa ja hyytelöissä.
+
+## Turun puukottajan henkilöllisyys selvisi
+
+![Hämeenlinnan vankilan Vankisairaalan portti Hämeenlinnassa keskiviikkona 23. elokuuta 2017. ](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9794053)
+
+Avaa kuvien katselu
+
+Turun puukotuksien pääepäilty on Hämeenlinnan vankisairaalassa. Kuva: Mikko Stig / Lehtikuva
+
+Turun puukotusten pääepäillyn henkilöllisyys on varmistunut.
+
+Poliisi kertoo, että se on selvittänyt miehen nimen kansainvälisen poliisiyhteistyön avulla. Miehen nimeä ei toistaiseksi julkisteta.
+
+Miehen syntymävuosi on myös varmistunut. Hän on syntynyt vuonna 1994. Mies itse kertoi syntyneensä 4 vuotta myöhemmin 1998.
+
+Mies puukotti 10 ihmistä Turussa reilu viikko sitten perjantaina.
+
+## Harvey-myrsky toi rankkasateet Texasiin
+
+![Tulvavettä kadulla Houstonissa perjantaina.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9799937)
+
+Avaa kuvien katselu
+
+Tulvavesi on noussut Houstonin kaupungin kaduille Texasissa. Kuva: AOP
+
+Yhdysvalloissa Harvey-hirmumyrsky on laantunut trooppiseksi myrskyksi.
+
+Harvey toi mukanaan rankkasateita Texasin osavaltioon. Paikoin on satanut vettä jo yli metrin.
+
+Sateet ovat nostaneet tulvia esimerkiksi Houstonin ja Corpus Christin kaupungeissa. Ihmisiä on evakuoitu turvaan tulvien alta.

@@ -1,0 +1,73 @@
+# Maanantai 15.7.2019 (radio)
+
+Saattohoidossa on puutteita. Suomalaiset luottavat tieteeseen. Lapset saavat pitempiä nimiä kuin ennen. Seuraavassa Bond-elokuvassa agentti 007 on nainen. Sää lämpenee vähitellen.
+
+## Saattohoito
+
+![Vanhus makaa vuoteessa.](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-9521718)
+
+Avaa kuvien katselu
+
+Kuva: Kalle Niskala / Yle
+
+Saattohoidossa on puutteita. Saattohoitoa tarvitsevat ihmiset, jotka kuolevat pian.
+
+Terveyden ja hyvinvoinnin laitos eli THL on selvittänyt, kuinka hyvin vanhusten saattohoito toimii Suomessa.
+
+THL:n mielestä saattohoitoa ei ole tarpeeksi vanhuksille, jotka haluavat elää loppuun asti kotona. Usein vanhusten pitää käydä sairaalassa myös elämän viimeisten kuukausien aikana.
+
+THL sanoo, että vanhuksia pitää hoitaa paremmin, kun kuolema lähestyy. Siksi kotihoitoon tarvitaan enemmän sairaanhoitajia. Lisäksi kaikki kotihoidon työntekijät tarvitsevat koulutusta saattohoitoon.
+
+## Tiede
+
+![Helsingin yliopiston päärakennus](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5287902)
+
+Avaa kuvien katselu
+
+Helsingin yliopiston päärakennus Kuva: Touko Yrttimaa / Yle
+
+Suomalaiset luottavat tieteeseen. Yli 90 prosenttia suomalaisista luottaa tieteeseen ja tutkijoihin.
+
+Suomalaiset luottavat tieteeseen selvästi enemmän kuin uskontoon. Vain 17 prosenttia suomalaisista luottaa uskontoon, jos he kokevat, että uskonto ja tiede ovat ristiriidassa.
+
+## Nimet
+
+![vauvaa kastetaan](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10111433)
+
+Avaa kuvien katselu
+
+Kuva: AOP
+
+Lapset saavat pitempiä nimiä kuin ennen.
+
+Uusi nimilaki tuli voimaan tämän vuoden alussa. Lapsi voi saada nyt jopa 4 etunimeä. Lapsi voi saada myös sukunimiyhdistelmän, esimerkiksi äidin ja isän sukunimen.
+
+Toukokuun loppuun mennessä noin 1 prosentti lapsista sai 4 etunimeä tai sukunimiyhdistelmän.
+
+Selkouutisten nettisivuilta löytyvät videot, jotka kertovat, mitä uusi nimilaki sanoo etunimistä ja sukunimistä.
+
+## Agentti 007
+
+![Lashana Lynch](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10878001)
+
+Avaa kuvien katselu
+
+Lashana Lynch Kuva: AOP 
+
+Bond-elokuvissa tapahtuu iso muutos. Seuraavassa Bond-elokuvassa agentti 007 on nainen.
+
+Brittilehdet kertovat, että agentti 007:ää esittää Lashana Lynch. Hän on tummaihoinen brittiläinen näyttelijä.
+
+Elokuvassa uuden naisagentin nimi ei ole Bond. Mutta hän saa agentti 007:n paikan, kun James Bond jää eläkkeelle.
+
+## Sää
+
+![Ylin lämpötila torstai, perjantai ja lauantai](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10877906)
+
+Avaa kuvien katselu
+
+Kuva: Matti Huutonen / Yle
+
+Sää lämpenee vähitellen. Viikon alussa sataa vielä vettä. Sen jälkeen lämpötila nousee.
+
+Ylen meteorologi Matti Huutonen sanoo, että viikonloppu on jo lämmin melkein koko maassa. Lämpötila nousee etelässä yli 20 asteen.

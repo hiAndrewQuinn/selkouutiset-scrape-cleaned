@@ -5,7 +5,7 @@
 # using gcloud for authentication (Perl for JSON parsing),
 # caches API responses as _response.fi.en.json to avoid redundant calls,
 # with .hash file checking for content integrity and regeneration control.
-# Designed for POSIX sh (e.g., BusyBox ash on Tiny Core Linux).
+# Designed for POSIX sh.
 # UTF-8 handling enhanced by setting LC_ALL and ensuring correct pipeline processing.
 # Further refined Perl JSON generation to explicitly decode input and correctly output bytes.
 # ADDED: --force flag to compel regeneration of markdown and JSON files.
@@ -41,7 +41,7 @@ log_message() {
 
 # --- One run at a time ---
 # cron starts this every hour; a run that has a lot to do (e.g. thousands of
-# backfilled days on the Raspberry Pi) can take longer than that. A second run
+# backfilled days) can take longer than that. A second run
 # would race the first on the same files and on git, so it just exits.
 LOCK_FILE="${TMPDIR:-/tmp}/selkouutiset-process.lock"
 if ! command -v flock >/dev/null 2>&1; then
@@ -55,7 +55,7 @@ if ! flock -n 9; then
 fi
 
 # --- Stay in step with GitHub (see lib/git-sync.sh) ---
-# Before any work: make sure there is room (the box's filesystem is RAM), then
+# Before any work: make sure there is room, then
 # take in whatever GitHub has that this checkout lacks (merged PRs, or a newer
 # process.sh), so this run's commit lands on top of it and its push is not
 # rejected. A rebase that conflicts is aborted and the run stops: nothing is

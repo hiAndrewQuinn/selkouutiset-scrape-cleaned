@@ -4,7 +4,7 @@ There are big differences between regions in how quickly possible buyers are fou
 
 ## Online housing ads
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5720152"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5720152)
 
 Open image viewer
 

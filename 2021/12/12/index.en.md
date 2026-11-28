@@ -22,7 +22,7 @@ President Joe Biden has promised help to the disaster areas. Biden says that thi
 
 ## Allegro trains are running again
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5685611"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5685611)
 
 Open image viewer
 

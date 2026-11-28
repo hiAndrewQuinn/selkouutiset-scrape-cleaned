@@ -46,7 +46,7 @@ Voter turnout rose to over 87 percent.
 
 ## Autumn matriculation exams begin
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5573014"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5573014)
 
 Open image viewer
 

@@ -50,7 +50,7 @@ Korkein oikeus on nyt päättänyt, että mies ei joudu vankilaan. Korkeimman oi
 
 ## Punkki ja borrelioosi
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5613777"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5613777)
 
 Avaa kuvien katselu
 

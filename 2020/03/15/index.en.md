@@ -46,7 +46,7 @@ Pharmaceutical companies say that there are enough medicines in Finland. There i
 
 ## Crowds in the forest
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5822188"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5822188)
 
 Open image viewer
 

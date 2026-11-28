@@ -64,7 +64,7 @@ More than 4 million copies of Hirvisaari's books have been sold in Finland.
 
 ## Cloudberry harvest
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6623389"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6623389)
 
 Open image viewer
 

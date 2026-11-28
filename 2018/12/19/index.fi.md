@@ -18,7 +18,7 @@ Pienituloisuuden raja yhden hengen taloudessa oli viime vuonna 14 750 euroa vuod
 
 ## Energiajuomat
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6603009"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6603009)
 
 Avaa kuvien katselu
 

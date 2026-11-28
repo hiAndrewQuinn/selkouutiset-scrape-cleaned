@@ -54,7 +54,7 @@ If you have, for example, a mortgage of 120,000 euros and the interest rate rise
 
 ## Summer and winter time may continue
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6116413"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6116413)
 
 Open image viewer
 

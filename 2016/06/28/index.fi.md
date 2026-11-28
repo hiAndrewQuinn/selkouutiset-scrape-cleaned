@@ -36,7 +36,7 @@ Monissa kesämökeissä on esimerkiksi kuivakäymälät eli vessat, jotka toimiv
 
 ## Teatterit houkuttelevat taas yleisöä
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5488374"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5488374)
 
 Avaa kuvien katselu
 

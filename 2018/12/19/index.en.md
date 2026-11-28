@@ -18,7 +18,7 @@ The low-income threshold for a one-person household was 14,750 euros per year la
 
 ## Energy drinks
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6603009"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6603009)
 
 Open image viewer
 

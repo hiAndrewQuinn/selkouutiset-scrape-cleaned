@@ -52,7 +52,7 @@ The purpose of the credit register is that people do not build up too much debt.
 
 Exercise is healthy
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5580513"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5580513)
 
 Open image viewer
 

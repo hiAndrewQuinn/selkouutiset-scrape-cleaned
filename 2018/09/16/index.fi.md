@@ -46,7 +46,7 @@ Eniten ääniä, yli 28 prosenttia, sai sosiaalidemokraatit. Toiseksi eniten sai
 
 ## Syksyn yo-kirjoitukset alkavat
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5573014"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5573014)
 
 Avaa kuvien katselu
 

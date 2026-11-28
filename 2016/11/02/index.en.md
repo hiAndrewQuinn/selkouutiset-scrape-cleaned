@@ -72,7 +72,7 @@ According to Russia, the Syrian government has accepted the ceasefire.
 
 ## The Finlandia nominees for children's literature announced
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5735003"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5735003)
 
 Open image viewer
 

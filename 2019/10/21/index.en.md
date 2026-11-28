@@ -28,7 +28,7 @@ Researcher Akhlaq Ahmad is surprised that the differences between the groups wer
 
 ## Stora Enso's jobs
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5239386"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5239386)
 
 Open image viewer
 

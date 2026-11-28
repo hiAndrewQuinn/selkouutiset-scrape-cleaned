@@ -48,7 +48,7 @@ The races were skied in front of full stands - 35,000 tickets were sold. The Lah
 
 ## A polar bear charms tourists in Lapland
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5074994"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5074994)
 
 Open image viewer
 

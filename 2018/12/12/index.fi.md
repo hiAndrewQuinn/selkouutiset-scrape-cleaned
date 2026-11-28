@@ -66,7 +66,7 @@ Kanteluissa sanotaan, että poliisi toimi väärin, kun se takavarikoi liput, si
 
 ## Suomalaiset ovat kielitaitoisia
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286492"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286492)
 
 Avaa kuvien katselu
 

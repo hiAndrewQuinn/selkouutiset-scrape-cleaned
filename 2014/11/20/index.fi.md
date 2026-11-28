@@ -46,7 +46,7 @@ YK:n mukaan Ukrainan taisteluissa on kuollut yhteensä jo yli 4 300 ihmistä. Me
 
 ## Lasten oikeuksien päivä muistuttaa leikkimisen tärkeydestä
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5453373"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5453373)
 
 Avaa kuvien katselu
 

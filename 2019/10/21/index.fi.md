@@ -28,7 +28,7 @@ Tutkija Akhlaq Ahmad on yllättynyt siitä, että erot eri ryhmien välillä oli
 
 ## Stora Enson työpaikat
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5239386"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5239386)
 
 Avaa kuvien katselu
 

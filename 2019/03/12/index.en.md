@@ -38,7 +38,7 @@ About 40,000 students take part in the spring matriculation exams.
 
 ## Telephone sales
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5284023"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5284023)
 
 Open image viewer
 

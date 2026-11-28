@@ -68,7 +68,7 @@ Miesten tuomiot olivat yli 10 vuotta vankeutta. Heidät tuomittiin myös törke�
 
 ## Suomalaiset tuhlaavat jouluun maltilla
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6040450"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6040450)
 
 Avaa kuvien katselu
 

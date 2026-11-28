@@ -46,7 +46,7 @@ Raitiotien rakentaminen alkaa suunnitelmien mukaan syksyllä 2024. Raitiovaunun 
 
 ## Ranskan lennot
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/14-svyle-42317531972b8c1dea/1394194877"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/14-svyle-42317531972b8c1dea/1394194877)
 
 Avaa kuvien katselu
 

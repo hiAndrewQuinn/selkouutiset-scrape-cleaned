@@ -54,7 +54,7 @@ Kesällä heitetään tikkaa. Kuva: Yle
 
 Monet suomalaiset pelaavat kesällä pihapelejä.
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5409166"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5409166)
 
 Avaa kuvien katselu
 

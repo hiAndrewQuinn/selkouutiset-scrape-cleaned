@@ -62,7 +62,7 @@ Many people have celebrated Christmas parties over the weekend. When too much al
 
 ## Advent candles were lit
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5731962"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5731962)
 
 Open image viewer
 

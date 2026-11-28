@@ -46,7 +46,7 @@ Building the tram line starts, according to the plans, in autumn 2024. The tram 
 
 ## Flights in France
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/14-svyle-42317531972b8c1dea/1394194877"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/14-svyle-42317531972b8c1dea/1394194877)
 
 Open image viewer
 

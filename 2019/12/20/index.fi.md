@@ -82,7 +82,7 @@ Hymyilevä mies kertoo nyrkkeilijä Olli Mäen tarinan. Elokuva sai 8 kotimaisen
 
 ## Selkouutisia tarjolla myös jouluna
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5718309"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5718309)
 
 Avaa kuvien katselu
 

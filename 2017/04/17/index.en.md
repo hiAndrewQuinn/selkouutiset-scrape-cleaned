@@ -40,7 +40,7 @@ Pence  also said that the visit to the border between the Koreas was important t
 
 ## Chocolate eggs are the most popular Easter treat
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5533351"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5533351)
 
 Open image viewer
 

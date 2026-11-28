@@ -32,7 +32,7 @@ Kokoontumisrajoitus on nyt voimassa 13. huhtikuuta asti. Kouluissa odotetaan tie
 
 ## Kirkon talous heikkenee
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5008374"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5008374)
 
 Avaa kuvien katselu
 

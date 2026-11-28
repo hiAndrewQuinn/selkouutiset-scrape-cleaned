@@ -34,7 +34,7 @@ Kokeilussa mukana olleet ihmiset sanovat, että kokeilun aikana he voivat paremm
 
 ## Välikysymys
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10637778"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-10637778)
 
 Avaa kuvien katselu
 

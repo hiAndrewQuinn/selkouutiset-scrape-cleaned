@@ -4,7 +4,7 @@ Poliisi: Suuret setelit pois käytöstä. Tulevaisuudessa autot soittavat itse h
 
 ## Poliisi: Suuret setelit pois käytöstä
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5935639"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5935639)
 
 Avaa kuvien katselu
 

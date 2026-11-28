@@ -32,7 +32,7 @@ Many midwives say that they have become ill because of the hospital's poor indoo
 
 ## No birch pollen yet
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5330599"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5330599)
 
 Open image viewer
 

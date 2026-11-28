@@ -48,7 +48,7 @@ Moottoritien silta romahti eilen noin sadan metrin matkalta. Yli 30 autoa putosi
 
 ## Perhoskannat vahvistuivat
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5198070"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5198070)
 
 Avaa kuvien katselu
 

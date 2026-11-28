@@ -24,7 +24,7 @@ The Finnish Institute for Health and Welfare recommends that passengers from Bri
 
 ## Fur farms are being examined
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5287872"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5287872)
 
 Open image viewer
 

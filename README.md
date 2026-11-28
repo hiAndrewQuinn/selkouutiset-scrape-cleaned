@@ -124,6 +124,18 @@ To translate the backfill deliberately one day (about 2,600 days, roughly $130),
 
 ⚠️: `index.source.md` doesn't actually clue you in as to _which_ translation was used to generate it. For this simple project that's not a big deal, because I'm not interested in running my JSON requests through `fi` then `ar` then `es` then `fr` then `en` just to mangle `index.en.md` up. But if you're doing something more complicated, you might want to keep track of this.
 
+## Tests
+
+Three POSIX `sh` scripts, all offline and read-only (each runs in `sh`, `busybox sh` or `dash`), run by GitHub Actions on every push and pull request (`.github/workflows/tests.yml`):
+
+```sh
+sh tests/content-lint.sh        # no stored page (or translation JSON) contains leftover raw HTML
+sh tests/html-to-md-test.sh     # the HTML -> Markdown conversion in lib/html-to-md.sh (needs pandoc 3.7.0.1)
+sh tests/git-sync-test.sh       # lib/git-sync.sh, against throwaway local repositories
+```
+
+`content-lint.sh` exists because of a real bug: an image with no alt text used to come out of the conversion as a bare `src="https://img.img-cdn.yle.fi/..."` line, which the site then showed as text (95 pages, 2014–2023). `tools/repair-bare-img-src.sh` fixed the stored pages in place, without re-translating anything.
+
 ## Detailed instructions
 
 ### Update the submodules to the latest commit

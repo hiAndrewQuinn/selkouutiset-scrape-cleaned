@@ -347,6 +347,21 @@ else
   log_message "Submodule '$SUBMODULE_PATH' is already up-to-date. No changes to commit in the parent repository."
 fi
 
+# --- The scrape's newest day: the only one that can be "not published yet" ---
+# The scrape writes today's slot (Helsinki date) on every capture, from
+# whatever yle.fi shows at the time. Before Yle publishes the day's edition,
+# usually around 16:45, that is the previous edition: a repeat ("toisto") that
+# is only a placeholder. A day is confirmed once the scrape has a slot for a
+# later day: that capture ran after the day ended, and it also re-checked the
+# day against Yle's feed. So only the newest slot can be unconfirmed, and if it
+# holds an older edition it is withheld (see the day loop). A day Yle really
+# skipped appears as a repeat on the first run after the next capture.
+NEWEST_SCRAPE_DAY=""
+for d in "$SUBMODULE_PATH"/20[0-9][0-9]/[0-1][0-9]/[0-3][0-9]; do
+  [ -d "$d" ] && NEWEST_SCRAPE_DAY="$d"
+done
+log_message "Newest scrape day: '${NEWEST_SCRAPE_DAY:-none}'."
+
 # --- Translation twins: reuse a translation of identical Finnish text ---
 # Index "sha1 day-dir" of every day that has a translation, so a day whose text
 # matches one already translated (anywhere, not just the day before) copies
@@ -422,6 +437,32 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
       if [ ! -f "$source_html_file_for_ops" ]; then
         log_message "Skipped MD: Source HTML file not found. $processed_day_log_suffix"
         continue
+      fi
+
+      # --- Withhold an unconfirmed repeat (see NEWEST_SCRAPE_DAY above) ---
+      # No page at all for it, rather than yesterday's news under today's date:
+      # its generated files are removed (git add -A below commits the removal),
+      # and the day is regenerated once confirmed, because generation runs
+      # whenever index.fi.md is missing. A repeat's translation is a free copy
+      # of the previous day's, so withholding never costs a paid translation.
+      if [ "$day_dir_candidate" = "$NEWEST_SCRAPE_DAY" ]; then
+        slot_edition=$(perl -0777 -ne 'print "$1$2$3" if /"datePublished":\s*"(\d{4})-(\d{2})-(\d{2})/' "$source_html_file_for_ops" || true)
+        case "$slot_edition" in
+        [0-9][0-9][0-9][0-9][0-1][0-9][0-3][0-9])
+          if [ "$slot_edition" -lt "$year_val$month_val$day_val" ]; then
+            log_message "WITHHELD: newest day holds the earlier edition $slot_edition (Yle has not published this day's yet); no page until the scrape confirms it. $processed_day_log_suffix"
+            for f in index.fi.md index.en.md edition.json _request.fi.en.json _response.fi.en.json; do
+              if [ -e "$target_base_dir/$f" ]; then
+                rm -f "$target_base_dir/$f"
+                log_message "WITHHELD: removed '$target_base_dir/$f'."
+              fi
+            done
+            rmdir "$target_base_dir" 2>/dev/null || true
+            last_base_dir="$prev_base_dir"
+            continue
+          fi
+          ;;
+        esac
       fi
 
       # --- edition.json: which edition this day's page actually holds ---

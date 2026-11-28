@@ -93,6 +93,18 @@ commit "$DEV" pr.txt merged && (cd "$DEV" && g push -q)
 check "git_push re-syncs and succeeds" 'in_local git_push'
 check "github has both" 'git -C "$ROOT/race/github.git" show master:local.txt >/dev/null && git -C "$ROOT/race/github.git" show master:pr.txt >/dev/null'
 
+echo "push keeps failing (no push access), fetch fine"
+fresh denied
+commit "$LOCAL" local.txt nightly
+in_local git remote set-url --push origin "$ROOT/denied/no-such-repo.git"
+# git_push calls git_sync between attempts, and git_sync calls git_net. They
+# once shared a retry counter, so every sync reset git_push's and it retried
+# forever, holding the caller's lock. Run it in its own shell under a timeout.
+start=$(date +%s)
+check "push gives up (does not loop)" '! (cd "$LOCAL" && GIT_REMOTE=origin GIT_BRANCH=master GIT_RETRY_SLEEP=0 GIT_NET_ATTEMPTS=3 timeout 20 sh -c '"'"'log_message() { echo "    | $*"; }; . "$1"; git_push'"'"' sh "$LIB")'
+check "it gave up by itself, not by the timeout (<= 10s)" '[ $(($(date +%s) - start)) -le 10 ]'
+check "the commit is still here" '[ -f "$LOCAL/local.txt" ]'
+
 echo "network failure"
 fresh offline
 in_local git remote set-url origin "$ROOT/does-not-exist.git"

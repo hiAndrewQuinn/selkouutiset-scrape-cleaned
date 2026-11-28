@@ -97,6 +97,8 @@ The bulk of this Git repo is contained in the `YYYY/MM/DD` folders. Each `YYYY/M
   - `"lost": true` is added when the day is listed in the scrape's [`lost.txt`](https://github.com/hiAndrewQuinn/selkouutiset-scrape/blob/main/lost.txt): Yle published an edition that day, but no copy survives anywhere, so the page holds the previous edition.
   - The archive website reads this file to label repeat days ("Yle published no new edition on this day…") and lost days ("(lost media)") rather than guessing from the text.
 
+- **A repeat is only published once it is confirmed.** The scrape files today's slot from whatever yle.fi shows, so until Yle publishes the day's edition (usually around 16:45 Helsinki time) today holds yesterday's edition. That is a placeholder, not a repeat. A day counts as confirmed once the scrape has a slot for a *later* day: that capture ran after the day ended and re-checked it against Yle's feed. So the scrape's newest day, if it holds an older edition, gets no files here at all (`WITHHELD` in the log; any files from an earlier run are removed), and the site does not list it yet. The first run after the next capture then publishes it with its real edition or, if Yle really published nothing that day, as a repeat. Withholding costs nothing: a repeat's translation is always a free copy.
+
 ### What gets translated, and what it can cost
 
 `process.sh` only pays Google for a translation when there is genuinely new Finnish text to translate, and it has hard limits on top of that.

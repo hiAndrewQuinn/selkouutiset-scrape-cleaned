@@ -48,7 +48,7 @@ Yesterday a section of about a hundred metres of the motorway bridge collapsed. 
 
 ## Butterfly populations strengthened
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5198070"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5198070)
 
 Open image viewer
 

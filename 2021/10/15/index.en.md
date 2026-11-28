@@ -18,7 +18,7 @@ The corona pass is the EU corona certificate, which you get from Omakanta.
 
 ## Remote work recommendation
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5487730"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5487730)
 
 Open image viewer
 

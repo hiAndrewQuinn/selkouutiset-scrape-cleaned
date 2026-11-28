@@ -4,7 +4,7 @@ Municipalities warn of redundancies and layoffs. Parliament has returned to work
 
 ## Municipal redundancies
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5367630"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5367630)
 
 Open image viewer
 

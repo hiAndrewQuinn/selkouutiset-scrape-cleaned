@@ -34,7 +34,7 @@ The court has decided that the seizure at the home of a Helsingin Sanomat journa
 
 ## Mistakes in handling chemicals
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286980"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286980)
 
 Open image viewer
 

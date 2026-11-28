@@ -72,7 +72,7 @@ Venäjän mukaan Syyrian hallitus on hyväksynyt tulitauon.
 
 ## Lastenkirjallisuuden Finlandia-ehdokkaat julki
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5735003"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5735003)
 
 Avaa kuvien katselu
 

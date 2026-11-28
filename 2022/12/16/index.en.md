@@ -58,7 +58,7 @@ The folk churches have more rights than other religious groups. For example, the
 
 ## Flood risk on streets
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5519543"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5519543)
 
 Open image viewer
 

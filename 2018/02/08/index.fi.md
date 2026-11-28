@@ -4,7 +4,7 @@ Terveet elämäntavat auttavat estämään muistisairauksia myös silloin, kun s
 
 ## Terveet elämäntavat ehkäisevät muistisairauksia
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5934716"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5934716)
 
 Avaa kuvien katselu
 

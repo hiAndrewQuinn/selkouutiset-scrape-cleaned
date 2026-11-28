@@ -32,7 +32,7 @@ The ban on gatherings is now in force until 13 April. Schools are waiting for ne
 
 ## The church's economy is weakening
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5008374"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5008374)
 
 Open image viewer
 

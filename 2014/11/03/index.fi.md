@@ -4,7 +4,7 @@ Supercell-yrityksen omistajat ansaitsivat eniten Suomessa. Tavallinen palkka on 
 
 ## Peliyrityksen omistajat ansaitsivat eniten Suomessa
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6595990"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6595990)
 
 Avaa kuvien katselu
 

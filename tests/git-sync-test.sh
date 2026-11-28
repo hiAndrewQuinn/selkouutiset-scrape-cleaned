@@ -20,6 +20,9 @@ no() { fail=$((fail + 1)); echo "  FAIL $*"; }
 check() { if eval "$2"; then ok "$1"; else no "$1   [$2]"; fi; }
 
 GIT_REMOTE=origin GIT_BRANCH=master GIT_RETRY_SLEEP=0 GIT_NET_ATTEMPTS=2 GIT_NET_TIMEOUT=20
+# The library's rebases commit, so git needs an identity even where none is
+# configured (a CI runner). Set one for this test only.
+export GIT_AUTHOR_NAME=t GIT_AUTHOR_EMAIL=t@t GIT_COMMITTER_NAME=t GIT_COMMITTER_EMAIL=t@t
 . "$LIB"
 
 g() { git -c user.name=t -c user.email=t@t -c init.defaultBranch=master -c protocol.file.allow=always "$@"; }

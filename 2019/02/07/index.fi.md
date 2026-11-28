@@ -4,7 +4,7 @@ Kehitysvammaisten hoitokodeissa on ollut ongelmia. Sdp on Suomen suosituin puolu
 
 ## Kehitysvammaisten hoitokodeissa on ongelmia
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5729682"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5729682)
 
 Avaa kuvien katselu
 

@@ -30,7 +30,7 @@ You can watch the first journey on the Western Metro on Yle Areena on Saturday m
 
 ## Nurses are bitten and hit
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5732818"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5732818)
 
 Open image viewer
 

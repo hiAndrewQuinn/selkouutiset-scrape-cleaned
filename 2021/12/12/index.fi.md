@@ -22,7 +22,7 @@ Presidentti Joe Biden on luvannut apua tuhoalueille. Biden sanoo, että tämä o
 
 ## Allegro-junat kulkevat taas
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5685611"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5685611)
 
 Avaa kuvien katselu
 

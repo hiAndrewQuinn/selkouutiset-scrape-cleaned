@@ -32,7 +32,7 @@ If a restaurant does not follow the instructions, the police may close the resta
 
 ## The corona situation may change children's summer
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5277014"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5277014)
 
 Open image viewer
 

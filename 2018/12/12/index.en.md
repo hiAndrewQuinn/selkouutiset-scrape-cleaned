@@ -66,7 +66,7 @@ The complaints say that the police acted wrongly when they seized the flags, bec
 
 ## Finns are good at languages
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286492"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286492)
 
 Open image viewer
 

@@ -4,7 +4,7 @@ Suomalaiset ovat melko suvaitsevaisia. Maahanmuuttajat haluavat tietää Timo So
 
 ## Suomalaiset hyväksyvät monenlaisia naapureita
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5857055"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5857055)
 
 Avaa kuvien katselu
 

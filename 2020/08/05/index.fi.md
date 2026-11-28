@@ -67,7 +67,7 @@ Kasvomaski peittää suun ja nenän, ja siksi se voi estää koronaviruksen levi
 
 ## Säätiedot
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5428840"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5428840)
 
 Avaa kuvien katselu
 

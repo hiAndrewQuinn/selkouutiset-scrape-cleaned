@@ -46,7 +46,7 @@ Lääkefirmat sanovat, että Suomessa riittää lääkkeitä. Lääkkeistä ei o
 
 ## Metsään tuli ruuhka
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5822188"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5822188)
 
 Avaa kuvien katselu
 

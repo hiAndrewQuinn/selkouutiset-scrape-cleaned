@@ -24,7 +24,7 @@ Terveyden ja hyvinvoinnin laitos suosittaa, että matkustajat Britanniasta, Irla
 
 ## Turkistarhoja tutkitaan
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5287872"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5287872)
 
 Avaa kuvien katselu
 

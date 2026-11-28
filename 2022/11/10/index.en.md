@@ -20,7 +20,7 @@ Some of Enontekiö's students have already started work, for example at the airp
 
 ## Housework
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5276341"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5276341)
 
 Open image viewer
 

@@ -4,7 +4,7 @@ A healthy lifestyle helps to prevent memory disorders even when the risk of illn
 
 ## A healthy lifestyle prevents memory disorders
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5934716"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5934716)
 
 Open image viewer
 

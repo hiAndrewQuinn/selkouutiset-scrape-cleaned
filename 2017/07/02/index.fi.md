@@ -4,7 +4,7 @@ Eri alueiden välillä on isoja eroja siinä, kuinka nopeasti asunnolle löytyy 
 
 ## Netin asuntoilmoitukset
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5720152"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5720152)
 
 Avaa kuvien katselu
 

@@ -62,7 +62,7 @@ Monet ihmiset ovat viikonlopun aikana juhlineet pikkujouluja. Kun juhlissa juoda
 
 ## Adventtikynttilät syttyivät
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5731962"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5731962)
 
 Avaa kuvien katselu
 

@@ -34,7 +34,7 @@ Oikeus on päättänyt, että Helsingin Sanomien toimittajan kotiin tehty takava
 
 ## Kemikaalien käsittelyssä virheitä
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286980"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5286980)
 
 Avaa kuvien katselu
 

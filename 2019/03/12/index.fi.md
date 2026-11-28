@@ -38,7 +38,7 @@ Kevään yo-kokeisiin osallistuu noin 40 000 opiskelijaa.
 
 ## Puhelinmyynti
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5284023"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5284023)
 
 Avaa kuvien katselu
 

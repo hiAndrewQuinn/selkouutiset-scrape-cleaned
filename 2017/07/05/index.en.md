@@ -50,7 +50,7 @@ The Supreme Court has now decided that the man will not go to prison. The Suprem
 
 ## Ticks and Lyme disease
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5613777"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5613777)
 
 Open image viewer
 

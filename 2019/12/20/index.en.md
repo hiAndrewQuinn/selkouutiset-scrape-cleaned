@@ -82,7 +82,7 @@ The Smiling Man tells the story of boxer Olli Mäki. The film won 8 Jussi Awards
 
 ## Clear News is also available at Christmas
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5718309"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5718309)
 
 Open image viewer
 

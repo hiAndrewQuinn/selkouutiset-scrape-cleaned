@@ -36,7 +36,7 @@ Sunnuntain aikana sateet ovat Espanjassa vähentyneet.
 
 ## Joulun sää
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6047901"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6047901)
 
 Avaa kuvien katselu
 

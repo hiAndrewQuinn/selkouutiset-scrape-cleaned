@@ -1,0 +1,41 @@
+# Runs the repository's tests on every push and pull request: the git sync
+# library, the HTML -> Markdown conversion, and a check of every stored page
+# for leftover raw HTML. Read-only; no secrets, no translation API.
+name: Tests
+
+on:
+  push:
+    branches: [master]
+  pull_request:
+  workflow_dispatch:
+
+permissions:
+  contents: read
+
+jobs:
+  tests:
+    runs-on: ubuntu-24.04
+    timeout-minutes: 15
+    env:
+      PANDOC_VERSION: 3.7.0.1   # keep equal to PANDOC_REQUIRED_VERSION in process.sh
+    steps:
+      - uses: actions/checkout@v4
+        with:
+          fetch-depth: 1
+          submodules: false     # the raw scrape is not needed
+
+      - name: Install pandoc ${{ env.PANDOC_VERSION }}
+        run: |
+          curl -fsSL -o "$RUNNER_TEMP/pandoc.deb" \
+            "https://github.com/jgm/pandoc/releases/download/$PANDOC_VERSION/pandoc-$PANDOC_VERSION-1-amd64.deb"
+          sudo dpkg -i "$RUNNER_TEMP/pandoc.deb"
+          pandoc --version | head -n 1
+
+      - name: Stored pages contain no raw HTML
+        run: sh tests/content-lint.sh
+
+      - name: HTML -> Markdown conversion
+        run: sh tests/html-to-md-test.sh
+
+      - name: git sync library
+        run: sh tests/git-sync-test.sh

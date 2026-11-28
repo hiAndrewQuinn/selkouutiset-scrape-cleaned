@@ -64,7 +64,7 @@ Hirvisaaren kirjoja on myyty Suomessa yli 4 miljoonaa kappaletta.
 
 ## Hillasato
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6623389"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6623389)
 
 Avaa kuvien katselu
 

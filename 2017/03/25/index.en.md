@@ -4,7 +4,7 @@ On Saturday there is the Earth Hour event. The European Union has turned 60 year
 
 ## Earth Hour
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5257265"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5257265)
 
 Open image viewer
 

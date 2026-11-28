@@ -20,7 +20,7 @@ Doctors say that a new kind of school may not suit all children.
 
 ## Demonstrations against Turkey in many cities
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5779236"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5779236)
 
 Open image viewer
 

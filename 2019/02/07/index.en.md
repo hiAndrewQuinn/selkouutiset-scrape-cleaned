@@ -4,7 +4,7 @@ There have been problems in homes for people with intellectual disabilities. The
 
 ## There have been problems in homes for people with intellectual disabilities
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5729682"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5729682)
 
 Open image viewer
 

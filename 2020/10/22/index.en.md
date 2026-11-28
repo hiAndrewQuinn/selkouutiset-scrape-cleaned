@@ -64,7 +64,7 @@ Winter speed limits are valid until spring.
 
 ## The weather
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5379199"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5379199)
 
 Open image viewer
 

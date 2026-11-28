@@ -54,7 +54,7 @@ Jos asuntolainaa on esimerkiksi 120 000 euroa ja korko nousee yhden prosenttiyks
 
 ## Kesä- ja talviaikoja voidaan jatkaa
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6116413"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6116413)
 
 Avaa kuvien katselu
 

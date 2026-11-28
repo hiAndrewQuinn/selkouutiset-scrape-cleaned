@@ -67,7 +67,7 @@ A face mask covers the mouth and nose, and that is why it can stop the spread of
 
 ## The weather
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5428840"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5428840)
 
 Open image viewer
 

@@ -66,6 +66,8 @@ fi
 GIT_REMOTE="${GIT_REMOTE:-origin}"
 GIT_BRANCH="${GIT_BRANCH:-master}"
 . "$SCRIPT_DIR/lib/git-sync.sh"
+# HTML -> Markdown conversion (see lib/html-to-md.sh).
+. "$SCRIPT_DIR/lib/html-to-md.sh"
 check_free_space || exit 1
 git_sync || exit 1
 
@@ -579,17 +581,7 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
         fi
 
         tmp_md_file="${target_md_fi_file}.tmp.$$"
-        if cat "$source_html_file_for_ops" |
-          pandoc --from=html --to=commonmark --wrap=none |
-          perl -CSDA -pe 's{!\[[^\]]*\]\(data:image/svg\+xml;base64,[^)]*\)}{}g' |
-          perl -CSDA -ne 'print unless /^Artikkeli on yli (?:\d+ vuotta|vuoden) vanha\s*$/' |
-          perl -CSDA -pe 's{src="data:image/svg\+xml;base64,[^"]*"}{}gi' |
-          perl -CSDA -pe 's{<img\s+([^>]+)>}{ my $attrs_img = $1; my $src_img = ($attrs_img =~ m{src="([^"]*)"}i) ? $1 : undef; my $alt_img = ($attrs_img =~ m{alt="([^"]*)"}i) ? $1 : undef; (defined $src_img && defined $alt_img) ? sprintf("![%s](%s)", $alt_img, $src_img) : $& }gei' |
-          perl -CSDA -pe 's{</?(?!img.*yle\.fi)[^>]*>}{}gi' |
-          perl -CSDA -0777 -pe 's/^(\s*\n)+//g' |
-          perl -CSDA -0777 -pe 's/(\s*\n)*(Tulosta|Jaa)(\s*\n(Tulosta|Jaa))*\s*$//' |
-          perl -CSDA -0777 -pe 's/\n{3,}/\n\n/g' |
-          perl -CSDA -0777 -pe 's/\s*$/\n/ if /./; $_ = "" if $_ eq "\n";' >"$tmp_md_file"; then
+        if html_to_md <"$source_html_file_for_ops" >"$tmp_md_file"; then
           # Yle's page carries per-request bytes (build IDs, timestamps) that change
           # the HTML's hash on every capture without changing the edition. Only a
           # real change to the Markdown may cascade into a new (paid) translation.
@@ -602,6 +594,9 @@ for year_dir_candidate in "$SUBMODULE_PATH"/20[0-9][0-9]; do
             fi
             mv "$tmp_md_file" "$target_md_fi_file"
             log_message "MD Success: Created/Updated '$target_md_fi_file'. $processed_day_log_suffix"
+            if ! leftovers=$(md_html_leftovers "$target_md_fi_file"); then
+              log_message "MD WARNING: raw HTML survived the conversion into '$target_md_fi_file' (lib/html-to-md.sh needs a fix; tests/content-lint.sh fails until then): $leftovers $processed_day_log_suffix"
+            fi
             fi_md_generated_this_iteration=true
           fi
         else

@@ -68,7 +68,7 @@ The men's sentences were over 10 years in prison. They were also convicted of ag
 
 ## Finns spend moderately on Christmas
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6040450"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-6040450)
 
 Open image viewer
 

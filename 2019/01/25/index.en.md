@@ -4,7 +4,7 @@ The Nordic countries are increasing cooperation against climate change. Finland 
 
 ## The Nordic climate policy
 
-src="https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5531344"
+![](https://img.img-cdn.yle.fi/crop_fill,w_767,h_431,dpr_1/f_auto/13-3-5531344)
 
 Open image viewer
 
